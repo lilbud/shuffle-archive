@@ -37,9 +37,9 @@ Despite the strong rehearsal tapes, there's no record of Bruce ever having recor
 
 More likely than not, though, this is as close as we're going to get.
 
-**Find It Where You Can**
+**Find It Where You Can**<br>
 **Recorded** March 1979 (rehearsal)
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

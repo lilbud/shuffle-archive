@@ -98,7 +98,7 @@ Here are two final clips, from the few performances with the E Street Band (ther
 
 [Watch on Youtube: bruce springsteen ft neil young souls of the departed](https://www.youtube.com/watch?v=ljabZgADz5g)
 
-**Souls of the Departed**
+**Souls of the Departed**<br>
 **Recorded:** July-December 1991  
 **Released:** *Lucky Town* (1992)
 **First performed:** June 15, 1992 (Stockholm, Sweden)

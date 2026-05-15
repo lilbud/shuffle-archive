@@ -4,7 +4,7 @@
 
 Child plays their first of two nights at Richmond's Free University.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -20,7 +20,7 @@ Local bands hold a benefit concert at Point Pleasant Beach to raise legal defens
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -28,7 +28,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 Max Weinberg and Roy Bittan make their official debut as members of the E Street Band when Bruce and the boys play two shows at The Main Point in Bryn Mawr, Pennsylvania. A local newspaper reviewer slightly misspells Roy's name, however, and as for Max's name…
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -36,7 +36,7 @@ Max Weinberg and Roy Bittan make their official debut as members of the E Street
 
 A scheduled gig at the University of Nebraska is postponed and moved to a large venue due to high demand.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -80,7 +80,7 @@ At a re-election campaign stop in Hammonton, New Jersey, President Ronald Reagan
 
 Bruce and the E Street Band play their second of two Born in the U.S.A. shows at the Oakland-Alameda County Coliseum, but this show is a little rougher: listen to Bruce forget the lyrics to "Highway Patrolman."
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/jVL2qSEB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jVL2qSEB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -90,7 +90,7 @@ Bruce and the E Street Band play their second of two Born in the U.S.A. shows at
 
 The Human Rights Now! Tour finally arrives in the United States, kicking off a three-show American stand with a show at JFK Stadium in Philadelphia. Joan Baez makes a guest appearance, and Bruce tour premieres "Jungleland" for Philly, its first appearance since the Born in the U.S.A. Tour.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/Yg2FAUT6GY4?feature=oembed](https://www.youtube.com/embed/Yg2FAUT6GY4?feature=oembed)
 
@@ -120,7 +120,7 @@ New song alert! At his solo acoustic stop in Providence, Bruce debuts "," dedica
 
 Bruce rehearses with the Sessions Band for their upcoming European tour.
 
-**2006:**
+**2006:**<br>
 
 Bruce and the E Street Band kick off a three-night Wrecking Ball stand at MetLife Stadium in East Rutherford, surprising early arrivals with a pre-show of "" and "" The set list features the tour premiere of "," and Vini Lopez makes guest appearances in both the main set and the encores.
 
@@ -140,7 +140,7 @@ Bruce and the E Street Band kick off a three-night Wrecking Ball stand at MetLif
 
 Bruce attends (and reportedly sings at) the wedding of actress Allison Willams and Ricky Van Veen in Saratoga, Wyoming.
 
-**2015:**
+**2015:**<br>
 
 
 
@@ -160,4 +160,4 @@ Bruce attends (and reportedly sings at) the wedding of actress Allison Willams a
 
 Bruce's scheduled show at MVP Arena in Albany–already postponed once from its original date six months ago–is rescheduled yet again to the following April due to Bruce's peptic ulcer disease.
 
-**2023:**
+**2023:**<br>

@@ -12,7 +12,7 @@ Dylan broke out "Rainy Day Women" during his third encore, and he invited a coup
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s3-uk7pmEFI)
 
-**Rainy Day Women #12 & 35**
+**Rainy Day Women #12 & 35**<br>
 **First performed:** October 20, 1994 (New York City, NY)<br>
 **Last performed:** October 20, 1994 (New York City, NY)<br>
 

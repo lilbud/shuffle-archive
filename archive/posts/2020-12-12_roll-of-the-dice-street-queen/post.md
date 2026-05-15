@@ -72,6 +72,6 @@ Obviously, Bruce chose not to release "Street Queen" on his first or any other a
 **Street Queen**  
 **Recorded:** June 7, 1972  
 **Never released**  
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

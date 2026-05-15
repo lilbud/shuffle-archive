@@ -113,7 +113,7 @@ So there. Mock it if you must, but you'll not convince me that "Queen of the Sup
 
 I'm in love with "Queen of the Supermarket."
 
-**Queen of the Supermarket**
+**Queen of the Supermarket**<br>
 **Recorded** 2007-2008**Released:** *Working on a Dream* (2009)
 **First performed:** May 6, 2009 (Stockholm, Sweden)**Last performed:** May 7, 2013 (Turku, Finland)
 

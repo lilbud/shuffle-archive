@@ -40,7 +40,7 @@ In the clip below, you'll hear a distorted Bruce reference the love and fear tat
 
 "Good Eye" has been absent ever since that 2009 tour opener, but it's a solid if under-the-radar blues rocker just begging to be brought out again.
 
-**Good Eye**
+**Good Eye**<br>
 **Recorded** 2008  
 **Released:** *Working on Dream* (2009)
 **First performed:** March 23, 2009 (Asbury Park, NJ)

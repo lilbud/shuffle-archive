@@ -4,7 +4,7 @@
 
 Bruce plays his last show as a full member of the Sundance Blues Band.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce plays his last show as a full member of the Sundance Blues Band.
 
 A newly clean-shaven Bruce drops by Southside Johnny's Stone Pony concert; after Southside's set, Bruce and the E Street Band play a set themselves.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -20,7 +20,7 @@ A newly clean-shaven Bruce drops by Southside Johnny's Stone Pony concert; after
 
 Quite the Independence Day for Bruce in Los Angeles: the day starts off with a trip to KMET-FM, where local DJ Mary Turner interviews an infatuated, talkative Bruce. The interview is loose, rambling, and funny–well worth a listen–with some great stories, including one about the time Bruce played at a mental hospital, where a patient introduced him for twenty minutes, and another about his gig at Sing Sing prison, which has to be heard to be believed. (Bruce refers to both of these gigs during his Broadway show, but here's where you'll get the details.)
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/38Z52NrRFb4?feature=oembed](https://www.youtube.com/embed/38Z52NrRFb4?feature=oembed)
 
@@ -30,7 +30,7 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sw
 
 Bruce and the E Street Band complete "The Man Who Got Away" at the Power Station in New York City. It will languish in the vault for 36 years.
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/Xqc_s3sOOUE?feature=oembed](https://www.youtube.com/embed/Xqc_s3sOOUE?feature=oembed)
 
@@ -60,7 +60,7 @@ At a rare July 4th concert, Bruce opens his second of three nights at London's W
 
 Bruce and his new touring band play their second night at Plaza Monumental in Barcelona.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/3ZRVC8EG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3ZRVC8EG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

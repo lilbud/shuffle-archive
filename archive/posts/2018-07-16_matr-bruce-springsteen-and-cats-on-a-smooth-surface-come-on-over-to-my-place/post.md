@@ -11,7 +11,7 @@ Bruce and the Cats turned in a pretty faithful cover–listen to the original be
 August 1, 1982 (Asbury Park, NJ)
 October 3, 1982 (Asbury Park, NJ)
 
-**Come On Over to My Place**
+**Come On Over to My Place**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

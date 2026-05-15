@@ -42,9 +42,9 @@ Less than three months later, Bruce took the band into the studio and recorded a
 
 That makes it a great candidate for *Tracks 2*, so let's keep our fingers crossed that we get a chance to hear the finished song someday.
 
-**Under the Gun**
+**Under the Gun**<br>
 **Recorded:** June 14, 1979<br>
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

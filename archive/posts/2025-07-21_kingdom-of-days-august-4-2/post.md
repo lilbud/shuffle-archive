@@ -4,7 +4,7 @@
 
 Studio sessions force Bruce to cancel a gig at Asbury Park's Convention Hall, where he and the as-yet-unnamed E Street Band were scheduled to open for Cheech & Chong.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce plays in West Virginia for the first and only time, when the Darkness Tour
 
 The original River Tour arrives in Largo, Maryland, for the first of two shows at the Capital Center.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeXZxSnlTIVoWJ6s6HT8nI1z](https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeXZxSnlTIVoWJ6s6HT8nI1z)
 

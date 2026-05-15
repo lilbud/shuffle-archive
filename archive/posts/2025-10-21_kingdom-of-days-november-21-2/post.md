@@ -4,7 +4,7 @@
 
 Still transitioning from Child to Steel Mill, Bruce and the band open for Chicago Transit Authority at Randolph-Macon College.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -12,11 +12,11 @@ Still transitioning from Child to Steel Mill, Bruce and the band open for Chicag
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 Rocker John Eddie catches his first Bruce Springsteen concert when Bruce and the band play a gig at Camden County College.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -24,7 +24,7 @@ Rocker John Eddie catches his first Bruce Springsteen concert when Bruce and the
 
 Bruce plays his first-ever show in Sweden when the Born to Run Tour arrives in Stockholm. The sound quality isn't great, but these are the first notes the E Street Band ever play in Sweden.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/zcOzsbqkHfs?feature=oembed](https://www.youtube.com/embed/zcOzsbqkHfs?feature=oembed)
 
@@ -46,7 +46,7 @@ is certified triple platinum by the Recording Industry Association of America.
 
 Bruce takes ill and is forced to cancel his scheduled concert in Lexington only six hours before showtime. Meanwhile, Bruce's former band plays without him (but with Darlene Love, Ronnie Spector, Mitch Ryder, and others) in Red Bank at a benefit to fight hunger.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/UeoKin9X?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UeoKin9X?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -90,7 +90,7 @@ One year later, the Ghost of Tom Joad Tour is still going strong. Bruce plays to
 
 Bruce and the reunited E Street Band play a show at the Pepsi Arena in Albany.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/FBttjFK9F4U?feature=oembed](https://www.youtube.com/embed/FBttjFK9F4U?feature=oembed)
 

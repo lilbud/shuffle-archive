@@ -4,15 +4,15 @@
 
 Steel Mill headlines at the Rumson-Fairhaven Regional High School Junior-Senior Prom.
 
-**1970:**
+**1970:**<br>
 
 Bruce and the E Street Band open for Chicago at the Veterans Memorial Coliseum in New Haven.
 
-**1973:**
+**1973:**<br>
 
 Bruce and the E Street Band bring the Darkness Tour to the Sports Arena in Toledo, Ohio.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/Di00F0cx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Di00F0cx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -60,7 +60,7 @@ Bruce and his new band (plus Stevie and Patti) play a rehearsal show–only four
 
 Bruce attends Mariah Carey's wedding to Tommy Mottola, president of Sony Music in Manhattan.
 
-**1993:**
+**1993:**<br>
 
 
 
@@ -68,7 +68,7 @@ Bruce attends Mariah Carey's wedding to Tommy Mottola, president of Sony Music i
 
 The Reunion Tour moves on to Spain, with a single show at Estadio la Romareda in Zaragoza. Watch local coverage of the bands arrival below.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/ELkQXeq9fkk?feature=oembed](https://www.youtube.com/embed/ELkQXeq9fkk?feature=oembed)
 

@@ -4,7 +4,7 @@
 
 The Castiles play a show at the Hullabaloo in Middletown, New Jersey.
 
-**1966:**
+**1966:**<br>
 
 
 
@@ -12,17 +12,17 @@ The Castiles play a show at the Hullabaloo in Middletown, New Jersey.
 
 Bruce plays his first-ever show in Maine, co-headlining with Orleans at Ricker College in Houlton.
 
-**1973:**
+**1973:**<br>
 
 Bruce, Garry, Max, and Roy stop by WMMR-FM in Philadelphia before heading out on the road for a week of shows in Texas. Ed Sciaky records a fascinating interview with Bruce, well worth listening to. During the interview, "Born to Run" receives its radio debut when Sciaky decides to play Bruce's demo so that Bruce can hear what it sounds like on the radio. The recording below may be a bit confusing to follow at times, as it's Sciaky in 1979 doing a retrospective on his interview from this date in 1974, but it's a great document of the original conversation. Take a listen.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/Et9tY3dCDPc?feature=oembed](https://www.youtube.com/embed/Et9tY3dCDPc?feature=oembed)
 
 Bruce and the E Street Band play their first of three nights at Arizona State University in Tempe.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -58,7 +58,7 @@ It's Election Day in the United States, and during Bruce's show in Milwaukee, Bi
 
 Patti Scialfa has a perforated eardrum, forcing Bruce to postpone a scheduled Reunion show in Minneapolis.
 
-**1999:**
+**1999:**<br>
 
 
 
@@ -66,7 +66,7 @@ Patti Scialfa has a perforated eardrum, forcing Bruce to postpone a scheduled Re
 
 Bruce returns to The Stone Pony for the first time in five years, joining Joe Grushecky and The Houserockers on stage at Bob Benjamin's first official Light of Day benefit for the Parkinson's Disease Foundation. Listen to the entire show below. (Bruce joins after the first two songs.)
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/fpVU6S3u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fpVU6S3u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -94,7 +94,7 @@ The Rising Tour returns to the U.S., and the next leg kicks off with a show at A
 
 Hurricane Wilma forces the postponement of a scheduled show in Sunrise, Florida.
 
-**2005:**
+**2005:**<br>
 
 
 
@@ -168,7 +168,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City, minus 
 
 Bruce's scheduled show in Vancouver, B.C. is postponed by more than a year due to his peptic ulcer disease.
 
-**2023:**
+**2023:**<br>
 
 Bruce kicks off his concert in Toronto with "" the first time that song has ever opened a show.
 

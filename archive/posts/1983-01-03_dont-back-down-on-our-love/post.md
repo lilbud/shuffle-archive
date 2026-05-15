@@ -55,6 +55,6 @@ Every close and distant relative to "Don't Back Down on Our Love" improves on th
 **Don't Back Down on Our Love**  
 **Recorded:** January-March 1983  
 **Released:** *L.A. Garage Sessions '83* (2025)
-**Never performed**
+**Never performed**<br>
 
 © January 18, 2026

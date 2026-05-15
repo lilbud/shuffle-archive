@@ -29,8 +29,8 @@ But what's it in service of? Does Bruce have a message here?
 
 Beats the heck out of me. Anyone care to enlighten?
 
-**The Fire Engines Are Returning Home**
-**Never recorded**
-**Never performed**
+**The Fire Engines Are Returning Home**<br>
+**Never recorded**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -19,6 +19,6 @@ The Rolling Stones would never achieve that level of chart success again. Despit
 January 18, 1989 (New York City, NY)
 January 18, 1989 (New York City, NY)
 
-**Start Me Up**
+**Start Me Up**<br>
 **First performed:**<br>
 **Last performed:**<br>

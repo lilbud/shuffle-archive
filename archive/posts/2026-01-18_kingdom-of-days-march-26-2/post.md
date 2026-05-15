@@ -2,7 +2,7 @@
 
 At the Fox Theater in Atlanta, Bruce premieres an early version of "Frankie."
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -14,7 +14,7 @@ At the Fox Theater in Atlanta, Bruce premieres an early version of "Frankie."
 
 "Ain't Got You" makes its live debut during Bruce's Tunnel of Love Express show at the Rupp Arena in Lexington.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/2KwzHwiH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2KwzHwiH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -36,13 +36,13 @@ previews Bruce's upcoming albums, and .
 
 Bruce and the E Street Band play their second of two nights in Brisbane on the Rising Tour, opening with an acoustic "Born in the U.S.A." and featuring a rare "I'm a Rocker."
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/yyUIuX3l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yyUIuX3l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Peter Wolf guest-stars for "Raise Your Hand" (a tour premiere) in the encores at this Wrecking Ball show at Boston's TD Garden. The show also features tour premieres of "Thundercrack," "Jackson Cage," and "She's the One."
 
-**2012:**
+**2012:**<br>
 
 [https://videopress.com/embed/JECwsM3m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JECwsM3m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -56,19 +56,19 @@ Peter Wolf guest-stars for "Raise Your Hand" (a tour premiere) in the encores at
 
 Bruce and the E Street Band play their second of three nights at Melbourne's Rod Laver Arena.
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/7JztbtJwB0w?feature=oembed](https://www.youtube.com/embed/7JztbtJwB0w?feature=oembed)
 
 In the early days of the COVID-19 pandemic, Bruce phones E Street Radio DJ Jim Rotolo for a nine-minute interview. (It won't be broadcast until the next day, though.)
 
-**2020:**
+**2020:**<br>
 
 [https://www.youtube.com/embed/D_RB4j0nS4A?feature=oembed](https://www.youtube.com/embed/D_RB4j0nS4A?feature=oembed)
 
 Bruce performs "Because the NIght" and joins the show-closing ensembled on "People Have the Power" at a Carnegie Hall benefit tribute to Patti Smith.
 
-**2025:**
+**2025:**<br>
 
 [https://www.youtube.com/embed/-atK7jHEnGQ?feature=oembed](https://www.youtube.com/embed/-atK7jHEnGQ?feature=oembed)
 

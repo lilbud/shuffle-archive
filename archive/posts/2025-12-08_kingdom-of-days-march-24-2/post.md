@@ -2,7 +2,7 @@
 
 Bruce and the (not yet named) E Street Band play a gig at Niagara University in Lewiston, New York. Meanwhile, a couple of hours away in Ithaca, the local paper publishes a review of Bruce's recently released debut album. Keep an eye on him, the reviewer advises.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -18,7 +18,7 @@ Bruce and the band perform on a revolving stage at the Celebrity Theater in Phoe
 
 Bruce and the E Street Band play their third of four nights at Boston's Music Hall in the final stand of the Lawsuit Tour. This show features the debut of Jackie Wilson's "(Your Love Keeps Lifting Me) Higher and Higher."
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -26,23 +26,23 @@ Bruce and the E Street Band play their third of four nights at Boston's Music Ha
 
 At the Power Station in New York City, Bruce and the E Street Band work on "Hungry Heart."
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/boJhWtw-6Gg?feature=oembed](https://www.youtube.com/embed/boJhWtw-6Gg?feature=oembed)
 
 Bruce postpones a scheduled show in Manchester in order to recover from the first two legs of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 In his home studio in Los Angeles, Bruce records "County Fair." It will remain unreleased for two decades.
 
-**1983:**
+**1983:**<br>
 
 [https://www.youtube.com/embed/yltKgMyWLH0?feature=oembed](https://www.youtube.com/embed/yltKgMyWLH0?feature=oembed)
 
 Night Three of five in Sydney on the Born in the U.S.A. Tour.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/BtcDRPOX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BtcDRPOX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -56,7 +56,7 @@ Bruce joins The Blasters on stage at the House of Blues in West Hollywood, backi
 
 Bruce plays "You'll Be Comin' Down" for the first and only time when the Magic Tour stops at the Value City Arena in Columbus, Ohio. The set list also features the tour premieres of "Something in the Night" and "Sherry Darling."
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/xp71N3OTQ4g?feature=oembed](https://www.youtube.com/embed/xp71N3OTQ4g?feature=oembed)
 
@@ -66,7 +66,7 @@ Bruce plays "You'll Be Comin' Down" for the first and only time when the Magic T
 
 The second and final rehearsal show for the Working on a Dream Tour features the live premiere of "Kingdom of Days" at Asbury Park's Convention Hall.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/aHGw8t9zoGM?feature=oembed](https://www.youtube.com/embed/aHGw8t9zoGM?feature=oembed)
 
@@ -74,7 +74,7 @@ The second and final rehearsal show for the Working on a Dream Tour features the
 
 The Australian leg of the Wrecking Ball Tour moves on to Melbourne for the first of three nights at the Rod Laver Arena.
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/2Oca7f4hxDM?feature=oembed](https://www.youtube.com/embed/2Oca7f4hxDM?feature=oembed)
 
@@ -94,12 +94,12 @@ continues its theatrical run at the Walter Kerr Theater in New York City, where 
 
 Bruce appears in a promotional video to announce the launch of the New Jersey Pandemic Relief Fund. This is his first public appearance since the onset of the COVID-19 pandemic.
 
-**2020:**
+**2020:**<br>
 
 [https://www.youtube.com/embed/uHGGh5mFJng?feature=oembed](https://www.youtube.com/embed/uHGGh5mFJng?feature=oembed)
 
 Bruce sends a video message out to remember Austalian promotor Michael Gudiski, who passed away on March 2nd, and dedicates "I'll See You in My Dreams" to him.
 
-**2021:**
+**2021:**<br>
 
 [https://www.youtube.com/embed/n_MP_Iq5uGo?feature=oembed](https://www.youtube.com/embed/n_MP_Iq5uGo?feature=oembed)

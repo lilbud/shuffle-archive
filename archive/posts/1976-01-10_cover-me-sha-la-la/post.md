@@ -10,7 +10,7 @@ Bruce clearly modeled his take on "Sha La La" after Manfred Mann's 1964 version 
 
 [Watch on Youtube: Shirelles - Sha-La-La](https://www.youtube.com/watch?v=BsEHrhiwY8A)
 
-**Sha La La**
+**Sha La La**<br>
 **First performed:** July 20, 1975 (Providence, RI)<br>
 **Last performed:** August 19, 2009 (Hartford, CT)<br>
 

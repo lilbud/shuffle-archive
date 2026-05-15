@@ -39,7 +39,7 @@ Bruce never played with Solar Circus again, but at least for that one August nig
 August 10, 1995 (Long Branch, NJ)
 August 10, 1995 (Long Branch, NJ)
 
-**Better Things**
+**Better Things**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

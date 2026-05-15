@@ -26,7 +26,7 @@ Tucked into the encores that night, Bruce's version of "Ballad of Easy Rider" wa
 
 But if he was only ever going to play it once, he certainly made sure that performance was a stunner.
 
-**Ballad of Easy Rider**
+**Ballad of Easy Rider**<br>
 **First performed:** August 20, 1981 (Los Angeles, CA)
 **Last performed:** August 20, 1981 (Los Angeles, CA)
 

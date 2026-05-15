@@ -4,7 +4,7 @@
 
 Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -12,7 +12,7 @@ Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 Daryl Hall and John Oates open for Bruce and the E Street Band at Max's Kansas City in New York City. This is the first of a five-night/ten-show stand.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -24,7 +24,7 @@ Daryl Hall and John Oates open for Bruce and the E Street Band at Max's Kansas C
 
 "Semi-country" Bruce Springsteen and the E Street Band kick off a week of Texas shows with their first of two nights at Armadillo World Headquarters in Austin.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -38,13 +38,13 @@ Daryl Hall and John Oates open for Bruce and the E Street Band at Max's Kansas C
 
 Bruce and the boys play their third of three nights at Arizona State University in Tempe on the Born to Run Tour.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/Hw5kxpUbCNw?feature=oembed](https://www.youtube.com/embed/Hw5kxpUbCNw?feature=oembed)
 
 With the Palladium shows behind him Bruce takes a break from touring for the rest of the year. With time on his hands, Bruce heads into the city to visit DJ Richard Neer at New York's WNEW-FM. The two have an on-the-air chat interspersed with records that Bruce selects for airplay. I've uploaded the interview but removed the in-between songs, so it might seem a little choppy at times. Take a listen below.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/Q3KWGnZ_Nas?feature=oembed](https://www.youtube.com/embed/Q3KWGnZ_Nas?feature=oembed)
 
@@ -54,7 +54,7 @@ Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park f
 
 Bruce joins The Fabulous Grease Band on stage at a concert at Rumson Country Day School. The set was recorded off the soundboard and is a great listen.
 
-**1987:**
+**1987:**<br>
 
 [https://www.youtube.com/embed/PQ5WeAOVDQI?feature=oembed](https://www.youtube.com/embed/PQ5WeAOVDQI?feature=oembed)
 
@@ -88,7 +88,7 @@ is released on DVD, featuring eleven songs not aired in the broadcast version.
 
 A scheduled Rising Tour show in Austin is postponed until the following March due to Clarence's detached retina.
 
-**2002:**
+**2002:**<br>
 
 
 
@@ -104,7 +104,7 @@ A scheduled Rising Tour show in Austin is postponed until the following March du
 
 Bruce joins Joe Grushecky and The Houserockers on stage for the fifth consecutive year at the annual Light of Day benefit concert. It's just four days after Election Day, and the loss still stings. Bruce plays a particularly pointed set, and at the end of "This Hard Land," you can hear him add, "No surrender!" Listen to the set below.
 
-**2004:**
+**2004:**<br>
 
 [https://www.youtube.com/embed/gmoqu90hG24?list=PLnbVaK2f4raiZ61aK4m5x4seqMIHpMqks](https://www.youtube.com/embed/gmoqu90hG24?list=PLnbVaK2f4raiZ61aK4m5x4seqMIHpMqks)
 
@@ -134,7 +134,7 @@ is certified platinum by the Recording Industry Association of America, barely a
 
 Bruce supports Stand Up for Heroes VII, now at New York's Madison Square Garden, auctioning off a guitar (plus a lesson, plus his mom's lasagna, plus an opportunity to join him at a recording session(!)) for $250,000 and playing a three-song acoustic set.
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/98zmzIVTNP4?feature=oembed](https://www.youtube.com/embed/98zmzIVTNP4?feature=oembed)
 
@@ -146,7 +146,7 @@ Bruce supports Stand Up for Heroes VII, now at New York's Madison Square Garden,
 
 Bruce's scheduled show in Edmonton is postponed to more than a year later due to his peptic ulcer disease. However, he's well enough to make a surprise (yet customary) appearance at Stand Up for Heroes in New York City, dueting with John Mellencamp on "Wasted Days" and playing four songs of his own, including the live premiere of "Addicted to Romance."
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/5ueXcp0p_Fs?feature=oembed](https://www.youtube.com/embed/5ueXcp0p_Fs?feature=oembed)
 

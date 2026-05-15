@@ -26,7 +26,7 @@ What no one could have predicted is that she'd perform it as a duet with Bruce S
 
 Sheryl and Bruce traded lead vocals in their intimate acoustic performance, immediately establishing the evening's first musical performance as the highlight of the event. Their duet may have been a one-time-only affair, but "Redemption Day" is just as relevant today as when Crow wrote it.
 
-**Redemption Day**
+**Redemption Day**<br>
 **First performed:** November 4, 2019 (New York City, NY)<br>
 **Last performed:** November 4, 2019 (New York City, NY)<br>
 

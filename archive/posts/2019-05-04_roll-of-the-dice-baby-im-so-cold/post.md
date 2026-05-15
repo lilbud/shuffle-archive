@@ -63,9 +63,9 @@ Listen again, and marvel at how Bruce is able to craft an entirely difference so
 
 That recording likely resides in the vault, a strong candidate (we can only hope) for eventual release on a *Born in the U.S.A.* box set).
 
-**Baby, I'm So Cold**
+**Baby, I'm So Cold**<br>
 **Recorded:** Early 1982 (acoustic demo), May 11, 1982 (studio)
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

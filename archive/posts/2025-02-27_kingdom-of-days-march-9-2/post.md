@@ -4,7 +4,7 @@
 
 Bruce's scheduled gig opening for Paul Butterfield in Phoenix is cancelled due to low ticket sales.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -22,7 +22,7 @@ That night, the boys play two shows at Liberty Hall.
 
 Violinist Suki Lahav makes her last appearance with Bruce and the E Street Band when the Wild & Innocent Tour wraps up at DAR Constitution Hall in Washington, DC.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -48,7 +48,7 @@ MTV debuts Bruce's new video for "" at 9pm Eastern Time, and then plays it every
 
 The Reunion Tour's Florida swing continues with a show at the National Car Rental Center in Sunrise.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/dWAWaSej?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dWAWaSej?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -74,11 +74,11 @@ Bruce grants an interview to at his home in New Jersey.
 
 Bruce rehearses for his upcoming solo tour at the Paramount Theater in Asbury Park.
 
-**2005:**
+**2005:**<br>
 
 Another tour rehearsal at the Paramount, this time with the Sessions Band.
 
-**2006:**
+**2006:**<br>
 
 Bruce and the E Street Band play a historic show at the Apollo Theater in New York City. Jake Clemons makes his E Street Band debut (this is the band's first show without Clarence), and to ease the transition, the band now features a full horn section. The show itself is semi-private, sponsored by SiriusXM and broadcast live. This show will eventually kick off the official archive series of releases in 2014, and it is well worth owning–!
 
@@ -108,10 +108,10 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 
 Bruce reminisces about his legendary Apollo Theater show on its tenth anniversary, with E Street Radio host Jim Rotolo.
 
-**2022:**
+**2022:**<br>
 
 [https://www.youtube.com/embed/mCk-8jeJJzw?feature=oembed](https://www.youtube.com/embed/mCk-8jeJJzw?feature=oembed)
 
 Columbus fans are dejected when Bruce is forced to postpone his show at Nationwide Arena to September due to illness. But hey, it's only a six month wait, right? Nope–the show will be postponed once more and finally take place more than a year after it's originally scheduled date.
 
-**2023:**
+**2023:**<br>

@@ -89,7 +89,7 @@ To date, that Hunter Valley opener remains Bruce's one and only performance of "
 
 And yes, I could have taken us here on a much more direct route. But we would have missed a fine tour of early, bawdy rock and rockabilly, and if I'm going to have "Spo-Dee-O-Dee" stuck in my head all day, I want company.
 
-**Drinkin' Wine, Spo-Dee-O-Dee**
+**Drinkin' Wine, Spo-Dee-O-Dee**<br>
 **First performed:** February 22, 2014 (Hunter Valley, Australia)
 **Last performed:** February 22, 2014 (Hunter Valley, Australia)
 

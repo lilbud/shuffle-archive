@@ -4,11 +4,11 @@
 
 Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 Bruce plays the first night of seven at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce plays the first night of seven at Oliver's in Boston.
 
 A mere five days away from his scheduled twelve-show River Tour stand in the U.K., Bruce postpones all shows until late May and early June due to exhaustion from the American leg of the tour.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -30,7 +30,7 @@ is certified as 12x Platinum by the Recording Industry Association of America.
 
 Bruce and the E Street Band rehearse at Asbury Park's Paramount Theater for the upcoming Working on a Dream Tour.
 
-**2009:**
+**2009:**<br>
 
 
 
@@ -42,6 +42,6 @@ Bruce and the expanded E Street Band play their last private pre-tour rehearsal 
 
 This time it's Bruce who is laid low by illness (not COVID, though), forcing the postponement (and eventually re-postponement) of his scheduled show at Mohegan Sun Arena in Uncasville.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/cFtKz5lEV50?feature=oembed](https://www.youtube.com/embed/cFtKz5lEV50?feature=oembed)

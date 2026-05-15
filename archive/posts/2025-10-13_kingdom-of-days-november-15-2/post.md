@@ -4,7 +4,7 @@
 
 Bruce and his band headline two shows at My Father's Place in Roslyn, New York.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce and his band headline two shows at My Father's Place in Roslyn, New York.
 
 Bruce and the E Street Band play a show at Lafayette College in Easton, Pennsylvania.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -30,7 +30,7 @@ Bruce appears on the cover of as part of their cover feature on the MUSE events 
 
 Bruce changes up the setlist on Night Two at The Summit in Houston on the River Tour, playing nine songs not played the previous night. Earlier in the day, The Big Man purchases new duds, and after the show, Bruce takes a party of 30 out for a late dinner.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/8HNUUtpxf0U?feature=oembed](https://www.youtube.com/embed/8HNUUtpxf0U?feature=oembed)
 
@@ -40,7 +40,7 @@ Bruce changes up the setlist on Night Two at The Summit in Houston on the River 
 
 The Born in the U.S.A. Tour stops at the St. Louis Arena. Check out the news footage below.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/VVpgxiv2Uv4?feature=oembed](https://www.youtube.com/embed/VVpgxiv2Uv4?feature=oembed)
 
@@ -56,7 +56,7 @@ Bruce appears on the cover of special issue on the 1980s.
 
 Bruce and his new touring band bring World Tour 1992 to the Hartford Civic Center for a night.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/hKxSkFQ1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hKxSkFQ1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

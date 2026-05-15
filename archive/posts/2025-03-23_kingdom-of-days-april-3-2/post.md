@@ -4,11 +4,11 @@
 
 Child continues their opening stand at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Bruce and Steve play The Upstage in Asbury Park, leading separate bands but each playing a slate of hits from the 1950s.
 
-**1971:**
+**1971:**<br>
 
 At the Record Plant in New York City, Bruce and his studio team complete the mix for "."
 
@@ -24,7 +24,7 @@ Bruce records multiple takes of "," just six days after the Three Mile Island ac
 
 Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -90,7 +90,7 @@ In Glendale, Night Two on the Working on a Dream Tour brings six set list change
 
 The Wrecking Ball Tour stops at the Izod Center in East Rutherford for the first of two nights. The highlight: the tour premiere of "So Young and In Love."
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/e8XRY1Cfr0k?feature=oembed](https://www.youtube.com/embed/e8XRY1Cfr0k?feature=oembed)
 
@@ -104,11 +104,11 @@ The Wrecking Ball Tour stops at the Izod Center in East Rutherford for the first
 
 Bruce and the E Street Band rehearse for the U.S. leg of the High Hopes Tour at Sir Studios in New York City.
 
-**2014:**
+**2014:**<br>
 
 The new River Tour stops at the Chesapeake Energy arena in Oklahoma City.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/ts-sQIQuk9k?feature=oembed](https://www.youtube.com/embed/ts-sQIQuk9k?feature=oembed)
 

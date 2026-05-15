@@ -39,7 +39,7 @@ Although it's believed that The Castiles performed the song often over the next 
 
 [Watch Video Highlight](https://videopress.com/embed/UmOLrDkm)
 
-**Baby I**
+**Baby I**<br>
 **Recorded:** May 18, 1966  
 **Released:** *Chapter & Verse* (2016)
 **First performed:** November 2019 (Colts Neck, NJ)

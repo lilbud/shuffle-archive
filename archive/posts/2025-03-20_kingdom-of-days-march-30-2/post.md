@@ -10,7 +10,7 @@ At the Record Plant in New York City, Bruce and his studio team complete the mix
 
 Bruce and the E Street Band rehearse for their upcoming album in Bruce's home studio in Holmdel, although several of the songs they work on won't see release for almost four decades.
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/6CeHuKvkITU?feature=oembed](https://www.youtube.com/embed/6CeHuKvkITU?feature=oembed)
 
@@ -18,7 +18,7 @@ Bruce and the E Street Band rehearse for their upcoming album in Bruce's home st
 
 Bruce postpones a show in Edinburgh to recover from the previous leg of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -26,7 +26,7 @@ Bruce postpones a show in Edinburgh to recover from the previous leg of the Rive
 
 Detroit radio station WRIF-FM airs a bootleg of last month's Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can't envision a day when bootlegs are commonly played on the radio.
 
-**1988:**
+**1988:**<br>
 
 
 
@@ -34,11 +34,11 @@ Detroit radio station WRIF-FM airs a bootleg of last month's Tunnel of Love Expr
 
 Bruce and Julianne Phillips finalize their divorce.
 
-**1989:**
+**1989:**<br>
 
 Bruce and his new touring band rehearse in Glasgow before kicking off World Tour 1993. Listen in on the rehearsal session below.
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/QSdKEveK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QSdKEveK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -50,17 +50,17 @@ Bruce and his new touring band rehearse in Glasgow before kicking off World Tour
 
 Bruce's scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year's Oscars ceremony.
 
-**1996:**
+**1996:**<br>
 
 The Reunion Tour comes to the Pepsi Center in Denver for the first of two nights.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/wXh0vJHg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wXh0vJHg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 In town a day early for their show in Vancouver, Bruce and Max take their sons to see Foo Fighters and Against Me at the Pacific Coliseum.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/ftsBk0Sq2A8?feature=oembed](https://www.youtube.com/embed/ftsBk0Sq2A8?feature=oembed)
 

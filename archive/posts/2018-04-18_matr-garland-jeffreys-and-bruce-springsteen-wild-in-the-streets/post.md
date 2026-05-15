@@ -10,6 +10,6 @@ Not bad, but IMO, it doesn't hold a candle to the original:
 
 [Watch on Youtube: Garland Jeffreys - Wild in the Streets (Official Music Video)](https://www.youtube.com/watch?v=3RzBZsOeqOQ)
 
-**Wild in the Streets**
+**Wild in the Streets**<br>
 **First performed:** November 2, 2002 (Sea Bright, NJ)<br>
 **Last performed:** January 14, 2012 (Asbury Park, NJ)<br>

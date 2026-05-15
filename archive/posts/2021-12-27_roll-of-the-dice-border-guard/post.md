@@ -76,6 +76,6 @@ Bruce would revisit the California/Mexico border in song decades later, this tim
 **Border Guard  
 Recorded:** April 1972  
 **Never released**  
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,7 +2,7 @@
 
 The Castiles (Bruce's first band) play a gig at The Left Foot in Bruce's hometown of Freehold.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -10,7 +10,7 @@ The Castiles (Bruce's first band) play a gig at The Left Foot in Bruce's hometow
 
 Bruce and the band continue their five-night stint at The Quiet Knight in Chicago, opening for The Persuasions.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -18,7 +18,7 @@ Bruce and the band continue their five-night stint at The Quiet Knight in Chicag
 
 Bruce and the band play a sold-out show at Chrysler Hall in Norfolk, Virginia.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -78,4 +78,4 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and the E Street Band rehearse for their upcoming world tour at Cure Insurance Arena in Trenton.
 
-**2023:**
+**2023:**<br>

@@ -14,7 +14,7 @@ With its western outlaw theme, it's easy to see why it appealed to Bruce, and wh
 
 To date, however, this remains the only time Bruce has performed "Wanted Dead or Alive."
 
-**Wanted Dead or Alive**
+**Wanted Dead or Alive**<br>
 **First performed:** January 31, 1998 (Red Bank, NJ)
 **Last performed:** January 31, 1998 (Red Bank, NJ)
 

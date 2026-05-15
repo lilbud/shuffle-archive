@@ -36,9 +36,9 @@ With "Answering Machine," Bruce once again displays his impressive talent for so
 
 "Answering Machine" is a tour de force that belongs in every Springsteen fan's collection.
 
-**Answering Machine**
+**Answering Machine**<br>
 **Recorded:** Unknown  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

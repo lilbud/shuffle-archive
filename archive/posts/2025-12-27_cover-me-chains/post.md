@@ -31,7 +31,7 @@ As far as we know, this was a true one-off: "Chains" hasn't turned up in Bruce's
 Unknown (probably mid-1971)
 Unknown (probably mid-1971)
 
-**Chains**
+**Chains**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

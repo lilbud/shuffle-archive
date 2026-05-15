@@ -2,11 +2,11 @@
 
 Child performs at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Bruce and the E Street Band headline a show at Widener College.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -14,7 +14,7 @@ Bruce and the E Street Band headline a show at Widener College.
 
 The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a show at the Ohio Theater in Columbus.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/lGkeKgZblAo?feature=oembed](https://www.youtube.com/embed/lGkeKgZblAo?feature=oembed)
 
@@ -22,13 +22,13 @@ The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a sh
 
 "Streets of Fire" receives its final mix at the Record Plant in New York City.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/HzIm7Ek6Vv0?feature=oembed](https://www.youtube.com/embed/HzIm7Ek6Vv0?feature=oembed)
 
 Night Two at the Capital Center in Largo, Maryland, along the Tunnel of Love Express Tour.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/v5RXcyFL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/v5RXcyFL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -48,7 +48,7 @@ A busy day for Bruce and the (temporarily) reunited E Street Band: First, they m
 
 Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Theater in Asbury Park.
 
-**2006:**
+**2006:**<br>
 
 
 
@@ -64,13 +64,13 @@ Bruce makes a surprise appearance at a Carnegie Hall benefit show, , joining Cra
 
 Another radio station contest to pick a song for the set list–this time "Fire" is the winner for this Magic Tour stop at HP Pavilion in San Jose. "Out in the Street" and "Bobby Jean" make their tour debut tonight as well.
 
-**2008:**
+**2008:**<br>
 
 [https://videopress.com/embed/4ds7LEvR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4ds7LEvR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare "I'm a Rocker" and "Sherry Darling."
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/1yChqkwXgbI?feature=oembed](https://www.youtube.com/embed/1yChqkwXgbI?feature=oembed)
 
@@ -84,7 +84,7 @@ Bruce continues tinkering with the set list on the third night of the Working on
 
 At a River Tour stop in Dallas, things get a little out of hand during "Dancing in the Dark."
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/nXqgo0oSJc0?feature=oembed](https://www.youtube.com/embed/nXqgo0oSJc0?feature=oembed)
 
@@ -108,7 +108,7 @@ Bruce and President Barack Obama release the final episode of their Spotify podc
 
 For the fourth show in a row, Bruce introduces a tour debut into his mostly static World Tour setlist. Tonight, "Atlantic City" premieres at Rocket Mortgage Fieldhouse in Cleveland.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/Q_whKRSfRYg?feature=oembed](https://www.youtube.com/embed/Q_whKRSfRYg?feature=oembed)
 

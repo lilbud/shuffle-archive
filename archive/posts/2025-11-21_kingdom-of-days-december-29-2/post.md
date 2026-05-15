@@ -12,11 +12,11 @@ Bruce plays in Ohio for the first time, when he and the band open for Sha Na Na 
 
 Bruce and his unnamed band play two shows on their third of four nights at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1973:**
+**1973:**<br>
 
 Bruce makes a guest appearance with Southside Johnny and Steve Van Zandt's Blackberry Booze Band at The Stone Pony in Asbury Park.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce makes a guest appearance with Southside Johnny and Steve Van Zandt's Black
 
 On his night off during his three-night stand in Philadelphia, Bruce takes in the J. Geils Band show at the Spectrum from the press box (along with actress Faye Dunaway).
 
-**1975:**
+**1975:**<br>
 
 
 

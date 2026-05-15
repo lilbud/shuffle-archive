@@ -2,11 +2,11 @@
 
 The Bruce Springsteen Band plays their third of nine shows this month at The Back Door in Richmond, Virginia.
 
-**1972:**
+**1972:**<br>
 
 Hot on the heels of their historic radio broadcast the previous evening, Bruce and the E Street Band play their first of two nights at Widener College in Chester, Pennsylvania. Due to poor venue acoustics, Mike Appel has the gymnasium outfitted with acoustic paneling to help improve the sound. There's only one problem: the paneling is highly flammable, a fact Appel learns only hours before the show. The show is delayed by 90 minutes (while the paneling is moved out of reach of the audience) as a result. Amazingly, much of the show is captured on video by two fans. What you see below is one of the earliest known videos of the E Street Band, and the only video footage of the band with Suki Lahav.
 
-**1975:**
+**1975:**<br>
 
 [https://videopress.com/embed/vbWwUyu9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vbWwUyu9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -16,7 +16,7 @@ Hot on the heels of their historic radio broadcast the previous evening, Bruce a
 
 In Freehold, it seems that everyone has an opinion on a proposal to rename South Street as Bruce Springsteen Boulevard. Noticeably absent from the debate: the intended honoree.
 
-**1985:**
+**1985:**<br>
 
 
 
@@ -24,7 +24,7 @@ In Freehold, it seems that everyone has an opinion on a proposal to rename South
 
 Bruce arrives in Sydney for a five-show stand on his solo acoustic tour.
 
-**1997:**
+**1997:**<br>
 
 
 

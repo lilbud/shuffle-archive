@@ -2,11 +2,11 @@
 
 : After driving across the U.S., Steel Mill auditions for a gig at The Family Dog on The Great Highway in San Francisco. They are rejected.
 
-**1970**
+**1970**<br>
 
 Temporarily without a band (Bruce disbanded Steel Mill in December), Bruce appears at the Upstage in Asbury Park as one of headliner Steve Van Zandt's "friends." Other friends on stage include Garry Tallent, Danny Federici, and Southside Johnny. Who knew there was espresso in New Jersey in 1971?
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -14,7 +14,7 @@ Temporarily without a band (Bruce disbanded Steel Mill in December), Bruce appea
 
 : Bruce plays Boston for the first time as he begins a seven-night, two-shows-daily run at Paul's Mall, opening for David Bromberg. Promotional ads get his name wrong, though, and it won't be the last time people mistakenly call him "Rick."
 
-**1973**
+**1973**<br>
 
 
 
@@ -72,11 +72,11 @@ At the Virgin Megastore in Times Square, Bruce and Little Steven attend the prem
 
 Bruce and Patti attend a farewell party for outgoing President Barack Obama at The White House in Washington, D.C.
 
-**2017:**
+**2017:**<br>
 
 At the annual awards gala for the National Board of Review, Bruce presents the "icon award" winners: Martin Scorsese, Robert De Niro, and Al Pacino.
 
-**2020:**
+**2020:**<br>
 
 
 

@@ -23,7 +23,7 @@ That was the only time Bruce has ever performed "Guitar Town." For more one-time
 February 6, 1998 (Sea Bright, NJ)
 February 6, 1998 (Sea Bright, NJ)
 
-**Guitar Town**
+**Guitar Town**<br>
 **First performed:** <br>
 **Last performed:**<br>
 

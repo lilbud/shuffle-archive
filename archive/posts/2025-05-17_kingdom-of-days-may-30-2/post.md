@@ -4,7 +4,7 @@
 
 : Honorary E Streeter Tom Morello is born in New York City.
 
-**1964**
+**1964**<br>
 
 
 
@@ -12,11 +12,11 @@
 
 Child plays a gig at Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Bruce plays his first North Carolina show, opening for Chicago at the Cumberland County Memorial Arena in Fayetteville. This is the start of a thirteen-show tour with Chicago, which will not go well–Bruce's music and style are not a good fit for Chicago fans.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -44,7 +44,7 @@ Southside Johnny's debut album release party at The Stone Pony is broadcast live
 
 At Night Two of three at Boston's Music Hall, Bruce tour premieres "Because the Night" as an encore.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/The8c38RJr0?feature=oembed](https://www.youtube.com/embed/The8c38RJr0?feature=oembed)
 
@@ -64,7 +64,7 @@ Bruce and the E Street Band work on "" and "" at the Power Station in New York C
 
 Bruce's World Tour 1993 stops for a night in the town of Gentofte, Denmark.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/bZvWPUzT75Q?feature=oembed](https://www.youtube.com/embed/bZvWPUzT75Q?feature=oembed)
 
@@ -100,7 +100,7 @@ The Seeger Sessions Tour arrives at the Germain Amphitheater in Columbus, where 
 
 The Magic Tour gets its longest show to date, at Emirates Stadium in London.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/u7HfoSgA1bw?feature=oembed](https://www.youtube.com/embed/u7HfoSgA1bw?feature=oembed)
 
@@ -108,7 +108,7 @@ The Magic Tour gets its longest show to date, at Emirates Stadium in London.
 
 Bruce and the E Street Band kick off the European leg of the Working on a Dream Tour by headlining Pinkpop in The Netherlands, where "From Small Things (Big Things One Day Come)" makes its tour debut and Brandon Flowers guest-stars on "Thunder Road."
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/dzkecxiSwdY?feature=oembed](https://www.youtube.com/embed/dzkecxiSwdY?feature=oembed)
 
@@ -126,7 +126,7 @@ The Wrecking Ball Tour arrives in Berlin, and Bruce marks the occasion by openin
 
 Bruce and Patti perform some classic covers with Bobby Bandiera's band at the wedding of Patti's personal assistant in Oakland, New Jersey.
 
-**2015:**
+**2015:**<br>
 
 
 

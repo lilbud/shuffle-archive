@@ -4,11 +4,11 @@
 
 Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 Bruce continues his Florida swing with a gig at Jai Alai Fronton in Orlando.
 
-**1977:**
+**1977:**<br>
 
 [https://videopress.com/embed/4joZ40eY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4joZ40eY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -44,7 +44,7 @@ At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the 
 
 Bruce and the reunited E Street Band rehearse for their upcoming Reunion Tour at Convention Hall in Asbury Park.
 
-**1999:**
+**1999:**<br>
 
 
 

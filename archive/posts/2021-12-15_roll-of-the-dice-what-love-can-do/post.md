@@ -82,7 +82,7 @@ For now, though, enjoy the one and only time Bruce performed the song live–in 
 
 [Watch Video Highlight](https://videopress.com/embed/peRsvJRB)
 
-**What Love Can Do**
+**What Love Can Do**<br>
 **Recorded:** mid-2007  
 **Released:** *Working on a Dream* (2009)
 **First performed:** October 14, 2009  

@@ -4,7 +4,7 @@
 
 The Sundance Blues Band plays two gigs–first at the Student Prince from 9:30pm to 1:00am, and then at the Upstage from 2am to 5am.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Sundance Blues Band plays two gigs–first at the Student Prince from 9:30pm
 
 The Darkness Tour skips Fresno at the last minute, when Bruce's scheduled appearance at Warnors Theater is cancelled due to low ticket sales.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -58,7 +58,7 @@ At Night Two in Stockholm on the Tunnel of Love Tour, the show is broadcast on r
 
 World Tour 1992 arrives in Barcelona for the first of two nights at Plaza Monumental. Local news coverage below.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/EA_faGbmdoY?feature=oembed](https://www.youtube.com/embed/EA_faGbmdoY?feature=oembed)
 
@@ -86,7 +86,7 @@ In Frankfurt, Bruce and the E Street Band pull out the Working on a Dream tour p
 
 Bruce brings the Wrecking Ball Tour to Geneva for a night, where a solo piano "The Promise" is an encore highlight.
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/pRo2cCTY5z4?feature=oembed](https://www.youtube.com/embed/pRo2cCTY5z4?feature=oembed)
 

@@ -25,7 +25,7 @@ And this time, the recording quality is terrific. Here's Bruce on lead vocals wi
 August 14, 1983 (Asbury Park, NJ)
 August 19, 1983 (Long Branch, NJ)
 
-**Ain't That Lovin' You Baby**
+**Ain't That Lovin' You Baby**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

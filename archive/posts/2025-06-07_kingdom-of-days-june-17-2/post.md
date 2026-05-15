@@ -4,7 +4,7 @@
 
 Bruce and Clarence play together for only the second time ever when Bruce makes a guest appearance with Clarence's band, Norman Seldin and the Joyful Noyze, at The Shipbottom Lounge in Point Pleasant Beach, New Jersey.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce and Clarence play together for only the second time ever when Bruce makes 
 
 A scheduled gig in Chester, West Virginia, is believed to have been cancelled.
 
-**1973:**
+**1973:**<br>
 
 At Atlantic Studios in New York City, Bruce and the E Street Band record for their upcoming album, . Listen to their early cuts of "" and "" (neither of which will make the album) from this date below.
 
@@ -24,7 +24,7 @@ At Atlantic Studios in New York City, Bruce and the E Street Band record for the
 
 Bruce and the E Street Band play to a half-sold Kiel Auditorium in St. Louis on the Darkness Tour. In attendance is 18-year-old Michael Stipe, who will share a stage with Bruce decades later when he fronts the rock band R.E.M.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -106,7 +106,7 @@ Bruce releases Episode 6 ("Down to the River to Pray") of his radio show on E St
 
 On his night off between shows in Birmingham, Bruce attends Steve Earle's solo acoustic show.
 
-**2023:**
+**2023:**<br>
 
 Bruce and the E Street Band wrap up their three-night stand in Madrid, tour premiering ""
 

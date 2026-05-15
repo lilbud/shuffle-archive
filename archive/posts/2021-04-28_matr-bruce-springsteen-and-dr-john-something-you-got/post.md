@@ -62,6 +62,6 @@ They played it slow that night–slower than Bruce and the band would likely hav
 
 [Watch on Youtube: Something You Got](https://www.youtube.com/watch?v=NglYuD-Hndc)
 
-**Something You Got**
+**Something You Got**<br>
 **First performed:** February 25, 1972 (Richmond, VA)<br>
 **Last performed:** April 21, 2017 (Asbury Park, NJ)<br>

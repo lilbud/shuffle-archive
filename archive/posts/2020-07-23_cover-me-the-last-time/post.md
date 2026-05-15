@@ -25,7 +25,7 @@ Until the next time.
 October 1, 1978 (Atlanta, GA)
 October 9, 2009 (East Rutherford, NJ)
 
-**The Last Time**
+**The Last Time**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

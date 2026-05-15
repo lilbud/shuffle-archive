@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band headline the first two shows of a three-night/six-show stand at My Father's Place in Roslyn, New York. WLIR-FM broadcasts the late show live.
 
-**1973:**
+**1973:**<br>
 
 [https://www.youtube.com/embed/0FxHJBVKI2g?feature=oembed](https://www.youtube.com/embed/0FxHJBVKI2g?feature=oembed)
 
@@ -12,7 +12,7 @@ Bruce and the E Street Band headline the first two shows of a three-night/six-sh
 
 The Darkness Tour continues its southern swing, arriving in Columbia, South Carolina, for a show at the Township Auditorium.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -24,7 +24,7 @@ The Darkness Tour continues its southern swing, arriving in Columbia, South Caro
 
 Bruce makes a guest appearance with Sonny Kenn and the Wild Ideas at Big Man's West in Red Bank.
 
-**1982:**
+**1982:**<br>
 
 [https://videopress.com/embed/lzcXNflW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lzcXNflW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -130,7 +130,7 @@ Bruce wraps the European River Tour with a final show in Zurich, where he tour d
 
 Bruce strolls the Asbury Park boardwalk and stops by the Wonder Bar in Asbury Park to acknowledge the storied venue's 20th anniversary. Before he leaves, he graciously poses for a photo with this blogger and Jersey Shore rock and roll tour guide Stan Goldstein.
 
-**2022:**
+**2022:**<br>
 
 
 

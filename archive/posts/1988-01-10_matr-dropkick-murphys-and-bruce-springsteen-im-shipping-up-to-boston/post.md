@@ -8,7 +8,7 @@ On St. Patrick's Day in 2011, Bruce shipped up to Boston to perform it with the 
 
 [https://www.youtube.com/embed/a7QsVPYWQFE?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/a7QsVPYWQFE?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**I'm Shipping Up to Boston**
+**I'm Shipping Up to Boston**<br>
 **First performed:** March 18, 2011 (Boston, MA)<br>
 **Last performed:** March 18, 2011 (Boston, MA)<br>
 

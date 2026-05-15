@@ -10,7 +10,7 @@ Bruce watches the debut of The Dave Clark Five on . Below, Bruce, Steve, and Max
 
 Child opens for Nicky Addeo at Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Before their evening show opening for Chicago at the Richmond Coliseum, Bruce and the band stop by Alpha Sound Studios in Richmond, Virginia, where they perform only their second-ever radio show, broadcast live on WGOE-FM. The show features an early version of "New York City Serenade" with a completely different melody (and very different lyrics), and a gorgeous "."
 
@@ -28,7 +28,7 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 A scheduled gig at the Agora in Columbus is cancelled due to low ticket sales.
 
-**1974:**
+**1974:**<br>
 
 Bruce wraps his three-night Darkness Tour stand at Boston's Music Hall with the tour premiere of "."
 

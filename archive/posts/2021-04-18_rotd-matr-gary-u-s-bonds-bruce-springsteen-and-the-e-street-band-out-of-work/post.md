@@ -67,9 +67,9 @@ Bonds' new version was even more under the radar than his original version, but 
 
 Fans who caught it no doubt had the same laughing-through-tears reaction as radio listeners in the summer of '82.
 
-**Out of Work**
+**Out of Work**<br>
 **Recorded:** Early 1982  
 **Released:** *On the Line* (1982)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

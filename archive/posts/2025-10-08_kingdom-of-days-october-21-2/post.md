@@ -4,11 +4,11 @@
 
 Clarence Clemons plays his final show with Norman Selden's Joyful Noyze at the Club Plaza in Bayville, New Jersey. Four days later, he will perform as a member of Bruce Springsteen's new band.
 
-**1972:**
+**1972:**<br>
 
 Bruce postpones a scheduled show at Camden County College to exactly a month later.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce postpones a scheduled show at Camden County College to exactly a month lat
 
 Bruce and the E Street Band play their first of two Born in the U.S.A. shows at the Oakland Coliseum, with his parents in attendance.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeX6UL9GTRQMANd8cU9njFV4](https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeX6UL9GTRQMANd8cU9njFV4)
 
@@ -36,7 +36,7 @@ Bruce and the E Street Band play their first of two Born in the U.S.A. shows at 
 
 Bruce and his new touring band play their first of two nights at Mountain View's Shoreline Amphitheater.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/gPmGIaLQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gPmGIaLQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -48,7 +48,7 @@ Bruce and his new touring band play their first of two nights at Mountain View's
 
 Bruce joins John Eddie, Greg Kihn, Marshall Crenshaw, and Elliott Murphy on stage at The Playpen in Sayreville, New Jersey.
 
-**1994:**
+**1994:**<br>
 
 [https://www.youtube.com/embed/2TAIm_y2JnQ?feature=oembed](https://www.youtube.com/embed/2TAIm_y2JnQ?feature=oembed)
 
@@ -76,7 +76,7 @@ Bruce plays a solo acoustic show at Arizona State University in Tempe, where loc
 
 Bruce and the reunited E Street Band play their third of four nights at the brand-new Staples Center in Los Angeles.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/Le_A6tRUqRo?feature=oembed](https://www.youtube.com/embed/Le_A6tRUqRo?feature=oembed)
 
@@ -84,7 +84,7 @@ Bruce and the reunited E Street Band play their third of four nights at the bran
 
 Bruce, Patti, Max, and Jon Bon Jovi perform a cover set at a charity benefit/auction for Special People United to Ride of Monmouth County (a non-profit that supports horseback riding for disabled children) at Hedgerow Farm in Middleton, New Jersey. Bruce auctions off a guitar and a one-hour lesson, personally raising $80,000 for the event.
 
-**2000:**
+**2000:**<br>
 
 
 
@@ -112,7 +112,7 @@ Bruce and the Sessions Band continue their Spanish tour with a show in Valencia,
 
 Bruce and the E Street Band bring the Magic Tour to Chicago's United Center for the first of two nights.
 
-**2007:**
+**2007:**<br>
 
 [https://videopress.com/embed/AnsrBEUd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AnsrBEUd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -142,7 +142,7 @@ Bruce and the band play a Wrecking Ball show at Copps Coliseum in Hamilton, Onta
 
 Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2017:**
+**2017:**<br>
 
 [https://videopress.com/embed/nE6WL0gS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nE6WL0gS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

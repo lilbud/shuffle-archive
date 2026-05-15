@@ -116,7 +116,7 @@ On the Devils & Dust Tour a decade later, however, Bruce figured out how to marr
 
 In the years since *Devils & Dust*, "Spare Parts" has been completely absent from Bruce's setlists. But we haven't had a solo tour in that time either. Bruce is about due to do one, and perhaps we'll see "Spare Parts" return when he does.
 
-**Spare Parts**
+**Spare Parts**<br>
 **Recorded:** January 20, 1987  
 **Released:** *Tunnel of Love* (1988)
 **First performed:** February 25, 1988 (Worcester, MA)

@@ -70,7 +70,7 @@ What happens next is one of those unpredictable magic Springsteen moments: witho
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fW_Vny_aXNM)
 
-**Land of Hope and Dreams**
+**Land of Hope and Dreams**<br>
 **Recorded:** July 1, 2000 (live), unknown (studio)
 **Released:** *Live in New York City* (2002), *Wrecking Ball* (2011)
 **First performed:** March 18, 1999 (Asbury Park, NJ)

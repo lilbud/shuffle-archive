@@ -71,9 +71,9 @@ Like I said: this is *Nebraska* material through and through. It's also some of 
 
 So maybe Bruce will someday remember about "The Big Payback" and give Bobby a chance to make it big on stage. But given Bobby's bad luck and karma, it's more likely he'll stay condemned to lurking in the dark alleys of B-sides and bonus discs.
 
-**The Big Payback**
+**The Big Payback**<br>
 **Recorded:** January-April 1982  
 **Released:** *The Essential Bruce Springsteen* (2003)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

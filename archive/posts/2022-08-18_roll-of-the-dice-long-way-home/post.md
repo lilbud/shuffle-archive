@@ -10,9 +10,9 @@ Whether Bruce intended to write lyrics for it; whether it was close to finished 
 
 So at least for now, let's consider "Long Way Home" a curious artifact that bridged the end of the River Tour and the burst of serious songwriting that yielded Bruce's classic 1982 solo album.
 
-**Long Way Home**
+**Long Way Home**<br>
 **Recorded:** September 1981 – May 1982<br>
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

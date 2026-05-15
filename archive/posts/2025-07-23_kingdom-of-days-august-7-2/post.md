@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band headlines at Asbury Park's Sunshine In.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -32,7 +32,7 @@ Bruce and the E Street Band wrap up their six-night stand at the Monmouth Arts C
 
 The Darkness Tour stop in Kalamazoo underperforms in ticket sales, with over half of the seats at Wings Stadium going unoccupied.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -40,7 +40,7 @@ The Darkness Tour stop in Kalamazoo underperforms in ticket sales, with over hal
 
 Bruce and the E Street Band wrap up their three-night stand at the Capital Center in Largo, Maryland.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/0KQVFFpL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0KQVFFpL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -96,7 +96,7 @@ Bruce stuns fans at the Meadowlands when he opens Night Twelve (of fifteen) with
 
 The Rising Tour officially kicks off and Soozie Tyrell makes her official E Street Band debut at the Continental Airlines Arena in East Rutherford, with essentially the same set as the rehearsal show in the same venue. Early shows on the "barnstorming" leg would be atypically rigid, with little variation from night to night.
 
-**2002:**
+**2002:**<br>
 
 [https://videopress.com/embed/r4z4wiX6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/r4z4wiX6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -132,7 +132,7 @@ Bruce attends the premiere of at Convention Hall in Asbury Park. Following the s
 
 Bruce makes a surprise guest appearance at Zach Bryan's show at Philadelphia's Lincoln Financial Field.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/NldH9Lk5nv0?feature=oembed](https://www.youtube.com/embed/NldH9Lk5nv0?feature=oembed)
 

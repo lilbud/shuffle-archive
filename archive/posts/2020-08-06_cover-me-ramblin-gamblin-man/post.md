@@ -27,7 +27,7 @@ But once we make it to the other side of this pandemic, there's always a strong 
 August 18, 1992 (Auburn Hills, MI)
 November 13, 2009 (Auburn Hills, MI)
 
-**Ramblin' Gamblin' Man**
+**Ramblin' Gamblin' Man**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

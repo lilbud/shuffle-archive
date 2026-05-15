@@ -8,6 +8,6 @@ Bruce gave a lovely performance, but it's hard to top the original.
 
 [https://www.youtube.com/embed/KLVq0IAzh1A?feature=oembed](https://www.youtube.com/embed/KLVq0IAzh1A?feature=oembed)
 
-**Fields of Gold**
+**Fields of Gold**<br>
 **First performed:** October 1, 2011 (New York City, NY)<br>
 **Last performed:** October 1, 2011 (New York City, NY)<br>

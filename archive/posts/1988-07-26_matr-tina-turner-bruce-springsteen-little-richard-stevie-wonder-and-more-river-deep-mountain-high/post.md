@@ -32,7 +32,7 @@ And yes, I know: that's a pretty slight Springsteen connection for a blog that's
 
 But come on: this is *Tina Turner*. Let's band together and vote her into the Hall of Fame.
 
-**River Deep-Mountain High**
+**River Deep-Mountain High**<br>
 **First performed:** January 18, 1989 (New York City, NY)<br>
 **Last performed:** January 18, 1989 (New York City, NY)<br>
 

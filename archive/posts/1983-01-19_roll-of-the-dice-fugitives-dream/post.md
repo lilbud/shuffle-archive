@@ -54,6 +54,6 @@ Here, however, it's not just the distant past that the narrator must now carry a
 **Fugitive's Dream**  
 **Recorded:** January-March 1983  
 **Released:** *L.A. Garage Sessions '83* (2025)
-**Never performed**
+**Never performed**<br>
 
 © October 19, 2019 / December 21, 2025

@@ -33,15 +33,15 @@ The lyrics are perfectly suited for a performer like Bonds, late in his career b
 
 Bruce usually isn't often this cynical with his lyrics, and if something about the narrator feels familiar, the bridge should provide a jolt of recognition:
 
-***No cold denials, no one really lied***
-***It was time spent, promises implied***
+***No cold denials, no one really lied***<br>
+***It was time spent, promises implied***<br>
 > *And suddenly you see something new in her eyes*
 > *And in that moment you begin to realize*
 
 Sound familiar? That's because those lines also appear in Bruce's "[Little White Lies](https://estreetshuffle.com/index.php/2018/03/20/roll-of-the-dice-little-white-lies/)" an outtake from *The River* that was released in that album's anniversary box set in 2015:
 
-***There were no cold denials, nobody really lied***
-***It wasn't in the things we said, girl, just time spent, promises implied***
+***There were no cold denials, nobody really lied***<br>
+***It wasn't in the things we said, girl, just time spent, promises implied***<br>
 > *And when it began to fall apart eaten quietly away from the inside*
 > *Bit by bit by those little white lies*
 
@@ -68,7 +68,7 @@ Bruce has never played "Your Love" in concert, but he actually did perform it on
 
 So "Your Love" remains on my chase list, and it's probably destined to stay there–but a Bonds guest appearance on an E Street Band stage is never out of the realm of possibility.
 
-**Your Love**
+**Your Love**<br>
 **Recorded** 1981  
 **Released:** Dedication (1981)
 **First performed** (by Bruce): July 2, 1989 (Long Branch, NJ)

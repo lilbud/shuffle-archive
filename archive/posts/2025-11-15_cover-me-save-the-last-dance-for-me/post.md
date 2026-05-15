@@ -31,7 +31,7 @@ Bruce granted her wish and chose a perfect song for the occasion. Captured close
 1971-1972 (exact date unknown) (Richmond, VA)
 May 13, 2014 (Albany, NY)
 
-**Save the Last Dance For Me**
+**Save the Last Dance For Me**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

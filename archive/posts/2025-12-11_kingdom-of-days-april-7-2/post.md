@@ -2,7 +2,7 @@
 
 Bruce and the E Street Band open for The Beach Boys in Norfolk.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -10,7 +10,7 @@ Bruce and the E Street Band open for The Beach Boys in Norfolk.
 
 Bruce Springsteen meets Max Weinberg for the first time when Max's band opens for Bruce and the original (but still unnamed) E Street Band at Seton Hall University.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -22,7 +22,7 @@ Earlier that same day, Bruce and Dave Sancious drop by WMMR-FM in Philadelphia t
 
 Bruce and the E Street Band bring the Chicken Scratch Tour to Cleveland for the first of two nights, to at least one underwhelming review. Earlier in the day, Kid Leo interviews Bruce on WMMS-FM radio.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -42,13 +42,13 @@ Bruce and the E Street Band bring the Chicken Scratch Tour to Cleveland for the 
 
 The European leg of The River Tour finally kicks off with Bruce's first-ever show in Germany–at Congress Centrum in Hamburg, where Bruce covers "Rockin' All Over the World" for the first time.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/0J18Oql6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0J18Oql6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce's World Tour 1993 stops in Zurich for the first of two shows.
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/US34fizl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/US34fizl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -78,7 +78,7 @@ debuts on HBO.
 
 Bruce rehearses with the Sessions Band at Asbury Park's Paramount Theater, preparing for their upcoming tour.
 
-**2006:**
+**2006:**<br>
 
 Tom Morello makes a guest appearance at the Magic Tour stop in Anaheim. The new arrangement of "The Ghost of Tom Joad" that Bruce and Tom work up will become a fan favorite and eventually become an officially released track in both studio and live form (on and , respectively). Tom isn't the only guest-star, though: Bobby Bandiera joins for "Ramrod," and Marty Rifkin and Marc Anthony Thompson join for a mini-Sessions Band reunion on "American Land."
 
@@ -88,13 +88,13 @@ Tom Morello makes a guest appearance at the Magic Tour stop in Anaheim. The new 
 
 Bruce and the E Street Band return to Oklahoma after an absence of more than three decades. Their Working on a Dream show at the Bok Center in Tulsa features the tour premieres of "I'm Goin' Down" and "I'm on Fire."
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/vCw2vOUKZzY?feature=oembed](https://www.youtube.com/embed/vCw2vOUKZzY?feature=oembed)
 
 The River Tour (2016 edition) moves on to the Sprint Center in Kansas City.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/uQRzIrBXKdU?feature=oembed](https://www.youtube.com/embed/uQRzIrBXKdU?feature=oembed)
 
@@ -104,7 +104,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 
 "Lucky Town" makes its tour premiere when Bruce and the E Street Band bring their World Tour to CFG Bank Arena in Baltimore.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/Hrp4t0v7TqI?feature=oembed](https://www.youtube.com/embed/Hrp4t0v7TqI?feature=oembed)
 

@@ -27,7 +27,7 @@ Bruce must have been pleased with how it came off, because he opened his show wi
 September 13, 2003 (Landover, MD)
 September 14, 2003 (Chapel Hill, NC)
 
-**I Walk The Line**
+**I Walk The Line**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

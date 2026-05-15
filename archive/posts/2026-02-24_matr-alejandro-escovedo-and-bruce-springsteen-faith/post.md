@@ -12,7 +12,7 @@ He did not disappoint. Here's Bruce and Alejandro playing their one and only per
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gpxr8gVpnpg)
 
-**Faith**
+**Faith**<br>
 **Recorded:** 2010<br>
 **Released:** *Street Songs of Love* (2010)<br>
 **First performed:** July 23, 2010 (Asbury Park, NJ)<br>

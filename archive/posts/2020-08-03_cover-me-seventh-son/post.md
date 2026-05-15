@@ -23,7 +23,7 @@ But he was also tickled, and never one to back away from a challenge, Bruce game
 May 2, 2009 (Greensboro, NC)
 May 2, 2009 (Greensboro, NC)
 
-**Seventh Son**
+**Seventh Son**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

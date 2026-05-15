@@ -32,8 +32,8 @@ It's the song of a (very) young man, that's for sure. If it's rooted in real lif
 
 Maddeningly, that's all we get–there's a "(cont)" at the bottom of the page, but if there's any more to the song, it's been lost to history.
 
-**Want Me**
-**Never recorded**
-**Never released**
+**Want Me**<br>
+**Never recorded**<br>
+**Never released**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

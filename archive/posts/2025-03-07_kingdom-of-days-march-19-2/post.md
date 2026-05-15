@@ -4,11 +4,11 @@
 
 Bruce and his band play two shows at their second night at Gertie's in Dallas.
 
-**1974:**
+**1974:**<br>
 
 The Lawsuit Tour moves north to the Central Maine Youth Center in Lewiston, where writer Stephen King is in attendance.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/jq3U8CECx54?feature=oembed](https://www.youtube.com/embed/jq3U8CECx54?feature=oembed)
 
@@ -18,7 +18,7 @@ The Lawsuit Tour moves north to the Central Maine Youth Center in Lewiston, wher
 
 A scheduled show in London is postponed due to Bruce's exhaustion from the first two legs of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -26,7 +26,7 @@ A scheduled show in London is postponed due to Bruce's exhaustion from the first
 
 Bruce arrives in Sydney two days before what will be his first-ever show in Australia.
 
-**1985:**
+**1985:**<br>
 
 
 
@@ -64,7 +64,7 @@ A second public warm-up show for Bruce Springsteen and the E Street Band, their 
 
 Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/KtVROHSG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KtVROHSG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

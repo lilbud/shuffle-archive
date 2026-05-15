@@ -107,7 +107,7 @@ Watch this wonderful performance from Charlottesville in 2012, featuring a loose
 
 (As of this writing, lovestreet.com is still available.)
 
-**Give the Girl a Kiss**
+**Give the Girl a Kiss**<br>
 **Recorded** November 10, 1977 (brass recorded in 1998)
 **Released:** *Tracks* (1998)
 **First performed:** March 19, 1999 (Asbury Park, NJ)

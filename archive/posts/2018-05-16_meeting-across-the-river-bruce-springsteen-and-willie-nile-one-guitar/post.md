@@ -8,12 +8,12 @@ Here's the most recent one, from 2015:
 
 [Watch on Youtube: One Guitar](https://www.youtube.com/watch?v=6_YBsy_HtWg)
 
-**Update 1/25/2020:**
+**Update 1/25/2020:**<br>
 
 Bruce and Willie reprised their Light of Day "One Guitar" duet last week in Asbury Park, and it was a fantastic performance. Take it in below:
 
 [Watch on Youtube: Willie Nile Band & Bruce Springsteen ~ "One Guitar" - Rose A Montana Video](https://www.youtube.com/watch?v=DWKZzyuYC1U)
 
-**One Guitar**
+**One Guitar**<br>
 **First performed:** January 14, 2012 (Asbury Park, NJ)<br>
 **Last performed:** January 18, 2020 (Asbury Park, NJ)<br>

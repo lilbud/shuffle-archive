@@ -61,9 +61,9 @@ The real-life Marie would soon make one more injection into Bruce's songwriting,
 
 But that's a dice roll for another day.
 
-**Marie**
+**Marie**<br>
 **Recorded** April-May, 1972  
 **Never released**  
-**Never performed**
+**Never performed**<br>
 
 © November 15, 2021

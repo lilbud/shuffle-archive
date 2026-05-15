@@ -79,7 +79,7 @@ We've been living through a blackout in recent years, but the lights are coming 
 
 > *Get the officially released archive recordings of Bruce's 1990 Christic shows (featuring the only performances ever of "Where the Lights Go Out" [here](https://live.brucespringsteen.net/live-music/0,14250/Bruce-Springsteen-mp3-flac-download-11-16-1990-The-Christic-Shows-at-The-Shrine-Los-Angeles-CA.html).*
 
-**When the Lights Go Out**
+**When the Lights Go Out**<br>
 **Recorded** December 6, 1990  
 **Released:** *Tracks* (1998)
 **First performed:** November 16, 1990 (Los Angeles, CA)

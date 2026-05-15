@@ -20,7 +20,7 @@ Joe and Bruce have never performed "Only Lovers Left Alive" in concert, but Bruc
 
 [Watch on Youtube: Only Lovers Left Alive (Demo)](https://www.youtube.com/watch?v=XfgXRr0dWyU)
 
-**Only Lovers Left Alive**
+**Only Lovers Left Alive**<br>
 **Recorded:** July 1994<br>
 **Released:** *American Babylon* (1995)<br>
-**Never performed**
+**Never performed**<br>

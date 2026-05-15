@@ -4,7 +4,7 @@
 
 Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under that name, at Asbury Park's Sunshine In.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -16,7 +16,7 @@ Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under
 
 Bruce assembles his band at 914 Sound Studio to begin recording his second album.
 
-**1973:**
+**1973:**<br>
 
 Bruce cancels a scheduled gig at Tusculum College in Greeneville, Tennessee, to make room for recording sessions for .
 
@@ -30,7 +30,7 @@ Bruce rehearses with the E Street Band at his home studio in Holmdel. Listen to 
 
 Those poor ticket holders for Bruce's second River Tour show in Manchester, England: The original concert was postponed from March 24th when Bruce took ill, and on this night, Bruce is sick again. He performs an abbreviated set (five songs fewer than the night before) at the Apollo Theatre, the shortest show of the European leg.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/oAGgq6zb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oAGgq6zb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -46,7 +46,7 @@ Bruce and the E Street Band are in the studio at the Power Station in New York C
 
 Bruce and Julianne hold their wedding reception, a day after their wedding.
 
-**1985:**
+**1985:**<br>
 
 
 
@@ -76,7 +76,7 @@ At his solo show at the Patriot Center in Fairfax, Bruce treats fans to the tour
 
 The Seeger Sessions Tour stops in Barcelona. Watch the local news coverage and interview below.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/mC9qvPAAtWQ?feature=oembed](https://www.youtube.com/embed/mC9qvPAAtWQ?feature=oembed)
 
@@ -86,7 +86,7 @@ The Seeger Sessions Tour stops in Barcelona. Watch the local news coverage and i
 
 Max Weinberg misses his first show in 35 years as his son Jay takes over the drums for the entire show for the first time in Albany, New York.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/W9yRr0nYzTQ?feature=oembed](https://www.youtube.com/embed/W9yRr0nYzTQ?feature=oembed)
 

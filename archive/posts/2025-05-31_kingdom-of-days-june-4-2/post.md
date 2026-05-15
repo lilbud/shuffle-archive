@@ -20,7 +20,7 @@ Bruce releases his seventh studio album,
 
 The European leg of the Born in the U.S.A. Tour continues at the first of two nights at St. James' Park in Newcastle. The British television coverage is hysterical to watch; even in 1985, some critics still didn't know quite what to make of him.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/yluGYwh_Ceo?feature=oembed](https://www.youtube.com/embed/yluGYwh_Ceo?feature=oembed)
 
@@ -68,7 +68,7 @@ Night One of three in Stockholm opens with the tour premiere of "" and features 
 
 Bruce drops by The Asbury Hotel to check out Danny Clinch's new photo exhibition, "Transparent."
 
-**2017:**
+**2017:**<br>
 
 
 

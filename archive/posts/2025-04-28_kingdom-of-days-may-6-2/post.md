@@ -4,7 +4,7 @@
 
 Bruce plays the Spring Carnival at UMass Amherst. With attendance at around 18,000, this is one of the largest crowds that Bruce will play to for years.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce plays the Spring Carnival at UMass Amherst. With attendance at around 18,0
 
 Bruce and his band play a show at Bucks County Community College in Newtown, Pennsylvania. This is the final show before the E Street Band debuts its official name.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce and his band play a show at Bucks County Community College in Newtown, Pen
 
 Bruce plays a sparsely-attended gig at the Municipal Auditorium in Shreveport, Louisiana.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -56,7 +56,7 @@ Bruce and the E Street Band play their second of two nights at the Tacoma Dome o
 
 Bruce unveils his new band at a ninety-minute show at The Bottom Line in New York City. MTV's Week in Rock features some footage from the show, along with an interview with Bruce.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/yC9EKVpQk4U?feature=oembed](https://www.youtube.com/embed/yC9EKVpQk4U?feature=oembed)
 
@@ -66,7 +66,7 @@ Bruce unveils his new band at a ninety-minute show at The Bottom Line in New Yor
 
 Bruce plays the first of two solo acoustic shows at Teatro Tivoli in Barcelona.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/QMhPP0rBgD8?feature=oembed](https://www.youtube.com/embed/QMhPP0rBgD8?feature=oembed)
 
@@ -86,7 +86,7 @@ The second European leg of the Rising Tour kicks off with the first of two shows
 
 Bruce makes an appearance at Fairleigh Dickinson University in Madison, New Jersey, joining John Wesley Harding and poet Robert Pinsky for an unusual evening of poetry reading and acoustic performance.
 
-**2010:**
+**2010:**<br>
 
 [https://www.youtube.com/embed/aZnmxAXC0vg?feature=oembed](https://www.youtube.com/embed/aZnmxAXC0vg?feature=oembed)
 
@@ -110,7 +110,7 @@ At the Cynthia Woods Mitchell Pavilion in Houston, one of the smaller venues on 
 
 Bruce attends the memorial service and delivers a eulogy for original fan Obie Dziedzic. That evening, he attends the 24th annual Kristen Ann Carr Fund benefit.
 
-**2017:**
+**2017:**<br>
 
 Bruce inducts Steve Van Zandt into the New Jersey Hall of Fame. Following Little Steven's acceptance speech, Bruce joins his friend and the Disciples of Soul for a performance of ""
 

@@ -48,7 +48,7 @@ When Morello went home to his own band, "High Hopes" left the E Street Band behi
 
 I've got high hopes.
 
-**High Hopes**
+**High Hopes**<br>
 **Recorded:** January 1995 (first version); March 17, 2013 (second version)<br>
 **Released:** *Blood Brothers* (1996), *High Hopes* (2014)<br>
 **First performed:** March 16, 2013 (Brisbane, Australia)<br>

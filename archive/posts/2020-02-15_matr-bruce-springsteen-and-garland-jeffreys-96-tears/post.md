@@ -30,6 +30,6 @@ That Garland-less performance was a one-off, though–the next (and last) time B
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band & Garland Jeffreys performing 96 Tears @ Pinkpop 2012](https://www.youtube.com/watch?v=Ii3ZOShtmw4)
 
-**96 Tears**
+**96 Tears**<br>
 **First performed:** November 2, 2002 (Sea Bright, NJ)<br>
 **Last performed:** May 28, 2012 (Landgraaf, The Netherlands)<br>

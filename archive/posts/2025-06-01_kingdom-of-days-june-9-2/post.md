@@ -4,15 +4,15 @@
 
 The Castiles play the Senior Farewell Dance at Freehold Regional High School.
 
-**1967:**
+**1967:**<br>
 
 Bruce signs with Columbia Records, receiving an advance of $25,000 for his first album. He immediately begins assembling a band.
 
-**1972:**
+**1972:**<br>
 
 Bruce and his band open for Chicago at the second of two nights in Boston.
 
-**1973:**
+**1973:**<br>
 
 Bruce and the E Street Band hold recording sessions for at Atlantic Studios in New York City.
 
@@ -20,7 +20,7 @@ Bruce and the E Street Band hold recording sessions for at Atlantic Studios in N
 
 The Darkness Tour stops at the Mecca Arena in Milwaukee.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/J4gzbUgC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/J4gzbUgC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -28,7 +28,7 @@ The Darkness Tour stops at the Mecca Arena in Milwaukee.
 
 Bruce and Pete Townshend catch U2's gig at the Hammersmith Palais in London.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -40,7 +40,7 @@ Bruce and Pete Townshend catch U2's gig at the Hammersmith Palais in London.
 
 Bruce and the E Street Band play their second of two Born in the U.S.A. shows at Ullevi in Gothenburg, Sweden.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/qQeCrLcCwgg?feature=oembed](https://www.youtube.com/embed/qQeCrLcCwgg?feature=oembed)
 
@@ -50,7 +50,7 @@ Bruce and the E Street Band play their second of two Born in the U.S.A. shows at
 
 Bruce and Max join Nils for four songs at Nils' gig at the Stone Pony.
 
-**1989:**
+**1989:**<br>
 
 [https://www.youtube.com/embed/9t233EpGPOk?feature=oembed](https://www.youtube.com/embed/9t233EpGPOk?feature=oembed)
 

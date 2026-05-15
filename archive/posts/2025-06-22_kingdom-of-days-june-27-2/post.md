@@ -4,7 +4,7 @@
 
 The Sundance Blues Band plays a gig at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -24,7 +24,7 @@ It's a big day in the studio for Bruce: he records "," "," "," "," "Visitation a
 
 A scheduled E Street Band gig in Memphis is cancelled.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band work on material for what will become at Atlantic Studios in New York City.
 
@@ -54,7 +54,7 @@ Bruce records "" at The Hit Factory in New York City.
 
 Bruce gets on stage at the West Hollywood House of Blues and performs six songs with Sacred Hearts, Danny Federici's post-E Street band.
 
-**1994:**
+**1994:**<br>
 
 
 
@@ -62,7 +62,7 @@ Bruce gets on stage at the West Hollywood House of Blues and performs six songs 
 
 Bruce and the E Street Band wrap up the European leg of their Reunion Tour at Valle Hovin Stadion in Oslo.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/do8EXp88?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/do8EXp88?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -86,7 +86,7 @@ Bruce tour premieres "," "," and "" at his solo acoustic show at Hamburg's Color
 
 Elliott Murphy and his son guest star when the Magic Tour stops at Parc des Princes in Paris. The setlist features a rare outing of "Janey, Don't You Lose Heart."
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/ksaYU_81_GA?feature=oembed](https://www.youtube.com/embed/ksaYU_81_GA?feature=oembed)
 

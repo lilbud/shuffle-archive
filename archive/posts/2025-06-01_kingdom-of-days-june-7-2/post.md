@@ -4,7 +4,7 @@
 
 Child headlines at the eighth grade graduation concert at Blessed Sacrament Regional School in Margate, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Recording sessions begin for Bruce's first album, Bruce records five solo tracks today: "" "," "" "," and "." Only "Growin' Up" will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.
 
@@ -16,7 +16,7 @@ Recording sessions begin for Bruce's first album, Bruce records five solo tracks
 
 Bruce and the E Street Band open for Chicago at the Onondaga County War Memorial Auditorium in Syracuse, New York. The local paper mis-identifies Bruce, and they aren't even close: somehow, they refer to him as "Bris Christy." Mr. Reschke didn't do so well with the song titles, either. See if you can figure out the songs Bruce actually played below.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -48,7 +48,7 @@ In Birmingham, Pete Townshend makes a guest appearance in the encores of the fir
 
 MTV's Guide to Summer features a spotlight on Bruce's upcoming World Tour 1992.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed](https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed)
 
@@ -88,7 +88,7 @@ At the final night in Sweden for the Working on a Dream Tour, Bruce tour premier
 
 Bruce plays a marathon show at San Siro in Milan, Italy. At over three and a half hours, it's one of his longest shows to date.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/zAKxhmdtQow?feature=oembed](https://www.youtube.com/embed/zAKxhmdtQow?feature=oembed)
 

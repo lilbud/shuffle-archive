@@ -20,6 +20,6 @@ Here's Bruce's final performance of "Long Black Veil" to date, live in Rome late
 
 [Watch on Youtube: Bruce Springsteen with The SSB - Long Black Veil](https://www.youtube.com/watch?v=EiZ8ztIIZjs)
 
-**Long Black Veil**
+**Long Black Veil**<br>
 **First performed:** April 26, 2006 (Asbury Park, NJ)<br>
 **Last performed:** October 10, 2006 (Rome, Italy)<br>

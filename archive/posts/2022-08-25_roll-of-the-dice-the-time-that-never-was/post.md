@@ -32,9 +32,9 @@ Not only do we hear the E Street Band at the peak of their power, "The Time That
 
 The 2016 River Tour was a missed opportunity to give "The Time That Never Was" the concert debut it deserves. Maybe we'll yet see it, but there's something perfectly fitting about a song that sounds like classic E Street with a title like "The Time That Never Was" remaining forever unplayed.
 
-**The Time That Never Was**
+**The Time That Never Was**<br>
 **Recorded** June 27, 1979 – March 16, 1980  
 **Released:** *The River: Outtakes* (2015)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

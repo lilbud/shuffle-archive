@@ -14,7 +14,7 @@ Bruce and the E Street Band wrap up their three-night opening stand for the Tunn
 
 Bruce plays a solo acoustic show at the Symphony Hall in Birmingham, England.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDwD2kjnWXOgedmvtxr8aLV](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDwD2kjnWXOgedmvtxr8aLV)
 
@@ -24,7 +24,7 @@ Bruce plays a solo acoustic show at the Symphony Hall in Birmingham, England.
 
 Bruce and the E Street Band bring the River Redux Tour to St. Paul.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/Y45YyJYF30s?feature=oembed](https://www.youtube.com/embed/Y45YyJYF30s?feature=oembed)
 

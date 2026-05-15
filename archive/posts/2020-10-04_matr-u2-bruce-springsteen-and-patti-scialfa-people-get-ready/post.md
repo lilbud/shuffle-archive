@@ -35,7 +35,7 @@ On October 17, 2005, at the Wachovia Center in Philadelphia, Bruce nonchalantly 
 January 16, 1991 (New York City, NY)
 October 17, 2005 (Philadelphia, PA)
 
-**People Get Ready**
+**People Get Ready**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

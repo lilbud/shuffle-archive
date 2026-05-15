@@ -8,7 +8,7 @@ The Castiles play the Surf ‘N'See Club in Sea Bright, New Jersey. That night, 
 
 Bruce plays his fourth of six two-shows-a-night solo gigs at Max's Kansas City that week.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -38,7 +38,7 @@ At Atlantic Studios in New York City, Bruce and the E Street Band record "" It w
 
 Bruce and the E Street Band bring the Darkness Tour to Augusta, Maine, for one show at the Civic Center.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -54,7 +54,7 @@ Bruce and the E Street Band play their second of two nights at Detroit's Joe Lou
 
 Southside Johnny guest-stars on "Twist and Shout" at Night Six of a ten-night Meadowlands stand on the Born in the U.S.A. Tour.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/xQWHgkEPO6M?feature=oembed](https://www.youtube.com/embed/xQWHgkEPO6M?feature=oembed)
 
@@ -62,7 +62,7 @@ Southside Johnny guest-stars on "Twist and Shout" at Night Six of a ten-night Me
 
 Bruce takes in a Yankees game and stops by the clubhouse to sign a guitar.
 
-**1998:**
+**1998:**<br>
 
 [https://www.youtube.com/embed/59rOfptTacI?feature=oembed](https://www.youtube.com/embed/59rOfptTacI?feature=oembed)
 

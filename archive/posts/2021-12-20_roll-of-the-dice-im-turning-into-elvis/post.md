@@ -57,9 +57,9 @@ He took that notion to heart–over the course of the Ghost of Tom Joad Tour, he
 
 But "I'm Turning Into Elvis" was where it started. One wonders just how many other variations are scrawled through the pages of Bruce's notebook, unheard except for the hotel guests in the room next door.
 
-**I'm Turning Into Elvis**
-**Never recorded**
-**Never released**
+**I'm Turning Into Elvis**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** April 5, 1995 (New York City, NY)
 **Last performed:** November 19, 1996 (Memphis, TN)
 

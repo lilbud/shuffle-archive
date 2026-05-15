@@ -88,7 +88,7 @@ This video was too close to capture the fireworks at the end of the song. But I 
 
 [Watch on Youtube: Jersey Girl - Bruce Springsteen and Patti Scialfa (Jersey 4 Jersey COVID-19 Benefit Relief 2020)](https://www.youtube.com/watch?v=1thNca2rZW4)
 
-**Jersey Girl**
+**Jersey Girl**<br>
 **Recorded:** July 9, 1981 (live)
 **Released:** *Live 1975-85* (1986)
 **First performed:** June 22, 1981 (East Orange, NJ)

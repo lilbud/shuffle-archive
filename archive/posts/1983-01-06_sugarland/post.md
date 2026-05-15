@@ -73,7 +73,7 @@ We never find out. "Sugarland" not only doesn't resolve a story, it doesn't even
 
 It's a theme carried over from *Nebraska*, explored throughout *L.A. Garage Sessions '83*, and into *Born in the U.S.A.* and beyond.
 
-**Sugarland**
+**Sugarland**<br>
 **Recorded** January – February 1983  
 **Released:** *L.A. Garage Sessions '83* (2025)
 **First performed:** November 16, 1984 (Ames, IA)

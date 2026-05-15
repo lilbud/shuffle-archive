@@ -80,9 +80,9 @@ He also seemed unable to stop himself from sharing his late-night fascination wi
 
 By the time Bruce embarked on another acoustic tour almost a decade later, he'd figure out the right balance of serious and silly. That's probably why he hasn't played his ode to infomercials ever since.
 
-**Sell It and They Will Come**
-**Never recorded**
-**Never released**
+**Sell It and They Will Come**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** January 10, 1996 (Detroit, MI)
 **Last performed:** December 6, 1996 (Birmingham, AL)
 

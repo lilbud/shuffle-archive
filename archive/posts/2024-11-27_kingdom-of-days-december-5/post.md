@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 Bruce and his band kick off a six-night, two-shows-nightly stand at Kenny's Castaways in New York City. Bruce starts each show with a brief solo set before bringing out the band.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and his band kick off a six-night, two-shows-nightly stand at Kenny's Cast
 
 Bruce and the E Street Band record a pair of Christmas greetings for WHFS in Bethesda. That evening they play a local show at nearby Georgetown University.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/Xrk0-dk7L24?feature=oembed](https://www.youtube.com/embed/Xrk0-dk7L24?feature=oembed)
 
@@ -28,7 +28,7 @@ Bruce and the E Street Band record a pair of Christmas greetings for WHFS in Bet
 
 The Darkness Tour travels south to Louisiana State University in Baton Rouge.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -42,7 +42,7 @@ Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for six songs, i
 
 Bruce and his new touring band bring World Tour 1992 to the Market Square Arena in Indianapolis.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/Ee6IDenhNXk?feature=oembed](https://www.youtube.com/embed/Ee6IDenhNXk?feature=oembed)
 
@@ -66,7 +66,7 @@ Bruce and his new touring band bring World Tour 1992 to the Market Square Arena 
 
 Bruce plays a solo acoustic show at Constitution Hall in Washington, DC–twenty years after he last played there.
 
-**1995:**
+**1995:**<br>
 
 [https://videopress.com/embed/8Dwup8kA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8Dwup8kA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -74,7 +74,7 @@ Bruce plays a solo acoustic show at Constitution Hall in Washington, DC–twenty
 
 Bruce plays a solo acoustic show at the Township Auditorium in Columbia, South Carolina.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/n2SzHhtb9JM?feature=oembed](https://www.youtube.com/embed/n2SzHhtb9JM?feature=oembed)
 
@@ -122,7 +122,7 @@ After taking a year off (due to the Rising Tour) Bruce resumes his annual Asbury
 
 Bruce is honored by John F. Kennedy Center for the Performing Arts, first at a reception at the White House, later at the Kennedy Center in a televised tribute by Jon Stewart, Ron Kovic, John Mellencamp, Melissa Etheridge, Eddie Vedder, Jennifer Nettles, Ben Harper, and Sting.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/oS1-BLl_H30?feature=oembed](https://www.youtube.com/embed/oS1-BLl_H30?feature=oembed)
 
@@ -146,7 +146,7 @@ Bruce is honored by John F. Kennedy Center for the Performing Arts, first at a r
 
 Bruce returns to the stage after more than a week off to continue his theatrical run at the Walter Kerr Theater in New York.
 
-**2017:**
+**2017:**<br>
 
 continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce treats audiences to the show's rare alternate set list.
 

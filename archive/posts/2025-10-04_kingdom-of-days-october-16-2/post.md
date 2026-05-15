@@ -4,7 +4,7 @@
 
 The Castiles play a show at the VFW Hall in Middletown, New Jersey.
 
-**1966:**
+**1966:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play a show at the VFW Hall in Middletown, New Jersey.
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -20,7 +20,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 Bruce and the E Street Band play their second of five nights at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce and the E Street Band play their second of five nights at Oliver's in Bost
 
 Bruce holds a recording session for his upcoming third album at 914 Sound Studios in Blauvelt, New York.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band kick off a four-night/six-show stand at The Roxy Theater in West Hollywood. Thanks to Columbia Records (but unknown to Bruce), the audience is filled with industry insiders and media, resulting in a quieter-than-usual audience and at least one underwhelmed critic. Among the notables in the audience: Jackson Browne, Neil Diamond, Jim Messina, Jack Nicholson, Peter Boyle, Robert De Niro, and Carole King, to whom Bruce dedicates his debut of her song, "." It's speculated that De Niro swiped Bruce's "you talking to " routine performed at this show for his part in 
 
@@ -44,7 +44,7 @@ Bruce and the E Street Band kick off a four-night/six-show stand at The Roxy The
 
 Bruce and the boys bring the Lawsuit Tour to The College of William and Mary in Williamsburg, Virginia.
 
-**1976:**
+**1976:**<br>
 
 [https://videopress.com/embed/aIjzhS4K?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aIjzhS4K?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -62,7 +62,7 @@ In town for a River Tour show the next night, Bruce goes out driving and ends up
 
 Steve Van Zandt releases "Sun City," a single by Artists United Against Apartheid in protest of the South African policy, publicly and collectively declaring a boycott of the controversial resort. Bruce is one of the many, many artists appearing in the song.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/bY3w9gLjEV4?feature=oembed](https://www.youtube.com/embed/bY3w9gLjEV4?feature=oembed)
 
@@ -82,7 +82,7 @@ Steve Van Zandt releases "Sun City," a single by Artists United Against Aparthei
 
 Bruce rehearses with Joe Grushecky and the Houserockers at the Stone Pony for their upcoming mini-tour.
 
-**1995:**
+**1995:**<br>
 
 
 
@@ -120,7 +120,7 @@ Bruce, Patti, Roy, Billy Joel, India.Arie, and John Legend perform at a benefit 
 
 Bruce guest-stars at Right to Rock 2012 in New York City, honoring Steve Van Zandt. Bruce salutes his best friend before joining him on stage (along with Southside Johnny, Elvis Costello, and a host of stars) for three of Steve's songs.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/uy04lfA_TS8?feature=oembed](https://www.youtube.com/embed/uy04lfA_TS8?feature=oembed)
 

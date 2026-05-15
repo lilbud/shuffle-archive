@@ -32,7 +32,7 @@ By then, I'd been around Bruce for a decade or so. We're close in age and shared
 
 That night in Tempe remains my recollection of Bruce's first overtly political statement, given from *his* stage to *his* passionate followers in *his* audience that specific evening. What he said that night was both short and prescient. More a call for *thought* rather than a call for specific *action.* This difference remains how I prefer popular artists engage with the sway they have over their audiences.
 
-***"I don't know what you guys think about what happened last night, but I think it's pretty frightening."***
+***"I don't know what you guys think about what happened last night, but I think it's pretty frightening."***<br>
 
 He then threw down a particularly enraged version of his one of his most defiant songs, "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)," which is how great artists should assist us in making sense of our world.
 

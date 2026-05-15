@@ -10,7 +10,7 @@ Not bad, but IMO, it doesn't hold a candle to the original:
 
 [https://www.youtube.com/embed/3RzBZsOeqOQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/3RzBZsOeqOQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**Wild in the Streets**
+**Wild in the Streets**<br>
 **First performed:** November 2, 2002 (Sea Bright, NJ)<br>
 **Last performed:** January 14, 2012 (Asbury Park, NJ)<br>
 

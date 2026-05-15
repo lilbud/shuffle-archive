@@ -8,11 +8,11 @@ Bruce is in the studio, working on his second album at 914 Sound Studios in Blau
 
 A scheduled gig–the first of a planned six-night stand–at Lafayette's Music Room in Memphis is cancelled.
 
-**1974:**
+**1974:**<br>
 
 The Pacific Northwest leg of the Darkness Tour continues with a stop at the Paramount Theater in Seattle.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/h6Ja1FeFIQ0?feature=oembed](https://www.youtube.com/embed/h6Ja1FeFIQ0?feature=oembed)
 
@@ -24,7 +24,7 @@ The Pacific Northwest leg of the Darkness Tour continues with a stop at the Para
 
 Bruce and the E Street Band rehearse one last time before kicking off the Born in the U.S.A. Tour. Following her successful audition the day before, Bruce invites Patti Scialfa to join the band effective immediately. She accepts on the spot.
 
-**1984:**
+**1984:**<br>
 
 The French leg of the Born in the U.S.A. Tour continues with a show in Saint-Etienne, where Bruce plays "" for the very first time in Europe.
 
@@ -50,7 +50,7 @@ The Tunnel of Love Tour stops in London for one show at Wembley Stadium, where B
 
 Bruce's World Tour 1992 arrives in Frankfurt for the first of two nights. Watch CNN coverage of the show below.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/93wIOnN-U-s?feature=oembed](https://www.youtube.com/embed/93wIOnN-U-s?feature=oembed)
 
@@ -122,7 +122,7 @@ Bruce holds an invite-only dress rehearsal for the return engagement of at the S
 
 Bruce reprises his recent appearance with Paul McCartney, this time in England at the Glastonbury Festival. Once again, Bruce joins Sir Paul for "Glory Days" and "I Wanna Be Your Man." Bruce returns with Dave Grohl for "The End."
 
-**2022:**
+**2022:**<br>
 
 [https://www.youtube.com/embed/F5lZnNsNPIA?feature=oembed](https://www.youtube.com/embed/F5lZnNsNPIA?feature=oembed)
 

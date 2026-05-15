@@ -2,11 +2,11 @@
 
 Bruce and his band finish a four-night, two-shows-nightly stand opening for Travis, Shook and The Club Wow at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1973:**
+**1973:**<br>
 
 : Bruce and the E Street Band play the first of two shows at the Market Square Arena in Indianapolis.
 
-**1985**
+**1985**<br>
 
 [https://videopress.com/embed/u6P0Qra6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u6P0Qra6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -22,7 +22,7 @@ Bruce and his band finish a four-night, two-shows-nightly stand opening for Trav
 
 Bruce plays an acoustic set at Salle Wilfrid-Pelletier in Montreal.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/BajA8CC1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BajA8CC1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -60,7 +60,7 @@ The first of a series of scholarly symposiums is convened at Monmouth University
 
 Bruce and Patti attend the Golden Globe Awards in Beverly Hills, where he is nominated for (but doesn't win) the Best Original Song, Motion Picture award for "Addicted to Romance."
 
-**2024:**
+**2024:**<br>
 
 
 

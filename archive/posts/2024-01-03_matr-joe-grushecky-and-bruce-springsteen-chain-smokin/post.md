@@ -24,7 +24,7 @@ Bruce and Joe have only played it together twice more since their 1995 tour toge
 
 [Watch on Youtube: Chain Smoking' (Demo)](https://www.youtube.com/watch?v=TTjzF7dHCHI)
 
-**Chain Smokin'**
+**Chain Smokin'**<br>
 **Recorded:** October-November 1993<br>
 **Released:** *American Babylon* (1995)<br>
 **First performed:** August 20, 1994 (Long Branch, NJ)<br>

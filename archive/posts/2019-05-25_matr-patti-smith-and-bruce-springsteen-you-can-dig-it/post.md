@@ -12,6 +12,6 @@ Take a listen to both performances below, and for more Bruce and Patti from this
 
 [Watch Video Highlight](https://videopress.com/embed/xcYOkknQ)
 
-**You Can Dig It**
+**You Can Dig It**<br>
 **First performed:** November 26, 1976 (New York City, NY)<br>
 **Last performed:** November 26, 1976 (New York City, NY)<br>

@@ -135,8 +135,8 @@ Listen to that updated performance below:
 
 As far as we know, he's never recorded "Freehold" in the studio. It remains a concert memento, seen by few but cherished a special, intimate gift by those who have.
 
-**Freehold**
-**Never recorded or released**
+**Freehold**<br>
+**Never recorded or released**<br>
 **First performed:** November 8, 1996 (Freehold, NJ)
 **Last performed:** February 20, 2003 (Somerville, MA)
 

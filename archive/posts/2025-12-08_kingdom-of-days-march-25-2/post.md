@@ -2,7 +2,7 @@
 
 The Chicken Scratch Tour kicks off with a show at the Township Auditorium in Columbia, South Carolina–Bruce's first time performing in the state.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -10,7 +10,7 @@ The Chicken Scratch Tour kicks off with a show at the Township Auditorium in Col
 
 The Lawsuit Tour comes to a close with a final show at Boston's Music Hall, featuring the last "Don't Look Back" for 22 years, the last "(Your Love Keeps Lifting Me) Higher and Higher" for 32 years, and the last "Action in the Streets" for 34 years.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/s_cwfe-0E8w?feature=oembed](https://www.youtube.com/embed/s_cwfe-0E8w?feature=oembed)
 
@@ -18,7 +18,7 @@ The Lawsuit Tour comes to a close with a final show at Boston's Music Hall, feat
 
 At his home studio in Holmdel, Bruce and the E Street Band rehearse "Meet Me in the City."
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/-KuFJEzoFuE?feature=oembed](https://www.youtube.com/embed/-KuFJEzoFuE?feature=oembed)
 
@@ -26,11 +26,11 @@ That evening, Bruce catches The Ramones playing at The Fast Lane in Asbury Park.
 
 Bruce joins Cats on a Smooth Surface on-stage at The Stone Pony in Asbury Park for "I'm Bad, I'm Nationwide" and "Lucille."
 
-**1984:**
+**1984:**<br>
 
 Bruce performs "Dead Man Walkin'" at the Academy Awards, where it is nominated (but loses) for Best Original Song. Watch the CNN news coverage and full performance:
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/GbGoqDY9RzM?feature=oembed](https://www.youtube.com/embed/GbGoqDY9RzM?feature=oembed)
 
@@ -38,13 +38,13 @@ Bruce performs "Dead Man Walkin'" at the Academy Awards, where it is nominated (
 
 The Australian leg of The Rising Tour moves on to Brisbane, where "Jungleland" makes its tour debut.
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/KievsdMg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KievsdMg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the E Street Band bring their World Tour to the Greensboro Coliseum.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/axLQaXPe1Yw?feature=oembed](https://www.youtube.com/embed/axLQaXPe1Yw?feature=oembed)
 
@@ -52,7 +52,7 @@ Bruce and the E Street Band bring their World Tour to the Greensboro Coliseum.
 
 Bruce and the E Street Band return to San Diego for the first time in 18 years, tour debuting "My City of Ruins" at Pechanga Arena.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/954jw3q8x7E?feature=oembed](https://www.youtube.com/embed/954jw3q8x7E?feature=oembed)
 

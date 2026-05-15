@@ -4,7 +4,7 @@
 
 E Street Band bassist and tuba-ist Garry W. Tallent is born in Detroit.
 
-**1949:**
+**1949:**<br>
 
 
 
@@ -12,7 +12,7 @@ E Street Band bassist and tuba-ist Garry W. Tallent is born in Detroit.
 
 Bruce cancels a scheduled show at Millersville University when he wakes up that morning with laryngitis.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -36,7 +36,7 @@ At The Record Plant in New York City, Bruce records "" and "" The former will no
 
 Bruce and the E Street Band bring the River Tour to the Oakland Coliseum for the first of two shows.
 
-**1980:**
+**1980:**<br>
 
 [https://videopress.com/embed/1uStosGT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1uStosGT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -54,7 +54,7 @@ At The Hit Factory in New York City, Bruce and the E Street Band record "."
 
 Bruce speaks and performs at a rally in Los Angeles, urging voters to reject Proposition 209 and protect affirmative action policy.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/pU_d4hCiT_k?feature=oembed](https://www.youtube.com/embed/pU_d4hCiT_k?feature=oembed)
 
@@ -80,7 +80,7 @@ Bruce grants an interview for BBC's documentary and performs a couple of songs f
 
 Bruce and the E Street Band wrap the first European leg of the Rising Tour at Wembley Arena in London.
 
-**2002:**
+**2002:**<br>
 
 [https://www.youtube.com/embed/bmQ_qdKuI2U?feature=oembed](https://www.youtube.com/embed/bmQ_qdKuI2U?feature=oembed)
 
@@ -108,7 +108,7 @@ Bruce performs an acoustic set at a re-election rally for President Obama at Sol
 
 Bruce makes an appearance and meets fans at Indigo Bay & Bloor in Toronto.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/2pLjsvxWUD0?feature=oembed](https://www.youtube.com/embed/2pLjsvxWUD0?feature=oembed)
 

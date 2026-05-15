@@ -2,15 +2,15 @@
 
 Bruce plays the second of three nights at Childe Harold in Washington, DC.
 
-**1973:**
+**1973:**<br>
 
 A scheduled gig at Archbishop John Carroll High School in Radnor, Pennsylvania is cancelled due to low ticket sales.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band work on "Sherry Darling" at the Power Station in New York City.
 
-**1979:**
+**1979:**<br>
 
 Bruce records "My Father's House" in his home studio. It will be released later on the year on .
 
@@ -20,11 +20,11 @@ Bruce records "My Father's House" in his home studio. It will be released later 
 
 Bruce and the E Street Band record for their upcoming album at The Hit Factory in New York City.
 
-**1983:**
+**1983:**<br>
 
 Bruce's World Tour 1993 moves on to Rome for a show at Stadio Flaminio.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/f_deiYzeqHI?feature=oembed](https://www.youtube.com/embed/f_deiYzeqHI?feature=oembed)
 
@@ -32,13 +32,13 @@ Bruce's World Tour 1993 moves on to Rome for a show at Stadio Flaminio.
 
 The final stand of the Ghost of Tom Joad Tour begins with the first of two shows in Paris.
 
-**1997:**
+**1997:**<br>
 
 [https://www.youtube.com/embed/pSfuW0PzEr4?feature=oembed](https://www.youtube.com/embed/pSfuW0PzEr4?feature=oembed)
 
 The Reunion Tour stops at RDS Arena in Dublin, where the E Street Band plays "Red Headed Woman" for the very first time.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/Dm9g9tKWngA?feature=oembed](https://www.youtube.com/embed/Dm9g9tKWngA?feature=oembed)
 
@@ -52,7 +52,7 @@ is certified gold by the Recording Industry Association of America.
 
 Bruce and the E Street Band play their final of three shows at RDS Arena in Dublin as the final European leg of the Magic Tour picks up steam. The setlist features a rare outing for "4th of July, Asbury Park (Sandy)."
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/0jxZCgUa79A?feature=oembed](https://www.youtube.com/embed/0jxZCgUa79A?feature=oembed)
 
@@ -62,7 +62,7 @@ Bruce and the E Street Band play their final of three shows at RDS Arena in Dubl
 
 Frankfurt fans get tour premieres of "Summertime Blues," "Cadillac Ranch," and "Sherry Darling" as the Wrecking Ball Tour reaches Germany.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/dDd6mLOGLrc?feature=oembed](https://www.youtube.com/embed/dDd6mLOGLrc?feature=oembed)
 
@@ -74,7 +74,7 @@ Frankfurt fans get tour premieres of "Summertime Blues," "Cadillac Ranch," and "
 
 Of all the tour premieres one might predict for the River Tour's stop in Manchester, "Santa Claus is Comin' to Town" probably wouldn't be one of them (but that's what it was).
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/lrkI254iEaU?feature=oembed](https://www.youtube.com/embed/lrkI254iEaU?feature=oembed)
 
@@ -84,7 +84,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and the E Street Band play their first of two nights at Johan Cruijff Arena in Amsterdam, reaching the three-hour mark for the first time this year.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/ZMvJcqtP6dI?feature=oembed](https://www.youtube.com/embed/ZMvJcqtP6dI?feature=oembed)
 
@@ -92,4 +92,4 @@ Bruce and the E Street Band play their first of two nights at Johan Cruijff Aren
 
 Shortly before showtime, Bruce is forced to postpone his concert in Marseille due to vocal problems. As of this writing, the show has yet to occur.
 
-**2024:**
+**2024:**<br>

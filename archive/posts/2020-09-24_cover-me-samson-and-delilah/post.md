@@ -27,7 +27,7 @@ That's too bad–because it's a fantastic performance. Here it is, thankfully ca
 October 5, 2006
 October 5, 2006
 
-**Samson and Delilah**
+**Samson and Delilah**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

@@ -10,9 +10,9 @@ As for how the collaboration came to pass, Francke took the "nothing ventured, n
 
 The result is a beautiful and poignant collaboration from two outstanding singer/songwriters.
 
-**Summer Soldier (Holler If Ya Hear Me)**
+**Summer Soldier (Holler If Ya Hear Me)**<br>
 **Recorded:** Early 2011<br>
 **Released:** *Heartless World* (2011)<br>
-**Never performed**
+**Never performed**<br>
 
 © April 17, 2020

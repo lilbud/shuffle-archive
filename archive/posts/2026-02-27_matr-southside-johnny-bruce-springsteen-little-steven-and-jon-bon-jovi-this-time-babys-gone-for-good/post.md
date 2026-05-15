@@ -16,7 +16,7 @@ At Bruce's Asbury Park holiday show on December 7, 2003, Jon Bon Jovi joined Bru
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8PSiS0RS-Tk)
 
-**This Time Baby's Gone For Good**
+**This Time Baby's Gone For Good**<br>
 **First performed:** January 31, 1998 (Red Bank, NJ)<br>
 **Last performed:** December 7, 2003 (Asbury Park, NJ)<br>
 

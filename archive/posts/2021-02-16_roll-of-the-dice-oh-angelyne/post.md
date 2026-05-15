@@ -96,9 +96,9 @@ We'll take a deep listen to that song and admire it in detail… soon.
 
 (To be continued in *Roll of the Dice:* "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)")
 
-**Oh Angelyne**
+**Oh Angelyne**<br>
 **Recorded** February-May 1979 (demos only)
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

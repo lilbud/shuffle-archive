@@ -24,7 +24,7 @@ Bruce's fondness for the girl groups of the 1960s is well-documented, and he's c
 
 That was the first and only time Bruce has ever played "He's a Rebel" in concert, but more collaborations with Darlene lay ahead. including songs Bruce wrote just for her.
 
-**He's a Rebel**
+**He's a Rebel**<br>
 **First performed:** March 14, 2011 (New York City, NY)<br>
 **Last performed:** March 14, 2011 (New York City, NY)<br>
 

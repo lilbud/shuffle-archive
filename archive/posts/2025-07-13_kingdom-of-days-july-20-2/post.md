@@ -4,11 +4,11 @@
 
 Child plays their last of six consecutive nights at the Pandemonium in Wanamassa, New Jersey. On this night, however, the band isn't the center of attention: during Bruce's performance, Neil Armstrong lands and walks on the moon. That's tough for anyone to compete with, and the band takes issue with the distracting televisions placed around the club. They won't play this club again.
 
-**1969:**
+**1969:**<br>
 
 Bruce and the E Street band play their third of six consecutive two-shows-nightly gigs at Max's Kansas City in New York, with the Wailers as the opening act.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce and the E Street band play their third of six consecutive two-shows-nightl
 
 A red-letter (and red-eyed) day for Bruce and the E Street Band: after a marathon nineteen-hour rehearsal that ends at 3am, and after recording work on "Jungleland" that continued until 10am, the band races to the Palace Theater in Providence, Rhode Island, for the opening night of the Born to Run Tour and Steven Van Zandt's debut as a member of the E Street Band.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/l6IwxpL-ZDk?feature=oembed](https://www.youtube.com/embed/l6IwxpL-ZDk?feature=oembed)
 
@@ -26,7 +26,7 @@ A red-letter (and red-eyed) day for Bruce and the E Street Band: after a maratho
 
 The opening stand of the Reunion Tour's U.S. leg continues with Night Three at the Continental Airlines Arena in East Rutherford.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/DhJGQnGP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DhJGQnGP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -52,7 +52,7 @@ Bruce and the E Street Band play their last European Magic show, at Camp Nou in 
 
 Bruce takes Evan to see U2 at the New Meadowlands Stadium, where Bono pays tribute to Clarence and outros from "Moment of Surrender" into "Jungleland."
 
-**2011:**
+**2011:**<br>
 
 [https://www.youtube.com/embed/dtmUsQjADjc?feature=oembed](https://www.youtube.com/embed/dtmUsQjADjc?feature=oembed)
 

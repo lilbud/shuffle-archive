@@ -83,9 +83,9 @@ But only almost. At least in this performance, Bruce and the band walk a fine li
 
 That particular super power was still years away.
 
-**Change It**
-**Never recorded**
-**Never released**
+**Change It**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** October 17, 1970 (West Long Branch, NJ)
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
 

@@ -33,7 +33,7 @@ Well… you really got me.
 January 17, 1990 (New York City, NY)
 May 5, 2009 (Charlottesville, VA)
 
-**You Really Got Me**
+**You Really Got Me**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

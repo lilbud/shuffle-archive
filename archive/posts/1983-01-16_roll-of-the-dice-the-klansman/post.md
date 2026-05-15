@@ -40,6 +40,6 @@ Rumors still fly about a someday-soon box set treatment for *Born in the U.S.A.*
 **The Klansman**  
 **Recorded:** March 10, 1983  
 **Released:** *L.A. Garage Sessions '83* (2025)
-**Never performed**
+**Never performed**<br>
 
 © October 15, 2018

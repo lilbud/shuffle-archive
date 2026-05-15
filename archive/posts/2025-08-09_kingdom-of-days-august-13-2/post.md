@@ -4,7 +4,7 @@
 
 Bruce plays his fifth of six two-shows-a-night solo gigs at Max's Kansas City this week.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -38,7 +38,7 @@ As for the journalists and critics in attendance, most are won over… but not a
 
 Bruce rehearses with Cats on a Smooth Surface at Tower Recording Studios in Farmingdale, New Jersey, in preparation for their show at the Stone Pony two days later.
 
-**1982:**
+**1982:**<br>
 
 
 
@@ -46,7 +46,7 @@ Bruce rehearses with Cats on a Smooth Surface at Tower Recording Studios in Farm
 
 Bruce and his new touring band bring World Tour 1992 to the Boston area for the first of two shows at the Centrum in Worcester.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/ZTTosGqD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZTTosGqD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -82,6 +82,6 @@ Bruce wraps up his solo "summer extravaganza" at GM Place in Vancouver, BC, tour
 
 Bruce and the E Street Band rehearse for the final American leg of the Wrecking Ball Tour at Fenway Park in Boston.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/WqcEh_6ls8M?feature=oembed](https://www.youtube.com/embed/WqcEh_6ls8M?feature=oembed)

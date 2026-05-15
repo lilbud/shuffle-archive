@@ -12,6 +12,6 @@ Here's that performance (with Bruce playing a supporting role on this one), from
 
 ![](../../assets/2019/03/edmunds.jpg)
 
-**Let's Talk About Us**
+**Let's Talk About Us**<br>
 **First performed:** September 18, 1982 (Red Bank, NJ)<br>
 **Last performed:** September 18, 1982 (Red Bank, NJ)<br>

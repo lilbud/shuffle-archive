@@ -120,7 +120,7 @@ In 2008 (and again for an encore a year and a half later), Richard Davis reprise
 
 "Meeting Across the River" has never been a setlist staple, even on the *Born to Run* tour. But other than its notable absence during the twenty-year stretch from 1979-1998, it's never been fully gone either. Fans can usually depend on a few outings per tour–these days, paired more often than not with "Jungleland." Consider yourself lucky if you catch either of them–they both rank among the best of Bruce's catalog.
 
-**Meeting Across the River**
+**Meeting Across the River**<br>
 **Recorded:** May 28, 1975  
 **Released:** *Born to Run* (1975)
 **First performed:** September 26, 1975 (Iowa City, IA)

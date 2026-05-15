@@ -4,7 +4,7 @@
 
 A planned gig opening for Dr. John in San Diego is cancelled due to low ticket sales.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band play their second of back-to-back nights at Kutztown State College, where Bruce debuts his cover of "."
 
@@ -16,7 +16,7 @@ Bruce and the E Street Band play their second of back-to-back nights at Kutztown
 
 Bruce is sick, causing his scheduled River Tour show in Cincinnati to be postponed.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -52,7 +52,7 @@ At the third of eleven Meadowlands shows on World Tour 1992, Bruce closes the ev
 
 The opening stand of the U.S. leg of the Reunion Tour reaches Night Five (of fifteen) at the Continental Airlines Arena in East Rutherford.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/pjnIjTCfg-s?feature=oembed](https://www.youtube.com/embed/pjnIjTCfg-s?feature=oembed)
 

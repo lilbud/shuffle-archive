@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band headlines two shows at D'Scene in South Amboy, New Jersey.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Bruce Springsteen Band headlines two shows at D'Scene in South Amboy, New Je
 
 Bruce and his band headline two shows at Max's Kansas City in New York, with The Wailers opening for them.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -44,7 +44,7 @@ It's Night Two on the Born to Run Tour, and the band continues developing the sh
 
 Bruce's Darkness Tour show in Birmingham, Alabama is postponed to September due to a throat infection.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -52,13 +52,13 @@ Bruce's Darkness Tour show in Birmingham, Alabama is postponed to September due 
 
 Fresh off of his history-making East Berlin show, Bruce crosses the border to West Berlin and plays one show at Waldbühne.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1Ap7bmpnYqLbgqSwEfAqmhn](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1Ap7bmpnYqLbgqSwEfAqmhn)
 
 Bruce joins Peter Hartung & The Remakes on stage at McLoone's Rum Runner in Sea Bright, New Jersey.
 
-**1989:**
+**1989:**<br>
 
 Bruce makes a surprise appearance at Tradewinds in Sea Bright with Joe Grushecky and the Houserockers for an -heavy set, with a few Springsteen originals added for good measure. Stevie and Max join for four songs as well.
 
@@ -80,11 +80,11 @@ Bruce makes a surprise appearance at Tradewinds in Sea Bright with Joe Grushecky
 
 Bruce and the E Street Band rehearse for the upcoming Rising Tour at the Expo Theater in Fort Monmouth.
 
-**2002:**
+**2002:**<br>
 
 Bruce takes a stroll along the Jersey shore, stops and borrows a guitar, and plays "Born to Run."
 
-**2011:**
+**2011:**<br>
 
 
 

@@ -47,9 +47,9 @@ Bruce's lyrics are unclear here at times–perhaps bluffed, even–but this is a
 > *Yeah it don't matter what I do because*
 > *My heart is an open book to you*
 
-**My Heart Is an Open Book**
+**My Heart Is an Open Book**<br>
 **Recorded** March-April 1981 (home demo)
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

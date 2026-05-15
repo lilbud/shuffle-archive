@@ -17,7 +17,7 @@ The song would go on to chart once more–higher even–when Linda Ronstadt cove
 February 5, 1975 (Bryn Mawr, PA)
 December 27, 1975 (Philadelphia, PA)
 
-**Back in the U.S.A.**
+**Back in the U.S.A.**<br>
 **First performed:** <br>
 **Last performed:**<br>
 

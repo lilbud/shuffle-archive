@@ -2,7 +2,7 @@
 
 No updates
 
-**New for 2025:**
+**New for 2025:**<br>
 
 Bruce and Julianne listen appreciatively as a group of local teens sing Christmas carols at his front door. After they finish, the short, nice, and cute rock star gets his guitar and rewards them with a rendition of "."
 

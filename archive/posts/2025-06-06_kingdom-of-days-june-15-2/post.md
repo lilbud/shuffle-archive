@@ -4,11 +4,11 @@
 
 At Madison Square Garden, Bruce and his band play their thirteenth and final show as the opening act for Chicago. This was a notoriously bad tour for the band, playing to huge but unreceptive (and sometimes booing) crowds. Bruce resolves never to play big halls again, and he sticks to it… for a while.
 
-**1973:**
+**1973:**<br>
 
 Under record label pressure to release a new single, Bruce and the E Street Band cancel a show at Armadillo World Headquarters in Austin.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -46,7 +46,7 @@ At The Hit Factory in New York City, Bruce records "" and "" The former won't be
 
 The Born in the U.S.A. Tour moves on to West Germany for two nights, starting with a show in Frankfurt.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/TK3GxeQpP1w?feature=oembed](https://www.youtube.com/embed/TK3GxeQpP1w?feature=oembed)
 
@@ -70,7 +70,7 @@ The Born in the U.S.A. Tour moves on to West Germany for two nights, starting wi
 
 World Tour 1992 kicks off with the first of two shows at the Globe Arena in Stockholm. A few songs are captured in professional quality video, and you can watch them below.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/DQiBMawuHE0?feature=oembed](https://www.youtube.com/embed/DQiBMawuHE0?feature=oembed)
 

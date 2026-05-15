@@ -4,7 +4,7 @@
 
 Earth plays two shows at the Off Broad Street Coffee House in Red Bank, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -12,17 +12,17 @@ Earth plays two shows at the Off Broad Street Coffee House in Red Bank, New Jers
 
 Bruce and his unnamed band play the Bristol Motor Inn in Bristol, Rhode Island.
 
-**1973:**
+**1973:**<br>
 
 Bruce goes to New York City to visit WPLJ-FM, where he sits down for an interview with Father Bill Ayres. They talk for over an hour, but the interview won't be aired until April, and even then only in significantly edited form.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/w-12DlTy7v0?feature=oembed](https://www.youtube.com/embed/w-12DlTy7v0?feature=oembed)
 
 Bruce continues his first ever tour of Canada with a show at the National Arts Center in Ottawa.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -48,13 +48,13 @@ Bruce completes his west coast Darkness swing with a show at the Seattle Center 
 
 Bruce joins Tim McLoone's Holiday Express on stage at Tradewinds in Sea Bright, New Jersey.
 
-**1994:**
+**1994:**<br>
 
 [https://www.youtube.com/embed/nbv2xybqvpQ?feature=oembed](https://www.youtube.com/embed/nbv2xybqvpQ?feature=oembed)
 
 Bruce holds his annual Christmas party at McLoone's Rum Runner in Sea Bright, where he joins Bobby Bandiera and his band on stage for a set of cover classics.
 
-**1999:**
+**1999:**<br>
 
 Bruce and Patti take in on Broadway and are invited backstage to meet the cast.
 

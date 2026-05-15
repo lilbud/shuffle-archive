@@ -30,9 +30,9 @@ From the opening measures of "Secret to the Blues," we can hear Bruce go to town
 
 "Secret to the Blues" didn't stick around long, but in the pair of recordings known to exist, we hear Bruce and the boys captured mid-transition in a way no other song can.
 
-**Secret to the Blues**
-**Never Recorded**
-**Never Released**
+**Secret to the Blues**<br>
+**Never Recorded**<br>
+**Never Released**<br>
 **First performed:** January 4, 1973 (Bryn Mawr, PA)
 **Last performed:** June 13, 1973 (Binghamton, NY)
 

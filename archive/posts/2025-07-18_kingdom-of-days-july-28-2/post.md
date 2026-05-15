@@ -12,7 +12,7 @@ Bobby King, backing vocalist on "" and "" and throughout World Tour 1992 and Wor
 
 The Castiles participate in Asbury Park's first annual Rock'n'Roll Contest, where first prize is awarded to The Shadows, featuring Steven Van Zandt.
 
-**1966:**
+**1966:**<br>
 
 
 
@@ -20,7 +20,7 @@ The Castiles participate in Asbury Park's first annual Rock'n'Roll Contest, wher
 
 Bruce and the E Street Band play a show at the Tucson Community Center.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -60,7 +60,7 @@ Bruce's cover of "" makes its debut in his Darkness Tour show in Miami.
 
 Bruce and the E Street Band record "Bobby Jean" at The Hit Factory in New York City.
 
-**1983:**
+**1983:**<br>
 
 [https://www.youtube.com/embed/iGR_Rk74tOk?feature=oembed](https://www.youtube.com/embed/iGR_Rk74tOk?feature=oembed)
 
@@ -82,7 +82,7 @@ Bruce brings his solo Devils and Dust Tour to Pittsburgh, where local boy Joe Gr
 
 At the second of three nights at Giants Stadium on the Magic Tour, Bruce and the band perform "Held Up Without a Gun" for only the third time ever, Jay Weinberg makes his E Street Band debut on "Born to Run," and Jesse Malin and Dave Bielanko guest star on "Twist and Shout."
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/51olFvYDrR4?feature=oembed](https://www.youtube.com/embed/51olFvYDrR4?feature=oembed)
 

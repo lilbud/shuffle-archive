@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Bruce Springsteen, "Streets of Fire" - Madison, 1978-11-28](https://www.youtube.com/watch?v=18_SB3a9Jbo)
 
-**![](../../assets/2019/11/47544237051_e03acb5d43_o.jpg)**
+**![](../../assets/2019/11/47544237051_e03acb5d43_o.jpg)**<br>
 
 **1980:** On Black Friday, Bruce and the band play their second of two nights at Madison Square Garden in New York City. This show features a very unusual "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)"/"[Living on the Edge of the World](https://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/)" (the latter of which hadn't even been released) mashup, as well as the tour premiere of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."
 

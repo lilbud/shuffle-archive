@@ -30,7 +30,7 @@ Okay, it's a little loose in spots, but for an unplanned performance, it's fanta
 
 Other than a few off-tour performances, these were the only two times Bruce has performed "Knock on Wood" in concert. But they hopefully won't be the last, because this is a perfect song for Bruce and the band.
 
-**Knock on Wood**
+**Knock on Wood**<br>
 **First performed:** April 29, 1976 (Memphis, TN)<br>
 **Last performed:** August 15, 2012 (Boston, MA)<br>
 

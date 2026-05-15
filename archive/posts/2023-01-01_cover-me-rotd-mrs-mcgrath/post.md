@@ -47,7 +47,7 @@ Although Bruce hasn't played "Mrs. McGrath" since that too-short 2006 tour, we'r
 
 Whether Bruce will ever sing it again remains to be seen. But someone surely will, until the day when it's no longer necessary to rage against war and loss.
 
-**Mrs. McGrath**
+**Mrs. McGrath**<br>
 **Recorded:** March 19, 2005  
 **Released:** [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)(2006)
 **First performed:** April 20, 2006 (Asbury Park, NJ)

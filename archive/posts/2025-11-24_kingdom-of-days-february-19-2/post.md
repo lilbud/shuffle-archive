@@ -2,15 +2,15 @@
 
 Bruce jams with local musicians at an open mic night at the Upstage.
 
-**1971:**
+**1971:**<br>
 
 The Bruce Springsteen Band plays their fifth of a nine-show, month-long semi-residency at The Back Door in Richmond.
 
-**1972:**
+**1972:**<br>
 
 Bruce and the E Street Band headline at Penn State University, their first-ever appearance there.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -18,7 +18,7 @@ Bruce and the E Street Band headline at Penn State University, their first-ever 
 
 Bruce brings the Lawsuit Tour to St. Paul, where a fan films parts of the performance on 8mm film.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/LHZEgWPJJEQ?feature=oembed](https://www.youtube.com/embed/LHZEgWPJJEQ?feature=oembed)
 
@@ -36,7 +36,7 @@ Also on this date in 1977: Manfred Mann's Earth Band gifts Bruce with his only n
 
 Nils Lofgren spends the weekend with Bruce at his house in Rumson. Not long after, Bruce will invite Nils to join the E Street Band.
 
-**1984:**
+**1984:**<br>
 
 Bruce plays a solo acoustic show in Somerville, Massachusetts, as a benefit for . This show features the premiere of "" (which won't be released for more than a decade) and a one-off acoustic "." The real highlight, though, is the post-show Q&A sessions with fans in attendance. Take a listen below.
 

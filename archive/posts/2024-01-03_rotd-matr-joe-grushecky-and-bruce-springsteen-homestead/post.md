@@ -82,9 +82,9 @@ Joe and Bruce have performed "Homestead" together nineteen times over the years 
 
 It's been more than a decade since we've last seen them perform it together on stage, but it's difficult to believe we won't see them do it again. Their team-ups are hard to predict but ongoing, and "Homestead" remains one of their best collaborations.
 
-**The 25th Anniversary Edition of *American Babylon* is available now on vinyl, CD, and digital–get it [here](https://www.joegrushecky.com/store). Catch Joe and The Houserockers[on stage this summer](https://www.joegrushecky.com/shows), including a night at The Wonder Bar in Asbury Park on July 9th!**
+**The 25th Anniversary Edition of *American Babylon* is available now on vinyl, CD, and digital–get it [here](https://www.joegrushecky.com/store). Catch Joe and The Houserockers[on stage this summer](https://www.joegrushecky.com/shows), including a night at The Wonder Bar in Asbury Park on July 9th!**<br>
 
-**Homestead**
+**Homestead**<br>
 **Recorded** November 1993 (Grushecky version), Unknown (Springsteen version)
 **Released:** *American Babylon* (1995) (Grushecky version)
 **First performed:** October 17, 1995 (Asbury Park, NJ)

@@ -80,17 +80,17 @@ Listen in on the soundcheck…
 
 Bruce plays a solo acoustic show in Rotterdam.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/Mn7BVXOQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Mn7BVXOQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Nominated for the Best Male Rock Vocal Performance Grammy for "Thunder Road," Bruce loses to Bob Dylan's "Cold Irons Bound."
 
-**1998:**
+**1998:**<br>
 
 Four New York City police officers are acquitted of all charges in the shooting death of Amadou Diallo, an immigrant from West Africa who was shot at 41 times by the police even though he was unarmed. Bruce will shortly write a song about it and perform it to much controversy in New York at the end of the Reunion Tour.
 
-**2000:**
+**2000:**<br>
 
 Bruce wins the Grammy Award for Best Solo Rock Vocal Performance for "."
 
@@ -100,7 +100,7 @@ Bruce wins the Grammy Award for Best Solo Rock Vocal Performance for "."
 
 Bruce and the E Street Band rehearse for the next leg of the Magic Tour at Convention Hall in Asbury Park.
 
-**2008:**
+**2008:**<br>
 
 Bruce makes a surprise appearance at an Asbury Park benefit concert in memory of his personal trainer Tony Strollo, who died earlier that month; at the show he plays guitar while Tony's brother Michael sings "…"
 
@@ -138,7 +138,7 @@ The River Tour (2016 Edition) moves on to the First Niagara Center in Buffalo, w
 
 The Summer 2017 Tour ends in Auckland with a solo performance of "Thunder Road." It will be six years before the band plays together in concert again.
 
-**2017:**
+**2017:**<br>
 
 [https://www.youtube.com/embed/lDwzH92dZhI?feature=oembed](https://www.youtube.com/embed/lDwzH92dZhI?feature=oembed)
 

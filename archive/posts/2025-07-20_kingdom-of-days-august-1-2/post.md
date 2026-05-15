@@ -4,7 +4,7 @@
 
 Thirteen-year-old Bruce Springsteen helps his little league team, the Braves, secure their spot in the Babe Ruth League playoffs.
 
-**1963:**
+**1963:**<br>
 
 
 
@@ -12,7 +12,7 @@ Thirteen-year-old Bruce Springsteen helps his little league team, the Braves, se
 
 Bruce and the as yet unnamed E Street Band play two shows on their second of three nights at My Father's Place in Roslyn, New York.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -20,11 +20,11 @@ Bruce and the as yet unnamed E Street Band play two shows on their second of thr
 
 Bruce records an early version of "Jungleland" at 914 Sound Studios in Blauvelt, New York.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the boys bring the Born to Run Tour to the Mosque Theater in Richmond.
 
-**1975:**
+**1975:**<br>
 
 [https://videopress.com/embed/eMvYyWzB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eMvYyWzB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -54,7 +54,7 @@ A big night in Red Bank: unable to record due to Mike Appel's legal injunction, 
 
 Bruce and the E Street Band work on "Racing in the Street" at Atlantic Studios in New York City.
 
-**1977:**
+**1977:**<br>
 
 The Darkness Tour continues its southern leg with a show at Gaillard Municipal Auditorium in Charleston, South Carolina, where Bruce plays "" for the first time on the tour.
 
@@ -70,7 +70,7 @@ Bruce makes a guest appearance with Cats on a Smooth Surface for six songs (incl
 
 Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former location of Big Man's West in Red Bank.
 
-**1985:**
+**1985:**<br>
 
 
 
@@ -104,7 +104,7 @@ It's Night Eight of fifteen on the opening American stand of the Reunion Tour, a
 
 Bruce and Evan take in a ballgame at Yankee Stadium, and the cameras pick them out of the crowd repeatedly. That's Lance Armstrong sitting to Bruce's right.
 
-**2001:**
+**2001:**<br>
 
 [https://www.youtube.com/embed/L1G-u3q9G9A?feature=oembed](https://www.youtube.com/embed/L1G-u3q9G9A?feature=oembed)
 

@@ -77,7 +77,7 @@ See how right off the bat, the song loses its edge:
 
 > *Well if the sun should fall from the sky tomorrow*
 > *If the rain brings a tear to your eye I would share your sorrow*
-***If you must go, then take your leave***
+***If you must go, then take your leave***<br>
 > *Our love was strong, our love was sweet*
 > *But we were walking on the wild side, running down a one way street*
 
@@ -117,7 +117,7 @@ Your only E Street Band performance (other than the private carousel concert whe
 
 But if you're ever in the mood to play it in concert again, maybe give the original lyrics a try? Or maybe just play "Hearts of Stone" instead… that song gets me every time.
 
-**One Way Street**
+**One Way Street**<br>
 **Recorded** June 17, 1977 (backing track), 2010 (vocals)
 **Released:** *The Promise* (2010)
 **First performed:** December 7, 2010 (Asbury Park, NJ)

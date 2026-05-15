@@ -98,9 +98,9 @@ Because once we start to distance, the masks come on, trust frays, and doubt cre
 
 And when we start doubting what we're sure of, God have mercy.
 
-**Trouble in Paradise**
+**Trouble in Paradise**<br>
 **Recorded** December 1, 1989  
 **Released:** *Tracks* (1998)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

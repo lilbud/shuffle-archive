@@ -30,7 +30,7 @@ But while almost every post-Reunion era Springsteen performance of "Fortunate So
 
 [https://www.youtube.com/embed/BXTMhDJD3vk?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/BXTMhDJD3vk?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**Fortunate Son**
+**Fortunate Son**<br>
 **First performed:** August 9, 1987 (Asbury Park, NJ)<br>
 **Last performed:** April 26, 2025 (West Long Branch, NJ)<br>
 

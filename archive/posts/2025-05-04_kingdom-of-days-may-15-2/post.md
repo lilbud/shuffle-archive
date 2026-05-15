@@ -18,7 +18,7 @@ Bruce, Shane Fontayne, Bobby King, and Tommy Sims notice a dancing school ball b
 
 Bruce kicks off an acoustic mini-tour of France with a show at the Auditorium Maurice Ravel in Lyon.
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/izQmoLoJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/izQmoLoJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -34,7 +34,7 @@ The Rising Tour moves on to Gijon. Watch local TV coverage of the show, includin
 
 The highlight of Bruce's solo acoustic show at Cleveland State University is undoubtedly the tour premiere of "Stolen Car," the first time (outside of a 2003 benefit show) Bruce has played this song in two decades.
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/QjKxwljcdiM?feature=oembed](https://www.youtube.com/embed/QjKxwljcdiM?feature=oembed)
 
@@ -68,7 +68,7 @@ The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las 
 
 Bruce makes a virtual appearance at the Spring-Nuts Seaside Serenade at The Stone Pony in Asbury Park.
 
-**2022:**
+**2022:**<br>
 
 
 

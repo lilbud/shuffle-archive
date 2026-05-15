@@ -2,7 +2,7 @@
 
 The Castiles play The Cage in Middletown, New Jersey.
 
-**1967:**
+**1967:**<br>
 
 
 
@@ -10,7 +10,7 @@ The Castiles play The Cage in Middletown, New Jersey.
 
 Bruce Springsteen meets his future wife when high school student Patti Scialfa attends his gig at the local YWHA in Deal, New Jersey.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce Springsteen meets his future wife when high school student Patti Scialfa a
 
 The Bruce Springsteen Band plays a gig at Hampden-Sydney College in Virginia.
 
-**1972:**
+**1972:**<br>
 
 Bruce and his band finish their weeklong stint at Oliver's in Boston with a rare Sunday matinee performance. Following the show, the band drives to the University of Rhode Island for an evening show opening for Sha Na Na. 
 
@@ -34,11 +34,11 @@ Bruce and his band finish their weeklong stint at Oliver's in Boston with a rare
 
 Bruce and his unnamed band play their first two shows (of eight total) at Gertie's in Dallas. Bruce is not yet popular in Dallas, and the shows are poorly attended.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band bring the Lawsuit Tour to the Veterans Memorial Coliseum in New Haven, Connecticut.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/VvLq3FWKFqg?feature=oembed](https://www.youtube.com/embed/VvLq3FWKFqg?feature=oembed)
 
@@ -48,7 +48,7 @@ Bruce and the E Street Band bring the Lawsuit Tour to the Veterans Memorial Coli
 
 Bruce and the reunited E Street Band play their first public show at Convention Hall in Asbury Park. The show is a warm-up for the upcoming tour and a benefit for local Asbury Park community organizations. "My Love Will Not Let You Down" and "Land of Hope and Dreams" both make their debuts tonight; "If I Should Fall Behind" makes its E Street Band debut; "Factory" is played for the first time in 15 years; and "The River" and "Youngstown" get new arrangements.
 
-**1999:**
+**1999:**<br>
 
 News coverage from the day:
 
@@ -66,7 +66,7 @@ News coverage from the day:
 
 The Reunion Tour moves on to Memphis and the Pyramid Arena, where "Follow That Dream" makes its tour debut and only appearance.
 
-**2000:**
+**2000:**<br>
 
 [https://www.youtube.com/embed/wKD0Fh5A8eg?feature=oembed](https://www.youtube.com/embed/wKD0Fh5A8eg?feature=oembed)
 
@@ -76,13 +76,13 @@ The Reunion Tour moves on to Memphis and the Pyramid Arena, where "Follow That D
 
 Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park's Convention Hall. Eavesdrop below to hear them work out several songs, including Jimmy Cliff's "Sufferin' in the Land," which won't make it to the final setlist.
 
-**2009:**
+**2009:**<br>
 
 [https://videopress.com/embed/lxNzRjRj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lxNzRjRj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce joins Dropkick Murphys on stage at the House of Blues in Boston for "Peg O' My Heart," "Badlands," and "I'm Shipping Up to Boston."
 
-**2011:**
+**2011:**<br>
 
 [https://www.youtube.com/embed/rGvZGCh16yA?feature=oembed](https://www.youtube.com/embed/rGvZGCh16yA?feature=oembed)
 
@@ -94,7 +94,7 @@ Bruce joins Dropkick Murphys on stage at the House of Blues in Boston for "Peg O
 
 The Wrecking Ball Tour kicks off at Philips Arena in Atlanta, featuring the live debut of "Easy Money."
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/tH3X6MhqW4k?feature=oembed](https://www.youtube.com/embed/tH3X6MhqW4k?feature=oembed)
 
@@ -104,7 +104,7 @@ The Wrecking Ball Tour kicks off at Philips Arena in Atlanta, featuring the live
 
 Bruce and the E Street Band play the first of three nights at Allphones Arena in Sydney.
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/ZvHd6CCBsVM?feature=oembed](https://www.youtube.com/embed/ZvHd6CCBsVM?feature=oembed)
 
@@ -118,7 +118,7 @@ Bruce and the E Street Band play the first of three nights at Allphones Arena in
 
 Bruce and the E Street Band bring their World Tour to Penn State University, where "Hungry Heart" makes its first tour appearance.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/Aoc_cCa9f0Y?feature=oembed](https://www.youtube.com/embed/Aoc_cCa9f0Y?feature=oembed)
 
@@ -132,4 +132,4 @@ Bruce and the E Street Band bring their World Tour to Penn State University, whe
 
 Bruce and the E Street Band rehearse at the Footprint Center in Phoenix.
 
-**2024:**
+**2024:**<br>

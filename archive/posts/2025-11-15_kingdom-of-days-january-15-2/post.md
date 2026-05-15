@@ -2,7 +2,7 @@
 
 The Born in the U.S.A. Tour pulls into Charlotte for the first of two nights at the Charlotte Coliseum.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/YKDm9FGq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YKDm9FGq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -42,4 +42,4 @@ Bruce makes a traditional "surprise" appearance at Light of Day in Asbury Park, 
 
 Bruce and the E Street Band rehearse in Pittsburgh for the start of the River Tour (2016 version). They rehearse two Bowie songs as a tribute, "Suffragette City" and "Changes," but they will end up playing a different song altogether when the tour opens the following night.
 
-**2016:**
+**2016:**<br>

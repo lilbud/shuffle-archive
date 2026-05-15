@@ -57,11 +57,11 @@ Now up until this point, "Jazz Musician" is an interesting but unremarkable trac
 
 Historically, though, "Jazz Musician" points the way forward to one of Bruce's most enduring songs. Let's listen:
 
-***Well outside the park is dark***
-***But the sidewalk's bright in line with the light of the living***
+***Well outside the park is dark***<br>
+***But the sidewalk's bright in line with the light of the living***<br>
 > *Oh, and baby can I walk you home tonight*
 *Because it's so bad outside **but there's so much for the giving***
-***I was stranded in the jungle***
+***I was stranded in the jungle***<br>
 > *First stage witness at a company killing*
 > *And shuffling my feet, clutching my high school diploma*
 > *Promised sixty bucks a week and top billing*
@@ -72,17 +72,17 @@ I'm sure you recognized **the lines** that would years later end up in or evolve
 > *That dark woman with the funny tattoo*
 > *The curtain calls of her shadow on my walls*
 > *All I got to pull me through*
-***Whoa, and out on the corner there's no room to move***
-***Because everybody's trying so hard to groove***
+***Whoa, and out on the corner there's no room to move***<br>
+***Because everybody's trying so hard to groove***<br>
 > *And in the Blue Light lounge, Jazzman he plays the blues*
 
 But where "Tenth Avenue Freeze-Out" is romantic and celebratory, Bruce uses almost the same imagery and lyricism to paint a much darker picture in "Jazz Musician" — a character study of a forlorn musician exiled from the clubs to the street, pining for a girl who the law keeps out of reach, playing the blues because he's got nothing else and nowhere else to play.
 
 It's a sad story, and one that never saw print–but it paved the way to greater and more enduring things to come.
 
-**Jazz Musician**
+**Jazz Musician**<br>
 **Recorded** June 27, 1972  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 © March 19, 2022

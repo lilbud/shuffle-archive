@@ -4,7 +4,7 @@
 
 Bruce plays his first ever show in California, at the Esalen Institute in Big Sur. He unexpectedly encounters a Freehold friend, Richard Blackwell, who sits in with the band during their New Years Eve gig.
 
-**1969:**
+**1969:**<br>
 
 Bruce and the E Street Band wrap up 1975 with a magnificent show at Philadelphia's Tower Theater. Fans in attendance don't realize it, but they're witnessing the last "" for 18 years, the last "" for 33 years, and the last slow arrangement of "" for 15 years. This show is available as part of Bruce's official archive series–get it .
 
@@ -86,6 +86,6 @@ is certified double platinum by the Recording Industry Association of America.
 
 Bruce calls into E Street Radio and chats with host Jim Rotolo.
 
-**2020:**
+**2020:**<br>
 
 [https://www.youtube.com/embed/8Q0bpVwAr_s?feature=oembed](https://www.youtube.com/embed/8Q0bpVwAr_s?feature=oembed)

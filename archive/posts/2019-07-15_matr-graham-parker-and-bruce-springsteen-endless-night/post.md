@@ -10,7 +10,7 @@ Take a listen below.
 
 [Watch on Youtube: Graham Parker and the Rumour -- Endless Night](https://www.youtube.com/watch?v=OiuH7_ITOaI)
 
-**Endless Night**
+**Endless Night**<br>
 **Recorded:** December 1979<br>
 **Released:** *The Up Escalator* (1980)<br>
-**Never performed**
+**Never performed**<br>

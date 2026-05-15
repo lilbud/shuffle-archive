@@ -4,7 +4,7 @@
 
 Earth makes their debut performance at the Off Broad Street Coffee House in Red Bank, New Jersey. Earth is Bruce's new band, featuring John Graham on bass and Michael Burke on drums. (Bob Alfano will join later on organ.)
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -12,11 +12,11 @@ Earth makes their debut performance at the Off Broad Street Coffee House in Red 
 
 Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that's where the band wants to be–but they honor their commitment.
 
-**1969:**
+**1969:**<br>
 
 Bruce cancels a scheduled show in East Paterson, New Jersey, to make room for recording sessions for his second album.
 
-**1973:**
+**1973:**<br>
 
 On the fourth of five legendary nights at New York City's Bottom Line club on the Born to Run Tour, Bruce debuts his cover of "" at the first of two shows that night.
 
@@ -56,7 +56,7 @@ At Night Seven of their ten-night Meadowlands stand on the Born in the U.S.A. To
 
 Bruce attends (but does not perform at) the 12th annual Clearwater Festival for the environment at Sandy Hook, New Jersey, along with former E Street Band drummer Vini Lopez.
 
-**1987:**
+**1987:**<br>
 
 
 
@@ -68,7 +68,7 @@ Bruce makes a guest appearance with Bobby Bandiera at Cheers in Long Branch, New
 
 Bruce postpones a scheduled Reunion show in Detroit to the following month due to "scheduling conflicts."
 
-**1999:**
+**1999:**<br>
 
 
 
@@ -100,7 +100,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Minutes before the GA gates are due to open, Bruce postpones his show (and the one following) at Citizen Bank Park in Philadelphia.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/KYl9eW0dLBM?feature=oembed](https://www.youtube.com/embed/KYl9eW0dLBM?feature=oembed)
 

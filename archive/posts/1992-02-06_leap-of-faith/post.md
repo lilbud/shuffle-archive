@@ -14,7 +14,7 @@
 
 
 
-**Leap of Faith**
+**Leap of Faith**<br>
 **Recorded:** Late 1991<br>
 **Released:** *Lucky Town* (1992)<br>
 **First performed:** May 6, 1992 (New York City, NY)<br>

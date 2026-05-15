@@ -4,7 +4,7 @@
 
 Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the third of a five-night/ten-show stand.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at 
 
 Continuing a week of Texas shows, Bruce and the E Street Band play a show at the Ritz Music Hall in Corpus Christi.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce holds a recording session for at The Record Plant in New York City.
 
 Bruce and the E Street Band take the Darkness Tour north to the Montreal Forum. A few snippets of the show were captured on Super-8 film–check it out below.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/av25tXKnSX4?feature=oembed](https://www.youtube.com/embed/av25tXKnSX4?feature=oembed)
 
@@ -38,7 +38,7 @@ Bruce and the E Street Band take the Darkness Tour north to the Montreal Forum. 
 
 The River Tour visits Texas, starting with a show at the Reunion Arena in Dallas, where the band plays "The Yellow Rose of Texas" for the occasion.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/DzDd5_voJkM?feature=oembed](https://www.youtube.com/embed/DzDd5_voJkM?feature=oembed)
 
@@ -46,7 +46,7 @@ The River Tour visits Texas, starting with a show at the Reunion Arena in Dallas
 
 Bruce and the band make a Born in the U.S.A. Tour stop at Arizona State University in Tempe.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD5Fn5jxXB9E-xQlb2SMEGh](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD5Fn5jxXB9E-xQlb2SMEGh)
 
@@ -124,7 +124,7 @@ Bruce and the E Street Band play the second of two very special full-album shows
 
 Bruce supports the 6th annual Stand Up for Heroes benefit for the Bob Woodruff Foundation at New York's Beacon Theater, performing a four-song acoustic set and exercising his comedy chops. Watch his entire set below.
 
-**2012:**
+**2012:**<br>
 
 [https://videopress.com/embed/fixgKvan?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fixgKvan?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -154,4 +154,4 @@ At the fifteenth annual edition of Stand Up for Heroes at Alice Tulle Hall in Ne
 
 Bruce's scheduled show in Calgary is postponed by more than a year due to his peptic ulcer disease.
 
-**2023:**
+**2023:**<br>

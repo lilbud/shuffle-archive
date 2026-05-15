@@ -94,7 +94,7 @@ It's been a few years now since we've heard Bruce perform "Jack of All Trades," 
 
 After all: It's all happened before. It'll happen again.
 
-**Jack of All Trades**
+**Jack of All Trades**<br>
 **Recorded** 2011  
 **Released:** *Wrecking Ball* (2012)
 **First performed:** March 2, 2012 (New York City, NY)

@@ -12,11 +12,11 @@ Cindy Mizelle, backing vocalist on "" "," "American Skin (41 Shots)," "," and ""
 
 Bruce catches a gig by and jams with Funky Dusty and The Soul Broom (a side project of Steve, Garry, Southside, and Bobby Williams) at The Upstage in Asbury Park.
 
-**1970:**
+**1970:**<br>
 
 Bruce and his band perform at the annual CBS Sales Convention at the Fairmont Hotel in San Francisco. Bruce is asked and scheduled to play for fifteen minutes, but he plays for 40 minutes instead, overstaying his welcome and failing to impress following the special effects-laden mini-set by Edgar Winter's White Trash.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce and his band perform at the annual CBS Sales Convention at the Fairmont Ho
 
 Bruce and the E Street Band play two shows at the Celebrity Theater in Phoenix, netting them their biggest payday to date by far.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -32,11 +32,11 @@ Bruce and the E Street Band play two shows at the Celebrity Theater in Phoenix, 
 
 Incensed at manager Mike Appel's injunction preventing him from recording new material, Bruce sues Appel for fraud, breach of trust, and undue influence. Their legal battle is only just beginning.
 
-**1976:**
+**1976:**<br>
 
 Bruce is sick, causing his scheduled River Tour show in Cincinnati to be postponed.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -56,7 +56,7 @@ The Born in the U.S.A. Tour returns to the U.S., starting with a show at the Sar
 
 Bruce's Tunnel of Love show in Oslo features the return of "Thunder Road," not yet played on this tour. The opening songs are professionally shot and broadcast.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/wByMIEn4Wfg?feature=oembed](https://www.youtube.com/embed/wByMIEn4Wfg?feature=oembed)
 
@@ -90,7 +90,7 @@ Night Seven of ten at Giants Stadium on the Rising Tour has an unusual opening n
 
 Bruce kicks off the final leg of the Magic Tour with the first of three nights at Giants Stadium.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/gAyICIfrfGc?feature=oembed](https://www.youtube.com/embed/gAyICIfrfGc?feature=oembed)
 
@@ -134,6 +134,6 @@ Patti is absent, but continues its theatrical run at the Walter Kerr Theater in 
 
 Bruce and the E Street Band close out their European tour with a second night at Wembley Stadium in London that features a guest appearance by Patti Scialfa.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/p6syv7Jy4w4?feature=oembed](https://www.youtube.com/embed/p6syv7Jy4w4?feature=oembed)

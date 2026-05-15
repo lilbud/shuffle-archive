@@ -30,8 +30,8 @@ It's not entirely clear which direction Bruce was planning to take this song, bu
 > *but it's more fun playing music and sleeping with girls all night*
 
 **Untitled (Turn Around)**  
-**Never recorded**
+**Never recorded**<br>
 **Never released**  
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

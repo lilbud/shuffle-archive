@@ -28,7 +28,7 @@ Bruce joins Robert Gordon and Link Wray on stage at NYU for a cover of ""
 
 Bruce and the E Street Band bring the original River Tour to the Rochester Community War Memorial.
 
-**1980:**
+**1980:**<br>
 
 [https://videopress.com/embed/86gvEoej?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/86gvEoej?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -48,7 +48,7 @@ Bruce records an acoustic demo of "" at home in New Jersey,
 
 Bruce and the band make a Born in the U.S.A. Tour stop at Louisiana State University in Baton Rouge.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/-yFkpH87bDA?feature=oembed](https://www.youtube.com/embed/-yFkpH87bDA?feature=oembed)
 
@@ -56,7 +56,7 @@ Bruce and the band make a Born in the U.S.A. Tour stop at Louisiana State Univer
 
 Dallas fans celebrate the arrival of the holiday season when Bruce closes his World Tour 1992 show at the Reunion Arena with the tour premiere of "Santa Claus is Comin' to Town." Reviewers are not impressed.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/LS8uGiazRAc?feature=oembed](https://www.youtube.com/embed/LS8uGiazRAc?feature=oembed)
 
@@ -114,7 +114,7 @@ Bruce joins Joe Grushecky and The Houserockers for a special Flood Aid concert i
 
 Bruce joins Marah and Joe Grushecky and The Houserockers at their Light of Day sets the Starland Ballroom in Sayreville, New Jersey.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/sMNfK9VfNE0?feature=oembed](https://www.youtube.com/embed/sMNfK9VfNE0?feature=oembed)
 
@@ -126,13 +126,13 @@ Bruce joins Marah and Joe Grushecky and The Houserockers at their Light of Day s
 
 The Magic Tour continues its trek across Europe, as Bruce and the E Street Band arrive at the SAP Arena in Mannheim.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/aZdekslqgZU?feature=oembed](https://www.youtube.com/embed/aZdekslqgZU?feature=oembed)
 
 Bruce continues his promotional book tour, stopping at 2nd & Charles in Kennesaw, Georgia to meet fans.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/wXBUFozJd4Y?feature=oembed](https://www.youtube.com/embed/wXBUFozJd4Y?feature=oembed)
 
@@ -144,4 +144,4 @@ Bruce continues his promotional book tour, stopping at 2nd & Charles in Kennesaw
 
 Bruce's scheduled show in San Diego is postponed to the following March due to his peptic ulcer disease.
 
-**2023:**
+**2023:**<br>

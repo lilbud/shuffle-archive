@@ -31,8 +31,8 @@ It's just a set up, merely a stage setting, but it gives us a taste of what the 
 
 Did Bruce ever finish the song? Presumably, since it was on the lost album sequence. Did he ever record it? Someday, maybe, we'll know for sure.
 
-**Texas Drive In**
+**Texas Drive In**<br>
 Never released**
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

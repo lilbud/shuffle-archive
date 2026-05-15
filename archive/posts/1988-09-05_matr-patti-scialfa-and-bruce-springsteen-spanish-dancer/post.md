@@ -20,7 +20,7 @@ Here's hoping for another Scialfa album (and some solo shows) sometime soon.
 
 [https://www.youtube.com/embed/ATgQhCUnTmg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/ATgQhCUnTmg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**Spanish Dancer**
+**Spanish Dancer**<br>
 **First performed:** December 3, 2001 (Asbury Park, NJ)<br>
 **Last performed:** December 8, 2001 (Asbury Park, NJ)<br>
 

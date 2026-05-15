@@ -75,9 +75,9 @@ And then of course, in late 2020, we were finally gifted with a modern, complete
 
 [Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter (Official Audio)](https://www.youtube.com/watch?v=A_BRCRkAkAE)
 
-**Talking About My Baby**
-**Never recorded**
-**Never released**
+**Talking About My Baby**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** October 30, 1971 (Richmond, VA)
 **Last performed:** October 30, 1971 (Richmond, VA)
 

@@ -2,7 +2,7 @@
 
 E Street Band violinist Soozie Tyrell is born in Pisa, Italy.
 
-**1957:**
+**1957:**<br>
 
 
 
@@ -10,7 +10,7 @@ E Street Band violinist Soozie Tyrell is born in Pisa, Italy.
 
 Child plays an outdoor set at West End Park in Long Branch, New Jersey. (Note: Brucebase has this show assigned to Monday, May 5th. However, contemporaneous press coverage confirms that the date was actually Sunday, May 4th.)
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -18,7 +18,7 @@ Child plays an outdoor set at West End Park in Long Branch, New Jersey. (Note: B
 
 Bruce and the E Street Band headline Montclair State University's Spring Carnival, opening with "New York City Serenade."
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -30,7 +30,7 @@ At a recording session at the Record Plant in New York City, Bruce works on "Lon
 
 Bruce plays his first-ever show in Mississippi, at the Coliseum in Jackson.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -38,7 +38,7 @@ Bruce plays his first-ever show in Mississippi, at the Coliseum in Jackson.
 
 Bruce and the E Street Band record "Murder Incorporated" at the Power Station in New York City.
 
-**1982:**
+**1982:**<br>
 
 [https://www.youtube.com/embed/oshU-C5zTWE?feature=oembed](https://www.youtube.com/embed/oshU-C5zTWE?feature=oembed)
 
@@ -52,7 +52,7 @@ On Night Two at the Air Canada Center in Toronto, Bruce plays "Incident on 57th 
 
 Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the ceremony, Bruce inducts Frank Sinatra and plays "I Thank You" and "Glory Days" with La Bamba and The Hubcaps.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/sK8Khz0YLlE?feature=oembed](https://www.youtube.com/embed/sK8Khz0YLlE?feature=oembed)
 
@@ -68,7 +68,7 @@ Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the
 
 Bruce brings the Working on a Dream Tour to the Nassau Coliseum in Uniondale, New York, where he plays the tour premieres of "Expressway to Your Heart" (by request) and "Rendezvous." This show is available as part of Bruce's official archive series.
 
-**2009:**
+**2009:**<br>
 
 [https://videopress.com/embed/g6oM2O3x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/g6oM2O3x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -104,13 +104,13 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce makes a surprise appearance at the Saban Theater in Los Angeles, joining Little Steven & The Disciples of Soul on stage for three songs: "Tenth Avenue Freeze-Out," "Sun City," and "I Don't Want to Go Home."
 
-**2019:**
+**2019:**<br>
 
 [https://www.youtube.com/embed/3quQa4c7n_4?feature=oembed](https://www.youtube.com/embed/3quQa4c7n_4?feature=oembed)
 
 In the area early for his upcoming shows in Dublin, Bruce stops by The Burrow pub in Rathangan, County Kildare, his Irish ancestral home. Over a pint, he leads the locals through a verse of "My Hometown."
 
-**2023:**
+**2023:**<br>
 
 [https://videopress.com/embed/ZleZu0Ri?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZleZu0Ri?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -120,4 +120,4 @@ Upon returning to Dublin later in the day, Bruce pays a visit to the late Shane 
 
 Bruce and the E Street Band rehears for their European tour at Principality Stadium in Cardiff.
 
-**2024:**
+**2024:**<br>

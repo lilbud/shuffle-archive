@@ -21,8 +21,8 @@ Whatever "The Informer" turned out to be, this was clearly an early draft. Bruce
 
 For now, "The Informer" remains an enigma. But someday, maybe, that vault will open…
 
-**The Informer**
+**The Informer**<br>
 Never recorded or released**
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

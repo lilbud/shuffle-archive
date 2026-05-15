@@ -2,7 +2,7 @@
 
 Steel Mill headlines at D'Scene in South Amboy, New Jersey.
 
-**1971:**
+**1971:**<br>
 
 [https://www.youtube.com/embed/Xv4k7Bxs96U?feature=oembed](https://www.youtube.com/embed/Xv4k7Bxs96U?feature=oembed)
 
@@ -14,7 +14,7 @@ Steel Mill headlines at D'Scene in South Amboy, New Jersey.
 
 Bruce and the band play the first of four nights at My Father's Place in Roslyn, New York, opening for the Paul Winter Consort.
 
-**1973:**
+**1973:**<br>
 
 Bruce holds a solo recording session for at Thrill Hill West in Los Angeles.
 
@@ -24,7 +24,7 @@ Bruce holds a solo recording session for at Thrill Hill West in Los Angeles.
 
 : The first of two nights at the Greensboro Coliseum on the Born in the U.S.A. Tour features guest-stars Gary U.S. Bonds and Robbin Thompson on "Twist and Shout" during the encore.
 
-**1985**
+**1985**<br>
 
 [https://videopress.com/embed/BK00O8PP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BK00O8PP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -64,7 +64,7 @@ At A&M Studios in Los Angeles, Bruce records "," the final song in his sessions.
 
 Bruce brings his solo acoustic tour to the Fox Theater in St. Louis.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/hqPvtH4u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hqPvtH4u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -118,7 +118,7 @@ At The Vogel in Red Bank, Bruce rehearses with the E Street Horns and Choir in p
 
 Bruce makes a surprise appearance at Light of Day in Red Bank, New Jersey, joining Jesse Malin, Willie Nile, and Joe Grushecky and the Houserockers during their sets.
 
-**2025:**
+**2025:**<br>
 
 [https://www.youtube.com/embed/QKchiTASERg?feature=oembed](https://www.youtube.com/embed/QKchiTASERg?feature=oembed)
 

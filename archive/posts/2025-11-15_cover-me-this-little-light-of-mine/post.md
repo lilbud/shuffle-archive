@@ -30,7 +30,7 @@ After a few outings on the Wrecking Ball Tour, Bruce played "This Little Light o
 
 Bruce may not have performed it since, but you can bet it hasn't gone unsung. With all that's going on in the world as of this writing, we can bet that someone, somewhere is singing "This Little Light of Mine" right now.
 
-**This Little Light of Mine**
+**This Little Light of Mine**<br>
 **First performed:** October 1, 2006 (Bologna, Italy)
 **Last performed:** January 28, 2014 (Cape Town, South Africa)
 

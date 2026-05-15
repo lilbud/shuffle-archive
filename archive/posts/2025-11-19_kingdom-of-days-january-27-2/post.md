@@ -2,7 +2,7 @@
 
 Night Four of five for Bruce at The Quiet Knight in Chicago opening for the Persuasions.
 
-**1973:**
+**1973:**<br>
 
 Bruce and the E Street Band wrap the first leg of the Tour at the Carrier Dome in Syracuse. The show is captured by a fan on video, and you can watch it here.
 
@@ -38,7 +38,7 @@ Bruce debuts "" at the AIDS benefit in Los Angeles.
 
 Bruce takes his solo tour to Tokyo, playing the first of four shows at the International Forum. Before the show, he appears on local news for a somewhat awkward (due to the need for asynchronous translation) interview.
 
-**1997:**
+**1997:**<br>
 
 [https://www.youtube.com/embed/TjXAs8LiE4E?feature=oembed](https://www.youtube.com/embed/TjXAs8LiE4E?feature=oembed)
 
@@ -92,7 +92,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. David 
 
 Bruce takes a break from rehearsing for his upcoming world tour and stops by the Springsteen Archives and Center for American Music at Monmouth University. (photo from Springsteen Archives Instagram)
 
-**2023:**
+**2023:**<br>
 
 
 

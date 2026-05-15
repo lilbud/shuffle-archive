@@ -22,7 +22,7 @@ But catch [Joe and his band at the Wonder Bar on July 9th](https://www.ticketmas
 
 > *The 25th anniversary edition of American Babylon is finally and newly available in vinyl–pick it up [here](https://store.clevelandinternational.com/products/joe-grushecky-the-houserockers-american-babylon-25th-anniversary-edition?variant=41116046229672).*
 
-**Labor of Love**
+**Labor of Love**<br>
 **First performed:** July 22, 1995 (Sea Bright, NJ)
 **Last performed:** March 2, 1998 (Pittsburgh, PA)
 

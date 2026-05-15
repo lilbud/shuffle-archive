@@ -28,7 +28,7 @@ The love-fest continued most recently in 2015, when Bruce made a surprise appear
 
 [https://www.youtube.com/embed/IR2y_Hjzmy8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/IR2y_Hjzmy8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**I Still Haven't Found What I'm Looking For**
+**I Still Haven't Found What I'm Looking For**<br>
 **First performed:** March 14, 2005 (New York City, NY)<br>
 **Last performed:** July 31, 2015 (New York City, NY)<br>
 

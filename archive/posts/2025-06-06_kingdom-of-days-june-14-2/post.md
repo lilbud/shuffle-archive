@@ -4,7 +4,7 @@
 
 Child plays at The Auction Coffee House in Long Branch, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -12,11 +12,11 @@ Child plays at The Auction Coffee House in Long Branch, New Jersey.
 
 Steel Mill plays an afternoon set at Freak Beach in East Long Branch, New Jersey.
 
-**1970:**
+**1970:**<br>
 
 Bruce plays Madison Square Garden for the first time when he and his band open for Chicago.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce plays Madison Square Garden for the first time when he and his band open f
 
 Under record label pressure to return to the recording studio and finish his next single, Bruce cancels a scheduled gig at the University of Texas at Arlington. It's a late cancellation, as his appearance was still advertised as of five days prior.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -32,11 +32,11 @@ Under record label pressure to return to the recording studio and finish his nex
 
 Bruce and the E Street Band record for their upcoming album at Atlantic Studios in New York City.
 
-**1977:**
+**1977:**<br>
 
 The Darkness Tour stops at Omaha's Civic Auditorium Music Hall. Bruce won't play in Omaha again for thirty years.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/KoQxwEIi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KoQxwEIi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -44,7 +44,7 @@ The Darkness Tour stops at Omaha's Civic Auditorium Music Hall. Bruce won't play
 
 Bruce and the E Street Band record for their upcoming album at the Power Station in New York City.
 
-**1979:**
+**1979:**<br>
 
 Bruce joins Jackson Browne, Gary U.S. Bonds and others at Survival Sunday, an anti-nuke benefit event at the Hollywood Bowl. Watch the pro-shot performance below, including a duet with Jackson Browne on " and a team-up with Gary U.S. Bonds on "."
 
@@ -70,7 +70,7 @@ The Rising Tour reaches Copenhagen, where Bruce tour premieres "" and "."
 
 Volunteers remove and rescue the famous mural of Tillie from the condemned Palace Amusements in Asbury Park. Local news covers the event and plays up the Bruce connection.
 
-**2004:**
+**2004:**<br>
 
 [https://www.youtube.com/embed/_cv00SbTuS8?feature=oembed](https://www.youtube.com/embed/_cv00SbTuS8?feature=oembed)
 
@@ -82,7 +82,7 @@ Meanwhile, Patti films a performance and interview for to promote her new album,
 
 Bruce and the Sessions Band make a tour stop at the Bradley Center in Milwaukee.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/LIgcBBxjgwE?feature=oembed](https://www.youtube.com/embed/LIgcBBxjgwE?feature=oembed)
 
@@ -90,7 +90,7 @@ Bruce and the Sessions Band make a tour stop at the Bradley Center in Milwaukee.
 
 Bruce plays Wales for the first time when the Magic Tour makes a stop at Millennium Stadium in Cardiff. Bruce opens with the tour premiere of "From Small Things (Big Things One Day Come)" for the occasion.
 
-**2008:**
+**2008:**<br>
 
 [https://videopress.com/embed/SnvCfI37?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SnvCfI37?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

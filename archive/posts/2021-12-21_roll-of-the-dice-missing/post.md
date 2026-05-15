@@ -76,9 +76,9 @@ For an experimental obscurity, "Missing" is a strikingly effective and powerful 
 
 As for the rest of his abandoned 1994 album, rumor has it we may yet hear it someday when Bruce finally releases his long-awaited follow-up to *Tracks*.
 
-**Missing**
+**Missing**<br>
 **Recorded** March-April, 1994  
 **Released:** *Missing* (single, 1996), *The Essential Bruce Springsteen* (2003)
-**Never performed**
+**Never performed**<br>
 
 

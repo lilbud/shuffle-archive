@@ -4,7 +4,7 @@
 
 Bruce and his band open for Stevie Wonder at Kutztown State College.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and his band open for Stevie Wonder at Kutztown State College.
 
 Finding themselves with time to spare following a gig at Duke University, Bruce and the E Street band play an extra show at the Ovens Auditorium in Charlotte.
 
-**1976:**
+**1976:**<br>
 
 
 

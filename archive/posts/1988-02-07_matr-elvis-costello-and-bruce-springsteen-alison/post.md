@@ -18,7 +18,7 @@ Elvis only joined Bruce for two brief numbers, one of which was a cover. The oth
 
 Despite a few additional appearances together (most notably on Elvis' late, lamented *Spectacle* series), this was the only time Bruce has ever performed "Alison" live.
 
-**Alison**
+**Alison**<br>
 **First performed:** December 8, 2001 (Asbury Park, NJ)<br>
 **Last performed:** December 8, 2001 (Asbury Park, NJ)<br>
 

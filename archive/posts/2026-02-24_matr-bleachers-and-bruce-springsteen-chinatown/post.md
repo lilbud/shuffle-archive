@@ -32,7 +32,7 @@ Bruce also plays acoustic guitar throughout the song, and the resulting video wa
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pRkOjCufff8)
 
-**Chinatown**
+**Chinatown**<br>
 **Recorded:** 2020<br>
 **Released:** *Take the Sadness Out of Saturday Night* (2020)<br>
 **First performed:** November 2020 (New York City, NY)<br>

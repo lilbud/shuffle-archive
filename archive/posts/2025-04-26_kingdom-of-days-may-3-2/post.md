@@ -16,7 +16,7 @@ After impressing John Hammond the day prior, Bruce records fourteen demo tracks 
 
 Bruce plays his first-ever show in Arkansas, at the Robinson Auditorium in Little Rock.
 
-**1976:**
+**1976:**<br>
 
 The original River Tour stops for a night at the Scandinavium in Gothenburg, Sweden. This is Bruce's first show in Sweden since 1975, so local fans are treated to their first performances of "," "" and other tracks along with cuts from .
 
@@ -68,7 +68,7 @@ At the second night at the Pantages Theater in Hollywood, fans hear the tour pre
 
 Bruce performs at the Clearwater Concert at Madison Square Garden, honoring Pete Seeger's 90th birthday.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/B4i8ziSHkNA?start=2&amp;feature=oembed](https://www.youtube.com/embed/B4i8ziSHkNA?start=2&amp;feature=oembed)
 
@@ -114,6 +114,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce stops by Windmill Lane Recording Studio in Dublin to contribute vocals for "History Books" the title track for Gaslight Anthem's upcoming album.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/gyUgfrCegOs?feature=oembed](https://www.youtube.com/embed/gyUgfrCegOs?feature=oembed)

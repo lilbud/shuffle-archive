@@ -47,13 +47,13 @@ The final verses are a bit hard to make out at times–the song was still unfini
 
 > *He was killed when he lied of all of the ???*
 > *Who was just out to make himself a name*
-***He lays in the blood dying in the sun***
+***He lays in the blood dying in the sun***<br>
 > *And in his mind, he dreamed my way again*
 
 > *Well then he lay down ???*
 > *He spoke aloud as if trying every word*
 > *Well then I heard Jesse saying to himself*
-***I'm sorry for what I've done***
+***I'm sorry for what I've done***<br>
 
 **Those lines** are too close to a key couplet in "[Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/)" to be coincidence:
 
@@ -68,9 +68,9 @@ Fascinatingly, even though we know "Robert Ford" never made it to *Nebraska*, su
 
 [Watch on Youtube: Bruce Springsteen Jesse James #2 harmonies](https://www.youtube.com/watch?v=-0wiyoQIBYg)
 
-**Robert Ford**
+**Robert Ford**<br>
 **Recorded:** September 1981 – April 1982  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -4,7 +4,7 @@
 
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting)
 
 Bruce and the E Street Band play a show at the University of Rochester.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce and the E Street Band play a show at the University of Rochester.
 
 Bruce joins Southside Johnny and the Asbury Jukes at The Stone Pony for four songs.
 
-**1977:**
+**1977:**<br>
 
 [https://videopress.com/embed/ztiTtNxb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ztiTtNxb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -32,7 +32,7 @@ Bruce joins Southside Johnny and the Asbury Jukes at The Stone Pony for four son
 
 Bruce's Tunnel of Love Express show at the St. Louis Arena is captured by a fan on film. Watch the full show here:
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/L1ps9QQt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/L1ps9QQt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -70,7 +70,7 @@ Joe Ely guest-stars for "" at Bruce and the E Street Band's Reunion show in Aust
 
 Original E Street Band (and Child and Steel Mill) member Danny Federici passes away after a long battle against melanoma.
 
-**2008:**
+**2008:**<br>
 
 
 

@@ -2,15 +2,15 @@
 
 Steel Mill plays a final California gig at the College of Marin and then hurries home by car across the country to make a gig in Virginia three days later.
 
-**1970:**
+**1970:**<br>
 
 Bruce had planned this day to be the start of a two-week stint opening for Paul Butterfield's Better Days, but most of the tour is cancelled for poor ticket sales. Unfortunately, Bruce and the band are already in Los Angeles when they learn this.
 
-**1973:**
+**1973:**<br>
 
 Bruce and the still unnamed E Street Band play two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1974:**
+**1974:**<br>
 
 On an off-day following his show in Chicago, Bruce attends the taping of Melissa Manchester's appearance on 
 

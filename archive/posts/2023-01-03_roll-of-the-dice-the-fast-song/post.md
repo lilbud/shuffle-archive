@@ -70,9 +70,9 @@ But that's a thread we'll pick up another day, when we (finally!) bring the piec
 
 [Watch Video Highlight](https://videopress.com/embed/ejuhlzzg)
 
-**The Fast Song**
+**The Fast Song**<br>
 **Recorded:** June-September, 1977  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

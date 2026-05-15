@@ -8,7 +8,7 @@ Bruce showed up to play lead guitar for Darlene (and that's Curtis King on backi
 
 [https://www.youtube.com/embed/d36vCrKrxp8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/d36vCrKrxp8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**Zip-a-Dee-Doo-Dah**
+**Zip-a-Dee-Doo-Dah**<br>
 **First performed:** March 14, 2011 (New York City, NY)<br>
 **Last performed:** March 14, 2011 (New York City, NY)<br>
 

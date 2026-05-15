@@ -43,7 +43,7 @@ Lyrically (and that's all we have to go on), "Until the Rain Comes" is very much
 
 Perhaps a recording will surface one day and we'll hear Bruce breathe life into the song.
 
-**Until the Rain Comes****Never Recorded**
+**Until the Rain Comes****Never Recorded**<br>
 **First/Last Performed:** mid-1968
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

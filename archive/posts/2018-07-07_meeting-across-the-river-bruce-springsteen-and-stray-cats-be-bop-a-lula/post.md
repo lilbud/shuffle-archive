@@ -6,6 +6,6 @@ This is the only time Bruce is known to have played this classic, made famous in
 
 [Watch on Youtube: Be Bop A Lula ( best version ) Gene VINCENT](https://www.youtube.com/watch?v=O4_5593-skQ)
 
-**Be-Bop-a-Lula**
+**Be-Bop-a-Lula**<br>
 **First performed:** July 23, 1982 (Asbury Park, NJ)<br>
 **Last performed:** July 23, 1982 (Asbury Park, NJ)<br>

@@ -4,7 +4,7 @@
 
 Bruce and his band-with-no-name headline an intimate show (less than 200 were in attendance) at the Pinecrest Country Club in Shelton, Connecticut.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce and his band-with-no-name headline an intimate show (less than 200 were in
 
 Bruce attends his second Billy Joel concert in three weeks, this time at Rutgers University, where Billy dedicates "The Entertainer" to Bruce. During the encores, Bruce joins Billy on stage for "Twist and Shout." After the show, Bruce walks over to the Rutgers Student Center, where he jams with the band Heavy Trucking into the wee hours of the morning.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the band play their second of two Born in the U.S.A. shows at the Mid-South Coliseum in Memphis, where Little Steven makes a surprise appearance, joining the band for the last six songs, including a beautiful version of "."
 
@@ -46,7 +46,7 @@ Bruce performs "" on in New York City.
 
 Bruce plays his last show of the year in Charlotte as the Ghost of Tom Joad Tour wraps its fall leg.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/sheKN1qqDis?feature=oembed](https://www.youtube.com/embed/sheKN1qqDis?feature=oembed)
 

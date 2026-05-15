@@ -18,6 +18,6 @@ Among them: "Suspicious Minds." Here's that all-star performance, recorded in gr
 
 [Watch on Youtube: Bruce Springsteen & John Eddie - Suspicious Minds (Live at the Playpen, Sayreville, NJ 10-21-1994)](https://www.youtube.com/watch?v=7m2QcHGtEeo)
 
-**Suspicious Minds**
+**Suspicious Minds**<br>
 **First performed:** October 21, 1994 (Sayreville, NJ)<br>
 **Last performed:** August 18, 2001 (Asbury Park, NJ)<br>

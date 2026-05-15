@@ -4,11 +4,11 @@
 
 Bruce hires Robbin Thompson as vocalist for Steel Mill and kicks off three days of rehearsals at the Challenger Eastern Surfboard factory in Wanamassa, New Jersey.
 
-**1970:**
+**1970:**<br>
 
 Bruce and the E Street Band play their sixth night of a week-long residency at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -92,7 +92,7 @@ World Tour 1992 moves on to the Washington DC area, with the first of two shows 
 
 On an off-night in Boston, the Springsteens head to the Museum of Fine Arts for a family outing.
 
-**1999:**
+**1999:**<br>
 
 
 
@@ -100,7 +100,7 @@ On an off-night in Boston, the Springsteens head to the Museum of Fine Arts for 
 
 The Rising Tour continues its western swing with a show at the America West Arena in Phoenix.
 
-**2002:**
+**2002:**<br>
 
 [https://videopress.com/embed/XnVrtmDw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XnVrtmDw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -112,7 +112,7 @@ The Rising Tour continues its western swing with a show at the America West Aren
 
 Bruce and Patti visit The Antique Center in Red Bank and peruse some old instruments. Bruce picks up an acoustic guitar, Patti finds a mandolin, and the two give an impromptu instrumental performance.
 
-**2006:**
+**2006:**<br>
 
 
 

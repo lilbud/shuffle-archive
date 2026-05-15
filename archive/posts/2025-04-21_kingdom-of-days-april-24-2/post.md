@@ -14,7 +14,7 @@ Steel Mill plays a show at Monmouth College in West Long Branch, New Jersey. Lis
 
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -50,13 +50,13 @@ Bruce and his studio team complete the mix for "" at Clover Studios in Los Angel
 
 The River Tour moves on to Lyon, France, with a show at the Palais des Sports.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/hIzWoPyE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hIzWoPyE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce sits in with Cats on a Smooth Surface at their gig at The Stone Pony in Asbury Park.
 
-**1983:**
+**1983:**<br>
 
 Bruce and his 1992-1993 touring band play their second of two shows at Flanders Expo in Ghent, where "" makes its tour premiere.
 
@@ -142,7 +142,7 @@ At the High Hopes Tour stop in Raleigh, the set list highlight is the tour premi
 
 For the third straight day, Bruce's official Twitter account shares a mysterious western-themed image with no accompanying text. At this point, speculation runs rampant about a forthcoming announcement.
 
-**2019:**
+**2019:**<br>
 
 
 
@@ -160,7 +160,7 @@ Bruce joins Gary Clark Jr. to open the 23rd annual Mark Twain Prize for American
 
 Bruce performs with John Mellencamp, Jackson Browne, Mavis Staples, Dion DiMucci, Darlene Love, and Little Steven and the Disciples of Soul at the American Music Honors ceremony at Monmouth University.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/ZqlpT73CuJw?feature=oembed](https://www.youtube.com/embed/ZqlpT73CuJw?feature=oembed)
 

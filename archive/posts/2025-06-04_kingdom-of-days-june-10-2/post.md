@@ -4,7 +4,7 @@
 
 Bruce and his band open for Chicago at the Civic Center in Springfield.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce and the E Street Band hold recording sessions for what will become at Atla
 
 When the Darkness Tour stops in Bloomington, Minnesota, snippets of several songs are filmed on Super-8 film by fans.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/m0EoHOCSym4?feature=oembed](https://www.youtube.com/embed/m0EoHOCSym4?feature=oembed)
 
@@ -34,11 +34,11 @@ Bruce and the E Street Band record "" at The Hit Factory in New York City. As of
 
 Bruce and Nils join Cats on a Smooth Surface at the band's Stone Pony gig.
 
-**1984:**
+**1984:**<br>
 
 Bruce and the E Street Band play a warm-up set at Stadio Comunale in Turin, the day before the kick-off of the European leg of the Tunnel of Love Tour.
 
-**1988:**
+**1988:**<br>
 
 "" makes its first post-Reunion appearance at Bruce's Rising show in Munich. Bruce opens the show with a solo acoustic "" and plays "" in Germany for the first time.
 
@@ -60,7 +60,7 @@ Also on this date in 2003: the BBC premieres a three-part series narrated by Joh
 
 The Seeger Sessions Tour stops at the Wells Fargo Arena in Des Moines, Iowa.
 
-**2006:**
+**2006:**<br>
 
 [https://videopress.com/embed/DrAHXxgk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DrAHXxgk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -104,4 +104,4 @@ Bruce phones in to E Street Radio and talks about the upcoming return of .
 
 On their last night before resuming their European tour, Bruce and Stevie catch Peter Gabriel on stage in Cologne.
 
-**2023:**
+**2023:**<br>

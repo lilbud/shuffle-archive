@@ -2,7 +2,7 @@
 
 Child performs at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -14,7 +14,7 @@ Child performs at the Pandemonium in Wanamassa, New Jersey.
 
 Bruce and most of the E Street Band (Boom Carter is not in attendance) drop by WBCN-FM in Boston before playing two shows at Charlie's Place in Cambridge. The radio broadcast is well worth a listen–check out the acoustic arrangement of "Rosalita (Come Out Tonight)" and the first documented performance of the alternative third verse for "4th of July, Asbury Park (Sandy)."
 
-**1974:**
+**1974:**<br>
 
 [https://videopress.com/embed/u6HITmag?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u6HITmag?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -22,7 +22,7 @@ Bruce and most of the E Street Band (Boom Carter is not in attendance) drop by W
 
 The Chicken Scratch Tour moves on to Colgate University for a surprise concert arranged at only a week's notice. Listen to the story below.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/7YUeYbdMnnk?feature=oembed](https://www.youtube.com/embed/7YUeYbdMnnk?feature=oembed)
 
@@ -34,11 +34,11 @@ Bruce and the E Street Band record tracks for at the Power Station in New York C
 
 Exactly a year later, Bruce is back at the Power Station for mixing work on "Ramrod" and "The Price You Pay."
 
-**1980:**
+**1980:**<br>
 
 As the European leg of The River Tour gains steam, Bruce begins opening the show with "Factory" in West Berlin–the first time Bruce has ever played this song in Europe.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/6J9ty986?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6J9ty986?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -60,7 +60,7 @@ is certified is 2x multi-platinum by the Recording Industry Association of Ameri
 
 The first public E Street Band concert since 1988, as the Reunion Tour kicks off at Palau Sant Jordi in Barcelona. Fans flock to the shows from all over the world–check out the interviews and pre-show build-up below.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/JSBIdM0IjLw?feature=oembed](https://www.youtube.com/embed/JSBIdM0IjLw?feature=oembed)
 
@@ -80,7 +80,7 @@ The first public E Street Band concert since 1988, as the Reunion Tour kicks off
 
 Kansas City gets an outstanding set list for their Reunion show: Bruce opens with "Take ‘Em as They Come" and plays "Downbound Train" and "Racing in the Street" later in the set.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/TwY6egiH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/TwY6egiH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -88,7 +88,7 @@ Kansas City gets an outstanding set list for their Reunion show: Bruce opens wit
 
 The Rising Tour returns to North America as Bruce and the band play Arco Arena in Sacramento. During the soundcheck, Bruce plays a new song for the first time: "Devils & Dust."
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/ZiX2cHWZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZiX2cHWZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -100,7 +100,7 @@ The Rising Tour returns to North America as Bruce and the band play Arco Arena i
 
 Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list features the tour premieres of "Spirit in the Night" and "Backstreets," and the show breaks the three-hour mark.
 
-**2012:**
+**2012:**<br>
 
 [https://videopress.com/embed/OuA08kLJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OuA08kLJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -108,7 +108,7 @@ Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list feat
 
 The Hear the World Foundation announces that Bruce will serve as an ambassador to raise awareness for the non-profit organization's campaign to prevent hearing loss.
 
-**2018:**
+**2018:**<br>
 
 
 
@@ -116,6 +116,6 @@ The Hear the World Foundation announces that Bruce will serve as an ambassador t
 
 Bruce and the E Street Band play their first of two nights at UBS Arena in Elmont, New York, where "Mary's Place" makes its tour debut.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/7BSisqQ-oqY?feature=oembed](https://www.youtube.com/embed/7BSisqQ-oqY?feature=oembed)

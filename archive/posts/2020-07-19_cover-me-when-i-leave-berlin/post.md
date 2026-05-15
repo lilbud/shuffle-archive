@@ -22,6 +22,6 @@ Bruce changed the back half of that line to "gone are the soldiers and their gun
 
 It was a beautiful performance for an appreciative audience–just one of the many times Bruce shows his appreciation for his local audiences through song.
 
-**When I Leave Berlin**
+**When I Leave Berlin**<br>
 **First performed:** May 30, 2012 (Berlin, Germany)<br>
 **Last performed:** May 30, 2012 (Berlin, Germany)<br>

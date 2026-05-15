@@ -26,6 +26,6 @@ Of course he was! The man is a walking encyclopedia of rock history. But it's th
 
 Regardless, though, it was one of Bruce's more obscure covers–one that's not likely to be reprised any time soon.
 
-**May I**
+**May I**<br>
 **First performed:** April 12, 2014 (Virginia Beach, VA)<br>
 **Last performed:** April 12, 2014 (Virginia Beach, VA)<br>

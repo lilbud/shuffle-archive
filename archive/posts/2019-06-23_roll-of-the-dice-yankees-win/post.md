@@ -30,9 +30,9 @@ But in the end, everyone knew that Bruce would bring it back around to acknowled
 
 It was a touching way for Bruce to honor the man who'd brought him (and so many other Yankees fans) joy and pride.
 
-**Yankees Win**
-**Never recorded**
-**Never released**
+**Yankees Win**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** November 7, 2007  
 **Last performed:** November 7, 2007
 

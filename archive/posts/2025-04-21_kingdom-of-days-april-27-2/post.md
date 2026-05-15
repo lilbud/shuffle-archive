@@ -4,7 +4,7 @@
 
 Bruce opens for Blood, Sweat and Tears, The Eagles, Joe Walsh, Billy Preston, and more at the Ohio University Music Festival.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce opens for Blood, Sweat and Tears, The Eagles, Joe Walsh, Billy Preston, an
 
 Bruce plays three(!) shows at three schools in two states: First, a midnight show at Brown University in Providence. Next, an outdoor afternoon show with Aerosmith at the University of Connecticut. Finally, an evening show at the University of Hartford.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce plays three(!) shows at three schools in two states: First, a midnight sho
 
 Bruce and the band are fifty miles into their drive from Chattanooga (where they played last night) to Nashville (where they play tomorrow) before they realize they'd left Max behind. Upon arriving in Nashville, Bruce plays tourist and checks out local record stores and clothing shops.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -36,7 +36,7 @@ At the Power Station in New York City, Bruce works on several songs for what wou
 
 Bruce makes a guest appearance with The Diamonds at The Stone Pony.
 
-**1983:**
+**1983:**<br>
 
 
 
@@ -98,7 +98,7 @@ At night two in Los Angeles, Bruce surprises early arrivals by walking out on st
 
 The E Street Band (minus Bruce) rehearses for the next leg of the Wrecking Ball Tour at Nordisk Film Studios in Oslo.
 
-**2013:**
+**2013:**<br>
 
 Lucky fans (including this blogger) view never-before-seen (and many never-since) archival clips of Bruce Springsteen and the E Street Band at a special Bruce Springsteen Archives event at the Asbury Park Music and Film Festival. Following the film, Bruce makes a surprise appearance on stage with Thom Zimny, sitting down for a Q&A discussion with editor Chris Phillips.
 
@@ -118,4 +118,4 @@ Lucky fans (including this blogger) view never-before-seen (and many never-since
 
 Bruce and the E Street Band rehearse in Barcelona for the imminent European leg of their World Tour.
 
-**2023:**
+**2023:**<br>

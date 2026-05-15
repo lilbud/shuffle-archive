@@ -12,11 +12,11 @@ A scheduled gig at Penn State University is cancelled to make room for studio wo
 
 A scheduled show in Dallas is cancelled.
 
-**1975:**
+**1975:**<br>
 
 Bruce holds a recording session at The Record Plant in New York City.
 
-**1977:**
+**1977:**<br>
 
 The Darkness Tour arrives at the University of Notre Dame, where Bruce plays "" and his first known performance of "."
 
@@ -34,7 +34,7 @@ The Darkness Tour arrives at the University of Notre Dame, where Bruce plays "" 
 
 Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami's Orange Bowl Stadium for the first of two nights.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/f3uQhVqy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/f3uQhVqy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -92,7 +92,7 @@ Night Two in Philadelphia on the "Autobiography Tour" can't quite measure up to 
 
 Bruce postpones his scheduled show in Baltimore to more than a full year later due to his peptic ulcer disease.
 
-**2023:**
+**2023:**<br>
 
 [https://www.instagram.com/p/Cw3scktLQ4t/?utm_source=ig_embed&utm_campaign=loading](https://www.instagram.com/p/Cw3scktLQ4t/?utm_source=ig_embed&utm_campaign=loading)
 

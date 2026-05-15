@@ -113,7 +113,7 @@ Here's one of them, from nine months earlier in August 1974:
 
 Both have minor lyrical differences (including some bluffing in the earlier version) and some minor musical variations as well. But both reveal just how clear Bruce's vision was for the song almost a year before he officially recorded it in the studio.
 
-**Night**
+**Night**<br>
 **Recorded:** May 10, 1975  
 **Released:** *Born to Run* (1975)
 **First performed:** August 13, 1975 (New York City, NY)

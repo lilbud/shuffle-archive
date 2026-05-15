@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce holds a recording session at The Record Plant in New York City, where he a
 
 Bruce and the E Street Band bring the Darkness Tour to the Dane County Memorial Coliseum in Madison, Wisconsin.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/18_SB3a9Jbo?feature=oembed](https://www.youtube.com/embed/18_SB3a9Jbo?feature=oembed)
 
@@ -70,7 +70,7 @@ Bruce continues shaking up the Wrecking Ball set list at the Rose Garden in Port
 
 Bruce resumes his promotional book tour, making an appearance at Books-a-Million in Chicago.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/tyxMb8BCcUY?feature=oembed](https://www.youtube.com/embed/tyxMb8BCcUY?feature=oembed)
 

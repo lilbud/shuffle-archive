@@ -1,4 +1,4 @@
-**E Street Shuffle will cease publication on January 5, 2026.**
+**E Street Shuffle will cease publication on January 5, 2026.**<br>
 
 I tend to bury the lede at times, so I figured I'd better start with that.
 

@@ -6,6 +6,6 @@ It's hard to find a more perfectly suited pairing for Bruce than the very-Spring
 
 [Watch on Youtube: The Gaslight Anthem - The '59 Sound (Official Video)](https://www.youtube.com/watch?v=G1lq40tR72Q)
 
-**The '59** **Sound**
+**The '59** **Sound**<br>
 **First performed:** June 27, 2009 (Pilton, England)<br>
 **Last performed:** June 28, 2009 (London, England)<br>

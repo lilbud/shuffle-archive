@@ -6,6 +6,6 @@ Here's that brilliantly silly performance:
 
 [Watch Video Highlight](https://videopress.com/embed/9ki7nHat)
 
-**Sexy and I Know It**
+**Sexy and I Know It**<br>
 **First performed:** March 2, 2012 (New York City, NY)<br>
 **Last performed:** March 2, 2012 (New York City, NY)<br>

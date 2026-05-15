@@ -99,7 +99,7 @@ We'll be meeting out in the street for a long time to come.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yTQY3K_o6Tc)
 
-**Out in the Street**
+**Out in the Street**<br>
 **Recorded** March 21, 1980  
 **Released:** *The River* (1980), *The Essential Bruce Springsteen* (2015)
 **First performed:** October 3, 1980 (Ann Arbor, MI)

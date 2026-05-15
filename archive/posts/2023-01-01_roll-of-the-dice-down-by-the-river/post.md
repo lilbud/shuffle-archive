@@ -28,9 +28,9 @@ Not exactly Bruce's most profound songwriting, but "Sax Song" obviously isn't me
 
 I'm still hoping a finished outtake of this will surface one day.
 
-**Sax Song**
+**Sax Song**<br>
 **Recorded** September 27, 1977  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

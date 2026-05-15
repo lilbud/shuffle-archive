@@ -64,9 +64,9 @@ Still, "Lady and the Doctor" is a gem of an early outtake.
 
 <https://estreetshuffle.com/wp-content/uploads/2020/09/Bruce-Springsteen-The-Lady-And-The-Doctor-1.mp3>
 
-**Lady and the Doctor**
+**Lady and the Doctor**<br>
 **Recorded** June 7, 1972  
 **Never released**  
-**Never performed**
+**Never performed**<br>
 
 © September 9 2020 by Ken Rosen

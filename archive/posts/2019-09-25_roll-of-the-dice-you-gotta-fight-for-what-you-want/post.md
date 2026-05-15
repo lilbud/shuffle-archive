@@ -43,10 +43,10 @@ Still, "You Gotta Fight (For What You Want)" provides insight into the influence
 
 
 
-**You Gotta Fight (For What You Want)**
+**You Gotta Fight (For What You Want)**<br>
 **Recorded** Late 1979 (demo)
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 

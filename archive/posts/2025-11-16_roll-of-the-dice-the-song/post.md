@@ -51,9 +51,9 @@ Regardless of what you call the song, "The Song" is rather typical of Bruce's ea
 
 It's not one of Bruce's strongest songs, even when considered just among his early work. It's not surprising it was left off of *[Greetings from Asbury Park](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/).* But it's still a fascinating peek at an artist still developing his voice and his style.
 
-**The Song**
+**The Song**<br>
 **Recorded:** April/May, 1972  
-**Never Released**
+**Never Released**<br>
 Never Performed**
 
 

@@ -2,11 +2,11 @@
 
 Night Two for Bruce and the (still unnamed) E Street Band at Richards in Atlanta, opening for NRBQ.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the band play Rochester's Auditorium Theater, in a show that is available for purchase as part of Bruce's official archive series.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/g602smSqL18?feature=oembed](https://www.youtube.com/embed/g602smSqL18?feature=oembed)
 
@@ -50,7 +50,7 @@ Bruce takes home the Best Rock Song Grammy Award for "." The song is also nomina
 
 Bruce is named the MusiCares Person of the Year and is honored with a tribute concert. Bruce joins the artists on-stage for the closing five numbers.
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/LCDxPfa7SVs?feature=oembed](https://www.youtube.com/embed/LCDxPfa7SVs?feature=oembed)
 

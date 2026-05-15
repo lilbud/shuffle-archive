@@ -10,6 +10,6 @@ During their brief run, Divine Fits released an album of original material and w
 
 ( Unfortunately the video was removed from YouTube.)
 
-**Update 1/2/2024:**
+**Update 1/2/2024:**<br>
 
 The band delivered a faithful performance, acoustic and stripped down with a loose, relaxed (Britt almost flubs a line but catches himself in a split-second) vibe–a perfect cover for a weekend morning.

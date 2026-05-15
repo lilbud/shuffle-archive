@@ -4,7 +4,7 @@
 
 Bruce and the not-yet E Street Band continue their Boston residency with two shows at Paul's Mall.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -30,7 +30,7 @@ Bruce and the band play The Joint in the Woods in Parsippany, New Jersey–notab
 
 : Bruce makes a guest appearance at The Stone Pony in Asbury Park. The headliner is The Blackberry Booze Band, forerunner to Southside Johnny and the Asbury Jukes.
 
-**1975**
+**1975**<br>
 
 Bruce joins Nils Lofgren (who is not yet a member of the E Street Band) on stage at the Royal Manor North in North Brunswick, New Jersey, for covers of "" and "." This is the earliest known performance of Bruce and Nils together.
 
@@ -50,7 +50,7 @@ At The Hit Factory in New York City, Bruce and the E Street Band record "" and "
 
 Creedence Clearwater Revival is inducted into the Rock and Roll Hall of Fame, and Bruce is part of John Fogerty's backing band for the occasion. The band also includes Robbie Robertson, Roy Bittan, Benmont Tench, Jim Keltner, and Don Was. Watch their set below.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/ekw13v8Et7U?feature=oembed](https://www.youtube.com/embed/ekw13v8Et7U?feature=oembed)
 

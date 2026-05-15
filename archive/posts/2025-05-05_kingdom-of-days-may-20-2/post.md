@@ -4,7 +4,7 @@
 
 The River Tour continues its almost month-long U.K. leg with a show at waterlogged New Bingley Hall in Stafford.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/YgclROfQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YgclROfQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -14,7 +14,7 @@ The River Tour continues its almost month-long U.K. leg with a show at waterlogg
 
 Bruce and his new touring band rehearse for their upcoming tour on a Hollywood soundstage.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed](https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed)
 
@@ -38,7 +38,7 @@ Bruce and Patti attend Don Henley's wedding. Several musicians are in attendance
 
 The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheum Theater in Boston.
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/dnyKmXPH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dnyKmXPH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

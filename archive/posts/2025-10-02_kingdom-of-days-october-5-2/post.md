@@ -4,7 +4,7 @@
 
 : Bruce and the E Street Band perform their one-time-only cover of "Twistin' the Night Away" at Albright College in Reading, Pennsylvania.
 
-**1974**
+**1974**<br>
 
 
 
@@ -12,7 +12,7 @@
 
 Bruce and the band wrap up a week of California shows with a stop at the Santa Barbara County Bowl.
 
-**1976:**
+**1976:**<br>
 
 [https://videopress.com/embed/dqSWWba3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dqSWWba3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -20,7 +20,7 @@ Bruce and the band wrap up a week of California shows with a stop at the Santa B
 
 Bruce and Vini Lopez appear on stage together for the first time since 1974 at The Fast Lane in Asbury Park, sharing the stage with Beaver Brown and Dave Marsh (on tambourine).
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/BXxFBtfjChk?feature=oembed](https://www.youtube.com/embed/BXxFBtfjChk?feature=oembed)
 
@@ -28,7 +28,7 @@ Bruce and Vini Lopez appear on stage together for the first time since 1974 at T
 
 Bruce and the band (except for Steven) head backstage at the Cleveland Music Hall to visit fellow New Jersey band The Proof at their opening set for Pat Benatar.
 
-**1980:**
+**1980:**<br>
 
 
 
@@ -98,7 +98,7 @@ The young Magic Tour rolls into Philadelphia for its first two-night stand. Nigh
 
 Bruce appears at a rally for presidential candidate Barack Obama at Ohio State University in Columbus, where Bruce opens with a partial "Mr. Spaceman" in honor of former senator and astronaut John Glenn.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/M8AwYsQfVxg?feature=oembed](https://www.youtube.com/embed/M8AwYsQfVxg?feature=oembed)
 
@@ -110,7 +110,7 @@ Bruce appears at a rally for presidential candidate Barack Obama at Ohio State U
 
 Bruce appears at a special interview event at the Nourse Theater in San Francisco to promote the release of his autobiography.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/nXqxyBWp9Ho?feature=oembed](https://www.youtube.com/embed/nXqxyBWp9Ho?feature=oembed)
 

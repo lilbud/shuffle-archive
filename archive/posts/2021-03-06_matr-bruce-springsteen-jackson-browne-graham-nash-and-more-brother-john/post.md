@@ -20,6 +20,6 @@ When it came time to close the show, the artists all assembled on stage for one 
 
 [Watch Video Highlight](https://videopress.com/embed/eDxkehCM)
 
-**Brother John**
+**Brother John**<br>
 **First performed:** June 14, 1981 (Los Angeles, CA)<br>
 **Last performed:** June 14, 1981 (Los Angeles, CA)<br>

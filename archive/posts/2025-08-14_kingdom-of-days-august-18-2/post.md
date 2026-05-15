@@ -126,7 +126,7 @@ Bruce debuts Episode 26 of entitled "My Hometown," on E Street Radio. Later that
 
 Bruce's scheduled show at Citizens Bank Park in Philadelphia is postponed by more than a year due to illness.
 
-**2023:**
+**2023:**<br>
 
 Night Two in Pittsburgh features a rare outing for "" and a customary guest appearance by Joe and Johnny Grushecky.
 

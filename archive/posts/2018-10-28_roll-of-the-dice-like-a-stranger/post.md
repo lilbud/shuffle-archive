@@ -64,8 +64,8 @@ We shouldn't be too harsh with "Like a Stranger." It's a stepping stone to later
 
 But there's a reason why Bruce never recorded it, and it's probably not oversight–so this will likely remain our definitive document of the song.
 
-**Like a Stranger**
-**Never recorded**
+**Like a Stranger**<br>
+**Never recorded**<br>
 **First performed:** February 4, 1972 (Richmond, VA)*
 **Last performed:** February 25, 1972 (Richmond, VA)
 

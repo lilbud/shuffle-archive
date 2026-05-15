@@ -96,7 +96,7 @@ That's not to say the song doesn't translate well to the stage, though. Besides 
 
 [Watch on Youtube: 9. Song To The Orphans (Bruce Springsteen - Live In New York City 1-31-1973)](https://www.youtube.com/watch?v=voGU6hwjmiw)
 
-**Song for Orphans**
+**Song for Orphans**<br>
 **Recorded:** February 19-20, 1973 (solo), November 2019 (band)
 **Released:** *Letter to You* (2020)
 **First performed:** December 7, 1972 (New York City, NY)

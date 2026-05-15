@@ -2,7 +2,7 @@
 
 Steel Mill headlines an outdoor concert at Monmouth College in West Long Branch, New Jersey.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -14,13 +14,13 @@ A scheduled gig in Providence, Rhode Island is cancelled to make room for record
 
 Bruce records "Night" at the Record Plant in New York City.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/MMuFg-ntDKI?feature=oembed](https://www.youtube.com/embed/MMuFg-ntDKI?feature=oembed)
 
 Night Two at the Municipal Auditorium Theater in Mobile, Alabama on the Chicken Scratch Tour.
 
-**1976:**
+**1976:**<br>
 
 [https://videopress.com/embed/1U5KUucD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1U5KUucD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -30,13 +30,13 @@ Less than a month before the release of , Bruce is at the Record Plant in New Yo
 
 Bruce records "Wages of Sin" at the Power Station in New York City. It won't see release for another sixteen years.
 
-**1982:**
+**1982:**<br>
 
 [https://www.youtube.com/embed/U5i69qRqL_0?feature=oembed](https://www.youtube.com/embed/U5i69qRqL_0?feature=oembed)
 
 Bruce plays "Cautious Man" for the very first time (and the very last for 17 years) at Night Two in Bloomington. This show also features the premiere of "Boom Boom."
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/4VtfZH44nqk?feature=oembed](https://www.youtube.com/embed/4VtfZH44nqk?feature=oembed)
 
@@ -54,13 +54,13 @@ Bruce plays "Cautious Man" for the very first time (and the very last for 17 yea
 
 Night Two for Bruce in Warsaw during his first visit to Poland features the final performance to date of "There Will Never Be Any Other for Me But You."
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/I8Terzq8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/I8Terzq8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 The Rising tour moves on to Ludwigshafen, Germany, where Bruce opens the show with an acoustic "This Hard Land."
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/CWBvkuN4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CWBvkuN4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -74,7 +74,7 @@ The Rising tour moves on to Ludwigshafen, Germany, where Bruce opens the show wi
 
 At his solo acoustic show at the Xcel Energy Center in St. Paul, Bruce performs "A Good Man is Hard to Find (Pittsburgh)" for the very first time, in honor of fallen Sgt. Gerald Vick, who was killed in the line of duty a few days earlier. "Paradise" is a tour premiere, along with the electric piano on which Bruce plays it.
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/AjEjoHqz4LA?feature=oembed](https://www.youtube.com/embed/AjEjoHqz4LA?feature=oembed)
 
@@ -82,7 +82,7 @@ At his solo acoustic show at the Xcel Energy Center in St. Paul, Bruce performs 
 
 The Seeger Sessions Tour moves on to Paris, where Bruce premieres "Bring ‘Em Home." The show also features the proper tour premiere of the waltz arrangement of "If I Should Fall Behind." Elliott Murphy and Garland Jeffreys join Bruce for "Buffalo Gals" in the encore.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/aTMpLFLVjJI?feature=oembed](https://www.youtube.com/embed/aTMpLFLVjJI?feature=oembed)
 

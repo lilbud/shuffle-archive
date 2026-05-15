@@ -4,7 +4,7 @@
 
 Steel Mill rehearses for their upcoming and destined-for-legend Clearwater Swim Club show with fill-in drummer Dave Hazlett covering for Vini, who is stuck in Richmond due to a legal misunderstanding.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -24,7 +24,7 @@ Boz Scaggs guest-stars on "Twist and Shout" when Bruce plays his first-ever show
 
 Bruce and the E Street Band bring the Darkness Tour to the Uptown Theater in Chicago.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/jZur7VMb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jZur7VMb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -32,7 +32,7 @@ Bruce and the E Street Band bring the Darkness Tour to the Uptown Theater in Chi
 
 The Born in the U.S.A. Tour stadium leg continues with a show at the Hoosier Dome in Indianapolis.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/ZuUFl7Ls?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZuUFl7Ls?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -96,7 +96,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 Bruce reveals he has peptic ulcer disease, and under the advice of his doctor he announces the postponement of his remaining 2023 tour dates.
 
-**2023:**
+**2023:**<br>
 
 
 

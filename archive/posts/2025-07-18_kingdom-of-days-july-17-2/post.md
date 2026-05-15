@@ -4,7 +4,7 @@
 
 The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank, New Jersey. Jeannie Clark opens for the band; she will later join Dr. Zoom and the Sonic Boom as a Zoomette.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank
 
 Child plays their third of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Steel Mill headlines at Asbury Park's Sunshine In, with a setlist that features "," "," and "."
 
@@ -24,7 +24,7 @@ Steel Mill headlines at Asbury Park's Sunshine In, with a setlist that features 
 
 Bruce and the E Street Band play two shows at Le Garage in Spray Beach, New Jersey.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -36,7 +36,7 @@ Bruce and the E Street Band work on "" during a recording session at the Power S
 
 Bruce joins Joe Grushecky and the Iron City Houserockers on stage for the first time when Joe plays Big Man's West in Red Bank.
 
-**1982:**
+**1982:**<br>
 
 [https://videopress.com/embed/vfcrn5r7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vfcrn5r7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -58,13 +58,13 @@ The Tunnel of Love Tour arrives in Munich, where "" makes its tour premiere.
 
 Night Two (of ten!) at the legendary Giants Stadium stand of the Rising Tour is a standard one, but shake-ups are on their way.
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/woWaq6U5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/woWaq6U5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce, Patti, and Soozie join Joe Grushecky and the Houserockers on stage at The Stone Pony in Asbury Park.
 
-**2004:**
+**2004:**<br>
 
 
 

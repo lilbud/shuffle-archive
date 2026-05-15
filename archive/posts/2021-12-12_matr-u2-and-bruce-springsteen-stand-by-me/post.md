@@ -1,4 +1,4 @@
-***Editor's Note***
+***Editor's Note***<br>
 
 ****Roll of the Dice, Cover Me, and Meeting Across the River take a brief holiday after today's post so I can do my annual year-end site clean-up.*
 
@@ -60,6 +60,6 @@ And the crowd… the crowd was just as electric. Let's watch that moment–Bruce
 
 [Watch Video Highlight](https://videopress.com/embed/BRBXz4w6)
 
-**Stand By Me**
+**Stand By Me**<br>
 **First performed:** January 17, 1985 (Greensboro, NC)
 **Last performed:** July 31, 2015 (New York City, NY)

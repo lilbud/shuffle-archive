@@ -34,7 +34,7 @@ The Bruce Springsteen Band era has such a distinctly different sound than that o
 
 But it was only a matter of weeks between those smoky Back Door performances and the creation of Springsteen originals like "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)" and "[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" that we know and love today.
 
-**Sitting on Top of the World**
+**Sitting on Top of the World**<br>
 **First performed:** February 4, 1972 (Richmond, VA)*
 **Last performed:** February 4, 1972 (Richmond, VA)
 

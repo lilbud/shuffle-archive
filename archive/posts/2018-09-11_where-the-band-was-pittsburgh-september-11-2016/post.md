@@ -10,7 +10,7 @@ We got one.
 
 Two years on, the Pittsburgh 9/11 show remains one of my favorite shows ever. Here's why:
 
-**1) The story**
+**1) The story**<br>
 
 Bruce typically constructs his setlists to convey a message or at least a theme, but this tour has been lacking in that. At first, it was because the complete River album pretty much engulfed the show, overpowering anything else he appended on to it. Over the summer, it became a greatest hits show, and recently it had become a career retrospective.
 
@@ -34,17 +34,17 @@ When Bruce finally set *The Rising* aside (only for a bit–he'd return to it la
 
 Finally, the set wrapped with "My City of Ruins," "[The Rising,](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)" and "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)"–a triple-shot of resilience, determination, and defiance. This was a show that was as emotionally exhausting as it was physically.
 
-**2) The setting**
+**2) The setting**<br>
 
 I'd just seen five stadium shows in a little over two weeks, and stepping back into an arena again felt… intimate. The Consol Center is small by arena standards; the stage was small, the pit shallow, and for most of the show Bruce was just a few feet in front of us–and the rest of the band always clearly in view. Add to that: this is where the tour began (I was there for that one as well, as were a lot of my pit-mates), and it felt like a reunion.
 
-**3) The guest-star**
+**3) The guest-star**<br>
 
 Joe Grushecky is a long-time favorite of mine, and I'd never been able to catch him live. Getting him for even one song ("[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)") was a treat.
 
 [Watch on Youtube: Bruce Springsteen w/ Joe Grushecky - Light of Day - 9/11/16](https://www.youtube.com/watch?v=s_YNMDfRcGg)
 
-**4) The resonance**
+**4) The resonance**<br>
 
 As I alluded above, Bruce never once directly addressed the significance of date. He didn't need to.
 
@@ -52,7 +52,7 @@ He's played "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-o
 
 [Watch on Youtube: Bruce Springsteen - My City Of Ruins - Pittsburgh - 9/11/16](https://www.youtube.com/watch?v=Z7UmQxRcdkI)
 
-**5) The encore**
+**5) The encore**<br>
 
 At the end of the main set, someone in the front of the pit handed Bruce a pocket copy of the US Constitution, with a cover that read "F*** Trump!" Bruce let the invective pass without comment, but he scrapped the setlisted "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)" (which it seems I am destined never to hear, since he keeps setlisting it at my shows and then not playing it) and instead picked up an acoustic guitar, strummed a few chords to figure out his way forward, and then proceeded to play an absolutely gorgeous version of "[Long Walk Home,](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" a song I hadn't heard live in about seven years, and never solo like that.
 

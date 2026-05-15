@@ -18,6 +18,6 @@ Bruce's guitar couldn't quite synthesize the sitar effect; the vocals are muddy 
 
 Still, it was a valiant effort that no doubt stretched the young band to new heights. Bruce would start vaulting over increasingly higher bars soon enough.
 
-**See My Friends**
+**See My Friends**<br>
 **First performed:** September 16, 1967 (Freehold, NJ)<br>
 **Last performed:** September 16, 1967 (Freehold, NJ)<br>

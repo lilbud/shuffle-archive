@@ -34,9 +34,9 @@ It's probably best not to dwell on the song's depth, however, any more than Bruc
 
 But oh, that break–it's one of my favorite Springsteen moments from the Steel Mill era.
 
-**Jeannie, I Want to Thank You**
-**Never recorded**
-**Never released**
+**Jeannie, I Want to Thank You**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** January 13, 1970 (San Francisco, CA)
 **Last performed:** June 13, 1970 (Bricktown, NJ)
 

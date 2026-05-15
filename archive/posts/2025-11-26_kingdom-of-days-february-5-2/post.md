@@ -2,11 +2,11 @@
 
 The Bruce Springsteen Band plays their second of nine shows this month at The Back Door in Richmond, Virginia.
 
-**1972:**
+**1972:**<br>
 
 Bruce and the band play their last night at Max's Kansas City in New York. David Bowie is in attendance to see his friend and headliner, Biff Rose. Although they won't meet for another year and a half, Bowie becomes a Springsteen fan that night; four months later, he will become the first artist to record a Bruce Springsteen cover.
 
-**1973:**
+**1973:**<br>
 
 : Bruce Springsteen and the E Street Band play The Main Point in Bryn Mawr, Pennsylvania. The show, broadcast live across the Delaware Valley on WMMR-FM, is (IMHO) one of Bruce's absolute best performances ever, certainly my all-time favorite concert recording. Bruce plays several songs still under development, including "Thunder Road" (known here as "Wings for Wheels"), "," and "Jungleland," all of which will be released in final form only six months later. The opening performance of "" featuring Suki Lahav on violin and a perfectly-timed police siren during the closing bars, is my single favorite Springsteen performance ever.
 
@@ -42,7 +42,7 @@ On ABC-TV's news series , Hugh Downs profiles Bruce. Watch the full segment belo
 
 The New York Daily News reports that Bruce's management is negotiating with the City of New York and HBO for a free concert event in New York's Central Park. Although both Shorefire (Bruce's PR company) and New York City swiftly reject such notions, HBO plays it coy and rumors will continue to swirl nationally for days to come. The concert will never materialize.
 
-**1992:**
+**1992:**<br>
 
 
 
@@ -50,11 +50,11 @@ The New York Daily News reports that Bruce's management is negotiating with the 
 
 Germany's Radio Eins interviews Bruce for a promotional CD to be released later in the year.
 
-**1996:**
+**1996:**<br>
 
 Bruce plays his second of two solo acoustic shows in Brisbane.
 
-**1997:**
+**1997:**<br>
 
 
 
@@ -98,7 +98,7 @@ At his home in Colts Neck, Bruce interviews Eddie Vedder to promote Eddie's new 
 
 Bruce and the E Street Band bring their first tour in six years to the Amway Center in Orlando, Florida.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/q_T-oPu2Njc?feature=oembed](https://www.youtube.com/embed/q_T-oPu2Njc?feature=oembed)
 

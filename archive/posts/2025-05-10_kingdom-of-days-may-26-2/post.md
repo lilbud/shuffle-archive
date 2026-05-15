@@ -4,7 +4,7 @@
 
 Seven-year-old Bruce Springsteen receives his first Communion at St. Rose of Lima Church.
 
-**1957:**
+**1957:**<br>
 
 
 
@@ -12,7 +12,7 @@ Seven-year-old Bruce Springsteen receives his first Communion at St. Rose of Lim
 
 Bruce and the E Street Band headline the third of three shows at Childe Harold in Washington, DC.
 
-**1973:**
+**1973:**<br>
 
 The Darkness Tour picks up steam as it rolls into Philadelphia for the first of two nights at The Spectrum. "" and "" make their tour premieres. About six minutes of the show is captured on 8mm film–watch the earliest known footage from the Darkness Tour below.
 

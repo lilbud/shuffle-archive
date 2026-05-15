@@ -71,10 +71,10 @@ Bruce has mentioned on more than one occasion that many of his songs can be dist
 
 > *And, well, things ain't been the same in heaven ever since big bad Bobby came to town*
 > *He's been known to down eleven and then ask for another round*
-***And me I got scabs on my knees from kneeling way too long***
-***You gotta take a stand, be the man, up where you belong***
-***And forget about the old friends and the old times***
-***Because there's just too many new boys trying to work the same line***
+***And me I got scabs on my knees from kneeling way too long***<br>
+***You gotta take a stand, be the man, up where you belong***<br>
+***And forget about the old friends and the old times***<br>
+***Because there's just too many new boys trying to work the same line***<br>
 
 That's the song right there: the singer is gathering his courage, his fortitude, his determination to break away from the ties that bind, venture to parts unknown, and do whatever it takes to realize his dreams. Because there are a lot of pretenders out there reaching for the brass ring, too.
 
@@ -100,7 +100,7 @@ So here's a bonus demo instead: earlier than both of the above performances, thi
 
 [Watch on Youtube: Bruce Springsteen - "If I Was the Priest" version 1](https://www.youtube.com/watch?v=w-QDe3ZJ4QE)
 
-**If I Was the Priest**
+**If I Was the Priest**<br>
 **Recorded** April-June 1972 (solo), November 2019 (band)
 **Released:** *Letter to You* (2020)
 **First performed:** February 14, 2023 (Houston, TX) (but likely performed in 1971 as well)

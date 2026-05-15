@@ -35,9 +35,9 @@ Musically, Bruce slowed and recycled the melody he used for "Little Girl Like Yo
 
 It deserves its official release on *L.A. Garage Sessions '83.*
 
-**Seven Tears**
+**Seven Tears**<br>
 **Recorded** February 15, 1983  
 ***Released:** L.A. Garage Sessions '83* (2025), *Lost and Found* (2025)
-**Never performed**
+**Never performed**<br>
 
 © March 17, 2019 / December 12, 2025

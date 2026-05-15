@@ -93,7 +93,7 @@ Let's just enjoy the song as a light-hearted romp and laugh at the goofy self-mo
 
 [Watch on Youtube: Southside Johnny & Bruce Springsteen - Talk To Me 2003](https://www.youtube.com/watch?v=xabSr3O3zfo)
 
-**Talk to Me**
+**Talk to Me**<br>
 **Recorded:** July-October 1977  
 **Released:** *The Promise* (2010)
 **First performed:** September 26, 1991 (Asbury Park, NJ)

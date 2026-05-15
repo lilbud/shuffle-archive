@@ -4,7 +4,7 @@
 
 Bruce stops by KLOL-FM in Houston in the afternoon for an interview with DJ Ed Beauchamp.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/kzXpb_tv7-0?feature=oembed](https://www.youtube.com/embed/kzXpb_tv7-0?feature=oembed)
 
@@ -12,7 +12,7 @@ That evening, Bruce and the (still unnamed) E Street Band play two shows at Libe
 
 The first of two nights at DAR Constitution Hall in Washington, DC.
 
-**1975:**
+**1975:**<br>
 
 [https://videopress.com/embed/4B0zuMOh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4B0zuMOh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -26,7 +26,7 @@ In a Los Angeles recording studio, Bruce gives his song "" to Donna Summer and p
 
 The Tunnel of Love Express Tour stops in Philadelphia for the first of two nights.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/kJVz376X?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kJVz376X?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -48,7 +48,7 @@ Bruce plays with The Wallflowers at Tradewinds in Sea Bright, New Jersey. Fan fo
 
 Bruce and the E Street Band rehearse for their upcoming Reunion Tour at Asbury Park's Convention Hall.
 
-**1999:**
+**1999:**<br>
 
 
 

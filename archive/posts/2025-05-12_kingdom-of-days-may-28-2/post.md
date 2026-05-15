@@ -4,7 +4,7 @@
 
 Child opens for the James Cotton Band for three shows in one day at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -16,7 +16,7 @@ Child opens for the James Cotton Band for three shows in one day at the Pandemon
 
 The Sundance Blues Band plays The Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -24,7 +24,7 @@ The Sundance Blues Band plays The Student Prince in Asbury Park.
 
 Bruce and the E Street Band play two shows on their first of two nights at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -54,7 +54,7 @@ Bruce and the band close out their Chicken Scratch Tour with a show for the U.S.
 
 At 3am, Bruce and Mike Appel settle their legal dispute, finally freeing Bruce to record again. Appel retains 50% of the publishing rights over all songs recorded to date, but Bruce will own everything recorded henceforth. That night, Bruce and Steve see Elvis play in Philadelphia at the Spectrum.
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -78,7 +78,7 @@ and are both certified platinum by the Recording Industry Association of America
 
 Bruce's World Tour 1993 arrives in Stockholm, where the show is filmed for a never-released television event.
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/zl73V5tn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/zl73V5tn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -90,7 +90,7 @@ It's John Fogerty's 50th birthday, and Bruce Springsteen entertains at a party i
 
 Bruce plays the second of two solo acoustic shows at Royal Albert Hall in London.
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/dds6C1YK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dds6C1YK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -98,13 +98,13 @@ Bruce plays the second of two solo acoustic shows at Royal Albert Hall in London
 
 Roy Bittan makes a guest appearance with Bruce and the Sessions Band at their show in Bristow, Virginia.
 
-**2006:**
+**2006:**<br>
 
 [https://videopress.com/embed/ZpDA4YHn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZpDA4YHn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 The Magic Tour stops at Old Trafford in Manchester.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/w_c_nZoxah8?feature=oembed](https://www.youtube.com/embed/w_c_nZoxah8?feature=oembed)
 
@@ -154,4 +154,4 @@ Bruce presents Pete Townshend with the MusiCares Stevie Ray Vaughan Award for hi
 
 Bruce postpones his show in Prague due to vocal problems. As of this writing, the rescheduled show has yet to take place.
 
-**2024:**
+**2024:**<br>

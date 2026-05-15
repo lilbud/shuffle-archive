@@ -12,8 +12,8 @@ The song actually grew by a couple of lines over the three weeks and seven ralli
 
 Somehow, I don't think we're going to see this one included in a box set any time soon.
 
-**Forward!**
-**Never recorded or released**
+**Forward!**<br>
+**Never recorded or released**<br>
 **First performed:** October 18, 2012 (Parma, OH)<br>
 **Last performed:** November 5, 2012 (Columbus, OH)<br>
 

@@ -4,7 +4,7 @@
 
 Child performs at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -12,7 +12,7 @@ Child performs at the Pandemonium in Wanamassa, New Jersey.
 
 Bruce and the E Street Band headline a show at Widener College.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and the E Street Band headline a show at Widener College.
 
 The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a show at the Ohio Theater in Columbus.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/lGkeKgZblAo?feature=oembed](https://www.youtube.com/embed/lGkeKgZblAo?feature=oembed)
 
@@ -34,7 +34,7 @@ The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a sh
 
 Night Two at the Capital Center in Largo, Maryland, along the Tunnel of Love Express Tour.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/v5RXcyFL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/v5RXcyFL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -56,7 +56,7 @@ A busy day for Bruce and the (temporarily) reunited E Street Band: First, they m
 
 Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Theater in Asbury Park.
 
-**2006:**
+**2006:**<br>
 
 
 

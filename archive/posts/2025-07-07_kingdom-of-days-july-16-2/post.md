@@ -4,15 +4,15 @@
 
 Child plays their second of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Bruce reschedules a planned gig at The Stone Balloon in Newark, Delaware for the following month.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band complete the recording of "Thunder Road" at the Record Plant in New York City.
 
-**1975:**
+**1975:**<br>
 
 Bruce and the E Street Band bring the Darkness Tour to the New Orleans Municipal Auditorium, where the setlist features Bruce's one and only cover of "."
 
@@ -32,7 +32,7 @@ At The Power Station in New York City, Bruce records "" and "." The former won't
 
 Bruce's five-night River stand at The Spectrum in Philly continues.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/8V1HMlo9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8V1HMlo9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -46,7 +46,7 @@ Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptun
 
 On a night off in between Born in the U.S.A. shows in Chicago, Bruce is spotted playing pinball at a local bar.
 
-**1984:**
+**1984:**<br>
 
 
 
@@ -66,11 +66,11 @@ Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary 
 
 At a Sony trade show in Miami, Bruce announces an upcoming box set of unreleased tracks.
 
-**1998:**
+**1998:**<br>
 
 Bruce and the E Street Band rehearse for the upcoming Rising Tour.
 
-**2002:**
+**2002:**<br>
 
 
 
@@ -86,7 +86,7 @@ The Devils & Dust Tour returns to the U.S., and the first show of the leg is at 
 
 Bruce and the band bring the Working on a Dream Tour to Carhaix, France. The show is partially broadcast on French radio–listen to excerpts below:
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/D-vlEKWeNNs?feature=oembed](https://www.youtube.com/embed/D-vlEKWeNNs?feature=oembed)
 

@@ -4,7 +4,7 @@
 
 Bruce plays his third of six two-shows-a-night solo gigs at Max's Kansas City that week.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -20,11 +20,11 @@ Bruce plays his third of six two-shows-a-night solo gigs at Max's Kansas City th
 
 Bruce holds a recording session for his upcoming album at Atlantic Studios in New York City.
 
-**1977:**
+**1977:**<br>
 
 Bruce and the E Street Band bring the River Tour to Detroit's Joe Louis Arena for the first of two nights.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/j4p8FdMJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/j4p8FdMJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -32,7 +32,7 @@ Bruce and the E Street Band bring the River Tour to Detroit's Joe Louis Arena fo
 
 At Night Five (of ten) at the Brendan Byrne Arena in East Rutherford, John Entwistle guest-stars on the show-closing "Twist and Shout."
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/D7LMS4B8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/D7LMS4B8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -102,6 +102,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and the E Street Band play their second of two shows at Wrigley Field in Chicago.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/tDV7mychhkw?start=99&amp;feature=oembed](https://www.youtube.com/embed/tDV7mychhkw?start=99&amp;feature=oembed)

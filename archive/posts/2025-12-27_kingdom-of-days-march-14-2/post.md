@@ -2,13 +2,13 @@
 
 The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factory in Highlands, New Jersey. Tinker West records the sessions, and his tapes will prove to be the highest quality recording of The Bruce Springsteen Band and a fascinating document of that period. Standout tracks include "When You Dance," "Look Toward the Land," "Funk Song," and an absolutely stunning must-hear cover of "It's All Over Now, Baby Blue." Take a listen:
 
-**1972:**
+**1972:**<br>
 
 [https://videopress.com/embed/gDKpMFQm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gDKpMFQm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the band play their third of seven nights at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 Extended studio sessions for prompt the postponement of a scheduled show in Atlanta.
 
@@ -16,7 +16,7 @@ Extended studio sessions for prompt the postponement of a scheduled show in Atla
 
 The Lawsuit Tour moves on to the Mid-Hudson Civic Center in Poughkeepsie, New York.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/ihApRncvtLI?feature=oembed](https://www.youtube.com/embed/ihApRncvtLI?feature=oembed)
 
@@ -26,13 +26,13 @@ The Lawsuit Tour moves on to the Mid-Hudson Civic Center in Poughkeepsie, New Yo
 
 Bruce work on "Factory" for his upcoming album at the Record Plant in New York City.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/3YuEJ_XolkM?feature=oembed](https://www.youtube.com/embed/3YuEJ_XolkM?feature=oembed)
 
 Bruce and Garry jam with Robert Gordon on "Fire" and "Heartbreak Hotel" at The Fast Lane in Asbury Park. Take a listen below.
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/kDT1IIz7_Og?feature=oembed](https://www.youtube.com/embed/kDT1IIz7_Og?feature=oembed)
 
@@ -44,7 +44,7 @@ Bruce and Garry jam with Robert Gordon on "Fire" and "Heartbreak Hotel" at The F
 
 Night Two in Richfield for the Tunnel of Love Express Tour, where Bruce is moved to add a mid-song story to "Walk Like a Man."
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/0mmIy6i6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0mmIy6i6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -52,13 +52,13 @@ Night Two in Richfield for the Tunnel of Love Express Tour, where Bruce is moved
 
 Bruce plays a solo acoustic show at the Spektrum in Oslo.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/dKDhatIc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dKDhatIc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 At Alltel Arena in Little Rock, Bruce plays "Mary Queen of Arkansas" for the first time in 26 years.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/9FPrwILR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9FPrwILR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -68,7 +68,7 @@ At Alltel Arena in Little Rock, Bruce plays "Mary Queen of Arkansas" for the fir
 
 Bruce returns a favor by inducting U2 into the Rock and Roll Hall of Fame; he later performs with them on "I Still Haven't Found What I'm Looking For."
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/5onUXFV9Vto?feature=oembed](https://www.youtube.com/embed/5onUXFV9Vto?feature=oembed)
 
@@ -78,7 +78,7 @@ Bruce returns a favor by inducting U2 into the Rock and Roll Hall of Fame; he la
 
 Bruce plays Omaha for the first time in 30 years when the Magic Tour stops at Qwest Center. Conor Oberst makes a guest-appearance on "Thunder Road." (It's not exactly a highlight.)
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/BVkxO-Szu1I?feature=oembed](https://www.youtube.com/embed/BVkxO-Szu1I?feature=oembed)
 
@@ -94,7 +94,7 @@ Bruce and Curtis King join Darlene Love on stage at her induction ceremony into 
 
 Bruce joins Alejandro Escovedo, Joe Ely, and Garland Jeffreys on-stage at the Austin Music Awards for "Midnight Train," "Always a Friend," "Blowin' Down This Road," and "Beast of Burden."
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/DmLPWWvrT6I?feature=oembed](https://www.youtube.com/embed/DmLPWWvrT6I?feature=oembed)
 
@@ -132,6 +132,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City, with a
 
 Bruce cancels his third consecutive show due to an undisclosed illness. His show at MVP Arena in Albany will be rescheduled but ultimately postponed yet again for illness.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/A5ODsZX-16U?feature=oembed](https://www.youtube.com/embed/A5ODsZX-16U?feature=oembed)

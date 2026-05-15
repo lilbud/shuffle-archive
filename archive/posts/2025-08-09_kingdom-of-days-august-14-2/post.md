@@ -4,7 +4,7 @@
 
 The Castiles (along with Steve Van Zandt's band, The Shadows) play the Surf ‘n' See Club in Sea Bright, New Jersey.
 
-**1966:**
+**1966:**<br>
 
 
 
@@ -26,7 +26,7 @@ Steel Mill plays an outdoor show under the stars, on the parking deck at 7th and
 
 Bruce plays his third of six two-shows-a-night solo gigs at Max's Kansas City that week.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -34,7 +34,7 @@ Bruce plays his third of six two-shows-a-night solo gigs at Max's Kansas City th
 
 Bruce and the E Street Band play Uncle Al's Erlton Theater Lounge in Cherry Hill, New Jersey. Why was Bruce's name so hard to spell correctly during these years?
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -42,7 +42,7 @@ Bruce and the E Street Band play Uncle Al's Erlton Theater Lounge in Cherry Hill
 
 Dave Sancious and Boom Carter play their last two shows as members of the E Street Band, at the Monmouth Arts Center in Red Bank.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -62,7 +62,7 @@ Dave Sancious and Boom Carter play their last two shows as members of the E Stre
 
 Bruce's legendary Bottom Line stand continues with a second night of two shows.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCbJCnCimF1D6g8Y00aaUtv](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCbJCnCimF1D6g8Y00aaUtv)
 
@@ -86,7 +86,7 @@ Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park.
 
 In the U.S., there's arguably no city more fervent in their Bruce fandom than Philadelphia. Bruce and the band play their first of two shows at Veterans Stadium today, and anticipation has been high since the moment tickets went on-sale:
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/vnhG9efJc_Q?feature=oembed](https://www.youtube.com/embed/vnhG9efJc_Q?feature=oembed)
 
@@ -130,7 +130,7 @@ Bruce joins The Fairlanes on-stage for four songs (including "") at The Deck Hou
 
 Bruce and his new touring band play their second of two World Tour 1992 shows at the Centrum in Worcester. Watch the extensive news coverage below.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/os7f3vSxQrY?feature=oembed](https://www.youtube.com/embed/os7f3vSxQrY?feature=oembed)
 
@@ -138,7 +138,7 @@ Bruce and his new touring band play their second of two World Tour 1992 shows at
 
 Bruce joins Ronnie Mack and the Barndance Band on stage at Jack's Sugar Shack in Hollywood.
 
-**1995:**
+**1995:**<br>
 
 
 
@@ -150,7 +150,7 @@ Bruce joins Ronnie Mack and the Barndance Band on stage at Jack's Sugar Shack in
 
 The Rising Tour stops in Cleveland for a show at Gund Arena, where the set list remains unchanged from the previous two shows.
 
-**2002:**
+**2002:**<br>
 
 [https://videopress.com/embed/CBudoNB4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CBudoNB4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -158,7 +158,7 @@ The Rising Tour stops in Cleveland for a show at Gund Arena, where the set list 
 
 Bruce attends Little Steven's International Underground Garage Festival in New York City, He doesn't perform, but he does introduce two bands, The Fuzztones and The Chesterfield Kings.
 
-**2004:**
+**2004:**<br>
 
 [https://www.youtube.com/embed/9CdgAf-_MQU?feature=oembed](https://www.youtube.com/embed/9CdgAf-_MQU?feature=oembed)
 

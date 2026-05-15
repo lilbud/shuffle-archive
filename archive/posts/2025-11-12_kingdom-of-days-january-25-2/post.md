@@ -2,7 +2,7 @@
 
 Bruce continues his five-night stand at The Quiet Knight in Chicago, opening for The Persuasions. Earlier in the day, The New York Daily News reviews his first album.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -14,7 +14,7 @@ Bruce continues his five-night stand at The Quiet Knight in Chicago, opening for
 
 Bruce and the E Street Band headline at The Mosque in Richmond, Virginia.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/_UbG-Y6uxJ0?feature=oembed](https://www.youtube.com/embed/_UbG-Y6uxJ0?feature=oembed)
 
@@ -62,7 +62,7 @@ Bruce and the E Street Band continue rehearsing in Cape Town for their upcoming 
 
 Night Two of three in Perth brings a shift in the show structure as Bruce abandons the chronological set list that characterized the end of the 2016 tour and first night of the 2017 tour, reverting to a more familiar, casual fan-friendly set list.
 
-**2017:**
+**2017:**<br>
 
 [https://www.youtube.com/embed/eh4f3fn4s18?feature=oembed](https://www.youtube.com/embed/eh4f3fn4s18?feature=oembed)
 
@@ -78,7 +78,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and Peter Wolf drop by Mr. Music in Boston and spend about 40 minutes in the music store hanging out and browsing guitars.
 
-**2019:**
+**2019:**<br>
 
 
 
@@ -86,4 +86,4 @@ Bruce and Peter Wolf drop by Mr. Music in Boston and spend about 40 minutes in t
 
 Bruce and the E Street Band rehearse for their upcoming tour at Cure Insurance Arena in Trenton.
 
-**2023:**
+**2023:**<br>

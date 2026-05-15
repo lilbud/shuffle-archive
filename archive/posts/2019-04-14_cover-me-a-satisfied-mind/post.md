@@ -13,7 +13,7 @@ But here's the original #1 hit version from 1955, by Porter Wagoner:
 March 23, 1988 (Atlanta, GA – soundcheck only)
 March 23, 1988 (Atlanta, GA – soundcheck only)
 
-**Satisfied Mind**
+**Satisfied Mind**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

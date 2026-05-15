@@ -67,9 +67,9 @@ Let's hope.
 
 [Watch on Youtube: Bruce Springsteen Your Love Is All Around Me Now #2](https://www.youtube.com/watch?v=sX-yxWSPUC0)
 
-**Your Love Is All Around Me**
+**Your Love Is All Around Me**<br>
 **Recorded** Early 1982 (demos only)
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

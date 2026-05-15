@@ -12,14 +12,14 @@ The original, of course, can't be topped.
 
 35 years later, Bruce reprised "Teach Your Children" with Steve Earle, Willie Nile, and Rosanne Cash at Earle's benefit show in New Yor City.
 
-**Update:**
+**Update:**<br>
 
 [https://www.youtube.com/embed/Lwy6jhemprw?feature=oembed](https://www.youtube.com/embed/Lwy6jhemprw?feature=oembed)
 
 October 13, 1986 (Mountain View, CA)
 December 13, 2021 (New York City, NY)
 
-**Teach Your Children**
+**Teach Your Children**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

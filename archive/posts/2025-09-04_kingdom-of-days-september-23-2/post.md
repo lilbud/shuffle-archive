@@ -4,7 +4,7 @@
 
 Bruce Frederick Joseph Springsteen is born to Adele and Douglas Springsteen at Monmouth Medical Center in Long Branch, New Jersey.
 
-**1949:**
+**1949:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce Frederick Joseph Springsteen is born to Adele and Douglas Springsteen at M
 
 Bruce's parents throw their three-year-old son a Western-themed birthday party. Bruce's fascination with the American west will last a lifetime.
 
-**1952:**
+**1952:**<br>
 
 
 
@@ -48,7 +48,7 @@ Bruce spends his 29th birthday in Asbury Park with interviewer Mike Greenblatt a
 
 Bruce spends his 35th birthday on roller skates with friends and bandmates at United Skates of America in Buffalo. He's not very good, but with a girl on each arm, he manages to stay upright… most of the time.
 
-**1984:**
+**1984:**<br>
 
 
 
@@ -56,7 +56,7 @@ Bruce spends his 35th birthday on roller skates with friends and bandmates at Un
 
 Bruce spends his 36th birthday on stage at Denver's Mile High Stadium. The night is unseasonably cold, with temperatures dropping into the 30s. The result is a relatively quiet crowd–they're clapping with gloves on!
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/Bpja26tF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Bpja26tF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -76,7 +76,7 @@ Bruce spends his 36th birthday on stage at Denver's Mile High Stadium. The night
 
 A group of teenage fans gather in Bruce's driveway late at night to wish him a happy 37th birthday. Bruce is not amused.
 
-**1986:**
+**1986:**<br>
 
 
 
@@ -112,11 +112,11 @@ Bruce celebrates his 40th birthday with the E Street Band (including Steve Van Z
 
 Bruce celebrates his 48th birthday with friends and family at his house in Colts Neck. The entertainment for the evening is a local band called The Gotham Playboys that Soozie Tyrell clued Bruce into, and Bruce is so taken with them that he will shortly hire several of the group's members to play on the first of what would become known as The Seeger Sessions.
 
-**1997:**
+**1997:**<br>
 
 At a special event at Monmouth University, Thom Zimny screens never-before-seen (and never-again-seen) archival clips from Bruce's vault.
 
-**2014:**
+**2014:**<br>
 
 On the occasion of Bruce's 67th birthday, he releases his retrospective companion CD to his autobiography, 
 

@@ -147,7 +147,7 @@ So feel to reach out to me through the blog or wherever else we engage on-line, 
 
 [Watch on Youtube: Bruce Springsteen - Magic (Live Toronto 15.10.2007)](https://www.youtube.com/watch?v=hgzYSwLqQcc)
 
-**Magic**
+**Magic**<br>
 **Recorded** March-May, 2007  
 **Released:** *Magic* (2007)
 **First performed:** September 25, 2007 (Asbury Park, NJ)

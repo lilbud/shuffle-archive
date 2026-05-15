@@ -23,6 +23,6 @@ And yeah… the original 1957 version is pretty great, too.
 October 19, 2009 (Philadelphia, PA)
 October 19, 2009 (Philadelphia, PA)
 
-**All Shook Up**
+**All Shook Up**<br>
 **First performed:**<br>
 **Last performed:**<br>

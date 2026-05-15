@@ -52,9 +52,9 @@ In the mid-song passage below, we can hear early evidence of Bruce's sense of hu
 
 "I Am the Doctor" wouldn't make Steel Mill's greatest hits, but it ably served its purpose in concert. There were three known performances between February and June 1970, and because set lists from that era are scarce, we can safely assume there were more.
 
-**I Am The Doctor**
-**Never recorded**
-**Never released**
+**I Am The Doctor**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** February 28, 1970 (Richmond, VA)
 **Last performed:** June 14, 1970 (Bricktown, NJ)
 

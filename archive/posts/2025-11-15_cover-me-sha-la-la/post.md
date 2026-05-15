@@ -15,7 +15,7 @@ Bruce clearly modeled his take on "Sha La La" after Manfred Mann's 1964 version 
 July 20, 1975 (Providence, RI)
 August 19, 2009 (Hartford, CT)
 
-**Sha La La**
+**Sha La La**<br>
 **First performed:**<br>
 **Last performed:**<br>
 

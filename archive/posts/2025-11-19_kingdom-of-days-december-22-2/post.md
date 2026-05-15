@@ -4,7 +4,7 @@
 
 The Castiles play a gig at the Hullaballoo in Middletown, New Jersey.
 
-**1966:**
+**1966:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play a gig at the Hullaballoo in Middletown, New Jersey.
 
 The Castiles open for The Broadways at the Ocean Side Surf Club in Sea Bright, New Jersey.
 
-**1967:**
+**1967:**<br>
 
 
 
@@ -20,7 +20,7 @@ The Castiles open for The Broadways at the Ocean Side Surf Club in Sea Bright, N
 
 Bruce is in California visiting his parents, with no set return date. It appears that he anticipates staying a while, though, because he takes the time to obtain his California driver's license.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce is in California visiting his parents, with no set return date. It appears
 
 Bruce and his band headline at Uncle Al's Erlton Theater Lounge in Cherry Hill, New Jersey.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -36,7 +36,7 @@ Bruce and his band headline at Uncle Al's Erlton Theater Lounge in Cherry Hill, 
 
 Bruce calls into WHFS-FM in Bethesda to record a Christmas message for his fans and the station's listeners.
 
-**1977:**
+**1977:**<br>
 
 [https://videopress.com/embed/WyvLEBBw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/WyvLEBBw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -46,11 +46,11 @@ As "" moves up the charts, host Casey Kasem lauds Bruce's work ethic.
 
 Bruce holds a private holiday party and performance at The Stone Pony in Asbury Park.
 
-**2002:**
+**2002:**<br>
 
 Bruce makes a surprise appearance at Bobby Bandiera's Hope Concert at the Count Basie Theater in Red Bank, performing a few numbers with Jon Bon Jovi, Southside Johnny, Gary U.S. Bonds, and others.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/EaxAA4kG5r8?feature=oembed](https://www.youtube.com/embed/EaxAA4kG5r8?feature=oembed)
 

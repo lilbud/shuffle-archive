@@ -2,7 +2,7 @@
 
 Bruce plays the second of two nights at the Upstage in Asbury Park as one of headliner Steve Van Zandt's "friends." Other friends on stage include Garry Tallent, Danny Federici, and Southside Johnny.
 
-**1971:**
+**1971:**<br>
 
 : Bruce (and the band that was still more than a year away from being known as "E Street") drop by Boston's WBCN-FM for an in-studio interview (Bruce's very first) to promote their week-long gig at Paul's Mall. The boys perform six songs, including the ultra-rare "" and "." They also perform an early version of "," which wouldn't be recorded and released until later that year. Here it's called simply "Circus Song." The first half is in pretty final form; the second half, however, features some very different lyrics. Take a listen to the audio below–it's the earliest known live recording of Bruce Springsteen and the E Street Band.
 

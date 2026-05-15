@@ -83,13 +83,13 @@ And a gorgeous, almost falsetto-range solo version from 2012 (this one's a perso
 
 It's a pretty safe bet that "If I Should Fall Behind" will never be a stranger to Bruce's setlist. It's a song that grows more meaningful as relationships grow longer and stronger.
 
-*****Update*****
+*****Update*****<br>
 
 Five years after the performance above, and five months after I originally published this essay, Bruce and Patti reprised their Stand Up for Heroes duet, and it was even more sublime. It needs to be shared:
 
 [Watch on Youtube: ''If I Should Fall Behind'' - Bruce Springsteen & Patti Scialfa - New York City, NY - Nov. 5th, 2018](https://www.youtube.com/watch?v=JkZ7FCpeJWk)
 
-**If I Should Fall Behind**
+**If I Should Fall Behind**<br>
 **Recorded** September 1991 – January 1992  
 **Released:** *Lucky Town* (1992), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007).  
 **First performed:** June 8, 1991 (Beverly Hills, CA)

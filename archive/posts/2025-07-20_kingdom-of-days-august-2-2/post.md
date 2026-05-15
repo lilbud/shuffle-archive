@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band (although they aren't known by that name yet) play two shows on their final night of a three-night stand at My Father's Place in Roslyn, New York.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -18,7 +18,7 @@ Bruce and the boys play a show at Chrysler Hall in Norfolk. Listen to a gorgeous
 
 Bruce and the band play their second of six nights at the Monmouth Arts Center in Red Bank. Mike Appel and Laurel Canyon attempt to impound Bruce's earnings from this concert stand as part of their ongoing and escalating legal battle, but a judge denies the restraining order request.
 
-**1976:**
+**1976:**<br>
 
 [https://videopress.com/embed/2Tw8kvl4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2Tw8kvl4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -30,7 +30,7 @@ Bruce and the band play their second of six nights at the Monmouth Arts Center i
 
 Bruce and the E Street Band work on "Racing in the Street" at Atlantic Studios in New York City.
 
-**1977:**
+**1977:**<br>
 
 Bruce opens his Darkness show in Charlotte with the tour premiere of "."
 
@@ -70,7 +70,7 @@ Bruce and the E Street Band (minus Nils) play a rare bar set at The Stone Pony w
 
 Bruce and the E Street Band play their penultimate Tunnel of Love show when the tour arrives in Madrid. Watch local news coverage below.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/1bN5Y_YsW1Q?feature=oembed](https://www.youtube.com/embed/1bN5Y_YsW1Q?feature=oembed)
 
@@ -118,7 +118,7 @@ Bruce and the E Street Band play a third rehearsal show at Asbury Park's Convent
 
 Bruce and the E Street Band play their second of two nights at Gillette Stadium in Foxboro.
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/d6XZXBmU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/d6XZXBmU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

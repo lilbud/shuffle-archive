@@ -29,8 +29,8 @@ That central line ("I'm lost in the center of your resistance") almost certainly
 
 I would have liked to have seen what this would have developed into.
 
-**Crystal**
-**Never recorded**
+**Crystal**<br>
+**Never recorded**<br>
 **Performed:** Possibly May 1968 (Red Bank, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

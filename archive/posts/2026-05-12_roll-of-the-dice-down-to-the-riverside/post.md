@@ -119,7 +119,7 @@ And there we have it: the only known recording of Bruce's breathtakingly intimat
 For me, at least, it was worth the wait.
 
 **Down to the Riverside  
-**Never recorded**
+**Never recorded**<br>
 **Never released**  
 **First performed:** February 5, 1972 (Richmond, VA)  
 **Last performed:** April 1972 (Freehold, NJ)

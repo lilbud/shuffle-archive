@@ -4,11 +4,11 @@
 
 The Castiles play a brief set at the Surf ‘N' See Club in Sea Bright, New Jersey.
 
-**1966:**
+**1966:**<br>
 
 The Bruce Springsteen Band makes its debut, headlining at Brookdale Community College's 2nd Annual "Nothing's Festival" in Lincroft, New Jersey. (There wasn't a first annual festival, and the show is free and unpaid–but a gig's a gig.)
 
-**1971:**
+**1971:**<br>
 
 [https://www.youtube.com/embed/AqnlX8oq-2g?feature=oembed](https://www.youtube.com/embed/AqnlX8oq-2g?feature=oembed)
 
@@ -24,7 +24,7 @@ Bruce joins Cats on a Smooth Surface for five songs at The Stone Pony in Asbury 
 
 Columbia Records producer, executive, and Bruce Springsteen-signer John Hammond passes away at the age of 76. Here's Bruce talking about his admiration for Hammond in an early interview.
 
-**1987:**
+**1987:**<br>
 
 [https://www.youtube.com/embed/C3OJKnbSQb0?feature=oembed](https://www.youtube.com/embed/C3OJKnbSQb0?feature=oembed)
 
@@ -32,7 +32,7 @@ Columbia Records producer, executive, and Bruce Springsteen-signer John Hammond 
 
 Bruce and the E Street Band play their second of two Tunnel of Love shows at Bramall Lane in Sheffield.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/EZbUAKue?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/EZbUAKue?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

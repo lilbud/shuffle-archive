@@ -4,11 +4,11 @@
 
 Child performs for Monmouth College's National Vietnam Moratorium Protest Day.
 
-**1969:**
+**1969:**<br>
 
 The Bruce Springsteen Band is in residence at The Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -16,7 +16,7 @@ The Bruce Springsteen Band is in residence at The Student Prince in Asbury Park.
 
 Bruce and the as-yet-unnamed E Street Band kick off a four-night stand at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce and the as-yet-unnamed E Street Band kick off a four-night stand at Oliver
 
 The Born in the U.S.A. Tour resumes after a three-week break at Vancouver's Pacific Coliseum, where an early stage rush temporarily halts the show to ensure that close-up fans are okay. Check out the pro-shot encore footage below.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/fXB3mqCUMcw?feature=oembed](https://www.youtube.com/embed/fXB3mqCUMcw?feature=oembed)
 
@@ -56,7 +56,7 @@ The Human Rights Now! Tour comes to a close with a worldwide radio broadcast fro
 
 Bruce and his new touring band take World Tour 1992 north to Canada for three shows, starting with a night at the Pacific Coliseum in Vancouver.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/jYfeO5ry?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jYfeO5ry?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -64,7 +64,7 @@ Bruce and his new touring band take World Tour 1992 north to Canada for three sh
 
 Bruce performs in Utah for the very first time when his solo acoustic tour stops at Abravanel Hall in Salt Lake City.
 
-**1996:**
+**1996:**<br>
 
 
 
@@ -88,7 +88,7 @@ The Reunion Tour picks up after a two-week break at America West Arena in Phoeni
 
 Bruce returns to Madison, Wisconsin after almost 25 years when his solo acoustic tour stops at the Dane County Arena.
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/fLpNZktL06s?feature=oembed](https://www.youtube.com/embed/fLpNZktL06s?feature=oembed)
 

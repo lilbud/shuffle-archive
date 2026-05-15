@@ -4,7 +4,7 @@
 
 The Castiles play a gig at the Hullabaloo in Middletown, New Jersey.
 
-**1966:**
+**1966:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play a gig at the Hullabaloo in Middletown, New Jersey.
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -34,7 +34,7 @@ At Night Two at Atlanta's Fox Theater on the Darkness Tour, Bruce opens with his
 
 The San Mateo Times publishes the only interview Bruce's dad is known to have ever given. (Bruce's parents are local residents.)
 
-**1984:**
+**1984:**<br>
 
 
 
@@ -54,7 +54,7 @@ Southside Johnny releases his album, featuring a Springsteen original ("") and B
 
 Bruce takes his solo acoustic tour to the Braden Auditorium in Normal, Illinois.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/LCKzTo7T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/LCKzTo7T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -122,7 +122,7 @@ Bruce joins Sting, Lady Gaga, Billy Joel, Stevie Wonder, will.i.am, Branford Mar
 
 Bruce brings his promotional book tour to the west coast, starting with an appearance at Elliott Bay Book Company in Seattle, where he meets the author of this blog at 2 minutes and 35 seconds before the end of this video!
 
-**2016:**
+**2016:**<br>
 
 Bruce and Jake join The Killers for "," "Dustland," and "Born to Run" at Madison Square Garden.
 
@@ -134,6 +134,6 @@ Bruce and Jake join The Killers for "," "Dustland," and "Born to Run" at Madison
 
 At Roberto's Grill in Freehold, Bruce films a passionate endorsement for Vice President Kamala Harris as the next president of the United States of America.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/7FDFj5SgDYc?feature=oembed](https://www.youtube.com/embed/7FDFj5SgDYc?feature=oembed)

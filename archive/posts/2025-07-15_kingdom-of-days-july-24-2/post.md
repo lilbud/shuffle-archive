@@ -4,7 +4,7 @@
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -20,7 +20,7 @@ The Born to Run Tour is already underway, but the album isn't finished. Bruce hu
 
 Bruce takes ill and must postpone his scheduled Rosemont show to September.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -56,7 +56,7 @@ Night Four of the ten-night Giants Stadium stand on the Rising Tour features a r
 
 Bruce plays a solo acoustic show at the Charlotte Coliseum, one of only two shows on the entire summer leg without at least one tour premiere.
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/1YABZAFn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1YABZAFn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

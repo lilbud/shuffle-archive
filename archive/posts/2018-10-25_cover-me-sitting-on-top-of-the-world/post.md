@@ -12,6 +12,6 @@ Take a listen below to the only known recording of Bruce performing this blues c
 
 [Watch on Youtube: The Bruce Springsteen Band - "Sittin' On Top of the World" - Richmond, 1972-02-04](https://www.youtube.com/watch?v=kjg4Jd1IXa0)
 
-**Sitting on Top of the World**
+**Sitting on Top of the World**<br>
 **First performed:** February 4, 1972 (Richmond, VA)<br>
 **Last performed:** February 4, 1972 (Richmond, VA)<br>

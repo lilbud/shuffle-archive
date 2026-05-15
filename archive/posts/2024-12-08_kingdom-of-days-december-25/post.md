@@ -14,6 +14,6 @@ Adele Springsteen delights her fifteen -year-old son Bruce on Christmas morning,
 
 MTV airs a segment on Bruce during their year in review recap.
 
-**1986:**
+**1986:**<br>
 
 [https://www.youtube.com/embed/6utss3VmnNg?feature=oembed](https://www.youtube.com/embed/6utss3VmnNg?feature=oembed)

@@ -78,7 +78,7 @@ Love never stops being a dance. And as Bruce would write [two decades further do
 ---
 
 
-**Bonus:**
+**Bonus:**<br>
 
 I know this is usually the part of the essay where I share outstanding live performances of our spotlight song, but honestly–nothing's ever going to beat that official 1988 video.
 
@@ -102,7 +102,7 @@ Flashing forward to the 21st century now, Bruce and Patti perform "Tougher Than 
 
 Clearly, "Tougher Than the Rest" holds deep meaning and power for Bruce and Patti, and for that we can be grateful–because it means we'll likely hear them play it for many years to come.
 
-**Tougher Than the Rest**
+**Tougher Than the Rest**<br>
 **Recorded** January – April 1987  
 **Released:** *Tunnel of Love* (1987), *The Essential Bruce Springsteen* (2003)
 **First performed:** October 31, 1987 (Sea Bright, NJ)

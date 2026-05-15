@@ -108,9 +108,9 @@ One of those times, though, was especially inspired. On a rainy birthday eve in 
 
 Like "[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)," "Cynthia" is a song that ages well with its singer. Don't count her out yet–"Cynthia" may come walkin' on by again soon.
 
-***Want another take on "Cynthia?" Check out Katy Crane's excellent essay [here.](https://estreetshuffle.com/index.php/2021/12/06/two-faces-cynthia/)***
+***Want another take on "Cynthia?" Check out Katy Crane's excellent essay [here.](https://estreetshuffle.com/index.php/2021/12/06/two-faces-cynthia/)***<br>
 
-**Cynthia**
+**Cynthia**<br>
 **Recorded** June 15, 1983  
 **Released:** *Tracks* (1998)
 **First performed:** August 31, 2003 (East Rutherford, NJ)

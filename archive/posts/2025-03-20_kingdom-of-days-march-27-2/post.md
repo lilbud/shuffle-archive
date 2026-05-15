@@ -4,7 +4,7 @@
 
 Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -12,7 +12,7 @@ Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.
 
 Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional materials but changed to Dr. Zoom and the Sonic Boom by the night of the shows) in order to land a gig opening for the Allman Brothers at Asbury Park's Sunshine In. These two shows feature an on-stage Monopoly game and a baton twirler during the band's set. (Lore has it that all Dr. Zoom shows featured these distractions, but this date is the only documented instance of it.)
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional
 
 Bruce and Steve drop by Atlanta's WQXI-FM for an interview with DJ Cat Simon.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce and Steve drop by Atlanta's WQXI-FM for an interview with DJ Cat Simon.
 
 Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -36,7 +36,7 @@ Bruce postpones a show in Birmingham to recover from the previous leg of the Riv
 
 Bruce checks out The Bangles' performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.
 
-**1983:**
+**1983:**<br>
 
 
 
@@ -44,13 +44,13 @@ Bruce checks out The Bangles' performance at Magic Mountain in Southern Californ
 
 Night Four of five at the Sydney Entertainment Center on the Born in the U.S.A. Tour.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/RxOJwN5n?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RxOJwN5n?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce's scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year's Oscar ceremony.
 
-**1996:**
+**1996:**<br>
 
 
 
@@ -74,7 +74,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and the E Street Band bring their World Tour to the Capital One Arena in Washington, D.C.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/z1BBXmNAASA?feature=oembed](https://www.youtube.com/embed/z1BBXmNAASA?feature=oembed)
 
@@ -84,7 +84,7 @@ Bruce and the E Street Band bring their World Tour to the Capital One Arena in W
 
 Bruce makes a surprise appearance with Zach Bryan at Barclays Center in Brooklyn, performing "Sandpaper" and an encore of "Revival" together. Maggie Rogers joins Bruce and Zach for the encore.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/07MFGBvHiEk?feature=oembed](https://www.youtube.com/embed/07MFGBvHiEk?feature=oembed)
 

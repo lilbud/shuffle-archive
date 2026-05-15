@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band kicks off a residency at the Student Prince in Asbury Park that will last the rest of the calendar year.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -44,7 +44,7 @@ Bruce appears in and on the latest issue of .
 
 Bruce's World Tour 1992 visits Tinley Park, Illinois for the second of two nights, and CNN airs a segment on the end of the summer concert season.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/JFEIp4vi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JFEIp4vi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -58,7 +58,7 @@ Bruce's World Tour 1992 visits Tinley Park, Illinois for the second of two night
 
 Bruce and the reunited E Street Band wrap up their three-night stand at the MCI Center in Washington, DC with an all-star guest-star line-up: Bonnie Raitt, Bruce Hornsby, Jackson Browne, Shawn Colvin, Mary Chapin Carpenter and Frank Bruno join the band for the encores.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/1eA8nibwxSQ?feature=oembed](https://www.youtube.com/embed/1eA8nibwxSQ?feature=oembed)
 
@@ -72,7 +72,7 @@ Bruce and the reunited E Street Band wrap up their three-night stand at the MCI 
 
 In their last public appearance before the nation changes forever, Bruce and Patti join Brian Kirk and the Jirks on-stage for four songs at Donovan's Reef in Sea Bright, New Jersey. (The Jirks are the house band at the club.)
 
-**2001:**
+**2001:**<br>
 
 [https://www.youtube.com/embed/VcpMgWrmhUE?feature=oembed](https://www.youtube.com/embed/VcpMgWrmhUE?feature=oembed)
 
@@ -102,7 +102,7 @@ Night Two at Philadelphia's Citizens Bank Park was a Labor Day special, opening 
 
 A scheduled River Tour show in Virginia Beach is postponed for two days due to Tropical Storm Hermine.
 
-**2016:**
+**2016:**<br>
 
 
 
@@ -114,7 +114,7 @@ It's the penultimate night for at the St. James Theater in New York City.
 
 Bruce records "Addicted to Romance" in his home studio in Colts Neck.
 
-**2022:**
+**2022:**<br>
 
 [https://www.youtube.com/embed/FPM0gG2ueV8?feature=oembed](https://www.youtube.com/embed/FPM0gG2ueV8?feature=oembed)
 

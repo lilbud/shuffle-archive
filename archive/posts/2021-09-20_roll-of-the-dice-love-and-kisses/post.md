@@ -14,9 +14,9 @@ Bruce continued working on "Love and Kisses," evolving the melody into something
 
 [Watch on Youtube: Bruce Springsteen Love & Kisses](https://www.youtube.com/watch?v=8NODac18pmU)
 
-**Love and Kisses**
+**Love and Kisses**<br>
 **Recorded:** Early 1979 (acoustic demos only)<br>
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

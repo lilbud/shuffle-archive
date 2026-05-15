@@ -4,7 +4,7 @@
 
 Steel Mill plays a second night at the Hullabaloo in Richmond.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -24,7 +24,7 @@ Three Mile Island nuclear power plant partially melts down in Pennsylvania. The 
 
 Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 
 

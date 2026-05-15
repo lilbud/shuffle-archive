@@ -11,10 +11,10 @@ Lyrically and musically, however, "Baby Come Back" appears to be a true cast-off
 February-March 1979 (demo)
 N/A
 
-**Baby Come Back**
+**Baby Come Back**<br>
 **Recorded:** <br>
 
 **Released:** <br>
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

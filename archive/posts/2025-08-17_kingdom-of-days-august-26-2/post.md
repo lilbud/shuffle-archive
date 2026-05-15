@@ -4,11 +4,11 @@
 
 Steel Mill rehearses in Wanamassa, New Jersey for their upcoming appearance at the Nashville Music Festival.
 
-**1970:**
+**1970:**<br>
 
 Bruce and the E Street Band wrap a week-long residency at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and the band work on "" during a recording session in New York City.
 
 The Darkness Tour descends on Rhode Island, for a show at the Providence Civic Center.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/EaEA0CTQTjI?feature=oembed](https://www.youtube.com/embed/EaEA0CTQTjI?feature=oembed)
 
@@ -40,7 +40,7 @@ Bruce and the E Street Band play their second of two nights at Washington DC's C
 
 The Born in the U.S.A. stadium tour moves north to CNE Stadium in Toronto for the first of two shows.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/OfuZPBFYwBY?feature=oembed](https://www.youtube.com/embed/OfuZPBFYwBY?feature=oembed)
 
@@ -62,7 +62,7 @@ Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae ver
 
 Bruce and his new touring band play their second of two shows at the Capital Center in Largo, MD.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/ybBaEpl0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ybBaEpl0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -74,7 +74,7 @@ Bruce and his new touring band play their second of two shows at the Capital Cen
 
 Bruce joins Stand and Deliver and Max Weinberg on stage at the Classics Cafe in Westwood, New Jersey, for a cover-filled mini-set.
 
-**1994:**
+**1994:**<br>
 
 [https://www.youtube.com/embed/cxtmY9G97Q4?feature=oembed](https://www.youtube.com/embed/cxtmY9G97Q4?feature=oembed)
 
@@ -96,7 +96,7 @@ Bruce and the reunited E Street Band play their fourth of five shows at Boston's
 
 Bruce plays his first ever show in New Brunswick (the Canadian province, not the New Jersey college town), when the Wrecking Ball Tour makes a stop at the Magnetic Hill Music Festival in Moncton. The Trews, Tom Cochrane, and Peter Elkas make a guest appearance for the show-closing "Twist and Shout."
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/7t44vA3SHdU?feature=oembed](https://www.youtube.com/embed/7t44vA3SHdU?feature=oembed)
 

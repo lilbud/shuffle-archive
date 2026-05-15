@@ -14,6 +14,6 @@ It's more than a bit loose and messy, but that's part of the charm. Take a liste
 
 [Watch on Youtube: Bruce Springsteen - HEY GOOD LOOKIN 2000 (audio)](https://www.youtube.com/watch?v=4Nbuk-j3VLw)
 
-**Hey, Good Lookin'**
+**Hey, Good Lookin'**<br>
 **First performed:** December 18, 2000 (Asbury Park, NJ)<br>
 **Last performed:** December 18, 2000 (Asbury Park, NJ)<br>

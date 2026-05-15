@@ -4,7 +4,7 @@
 
 Child plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -12,7 +12,7 @@ Child plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 Steel Mill headlines a show at Virginia Commonwealth University in Richmond. When the show runs past the school's curfew, the school kills the power. Vini Lopez refuses to stop drumming and is arrested for disorderly conduct.
 
-**1970:**
+**1970:**<br>
 
 [https://www.youtube.com/embed/yTJtPogqgCc?feature=oembed](https://www.youtube.com/embed/yTJtPogqgCc?feature=oembed)
 
@@ -38,7 +38,7 @@ The Darkness on the Edge of Town Tour begins at Shea's Buffalo Theater in Buffal
 
 Bruce sits in with Cats on a Smooth Surface at The Stone Pony.
 
-**1982:**
+**1982:**<br>
 
 Bruce and the E Street Band complete "" at recording sessions at The Hit Factory in New York City. It won't be released for another thirty years.
 
@@ -48,7 +48,7 @@ Bruce and the E Street Band complete "" at recording sessions at The Hit Factory
 
 Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
 
-**1984:**
+**1984:**<br>
 
 The final night of the American leg of the Tunnel of Love Express Tour at Madison Square Garden. This show is available for purchase as part of Bruce's official archive series–get it .
 
@@ -68,17 +68,17 @@ The final night of the American leg of the Tunnel of Love Express Tour at Madiso
 
 Bruce hires the multi-talented Crystal Taliefero for his upcoming tour, while rehearsals with the new band continue.
 
-**1992:**
+**1992:**<br>
 
 Bruce and the E Street Band play their final show of a four-night Reunion stand at Earls Court in London.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/tfHxIasd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tfHxIasd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Night 2 of 3 at RDS Arena in Dublin on the final European leg of the Magic Tour.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/SjddQEIqOkg?feature=oembed](https://www.youtube.com/embed/SjddQEIqOkg?feature=oembed)
 
@@ -130,7 +130,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Paul McCartney inducts Bruce into the Fellowship of the Ivors Academy at Grosvenor House in London. Bruce is the first non-British citizen to receive the invitation. Following his acceptance speech, he performs an acoustic rendition of "Thunder Road."
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/ezRI-nIyEHA?feature=oembed](https://www.youtube.com/embed/ezRI-nIyEHA?feature=oembed)
 

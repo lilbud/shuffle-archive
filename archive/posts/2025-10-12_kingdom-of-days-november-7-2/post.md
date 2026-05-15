@@ -4,7 +4,7 @@
 
 Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the second of a five-night/ten-show stand.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at 
 
 Bruce and the E Street Band play their second of two nights at Armadillo World Headquarters in Austin.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -58,7 +58,7 @@ Bruce premieres a new arrangement of "" to open his Seeger Sessions show in Antw
 
 At Town Hall in New York City, Bruce supports Stand Up for Heroes, a benefit show for the Bob Woodruff Family Fund, sponsored by the New York Comedy Festival. Bruce plays three acoustic songs and auctions his motorcycle to support the foundation.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/QFA1QSoiF6E?feature=oembed](https://www.youtube.com/embed/QFA1QSoiF6E?feature=oembed)
 
@@ -80,7 +80,7 @@ Bruce and the E Street Band play the first of two very special full-album shows 
 
 On Election Eve, Bruce supports U.S. presidential candidate Hillary Clinton, performing three acoustic songs at a rally at Independence Hall in Philadelphia.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/Jsf5w6w1QSs?feature=oembed](https://www.youtube.com/embed/Jsf5w6w1QSs?feature=oembed)
 
@@ -100,7 +100,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 Bruce appears in the introduction video at Jon Landau's induction into the Rock and Roll Hall of Fame.
 
-**2020:**
+**2020:**<br>
 
 [https://videopress.com/embed/0OS8Z512?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0OS8Z512?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band make a Born to Run Tour stop at Seton Hall Universit
 
 The original River Tour stops at the Civic Center in Providence, Rhode Island. The show is filmed–watch highlights from it below.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/GyDFBP3yPlk?feature=oembed](https://www.youtube.com/embed/GyDFBP3yPlk?feature=oembed)
 
@@ -48,7 +48,7 @@ Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, wher
 
 Inclement weather forces the postponement of a scheduled show in Pittsburgh to five days later.
 
-**1992:**
+**1992:**<br>
 
 
 
@@ -56,13 +56,13 @@ Inclement weather forces the postponement of a scheduled show in Pittsburgh to f
 
 Bruce plays his 100th show of his solo acoustic tour at the Veterans Memorial Auditorium in Columbus.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/OZfP7vtxTB8?feature=oembed](https://www.youtube.com/embed/OZfP7vtxTB8?feature=oembed)
 
 Bruce makes an appearance on Italian television, performing and sitting down for an interview in Bologna.
 
-**1998:**
+**1998:**<br>
 
 [https://www.youtube.com/embed/r5h51SBnXUo?feature=oembed](https://www.youtube.com/embed/r5h51SBnXUo?feature=oembed)
 

@@ -70,9 +70,9 @@ What he obviously didn't know (and what his interviewer did) is that Jackie Shan
 
 Bruce's edits kept the song truer to Bell's original intent for modern ears than the original lyrics ever could have, but ironically he achieved what he probably set out *not* to do: jettison the listener out of the song by changing the meaning it had come to take on over time.
 
-**Any Other Way**
+**Any Other Way**<br>
 **Recorded:** 2021<br>
 **Released:** *Only the Strong Survive* (2022)<br>
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries coming soon!

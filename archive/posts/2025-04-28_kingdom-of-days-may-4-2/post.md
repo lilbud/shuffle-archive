@@ -4,7 +4,7 @@
 
 E Street Band violinist Soozie Tyrell is born in Pisa, Italy.
 
-**1957:**
+**1957:**<br>
 
 
 
@@ -12,7 +12,7 @@ E Street Band violinist Soozie Tyrell is born in Pisa, Italy.
 
 Child plays an outdoor set at West End Park in Long Branch, New Jersey. (Note: Brucebase has this show assigned to Monday, May 5th. However, contemporaneous press coverage confirms that the date was actually Sunday, May 4th.)
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -20,7 +20,7 @@ Child plays an outdoor set at West End Park in Long Branch, New Jersey. (Note: B
 
 Bruce and the E Street Band headline Montclair State University's Spring Carnival, opening with "New York City Serenade."
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -32,7 +32,7 @@ At a recording session at the Record Plant in New York City, Bruce works on "" a
 
 Bruce plays his first-ever show in Mississippi, at the Coliseum in Jackson.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -140,4 +140,4 @@ What an amazing honour and a beautiful experience to get a visit from The Boss!!
 
 Bruce and the E Street Band rehears for their European tour at Principality Stadium in Cardiff.
 
-**2024:**
+**2024:**<br>

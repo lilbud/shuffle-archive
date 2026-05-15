@@ -4,11 +4,11 @@
 
 The Castiles open for Lord Sutch at the Hullabaloo in Freehold.
 
-**1968:**
+**1968:**<br>
 
 Bruce and the E Street Band (not yet named, however) open for Chicago at the Spectrum in Philadelphia. In typical Philly fashion, Bruce is booed by a crowd unfamiliar with his music and impatient for the headliners. A studio-mixed recording of a very early version of "Rosalita (Come Out Tonight)" with different lyrics stems from this date, and you can listen to it below.
 
-**1973:**
+**1973:**<br>
 
 [https://www.youtube.com/embed/OXM3uVx2qY8?feature=oembed](https://www.youtube.com/embed/OXM3uVx2qY8?feature=oembed)
 
@@ -30,7 +30,7 @@ Finishing the soundcheck for their evening show early, the band spends their fre
 
 Bruce joins Cats on a Smooth Surface during their gig at The Stone Pony in Asbury Park.
 
-**1982:**
+**1982:**<br>
 
 Bruce and the E Street Band record the base track for "" at The Hit Factory in New York City.
 

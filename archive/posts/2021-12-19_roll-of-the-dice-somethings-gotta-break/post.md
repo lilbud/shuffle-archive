@@ -55,7 +55,7 @@ But for now, since the tempo has slowed down again, let's pick the narrative bac
 
 > *You can't go on living life that way*
 > *End them tears that you been cryin' girl*
-***They don't wanna drown in them one day***
+***They don't wanna drown in them one day***<br>
 > *I know you're disillusioned at the mass hysteria, and ???*
 > *Something gotta break*
 
@@ -63,8 +63,8 @@ A note about that line in bold: I realize that the Springsteenlyrics transcripti
 
 Any takers?
 
-**Something's Gotta Break**
-**Never recorded**
-**Never released**
+**Something's Gotta Break**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** May 23, 1970 (Richmond, VA)
 **Last performed:** June 13, 1970 (Bricktown, NJ)

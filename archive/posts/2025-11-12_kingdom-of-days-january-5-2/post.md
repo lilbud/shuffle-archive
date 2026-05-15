@@ -46,7 +46,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 : Bruce makes a guest appearance at The Stone Pony in Asbury Park. The headliner is The Blackberry Booze Band, forerunners to Southside Johnny and the Asbury Jukes.
 
-**1975**
+**1975**<br>
 
 : Bruce joins the Lord Gunner Group onstage at the Stone Pony for performances of "" and "."
 
@@ -62,7 +62,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 : Bruce and the E Street Band play their second of two Born in the U.S.A. shows at the Hampton Roads Coliseum in Virginia.
 
-**1985**
+**1985**<br>
 
 [https://videopress.com/embed/uLsPLzGo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uLsPLzGo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -70,7 +70,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 Bruce's youngest child, Sam Ryan Springsteen, is born in Los Angeles.
 
-**1994:**
+**1994:**<br>
 
 
 

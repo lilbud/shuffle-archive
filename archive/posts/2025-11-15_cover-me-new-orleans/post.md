@@ -25,7 +25,7 @@ Bruce went on to cover "New Orleans" four more times over the years, all at smal
 May 13, 1976 (New Orleans, LA)
 August 16, 1989 (Long Branch, NJ)
 
-**New Orleans**
+**New Orleans**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

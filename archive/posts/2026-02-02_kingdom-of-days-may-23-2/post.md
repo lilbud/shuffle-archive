@@ -2,7 +2,7 @@
 
 Child plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -10,7 +10,7 @@ Child plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 Steel Mill headlines a show at Virginia Commonwealth University in Richmond. When the show runs past the school's curfew, the school kills the power. Vini Lopez refuses to stop drumming and is arrested for disorderly conduct.
 
-**1970:**
+**1970:**<br>
 
 [https://www.youtube.com/embed/yTJtPogqgCc?feature=oembed](https://www.youtube.com/embed/yTJtPogqgCc?feature=oembed)
 
@@ -18,11 +18,11 @@ Steel Mill headlines a show at Virginia Commonwealth University in Richmond. Whe
 
 Bruce and the E Street Band work on "Backstreets" at the Record Plant in New York City.
 
-**1975:**
+**1975:**<br>
 
 The Darkness on the Edge of Town Tour begins at Shea's Buffalo Theater in Buffalo, New York. Besides the obvious album track premieres, this show also marks the first performances of "Paradise by the ‘C'" and "Fire," as well as the first "Sad Eyes" version of "Backstreets" and the only full-band performance of "The Promise" until 2010. Listen in on the pre-show soundcheck, live debut of "Badlands" and more below.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/uK3_QRYf9FU?feature=oembed](https://www.youtube.com/embed/uK3_QRYf9FU?feature=oembed)
 
@@ -34,7 +34,7 @@ The Darkness on the Edge of Town Tour begins at Shea's Buffalo Theater in Buffal
 
 Bruce sits in with Cats on a Smooth Surface at The Stone Pony.
 
-**1982:**
+**1982:**<br>
 
 Bruce and the E Street Band complete "County Fair" at recording sessions at The Hit Factory in New York City. It won't be released for another thirty years.
 
@@ -44,11 +44,11 @@ Bruce and the E Street Band complete "County Fair" at recording sessions at The 
 
 Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
 
-**1984:**
+**1984:**<br>
 
 The final night of the American leg of the Tunnel of Love Express Tour at Madison Square Garden. This show is available for purchase as part of Bruce's official archive series.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/SxbVieRyZYI?feature=oembed](https://www.youtube.com/embed/SxbVieRyZYI?feature=oembed)
 
@@ -64,15 +64,15 @@ The final night of the American leg of the Tunnel of Love Express Tour at Madiso
 
 Bruce hires the multi-talented Crystal Taliefero for his upcoming tour, while rehearsals with the new band continue.
 
-**1992:**
+**1992:**<br>
 
 Bruce and the E Street Band play their final show of a four-night Reunion stand at Earls Court in London.
 
-**1999:**
+**1999:**<br>
 
 Night 2 of 3 at RDS Arena in Dublin on the final European leg of the Magic Tour.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/SjddQEIqOkg?feature=oembed](https://www.youtube.com/embed/SjddQEIqOkg?feature=oembed)
 
@@ -80,11 +80,11 @@ Night 2 of 3 at RDS Arena in Dublin on the final European leg of the Magic Tour.
 
 The final show of the first American leg of the Working on a Dream Tour in East Rutherford features the tour premieres of "Something in the Night," "Incident on 57th Street," and "Cover Me."
 
-**2009:**
+**2009:**<br>
 
 The Wrecking Ball Tour stops in Naples for a show at the Piazza del Plebiscito, where the band opens with "O Sole Mio." During the sign request collection, a fan actually requests "Crazy Rocker," and it's hard to tell if Bruce remembered that's an actual song he'd (partially, at least) written. (He plays "Rosalita (Come Out Tonight)" instead.)
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/X-NYkLOguTM?feature=oembed](https://www.youtube.com/embed/X-NYkLOguTM?feature=oembed)
 
@@ -94,7 +94,7 @@ The Wrecking Ball Tour stops in Naples for a show at the Piazza del Plebiscito, 
 
 Bruce and Joe Grushecky play their second of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh, featuring another eclectic set of rarities, including an acoustic "Outlaw Pete" and "Jersey Girl" along with rare outings for "Save My Love," "Pink Cadillac," "I'll Work For Your Love," "Savin' Up," and more.
 
-**2014:**
+**2014:**<br>
 
 [https://www.youtube.com/embed/GQvnGb6YpaQ?feature=oembed](https://www.youtube.com/embed/GQvnGb6YpaQ?feature=oembed)
 
@@ -114,7 +114,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Paul McCartney inducts Bruce into the Fellowship of the Ivors Academy at Grosvenor House in London. Bruce is the first non-British citizen to receive the invitation. Following his acceptance speech, he performs an acoustic rendition of "Thunder Road."
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/ezRI-nIyEHA?feature=oembed](https://www.youtube.com/embed/ezRI-nIyEHA?feature=oembed)
 

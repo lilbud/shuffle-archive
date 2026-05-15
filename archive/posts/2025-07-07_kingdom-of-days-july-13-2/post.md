@@ -20,13 +20,13 @@ In a stroke of last-minute inspiration, Steven Van Zandt arranges a horn section
 
 Bruce and the E Street Band complete "Mary Lou" at the Power Station in New York City. It will remain in the vault for almost two decades.
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/h1nEWj7QVDY?feature=oembed](https://www.youtube.com/embed/h1nEWj7QVDY?feature=oembed)
 
 Bruce and the E Street Band kick off a five-night stand at The Spectrum in Philadelphia.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/FHiJ0uH9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/FHiJ0uH9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -38,7 +38,7 @@ Bruce and the E Street Band kick off a five-night stand at The Spectrum in Phila
 
 Bruce and the band play their second of two nights in East Troy, Wisconsin.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/gnhXXMxQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gnhXXMxQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

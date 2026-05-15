@@ -46,9 +46,9 @@ These aren't Bruce's deepest lyrics, but with a hook like that and a beat that d
 
 Is there a killer pop song in the vault called "Don't Back Down," just waiting for Bruce to get around to issuing that *Born in the U.S.A.* anniversary box set? Only time will tell. But even if we do get an official release someday, the question remains: which "Don't Back Down" will it be?
 
-**Don't Back Down**
+**Don't Back Down**<br>
 **Recorded** Early 1983  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

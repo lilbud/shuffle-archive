@@ -34,14 +34,14 @@ But it's hard to resist falling under the spell of the E Street Band having that
 
 "Heat Wave" technically made a third appearance on Bruce's E Street set lists, but it was an instrumental-only one. Here's Bruce's very recognizable sign-collecting background music from his Mansfield show on the Working on a Dream Tour in 2009.
 
-**Bonus:**
+**Bonus:**<br>
 
 [https://www.youtube.com/embed/aA8Po2DBtf8?feature=oembed](https://www.youtube.com/embed/aA8Po2DBtf8?feature=oembed)
 
 September 21, 2003 (Detroit, MI)
 February 2, 2014 (Adelaide, Australia)
 
-**Heat Wave**
+**Heat Wave**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

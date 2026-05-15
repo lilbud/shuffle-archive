@@ -2,7 +2,7 @@
 
 Bruce plays the Spring Carnival at UMass Amherst. With attendance at around 18,000, this is one of the largest crowds that Bruce will play to for years.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -14,7 +14,7 @@ Bruce plays the Spring Carnival at UMass Amherst. With attendance at around 18,0
 
 Bruce and his band play a show at Bucks County Community College in Newtown, Pennsylvania. This is the final show before the E Street Band debuts its official name.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce and his band play a show at Bucks County Community College in Newtown, Pen
 
 Bruce plays a sparsely-attended gig at the Municipal Auditorium in Shreveport, Louisiana.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -34,13 +34,13 @@ At a mixing session for at Clover Studios in Los Angeles, Bruce works on "I Wann
 
 Bruce and the E Street Band record "Working on the Highway" at the Power Station in New York City.
 
-**1982:**
+**1982:**<br>
 
 [https://www.youtube.com/embed/5OEA9_Gtims?feature=oembed](https://www.youtube.com/embed/5OEA9_Gtims?feature=oembed)
 
 Bruce and the E Street Band play their second of two nights at the Tacoma Dome on the Tunnel of Love Express Tour. The soundcheck–captured on tape–features a fascinating set of covers, including "Big Boss Man," "Crying in the Rain," and "Cathy's Clown." Take a listen below.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/pP8UaWz0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pP8UaWz0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -54,7 +54,7 @@ Bruce and the E Street Band play their second of two nights at the Tacoma Dome o
 
 Bruce unveils his new band at a ninety-minute show at The Bottom Line in New York City. MTV's Week in Rock features some footage from the show, along with an interview with Bruce.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/yC9EKVpQk4U?feature=oembed](https://www.youtube.com/embed/yC9EKVpQk4U?feature=oembed)
 
@@ -64,19 +64,19 @@ Bruce unveils his new band at a ninety-minute show at The Bottom Line in New Yor
 
 Bruce plays the first of two solo acoustic shows at Teatro Tivoli in Barcelona.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/QMhPP0rBgD8?feature=oembed](https://www.youtube.com/embed/QMhPP0rBgD8?feature=oembed)
 
 Bruce kicks off the final leg of his marathon solo acoustic tour with his first-ever show in Austria, the first of two nights in Vienna. This show features the European debut of "Freehold."
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/RE7Q1cpQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RE7Q1cpQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 The second European leg of the Rising Tour kicks off with the first of two shows at Stadion Feyenoord in Rotterdam. Bruce opens the show with an acoustic "Born in the U.S.A." and plays a solo piano "Incident on 57th Street," his first performance of that song in The Netherlands.
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/wZqqSp2L?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wZqqSp2L?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -84,7 +84,7 @@ The second European leg of the Rising Tour kicks off with the first of two shows
 
 Bruce makes an appearance at Fairleigh Dickinson University in Madison, New Jersey, joining John Wesley Harding and poet Robert Pinsky for an unusual evening of poetry reading and acoustic performance.
 
-**2010:**
+**2010:**<br>
 
 [https://www.youtube.com/embed/aZnmxAXC0vg?feature=oembed](https://www.youtube.com/embed/aZnmxAXC0vg?feature=oembed)
 
@@ -108,11 +108,11 @@ At the Cynthia Woods Mitchell Pavilion in Houston, one of the smaller venues on 
 
 Bruce attends the memorial service and delivers a eulogy for original fan Obie Dziedzic. That evening, he attends the 24th annual Kristen Ann Carr Fund benefit.
 
-**2017:**
+**2017:**<br>
 
 Bruce inducts Steve Van Zandt into the New Jersey Hall of Fame. Following Little Steven's acceptance speech, Bruce joins his friend and the Disciples of Soul for a performance of "I Don't Want to Go Home."
 
-**2018:**
+**2018:**<br>
 
 [https://videopress.com/embed/0zCQnGAf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0zCQnGAf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

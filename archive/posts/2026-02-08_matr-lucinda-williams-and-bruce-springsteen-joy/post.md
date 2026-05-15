@@ -10,7 +10,7 @@ Lucinda's original studio version remains one of her greatest songs, a rebelliou
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eJTHhY-mG94)
 
-**Joy**
+**Joy**<br>
 **First performed:** November 10, 1996 (London, England)
 **Last performed:** November 10, 1996 (London, England)
 

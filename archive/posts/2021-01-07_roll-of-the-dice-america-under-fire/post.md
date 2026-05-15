@@ -58,9 +58,9 @@ And it feels appropriate after a day when the sky turned very, very grey.
 
 I'm tired. But I think I will remain.
 
-**America Under Fire**
-**Never recorded**
-**Never released**
+**America Under Fire**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** January 13, 1970 (San Francisco, CA)
 **Last performed:** April 18, 1970 (Toms River, NJ)
 

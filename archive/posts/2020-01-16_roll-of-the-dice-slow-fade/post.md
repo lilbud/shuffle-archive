@@ -31,9 +31,9 @@ It's hard to believe there might still be unreleased tracks left over from the R
 
 Fingers crossed for a welcome surprise in that long-awaited *Tracks 2*...
 
-**Slow Fade**
+**Slow Fade**<br>
 **Recorded:** February 5, 1980 (rehearsals only)<br>
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

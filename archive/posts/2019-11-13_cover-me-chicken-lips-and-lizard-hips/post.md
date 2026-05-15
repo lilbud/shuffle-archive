@@ -16,7 +16,7 @@ Here's Bruce's solo contribution to *Every Child Deserves a Lifetime–*his neve
 
 [Watch on Youtube: Chicken Lips & Lizard Hips covered by Bruce Springsteen](https://www.youtube.com/watch?v=nJMrU0scAN0)
 
-**Chicken Lips and Lizard Hips**
+**Chicken Lips and Lizard Hips**<br>
 **Recorded:** Summer 1990<br>
 **Released:** *Every Child Deserves a Lifetime* (1991)<br>
-**Never performed**
+**Never performed**<br>

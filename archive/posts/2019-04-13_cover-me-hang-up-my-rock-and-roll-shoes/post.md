@@ -17,7 +17,7 @@ And keeping the classics alive, here's the Chuck Willis original from 1958.
 September 3, 1978 (Saginaw, MI)
 November 22, 2009 (Buffalo, NY)
 
-**Hang Up My Rock and Roll Shoes**
+**Hang Up My Rock and Roll Shoes**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

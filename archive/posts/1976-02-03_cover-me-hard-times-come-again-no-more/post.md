@@ -16,7 +16,7 @@ But if his lyrics are traditional, Bruce's arrangement is a departure. He dials 
 
 Bruce and the E Street Band performed Foster's song throughout the entire tour but not once since, even though it's more relevant today than ever. Let's hope it won't be by the time Bruce gets back out on the road again next year.
 
-**Hard Times Come Again No More**
+**Hard Times Come Again No More**<br>
 **First performed:** March 23, 2009 (Asbury Park, NJ)<br>
 **Last performed:** November 20, 2009 (Baltimore, MD)<br>
 

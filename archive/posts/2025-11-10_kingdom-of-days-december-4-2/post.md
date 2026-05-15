@@ -4,7 +4,7 @@
 
 Bruce's good friend, frequent co-performer, and one-time bandmate Southside Johnny Lyon is born in Neptune, New Jersey.
 
-**1948:**
+**1948:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce's good friend, frequent co-performer, and one-time bandmate Southside John
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -38,7 +38,7 @@ Bruce records "" at Soundworks West in Los Angeles.
 
 The Diasco family gets an unexpected Christmas bonus: in June, they'd bid on and won a private Bon Jovi performance at their home in an auction benefiting the Doug Flutie Autism Foundation; when the band shows up to honor their obligation, they bring along some friends: Bruce, Patti, and Southside Johnny. Bruce joins Bon Jovi for six songs.
 
-**1999:**
+**1999:**<br>
 
 
 
@@ -62,7 +62,7 @@ The Rising Tour stops at Mellon Arena in Pittsburgh, where Joe Grushecky joins B
 
 The Magic Tour heads north to Scandinavia, starting with a show at the Oslo Spektrum.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/T6s2T96l35A?feature=oembed](https://www.youtube.com/embed/T6s2T96l35A?feature=oembed)
 
@@ -102,4 +102,4 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce's scheduled show in Inglewood is postponed to the following April due to his peptic ulcer disease.
 
-**2023:**
+**2023:**<br>

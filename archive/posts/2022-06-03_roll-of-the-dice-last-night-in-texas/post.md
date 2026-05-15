@@ -48,9 +48,9 @@ As for the lyrics… well, like much of the Steel Mill and early Bruce Springste
 
 Summer's only just beginning, though, and we'll have some stronger Bruce Springsteen Band songs to check out soon.
 
-**Last Night in Texas**
-**Never recorded**
-**Never released**
+**Last Night in Texas**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** May 15, 1971 (Union, NJ)
 **Last performed:** May 15, 1971 (Union, NJ)
 

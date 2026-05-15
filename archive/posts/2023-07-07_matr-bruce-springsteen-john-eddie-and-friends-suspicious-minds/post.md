@@ -27,6 +27,6 @@ Among them: "Suspicious Minds." Here's that all-star performance, recorded in gr
 October 21, 1994 (Sayreville, NJ)
 August 18, 2001 (Asbury Park, NJ)
 
-**Suspicious Minds**
+**Suspicious Minds**<br>
 **First performed:**<br>
 **Last performed:**<br>

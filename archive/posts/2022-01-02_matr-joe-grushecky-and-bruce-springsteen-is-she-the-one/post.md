@@ -10,7 +10,7 @@ With a happy riff and sweet backing vocals from Bruce, "Is She The One" came out
 
 [Watch on Youtube: Is She the One](https://www.youtube.com/watch?v=soyE1oxt0kM)
 
-**Is She the One**
+**Is She the One**<br>
 **Recorded:** February 2006<br>
 **Released:** *A Good Life* (2006)<br>
-**Never performed**
+**Never performed**<br>

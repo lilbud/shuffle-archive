@@ -6,11 +6,11 @@ Bruce watches the debut of The Dave Clark Five on . Below, Bruce, Steve, and Max
 
 Child opens for Nicky Addeo at Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Before their evening show opening for Chicago at the Richmond Coliseum, Bruce and the band stop by Alpha Sound Studios in Richmond, Virginia, where they perform only their second-ever radio show, broadcast live on WGOE-FM. The show features an early version of "New York City Serenade" with a completely different melody (and very different lyrics), and a gorgeous "You Mean So Much to Me."
 
-**1973:**
+**1973:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLnbVaK2f4rajZ4F6a2347-r_YflRMhJd3](https://www.youtube.com/embed/videoseries?list=PLnbVaK2f4rajZ4F6a2347-r_YflRMhJd3)
 
@@ -20,23 +20,23 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 A scheduled gig at the Agora in Columbus is cancelled due to low ticket sales.
 
-**1974:**
+**1974:**<br>
 
 Bruce wraps his three-night Darkness Tour stand at Boston's Music Hall with the tour premiere of "Quarter to Three."
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDfRI7JVRMsPUjYC8GkmrSl](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDfRI7JVRMsPUjYC8GkmrSl)
 
 At the Power Station in New York, Bruce records "I Wanna Be With You." It will remain unreleased for almost two decades.
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/Ie4bDLGnfR0?feature=oembed](https://www.youtube.com/embed/Ie4bDLGnfR0?feature=oembed)
 
 At The Hit Factory in New York City, Bruce records "Pink Cadillac," "Car Wash," "Gone, Gone, Gone" (which will evolve into "Seeds"), and "Invitation to Your Party." The former two won't see an album release for fifteen years (although "Pink Cadillac" will surface sooner as a B-side). The latter two remain unreleased to this day.
 
-**1983:**
+**1983:**<br>
 
 [https://www.youtube.com/embed/Wk5cIUI6Zac?feature=oembed](https://www.youtube.com/embed/Wk5cIUI6Zac?feature=oembed)
 
@@ -54,13 +54,13 @@ Bruce and the E Street Band play a warm-up rehearsal at Slane Castle in Ireland 
 
 Bruce treats Irish fans to a rare "Kitty's Back" when the Rising tour stops at RDS Arena in Dublin.
 
-**2003:**
+**2003:**<br>
 
 [https://www.youtube.com/embed/duv8guPDvlE?feature=oembed](https://www.youtube.com/embed/duv8guPDvlE?feature=oembed)
 
 At his Seeger show in Noblesville, Indiana, Bruce opens with the premiere of a new arrangement of "Atlantic City," and debuts "Froggie Went A-Courtin'" by request for a seven-year-old boy.
 
-**2006:**
+**2006:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2006-05-31.jpg?resize=758%2C869&amp;ssl=1)
 
@@ -88,7 +88,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 The Land of Hope and Dreams Tour makes a brief stop in Marseilles for a single show.
 
-**2025:**
+**2025:**<br>
 
 [https://www.youtube.com/embed/tolp7gYzirs?feature=oembed](https://www.youtube.com/embed/tolp7gYzirs?feature=oembed)
 

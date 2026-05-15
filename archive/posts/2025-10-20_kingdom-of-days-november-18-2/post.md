@@ -4,7 +4,7 @@
 
 Bruce plays his first-ever show in Europe, a historic concert at the Hammersmith Odeon in London. The hype precedes him. Bruce famously reacts to it by tearing down posters that read "Finally, London is ready for Bruce Springsteen and The E Street Band," but despite later reports that he considered the show itself to be substandard, for those there (and for those who hear and watch it decades later via an official release) the show is intense and electric.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_m2SqNSNM6Rz54ntt97ITEoy3IaiVe6We0](https://www.youtube.com/embed/videoseries?list=OLAK5uy_m2SqNSNM6Rz54ntt97ITEoy3IaiVe6We0)
 
@@ -16,7 +16,7 @@ Bruce plays his first-ever show in Europe, a historic concert at the Hammersmith
 
 The Darkness Tour stops in Oxford, Ohio, for a show at Miami University.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -44,7 +44,7 @@ Bruce plays his first show in Nebraska since the release of the album by the sam
 
 Bruce brings World Tour 1992 to the Charlotte Coliseum.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/kjLvfOFpZMM?feature=oembed](https://www.youtube.com/embed/kjLvfOFpZMM?feature=oembed)
 
@@ -136,4 +136,4 @@ Stand Up for Heroes goes virtual due to the great pandemic, with Bruce performin
 
 Bruce's scheduled show in Ottawa is postponed by almost a year due to his peptic ulcer disease.
 
-**2023:**
+**2023:**<br>

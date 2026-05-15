@@ -2,7 +2,7 @@
 
 Steel Mill plays a gig at Ocean County College in Toms River, New Jersey.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -10,7 +10,7 @@ Steel Mill plays a gig at Ocean County College in Toms River, New Jersey.
 
 Bruce and his band play the Christian Brothers Academy in Lincroft, New Jersey, the first of only two high school gigs the band will ever perform.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -18,7 +18,7 @@ Bruce and his band play the Christian Brothers Academy in Lincroft, New Jersey, 
 
 Bruce and the band play a gig at Monmouth College in Long Branch, New Jersey.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -26,11 +26,11 @@ Bruce and the band play a gig at Monmouth College in Long Branch, New Jersey.
 
 Bruce and his studio team move to the Record Plant in New York City. On this first day of recording, they work on "Thunder Road" and "Jungleland."
 
-**1975:**
+**1975:**<br>
 
 Bruce plays his first-ever show in France on this first of two nights at the Palais des Sports de Saint-Ouen in Paris. Another first: Bruce debuts his cover of "Can't Help Falling in Love" at this show.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/wNB0ZUQS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wNB0ZUQS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -38,19 +38,19 @@ Bruce plays his first-ever show in France on this first of two nights at the Pal
 
 TNT airs a Johnny Cash tribute special, on which Bruce performs "Give My Love to Rose."
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/hEfe80Ty8KY?feature=oembed](https://www.youtube.com/embed/hEfe80Ty8KY?feature=oembed)
 
 At their Reunion show in Houston, fans witness the E Street Band premiere of "Better Days."
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/MuIILEbI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MuIILEbI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 At the Corel Centre in Ottawa on the Rising Tour, Bruce plays "I'm on Fire" for the only time on the tour. In the encores, Clarence collides with Bruce during "Ramrod," falls on top of him, knocks them both to the ground, and they somehow manage to continue playing the entire time!
 
-**2003:**
+**2003:**<br>
 
 [https://www.youtube.com/embed/iwyYmRypZGk?feature=oembed](https://www.youtube.com/embed/iwyYmRypZGk?feature=oembed)
 
@@ -68,13 +68,13 @@ Patti plays two live shows to promote her upcoming album at The Hit Factory in N
 
 Bruce and Jesse Malin film the video for Jesse's single, "Broken Radio."
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/dlmBCrBJokA?feature=oembed](https://www.youtube.com/embed/dlmBCrBJokA?feature=oembed)
 
 Bruce reschedules a planned show in Sunrise, Florida due to the passing of Danny Federici.
 
-**2008:**
+**2008:**<br>
 
 
 
@@ -82,7 +82,7 @@ Bruce reschedules a planned show in Sunrise, Florida due to the passing of Danny
 
 Bruce and the E Street Band bring the River Tour (2016 Edition) to Penn State University.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/ylgZaG8Hg8Y?feature=oembed](https://www.youtube.com/embed/ylgZaG8Hg8Y?feature=oembed)
 
@@ -100,6 +100,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce tour premieres "Growin' Up" at JMA Wireless Dome in Syracuse.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/KSW0waJOEXY?feature=oembed](https://www.youtube.com/embed/KSW0waJOEXY?feature=oembed)

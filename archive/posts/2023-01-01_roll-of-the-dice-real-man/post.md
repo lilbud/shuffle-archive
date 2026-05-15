@@ -76,7 +76,7 @@ Second: I can't believe I'm writing these words, but I'd actually kinda like to 
 
 I'd recommend starting by ditching those synths.
 
-**Real Man**
+**Real Man**<br>
 **Recorded** January-February 1990  
 **Released:** *Human Touch* (1992)
 **First performed:** June 17, 1992 (Stockholm, Sweden)

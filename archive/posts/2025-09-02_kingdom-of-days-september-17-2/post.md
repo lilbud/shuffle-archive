@@ -4,7 +4,7 @@
 
 The Castiles play the Surf ‘n' See Club in Sea Bright, New Jersey.
 
-**1966:**
+**1966:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play the Surf ‘n' See Club in Sea Bright, New Jersey.
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -42,7 +42,7 @@ Bruce and the E Street Band close out their three-night Darkness Tour stand at t
 
 Bruce and the band play their fifth of six nights at the Philadelphia Spectrum. During the soundcheck, Bruce plays an original yet unreleased-to-this-day composition, "Beneath the Floodline."
 
-**1984:**
+**1984:**<br>
 
 
 
@@ -60,7 +60,7 @@ The Human Rights Now! Tour stops at Montreal's Olympic Stadium, where Bruce make
 
 On an off-day between shows in Hartford, Bruce and Patti take a private tour of the Mark Twain House.
 
-**2003:**
+**2003:**<br>
 
 
 
@@ -68,7 +68,7 @@ On an off-day between shows in Hartford, Bruce and Patti take a private tour of 
 
 Bruce, Southside, Patti, and Bobby Bandiera and his band play a benefit at The Stone Pony for the Ranney School (which Bruce's kids attended).
 
-**2006:**
+**2006:**<br>
 
 
 

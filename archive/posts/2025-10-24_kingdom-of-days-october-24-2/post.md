@@ -18,7 +18,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3?_=9)
 
-**![](../../assets/2020/10/1995-10-24.png)**
+**![](../../assets/2020/10/1995-10-24.png)**<br>
 
 **2002:** Bruce and the E Street Band bring the Rising Tour to the Globe Arena in Stockholm, where "Gloria" makes its tour debut.
 

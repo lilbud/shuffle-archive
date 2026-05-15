@@ -2,11 +2,11 @@
 
 Bruce, Vini Lopez, Danny Federici, and Vinnie Roslin jam at the Upstage in Asbury Park. Within weeks, they will debut their new band, Child.
 
-**1969:**
+**1969:**<br>
 
 Steel Mill plays their second of two shows at Richmond's Free University. This is Vinnie Roslin's final show; Steven Van Zandt will replace him within the month.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -14,7 +14,7 @@ Steel Mill plays their second of two shows at Richmond's Free University. This i
 
 Bruce and the as-yet-unnamed E Street Band play the only show out of two weeks of scheduled gigs opening for Paul Butterfield's Better Days that is held as scheduled–the rest were cancelled for low ticket sales–and even this show is poorly attended.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce and the as-yet-unnamed E Street Band play the only show out of two weeks o
 
 The Lawsuit Tour is in full swing with a stop at the Fox Theater in St. Louis.
 
-**1977:**
+**1977:**<br>
 
 [https://videopress.com/embed/yaloJxcB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yaloJxcB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -30,7 +30,7 @@ The Lawsuit Tour is in full swing with a stop at the Fox Theater in St. Louis.
 
 Bruce and the band bring the River Tour to the Coliseum in Greensboro, North Carolina–his first time performing for what will prove to be one of Bruce's most fervent and appreciative audiences.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/Tcamyiqp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Tcamyiqp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -50,13 +50,13 @@ Bruce makes the cover of when he tops the Readers' Poll for the magazine's annua
 
 MTV airs the results of Rolling Stone Magazine's Readers Poll for 1985. Bruce wins the award for Artist of the Year.
 
-**1986:**
+**1986:**<br>
 
 [https://www.youtube.com/embed/PHGJEwpSzNc?feature=oembed](https://www.youtube.com/embed/PHGJEwpSzNc?feature=oembed)
 
 The opening stand of the Tunnel of Love Express Tour continues with the second of three shows at the Centrum in Worcester. Bruce is still a little rusty: he forgets the opening line to "Born to Run" (played acoustically on this tour) and has to restart it.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/VXq5DyXB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VXq5DyXB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -84,7 +84,7 @@ Bruce's album is released, featuring four new songs recorded for this collection
 
 Bruce's solo acoustic tour moves on to the Apollo Theater in Manchester, England.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/fpaePJsI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fpaePJsI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -140,7 +140,7 @@ The Magic Tour resumes at the Hartford Civic Center with the tour premiere of "S
 
 When a local third-grader profiles Bruce for her biography assignment at school, Bruce surprises her class by attending in person.
 
-**2020:**
+**2020:**<br>
 
 
 

@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band play two shows at Princeton University.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/jdykicq8iFU?feature=oembed](https://www.youtube.com/embed/jdykicq8iFU?feature=oembed)
 
@@ -12,7 +12,7 @@ Bruce and the E Street Band play two shows at Princeton University.
 
 Bruce and the boys play a Lawsuit Tour show at Rutgers University in New Brunswick.
 
-**1976:**
+**1976:**<br>
 
 [https://videopress.com/embed/OAaqtbDj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OAaqtbDj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -26,7 +26,7 @@ Bruce records "" with the E Street Band at The Power Station in New York City.
 
 Bruce plays his first ever show in Brazil when the Human Rights Now! Tour stops in São Paolo.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/0Xf1IjEfD9c?feature=oembed](https://www.youtube.com/embed/0Xf1IjEfD9c?feature=oembed)
 
@@ -44,13 +44,13 @@ Bruce tour premieres "Thunder Road" (in its only tour performance) and "" (on au
 
 The Seeger Sessions Tour moves on from Italy to Germany, stopping in Hamburg for a show at the Color Line Arena.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/xAFTKJwio8k?feature=oembed](https://www.youtube.com/embed/xAFTKJwio8k?feature=oembed)
 
 In Cambridge, Massachusetts, the American Academy of Arts and Sciences inducts Bruce into their ranks, along with Pete Seeger, Herbie Hancock, Sally Field, and Robert De Niro.
 
-**2013:**
+**2013:**<br>
 
 It's officially opening night for at a star-studded premiere (including the entire E Street Band) that follows seven preview performances. In attendance tonight: Tom Hanks, Steven Spielberg, Kate Capshaw, Nathan Lane, Andrew Lloyd Weber, Ralph Lauren, Tina Fey, Jimmy Iovine, David Geffen, Laura Linney, Jon Stewart, Senator Chuck Schumer, the entire E Street Band and more.
 

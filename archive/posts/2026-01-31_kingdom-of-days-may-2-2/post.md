@@ -2,7 +2,7 @@
 
 Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -10,13 +10,13 @@ Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
 Steel Mill attempts to crash a three-day music festival at the University of North Carolina in Chapel Hill–not to attend, but to play! Bruce and the band sneak past security and set up their gear. They are caught and ejected just before they are about to start playing. All is not lost, however, since they have a scheduled gig at the Hullaballoo in Richmond that evening, just a few hours drive away.
 
-**1970:**
+**1970:**<br>
 
 [https://www.youtube.com/embed/z771CnLdzO8?feature=oembed](https://www.youtube.com/embed/z771CnLdzO8?feature=oembed)
 
 A watershed day for Bruce: Mike Appel arranges a meeting and audition for Bruce with John Hammond at Hammond's Columbia Records office in New York City. By the time Bruce finishes playing "It's Hard to Be a Saint in the City," Hammond knows he wants to sign Bruce.
 
-**1972:**
+**1972:**<br>
 
 Bruce plays three more songs (including "If I Was the Priest"), and then Hammond asks how Bruce is with a live audience. Mike Appel immediately arranges a gig at the Gaslight Au Go Go for early that evening, opening for Garland Jeffreys and Charlie Musselwhite. Satisfied with the performance, Hammond invites Bruce to come down the next day to make a demo.
 
@@ -44,19 +44,19 @@ is certified gold by the Recording Industry Association of America.
 
 Bruce works on mixing and overdubs for "Restless Nights" at Clover Studios in Los Angeles.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/DCFYLa02WzE?feature=oembed](https://www.youtube.com/embed/DCFYLa02WzE?feature=oembed)
 
 Bruce and the E Street Band play their first proper show in Denmark, at Brøndbyhallen in Copenhagen.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/q7EsVf2suLc?feature=oembed](https://www.youtube.com/embed/q7EsVf2suLc?feature=oembed)
 
 The first of a series of "secret" shows in which Bruce joined Cats on a Smooth Surface for late-night gigs at The Stone Pony in Asbury Park.
 
-**1982:**
+**1982:**<br>
 
 
 
@@ -64,7 +64,7 @@ The first of a series of "secret" shows in which Bruce joined Cats on a Smooth S
 
 Bruce brings the Tunnel of Love Express Tour to Mountain View, California, for the first of two nights at the Shoreline Amphitheater. Local news coverage and a pro-shot "Be True" below.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/9pwFHwTFeU4?feature=oembed](https://www.youtube.com/embed/9pwFHwTFeU4?feature=oembed)
 
@@ -88,13 +88,13 @@ Bruce brings the Tunnel of Love Express Tour to Mountain View, California, for t
 
 Bruce's solo acoustic tour stops in Switzerland for a single show at Kongresshaus in Zurich. In honor of his Swiss hosts, Bruce performs "Red Headed Woman" with extra yodeling.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/eqMkI4fK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eqMkI4fK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 On Night Two in Manchester on the Reunion Tour, Bruce plays "Rendezvous" in England for the first time.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/WItR0RGJTrY?feature=oembed](https://www.youtube.com/embed/WItR0RGJTrY?feature=oembed)
 
@@ -112,7 +112,7 @@ Bruce joins Soozie Tyrell at Scullville Studios in Egg Harbor, New Jersey, where
 
 A year to the day later, Bruce and Patti join Soozie on stage at her solo gig at The Stone Pony for "Ste. Genevieve" and "It's All Over Now."
 
-**2003:**
+**2003:**<br>
 
 [https://www.youtube.com/embed/sQE2tQMzsQs?feature=oembed](https://www.youtube.com/embed/sQE2tQMzsQs?feature=oembed)
 
@@ -120,7 +120,7 @@ A year to the day later, Bruce and Patti join Soozie on stage at her solo gig at
 
 At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Bruce tour premieres "Incident on 57th Street," "If I Should Fall Behind," "Johnny 99," and "Cautious Man" (in only its second performance ever).
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/628Kn0VK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/628Kn0VK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -130,11 +130,11 @@ At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Br
 
 Bruce, Southside Johnny, and Bobby Bandiera perform at the fifth annual Rumson Country Day School benefit concert at The Stone Pony in Asbury Park.
 
-**2006:**
+**2006:**<br>
 
 Bruce wraps up the second U.S. leg of the Magic Tour with a show at BankAtlantic center in Sunrise, Florida, where he plays the tour premiere of "I Wanna Be With You."
 
-**2008:**
+**2008:**<br>
 
 [https://videopress.com/embed/zNJ22b8k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/zNJ22b8k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -142,7 +142,7 @@ Bruce wraps up the second U.S. leg of the Magic Tour with a show at BankAtlantic
 
 Bruce plays one of the best shows of the Working on a Dream Tour at the Greensboro Coliseum in North Carolina, featuring tour premiere by-request covers of "Seventh Son" and "Hang on Sloopy," and the tour premiere of "Human Touch."
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/Ve_sdS7AKfU?feature=oembed](https://www.youtube.com/embed/Ve_sdS7AKfU?feature=oembed)
 
@@ -160,7 +160,7 @@ Bruce plays one of the best shows of the Working on a Dream Tour at the Greensbo
 
 Bruce joins newly inducted New Jersey Hall of Fame member Danny DeVito on stage for "Glory Days."
 
-**2010:**
+**2010:**<br>
 
 [https://www.youtube.com/embed/wGdNnhyqq94?feature=oembed](https://www.youtube.com/embed/wGdNnhyqq94?feature=oembed)
 
@@ -168,7 +168,7 @@ Bruce joins newly inducted New Jersey Hall of Fame member Danny DeVito on stage 
 
 Bruce wraps up the first leg of the Wrecking Ball Tour with an epic show in Newark that features the first "Bishop Danced" in 39 years, the tour premiere of "It's Hard to Be a Saint in the City," and a cover of "The Weight" in memory of Levon Helm.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/8YntGDsYzlY?feature=oembed](https://www.youtube.com/embed/8YntGDsYzlY?feature=oembed)
 

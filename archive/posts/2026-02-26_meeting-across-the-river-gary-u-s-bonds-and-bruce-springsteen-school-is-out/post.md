@@ -14,7 +14,7 @@ The sound quality is terrible, but it's the only document we have of Bruce perfo
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=k_hSYvYqZ-Q)
 
-**School Is Out**
+**School Is Out**<br>
 **First performed:** June 15, 1981 (San Francisco, CA)<br>
 **Last performed:** June 15, 1981 (San Francisco, CA)<br>
 

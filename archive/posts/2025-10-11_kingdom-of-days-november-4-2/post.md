@@ -8,7 +8,7 @@ Tinker West drives Bruce to New York City to introduce him to future manager Mik
 
 Bruce and the E Street Band play their second of three nights at Arizona State University in Tempe.
 
-**1975:**
+**1975:**<br>
 
 Bruce and the band wrap up a six-night stand at the Palladium in New York City with a barnburner–especially the encores, in which Ronnie Spector joins the band for three of her greatest hits: "," "," and "." All three are live debuts for Bruce and the E Street Band. Also debuting in the encores: Bruce's cover of "." The main set is pretty great, too, with a particularly inspired "," probably because one of its writers (Carl D'Errico) is in the audience.
 
@@ -38,7 +38,7 @@ At the recording session itself, Bruce works on "," "," and "," the last of whic
 
 Bruce and the E Street Band play a Darkness Tour show at the University of Vermont in Burlington.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -52,7 +52,7 @@ Bruce and the band wrap up their seven-night Born in the U.S.A. Tour stand at th
 
 Bruce joins Clarence Clemons on stage at Club 251 in West Palm Beach, Florida, for four songs.
 
-**1998:**
+**1998:**<br>
 
 
 
@@ -64,7 +64,7 @@ Bruce joins Clarence Clemons on stage at Club 251 in West Palm Beach, Florida, f
 
 Patti Scialfa has a perforated eardrum, forcing Bruce to postpone a scheduled Reunion show in Minneapolis.
 
-**1999:**
+**1999:**<br>
 
 
 
@@ -110,7 +110,7 @@ Continuing east, the Magic Tour stops at Cleveland's Quicken Loans Arena, where 
 
 Bruce makes a return appearance at the Stand Up for Heroes benefit at Town Hall in New York City, performing songs, telling jokes, and auctioning off a guitar for $50,000.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/fS2M_eBbZAg?feature=oembed](https://www.youtube.com/embed/fS2M_eBbZAg?feature=oembed)
 

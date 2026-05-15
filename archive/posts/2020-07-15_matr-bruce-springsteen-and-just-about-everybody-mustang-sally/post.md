@@ -48,6 +48,6 @@ Admittedly that last one wasn't one of Bruce's better performances, but never fe
 
 The only question is: who'll be tackling it with him?
 
-**Mustang Sally**
+**Mustang Sally**<br>
 **First performed:** January 11, 1979 (Fair Haven, NJ)<br>
 **Last performed:** January 17, 2020 (Wellington, FL)<br>

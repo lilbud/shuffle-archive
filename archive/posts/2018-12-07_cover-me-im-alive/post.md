@@ -8,5 +8,5 @@ The original 1965 recording by The Hollies was a the band's first Number One hit
 
 [Watch on Youtube: I'm Alive - The Hollies](https://www.youtube.com/watch?v=qVJ0jGC_0tU)
 
-**I'm Alive**
+**I'm Alive**<br>
 **Never officially performed** (but soundchecked in Passaic, September 20, 1978)

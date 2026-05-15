@@ -89,7 +89,7 @@ Bruce has steered clear of "Dollhouse" in concert. He attempted it only once, ea
 
 We haven't heard from "Dollhouse" since that night over twenty years ago, and it strikes me as a longshot to ever surface in Bruce's set lists again. But that's okay–it's rare for one of Bruce's songs to be perfectly captured in a studio recording, but "Dollhouse" is one of those cases that likely can't be improved on stage.
 
-**Bonus:**
+**Bonus:**<br>
 
 Even before "Dollhouse" was finally released (almost 20 years after it was recorded) on Bruce's 1998 box set, *Tracks*, a couple of acoustic, work-in-progress home demos escaped into the wild. You can listen to them below. While there are many lyrical differences, they are for the most part exceedingly minor–reordering and rephrasing for better meter and effect.
 
@@ -106,7 +106,7 @@ Not only did that excised verse break the song's spell by abandoning the metapho
 
 [Watch on Youtube: Bruce Springsteen Living in A Doll House AKA Dollhouse](https://www.youtube.com/watch?v=QfndficoGvg)
 
-**Dollhouse**
+**Dollhouse**<br>
 **Recorded** August 20-21, 1979  
 **Released:** *Tracks* (1998); *The Ties That Bind* (2015)
 **First performed:** April 24, 1999 (Vienna, Austria)

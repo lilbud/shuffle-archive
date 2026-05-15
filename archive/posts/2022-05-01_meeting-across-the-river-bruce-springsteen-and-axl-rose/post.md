@@ -8,12 +8,12 @@ You'd never know from the performance. Axl would not perform in public again for
 
 [Watch on Youtube: Axl Rose and Bruce Springsteen perform "Come Together"](https://www.youtube.com/watch?v=UtzkBewRsiE)
 
-**Update: May 1, 2022**
+**Update: May 1, 2022**<br>
 
 In the spring of 2022, Bruce performed "Come Together" in public–this time with Gary Clark, Jr. at the presentation of the 23rd Annual Mark Twain Prize for American Humor to Jon Stewart. Here's a somewhat distant video of the event to tide you over until it's televised in June.
 
 [Watch on Youtube: Bruce Springsteen & Gary Clark, Jr. -Come Together (23rd annual Mark Twain Prize for American Humor)](https://www.youtube.com/watch?v=NUrGpdLjICo)
 
-**Come Together**
+**Come Together**<br>
 **First performed:** January 20, 1994 (New York City, NY)
 **Last performed:** April 24, 2022 (New York City, NY)

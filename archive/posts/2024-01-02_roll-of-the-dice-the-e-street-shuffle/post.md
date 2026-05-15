@@ -127,7 +127,7 @@ The first song they played as members of the Rock and Roll Hall of Fame? The onl
 
 
 
-**The E Street Shuffle**
+**The E Street Shuffle**<br>
 **Recorded** June-September 1973  
 **Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)
 **First performed:** June 6, 1973 (Philadelphia, PA)

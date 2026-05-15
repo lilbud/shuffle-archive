@@ -21,7 +21,7 @@ On stage, there were almost as many backup singers as musicians, and while you'r
 May 15, 1971 (Union, NJ)
 January 17, 1990 (New York City, NY)
 
-**Will You Love Me Tomorrow**
+**Will You Love Me Tomorrow**<br>
 **First performed:** <br>
 
 **Last performed:**<br>

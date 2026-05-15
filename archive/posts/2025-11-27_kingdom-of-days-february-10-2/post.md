@@ -2,11 +2,11 @@
 
 Steel Mill plays the Fillmore West in San Francisco, a last minute-replacement for a band cancellation. Venue owner Bill Graham is impressed enough to invite the band back for a second gig the following week.
 
-**1970:**
+**1970:**<br>
 
 Bruce and his band play their final show at Asbury Park's Sunshine In. Unfortunately, it's a short set–only forty minutes–disappointing fans who came to hear Bruce. To add insult to injury, the scheduled opening band (John Lennon's backing band, Elephant's Memory) is a no-show. A frustrated fan writes to the Asbury Park Press to complain.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -14,7 +14,7 @@ Bruce and his band play their final show at Asbury Park's Sunshine In. Unfortuna
 
 Bruce and the E Street Band play their fourth straight night on the Lawsuit Tour, this time to a crowd of 5,500 at the Memorial Auditorium in Utica, New York.
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band play their fourth straight night on the Lawsuit Tour
 
 A rare show postponement: The River Tour stop in Lexington is rescheduled for the following month when Bruce comes down with strep throat.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -30,15 +30,15 @@ A rare show postponement: The River Tour stop in Lexington is rescheduled for th
 
 Sting assembles a band for a benefit show for the Rainforest Foundation. The band includes Bruce, Paul Simon, Don Henley, Bruce Hornsby, Herbie Hancock, Brandford Marsalis, Paulinho Da Costa, and Sting. The all-star band meets to rehearse in Beverly Hills.
 
-**1990:**
+**1990:**<br>
 
 Bruce announces the postponement of his upcoming U.K. solo acoustic shows due to his invitation to perform at the Academy Awards. To make it up to his fans, he announces additional shows along with the new dates for the postponed shows.
 
-**1996:**
+**1996:**<br>
 
 Bruce plays his third of five solo acoustic nights at Sydney's Capitol Theater.
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/MEFuhDtd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MEFuhDtd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

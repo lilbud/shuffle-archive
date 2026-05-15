@@ -2,15 +2,15 @@
 
 The Bruce Springsteen Band headlines at Livingston College in Piscataway, New Jersey.
 
-**1972:**
+**1972:**<br>
 
 Bruce and his unnamed band play at Seton Hall University.
 
-**1973:**
+**1973:**<br>
 
 Sting assembles a band for a benefit show for the Rainforest Foundation. The band includes Bruce, Paul Simon, Don Henley, Bruce Hornsby, Herbie Hancock, Brandford Marsalis, Paulinho Da Costa, and Sting. The all-star band meets for a second day of rehearsals in Beverly Hills.
 
-**1990:**
+**1990:**<br>
 
 During his fourth of five nights at Sydney's Capitol Theater, Bruce plays "" outside of Freehold for the first time.
 

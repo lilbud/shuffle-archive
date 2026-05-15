@@ -4,7 +4,7 @@
 
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -40,7 +40,7 @@ Bruce works on "" at his home studio in Los Angeles.
 
 The final night of five in Tokyo on the Born in the U.S.A. Tour.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/IW12P88W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IW12P88W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -64,7 +64,7 @@ Bruce plays the first of two shows at Royal Albert Hall in London and premieres 
 
 Bruce endorses Senator Barack Obama for president of the United States in an endorsement on his web site. Later, at Sloan-Kettering Hospital in New York City, Bruce and the E Street Band gather at the bedside of ailing bandmate Danny Federici to say their final goodbyes and sing together one last time.
 
-**2008:**
+**2008:**<br>
 
 
 

@@ -33,9 +33,9 @@ Bruce's lyrics are just a little bit fuzzy in the scan–enough to obfuscate sev
 
 There's not a lot to analyze here, due both to the illegible lines and the relatively straightforward nature metaphor as stand-in for his love interest. Again, though, the kid was just eighteen and only beginning to experiment with writing about love. Bigger and better songs lay ahead.
 
-**Sun Time**
-**Never recorded**
-**Never released**
-**Never performed**
+**Sun Time**<br>
+**Never recorded**<br>
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

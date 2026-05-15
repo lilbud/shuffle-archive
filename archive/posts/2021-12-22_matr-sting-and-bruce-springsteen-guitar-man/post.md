@@ -27,7 +27,7 @@ That event tends to be remembered for Bruce's duets with James Taylor on "" and 
 April 12, 1995 (New York City, NY)
 April 12, 1995 (New York City, NY)
 
-**Guitar Man**
+**Guitar Man**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

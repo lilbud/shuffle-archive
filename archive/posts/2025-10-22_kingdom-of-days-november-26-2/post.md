@@ -4,11 +4,11 @@
 
 The Castiles play a gig at the Hullabaloo in Middletown, New Jersey.
 
-**1966:**
+**1966:**<br>
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -16,13 +16,13 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 Bruce drops by WMMR-FM in Philadelphia to record a very special Christmas message for DJ Ed Sciaky.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/dcyQZcRVh0A?feature=oembed](https://www.youtube.com/embed/dcyQZcRVh0A?feature=oembed)
 
 Bruce joins Patti Smith on stage for both of her shows at the Bottom Line in New York City, playing guitar and piano for a remarkable twelve songs between the two shows (although a couple of the songs may be more accurately described as improv pieces).
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/CBfg__G0V9E?feature=oembed](https://www.youtube.com/embed/CBfg__G0V9E?feature=oembed)
 
@@ -80,7 +80,7 @@ Bruce wraps up his three-night acoustic stand at the Paramount Theater in Asbury
 
 The Magic Tour moves to its second European stop, the Bizkaia Arena in Bilbao.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/NQzNwA26otc?feature=oembed](https://www.youtube.com/embed/NQzNwA26otc?feature=oembed)
 

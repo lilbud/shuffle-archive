@@ -58,7 +58,7 @@ Peter Wolf guest-stars for "" (a tour premiere) in the encores at this Wrecking 
 
 Bruce and the E Street Band play their second of three nights at Melbourne's Rod Laver Arena.
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/f0lezueuzEc?feature=oembed](https://www.youtube.com/embed/f0lezueuzEc?feature=oembed)
 
@@ -70,6 +70,6 @@ Bruce and the E Street Band play their second of three nights at Melbourne's Rod
 
 In the early days of the COVID-19 pandemic, Bruce phones E Street Radio DJ Jim Rotolo for a nine-minute interview. (It won't be broadcast until the next day, though.)
 
-**2020:**
+**2020:**<br>
 
 [https://www.youtube.com/embed/D_RB4j0nS4A?feature=oembed](https://www.youtube.com/embed/D_RB4j0nS4A?feature=oembed)

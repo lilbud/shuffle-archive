@@ -126,7 +126,7 @@ In a town where life-altering decisions are made by those far removed from conse
 
 [Watch on Youtube: Bruce Springsteen- "The Wall" (Charlotte, NC 04/19/14)](https://www.youtube.com/watch?v=j3m0BXVKPu0)
 
-**The Wall**
+**The Wall**<br>
 **Recorded** Late 1990s  
 **Released:** *High Hopes* (2014)
 **First performed:** February 19, 2003 (Somerville, MA)

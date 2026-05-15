@@ -18,7 +18,7 @@ The late show was recorded, too–but only the first two songs have surfaced. Bu
 
 Bruce and the band enjoy their second day off in the Twin Cities (except for Roy, who has an ear infection). Bruce spends the evening playing pool and pinball at a bar called Zoogies, where he catches a local band called The Suburbs.
 
-**1981:**
+**1981:**<br>
 
 is released on VHS, the first collection of Bruce's music videos.
 
@@ -40,7 +40,7 @@ Bruce records "" at The Record Plant in Los Angeles.
 
 Bruce plays his final of four solo acoustic shows in Tokyo. He won't perform in Japan again (at least to date).
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/kHAishzR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kHAishzR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -58,7 +58,7 @@ a special benefit concert for the Sergeant Patrick King Memorial Fund, gathers B
 
 E Street Radio's limited-run engagement comes to an end on Sirius Satellite Radio, but it will return more than a year-and-a-half later.
 
-**2006:**
+**2006:**<br>
 
 Bruce wins the Grammy Award for Best Solo Rock Vocal Performance for "," the only one of his four nominations this year to earn him an award. Bruce was also nominated for Best Pop Collaboration with Vocals for "" with Rosanne Cash; Best Rock Song for "Working on a Dream," and Best Song Written for a Motion Picture for ""
 
@@ -88,11 +88,11 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and the E Street Band rehearse for their upcoming world tour opener at Amalie Arena in Tampa.
 
-**2023:**
+**2023:**<br>
 
 Adele Springsteen passes away at the age of 98 after a long battle with Alzheimer's disease. Bruce shares the news of his mother's death on Instagram.
 
-**2024:**
+**2024:**<br>
 
 
 

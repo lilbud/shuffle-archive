@@ -2,7 +2,7 @@
 
 Child opens for the James Cotton Band for three shows in one day at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -10,7 +10,7 @@ Child opens for the James Cotton Band for three shows in one day at the Pandemon
 
 The Sundance Blues Band plays The Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -18,7 +18,7 @@ The Sundance Blues Band plays The Student Prince in Asbury Park.
 
 Bruce and the E Street Band play two shows on their first of two nights at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -30,7 +30,7 @@ Bruce and the E Street Band play two shows on their first of two nights at The M
 
 Randy Brecker joins Bruce in the studio at The Record Plant in New York City, where he records his trumpet part for "The Heist," which will eventually be known as "Meeting Across the River."
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/saVNAWWYNIg?feature=oembed](https://www.youtube.com/embed/saVNAWWYNIg?feature=oembed)
 
@@ -40,7 +40,7 @@ Randy Brecker joins Bruce in the studio at The Record Plant in New York City, wh
 
 Bruce and the band close out their Chicken Scratch Tour with a show for the U.S. Naval Academy at Annapolis, where they play Frankie Ford's "Sea Cruise" for the first time.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -48,7 +48,7 @@ Bruce and the band close out their Chicken Scratch Tour with a show for the U.S.
 
 At 3am, Bruce and Mike Appel settle their legal dispute, finally freeing Bruce to record again. Appel retains 50% of the publishing rights over all songs recorded to date, but Bruce will own everything recorded henceforth. That night, Bruce and Steve see Elvis play in Philadelphia at the Spectrum.
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -60,7 +60,7 @@ At 3am, Bruce and Mike Appel settle their legal dispute, finally freeing Bruce t
 
 Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell's in Hoboken for the second day of filming for the video for "Glory Days."
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed](https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed)
 
@@ -76,25 +76,25 @@ and are both certified platinum by the Recording Industry Association of America
 
 Bruce's World Tour 1993 arrives in Stockholm, where the show is filmed for a never-released television event.
 
-**1993:**
+**1993:**<br>
 
 It's John Fogerty's 50th birthday, and Bruce Springsteen entertains at a party in John's living room (on or around this date). The set list features a one-off performance of what appears to be a previously unknown Springsteen composition called "Detail Man." It won't be released for another thirty years.
 
-**1995:**
+**1995:**<br>
 
 Bruce plays the second of two solo acoustic shows at Royal Albert Hall in London.
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/Twj9KBEciUg?feature=oembed](https://www.youtube.com/embed/Twj9KBEciUg?feature=oembed)
 
 Roy Bittan makes a guest appearance with Bruce and the Sessions Band at their show in Bristow, Virginia.
 
-**2006:**
+**2006:**<br>
 
 The Magic Tour stops at Old Trafford in Manchester.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/w_c_nZoxah8?feature=oembed](https://www.youtube.com/embed/w_c_nZoxah8?feature=oembed)
 
@@ -102,7 +102,7 @@ The Magic Tour stops at Old Trafford in Manchester.
 
 Bruce headlines Pinkpop for the second time, playing a festival set with a Garland Jeffreys guest appearance for "96 Tears" and Mumford & Sons for "Hungry Heart." The Mumford appearance is not pre-arranged, though–the band is shocked when Bruce beckons them on stage, and Marcus Mumford clearly doesn't know the words to the song (which he'll completely own up to with Jimmy Fallon years later–you can watch that below, too).
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/LNsrRseQG80?feature=oembed](https://www.youtube.com/embed/LNsrRseQG80?feature=oembed)
 
@@ -120,7 +120,7 @@ Bruce headlines Pinkpop for the second time, playing a festival set with a Garla
 
 The Wrecking Ball Tour moves to Hanover, Germany, where "Roll of the Dice" makes its tour premiere (in a rare acoustic arrangement) and "Drift Away" gets a rare outing.
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/u9U8Le7hz5Q?feature=oembed](https://www.youtube.com/embed/u9U8Le7hz5Q?feature=oembed)
 
@@ -132,7 +132,7 @@ The Wrecking Ball Tour moves to Hanover, Germany, where "Roll of the Dice" makes
 
 Bruce presents Pete Townshend with the MusiCares Stevie Ray Vaughan Award for his work supporting the foundation's efforts. Later, he joins Townshend and Roger Daltrey on stage for "My Generation" and "Won't Get Fooled Again."
 
-**2015:**
+**2015:**<br>
 
 [https://www.youtube.com/embed/tRF_BKq5xTk?feature=oembed](https://www.youtube.com/embed/tRF_BKq5xTk?feature=oembed)
 
@@ -144,4 +144,4 @@ Bruce presents Pete Townshend with the MusiCares Stevie Ray Vaughan Award for hi
 
 Bruce postpones his show in Prague due to vocal problems.
 
-**2024:**
+**2024:**<br>

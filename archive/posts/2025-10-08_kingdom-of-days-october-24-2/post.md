@@ -4,7 +4,7 @@
 
 Steel Mill is among the three top bands from a summer festival invited back to perform at the Municipal Auditorium in Nashville.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce and the E Street Band play a River Tour show at the Seattle Center Coliseu
 
 Bruce joins Joe Grushecky and the Houserockers for their show at Chicago's Park West. Check out the news coverage of the event.
 
-**1995:**
+**1995:**<br>
 
 [https://www.youtube.com/embed/q9oSaZz_ieg?feature=oembed](https://www.youtube.com/embed/q9oSaZz_ieg?feature=oembed)
 
@@ -36,7 +36,7 @@ Bruce joins Joe Grushecky and the Houserockers for their show at Chicago's Park 
 
 Bruce and the E Street Band bring the Rising Tour to the Globe Arena in Stockholm, where "Gloria" makes its tour debut.
 
-**2002:**
+**2002:**<br>
 
 [https://www.youtube.com/embed/WCY1_msUYPQ?feature=oembed](https://www.youtube.com/embed/WCY1_msUYPQ?feature=oembed)
 
@@ -46,7 +46,7 @@ Bruce and the E Street Band bring the Rising Tour to the Globe Arena in Stockhol
 
 Bruce plays a solo acoustic show at the Richmond Coliseum.
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/p7jZQXWrptE?feature=oembed](https://www.youtube.com/embed/p7jZQXWrptE?feature=oembed)
 
@@ -64,11 +64,11 @@ The Seeger Sessions Tour arrives in Barcelona, where Bruce tour premieres "" to 
 
 Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2017:**
+**2017:**<br>
 
 Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Tom Morello, Michael Moore, Lars Ulrich and Rob Trujilo.
 
-**2018:**
+**2018:**<br>
 
 
 
@@ -96,7 +96,7 @@ Bruce joins former President Barack Obama in a series of pre-recorded interviews
 
 Bruce performs at a rally for Vice President (and presidential candidate) Kamala Harris in Clarkston, Georgia.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/e7VnSexwcqw?feature=oembed](https://www.youtube.com/embed/e7VnSexwcqw?feature=oembed)
 

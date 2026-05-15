@@ -42,9 +42,9 @@ Because "The War Song" is so on the nose, there's not a lot I can add to what yo
 
 The last verse is a haunting one–Bruce clearly recognizes the need for those at home to press for change, or else sooner or later it'll be their turn, too.
 
-**The War Song**
-**Never recorded**
-**Never released**
+**The War Song**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** 1968 (unconfirmed)**Last performed:** 1968 (unconfirmed)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

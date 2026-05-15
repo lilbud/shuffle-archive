@@ -54,9 +54,9 @@ For all his "I can't take it" protests, it seems that's exactly what he's going 
 
 Not all of Bruce's protagonists need be virtuous–if that were so, we'd be deprived of some of his best work. But we expect to be able to empathize if not sympathize, and "I Can't Take It No More" fails on both counts.
 
-**I Can't Take It No More**
-**Never recorded**
-**Never released**
+**I Can't Take It No More**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** October 11, 1970 (Richmond, VA)
 **Last performed:** January 18, 1971 (South Amboy, NJ)
 

@@ -2,7 +2,7 @@
 
 Bruce and the not quite E Street Band play a poorly advertised (and therefore poorly attended) show at the New Jersey State Theater in New Brunswick. In attendance tonight: Penn Jillette.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -14,17 +14,17 @@ Bruce and the not quite E Street Band play a poorly advertised (and therefore po
 
 Bruce works on "Thunder Road" in the studio at the Record Plant in New York City.
 
-**1975:**
+**1975:**<br>
 
 Bruce finalizes the mix for "Ramrod" at Clover Studios in Los Angeles.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/BEhmiGQvjOY?feature=oembed](https://www.youtube.com/embed/BEhmiGQvjOY?feature=oembed)
 
 One night after debuting "Can't Help Falling in Love," Bruce opens his second show in Paris by premiering his cover/adaptation of "Follow That Dream." The encores include another world premiere: Bruce's first cover of "Sweet Soul Music."
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/isH0CoR8feg?feature=oembed](https://www.youtube.com/embed/isH0CoR8feg?feature=oembed)
 
@@ -32,7 +32,7 @@ One night after debuting "Can't Help Falling in Love," Bruce opens his second sh
 
 Bruce's tour of Japan moves from Tokyo to Kyoto for a night at Furitsu Taikukan.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/TVhMNdU8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/TVhMNdU8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -44,7 +44,7 @@ is certified 3x multi-platinum by the Recording Industry Association of America.
 
 Bruce brings his World Tour 1993 to Rotterdam for the first of two nights at Sportpaleis Ahoy. Watch the final encore of "Working on the Highway" below.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/9OJC24_OS6k?feature=oembed](https://www.youtube.com/embed/9OJC24_OS6k?feature=oembed)
 
@@ -68,7 +68,7 @@ Bruce plays a solo acoustic show in Berlin. Three songs from tonight's show ("Da
 
 At the first of two Reunion shows at the Fila Forum in Milan, fans witness the live debut of "Where the Bands Are." "Jungleland" makes its tour debut as well.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/DUFmXltd774?feature=oembed](https://www.youtube.com/embed/DUFmXltd774?feature=oembed)
 
@@ -86,7 +86,7 @@ At the first of two Reunion shows at the Fila Forum in Milan, fans witness the l
 
 The Canadian leg of the Rising Tour concludes with a show at Bell Center in Montreal, where "Hungry Heart" makes its tour debut. The set also features a solo piano "Incident on 57th Street."
 
-**2003:**
+**2003:**<br>
 
 [https://www.youtube.com/embed/JnFxl9G1hIw?feature=oembed](https://www.youtube.com/embed/JnFxl9G1hIw?feature=oembed)
 
@@ -102,7 +102,7 @@ The Canadian leg of the Rising Tour concludes with a show at Bell Center in Mont
 
 Bruce reschedules a scheduled show in Orlando due to the passing of Danny Federici.
 
-**2008:**
+**2008:**<br>
 
 
 

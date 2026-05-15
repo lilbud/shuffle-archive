@@ -26,7 +26,7 @@ Smith wouldn't release another album until 1978, but when she did it would inclu
 
 But that's a roll of the dice for another day.
 
-**Ain't It Strange**
+**Ain't It Strange**<br>
 **First performed:** November 26, 1976 (New York City, NY)<br>
 **Last performed:** November 26, 1976 (New York City, NY)<br>
 

@@ -16,7 +16,7 @@ Steel Mill records three Springsteen original songs ("," "," and "") at Pacific 
 
 Bruce's gig at the Santa Clara County Fairgrounds in San Jose is cancelled.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -32,7 +32,7 @@ Bruce and the E Street Band play the Milwaukee Auditorium, where an especially p
 
 Bruce and the band play the Carolina Coliseum in Columbia, South Carolina.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/SL4ZQMbz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SL4ZQMbz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -52,7 +52,7 @@ Alone in his home studio, Bruce records "" and "." It will be more than a decade
 
 Bruce plays his second of two solo acoustic shows in Paris.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/CN6bfARH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CN6bfARH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

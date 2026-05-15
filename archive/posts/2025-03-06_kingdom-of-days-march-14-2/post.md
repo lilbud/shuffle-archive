@@ -10,7 +10,7 @@ The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factor
 
 Bruce and the band play their third of seven nights at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -22,7 +22,7 @@ Extended studio sessions for prompt the postponement of a scheduled show in Atla
 
 The Lawsuit Tour moves on to the Mid-Hudson Civic Center in Poughkeepsie, New York.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/ihApRncvtLI?feature=oembed](https://www.youtube.com/embed/ihApRncvtLI?feature=oembed)
 
@@ -58,7 +58,7 @@ Night Two in Richfield for the Tunnel of Love Express Tour, where Bruce is moved
 
 Bruce plays a solo acoustic show at the Spektrum in Oslo.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/dKDhatIc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dKDhatIc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -84,7 +84,7 @@ Bruce returns a favor by inducting U2 into the Rock and Roll Hall of Fame; he la
 
 Bruce plays Omaha for the first time in 30 years when the Magic Tour stops at Qwest Center. Conor Oberst makes a guest-appearance on "Thunder Road." (It's not exactly a highlight.)
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/BVkxO-Szu1I?feature=oembed](https://www.youtube.com/embed/BVkxO-Szu1I?feature=oembed)
 
@@ -144,7 +144,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City, with a
 
 Bruce cancels his third consecutive show due to an undisclosed illness. His show at MVP Arena in Albany will be rescheduled but ultimately postponed yet again for illness.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/A5ODsZX-16U?feature=oembed](https://www.youtube.com/embed/A5ODsZX-16U?feature=oembed)
 

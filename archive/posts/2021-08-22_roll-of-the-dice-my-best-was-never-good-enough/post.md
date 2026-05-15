@@ -75,7 +75,7 @@ Still waters run deep.
 
 [Watch on Youtube: Bruce Springsteen - My Best Was Never Good Enough - Live 2005 (opening night) video](https://www.youtube.com/watch?v=TqJeHXifgLk)
 
-**My Best Was Never Good Enough**
+**My Best Was Never Good Enough**<br>
 **Recorded** March – August 1995  
 **Released:** *The Ghost of Tom Joad* (1995)
 **First performed:** November 21, 1995 (New Brunswick, NJ)

@@ -58,9 +58,9 @@ But while "Winter Song" may not be remarkable for its lyrics (or even its clever
 
 The entire effect is a haunting one, and "Winter Song" lingers in the memory long after it ends.
 
-**Winter Song**
+**Winter Song**<br>
 **Recorded** January 29-30, 1973  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

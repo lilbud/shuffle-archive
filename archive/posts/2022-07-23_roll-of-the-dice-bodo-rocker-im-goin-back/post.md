@@ -18,9 +18,9 @@ Recorded in late 1977, "BoDo Rocker" never had a prayer of making it onto [*Dark
 
 But I'd consider paying platinum prices to see them play it live on the next tour.
 
-**BoDo Rocker**
+**BoDo Rocker**<br>
 **Recorded:** October 14, 1977<br>
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

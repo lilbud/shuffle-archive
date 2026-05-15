@@ -16,7 +16,7 @@ Although first written it while Nash was a member of The Hollies, it was Crosby,
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Lwy6jhemprw)
 
-**Teach Your Children**
+**Teach Your Children**<br>
 **First performed:** October 13, 1986 (Mountain View, CA)
 **Last performed:** December 13, 2021 (New York City, NY)
 

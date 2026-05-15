@@ -27,7 +27,7 @@ That fleeting minute accounts for the only time that Bruce Springsteen and the E
 September 27, 2003 (Milwaukee, WI)
 September 27, 2003 (Milwaukee, WI)
 
-**Beer Barrel Polka**
+**Beer Barrel Polka**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

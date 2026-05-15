@@ -26,9 +26,9 @@ Sadly, Bruce and Joe have never performed "Comin' Down Maria" together, either w
 
 But as a studio track, it's an underappreciated jewel.
 
-**Comin' Down Maria**
+**Comin' Down Maria**<br>
 **Recorded:** July 1994<br>
 **Released:** *American Babylon* (1995)<br>
-**Never performed live**
+**Never performed live**<br>
 
 © September 5, 2021

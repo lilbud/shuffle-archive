@@ -74,9 +74,9 @@ Coincidence? Perhaps. But I suspect Bruce was haunted for years by a fear of wea
 
 [Watch on Youtube: Bruce Springsteen Untitled #3](https://www.youtube.com/watch?v=gi8uBv5C4A8)
 
-**Little White Lies**
+**Little White Lies**<br>
 **Recorded:** June 1, 1979  
 **Released:** *The Ties That Bind: The River Collection* (2015)
-**Never performed live**
+**Never performed live**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,7 +2,7 @@
 
 Bruce and the band open for NRBQ at Richards in Atlanta. The club accidentally promotes him as "Bruce Silversteen."
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -14,7 +14,7 @@ Bruce and the band open for NRBQ at Richards in Atlanta. The club accidentally p
 
 Bruce and the E Street Band play their second of two nights at Widener College.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/YKgTGmtQEps?feature=oembed](https://www.youtube.com/embed/YKgTGmtQEps?feature=oembed)
 
@@ -38,7 +38,7 @@ At the Palace Theater in Albany, it's opening night of the 1977 "Lawsuit" Tour t
 
 The River Tour (original version) stops at the University of Illinois in Champaign.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/E1mkvS5d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/E1mkvS5d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -50,7 +50,7 @@ The River Tour (original version) stops at the University of Illinois in Champai
 
 Bruce's expired American Express card is sold for $4,500 in New York City. Bruce had gifted it to a restaurant waiter in Los Angeles.
 
-**1996:**
+**1996:**<br>
 
 
 
@@ -62,7 +62,7 @@ Bruce's expired American Express card is sold for $4,500 in New York City. Bruce
 
 Bruce's solo acoustic tour moves on to Sydney for the first of five nights at the Capitol Theater.
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/xKJksdPP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xKJksdPP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -70,7 +70,7 @@ Bruce's solo acoustic tour moves on to Sydney for the first of five nights at th
 
 During a reading event for Black History Month, Bruce recites "We Wear the Mask," a poem by Paul Lawrence Dunbar at the Count Basie Learning Center in Red Bank, New Jersey.
 
-**1998:**
+**1998:**<br>
 
 We wear the mask that grins and lies,
 

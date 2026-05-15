@@ -4,7 +4,7 @@
 
 Child plays their fifth of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -12,7 +12,7 @@ Child plays their fifth of six consecutive nights at the Pandemonium in Wanamass
 
 Bruce and the as-yet-unnamed E Street band play their second of six consecutive two-shows-nightly gigs at Max's Kansas City in New York, with The Wailers as the opening act.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce and the as-yet-unnamed E Street band play their second of six consecutive 
 
 Bruce's gig on the lineup of the Ozark Music Festival in Sedalia, Missouri is cancelled. Instead, he plays a gig at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -44,7 +44,7 @@ With the opening show of the Born to Run Tour only a day away, and final product
 
 Bruce and the band bring the Darkness Tour to Ellis Auditorium in Memphis.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -52,7 +52,7 @@ Bruce and the band bring the Darkness Tour to Ellis Auditorium in Memphis.
 
 Bruce and the E Street Band wrap up a five-night stand at the Spectrum in Philadelphia on the original River Tour.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/PEuZpNb0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PEuZpNb0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -84,12 +84,12 @@ At his home in Colts Neck, Bruce performs and records "." The edited footage wil
 
 The final European stand of the Magic Tour begins at Camp Nou in Barcelona.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/w6hAS6cFAmM?feature=oembed](https://www.youtube.com/embed/w6hAS6cFAmM?feature=oembed)
 
 "My City of Ruins" comes out for the first and only time on the Working on a Dream Tour when Bruce and the band play a show at Stadio Olimpico in Rome, a dedication to the town of L'Aquila that was devastated by an earthquake that spring.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/OrRBwm29ONU?feature=oembed](https://www.youtube.com/embed/OrRBwm29ONU?feature=oembed)

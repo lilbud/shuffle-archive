@@ -2,7 +2,7 @@
 
 Child plays a gig at Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -10,11 +10,11 @@ Child plays a gig at Pandemonium in Wanamassa, New Jersey.
 
 The Sundance Blues Band plays The Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 Bruce and the E Street Band play two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band play two shows at The Main Point in Bryn Mawr, Penns
 
 The still-young Darkness Tour reaches Boston for the first of three nights. This show features the first segue of "Racing in the Street" into "Thunder Road," which will remain a staple of the set for the remainder of the tour. The J. Geils Band is in attendance tonight, and Peter Wolf hangs out with Bruce and the band after the show.
 
-**1978:**
+**1978:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-29.jpg?resize=506%2C962&amp;ssl=1)
 
@@ -36,13 +36,13 @@ The still-young Darkness Tour reaches Boston for the first of three nights. This
 
 Bruce and the E Street Band work on "Point Blank" and "Independence Day" at the Power Station in New York City.
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/tHkii-j_Cac?feature=oembed](https://www.youtube.com/embed/tHkii-j_Cac?feature=oembed)
 
 At the first of six River shows at London's Wembley Arena, Bruce performs "Trapped" for the very first time.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/RpGVwh0NkY4?feature=oembed](https://www.youtube.com/embed/RpGVwh0NkY4?feature=oembed)
 
@@ -54,13 +54,13 @@ At the first of six River shows at London's Wembley Arena, Bruce performs "Trapp
 
 Bruce and Southside Johnny join Beaver Brown on stage at Big Man's West in Red Bank.
 
-**1982:**
+**1982:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1982-05-29.jpg?resize=758%2C495&amp;ssl=1)
 
 The town of Freehold cancels the permit for a planned Jersey Artists for Mankind outdoor benefit show when a rumor spread that Bruce would appear. The small park can't hold the expected throngs, so the town cancels the event.
 
-**1986:**
+**1986:**<br>
 
 
 
@@ -76,11 +76,11 @@ reports that Bruce and Patti will marry on June 9th, according to a mysterious s
 
 Bruce hires Gia Ciambotti, Carol Dennis, Cleo Kennedy, and Angel Rogers as backup singers for his upcoming World Tour.
 
-**1992:**
+**1992:**<br>
 
 Bruce makes one of his most unusual guest appearances with The Rock Bottom Remainders, a band comprised entirely of famous authors, including Stephen King, Amy Tan, Matt Groening, and others at a booksellers convention in Hollywood. Bruce joins the motley crew for "Gloria."
 
-**1994:**
+**1994:**<br>
 
 [https://www.youtube.com/embed/c1wzfR82-7c?feature=oembed](https://www.youtube.com/embed/c1wzfR82-7c?feature=oembed)
 
@@ -90,7 +90,7 @@ Bruce makes one of his most unusual guest appearances with The Rock Bottom Remai
 
 Bruce and the E Street Band deliver a typical Night One show at the first of two Reunion shows in Berlin.
 
-**1999:**
+**1999:**<br>
 
 When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays "d" for the first time in 19 years.
 
@@ -104,13 +104,13 @@ When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays "
 
 Bruce and the E Street Band play a single Rising show at the Old Trafford Cricket Ground in Manchester, featuring rare performances of "Loose Ends" and "4th of July, Asbury Park (Sandy)."
 
-**2003:**
+**2003:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDMU0AazrmXfyJGJHtVPaic](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDMU0AazrmXfyJGJHtVPaic)
 
 Bruce makes a guest appearance on "Tumbling Dice" with The Rolling Stones at Rock in Rio in Lisbon.
 
-**2014:**
+**2014:**<br>
 
 [https://www.youtube.com/embed/YQ9a6lh9sps?feature=oembed](https://www.youtube.com/embed/YQ9a6lh9sps?feature=oembed)
 
@@ -132,7 +132,7 @@ Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acou
 
 Bruce makes one of his strangest pandemic appearances, remotely joining Dropkick Murphys on "Rose Tattoo" and "American Land" in their empty stadium performance at Fenway Park.
 
-**2020:**
+**2020:**<br>
 
 [https://www.youtube.com/embed/0I4SBPyGD9g?feature=oembed](https://www.youtube.com/embed/0I4SBPyGD9g?feature=oembed)
 

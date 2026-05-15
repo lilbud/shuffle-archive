@@ -4,7 +4,7 @@
 
 Steel Mill (or as the poster puts it, "Child under an assumed name") headlines at Monmouth College in West Long Branch, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -16,7 +16,7 @@ Steel Mill (or as the poster puts it, "Child under an assumed name") headlines a
 
 Steel Mill replaces scheduled headliner Flock at Asbury Park's Sunshine In when flight delays force to cancel at the last minute, leaving the local press to scratch their heads at why Bruce and company are settling for fill-in status.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -24,7 +24,7 @@ Steel Mill replaces scheduled headliner Flock at Asbury Park's Sunshine In when 
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -58,7 +58,7 @@ is certified platinum by the Recording Industry Association of America. That eve
 
 Bruce brings his solo acoustic tour to the Beacon Theater in New York City for the first of three nights.
 
-**1995:**
+**1995:**<br>
 
 [https://www.youtube.com/embed/zunmq9enbZs?feature=oembed](https://www.youtube.com/embed/zunmq9enbZs?feature=oembed)
 
@@ -66,7 +66,7 @@ Bruce brings his solo acoustic tour to the Beacon Theater in New York City for t
 
 Patti and Soozie make several guest appearances throughout Bruce's solo acoustic show at Ryman Auditorium in Nashville. In attendance tonight: Emmylou Harris, Mary Chapin Carpenter, and Amy Grant.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/uosEtWY7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uosEtWY7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -74,7 +74,7 @@ Patti and Soozie make several guest appearances throughout Bruce's solo acoustic
 
 Bruce closes the show at Bobby Bandiera's All-Star Holiday Concert at the Count Basie Theater in Red Bank, joining Bobby's band, Southside Johnny and the Asbury Jukes, Jon Bon Jovi, The Grinch, and some muppets for some holiday fun.
 
-**2006:**
+**2006:**<br>
 
 [https://videopress.com/embed/4ERUSA81?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4ERUSA81?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -88,7 +88,7 @@ Bruce closes the show at Bobby Bandiera's All-Star Holiday Concert at the Count 
 
 Bruce tour premieres "Because the Night" at his Magic Tour stop in Antwerp.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/0O-p-K2tO9k?feature=oembed](https://www.youtube.com/embed/0O-p-K2tO9k?feature=oembed)
 
@@ -96,7 +96,7 @@ Bruce tour premieres "Because the Night" at his Magic Tour stop in Antwerp.
 
 Bruce takes his daughter Jessica and friends to the Z100 Jingle Ball at Madison Square Garden and meets Lady Gaga for the first time backstage.
 
-**2008:**
+**2008:**<br>
 
 Bruce and the E Street Band join a line-up of stellar talent at Madison Square Garden for a benefit show to help the Robin Hood Relief Fund for Hurricane Sandy victims in the tri-state area. The show is televised and streamed, starting with Bruce's opening four-song set (including "Born to Run" with a Jon Bon Jovi guest appearance) and Bruce's guest-star turn with Bon Jovi (on "") during his set.
 
@@ -142,7 +142,7 @@ Still in the midst of the pandemic, Bruce and most of the E Street Band (minus G
 
 Bruce's scheduled show in San Francisco (already postponed once this year) is moved again to the following March due to his peptic ulcer disease.
 
-**2023:**
+**2023:**<br>
 
 Bruce drops by the set of filming today at Convention Hall in Asbury Park.
 

@@ -12,9 +12,9 @@ It would have been interesting to hear this one develop; I think it might have b
 
 But unfortunately, these two *very* rough and early takes are the only insight we have in to what could have grown into a terrific song if Bruce had only pursued it.
 
-**Love's Gonna Be Tonight**
+**Love's Gonna Be Tonight**<br>
 **Recorded:** Autumn 1979 (demo only)<br>
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

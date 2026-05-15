@@ -12,7 +12,7 @@ A scheduled gig at Syracuse University is cancelled to make room for production 
 
 Bruce and the E Street Band play their second of two shows at the Houston Music Hall, where they play "A Love So Fine" for the very last time (at least until it's resurrected as "So Young and in Love" in the post-Reunion era).
 
-**1975:**
+**1975:**<br>
 
 Bruce and the E Street Band record "" at The Record Plant in New York City. It will remain in the vault for 33 years until Bruce unearths, completes, and releases it on 
 
@@ -36,7 +36,7 @@ Bruce and the E Street Band record "" at The Hit Factory in New York City. It wi
 
 On Night Three (of six) at the Philadelphia Spectrum on the Born in the U.S.A. Tour, the Miami Horns make a guest appearance.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/6QxyksVy-B4?feature=oembed](https://www.youtube.com/embed/6QxyksVy-B4?feature=oembed)
 
@@ -46,7 +46,7 @@ On Night Three (of six) at the Philadelphia Spectrum on the Born in the U.S.A. T
 
 Bruce and the band play their second of two nights at the Cotton Bowl in Dallas.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/n88PAnzZHZo?feature=oembed](https://www.youtube.com/embed/n88PAnzZHZo?feature=oembed)
 
@@ -84,7 +84,7 @@ At his Rising show in Chapel Hill, Bruce finally starts acknowledging his TOL/HT
 
 Bruce and the E Street Band rehearse for their upcoming Magic Tour at Asbury Park's Convention Hall.
 
-**2007:**
+**2007:**<br>
 
 As part of the promotional push for the upcoming box set, , Bruce attends the Toronto International Film Festival for the premiere of the documentary . Before the screening, actor Ed Norton interviews Bruce on stage.
 
@@ -114,7 +114,7 @@ The Wrecking Ball Tour continues its South American leg with a stop in Buenos Ai
 
 The revived River Tour wraps up at Gillette Stadium in Foxborough. The "autobiography" theme continues, but there are surprisingly few surprises. "Rockin' All Over the World" is the final tour premiere, and Peter Wolf makes his customary Boston appearance. Bruce delivered a special thank you message to his fans via E Street Radio.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/8trmabdlJeI?feature=oembed](https://www.youtube.com/embed/8trmabdlJeI?feature=oembed)
 
@@ -128,11 +128,11 @@ The revived River Tour wraps up at Gillette Stadium in Foxborough. The "autobiog
 
 Bruce's scheduled show in Pittsburgh is postponed by almost a year due to his peptic ulcer disease.
 
-**2023:**
+**2023:**<br>
 
 Bruce and Jake drop by The Stone Pony, joining Danny Clinch and the Tangiers Blues Band at their Sea Hear Now afterparty.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/vRPmTQSksNg?feature=oembed](https://www.youtube.com/embed/vRPmTQSksNg?feature=oembed)
 

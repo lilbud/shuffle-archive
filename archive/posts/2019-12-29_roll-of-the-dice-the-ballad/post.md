@@ -33,9 +33,9 @@ I've used "cast alone" below, which works, but it's a bit clumsy and I suspect B
 
 It's probably best not to spend too much time obsessing over the lyrics–more likely than not, many of them are bluffed per Bruce's habit while working on new material. But the thrust of the song is clear: "The Ballad" follows a lonely heartbroken man, doomed to wander the land in search of a lost love.
 
-**The Ballad**
+**The Ballad**<br>
 **Recorded** October 14, 1977  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

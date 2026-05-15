@@ -58,7 +58,7 @@ Wolfgang Niedecken joins Bruce and the Sessions Band for "" in Frankfurt.
 
 Bruce joins Mike Ness on stage at The Stone Pony.
 
-**2008:**
+**2008:**<br>
 
 
 

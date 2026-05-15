@@ -89,6 +89,6 @@ Bruce has never performed "Two Hearts in True Waltz Time" in concert. We can onl
 **Two Hearts in True Waltz Time**  
 **Recorded:** May 3, 1972 and June 27-29, 1972  
 **Never released**  
-**Never performed**
+**Never performed**<br>
 
 © September 10, 2019

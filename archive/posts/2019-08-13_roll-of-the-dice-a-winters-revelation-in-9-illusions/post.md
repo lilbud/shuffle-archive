@@ -79,8 +79,8 @@ We can clearly see what Bruce was aiming for, and it would have been a neat tric
 
 But of course we know he would be before long.
 
-**A Winter's Revelation (In 9 Illusions)**
-**Never recorded**
-**Never performed**
+**A Winter's Revelation (In 9 Illusions)**<br>
+**Never recorded**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

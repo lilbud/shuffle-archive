@@ -4,7 +4,7 @@
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 Bruce and the E Street Band open for Blood, Sweat & Tears at Berkeley Community Theater.
 
-**1973:**
+**1973:**<br>
 
 [https://www.youtube.com/embed/iGvbEvZtK1Q?feature=oembed](https://www.youtube.com/embed/iGvbEvZtK1Q?feature=oembed)
 
@@ -24,7 +24,7 @@ Bruce and the E Street Band open for Blood, Sweat & Tears at Berkeley Community 
 
 Bruce cancels a show in Parsippany, New Jersey due to illness.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -36,7 +36,7 @@ Another cancellation, this one in Syracuse, due to a conflict with mixing sessio
 
 The Lawsuit Tour makes its way to Atlanta's Civic Center Auditorium.
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -48,7 +48,7 @@ The Lawsuit Tour makes its way to Atlanta's Civic Center Auditorium.
 
 The River Tour moves on to the Hampton Roads Coliseum in Hampton, Virginia.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/1tSamoBy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1tSamoBy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -56,7 +56,7 @@ The River Tour moves on to the Hampton Roads Coliseum in Hampton, Virginia.
 
 A rare "E Street Sneak Attack" as the entire band (minus Roy) plays a set at The Stone Pony, where standard songs are given new life with extended jams and solos.
 
-**1986:**
+**1986:**<br>
 
 [https://videopress.com/embed/cfkCcj42?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cfkCcj42?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -72,7 +72,7 @@ Bruce wins the Best Rock Vocal Performance (Solo) Grammy Award for "" Although h
 
 Bruce plays a solo acoustic show at City Hall in Newcastle, England.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/ZMVCQBKw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZMVCQBKw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -84,7 +84,7 @@ Bruce plays a solo acoustic show at City Hall in Newcastle, England.
 
 Bruce joins Joe Grushecky and the Houserockers for a set at Nick's Fat City in Pittsburgh.
 
-**1998:**
+**1998:**<br>
 
 [https://videopress.com/embed/4T7qarfJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4T7qarfJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -142,7 +142,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 For the first time since the tour's opening week, the entire E Street Band is on stage and COVID-free, as Bruce's 2023 World Tour makes a stop at Ball Arena in Denver. Earlier in the day, Bruce stops into a Peruvian goods shop in Larimer Square.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/g5oP1quX97Q?feature=oembed](https://www.youtube.com/embed/g5oP1quX97Q?feature=oembed)
 

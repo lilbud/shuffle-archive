@@ -18,6 +18,6 @@ Generation after generation, socially conscious performers have kept the song al
 
 ...and most recently–but not finally–Bruce's performance on the High Hopes Tour. The song lives on because the need for it lives on. "Joe Hill" remains a powerful reminder of the importance of collective action and fortitude for workers who fight for fairness.
 
-**Joe Hill**
+**Joe Hill**<br>
 **First performed:** May 1, 2014 (Tampa, FL)<br>
 **Last performed:** May 1, 2014 (Tampa, FL)<br>

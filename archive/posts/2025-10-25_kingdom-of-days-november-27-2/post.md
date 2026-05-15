@@ -4,7 +4,7 @@
 
 Nine-year-old Bruce Springsteen celebrates Thanksgiving with his family. (Can you spot him?)
 
-**1958:**
+**1958:**<br>
 
 
 
@@ -12,7 +12,7 @@ Nine-year-old Bruce Springsteen celebrates Thanksgiving with his family. (Can yo
 
 Steel Mill opens for two Cactus and Black Sabbath shows at Asbury Park's Sunshine In.
 
-**1970:**
+**1970:**<br>
 
 [https://www.youtube.com/embed/uZV-rKsHjEg?feature=oembed](https://www.youtube.com/embed/uZV-rKsHjEg?feature=oembed)
 
@@ -22,7 +22,7 @@ Steel Mill opens for two Cactus and Black Sabbath shows at Asbury Park's Sunshin
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -54,7 +54,7 @@ Bruce plays a Thanksgiving Day concert at Madison Square Garden in New York City
 
 Bruce joins Jimmy and The Mustangs on stage at Club Lingerie in Hollywood for "Twist and Shout."
 
-**1982:**
+**1982:**<br>
 
 
 

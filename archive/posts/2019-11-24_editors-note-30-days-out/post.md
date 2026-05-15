@@ -12,11 +12,11 @@ I also thought I'd answer a few questions that I've received via e-mail, the fee
 
 No, I don't think they make dice with hundreds of sides. But I do keep it random by using Google's random number generator. I like the surprise of not knowing what song is coming next, and it forces me to re-listen and really think about each song before writing. The only "Roll of the Dice" post that I cheated on was the first one–I wanted to start with a song that was meaningful to me. From there on out, it's random.
 
-**Do I really roll dice to figure out what song to write about next?**
+**Do I really roll dice to figure out what song to write about next?**<br>
 
 ? I think so. Getting a head start helped, and writing at least 80% of the week's posts in the wee hours of the preceding weekend has helped me stay ahead of the calendar. As I write this, I'm still six days ahead of schedule, so fingers crossed for staying there.
 
-**Can I keep up the steady pace of content**
+**Can I keep up the steady pace of content**<br>
 
 ? Because there so many covers. Seriously, it was an effort cataloging the hundreds of songs that Bruce has penned or performed (I still have almost 1,400 in my list, so I don't think I'll run out of material any time soon). I can't even begin to wrap my head around how many covers of Bruce's songs there are by other artists–the list is crazy long. It's also a fun way to keep content coming while I'm thinking about the longer analysis pieces, and I enjoy seeing how other artists interpret Bruce's music. I hope you're enjoying them, too. If you have favorites or obscure ones, please send them my way.
 

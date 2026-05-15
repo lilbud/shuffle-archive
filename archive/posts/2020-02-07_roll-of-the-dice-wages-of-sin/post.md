@@ -134,7 +134,7 @@ The wider array of musicians and instruments on the stage presented Bruce with t
 
 [Watch on Youtube: Bruce Springsteen - "Wages of Sin" (Turku 05/08/13)](https://www.youtube.com/watch?v=cVVeytSe2wc)
 
-**Bonus:**
+**Bonus:**<br>
 
 If you're wondering why Bruce chose to break out such an obscurity that night in Turku, it's because it was a dedication to a loyal fan–Bruce acknowledged him just before playing the song. And if you're wondering why that part was cut out of the official video, watch the fan-filmed clip below (thanks, Dan!) and you'll quickly realize.
 
@@ -142,7 +142,7 @@ If you're wondering why Bruce chose to break out such an obscurity that night in
 
 Sometimes it ain't glamorous to be in the pit.
 
-**Wages of Sin**
+**Wages of Sin**<br>
 **Recorded:** May 10, 1982  
 **Released:** *Tracks* (1998)
 **First performed:** May 8, 2013 (Turku, Finland)

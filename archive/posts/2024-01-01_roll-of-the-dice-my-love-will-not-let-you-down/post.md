@@ -88,7 +88,7 @@ No surprise that Bruce opened his first U.S. reunion show with the E Street Band
 
 [Watch on Youtube: my love will not let you down & The promised land - (u.s tour opener reunion ) bruce springsteen](https://www.youtube.com/watch?v=i0gycxFYxiA)
 
-**My Love Will Not Let You Down**
+**My Love Will Not Let You Down**<br>
 **Recorded:** May 5, 1982  
 **Released:** *Tracks* (1998), *18 Tracks* (1999), *Live in New York City* (2001)
 **First performed:** March 18, 1999 (Asbury Park, NJ)

@@ -36,6 +36,6 @@ But it wasn't until 2003 that fans got to hear Bruce sing "Mystery Train" with t
 
 Why did it take so long for Bruce to cover a song he'd quoted, excerpted, and mashed up so many times? And why hasn't he played it since? It's a... well, you know.
 
-**Mystery Train**
+**Mystery Train**<br>
 **First performed:** April 12, 1995 (New York City, NY)<br>
 **Last performed:** August 1, 2003 (Foxborough, MA)<br>

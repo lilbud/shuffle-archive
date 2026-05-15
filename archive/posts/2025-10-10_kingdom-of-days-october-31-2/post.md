@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band plays a Halloween show at the National Guard Armory in Long Branch, New Jersey. The band will scale down following this show, losing members Delores Holmes, Francine Daniels and Bobby Feigenbaum.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -16,7 +16,7 @@ The Bruce Springsteen Band plays a Halloween show at the National Guard Armory i
 
 Bruce and the band headline two shows on their last of three nights at The Main Point, in Bryn Mawr, Pennsylvania.
 
-**1973:**
+**1973:**<br>
 
 [https://videopress.com/embed/EV8aeqkx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/EV8aeqkx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -26,7 +26,7 @@ Bruce and the band headline two shows on their last of three nights at The Main 
 
 Bruce and the boys play a marathon show (two and a half hours) at the Paramount Theater in Oakland on the Born to Run Tour.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -116,7 +116,7 @@ Bruce joins Howard Stern for a long, insightful interview at SiriusXM Studio in 
 
 Bruce and the E Street Band kick off the Canadian leg of World Tour '24 in Montreal with a live premiere appropriate for a Halloween show: a cover of the 1984 hit single, "Ghostbusters."
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/c-vpHs9FiRQ?feature=oembed](https://www.youtube.com/embed/c-vpHs9FiRQ?feature=oembed)
 

@@ -8,7 +8,7 @@ The latter performance in particular features some lovely guitar work from Bruce
 
 [https://www.youtube.com/embed/uoZE3iJKs8g?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/uoZE3iJKs8g?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**Our Lady of the Well**
+**Our Lady of the Well**<br>
 **First performed:** September 22, 2015 (Red Bank, NJ)<br>
 **Last performed:** September 21, 2017 (Holmdel, NJ)<br>
 

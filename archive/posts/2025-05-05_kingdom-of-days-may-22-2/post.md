@@ -12,7 +12,7 @@ Bruce and the E Street Band work on "" at the Power Station in New York City.
 
 Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
 
-**1984:**
+**1984:**<br>
 
 : Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of "" as the final encore.
 
@@ -26,7 +26,7 @@ Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at
 
 Bruce's World Tour 1993 makes a stop at The National Bowl in Milton Keynes, England.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/rycHB4XH76w?feature=oembed](https://www.youtube.com/embed/rycHB4XH76w?feature=oembed)
 
@@ -44,7 +44,7 @@ Bruce's World Tour 1993 makes a stop at The National Bowl in Milton Keynes, Engl
 
 Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the true highlight from this date happens afterward: the crowd sticks around outside the theater and sings "O Sole Mio"(which Bruce performed briefly during the show), prompting Bruce to appear on the theater's balcony with Kevin Buell to play and lead the crowd in a sing-along of "Thunder Road." Watch this moment–it's magical.
 
-**1997:**
+**1997:**<br>
 
 [https://www.youtube.com/embed/zij-yhyGwO4?feature=oembed](https://www.youtube.com/embed/zij-yhyGwO4?feature=oembed)
 
@@ -66,7 +66,7 @@ The E Street Band plays "" for the very first time and tour premieres "" at the 
 
 The Rising Tour stops at Arena Aufschalke in Gelsenkirchen, Germany.
 
-**2003:**
+**2003:**<br>
 
 [https://www.youtube.com/embed/3dchRxgo_aE?feature=oembed](https://www.youtube.com/embed/3dchRxgo_aE?feature=oembed)
 
@@ -74,7 +74,7 @@ The Rising Tour stops at Arena Aufschalke in Gelsenkirchen, Germany.
 
 The second European leg of the Magic Tour kicks off with the first of three shows at RDS Arena in Dublin.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/nmlnbQp2mtk?feature=oembed](https://www.youtube.com/embed/nmlnbQp2mtk?feature=oembed)
 
@@ -84,7 +84,7 @@ The second European leg of the Magic Tour kicks off with the first of three show
 
 : Bruce and Patti perform at a benefit show (along with Jon Stewart) for Gateway Schools at the Nokia Theater in New York City.
 
-**2010**
+**2010**<br>
 
 Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers for the first of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh. The show features an eclectic mix of Bruce and Joe songs, featuring surprising acoustic performances of "," "," "," "," and "," along with the world premiere of "."
 

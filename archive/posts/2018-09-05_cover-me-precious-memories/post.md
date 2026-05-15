@@ -17,4 +17,4 @@ but given Bruce's country-ish arrangement, it's possible that Willie Nelson's ve
 In any event, as far as we know, Bruce never recorded "Precious Memories" in full and has never covered it live, so we're left to wonder what he might have done with it with a band as talented as he assembled for the Seeger Sessions.
 
 **Precious Memories****Recorded:** September-December 1981 (demo only)<br>
-**Never performed live**
+**Never performed live**<br>

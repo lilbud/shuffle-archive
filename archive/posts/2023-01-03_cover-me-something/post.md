@@ -27,7 +27,7 @@ To this day, it remains the only time Bruce has covered "Something" in concert.
 December 3, 2001 (Asbury Park, NJ)
 December 3, 2001 (Asbury Park, NJ)
 
-**Something**
+**Something**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

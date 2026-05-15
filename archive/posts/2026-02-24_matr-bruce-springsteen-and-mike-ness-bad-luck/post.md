@@ -14,7 +14,7 @@ Six years after Ness' last E Street stage appearance, Bruce returned the favor w
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=imPrGD5RIT8)
 
-**Bad Luck**
+**Bad Luck**<br>
 **First performed:** April 16, 2009 (Los Angeles, CA)<br>
 **Last performed:** September 30, 2018 (Asbury Park, NJ)<br>
 

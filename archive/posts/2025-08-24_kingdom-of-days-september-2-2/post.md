@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band play two shows at Fat City in Seaside Heights, New Jersey.
 
-**1973:**
+**1973:**<br>
 
 Bruce records "Candy's Boy" at The Record Plant in New York City. It will remain in the vault for more than three decades before finally enjoying an official release on .
 
@@ -14,7 +14,7 @@ Bruce records "Candy's Boy" at The Record Plant in New York City. It will remain
 
 Bruce meets Bob Seger for the first time at Seger's gig at the Pine Knob Music Theater in Clarkston, Michigan. (Bruce is in between Michigan tour stops.) After the show, Bruce and Bob spend time backstage talking and singing.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce meets Bob Seger for the first time at Seger's gig at the Pine Knob Music T
 
 Bruce and the E Street Band record "From Small Things (Big Things One Day Come)" at The Power Station in New York City. It will remain in the vault for for 24 years.
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/N8qL5_iWWag?feature=oembed](https://www.youtube.com/embed/N8qL5_iWWag?feature=oembed)
 
@@ -56,7 +56,7 @@ The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebra
 
 Bruce's World Tour 1992 arrives at the World Music Theater in Tinley Park, Illinois for the first of two nights.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/KSH6dQTI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KSH6dQTI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -64,7 +64,7 @@ Bruce's World Tour 1992 arrives at the World Music Theater in Tinley Park, Illin
 
 The Rock and Roll Hall of Fame celebrates its opening with an inaugural concert in Cleveland, and Bruce and the E Street Band are on hand to perform, joining Chuck Berry…
 
-**1995:**
+**1995:**<br>
 
 [https://www.youtube.com/embed/6swgiM9vSEE?feature=oembed](https://www.youtube.com/embed/6swgiM9vSEE?feature=oembed)
 

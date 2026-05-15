@@ -4,7 +4,7 @@
 
 The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a show at Stadio Comunale in Turin that features the tour premiere of "Because the Night."
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/Q9KzCea1pas?feature=oembed](https://www.youtube.com/embed/Q9KzCea1pas?feature=oembed)
 
@@ -20,7 +20,7 @@ The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a 
 
 Bruce and the reunited E Street Band make a tour stop in Genoa, Italy.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/2-7fj8Of7ok?feature=oembed](https://www.youtube.com/embed/2-7fj8Of7ok?feature=oembed)
 
@@ -38,7 +38,7 @@ Bruce and the reunited E Street Band make a tour stop in Genoa, Italy.
 
 A scheduled solo acoustic show in Hamburg is rescheduled after Terry Magovern's fiancée passes away.
 
-**2005:**
+**2005:**<br>
 
 The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where "" makes its American premiere.
 
@@ -50,7 +50,7 @@ The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where "" makes
 
 Bruce joins Jackson Browne, Tom Chapin, and others at a World Hunger Year benefit at The Lighthouse at Chelsea Piers in New York City.
 
-**2007:**
+**2007:**<br>
 
 
 
@@ -58,7 +58,7 @@ Bruce joins Jackson Browne, Tom Chapin, and others at a World Hunger Year benefi
 
 Elliott Murphy guest-stars in Trieste at the last Italian show of the 2012 tour.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/PTyyLZXTepw?feature=oembed](https://www.youtube.com/embed/PTyyLZXTepw?feature=oembed)
 

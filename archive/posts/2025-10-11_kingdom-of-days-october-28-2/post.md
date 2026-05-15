@@ -4,7 +4,7 @@
 
 The still-unnamed E Street Band makes its concert debut as the Greetings from Asbury Park Tour kicks off with Bruce's first-ever show in Pennsylvania, where they open for Cheech & Chong at West Chester College. Bruce was a late addition by the school, and Cheech & Chong's manager does not approve. He forces the school to end Bruce's set early.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -12,7 +12,7 @@ The still-unnamed E Street Band makes its concert debut as the Greetings from As
 
 Bruce and the E Street Band kick off a six-night stand at the Palladium in New York City.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/6AK0OSiwTLY?feature=oembed](https://www.youtube.com/embed/6AK0OSiwTLY?feature=oembed)
 
@@ -30,7 +30,7 @@ Bruce and the E Street Band play their second of two River Tour shows at the Oak
 
 Bruce and the band play their third of seven Born in the U.S.A. shows at the Los Angeles Memorial Sports Arena, where "Rosalita (Come Out Tonight)" comes out for the last time that year.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLtpvdiAyDM3k5rGFkr4rI4vs8woORxaap](https://www.youtube.com/embed/videoseries?list=PLtpvdiAyDM3k5rGFkr4rI4vs8woORxaap)
 
@@ -40,7 +40,7 @@ Bruce and the band play their third of seven Born in the U.S.A. shows at the Los
 
 Bruce takes ill with a sore throat and postpones his scheduled show in St. Louis to December.
 
-**1992:**
+**1992:**<br>
 
 
 
@@ -114,13 +114,13 @@ Bruce's solo acoustic show at the TD Banknorth Garden in Boston is filmed but re
 
 Bruce and the Sessions Band play a show at Parken Stadium in Copenhagen.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/zkkKwFbjnsA?feature=oembed](https://www.youtube.com/embed/zkkKwFbjnsA?feature=oembed)
 
 Bruce and the E Street Band rehearse their set for the Rock and Roll Hall of Fame 25th Anniversary concerts with Sam Moore, John Fogerty, and Tom Morello at Sir Studios in New York City.
 
-**2009:**
+**2009:**<br>
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

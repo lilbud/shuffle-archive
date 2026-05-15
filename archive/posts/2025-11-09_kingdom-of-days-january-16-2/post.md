@@ -2,17 +2,17 @@
 
 Bruce and the not-yet-named E Street Band play Villanova University in a 150-seat auditorium more than two-thirds unfilled. (The school newspaper is on strike, so the concert goes unadvertised.) Imagine an E Street Band concert in front of no more than fifty people!
 
-**1973:**
+**1973:**<br>
 
 At his home studio in Holmdel, Bruce rehearses "Stolen Car" with the E Street Band in advance of their upcoming recording sessions.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/kWOtThJaDDE?feature=oembed](https://www.youtube.com/embed/kWOtThJaDDE?feature=oembed)
 
 The second of two shows at the Coliseum in Charlotte, North Carolina. Watch one hour of the show in great video quality (given the age of the footage and the equipment) below.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/6A3wRNSs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6A3wRNSs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -28,7 +28,7 @@ The second of two shows at the Coliseum in Charlotte, North Carolina. Watch one 
 
 Bruce plays the first of two acoustic shows at the Cleveland Music Hall.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/2E-56z8JzcI?feature=oembed](https://www.youtube.com/embed/2E-56z8JzcI?feature=oembed)
 

@@ -4,7 +4,7 @@
 
 Bruce and his band play their second of three consecutive nights at Fat City in Seaside Heights, New Jersey.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce and his band play their second of three consecutive nights at Fat City in 
 
 Bruce and the E Street Band play two shows on their third of three consecutive nights at Le Garage on Long Beach Island.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band work on "" at Atlantic Studios in New York City.
 
@@ -24,7 +24,7 @@ Bruce and the E Street Band work on "" at Atlantic Studios in New York City.
 
 In town a day early for his Darkness Tour stop, Bruce drops by the Paramount Theater in Portland, Oregon to catch Warren Zevon's performance. He joins Zevon for "I'll Sleep When I'm Dead," the final encore of the evening.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -32,7 +32,7 @@ In town a day early for his Darkness Tour stop, Bruce drops by the Paramount The
 
 The Born in the U.S.A. Tour arrives in France for the first of four shows, this one at Stade Richter in Montpellier.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/BJEUTFEvCIo?feature=oembed](https://www.youtube.com/embed/BJEUTFEvCIo?feature=oembed)
 
@@ -50,7 +50,7 @@ The Born in the U.S.A. Tour arrives in France for the first of four shows, this 
 
 Bruce and the reunited E Street Band stop in Stockholm for the first of two shows.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/HmDVXvxXtkA?feature=oembed](https://www.youtube.com/embed/HmDVXvxXtkA?feature=oembed)
 

@@ -4,7 +4,7 @@
 
 The E Street Band's greatest guitarist is born in Chicago. Happy birthday, Nils Lofgren!
 
-**1951:**
+**1951:**<br>
 
 
 
@@ -12,7 +12,7 @@ The E Street Band's greatest guitarist is born in Chicago. Happy birthday, Nils 
 
 A scheduled Steel Mill date at the Clearwater Swim Club in Atlantic Highlands, New Jersey is postponed by a day due to bad weather.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -20,7 +20,7 @@ A scheduled Steel Mill date at the Clearwater Swim Club in Atlantic Highlands, N
 
 Bruce and the E Street Band play two shows on their first of three consecutive nights at Le Garage on Long Beach Island.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -40,7 +40,7 @@ Bruce and the E Street Band hold a recording session for at The Power Station in
 
 Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at Clair Brothers Audio in Lititz, Pennsylvania. That evening, the boys (the entire band except for Danny) drop by The Village in Lancaster and play a 35-minute set. You can listen to that entire set below in amazing quality–but be forewarned: you'll never hear the E Street Band sound eighties-er than they do here.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/2VRaI53f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2VRaI53f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -56,7 +56,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 Bruce plays in Italy for the very first time, at the San Siro in Milan, home to many legendary Springsteen shows yet to come.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/Cj7LIPEemPg?feature=oembed](https://www.youtube.com/embed/Cj7LIPEemPg?feature=oembed)
 
@@ -136,7 +136,7 @@ At the memorial service for the late Clarence Clemons in Palm Beach, Bruce deliv
 
 The Wrecking Ball Tour stops at the Stadium of Light in Sunderland, England.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/_IC9Cnwag1g?feature=oembed](https://www.youtube.com/embed/_IC9Cnwag1g?feature=oembed)
 

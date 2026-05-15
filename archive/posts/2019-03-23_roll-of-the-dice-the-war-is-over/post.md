@@ -52,8 +52,8 @@ So yeah, this isn't Bruce at his best–it's not even Bruce at his teenage best.
 
 And the next time you hear someone complain about Bruce getting political in his later years, point them to "The War Is Over." His values were on full display a full half-century ago.
 
-**The War Is Over**
-**Never recorded**
+**The War Is Over**<br>
+**Never recorded**<br>
 Never released**
 **First performed:** September 20, 1969 (Richmond, VA)
 **Last performed:** August 14, 1970 (Richmond, VA)

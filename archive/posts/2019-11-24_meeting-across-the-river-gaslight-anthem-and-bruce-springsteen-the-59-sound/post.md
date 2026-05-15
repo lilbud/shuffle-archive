@@ -11,6 +11,6 @@ It's hard to find a more perfectly suited pairing for Bruce than the very-Spring
 June 27, 2009 (Pilton, England)
 June 28, 2009 (London, England)
 
-**The '59****Sound**
+**The '59****Sound**<br>
 **First performed:**<br>
 **Last performed:**<br>

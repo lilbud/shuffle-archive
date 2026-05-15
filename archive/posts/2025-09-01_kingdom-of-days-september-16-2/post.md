@@ -52,7 +52,7 @@ Bruce and the E Street Band hold a recording session for at The Hit Factory in N
 
 Bruce plays best man when Danny Federici marries Kathlynn Helmeid.
 
-**1987:**
+**1987:**<br>
 
 
 
@@ -76,7 +76,7 @@ The Ghost of Tom Joad Tour resumes after a four-month break, kicking off the fal
 
 A hurricane forces the postponement of a scheduled Reunion Tour show in Philadelphia.
 
-**1999:**
+**1999:**<br>
 
 
 
@@ -84,7 +84,7 @@ A hurricane forces the postponement of a scheduled Reunion Tour show in Philadel
 
 Bruce attends an Asbury Park memorial service for Mark McGarril and performs two songs on his acoustic guitar.
 
-**2002:**
+**2002:**<br>
 
 Bruce and the E Street Band play their first of two Hartford stadium shows at Rentschler Field, opening with an acoustic "." The first E Street Band performance of "Leap of Faith" and a rare "" make it clear that Bruce is re-discovering his missing years, but he's still discovering his latest as well, playing "" for the first and only time to date.
 
@@ -124,4 +124,4 @@ Bruce bids farewell to the Summer of 2020 with "Summer's End," the twelfth insta
 
 Bruce's scheduled show at Mohegan Sun Arena in Uncasville is postponed for a second time, this time to seven months later.
 
-**2023:**
+**2023:**<br>

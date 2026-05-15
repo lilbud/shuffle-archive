@@ -2,7 +2,7 @@
 
 Bruce cancels a scheduled performance at Detroit's Masonic Temple Theater.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce and the E Street Band work on what will become at the Record Plant in New 
 
 Bruce drops by The Stone Pony and joins The Shakes for two numbers, "Jailhouse Rock" and "Sea Cruise."
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -40,7 +40,7 @@ Bruce and the E Street Band rehearse for the upcoming Darkness Tour at the Param
 
 Bruce joins Clarence Clemons and The Red Bank Rockers on stage for four songs at The Stone Pony.
 
-**1984:**
+**1984:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1984-0519.jpg?resize=568%2C699&amp;ssl=1)
 
@@ -50,11 +50,11 @@ Bruce joins Clarence Clemons and The Red Bank Rockers on stage for four songs at
 
 : At Night Three (of five) at Madison Square Garden, Bruce records the videos for "Vigilante Man" and "I Ain't Got No Home."
 
-**1988**
+**1988**<br>
 
 Bruce joins Joe Ely on stage at Joe's gig at Dublin's National Stadium for three songs, including "Fingernails" and "Settle for Love." Joe will repay the favor with Bruce tomorrow night.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/AHFfjy87y8s?feature=oembed](https://www.youtube.com/embed/AHFfjy87y8s?feature=oembed)
 
@@ -64,11 +64,11 @@ Bruce joins Joe Ely on stage at Joe's gig at Dublin's National Stadium for three
 
 Bruce plays a solo acoustic show in Toulon, France.
 
-**1997:**
+**1997:**<br>
 
 Night Two of four at Earls Court in London for the Reunion Tour.
 
-**1999:**
+**1999:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Evening_Standard_Fri__May_21__1999_-scaled.jpg?resize=758%2C854&amp;ssl=1)
 
@@ -80,7 +80,7 @@ Elliott Murphy guest-stars on "" and "Born to Run" when the Rising Tour makes a 
 
 Bruce performs the tour premiere of "The Wish" at his solo acoustic show in East Rutherford.
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/ufI1O9KNygg?feature=oembed](https://www.youtube.com/embed/ufI1O9KNygg?feature=oembed)
 
@@ -116,6 +116,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and the E Street Band return to Croke Park in Dublin, where they tour premiere "Reason to Believe."
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/Q-Gge15k4bQ?feature=oembed](https://www.youtube.com/embed/Q-Gge15k4bQ?feature=oembed)

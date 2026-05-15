@@ -6,6 +6,6 @@ So hearing them play it with Bruce Springsteen on the Vote for Change Tour in 20
 
 [Watch on Youtube: REM & Bruce Springsteen - Permanent Vacation](https://www.youtube.com/watch?v=ZfxMHXJZdnU)
 
-**Permanent Vacation**
+**Permanent Vacation**<br>
 **First performed:** October 8, 2004 (Orlando, FL)<br>
 **Last performed:** October 8, 2004 (Orlando, FL)<br>

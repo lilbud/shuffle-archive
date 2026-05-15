@@ -2,11 +2,11 @@
 
 Bruce performs in Chicago for the first time, beginning a five-night stint at The Quiet Knight, opening for The Persuasions.
 
-**1973:**
+**1973:**<br>
 
 The Canadian leg of the River tour ends at the Ottawa Civic Center.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/JYL0Qbie?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JYL0Qbie?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -28,7 +28,7 @@ At his home studio in Holmdel, Bruce records two songs for , neither of which wi
 
 : Bruce and the E Street Band rehearse for the Tunnel of Love Express Tour at the Expo Theater in Fort Monmouth, New Jersey.
 
-**1988**
+**1988**<br>
 
 Bruce announces his first new albums–two of them!–in five years. and will be released to much anticipation in March. (Thanks to friend of the blog Andy Swanson for the scans!)
 
@@ -60,7 +60,7 @@ Bruce and the band rehearse for the Tour at the Bellville Velodrome in Cape Town
 
 : A rare show postponement due to Winter Storm Jonas. This show is rescheduled to March 28th.
 
-**2016**
+**2016**<br>
 
 
 
@@ -80,4 +80,4 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Actor 
 
 Bruce and the E Street Band resume rehearsals for their upcoming world tour at Cure Insurance Arena in Trenton. The main set is now almost complete.
 
-**2023:**
+**2023:**<br>

@@ -2,7 +2,7 @@
 
 Bruce opens for the Paul Winter Consort for the second of four nights at My Father's Place on Long Island.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce opens for the Paul Winter Consort for the second of four nights at My Fath
 
 Bruce guests with Southside Johnny and Steve Van Zandt's Blackberry Booze Band at the Stone Pony in Asbury Park.
 
-**1975:**
+**1975:**<br>
 
 On , host Casey Kasem introduces "" with the story of Bruce's trip to Mexico with his father.
 
@@ -42,7 +42,7 @@ The second of two nights at the Greensboro Coliseum on the tour.
 
 Bruce and most of the E Street Band play a benefit show for the Freehold 3M plant workers at the Stone Pony in Asbury Park. The event and local impact is covered by TV news media.
 
-**1986:**
+**1986:**<br>
 
 [https://www.youtube.com/embed/NV1WmcFYI6o?feature=oembed](https://www.youtube.com/embed/NV1WmcFYI6o?feature=oembed)
 
@@ -84,7 +84,7 @@ The River Tour moves on to Chicago. In memory of Glenn Frey, who died the day be
 
 : Bruce and the E Street Band rehearse in Perth for the kick-off of their Australian summer tour.
 
-**2017**
+**2017**<br>
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -94,6 +94,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and Patti chair the Paris 2024 Olympic "Victory in Versailles" benefit gala in support of the U.S. Equestrian team. Bruce performs three songs during the evening.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/hKzlSvUT_nA?feature=oembed](https://www.youtube.com/embed/hKzlSvUT_nA?feature=oembed)

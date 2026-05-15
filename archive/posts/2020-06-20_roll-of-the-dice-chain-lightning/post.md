@@ -61,8 +61,8 @@ It's hard to know exactly how to place "Chain Lightning" in Bruce's catalog. It'
 
 Still, "Chain Lightning" practically begs for an E Street Band outing. We haven't had one yet, but who knows what the future may hold.
 
-**Chain Lightning**
+**Chain Lightning**<br>
 **Recorded:** February 17, 1980  
-**Released:** *The River: Outtakes* (2015)**Never performed**
+**Released:** *The River: Outtakes* (2015)**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

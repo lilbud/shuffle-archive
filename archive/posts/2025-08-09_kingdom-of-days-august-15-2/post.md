@@ -4,11 +4,11 @@
 
 Child plays a gig at the Student Prince in Asbury Park.
 
-**1969:**
+**1969:**<br>
 
 On Night Three of Bruce's legendary stand at New York City's Bottom Line, the early show is broadcast live on WNEW-FM, resulting in one of Bruce's most widely bootlegged shows ever. Listen to that historic broadcast below.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLmxwNSnqgfedcTVTpET4evBCavu-lOISm](https://www.youtube.com/embed/videoseries?list=PLmxwNSnqgfedcTVTpET4evBCavu-lOISm)
 
@@ -16,11 +16,11 @@ There's no audio from the late show, and that's too bad: it features the last kn
 
 Bruce holds a recording session for his upcoming album at Atlantic Studios in New York City.
 
-**1977:**
+**1977:**<br>
 
 Bruce and the E Street Band deliver a scorching performance at Washington DC's Capital Center (actually in Largo, Maryland)–and we know just how good it was because we can see for ourselves: this show is captured in stunning quality (for the time). Watch below to see the E Street Band at the height of their powers.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/YnjIaFFn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YnjIaFFn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -34,7 +34,7 @@ Bruce joins Cats on a Smooth Surface at their fourth anniversary party at The St
 
 Bruce and the E Street Band play their second of two nights at Philadelphia's Veterans Stadium on the Born in the U.S.A. Tour.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/m8p5z71YIrY?feature=oembed](https://www.youtube.com/embed/m8p5z71YIrY?feature=oembed)
 
@@ -46,7 +46,7 @@ Bruce and the E Street Band play their second of two nights at Philadelphia's Ve
 
 Bruce brings the Rising Tour to Detroit for one night at The Palace of Auburn Hills, where the set list remains unchanged for the fourth consecutive show–but that's about to change.
 
-**2002:**
+**2002:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAlYkHYg8qYNezIwJuhOkB3](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAlYkHYg8qYNezIwJuhOkB3)
 
@@ -84,7 +84,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 Almost a year after their originally scheduled date, Bruce and the E Street Band perform their first of two shows at PPG Paints Arena in Pittsburgh.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/9Mk_nzE6UzQ?feature=oembed](https://www.youtube.com/embed/9Mk_nzE6UzQ?feature=oembed)
 

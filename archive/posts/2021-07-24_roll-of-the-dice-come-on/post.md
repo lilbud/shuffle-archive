@@ -44,9 +44,9 @@ The song itself, however, is a fairly pedestrian call-to-action for young people
 
 "Come On" won't be remembered as one of Bruce's best songs, but as a curious postscript, Steel Mill Retro (a modern-day incarnation of Bruce's early band, led by original member (and E Streeter) Vini Lopez) officially recorded and released it (with Bruce's blessing) in 2005 on their *Dead Sea Chronicles* album–earning "Come On" distinction as a member of Bruce Springsteen's catalog of officially released compositions.
 
-**Come On**
-**Never recorded**
-**Never released**
+**Come On**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** May 23, 1970 (Richmond, VA)
 **Last performed:** August 14, 1970 (Richmond, VA)
 

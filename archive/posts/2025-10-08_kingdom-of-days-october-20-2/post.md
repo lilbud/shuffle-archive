@@ -4,7 +4,7 @@
 
 Bruce plays his first-ever show in New Hampshire when he and the band play a show at Franklin Pierce College.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce plays his first-ever show in New Hampshire when he and the band play a sho
 
 Bruce and the E Street Band play a show at the Dickinson College Dining Hall in Carlisle, Pennsylvania.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -40,7 +40,7 @@ Determined not to be out-scooped by each other, both and feature Bruce on the co
 
 The River Tour moves on to the McNichols Sports Arena in Denver.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/auwiLX3GFwc?feature=oembed](https://www.youtube.com/embed/auwiLX3GFwc?feature=oembed)
 
@@ -78,7 +78,7 @@ Bruce once again joins Joe Grushecky and The Houserockers at their show at Nick'
 
 At the Velodrom in Berlin on the Rising Tour, Bruce and E Street Band tour premiere "The Promise" late in the set, the first time that song is performed in Europe.
 
-**2002:**
+**2002:**<br>
 
 [https://www.youtube.com/embed/JZ1Pvyw_5Y4?feature=oembed](https://www.youtube.com/embed/JZ1Pvyw_5Y4?feature=oembed)
 
@@ -112,7 +112,7 @@ Bruce plays his 36th and final show at the Philadelphia Spectrum, performing the
 
 As part of his promotional book tour, Bruce makes a special appearance at the Frankfurt Book Fair and is interviewed for a local television show.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/ZzkqTT_FJHw?feature=oembed](https://www.youtube.com/embed/ZzkqTT_FJHw?feature=oembed)
 

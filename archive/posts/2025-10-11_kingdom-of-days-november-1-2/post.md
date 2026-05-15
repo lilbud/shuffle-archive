@@ -4,7 +4,7 @@
 
 Child headlines at Virginia Commonwealth University in Richmond–the last show they will ever play under that name. After returning home to New Jersey, the band discovers that another area band has released an album using the same band name, so our heroes change their name to Steel Mill.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band play their first of two nights at Philadelphia's Tow
 
 Bruce and the boys bring the Born to Run Tour to the University of California at Santa Barbara.
 
-**1975:**
+**1975:**<br>
 
 [https://videopress.com/embed/7LA0rFNW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7LA0rFNW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -70,7 +70,7 @@ Bruce performs three songs at a political rally for U.S. presidential candidate 
 
 Sirius Satellite Radio debuts an all-Bruce, all-the-time radio station called E Street Radio. The station will only last three months, but it will return for a longer engagement in late 2007.
 
-**2005:**
+**2005:**<br>
 
 
 
@@ -118,7 +118,7 @@ An amazing Wrecking Ball show at Penn State University–Bruce opens with only t
 
 Bruce makes another appearance at Stand Up for Heroes, this time joining Jon Stewart, Jerry Seinfeld, and Louis C.K. at Madison Square Garden in New York City, performing a four-song acoustic set. Bruce auctions off a guitar again, this time one he's been playing for 25 years, along with a personally escorted trip in his Cadillac to the Jersey Freeze and his mom's lasagna. As a result, he raises $280,000.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/KseCLTBeW_4?feature=oembed](https://www.youtube.com/embed/KseCLTBeW_4?feature=oembed)
 

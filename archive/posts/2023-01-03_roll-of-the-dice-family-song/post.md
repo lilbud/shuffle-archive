@@ -87,9 +87,9 @@ I'm not ashamed to admit that I tear up when I listen to "Family Song." Bruce ta
 
 [Watch Video Highlight](https://videopress.com/embed/fxxfruGh)
 
-**Family Song**
+**Family Song**<br>
 **Recorded** March 1972  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

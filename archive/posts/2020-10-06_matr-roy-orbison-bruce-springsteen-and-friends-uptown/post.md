@@ -18,6 +18,6 @@ Thankfully, that show was captured and released (and re-released) in beautiful q
 
 Enjoy more incredible moments from that all-star *Black & White Night* event [here](https://estreetshuffle.com/?s=orbison).
 
-**Uptown**
+**Uptown**<br>
 **First performed:** September 30, 1987 (Los Angeles, CA)<br>
 **Last performed:** September 30, 1987 (Los Angeles, CA)<br>

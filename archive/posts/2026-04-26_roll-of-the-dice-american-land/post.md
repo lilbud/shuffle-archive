@@ -136,7 +136,7 @@ It returned again during Trump's second presidential term, kicking off the encor
 
 As of this writing, "American Land" remains an essential part of Bruce's nightly set lists, a reminder and celebration of the importance of immigration to America past, present, and future.
 
-**American Land**
+**American Land**<br>
 **Recorded** ?  
 **Released:** *We Shall Overcome: The Seeger Sessions: American Land Edition* (2006);*Wrecking Ball* (2011)
 **First performed:** June 22, 2006 (New York City, NY)

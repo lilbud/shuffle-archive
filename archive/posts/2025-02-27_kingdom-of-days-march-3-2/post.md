@@ -4,7 +4,7 @@
 
 Bruce and the band open for Blood, Sweat and Tears in Santa Monica.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce shoots the video for "" with director John Sayles in Hollywood.
 
 : The Tunnel of Love Express Tour rolls on to the University of North Carolina in Chapel Hill for the first of two nights.
 
-**1988**
+**1988**<br>
 
 [https://videopress.com/embed/blKVO3cW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/blKVO3cW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -56,7 +56,7 @@ Bruce plays "" for the first time ever in Europe at a solo acoustic show at Edin
 
 The Magic Tour comes to the Copps Coliseum in Hamilton, Ontario.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/c8oJxq0rw0Q?feature=oembed](https://www.youtube.com/embed/c8oJxq0rw0Q?feature=oembed)
 

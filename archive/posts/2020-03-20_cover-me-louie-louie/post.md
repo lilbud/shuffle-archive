@@ -24,6 +24,6 @@ Luckily, we've got the one performance where Bruce absolutely nailed the balance
 
 [Watch on Youtube: Bruce Springsteen - Louie Louie Into Mustang Sally](https://www.youtube.com/watch?v=JWaQUBrs_sU)
 
-**Louie Louie**
+**Louie Louie**<br>
 **First performed:** September 9, 1978 (South Bend, IN)<br>
 **Last performed:** April 19, 2014 (Charlotte, NC)<br>

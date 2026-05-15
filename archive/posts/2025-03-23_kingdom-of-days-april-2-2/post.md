@@ -4,7 +4,7 @@
 
 Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they'll rename themselves Steel Mill.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -12,11 +12,11 @@ Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end 
 
 Bruce and Steve play The Upstage in Asbury Park, leading separate bands but each playing a slate of hits from the 1950s.
 
-**1971:**
+**1971:**<br>
 
 The Chicken Scratch Tour moves on to Louisville with a show at the Macauley Theater.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -24,7 +24,7 @@ The Chicken Scratch Tour moves on to Louisville with a show at the Macauley Thea
 
 Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -32,7 +32,7 @@ Bruce postpones a scheduled show in London to recover from the previous leg of t
 
 Bruce and the E Street Band play their second of two Tunnel of Love Express shows at Nassau Coliseum in Uniondale, New York.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/HHgVWkOa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HHgVWkOa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

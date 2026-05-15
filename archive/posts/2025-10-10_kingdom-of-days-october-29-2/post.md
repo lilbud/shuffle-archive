@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band headlines a show at St. Jerome School in West Long Branch, New Jersey. Later in the evening (technically the wee hours of the following day), Bruce jams with local musicians at The Upstage in his last-ever appearance at the legendary club.
 
-**1971:**
+**1971:**<br>
 
 Bruce and his new, unnamed band headline a Halloween show at the National Guard Armory in Long Branch for the second year in a row. Bruce performs "" for the first known time at this second show on the Greetings From Asbury Park Tour.
 
@@ -16,7 +16,7 @@ Bruce and his new, unnamed band headline a Halloween show at the National Guard 
 
 Bruce headlines two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1973:**
+**1973:**<br>
 
 Bruce and the band headline at the Boston Music Hall, with Dr. John opening. Bruce plays his last known performance of "" to date.
 
@@ -28,7 +28,7 @@ Bruce and the band headline at the Boston Music Hall, with Dr. John opening. Bru
 
 Bruce and the E Street Band play to a small crowd (only 1,400 people out of 4,400 seats) at the Sacramento Memorial Auditorium.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -56,11 +56,11 @@ On Night Four of seven at the L.A. Sports Arena, "" makes its one and only appea
 
 Bruce jams with Tom Petty and the Heartbreakers at Tom's house in the San Fernando Valley. Roger McGuinn and Jeff Lynne are present as well.
 
-**1990:**
+**1990:**<br>
 
 Bruce wraps up the west coast leg of his solo acoustic tour at the Paramount Theater in Seattle.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/Sbn9vscb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Sbn9vscb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -72,7 +72,7 @@ Bruce wraps up the west coast leg of his solo acoustic tour at the Paramount The
 
 Bruce performs at a rally for presidential candidate John Kerry at the Bayfront Park Amphitheater in Miami.
 
-**2004:**
+**2004:**<br>
 
 [https://www.youtube.com/embed/t-QMTqC3tF4?feature=oembed](https://www.youtube.com/embed/t-QMTqC3tF4?feature=oembed)
 
@@ -80,13 +80,13 @@ Bruce performs at a rally for presidential candidate John Kerry at the Bayfront 
 
 The Seeger Sessions Tour continues its Scandinavian swing with a stop at the Oslo Spektrum.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/V49QZlX-Dws?feature=oembed](https://www.youtube.com/embed/V49QZlX-Dws?feature=oembed)
 
 Bruce and the E Street Band play their first of two nights at the L.A. Memorial Sports Arena on the Magic Tour.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/epEjwVqdkV8?feature=oembed](https://www.youtube.com/embed/epEjwVqdkV8?feature=oembed)
 
@@ -104,7 +104,7 @@ Bruce and the E Street Band play their first of two nights at the L.A. Memorial 
 
 Bruce and the E Street Band headline the first night of the Rock and Roll Hall of Fame's 25th Anniversary Concerts in New York City. Guest-stars abound: Sam Moore, Tom Morello, John Fogerty, Darlene Love, Billy Joel, Jackson Browne, and Peter Wolf. The show is commercially available and essential viewing.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/5QzCKhGINog?feature=oembed](https://www.youtube.com/embed/5QzCKhGINog?feature=oembed)
 

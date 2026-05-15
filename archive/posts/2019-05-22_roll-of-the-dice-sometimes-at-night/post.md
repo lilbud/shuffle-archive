@@ -36,9 +36,9 @@ It looks like Bruce abandoned that version because he wanted to establish the es
 
 But that's a picked nit. The lyrics above are still a great set-up for a song that seems like it would have been a great *Nebraska* candidate, and I can only hope an audio recording turns up one day so we can hear what it finally became.
 
-**Sometimes at Night**
-**Never Recorded**
-**Never Released**
+**Sometimes at Night**<br>
+**Never Recorded**<br>
+**Never Released**<br>
 **First performed:** July 22, 1971 (South Amboy, NJ)
 **Last performed:** July 22, 1971 (South Amboy, NJ)
 

@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band play for the U.S. Military Academy at West Point.
 
-**1976:**
+**1976:**<br>
 
 [https://videopress.com/embed/10bHWUP3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/10bHWUP3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -56,7 +56,7 @@ Bruce plays his first-ever show in Las Vegas when the Reunion Tour stops at the 
 
 Bruce and Graham Parker join Southside Johnny and the Asbury Jukes at The Stone Pony's 25th anniversary celebration of Southside's live radio broadcast.
 
-**2001:**
+**2001:**<br>
 
 [https://www.youtube.com/embed/VyrkKwtkNzg?feature=oembed](https://www.youtube.com/embed/VyrkKwtkNzg?feature=oembed)
 
@@ -76,7 +76,7 @@ At Night Two at London's Crystal Palace on the Rising Tour, Bruce opens with a s
 
 Bruce brings his solo acoustic tour to London for the first of two nights at Royal Albert Hall.
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/I1lus3XUg7c?feature=oembed](https://www.youtube.com/embed/I1lus3XUg7c?feature=oembed)
 
@@ -130,13 +130,13 @@ Bruce and the E Street Band play the first of two River Tour (2016 edition) show
 
 Bruce joins Little Steven and the Disciples of Soul on stage at the Count Basie Theater in Red Bank four a four-song encore performance.
 
-**2017:**
+**2017:**<br>
 
 [https://www.youtube.com/embed/wd8AfjeVLyw?feature=oembed](https://www.youtube.com/embed/wd8AfjeVLyw?feature=oembed)
 
 Bruce attends his niece's graduation ceremony at the Ranney School in Tinton Falls.
 
-**2021:**
+**2021:**<br>
 
 
 

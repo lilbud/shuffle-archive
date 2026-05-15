@@ -10,15 +10,15 @@ At 914 Sound Studios in New York, Bruce records "" and "" (minus the harmonica, 
 
 Bruce works on material for his second album at 914 Sound Studios in Blauvelt, New York.
 
-**1973:**
+**1973:**<br>
 
 A scheduled E Street Band gig in Memphis is cancelled.
 
-**1974:**
+**1974:**<br>
 
 Bruce plays his first ever concert in British Columbia when he and the E Street Band bring the Darkness Tour to Vancouver's Queen Elizabeth Theater.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -52,7 +52,7 @@ Bruce joins Billy Chinnock on stage at Big Man's West for "."
 
 Bruce plays a full-length concert at Madison Square Garden to benefit the new Kristen Ann Carr Fund. This show serves as an epilogue to World Tour 1993 and is the last appearance of the 1992-1993 touring band. Joe Ely, Soozie Tyrell, and Terrence Trent D'Arby all make guest appearances, but D'Arby's contribution is not appreciated by fans in attendance, who boo him so noticeably that Bruce, visibly peeved, tells off the crowd.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/RAG27JnlCH0?feature=oembed](https://www.youtube.com/embed/RAG27JnlCH0?feature=oembed)
 
@@ -74,7 +74,7 @@ Bruce plays a full-length concert at Madison Square Garden to benefit the new Kr
 
 Night Seven (of ten) at the Reunion Tour's closing stand at Madison Square Garden is most notable for its sound check, where director Jonathan Demme films the band performing "American Skin (41 Shots)."
 
-**2000:**
+**2000:**<br>
 
 [https://www.youtube.com/embed/aQMqWAiWPMs?feature=oembed](https://www.youtube.com/embed/aQMqWAiWPMs?feature=oembed)
 

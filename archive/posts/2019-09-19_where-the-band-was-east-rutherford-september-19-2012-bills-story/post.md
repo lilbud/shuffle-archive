@@ -54,9 +54,9 @@ What's your story?
 
 *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
 
-**9/19/12 – MetLife Stadium, NJ**
+**9/19/12 – MetLife Stadium, NJ**<br>
 
-**Setlist:**
+**Setlist:**<br>
 Shackled and Drawn
 Prove It All Night ('78 intro)
 The Ties That Bind

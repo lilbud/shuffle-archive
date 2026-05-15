@@ -182,7 +182,7 @@ Today Bruce lives ten minutes from his hometown, which tells us all we need to k
 
 **Bonus:** Here's Bruce's very first live performance of "My Hometown," a rarely heard warm-up for the Born in the U.S.A. Tour at The Stone Pony three weeks before the tour kicked off in St. Paul.
 
-**My Hometown**
+**My Hometown**<br>
 **Recorded:** June 29, 1983  
 **Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *L.A. Garage Sessions '83* (2025)
 **First performed:** June 8, 1984 (Asbury Park, NJ)

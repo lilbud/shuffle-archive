@@ -14,7 +14,7 @@ Laurel Canyon sends Bruce a royalty check for $67,000, but an auditor determines
 
 When Southside Johnny takes ill and can't perform, Steve Van Zandt transforms his Red Bank show into The Asbury Park All-Star Revue, featuring the Jukes, Bruce and the E Street Band, and Ronnie Spector. Steve performs lead vocals for most of the show, with Bruce on guitar and backing vocals, but Bruce steps up to the mic when the super-band plays his own songs. The Revue plays two shows on this night, and you can hear them both below.
 
-**1977:**
+**1977:**<br>
 
 [https://videopress.com/embed/jjQ9zdbR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jjQ9zdbR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -34,7 +34,7 @@ Bruce records "" at The Power Station in New York City.
 
 Shortly after midnight, Bruce Springsteen marries Julianne Phillips in Lake Oswego, Oregon.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/pnqMBNuNHIs?feature=oembed](https://www.youtube.com/embed/pnqMBNuNHIs?feature=oembed)
 
@@ -42,7 +42,7 @@ Shortly after midnight, Bruce Springsteen marries Julianne Phillips in Lake Oswe
 
 Bruce and the band bring the Tunnel of Love Express Tour to the Market Square Arena in Indianapolis.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/3DPjpWjs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3DPjpWjs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -56,7 +56,7 @@ Bruce and the band bring the Tunnel of Love Express Tour to the Market Square Ar
 
 Bruce, Patti, Southside Johnny, and Bobby Bandiera perform at The Stone Pony for the annual benefit for The Ranney School.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/VxOABCbCexk?feature=oembed](https://www.youtube.com/embed/VxOABCbCexk?feature=oembed)
 
@@ -74,7 +74,7 @@ At Sting and Trudie's eighties-themed Rainforest Benefit show at Carnegie Hall, 
 
 The first European leg of the Wrecking Ball Tour kicks off in Seville. The set features the tour premiere of "I'm Goin' Down."
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/R51if_Ih_-8?feature=oembed](https://www.youtube.com/embed/R51if_Ih_-8?feature=oembed)
 
@@ -98,7 +98,7 @@ Bruce plays a sizzling show in Albany, opening with a cover of INXS's "." Tour p
 
 Bruce and the E Street Band rehearse in Barcelona for the European leg of The River (Redux) Tour.
 
-**2016:**
+**2016:**<br>
 
 Bruce receives the Woody Guthrie Prize from Nora Guthrie at his farm in Colts Neck, in a live-streamed event for members of the Woody Guthrie Center. Following his acceptance, Bruce performs a rarity-filled four-song acoustic set, featuring covers of "" and "" and a gorgeous ""
 

@@ -4,7 +4,7 @@
 
 Bruce and the as-yet-unnamed E Street Band play their fifth night of a six-night, two-shows-nightly stand at Kenny's Castaways in New York City.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -12,11 +12,11 @@ Bruce and the as-yet-unnamed E Street Band play their fifth night of a six-night
 
 Bruce holds a recording session at The Record Plant in New York City, where he and the band work on "Racing in the Street," "Come On (Let's Go Tonight)" and "Independence Day."
 
-**1977:**
+**1977:**<br>
 
 Bruce and the E Street Band play the Dallas Convention Center Arena on the Darkness Tour.
 
-**1978:**
+**1978:**<br>
 
 
 

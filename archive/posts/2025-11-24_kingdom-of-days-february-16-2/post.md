@@ -4,13 +4,13 @@
 
 The Beatles make their second appearance on the Ed Sullivan show, and Bruce is watching.
 
-**1964:**
+**1964:**<br>
 
 [https://www.youtube.com/embed/yqrYUORgY-s?feature=oembed](https://www.youtube.com/embed/yqrYUORgY-s?feature=oembed)
 
 Bruce and the band play Monmouth College in West Long Branch, New Jersey. Tickets are only one dollar if you bring along a newspaper to recycle.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -30,7 +30,7 @@ does its best to wake the world beyond Philly and Texas to Springsteen's power a
 
 Bruce and the E Street Band play a gig at Veterans Memorial Auditorium in Columbus.
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -38,7 +38,7 @@ Bruce and the E Street Band play a gig at Veterans Memorial Auditorium in Columb
 
 : Bruce and the boys play their second of two nights at the Lakeland Civic Center on the River Tour.
 
-**1981**
+**1981**<br>
 
 [https://videopress.com/embed/dNaN6mOU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dNaN6mOU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -50,7 +50,7 @@ Bruce and the E Street Band play a gig at Veterans Memorial Auditorium in Columb
 
 At The Hit Factory in New York City, Bruce records "Refrigerator Blues," which to this date does not circulate.
 
-**1983:**
+**1983:**<br>
 
 Bruce scores his first Number One album in the U.K. with .
 
@@ -66,7 +66,7 @@ Bruce joins Bruce Willis, Stephen Stills, and John McEnroe(!) on "" at the Tent 
 
 Bruce plays his second of three solo acoustic shows in Melbourne, Australia.
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/yIuPpfhF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yIuPpfhF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -90,7 +90,7 @@ Night Two in Melbourne on the High Hopes Tour features a full album performance 
 
 At the BB&T Center in Sunrise, Bruce and band perform a standard early River Tour (2016 version) set.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/kxll2bcL35U?feature=oembed](https://www.youtube.com/embed/kxll2bcL35U?feature=oembed)
 

@@ -2,7 +2,7 @@
 
 Bruce opens for Jerry Lee Lewis and Chuck Berry at the University of Maryland. After his set, Bruce and the E Street Band (plus Southside Johnny) serve as the backing band at no charge for Lewis and Berry, remaining on stage the entire night. The band has no rehearsal time with Berry, who keeps the band on their toes the entire night. Watch Bruce tell the story below. (Thanks to Dave Homorody for the photo!)
 
-**1973:**
+**1973:**<br>
 
 [https://www.youtube.com/embed/ZdWu4peTI3Y?feature=oembed](https://www.youtube.com/embed/ZdWu4peTI3Y?feature=oembed)
 
@@ -10,7 +10,7 @@ Bruce opens for Jerry Lee Lewis and Chuck Berry at the University of Maryland. A
 
 Bruce and the E Street Band play an intimate (less than 300 attendees) outdoor show at Swarthmore College.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -18,7 +18,7 @@ Bruce and the E Street Band play an intimate (less than 300 attendees) outdoor s
 
 Bruce plays the Grand Ole Opry House in Nashville.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -30,7 +30,7 @@ Bruce plays the Grand Ole Opry House in Nashville.
 
 Flo and Eddie guest-star on "Hungry Heart" when the River Tour arrives in Rotterdam.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/JJqRnR4k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JJqRnR4k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -42,7 +42,7 @@ At the Power Station in New York City, Bruce works on several songs for what wou
 
 Bruce wraps up a five-night stand at the L.A. Sports Arena. This show is available as part of Bruce's official archive series.
 
-**1988:**
+**1988:**<br>
 
 
 
@@ -60,7 +60,7 @@ is certified 3x multi-platinum by the Recording Industry Association of America.
 
 At the Reunion show in Lyon, France, Jon Bon Jovi guest-stars on "Hungry Heart."
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/xHFBjrH_Z0Q?feature=oembed](https://www.youtube.com/embed/xHFBjrH_Z0Q?feature=oembed)
 
@@ -70,11 +70,11 @@ At the Reunion show in Lyon, France, Jon Bon Jovi guest-stars on "Hungry Heart."
 
 Bruce rehearses at the Count Basie Theater for Bobby Bandiera's Hope Concert benefit the following day.
 
-**2003:**
+**2003:**<br>
 
 On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays "Two Faces" for the first time in 17 years, and Jimmy LaFave guest-stars on "Oklahoma Hills." Also new to the set list tonight: "Galveston Bay" and "My Hometown."
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/ZDEYaKNZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZDEYaKNZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -92,7 +92,7 @@ On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce pl
 
 Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres of "Roulette" and "Don't Look Back," before segueing to "Radio Nowhere," "Out in the Street," and "The Promised Land." Opening packs don't get much better than that. Also tour premiering tonight: "Mary's Place." This show is available as part of Bruce's official archive series.
 
-**2008:**
+**2008:**<br>
 
 
 
@@ -114,7 +114,7 @@ Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres o
 
 Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of "The Fever," "Mountain of Love," "Fire" and "You Can't Sit Down."
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/0kTnyP33fbM?feature=oembed](https://www.youtube.com/embed/0kTnyP33fbM?feature=oembed)
 
@@ -128,11 +128,11 @@ Philadelphia always seems to get great shows, and the Working on a Dream Tour ke
 
 Bruce and the E Street Band rehearse for the next leg of the Wrecking Ball Tour at Nordisk Film Studios in Oslo.
 
-**2013:**
+**2013:**<br>
 
 Tom Hanks interviews Bruce at the Tribeca Film Festival.
 
-**2017:**
+**2017:**<br>
 
 [https://www.youtube.com/embed/ZZDea7CzzFY?feature=oembed](https://www.youtube.com/embed/ZZDea7CzzFY?feature=oembed)
 
@@ -146,7 +146,7 @@ continues with Episode 21, "Waiting on a Friend" on E Street Radio.
 
 Bruce and the E Street Band kick off the European leg of their 2023 World Tour in Barcelona with some special guests: former U.S. First Lady Michelle Obama and actress Kate Capshaw join Patti Scialfa on stage for backing vocals on "Glory Days." The run of nightly tour premieres continue with "Human Touch."
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/KUoPAY8d0uY?feature=oembed](https://www.youtube.com/embed/KUoPAY8d0uY?feature=oembed)
 

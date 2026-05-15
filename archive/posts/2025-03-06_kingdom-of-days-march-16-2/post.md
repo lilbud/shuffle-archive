@@ -4,7 +4,7 @@
 
 Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, their fifth of seven straight nights.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, th
 
 Bruce and the band play their second of two nights at Armadillo World Headquarters in Austin.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and the band play their second of two nights at Armadillo World Headquarte
 
 The Tunnel of Love Express Tour moves on to Chicagoland for the first of two nights at the Rosemont Horizon.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/N9EzSYt4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/N9EzSYt4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -28,7 +28,7 @@ The Tunnel of Love Express Tour moves on to Chicagoland for the first of two nig
 
 Bruce plays a solo acoustic show at Falkoner Salen in Copenhagen.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/_p690qQT8L0?feature=oembed](https://www.youtube.com/embed/_p690qQT8L0?feature=oembed)
 
@@ -40,11 +40,11 @@ Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and p
 
 Bruce rehearses with the Sessions Band at the Paramount Theater in Asbury Park.
 
-**2006:**
+**2006:**<br>
 
 The Magic Tour moves on to Xcel Energy Center in St. Paul.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/JgVGkrDf42M?feature=oembed](https://www.youtube.com/embed/JgVGkrDf42M?feature=oembed)
 
@@ -72,7 +72,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce returns to the stage at Wells Fargo Center in Philadelphia, recovered from an illness that forced the cancellation of three shows the previous week.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/r6p-giPN5qI?feature=oembed](https://www.youtube.com/embed/r6p-giPN5qI?feature=oembed)
 

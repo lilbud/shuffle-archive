@@ -4,7 +4,7 @@
 
 After firing drummer Vini Lopez three days earlier, Bruce cancels a show at the University of Toledo so that the band has time to rehearse with new drummer Ernest "Boom" Carter.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and the E Street band return to the U.S. and continue the Lawsuit Tour at 
 
 : Bruce and band take the River Tour to the Civic Center in Lakeland, Florida.
 
-**1981**
+**1981**<br>
 
 [https://videopress.com/embed/XYZd28NA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XYZd28NA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -42,7 +42,7 @@ At the Wonder Bar in Asbury Park, Bruce films footage used in the video for "."
 
 Bruce joins Melissa Etheridge for her MTV Unplugged performance in Brooklyn. They perform a gorgeous duet of "Thunder Road" together.
 
-**1995:**
+**1995:**<br>
 
 [https://www.youtube.com/embed/5cXzFhZVMnQ?feature=oembed](https://www.youtube.com/embed/5cXzFhZVMnQ?feature=oembed)
 
@@ -50,7 +50,7 @@ Bruce joins Melissa Etheridge for her MTV Unplugged performance in Brooklyn. The
 
 Bruce plays his third solo acoustic show in Germany, this time in Munich.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/3d7UJujn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3d7UJujn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

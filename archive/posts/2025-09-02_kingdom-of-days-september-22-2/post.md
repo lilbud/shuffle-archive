@@ -4,7 +4,7 @@
 
 The Castiles play at a rally dance at West Freehold School.
 
-**1967:**
+**1967:**<br>
 
 
 
@@ -16,7 +16,7 @@ A scheduled gig in Miami opening for Richie Havens is cancelled to make room for
 
 Bruce and the E Street Band play an outdoor show at Kean College in Union, New Jersey, featuring the first known "A Love So Fine" (a work in progress that doesn't even feature that lyric). Listen below–this also happens to be the earliest known recorded show with Max and Roy.
 
-**1974:**
+**1974:**<br>
 
 [https://videopress.com/embed/vTJrRGpc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vTJrRGpc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -46,7 +46,7 @@ Bruce and the E Street Band play their second of two famous "No Nukes" shows at 
 
 At his second Born in the U.S.A. show in Pittsburgh, Bruce begins a practice that stands to this day, donating money ($10,000) to a local steelworkers union and raising awareness by dedicating a song to them during the show.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/ce15X4fu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ce15X4fu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -58,7 +58,7 @@ Earlier in the day host Casey Kasem recaps the wedding of Steve and Maureen Van 
 
 A bad weather forecast prompts the postponement of a scheduled show at Denver's Mile High Stadium. The evening ended up with clear skies, however, causing a bit of a backlash among fans and press.
 
-**1985:**
+**1985:**<br>
 
 
 

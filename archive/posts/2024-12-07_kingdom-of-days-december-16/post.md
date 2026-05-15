@@ -8,7 +8,7 @@ Bruce cancels a scheduled show in Willimantic, Connecticut only a day or two bef
 
 Bruce and the E Street Band bring the now red-hot Born to Run Tour to the State University of New York in Oswego.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/sRQcszLVROs?feature=oembed](https://www.youtube.com/embed/sRQcszLVROs?feature=oembed)
 
@@ -32,7 +32,7 @@ At Night Two at the Boston Garden on the original River Tour, Bruce tour premier
 
 Bruce and the E Street Band start their last Born in the U.S.A. stand of the year at The Omni in Atlanta, where Little Steven guest stars for the entire encore set.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/AJ5y99Cucz4?feature=oembed](https://www.youtube.com/embed/AJ5y99Cucz4?feature=oembed)
 
@@ -62,7 +62,7 @@ At Night Two at the Orpheum Theater in Boston on the Ghost of Tom Joad Tour, Bru
 
 Bruce throws a Christmas party at McLoone's Rum Runner in Sea Bright and joins Bobby Bandiera as the evening's entertainment.
 
-**1997:**
+**1997:**<br>
 
 Bruce and the E Street Band bring the Rising Tour to the Value City Arena in Columbus, where Bruce plays a gorgeous solo piano "" and a "Glory Days"/"" mash-up.
 

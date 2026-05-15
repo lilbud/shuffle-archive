@@ -4,7 +4,7 @@
 
 The Chicken Scratch Tour kicks off with a show at the Township Auditorium in Columbia, South Carolina–Bruce's first time performing in the state.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -42,13 +42,13 @@ Bruce performs "" at the Academy Awards, where it is nominated (but loses) for B
 
 The Australian leg of The Rising Tour moves on to Brisbane, where "Jungleland" makes its tour debut.
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/KievsdMg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KievsdMg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the E Street Band bring their World Tour to the Greensboro Coliseum.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/axLQaXPe1Yw?feature=oembed](https://www.youtube.com/embed/axLQaXPe1Yw?feature=oembed)
 
@@ -56,7 +56,7 @@ Bruce and the E Street Band bring their World Tour to the Greensboro Coliseum.
 
 Bruce and the E Street Band return to San Diego for the first time in 18 years, tour debuting "My City of Ruins" at Pechanga Arena.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/954jw3q8x7E?feature=oembed](https://www.youtube.com/embed/954jw3q8x7E?feature=oembed)
 

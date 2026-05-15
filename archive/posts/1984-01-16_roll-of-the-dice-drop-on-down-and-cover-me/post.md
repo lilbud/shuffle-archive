@@ -64,9 +64,9 @@ It clearly wasn't always his intention to do so–in the summer of 1983, Bruce h
 
 Unless we're lucky enough to get a sign-requested debut someday, we're not likely to ever gain any more insight; for now, we'll just chalk it up as just one more unsolved Springsteen mystery.
 
-**Drop on Down and Cover Me**
+**Drop on Down and Cover Me**<br>
 **Recorded** May 31 – June 2, 1983  
 **Never released**  
-**Never performed**
+**Never performed**<br>
 
 © December 18, 2019

@@ -21,7 +21,7 @@ Although we have reason (via a preserved but undated setlist) to believe Bruce p
 September 16, 1967 (Freehold, NJ)
 September 16, 1967 (Freehold, NJ)
 
-**Purple Haze**
+**Purple Haze**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

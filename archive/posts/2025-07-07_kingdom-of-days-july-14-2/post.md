@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band play their third of three nights at The Bottom Line in New York City.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce and the E Street Band play their third of three nights at The Bottom Line 
 
 Bruce records vocal overdubs for "Jungleland" at the Record Plant in New York City.
 
-**1975:**
+**1975:**<br>
 
 Bruce and the E Street Band continue their Texas swing, as the Darkness Tour arrives for a night in San Antonio (Bruce's one and only performance in that city). By request, Bruce tour premieres "."
 
@@ -34,7 +34,7 @@ Nils Lofgren records his vocal and guitar overdubs for "" It will become his fir
 
 Bruce and the E Street Band bring the Tunnel of Love Tour to St. Jakob Stadion in Basel, Switzerland. The show is filmed professionally and is a delight to watch. Check out the encores below, including the only performance of "Follow That Dream" on the tour.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/6h2V61SEBGg?feature=oembed](https://www.youtube.com/embed/6h2V61SEBGg?feature=oembed)
 
@@ -50,7 +50,7 @@ Bruce and the E Street Band bring the Tunnel of Love Tour to St. Jakob Stadion i
 
 Bruce and the E Street Band play a warm-up set for the first U.S. leg of the Reunion Tour at Continental Airlines Arena in East Rutherford.
 
-**1999:**
+**1999:**<br>
 
 The publishes , In his article, Jon Pareles quotes frequently from the interview he conducted with Bruce to inform it, but you can hear the interview itself below.
 
@@ -74,7 +74,7 @@ Bruce kicks off the encores at his solo acoustic show in Toronto with the tour p
 
 Bruce and the E Street Band headline Hard Rock Calling in London's Hyde Park on what will prove to be an eventful day, and a highly anticipated one:
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/eg3fySaCohI?feature=oembed](https://www.youtube.com/embed/eg3fySaCohI?feature=oembed)
 

@@ -2,7 +2,7 @@
 
 Bruce watches The Beatles make their live American debut on The Ed Sullivan Show. Bruce is inspired, galvanized, and dedicates himself to learning music and playing his guitar.
 
-**1964:**
+**1964:**<br>
 
 [https://www.youtube.com/embed/jenWdylTtzs?feature=oembed](https://www.youtube.com/embed/jenWdylTtzs?feature=oembed)
 
@@ -16,11 +16,11 @@ The reviews Bruce's debut album,
 
 Bruce and his band play their last of three nights at Richards in Altanta, opening for NRBQ.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band bring the "Lawsuit Tour" to Kleinhan's Music Hall in Buffalo.
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce and the E Street Band bring the "Lawsuit Tour" to Kleinhan's Music Hall in
 
 Hours before he is scheduled to perform, Bruce cancels his River Tour show in Indianapolis when he comes down with strep throat.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -36,7 +36,7 @@ Hours before he is scheduled to perform, Bruce cancels his River Tour show in In
 
 Following a benefit concert for Sting's Rainforest Foundation, Sting invites Bruce, Joni Mitchell and other musician friends to a party at his house.
 
-**1991:**
+**1991:**<br>
 
 
 

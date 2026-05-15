@@ -67,9 +67,9 @@ While "Coming Home" never saw the light of day (officially), it wouldn't be the 
 
 But in 1972, [that story](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/) was still burning ten years down the road.
 
-**Coming Home**
+**Coming Home**<br>
 **Recorded** March 14, 1972  
-**Never released**
+**Never released**<br>
 **First performed:** October 23, 1971 (Richmond, VA)
 **Last performed:** February 25, 1972 (Richmond, VA)
 

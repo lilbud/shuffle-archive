@@ -21,6 +21,6 @@ A true one-off performance, that was–Bruce has never played "I Wanna Be Sedate
 April 22, 2009 (Boston, MA)
 April 22, 2009 (Boston, MA)
 
-**I Wanna Be Sedated**
+**I Wanna Be Sedated**<br>
 **First performed:** <br>
 **Last performed:**<br>

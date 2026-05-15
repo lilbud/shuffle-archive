@@ -80,7 +80,7 @@ I didn't have much time to look–because the first surprise of the night was th
 
 And now, my original review of Night One of *Springsteen on Broadway*, originally posted in the wee hours of October 4, 2017.
 
-***** SPOILERS FOLLOW*****
+***** SPOILERS FOLLOW*****<br>
 
 This was no concert. Don't expect surprises; don't expect tributes to dearly departed artists. This is a set piece. It may evolve–Bruce may decide that a song doesn't underscore a story as well as a different one might and therefore replace it–but I don't expect change for the sake of variety.
 

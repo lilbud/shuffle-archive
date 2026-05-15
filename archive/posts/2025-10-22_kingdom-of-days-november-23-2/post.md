@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park. Afterward, Bruce zips over to Linden to join Pat Karwin and the Psychotic Blues Band in a late-night jam session at the New Plaza Theater.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 A scheduled appearance opening for Kenny Loggins and Jim Messina at the Richmond Coliseum is canceled.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce and the E Street Band headline at Salem State College in Massachusetts.
 
 Bruce plays his first-ever show in the Netherlands, a Born to Run Tour stop at RAI Amsterdam.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/VpBcWKgFvSs?feature=oembed](https://www.youtube.com/embed/VpBcWKgFvSs?feature=oembed)
 
@@ -38,7 +38,7 @@ Bruce plays his first-ever show in the Netherlands, a Born to Run Tour stop at R
 
 The River Tour arrives in Washington, DC for the first of a two-night stand at the Capital Center in Largo.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/fbGNmCLiLsc?feature=oembed](https://www.youtube.com/embed/fbGNmCLiLsc?feature=oembed)
 
@@ -56,7 +56,7 @@ MTV premieres Bruce's new video, "" That night, Bruce and the E Street Band brin
 
 Bruce and his new touring band bring World Tour 1992 to the Orlando Arena.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/lC0b353qh4o?feature=oembed](https://www.youtube.com/embed/lC0b353qh4o?feature=oembed)
 

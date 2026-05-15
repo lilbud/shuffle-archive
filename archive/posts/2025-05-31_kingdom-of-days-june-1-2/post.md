@@ -4,7 +4,7 @@
 
 Bruce performs in Virginia for the first time when Child plays a free outdoor concert at Monroe Park in Richmond. Noise complaints from local college students(!) force an early end to the show. The band drives back to New Jersey, where they headline that evening at Pandemonium in Wanamassa.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce performs in Virginia for the first time when Child plays a free outdoor co
 
 Bruce and the as yet unnamed E Street Band open for Chicago at the Hampton Roads Coliseum in Hampton, Virginia. Once again, Bruce and the boys outshine the headliners (as far as the press is concerned).
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce and the as yet unnamed E Street Band open for Chicago at the Hampton Roads
 
 Bruce headlines a six-hour multi-act show at Kent State University.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -54,7 +54,7 @@ Bruce and the E Street Band work on "" and "" at the Power Station in New York C
 
 Bruce and the E Street Band play their third of six shows at London's Wembley Arena.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/bBlBT9ah?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bBlBT9ah?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -88,7 +88,7 @@ Bruce plays his first ever show in Ireland, kicking off the European leg of the 
 
 With hiring complete, Bruce convenes the entire touring 1992-1993 band for the first time for a rehearsal at Hollywood Center Studios Soundstage.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/x7xbmPSW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/x7xbmPSW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -106,7 +106,7 @@ Bruce wraps up World Tour 1993 with a show at Valle Hovin Stadion in Oslo. "" in
 
 Bruce brings his solo acoustic tour to Spain, starting with a single night in Barcelona.
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/4p0FNGab?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4p0FNGab?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -126,7 +126,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce attends (but does not perform at) Bob Seger's concert in Holmdel, New Jersey. Bob dedicates "Downtown Train" to Bruce.
 
-**2019:**
+**2019:**<br>
 
 [https://www.youtube.com/embed/gh8HkDEKAHE?feature=oembed](https://www.youtube.com/embed/gh8HkDEKAHE?feature=oembed)
 
@@ -134,4 +134,4 @@ Bruce attends (but does not perform at) Bob Seger's concert in Holmdel, New Jers
 
 Bruce postpones his scheduled show at San Siro Stadium in Milan due to vocal challenges. As of this writing, the rescheduled show has not yet taken place.
 
-**2024:**
+**2024:**<br>

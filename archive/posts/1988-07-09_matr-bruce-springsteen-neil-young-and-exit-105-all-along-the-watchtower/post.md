@@ -22,7 +22,7 @@ Make sure to watch this epic-length performance, too–both capture outstanding 
 
 [https://www.youtube.com/embed/lwNWmYRwY74?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/lwNWmYRwY74?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**All Along the Watchtower**
+**All Along the Watchtower**<br>
 **First performed:** January 20, 1988 (New York City, NY)<br>
 **Last performed:** December 2, 2004 (Pittsburgh, PA)<br>
 

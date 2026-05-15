@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -50,7 +50,7 @@ Bruce and the E Street Band play their fifth of six nights at the Brendan Byrne 
 
 The Born in the U.S.A. Tour treks across Ohio for the first of two nights in Richfield.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/CKvko768?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CKvko768?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -80,7 +80,7 @@ At Magic Night Two in Oslo, Bruce tour premieres "" (in its only tour appearance
 
 Bruce brings the Working on a Dream Tour to MCH Arena Herning when the tour makes a brief stop in Denmark.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/_ciF-EgDCDU?feature=oembed](https://www.youtube.com/embed/_ciF-EgDCDU?feature=oembed)
 

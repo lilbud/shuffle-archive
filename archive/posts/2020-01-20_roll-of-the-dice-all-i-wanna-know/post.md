@@ -21,8 +21,8 @@ The hint of a chorus suggests that Bruce was reaching for a theme of love and co
 
 But that's mere speculation on my part–we'll likely never know for sure, so "All I Wanna Know" is best considered as one more early example of Bruce Springsteen's evolving songwriting craft.
 
-**All I Wanna Do**
-**Never recorded**
-**Never performed**
+**All I Wanna Do**<br>
+**Never recorded**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -4,7 +4,7 @@
 
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce opens for Richie Havens at Bushnell Memorial Hall in Hartford, his first s
 
 Bruce works on "Jungleland" and "Thunder Road" at the Record Plant in New York City.
 
-**1975:**
+**1975:**<br>
 
 Bruce works on "" at his home studio in Los Angeles. As of this writing, the song has never been released. That's due to change soon.
 
@@ -34,7 +34,7 @@ Bruce works on "" at his home studio in Los Angeles. As of this writing, the son
 
 Bruce concludes his first Japanese tour with a second show in Osaka.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent&amp;listType=playlist&amp;list=PLJTyL9twk3zD50qvA8LTkxCY5odh5R9PY](https://www.youtube.com/embed?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent&amp;listType=playlist&amp;list=PLJTyL9twk3zD50qvA8LTkxCY5odh5R9PY)
 
@@ -66,17 +66,17 @@ Also today, host Casey Kasem introduces Bruce's current chart-climbing single ""
 
 Bruce rehearses with his new band for their upcoming tour.
 
-**1992:**
+**1992:**<br>
 
 Bruce's World Tour 1993 arrives in Belgium for the first of two nights at Flanders Expo in Ghent.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/Ja7PoZlgvWo?feature=oembed](https://www.youtube.com/embed/Ja7PoZlgvWo?feature=oembed)
 
 The Reunion Tour makes a stop at Donau Arena in Regensburg, Germany.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/AnphOexP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AnphOexP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -136,7 +136,7 @@ At the premiere for the new Patti Smith concert documentary Bruce makes a surpri
 
 For the second day in a row, Bruce's twitter account offers a mysterious photo with no accompanying text. Rumors begin to fly: is a new album imminent?
 
-**2019:**
+**2019:**<br>
 
 
 

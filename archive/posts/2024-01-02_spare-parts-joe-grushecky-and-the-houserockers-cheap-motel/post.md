@@ -18,6 +18,6 @@ But Bruce's stamp is on the song through his music and his influence, so it gets
 
 (1997)
 
-**Cheap Motel**
+**Cheap Motel**<br>
 **Released:***Coming Home*<br>
-**Never performed live**
+**Never performed live**<br>

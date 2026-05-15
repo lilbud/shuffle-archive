@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band perform their first of two shows at the War Memorial Theater in Trenton.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/nLA-tppfDYk?feature=oembed](https://www.youtube.com/embed/nLA-tppfDYk?feature=oembed)
 
@@ -20,7 +20,7 @@ At the Record Plant in New York City, Bruce records "." He won't release it for 
 
 Bruce and the boys play a Darkness show at the St. Paul Civic Center Arena.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/MBwtDBn1vpE?feature=oembed](https://www.youtube.com/embed/MBwtDBn1vpE?feature=oembed)
 
@@ -48,7 +48,7 @@ Bruce debuts the video for his new single, "," from his box set.
 
 In a departure from tour (this or pretty much any other) precedent, Bruce has an opening act at his solo acoustic show at Berkeley Community Theater. John Wesley Harding becomes the first opening act for Bruce in twenty years.
 
-**1995:**
+**1995:**<br>
 
 [https://www.youtube.com/embed/lKcWzWPHVj0?feature=oembed](https://www.youtube.com/embed/lKcWzWPHVj0?feature=oembed)
 
@@ -60,7 +60,7 @@ In a departure from tour (this or pretty much any other) precedent, Bruce has an
 
 Bruce and the E Street Band wrap up the first leg of their Reunion Tour at the Target Center in Minneapolis.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/PaGYbKCMVig?feature=oembed](https://www.youtube.com/embed/PaGYbKCMVig?feature=oembed)
 
@@ -68,7 +68,7 @@ Bruce and the E Street Band wrap up the first leg of their Reunion Tour at the T
 
 Bruce's promotional book tour continues with an appearance at Joseph-Beth Booksellers in Cincinnati.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/d5k9aLewujE?feature=oembed](https://www.youtube.com/embed/d5k9aLewujE?feature=oembed)
 

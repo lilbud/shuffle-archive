@@ -56,7 +56,7 @@ Again, he's haunted: he knows she's gone, but his image of her is so vivid that 
 > *Now tonight once more*
 > *I search every face on that crowded floor*
 > *Looking for, I don't know what for*
-***Something that ain't there no more***
+***Something that ain't there no more***<br>
 > *There's a girl standin' by the band*
 > *She reminds me of you and I asked her to dance*
 > *As the drummer counts away*
@@ -104,14 +104,14 @@ But what caught me short when I first listened–really listened–to the Essent
 > *Now tonight once more*
 > *I search every face on that crowded floor*
 > *Looking for, I don't know what for*
-***Something that ain't there no more***
+***Something that ain't there no more***<br>
 
 But on the 2003 version, he sings:
 
 > *Now tonight once more*
 > *I search every face on that crowded floor*
 > *Looking for, I don't know what for*
-***Just waitin' to see you come walkin' through that door***
+***Just waitin' to see you come walkin' through that door***<br>
 
 Now *that* is a significant edit. In the earlier version, the singer is looking for a spark, a hint, the essence of a friendship, a love, a connection he once had but lost. He's trying to recapture a *feeling*.
 
@@ -159,7 +159,7 @@ But whether I was in the house or listening on CD or YouTube, in my opinion, non
 
 Am I reading too much into the song? Perhaps–I admitted that possibility at the outset. What's your take on "None But the Brave?" I'd love to read it.
 
-**None But the Brave**
+**None But the Brave**<br>
 **Recorded:** June 27, 1983 (and possibly a 2002-ish vocal track)
 **Released:** *The Essential Bruce Springsteen* (2003)
 **First performed:** December 5, 2003 (Asbury Park, NJ)

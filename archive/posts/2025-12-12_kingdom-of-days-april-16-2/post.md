@@ -8,7 +8,7 @@
 
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -36,33 +36,33 @@ The River Tour continues its European leg with a show in Munich, where "The Ties
 
 Bruce joins Clarence Clemons and the Red Bank Rockers for "Tenth Avenue Freeze-Out" at Big Man's West.
 
-**1982:**
+**1982:**<br>
 
 Bruce works on "Unsatisfied Heart" at his home studio in Los Angeles.
 
-**1983:**
+**1983:**<br>
 
 The final night of five in Tokyo on the Born in the U.S.A. Tour.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/IW12P88W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IW12P88W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 At Night Two in Sheffield, Bruce honors a request and plays a one-off (for the tour) acoustic "Point Blank." It's a lovely, unique arrangement and very worth a listen.
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/uFt2pexl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uFt2pexl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce plays the first of two shows at Royal Albert Hall in London and premieres the dubious classic, "Pilgrim in the Temple of Love." This show was rescheduled from its original scheduled date in March.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/xlOP1Ixx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xlOP1Ixx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce endorses Senator Barack Obama for president of the United States in an endorsement on his web site. Later, at Sloan-Kettering Hospital in New York City, Bruce and the E Street Band gather at the bedside of ailing bandmate Danny Federici to say their final goodbyes and sing together one last time.
 
-**2008:**
+**2008:**<br>
 
 
 
@@ -70,7 +70,7 @@ Bruce endorses Senator Barack Obama for president of the United States in an end
 
 At Night Two at the L.A. Sports Arena, Mike Ness guest stars on "Bad Luck" and "The Rising." Making their tour debuts: "Candy's Room," "Adam Raised a Cain," "Proud Mary," "Hungry Heart," and "Backstreets."
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/NCHI_PBXRvk?feature=oembed](https://www.youtube.com/embed/NCHI_PBXRvk?feature=oembed)
 
@@ -80,7 +80,7 @@ At Night Two at the L.A. Sports Arena, Mike Ness guest stars on "Bad Luck" and "
 
 Albany's Wrecking Ball show includes a rare, solo acoustic "Janey, Don't You Lose Heart," played by request, and the tour premieres of "Downbound Train" and "Darlington County." Watch the entire show below.
 
-**2012:**
+**2012:**<br>
 
 [https://videopress.com/embed/QeL22Nwg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QeL22Nwg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

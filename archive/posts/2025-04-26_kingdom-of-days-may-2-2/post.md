@@ -4,7 +4,7 @@
 
 Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -12,7 +12,7 @@ Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
 Steel Mill attempts to crash a three-day music festival at the University of North Carolina in Chapel Hill–not to attend, but to play! Bruce and the band sneak past security and set up their gear. They are caught and ejected just before they are about to start playing. All is not lost, however, since they have a scheduled gig at the Hullaballoo in Richmond that evening, just a few hours drive away.
 
-**1970:**
+**1970:**<br>
 
 [https://www.youtube.com/embed/z771CnLdzO8?feature=oembed](https://www.youtube.com/embed/z771CnLdzO8?feature=oembed)
 
@@ -48,19 +48,19 @@ is certified gold by the Recording Industry Association of America.
 
 Bruce works on mixing and overdubs for "Restless Nights" at Clover Studios in Los Angeles.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/DCFYLa02WzE?feature=oembed](https://www.youtube.com/embed/DCFYLa02WzE?feature=oembed)
 
 Bruce and the E Street Band play their first proper show in Denmark, at Brøndbyhallen in Copenhagen.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/q7EsVf2suLc?feature=oembed](https://www.youtube.com/embed/q7EsVf2suLc?feature=oembed)
 
 The first of a series of "secret" shows in which Bruce joined Cats on a Smooth Surface for late-night gigs at The Stone Pony in Asbury Park.
 
-**1982:**
+**1982:**<br>
 
 
 
@@ -132,7 +132,7 @@ At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Br
 
 Bruce, Southside Johnny, and Bobby Bandiera perform at the fifth annual Rumson Country Day School benefit concert at The Stone Pony in Asbury Park.
 
-**2006:**
+**2006:**<br>
 
 Bruce wraps up the second U.S. leg of the Magic Tour with a show at BankAtlantic center in Sunrise, Florida, where he plays the tour premiere of "."
 

@@ -72,15 +72,15 @@ And yet, "Candy's Room" has always sounded like a composite to me, long before I
 
 So don't ask me which is the stronger song–at least not yet. We'll pick up this thread further on down the road.
 
-***To be continued in "[The Fast Song](https://estreetshuffle.com/index.php/2021/01/30/roll-of-the-dice-the-fast-song/)"***
+***To be continued in "[The Fast Song](https://estreetshuffle.com/index.php/2021/01/30/roll-of-the-dice-the-fast-song/)"***<br>
 
 **Bonus:** There are several studio outtakes of "Candy's Boy" floating around out there, all variations recorded in June 1977. Here's one of them, almost a full minute longer than the released version on *The Promise.*
 
 [Watch on Youtube: Bruce Springsteen Candy's Boy Darkness Session Outtake](https://www.youtube.com/watch?v=RxpYXYO-heQ)
 
-**Candy's Boy**
+**Candy's Boy**<br>
 **Recorded** June 1977  
 **Released:** *The Promise* (2010)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,7 +2,7 @@
 
 E Street Band drummer and late night telly-vision personality Max Weinberg is born in Newark, New Jersey.
 
-**1951:**
+**1951:**<br>
 
 
 
@@ -10,11 +10,11 @@ E Street Band drummer and late night telly-vision personality Max Weinberg is bo
 
 Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long residency.
 
-**1969:**
+**1969:**<br>
 
 Bruce cancels a scheduled show at Villanova University at the last minute, no doubt disappointing the local boys scheduled to open for him: Daryl Hall and John Oates.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -22,11 +22,11 @@ Bruce cancels a scheduled show at Villanova University at the last minute, no do
 
 Bruce and his band open for Buzzy Linhart at The Joint in the Woods in Parsippany, New Jersey.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the band play a sold-out show at Penn State University, where Bruce gets drawn into a scuffle between security and his road manager. Listen to a gorgeous rendition of "Frankie" below.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/UGq8YkOyuMs?feature=oembed](https://www.youtube.com/embed/UGq8YkOyuMs?feature=oembed)
 
@@ -40,7 +40,7 @@ Bruce and the band play a sold-out show at Penn State University, where Bruce ge
 
 Bruce guests with Beaver Brown at The Fast Lane in Asbury Park. (Photo credit: Billy Smith)
 
-**1979:**
+**1979:**<br>
 
 
 
@@ -56,7 +56,7 @@ At the Ripley Music Hall in Philadelphia, Bruce joins Clarence Clemons and The R
 
 The third of five nights at Tokyo's Yoyogi National Gymnasium, where Bruce plays "Reason to Believe" for the last time on the tour. Other than the two Christic shows in 1990, the song won't be heard again for more than a decade.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/jH8MQOe7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jH8MQOe7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -68,19 +68,19 @@ Also today: guest host Chuck Britton introduces Bruce's current hit "I'm on Fire
 
 Bruce and the band play their second of two shows at The Summit in Houston.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/OkkTPjEr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OkkTPjEr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce's World Tour 1993 moves on to Lyon for a single show at Halle Tony Garnier.
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/DWvX1khT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DWvX1khT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 The Italian leg of Bruce's solo acoustic tour concludes with a show at Teatro Carlo Felice in Genoa.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/KlnHV-oYuaM?feature=oembed](https://www.youtube.com/embed/KlnHV-oYuaM?feature=oembed)
 
@@ -94,11 +94,11 @@ is released, and the Reunion Tour moves on to Germany, starting with a single sh
 
 Bruce, Patti, Soozie, Southside Johnny, Bobby Bandiera, and Lisa Lowell play a benefit show for the Rumson Country Day School at The Stone Pony. The set is primarily cover tunes, with a few Bruce originals at the end.
 
-**2002:**
+**2002:**<br>
 
 The Canadian leg of the Rising Tour continues with a show at Pengrowth Saddledome in Calgary.
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/aylHqzwW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aylHqzwW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -106,7 +106,7 @@ The Canadian leg of the Rising Tour continues with a show at Pengrowth Saddledom
 
 Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.
 
-**2005:**
+**2005:**<br>
 
 At Asbury Park's Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour. Their rehearsal performance of "How Can a Poor Man Stand Such Times and Live?" will be released on the of .
 
@@ -124,7 +124,7 @@ At the Magic Tour stop at the American Airlines Center in Dallas, "Independence 
 
 The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to "Buffalo Gals" and plays "Ramrod" in honor of Max's birthday in the encores. Tour premiering tonight: "Rendezvous," "Mountain of Love," and "Point Blank."
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/WxyT7i0L4MQ?feature=oembed](https://www.youtube.com/embed/WxyT7i0L4MQ?feature=oembed)
 
@@ -138,11 +138,11 @@ The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to
 
 Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2018:**
+**2018:**<br>
 
 Bruce guest stars with Danny Clinch's Tangiers Blues Band at the annual Kristen Ann Carr benefit.
 
-**2019:**
+**2019:**<br>
 
 [https://www.youtube.com/embed/gC72nJOeExc?feature=oembed](https://www.youtube.com/embed/gC72nJOeExc?feature=oembed)
 

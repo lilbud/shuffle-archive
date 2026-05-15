@@ -40,7 +40,7 @@ But it was the televised tour finale that set the high-watermark, when Springste
 
 And that time, Americans would vote for change.
 
-**(What's So Funny ‘Bout) Peace, Love and Understanding**
+**(What's So Funny ‘Bout) Peace, Love and Understanding**<br>
 **First performed:** December 5, 2003 (Asbury Park, NJ)
 **Last performed:** December 19, 2004 (Asbury Park, NJ)
 

@@ -4,7 +4,7 @@
 
 The Castiles play the Hullabaloo in Middletown, New Jersey.
 
-**1967:**
+**1967:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play the Hullabaloo in Middletown, New Jersey.
 
 The destined-for-legend Upstage club prepares to open for business in Asbury Park, and the local paper publishes a profile.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -20,7 +20,7 @@ The destined-for-legend Upstage club prepares to open for business in Asbury Par
 
 The Bruce Springsteen Band performs at St. Joseph High School mixer in Metuchen, New Jersey. (The school mangles his name a bit, though.)
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -64,19 +64,19 @@ At Mickey Rourke's Rubber Club in Los Angeles, Bruce joins The Mighty Hornets fo
 
 Bruce and the E Street Band rehearse for their upcoming Reunion Tour at Asbury Park's Convention Hall. News coverage below.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/iWe1tQGBS9g?feature=oembed](https://www.youtube.com/embed/iWe1tQGBS9g?feature=oembed)
 
 Bruce and the reunited E Street Band close out the Florida leg of their Reunion Tour with a second show in Sunrise.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/yFmTGIYP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yFmTGIYP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 The Rising Tour moves north to the Dunkin' Donuts Center in Providence.
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/QP9eBlhw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QP9eBlhw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -86,7 +86,7 @@ The Rising Tour moves north to the Dunkin' Donuts Center in Providence.
 
 Bruce rehearses for his upcoming solo tour at the Paramount Theater in Asbury Park.
 
-**2005:**
+**2005:**<br>
 
 
 

@@ -114,9 +114,9 @@ It's an unsettling ending, one that sticks with us much longer than the resoluti
 
 We'll take a listen to that one in a few days.
 
-**Richfield Whistle**
+**Richfield Whistle**<br>
 **Recorded** April 24, 1983  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

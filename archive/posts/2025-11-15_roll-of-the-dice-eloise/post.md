@@ -22,7 +22,7 @@ It's a great set-up, though (even if it pales beside the first verse of "Growin'
 > *And it's all Eloise, yeah*
 
 **Eloise****Recorded:** April-May 1972  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 © September 17, 2018

@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -34,7 +34,7 @@ reaches the top of the U.S. album chart. It will spend a remarkable on the chart
 
 Bruce and the E Street Band close out the European leg of the Born in the U.S.A. Tour with a show at Roundhay Park in Leeds, England. Steve Van Zandt makes his fourth consecutive encore appearance. Check out the news coverage below.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/3V5OWLBAaRE?feature=oembed](https://www.youtube.com/embed/3V5OWLBAaRE?feature=oembed)
 
@@ -46,7 +46,7 @@ Bruce and the E Street Band close out the European leg of the Born in the U.S.A.
 
 The Tunnel of Love Tour arrives in Dublin for a show at RDS Arena.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/FccgmWC4nds?feature=oembed](https://www.youtube.com/embed/FccgmWC4nds?feature=oembed)
 

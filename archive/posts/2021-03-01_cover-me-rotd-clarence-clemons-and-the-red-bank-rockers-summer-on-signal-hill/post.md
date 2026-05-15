@@ -30,7 +30,7 @@ So we can consider the matter settled. Now we can turn our attention to the more
 
 Whatever happened to those lyrics?
 
-**Summer on Signal Hill**
+**Summer on Signal Hill**<br>
 **Recorded:** July 1983<br>
 **Released:** B-side single (1983, 1986)<br>
-**Never performed**
+**Never performed**<br>

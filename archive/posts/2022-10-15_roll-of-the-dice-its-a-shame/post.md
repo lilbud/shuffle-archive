@@ -39,9 +39,9 @@ If there's anything historically or artistically significant about "It's a Shame
 
 Neither "Jon's Jam" or "It's a Shame" have ever had a live outing, but the song it inspired became one of Bruce's most-played songs ever.
 
-**It's a Shame**
+**It's a Shame**<br>
 **Recorded** June 14, 1977 (with 2010 horn and vocal overdubs)
 **Released:** *The Promise* (2010)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

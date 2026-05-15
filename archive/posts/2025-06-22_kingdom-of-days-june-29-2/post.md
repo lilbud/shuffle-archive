@@ -4,7 +4,7 @@
 
 Adele Springsteen takes Bruce and Ginny to their first-ever rock concert when Chubby Checker plays at Steel Pier in Atlantic City. She also takes them to see Anita Bryant that evening. Bruce enjoys the afternoon show a lot more than the evening show.
 
-**1962:**
+**1962:**<br>
 
 
 
@@ -12,7 +12,7 @@ Adele Springsteen takes Bruce and Ginny to their first-ever rock concert when Ch
 
 The Castiles play a show at Hullabaloo in Freehold, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -20,11 +20,11 @@ The Castiles play a show at Hullabaloo in Freehold, New Jersey.
 
 Richard Davis records his upright bass overdubs for "The Angel" at 914 Sound Studios in New York City.
 
-**1972:**
+**1972:**<br>
 
 A scheduled E Street Band gig in Memphis is cancelled.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band record "" at the Record Plant in New York City. It won't be released for another 23 years.
 
@@ -34,7 +34,7 @@ Bruce and the E Street Band record "" at the Record Plant in New York City. It w
 
 Bruce and the E Street Band make a Darkness Tour stop at San Jose's Center for the Performing Arts.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/e0eKZI7h?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/e0eKZI7h?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -78,7 +78,7 @@ In the setlist, a couple of notable moments: Bruce covers "" for the first time,
 
 The Born in the U.S.A. Tour arrives in Paris for the first of two nights at Parc de la Courneuve. The show was captured in stunning (for the time) video and audio quality.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/kmI7T1QT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kmI7T1QT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -106,7 +106,7 @@ Night Two in Rotterdam on the Tunnel of Love Tour features the first performance
 
 Bruce plays a 20-minute-long "Twist and Shout" with The Fabulous Greaseband at The Headliner in Neptune, New Jersey.
 
-**1989:**
+**1989:**<br>
 
 
 
@@ -128,7 +128,7 @@ Bruce and his new touring band bring World Tour 1992 to Paris for the first of t
 
 Bruce and Patti publicly reveal that their third child is on the way.
 
-**1993:**
+**1993:**<br>
 
 
 
@@ -146,7 +146,7 @@ Bruce and the E Street Band play their penultimate Reunion show at Madison Squar
 
 Bruce discovers a painting of himself by local high school student Michael Antrim, who submitted it for (and won) an art contest held by the Freehold Library two years prior. Bruce heads over to Michael's house in Red Bank to sign it. Learning that Michael plays guitar, he spends time playing with him–about 90 minutes in total spent at the boy's house.
 
-**2004:**
+**2004:**<br>
 
 
 

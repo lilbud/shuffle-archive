@@ -4,7 +4,7 @@
 
 The Castiles play a show at Freehold Regional High School.
 
-**1967:**
+**1967:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play a show at Freehold Regional High School.
 
 The Bruce Springsteen Band spends Thanksgiving Eve in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -20,7 +20,7 @@ The Bruce Springsteen Band spends Thanksgiving Eve in residence at the Student P
 
 Bruce takes the bus from Asbury Park down to Philadelphia to spend a couple of days with local DJ Ed Sciaky, starting with a visit to a local studio the next morning to meet David Bowie.
 
-**1974:**
+**1974:**<br>
 
 Bruce makes a return visit to the Hammersmith Odeon in London a week after his debut performance. Bruce tour premieres "" for the occasion, and he closes the show with the last "" for almost a quarter-century. This show is available as part of Bruce's official archive series–get it .
 
@@ -36,13 +36,13 @@ Bruce makes a return visit to the Hammersmith Odeon in London a week after his d
 
 Night Two at the Capital Center in Largo on the River Tour is filmed (not by Springsteen's crew, but by sneaky employees at the venue).
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/bLcUXt_jMBM?feature=oembed](https://www.youtube.com/embed/bLcUXt_jMBM?feature=oembed)
 
 Bruce spends another day in Florida, travelling from Orlando to Miami to perform a show that evening at the Miami Arena.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/UHiEQxsz-is?feature=oembed](https://www.youtube.com/embed/UHiEQxsz-is?feature=oembed)
 
@@ -74,7 +74,7 @@ Bruce kicks off Year Two(!) of the Ghost of Tom Joad Tour with a trio of shows a
 
 Bruce and the E Street Band wrap up a week-long tour of Florida with a show at the Ice Palace in Tampa, where Bruce closes the show with a tour premiere of "Twist and Shout."
 
-**2002:**
+**2002:**<br>
 
 [https://www.youtube.com/embed/idsR1f3olTk?feature=oembed](https://www.youtube.com/embed/idsR1f3olTk?feature=oembed)
 

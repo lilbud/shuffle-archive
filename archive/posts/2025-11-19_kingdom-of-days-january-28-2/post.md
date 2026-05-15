@@ -2,7 +2,7 @@
 
 : The Bruce Springsteen Band plays The Captain's Garter in Neptune, New Jersey.
 
-**1972**
+**1972**<br>
 
 
 
@@ -10,11 +10,11 @@
 
 Bruce and the band finish their five-night stint at The Quiet Knight in Chicago opening for the Persuasions.
 
-**1973:**
+**1973:**<br>
 
 The original River Tour moves on to the Checkerdome in St. Louis.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCCv4yFTmwQpQLJWfbGU-Y2](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCCv4yFTmwQpQLJWfbGU-Y2)
 
@@ -40,7 +40,7 @@ Bruce and the E Street Band rehearse for the upcoming Tunnel of Love Express Tou
 
 Bruce ends the first leg of his solo acoustic tour at the Fox Theater in Atlanta.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/CUsgJdnd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CUsgJdnd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -48,11 +48,11 @@ Bruce ends the first leg of his solo acoustic tour at the Fox Theater in Atlanta
 
 At the Paramount Theater in Asbury Park, Bruce rehearses for an upcoming benefit concert for slain police office Patrick King.
 
-**1998:**
+**1998:**<br>
 
 Rehearsals continue at Raymond James Stadium in Tampa for Bruce's upcoming halftime show at the Super Bowl.
 
-**2009:**
+**2009:**<br>
 
 Night Two in Cape Town features fourteen tour premieres, including "." Bruce performs "" and "" in memory of Pete Seeger, who died the day before. With a Seeger Tour arrangement of "" thrown in, the show almost feels like a throwback to 2006.
 

@@ -167,7 +167,7 @@ In craft, content, performance, and artistry, it stands incontrovertibly as one 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6i-fiRgbpr4)
 
-**The Rising**
+**The Rising**<br>
 **Recorded** February-March 2002  
 **Released:** *The Rising* (2002), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
 **First performed:** July 25, 2002 (Asbury Park, NJ)

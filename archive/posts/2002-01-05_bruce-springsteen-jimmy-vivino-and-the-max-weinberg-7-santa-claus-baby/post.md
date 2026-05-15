@@ -12,7 +12,7 @@ A few years later, Joan Osborne rescued the song from obscurity and included a m
 
 [Watch on Youtube: Santa Claus Baby](https://www.youtube.com/watch?v=HGCEF9wUgxI)
 
-**Santa Claus Baby**
+**Santa Claus Baby**<br>
 **First performed:** December 3, 2001 (Asbury Park, NJ)<br>
 **Last performed:** December 3, 2001 (Asbury Park, NJ)<br>
 

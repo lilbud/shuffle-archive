@@ -36,7 +36,7 @@ Bruce pulls the same trick in the next verse, but this time hardcore Springsteen
 > *Pint of gin in my boot cuff, I'm drivin' for a drink and a dance*
 > *Sittin' on the next stool, miss, a little time on her hands*
 > *Yeah I knew she was trouble, but trouble sure was lookin' fine*
-***And when I pulled her close what I knew kinda slipped my mind***
+***And when I pulled her close what I knew kinda slipped my mind***<br>
 > *We lay in bed and watched the moon come up crawling*
 > *Loose change in my pocket*
 
@@ -83,9 +83,9 @@ Until then, we're left to choose our own adventure.
 
 ![](../../assets/2019/12/loosechange_lyrics-sheet-1.jpg)
 
-**Loose Change**
+**Loose Change**<br>
 **Recorded:** January 31, 1991  
 **Released:** *Tracks* (1998)
-**Never Performed**
+**Never Performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

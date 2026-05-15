@@ -2,27 +2,27 @@
 
 Child continues their opening stand at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Bruce and Steve play The Upstage in Asbury Park, leading separate bands but each playing a slate of hits from the 1950s.
 
-**1971:**
+**1971:**<br>
 
 At the Record Plant in New York City, Bruce and his studio team complete the mix for "Factory."
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/3YuEJ_XolkM?feature=oembed](https://www.youtube.com/embed/3YuEJ_XolkM?feature=oembed)
 
 Bruce records multiple takes of "Roulette," just six days after the Three Mile Island accident that inspired it.
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/_QWRFI3M0mo?feature=oembed](https://www.youtube.com/embed/_QWRFI3M0mo?feature=oembed)
 
 Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 Bruce and the E Street Band play their first of two shows in Melbourne, Australia. Bruce performs "Johnny Bye-Bye" for the final time to date.
 
@@ -42,13 +42,13 @@ spotlights Los Angeles outposts for Springsteen fans.
 
 Bruce brings his World Tour 1993 to Dortmund, Germany, where he debuts his cover of "Many Rivers to Cross" and Jon Bon Jovi and Richie Sambora join him on stage for "Glory Days."
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/fUeXizaZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fUeXizaZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 The Reunion Tour hits the Pacific Northwest, starting with a single show at Portland's Rose Garden that features the tour premiere of "Dead Man Walkin'."
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/QMqRCigT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QMqRCigT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -74,13 +74,13 @@ is released, documenting the E Street Band's Reunion Tour. The album goes on sal
 
 In Glendale, Night Two on the Working on a Dream Tour brings six set list change-ups (including "Night," "Working on the Highway," and "Downbound Train"), rare for this early in the tour.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/emnJ4gJGdM0?feature=oembed](https://www.youtube.com/embed/emnJ4gJGdM0?feature=oembed)
 
 The Wrecking Ball Tour stops at the Izod Center in East Rutherford for the first of two nights. The highlight: the tour premiere of "So Young and In Love."
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/e8XRY1Cfr0k?feature=oembed](https://www.youtube.com/embed/e8XRY1Cfr0k?feature=oembed)
 
@@ -94,11 +94,11 @@ The Wrecking Ball Tour stops at the Izod Center in East Rutherford for the first
 
 Bruce and the E Street Band rehearse for the U.S. leg of the High Hopes Tour at Sir Studios in New York City.
 
-**2014:**
+**2014:**<br>
 
 The new River Tour stops at the Chesapeake Energy arena in Oklahoma City.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/ts-sQIQuk9k?feature=oembed](https://www.youtube.com/embed/ts-sQIQuk9k?feature=oembed)
 
@@ -110,7 +110,7 @@ The new River Tour stops at the Chesapeake Energy arena in Oklahoma City.
 
 Another tour premiere for New York fans: Bruce surprises with "It's Hard to Be a Saint in the City" at Barclays Center in Brooklyn.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/9Iz9bA8NHbc?feature=oembed](https://www.youtube.com/embed/9Iz9bA8NHbc?feature=oembed)
 

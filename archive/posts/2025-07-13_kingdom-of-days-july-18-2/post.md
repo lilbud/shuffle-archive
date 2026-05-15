@@ -4,11 +4,11 @@
 
 Child plays their fourth of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Steel Mill headlines at Asbury Park's Sunshine In.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -20,11 +20,11 @@ Steel Mill headlines at Asbury Park's Sunshine In.
 
 The Bruce Springsteen Band headlines an outdoor show at Monroe Park in Richmond.
 
-**1971:**
+**1971:**<br>
 
 Bruce and the E Street Band headline two shows at Max's Kansas City in New York, kicking off a six-night/twelve-show stand. The opening act: Bob Marley and the Wailers, on their very first American tour.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -36,7 +36,7 @@ Bruce and the E Street Band headline two shows at Max's Kansas City in New York,
 
 Bruce and the E Street Band play two shows at Le Garage in Spray Beach, New Jersey.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -52,7 +52,7 @@ Bruce completes "" and "" at the Record Plant in New York City, a mere month bef
 
 The Darkness Tour continues its southern swing with a show at the Municipal Auditorium in Jackson, Mississippi.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/cBZLC6qs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cBZLC6qs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -68,7 +68,7 @@ At The Power Station in New York City, Bruce records "" and "." It will be almos
 
 Bruce and the band play their fourth of five nights at The Spectrum in Philadelphia on the River Tour.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/XehyRDDQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XehyRDDQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -100,7 +100,7 @@ Night Two on the U.S. leg of the Reunion Tour in East Rutherford brings out rare
 
 Bruce and the E Street Band rehearse for the upcoming Rising Tour.
 
-**2002:**
+**2002:**<br>
 
 It's a rainy Night Three of ten at the Giants Stadium stand of the Rising Tour, and Bruce opens with an audibled "." Garland Jeffreys guests during the encores for "."
 
@@ -148,7 +148,7 @@ The Wrecking Ball Tour comes to Cork, where "," "" and "" make their tour debuts
 
 At what point does a guest appearance become a surprise co-headline? I'm not sure, but at Joe Grushecky's show at The Wonder Bar, Bruce clearly crossed that line, joining the Houserockers for fifteen of their eighteen-song set.
 
-**2015:**
+**2015:**<br>
 
 [https://www.youtube.com/embed/eNqsIniq9qY?feature=oembed](https://www.youtube.com/embed/eNqsIniq9qY?feature=oembed)
 
@@ -180,7 +180,7 @@ Later that evening, Bruce joins Billy Joel on stage at Madison Square Garden to 
 
 For the first time in over two decades, Bruce plays an identical setlist to his previous show when World Tour 2023 stops in Vienna, Austria.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/YZwxrURUL8w?feature=oembed](https://www.youtube.com/embed/YZwxrURUL8w?feature=oembed)
 
@@ -188,6 +188,6 @@ For the first time in over two decades, Bruce plays an identical setlist to his 
 
 Bruce and the E Street Band play their second of two nights at Strawberry Arena in Solna, Sweden.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/bUhyY_1EY3s?feature=oembed](https://www.youtube.com/embed/bUhyY_1EY3s?feature=oembed)

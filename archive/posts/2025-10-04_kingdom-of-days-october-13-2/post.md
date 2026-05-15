@@ -4,7 +4,7 @@
 
 Future Seeger Sessions Band member and E Streeter Charlie Giordano is born in Brooklyn.
 
-**1954:**
+**1954:**<br>
 
 
 
@@ -20,7 +20,7 @@ At the last minute, Columbia Records cancels a promotional preview show for at t
 
 Bruce and the E Street Band bring the Lawsuit Tour to Kean College in Union, New Jersey.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/dkDuGnON38Y?feature=oembed](https://www.youtube.com/embed/dkDuGnON38Y?feature=oembed)
 
@@ -84,7 +84,7 @@ Neil and Pegi Young hold their first benefit for The Bridge School for children 
 
 After an unplanned week off due to illness, Bruce picks World Tour 1992 back up at the Tacoma Dome.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/Ja9Ha-Er8BM?feature=oembed](https://www.youtube.com/embed/Ja9Ha-Er8BM?feature=oembed)
 
@@ -114,13 +114,13 @@ Bruce and Jackson Browne hold an encore concert for the Vote for Change Tour at 
 
 Bruce brings his solo acoustic Devils & Dust Tour to Chicago's United Center.
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/jjiAlqTY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jjiAlqTY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 The Seeger Sessions Tour stops in Rotterdam for a show at Sportpaleis Ahoy.
 
-**2006:**
+**2006:**<br>
 
 [https://videopress.com/embed/80VbpEqs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/80VbpEqs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -128,7 +128,7 @@ The Seeger Sessions Tour stops in Rotterdam for a show at Sportpaleis Ahoy.
 
 Bruce joins the Max Weinberg 7 for six songs during their benefit performance for the Monmouth County SPCA at Max's farm in Atlantic Highlands, New Jersey.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/O8ttwMZYuI4?feature=oembed](https://www.youtube.com/embed/O8ttwMZYuI4?feature=oembed)
 
@@ -202,7 +202,7 @@ Without fanfare, Bruce concludes his long-running radio show with Episode 29, "L
 
 Bruce performs "The Ghost of Tom Joad" and "Dancing in the Dark" at a benefit gala for the USC Shoah Foundation in New York City.
 
-**2024:**
+**2024:**<br>
 
 [https://www.instagram.com/reel/DBFhB_SPZyH/?utm_source=ig_embed&utm_campaign=loading](https://www.instagram.com/reel/DBFhB_SPZyH/?utm_source=ig_embed&utm_campaign=loading)
 

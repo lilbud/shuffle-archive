@@ -28,6 +28,6 @@ Even the music contributes to their story, especially Jamie Peck's Glen Miller-e
 
 Bruce doesn't appear on the studio track, and he's never performed it with Joe. But his assist helped his friend keep his parents alive and young forever in song.
 
-**1945**
+**1945**<br>
 **Released:** *Coming Home* (1998)<br>
-**Never performed**
+**Never performed**<br>

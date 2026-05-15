@@ -57,8 +57,8 @@ Bruce is believed to have played "Clouds" during some of his acoustic shows in 1
 
 Perhaps someday a recording will surface and we'll find out for sure.
 
-**Clouds**
-**Never recorded**
+**Clouds**<br>
+**Never recorded**<br>
 **First performed:** unknown  
 **Last performed:** unknown
 

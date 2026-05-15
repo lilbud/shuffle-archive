@@ -28,7 +28,7 @@ After more than five years apart, Bruce reconvenes the E Street Band to promote 
 
 Bruce brings his solo acoustic tour to Paris for the first of two shows at Le Zenith de Paris.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/yVJU9zQW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yVJU9zQW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -54,7 +54,7 @@ The 2016 version of the River Tour stops at KFC Yum! Center in Louisville, where
 
 Bruce plays his first show ever in Christchurch, New Zealand. The show features a poignant "My City of Ruins," played for the city that suffered a devastating earthquake in 2011.
 
-**2017:**
+**2017:**<br>
 
 [https://www.youtube.com/embed/NKPQm6C4VvI?feature=oembed](https://www.youtube.com/embed/NKPQm6C4VvI?feature=oembed)
 

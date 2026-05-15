@@ -70,8 +70,8 @@ You'd think that'd be the setup of a fascinating song, but unfortunately that's 
 
 So while a recorded version of "New York Morning Love" isn't likely to ever see the light of day in any fashion, Bruce's notebook lyrics at least give us some insight into a young artist learning to grapple with some very adult themes.
 
-**New York Morning Love**
-**Never recorded**
-**Never performed**
+**New York Morning Love**<br>
+**Never recorded**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

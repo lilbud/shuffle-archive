@@ -22,9 +22,9 @@ It also features one of the strongest arrangements on the album, clearly followi
 
 It may "only" be a cover (and a safe one at that), but "The Sun Ain't Gonna Shine" easily ranks among Springsteen's finest vocal moments on record.
 
-**The Sun Ain't Gonna Shine Anymore**
+**The Sun Ain't Gonna Shine Anymore**<br>
 **Recorded:** 2021<br>
 **Released:** *Only the Strong Survive* *(2022)*<br>
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

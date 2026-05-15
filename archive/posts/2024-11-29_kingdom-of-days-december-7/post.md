@@ -10,7 +10,7 @@ Mike Appel arranges an unusual publicity event for Bruce and his band–at the c
 
 Bruce and the E Street Band play three sets at Childe Harold in Washington DC–their second of three nights.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -32,7 +32,7 @@ Bruce and the band headline at the Geneva Theater in Geneva, New York. Listen to
 
 Bruce and the E Street Band play their third and final night at Georgetown University.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -54,7 +54,7 @@ The Darkness Tour descends on the University of Texas at Austin, where Bruce deb
 
 Bruce and the E Street Band bring the Born in the U.S.A. Tour to the Leon County Civic Center in Tallahassee.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/fA98MpTq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fA98MpTq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -80,7 +80,7 @@ Bruce records "" with Roy Bittan at Soundworks West in Los Angeles. It will rema
 
 Bruce's World Tour 1992 arrives in Philadelphia for a two-night stand at the Spectrum.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/Me7NJnY_w6Y?feature=oembed](https://www.youtube.com/embed/Me7NJnY_w6Y?feature=oembed)
 
@@ -112,7 +112,7 @@ Bruce flies to Potsdam to be interviewed and perform on German radio, where for 
 
 Bruce, The Max Weinberg 7 and a host of friends play their fourth of five holiday shows at Asbury Park's Convention Hall in support of local charities. All of the week's usual suspects are present: Patti, Soozie, Nils, Southside, Lisa Lowell, The Miami Horns, Bobby Bandiera–and tonight, Bruce Hornsby joins as well.
 
-**2001:**
+**2001:**<br>
 
 [https://www.youtube.com/embed/-m1UJNPz5FA?feature=oembed](https://www.youtube.com/embed/-m1UJNPz5FA?feature=oembed)
 
@@ -120,7 +120,7 @@ Bruce, The Max Weinberg 7 and a host of friends play their fourth of five holida
 
 Bruce, the Max Weinberg 7, and a host of friends hold their second of a three-pack of holiday shows at Asbury Park's Convention Hall to benefit local charities. The stage is once again filled with a host of stellar musicians including Jesse Malin, Sam Moore, Willie Nile, and much of the E Street Band, plus Jon Bon Jovi .
 
-**2003:**
+**2003:**<br>
 
 [https://www.youtube.com/embed/vQyZQwboFic?feature=oembed](https://www.youtube.com/embed/vQyZQwboFic?feature=oembed)
 

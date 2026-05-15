@@ -34,10 +34,10 @@ Her most memorable E Street stage appearance may have been the evening of Novemb
 
 They weren't alone. Ronnie Spector passed away this evening (as I write this) after losing her battle with cancer. If there's an Internet in the afterlife, perhaps she'll see the tributes pouring in from around the globe and realize how much she meant to a world touched by her inimitable voice.
 
-**Ronnie Spector**
-**August 10, 1943 – January 12, 2022**
+**Ronnie Spector**<br>
+**August 10, 1943 – January 12, 2022**<br>
 
-**Walking in the Rain**
+**Walking in the Rain**<br>
 **First performed:** November 4, 1976 (New York City, NY)<br>
 **Last performed:** May 13, 1977 (Red Bank, NJ)<br>
 

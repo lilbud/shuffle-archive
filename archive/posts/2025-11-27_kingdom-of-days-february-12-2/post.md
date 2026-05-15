@@ -2,7 +2,7 @@
 
 Steel Mill opens for Boz Scaggs at The Matrix in San Francisco.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -10,11 +10,11 @@ Steel Mill opens for Boz Scaggs at The Matrix in San Francisco.
 
 Bruce jams at an open mic night at The Upstage in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 The Bruce Springsteen Band opens for Crazy Horse at the Sunshine In in Asbury Park.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -22,7 +22,7 @@ The Bruce Springsteen Band opens for Crazy Horse at the Sunshine In in Asbury Pa
 
 Bruce and the still unnamed E Street Band play the University of Kentucky, their first time performing in the state. After a fight with road manager Steve Appel, drummer Vini Lopez is fired immediately after the show, and the next three shows are cancelled.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -46,7 +46,7 @@ The Lawsuit Tour continues with a show at the Ottawa Civic Center.
 
 The original River Tour stops in Mobile, Alabama.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/lJzCY3iA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lJzCY3iA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -54,19 +54,19 @@ The original River Tour stops in Mobile, Alabama.
 
 : Bruce, Sting, Bruce Hornsby, and others attend and perform at a benefit for the Rainforest Foundation in Beverly Hills. Among the numbers Bruce performs: his only known cover of "Big Yellow Taxi."
 
-**1990**
+**1990**<br>
 
 After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and Joe Walsh hit the China Club in Hollywood and jam on stage.
 
 Bruce begins his first European solo acoustic tour in Frankfurt.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/qVfDA38YmwE?feature=oembed](https://www.youtube.com/embed/qVfDA38YmwE?feature=oembed)
 
 Bruce's marathon solo acoustic tour continues with a fifth and final show at the Capital Theater in Sydney, Australia.
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/pbK3YKjI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pbK3YKjI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

@@ -74,7 +74,7 @@ Gentle embarrassment: the tool of choice for loving parents of teenagers.
 
 How better to make it easier for your kids to leave the nest while always making sure they know they always have a home?
 
-**Pony Boy**
+**Pony Boy**<br>
 **Recorded:** June-September 1990  
 **Released:** *Human Touch* (1992)
 **First performed:** July 31, 1992 (East Rutherford, NJ)

@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band play a gig at the State University of New York in Oneonta. Even the school's yearbook can't spell his name correctly.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce and the E Street Band play a gig at the State University of New York in On
 
 Bruce plays his first-ever show in Minnesota at Minneapolis' Guthrie Theater.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/OzLQs4dVJXk?feature=oembed](https://www.youtube.com/embed/OzLQs4dVJXk?feature=oembed)
 
@@ -20,7 +20,7 @@ Bruce plays his first-ever show in Minnesota at Minneapolis' Guthrie Theater.
 
 Bruce and the E Street Band wrap up their spectacular three-night Darkness Tour homecoming stand at Passaic's Capitol Theater. There won't be a birthday show this year, so the band and crew take the opportunity to present Bruce with an early on-stage "birthday cake."
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -54,7 +54,7 @@ Bruce headlines the first of two famous "No Nukes" concerts at Madison Square Ga
 
 Bruce makes a guest appearance with Dave Edmunds at the Peppermint Lounge in New York City.
 
-**1982:**
+**1982:**<br>
 
 [https://www.youtube.com/embed/4d4CzXI7yss?feature=oembed](https://www.youtube.com/embed/4d4CzXI7yss?feature=oembed)
 
@@ -98,7 +98,7 @@ Night Four (of six) in Philadelphia on the Reunion Tour starts with a surprise: 
 
 The world is still reeling from the effects of the 9/11 terror attacks on the U.S., nowhere more so than in the New York/New Jersey area. A national telethon is held to raise money for the victims and their families, and the show is broadcast live by every major American network. Bruce opens the event with a new song, "My City of Ruins," unplayed and unheard outside of its Asbury Park premiere the previous December. Bruce plays the song solo on acoustic guitar and harmonica, but he is surrounded by a choir of backing vocalists that include Patti, Steve, Clarence, Soozie, Lisa Lowell, Layonne Holmes, and Dee Holmes (backing vocalist for The Bruce Springsteen Band in Bruce's pre-E Street days).
 
-**2001:**
+**2001:**<br>
 
 [https://www.youtube.com/embed/UpUv6ptY8xw?feature=oembed](https://www.youtube.com/embed/UpUv6ptY8xw?feature=oembed)
 
@@ -130,7 +130,7 @@ Patti's solo mini-tour continues at the Bowery Ballroom in New York City, where 
 
 Bruce and the E Street Band rehearse for their upcoming Magic Tour at Convention Hall in Asbury Park.
 
-**2007:**
+**2007:**<br>
 
 The Working on a Dream Tour stops at Wells Fargo Arena in Des Moines, where Bruce tour premieres "" followed immediately by a rare "" segueing into "Rosalita (Come Out Tonight)" — the first time the two songs have been played back-to-back like that in 29 years.
 
@@ -168,4 +168,4 @@ Bruce makes a surprise guest appearance at the Laid Back Festival in Holmdel, Ne
 
 Already postponed once six months prior, Bruce pushes his show in Columbus another seven months into the future due to his peptic ulcer disease.
 
-**2023:**
+**2023:**<br>

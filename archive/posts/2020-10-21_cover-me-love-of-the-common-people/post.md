@@ -22,6 +22,6 @@ After a couple of performances, the arrangement was solid enough and the band's 
 
 It may have been a late addition to the set list, but "Love of the Common People" proved a perfect complement for a wonderful stretch of shows that don't get nearly the amount of attention they deserve.
 
-**Love of the Common People**
+**Love of the Common People**<br>
 **First performed:** October 21, 2006 (Valencia, Spain)<br>
 **Last performed:** October 30, 2006 (Stockholm, Sweden)<br>

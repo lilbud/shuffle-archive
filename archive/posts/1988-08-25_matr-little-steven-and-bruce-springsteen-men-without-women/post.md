@@ -12,9 +12,9 @@ But vocals shouldn't be our sole focus here, because "Men Without Women" is a gr
 
 As with "Angel Eyes," Bruce and Steve have never performed "Men Without Women" together in concert, but with Steve's solo career on a creative upswing, who knows… maybe that will change soon.
 
-**Men Without Women**
+**Men Without Women**<br>
 **Recorded:** November 1981<br>
 **Released:** *Men Without Women* (1982)<br>
-**Never performed**
+**Never performed**<br>
 
 © February 20, 2021

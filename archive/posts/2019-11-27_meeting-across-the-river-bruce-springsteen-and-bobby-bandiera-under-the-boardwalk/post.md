@@ -19,7 +19,7 @@ Bruce covered "Under the Boardwalk" a few more times over the years. The last ti
 June 24, 1989 (Asbury Park, NJ)
 November 2, 2012 (New York City, NY)
 
-**Under the Boardwalk**
+**Under the Boardwalk**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

@@ -12,6 +12,6 @@ One of the songs they performed was a cover of Maurice Williams' "Stay," and Jac
 
 [Watch on Youtube: Stay](https://www.youtube.com/watch?v=YbCV_fTyedk)
 
-**Stay**
+**Stay**<br>
 **First performed:** September 21, 1979 (New York City, NY)<br>
 **Last performed:** June 30, 1989 (Atlantic City, NJ)<br>

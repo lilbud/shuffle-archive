@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 Bruce makes a guest appearance with Dave Edmunds on six songs at Big Man's West in Red Bank.
 
-**1982:**
+**1982:**<br>
 
 [https://www.youtube.com/embed/0NEVucciGyE?feature=oembed](https://www.youtube.com/embed/0NEVucciGyE?feature=oembed)
 
@@ -40,7 +40,7 @@ Bruce and the E Street Band close out their six-night Born in the U.S.A. stand a
 
 Bruce plays "Stolen Car" for the last time for 18 years when he and the band play their first of two Born in the U.S.A. shows at the Oakland-Alameda County Coliseum.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/FPobte6iqSU?feature=oembed](https://www.youtube.com/embed/FPobte6iqSU?feature=oembed)
 
@@ -76,11 +76,11 @@ Another great show on Night Two in Hartford, with Bruce opening his Rising Show 
 
 Bruce rehearses with the Sessions Band for their upcoming European tour.
 
-**2006:**
+**2006:**<br>
 
 Bruce rehearses with the E Street Band for their upcoming Magic tour.
 
-**2007:**
+**2007:**<br>
 
 The Wrecking Ball Tour enters its last week with the first of two shows in Brazil, this one in Sao Paolo. Bruce opens with the premiere of Raul Seixas' "."
 

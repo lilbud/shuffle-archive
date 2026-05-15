@@ -56,7 +56,7 @@ Here's the last appearance of "Dream Baby Dream" to date–the show opener in Ho
 
 [Watch on Youtube: Bruce Springsteen - Dream Baby Dream (Horsens, July 20, 2016) [with dubbed audio]](https://www.youtube.com/watch?v=BS2r94hrw2c)
 
-**Dream Baby Dream**
+**Dream Baby Dream**<br>
 **Recorded** 2013  
 **Released:** *High Hopes* (2014)
 **First performed:** May 11, 2005 (Rosemont, IL)

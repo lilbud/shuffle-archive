@@ -4,7 +4,7 @@
 
 Carol Dennis, back-up singer for Bruce's 1992-1993 World Tour, is born.
 
-**1954:**
+**1954:**<br>
 
 
 
@@ -12,7 +12,7 @@ Carol Dennis, back-up singer for Bruce's 1992-1993 World Tour, is born.
 
 Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long residency.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -20,7 +20,7 @@ Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long r
 
 Bruce plays two shows at Charlie's Place in Cambridge, Massachusetts–his final night of four at that venue.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -54,7 +54,7 @@ Bruce, Patti, Max, Roy, Jon Bon Jovi, and John Luraschi join Cats on a Smooth Su
 
 The Tunnel of Love Express stops in Houston for the first of two shows at The Summit.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/qpGF3ADJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qpGF3ADJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -88,7 +88,7 @@ Bruce joins Sting, James Taylor, Elton John, Billy Joel, Jon Bon Jovi, Paul Simo
 
 Bruce and the E Street Band play a Reunion Tour show for a low-energy crowd in Nashville. Bruce would still recall it seven years later to friend-of-the-blog Bryan Meng as the "worst crowd of the entire tour." (Nashville would redeem itself on the Magic Tour.)
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/B9bIX3FU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/B9bIX3FU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -96,11 +96,11 @@ Bruce and the E Street Band play a Reunion Tour show for a low-energy crowd in N
 
 Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.
 
-**2005:**
+**2005:**<br>
 
 At Asbury Park's Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour.
 
-**2006:**
+**2006:**<br>
 
 The Wrecking Ball Tour stops at The Palace of Auburn Hills, where Bruce breaks out tour premieres of "" and "."
 

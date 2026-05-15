@@ -22,6 +22,6 @@ The pump organ was the perfect accompaniment for Behan's dirge, and while Bruce 
 
 It was probably too obscure to make the main set, but Bruce's performance of "The Patriot Game" is one of the strongest and most affecting covers he never officially performed.
 
-**The Patriot Game**
+**The Patriot Game**<br>
 **First performed:** May 17, 2005 (Upper Darby, PA) – soundcheck only<br>
 **Last performed:** May 17, 2005 (Upper Darby, PA) – soundcheck only<br>

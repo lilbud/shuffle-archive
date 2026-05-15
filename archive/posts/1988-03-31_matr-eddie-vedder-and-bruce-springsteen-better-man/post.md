@@ -30,7 +30,7 @@ Who would have thought the E Street Band was so perfectly suited for a song so s
 
 Bruce and Eddie would go on to perform together several more times over the years, but never again would they play one of Vedder's own songs. Their one-time-only "Better Man" team-up remains one of the most exciting on-stage team-ups of Bruce's career.
 
-**Better Man**
+**Better Man**<br>
 **First performed:** October 13, 2004 (East Rutherford, NJ)<br>
 **Last performed:** October 13, 2004 (East Rutherford, NJ)<br>
 

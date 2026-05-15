@@ -54,7 +54,7 @@
 
 ![](../../assets/2018/07/evan-2.jpg)
 
-**![](../../assets/2020/07/1990-07-25.png)**
+**![](../../assets/2020/07/1990-07-25.png)**<br>
 
 **1992:** On Night Two (of eleven!) at Brendan Byrne Arena in East Rutherford on World Tour 1992, Bruce tour premieres "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)" and "[Ninety-nine and a Half (Won't Do).](https://estreetshuffle.com/index.php/2020/10/11/cover-me-ninety-nine-and-a-half-wont-do/)" He also plays "[Real Man](https://estreetshuffle.com/index.php/2020/04/15/roll-of-the-dice-real-man/)" for the last time to date. This show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,21905/Bruce-Springsteen-mp3-flac-download-7-25-1992-Meadowlands-Arena-East-Rutherford-NJ.html).
 

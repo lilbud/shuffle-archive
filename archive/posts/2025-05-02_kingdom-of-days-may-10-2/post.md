@@ -4,7 +4,7 @@
 
 Steel Mill headlines an outdoor concert at Monmouth College in West Long Branch, New Jersey.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce records "" at the Record Plant in New York City.
 
 Night Two at the Municipal Auditorium Theater in Mobile, Alabama on the Chicken Scratch Tour.
 
-**1976:**
+**1976:**<br>
 
 [https://videopress.com/embed/1U5KUucD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1U5KUucD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -62,7 +62,7 @@ Night Two for Bruce in Warsaw during his first visit to Poland features the fina
 
 The Rising tour moves on to Ludwigshafen, Germany, where Bruce opens the show with an acoustic "This Hard Land."
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/CWBvkuN4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CWBvkuN4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

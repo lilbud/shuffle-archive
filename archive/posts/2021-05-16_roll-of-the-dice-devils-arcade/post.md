@@ -111,7 +111,7 @@ Watch this complete performance of "Devil's Arcade" from early in the tour, and 
 
 [Watch on Youtube: Bruce Springsteen - Devil's Arcade](https://www.youtube.com/watch?v=dMN3RYMeHnE)
 
-**Devil's Arcade**
+**Devil's Arcade**<br>
 **Recorded** March-April 2007  
 **Released:** *Magic* (2007)
 **First performed:** September 24, 2007 (Asbury Park, NJ)

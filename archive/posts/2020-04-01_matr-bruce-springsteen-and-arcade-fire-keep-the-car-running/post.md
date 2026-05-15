@@ -20,6 +20,6 @@ https://www.youtube.com/watch?v=wsukSiGcUng
 
 Bruce would perform with Win and Régine once more, five years down the road, but that 2007 night in Ottawa remains the only time to date Bruce has played "Keep the Car Running."
 
-**Keep the Car Running**
+**Keep the Car Running**<br>
 **First performed:** October 14, 2007 (Ottawa, ON)<br>
 **Last performed:** October 14, 2007 (Ottawa, ON)<br>

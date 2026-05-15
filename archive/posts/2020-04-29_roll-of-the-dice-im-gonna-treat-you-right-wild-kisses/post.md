@@ -29,8 +29,8 @@ Alas, "I'm Gonna Treat You Right" appears to be lost to history; it doesn't look
 
 It sure would be a nice surprise for *Tracks II*, though.
 
-**I'm Gonna Treat You Right (Wild Kisses)**
-**Never recorded**
+**I'm Gonna Treat You Right (Wild Kisses)**<br>
+**Never recorded**<br>
 **First performed:** October 26, 1978 (Holmdel, NJ) (soundcheck only)
 **Last performed:** October 26, 1978 (Holmdel, NJ) (soundcheck only)
 

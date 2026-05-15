@@ -4,7 +4,7 @@
 
 The Castiles co-headline with The Rogues at the Surf ‘n' See Club in Sea Bright, New Jersey.
 
-**1966:**
+**1966:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles co-headline with The Rogues at the Surf ‘n' See Club in Sea Brigh
 
 Bruce and the E Street Band play their second night of a week-long residency at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and the E Street Band play their second night of a week-long residency at 
 
 Bruce opens a three-night stand at Alex Cooley's Electric Ballroom in Atlanta.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce opens a three-night stand at Alex Cooley's Electric Ballroom in Atlanta.
 
 Bruce, the E Street Band, and the Miami Horns bring the Lawsuit Tour to the Palace Theater in Waterbury, Connecticut.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAjgbMwpEkMyYVEXwh-zM2O](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAjgbMwpEkMyYVEXwh-zM2O)
 
@@ -40,7 +40,7 @@ Bruce, the E Street Band, and the Miami Horns bring the Lawsuit Tour to the Pala
 
 Bruce and the boys kick off a three-night Darkness Tour stand at Madison Square Garden. Before the show, Bruce sits down for an interview with Joel Siegel (it will air the following night).
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/5AJeDj3og0A?feature=oembed](https://www.youtube.com/embed/5AJeDj3og0A?feature=oembed)
 
@@ -94,7 +94,7 @@ is certified double platinum by the Recording Industry Association of America.
 
 Bruce and his 1992-93 touring band bring World Tour 1992 to the Richfield Coliseum for the first of two nights.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/aiv7ziZl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aiv7ziZl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -106,7 +106,7 @@ Bruce and his 1992-93 touring band bring World Tour 1992 to the Richfield Colise
 
 Bruce and the reunited E Street Band kick off a five-night Boston stand at the Fleet Center.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/DU1Af39FXks?feature=oembed](https://www.youtube.com/embed/DU1Af39FXks?feature=oembed)
 
@@ -148,7 +148,7 @@ Bruce takes a Magic Tour victory lap this week, with each show bringing its own 
 
 Bruce and his daughter Jessica appear together on the cover of Harper's Bazaar.
 
-**2018:**
+**2018:**<br>
 
 
 
@@ -156,7 +156,7 @@ Bruce and his daughter Jessica appear together on the cover of Harper's Bazaar.
 
 Bruce sends a pre-recorded birthday video for a Save Our Stages benefit in honor of Joe Strummer.
 
-**2020:**
+**2020:**<br>
 
 [https://www.youtube.com/embed/PvOFyHs_P3k?feature=oembed](https://www.youtube.com/embed/PvOFyHs_P3k?feature=oembed)
 

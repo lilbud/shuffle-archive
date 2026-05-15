@@ -2,7 +2,7 @@
 
 Steel Mill starts out the year in California, where they play a gig at the Esalen Institute in Big Sur.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -10,7 +10,7 @@ Steel Mill starts out the year in California, where they play a gig at the Esale
 
 Bruce holds a recording session for his next album at The Record Plant in New York City.
 
-**1978:**
+**1978:**<br>
 
 Bruce appears on Marc Maron's podcast for a wide-ranging, hour-long conversation, but it's Bruce's comments on the president-elect that make national news.
 

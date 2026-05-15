@@ -66,7 +66,7 @@ Their 1961 original recording attracted little notice, but when it was re-worked
 
 But that's an entry for another day.
 
-**The Twist**
+**The Twist**<br>
 **First performed:** November 2, 2002 (Sea Bright, NJ)
 **Last performed:** November 2, 2002 (Sea Bright, NJ)
 

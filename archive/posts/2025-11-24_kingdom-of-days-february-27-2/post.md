@@ -2,7 +2,7 @@
 
 Steel Mill barely makes it across the country from California to Virginia for their gig at Richmond's Free University.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -10,15 +10,15 @@ Steel Mill barely makes it across the country from California to Virginia for th
 
 Bruce jams at an open mic night at The Upstage in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 The Bruce Springsteen Band finishes their month-long residency at The Back Door with a ninth show.
 
-**1972:**
+**1972:**<br>
 
 Bruce's scheduled gig opening for Paul Butterfield's Better Days in Bakersfield is cancelled due to poor ticket sales.
 
-**1973:**
+**1973:**<br>
 
 Bruce postpones a scheduled concert at John Carroll University in Cleveland to make room for recording sessions.
 
@@ -26,7 +26,7 @@ Bruce postpones a scheduled concert at John Carroll University in Cleveland to m
 
 Bruce and the E Street Band play a sparsely attended show at the Riverfront Coliseum in Cincinnati. I'm a fan of the Muppets too, but I'm still not sure I agree with the local press profile of Miami Steve.
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -38,7 +38,7 @@ Bruce and the E Street Band play a sparsely attended show at the Riverfront Coli
 
 The Big Man is in his prime, but his successor and nephew is born on this day. Happy birthday, Jake Clemons!
 
-**1980:**
+**1980:**<br>
 
 
 
@@ -64,7 +64,7 @@ On the release date for "," his third single and video from Bruce visits his fri
 
 Bruce and Little Steven present Gary U.S. Bonds with the Rhythm-and-Blues Foundation's Pioneer Award at Midtown Hilton in New York City.
 
-**1997:**
+**1997:**<br>
 
 
 
@@ -72,7 +72,7 @@ Bruce and Little Steven present Gary U.S. Bonds with the Rhythm-and-Blues Founda
 
 Bruce and the E Street Band rehearse for the next leg of the Reunion Tour at Penn State University.
 
-**2000:**
+**2000:**<br>
 
 Bruce and the E Street Band (plus Curt Ramm) make a guest appearance on where they play "" and "."
 

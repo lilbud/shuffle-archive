@@ -88,7 +88,7 @@ It was almost a full decade before Bruce tried again, this time by request on th
 
 [Watch on Youtube: Local Hero (Leeds 07/24/13)](https://www.youtube.com/watch?v=ELEGhf7dMJw)
 
-**Local Hero**
+**Local Hero**<br>
 **Recorded:** Late 1991  
 **Released:** *Lucky Town* (1992), *In Concert/MTV Plugged* (1993)
 **First performed:** May 6, 1992 (New York City, NY)

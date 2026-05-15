@@ -17,6 +17,6 @@ So here's a treat: a newly uploaded, wonderfully clear recording of Bruce and Ca
 June 20, 1982 (Asbury Park)
 August 2, 1987 (Asbury Park)
 
-**Come On, Let's****Go**
+**Come On, Let's****Go**<br>
 **First performed:** <br>
 **Last performed:**<br>

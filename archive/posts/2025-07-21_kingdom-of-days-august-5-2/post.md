@@ -4,7 +4,7 @@
 
 Bruce joins an acoustic jam session (along with Steve Van Zandt on acoustic slide guitar, Kevin Kavanaugh on piano, and Vini Lopez on pebble-filled soda cans) at an outdoor folk concert organized by Tinker West.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce joins an acoustic jam session (along with Steve Van Zandt on acoustic slid
 
 Bruce and the E Street Band play their fourth of six nights at the Monmouth Arts Center in Red Bank.
 
-**1976:**
+**1976:**<br>
 
 [https://videopress.com/embed/P8BHqSd0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/P8BHqSd0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -22,7 +22,7 @@ Bruce holds a recording session for his fourth album at Atlantic Studios in New 
 
 Bruce and the boys bring the Darkness Tour to Louisville for a night. Bruce loses his place early on during "Rosalita (Come Out Tonight)" and the band vamps until Bruce remembers where he was.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/2zQ6Z7Uq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2zQ6Z7Uq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -36,7 +36,7 @@ After the show, Bruce sits down for an interview with Australian journalist Davi
 
 Night Two at the Capital Center in Largo on the original River Tour.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/pK3XrIXK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pK3XrIXK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -94,7 +94,7 @@ Jeff Porcaro of Toto, who played drums on most of the album, passes away at the 
 
 The fourth rehearsal show for the Rising Tour is the first in an arena, an invitation-only show at the Continental Airlines Arena in East Rutherford.
 
-**2002:**
+**2002:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB4ezPROrBW1WqFU1B0KIHv](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB4ezPROrBW1WqFU1B0KIHv)
 

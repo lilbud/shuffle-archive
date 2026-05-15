@@ -12,7 +12,7 @@ Take a listen to both performances below, and for more Bruce and Patti from this
 
 [https://videopress.com/embed/xcYOkknQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xcYOkknQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-**You Can Dig It**
+**You Can Dig It**<br>
 **First performed:** November 26, 1976 (New York City, NY)<br>
 **Last performed:** November 26, 1976 (New York City, NY)<br>
 

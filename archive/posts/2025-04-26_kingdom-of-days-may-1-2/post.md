@@ -4,7 +4,7 @@
 
 Steel Mill returns to the Hullabaloo in Richmond, Virginia.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -12,7 +12,7 @@ Steel Mill returns to the Hullabaloo in Richmond, Virginia.
 
 Bruce joins the Sundance Blues Band (featuring Southside Johnny, Steve Van Zandt, Vini Lopez, Garry Tallent, and Joe Hagstrom) during their encore at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -38,7 +38,7 @@ Bruce plays in Denmark for the first time–as a guest (his first time guesting 
 
 Bruce plays his first ever show in Portugal, in Lisbon. Local news coverage below.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/b7vi4nsmzrI?feature=oembed](https://www.youtube.com/embed/b7vi4nsmzrI?feature=oembed)
 
@@ -48,13 +48,13 @@ Bruce plays his first ever show in Portugal, in Lisbon. Local news coverage belo
 
 Bruce brings his solo acoustic tour to the Palais des Beaux-Arts in Brussels.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/uBIn2DK3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uBIn2DK3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the reunited E Street Band play their first of two shows at the Manchester Evening News Arena in England.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/QjudCSZ7TC4?feature=oembed](https://www.youtube.com/embed/QjudCSZ7TC4?feature=oembed)
 
@@ -70,7 +70,7 @@ Bruce's newly released album debuts in the top spot on both the U.S. and U.K. ch
 
 Bruce joins Tim McCloone on stage for two songs at the annual Ranney School Ball in Addison Park in Aberdeen, New Jersey. His autographed guitar is auctioned later to benefit the school.
 
-**2010:**
+**2010:**<br>
 
 
 

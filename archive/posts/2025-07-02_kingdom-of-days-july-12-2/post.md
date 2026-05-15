@@ -4,7 +4,7 @@
 
 The Castiles headline a gig at the Hullabaloo in Freehold.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles headline a gig at the Hullabaloo in Freehold.
 
 Bruce is at 914 Sound Studios in Blauvelt for a mixing session for his upcoming debut album.
 
-**1972:**
+**1972:**<br>
 
 Bruce and the E Street Band headline two shows at The Bottom Line in New York City. There's an early performance (likely the earliest) of a work-in-progress "Jungleland" that is believed to be from this show. It's well worth a listen, as it's dramatically different from the final version that will be released on vinyl over a year later.
 
@@ -32,7 +32,7 @@ Bruce and the E Street Band work on "" during a recording session at Atlantic St
 
 Bruce and the boys bring the Darkness Tour to Dallas, where poor ticket sales force the show to be moved from the 10,000-seat Convention Center Arena to the 1,700-seat Convention Center Theater instead. Because fans have to exchange their tickets on the way in, it takes a long time to admit everyone, and you can hear Bruce ask fans for their patience before the show starts below.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/nfXyYNHm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nfXyYNHm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -60,7 +60,7 @@ The Born in the U.S.A. Tour continues its midwest trek, arriving in East Troy, W
 
 The Tunnel of Love Tour continues its final leg, stopping in Frankfurt for one show.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDyj6Y8J4-wFBZXiAdDa7AE](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDyj6Y8J4-wFBZXiAdDa7AE)
 
@@ -88,7 +88,7 @@ Joe Grushecky and Bruce record "Talk Show," "," and "" for Joe's album at Bruce'
 
 Bruce and the E Street Band rehearse for the upcoming Rising Tour at the Expo Theater in Fort Monmouth, New Jersey.
 
-**2002:**
+**2002:**<br>
 
 
 
@@ -96,7 +96,7 @@ Bruce and the E Street Band rehearse for the upcoming Rising Tour at the Expo Th
 
 At Night Two in Dublin on the Working on a Dream Tour, Bruce and the band perform the tour premiere of "American Skin (41 Shots)."
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/eR1JwRAPnWE?feature=oembed](https://www.youtube.com/embed/eR1JwRAPnWE?feature=oembed)
 

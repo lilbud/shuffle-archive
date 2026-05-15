@@ -4,7 +4,7 @@
 
 Chicago cancels their concert in Buffalo at the last minute, scuttling Bruce's opening act performance along with it.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Chicago cancels their concert in Buffalo at the last minute, scuttling Bruce's o
 
 Another abrupt cancellation: Bruce's scheduled Darkness Tour stop in La Crosse, Wisconsin is advertised right up until the day before the show before cancelling without public explanation.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -42,7 +42,7 @@ Bruce joins Jackson Browne on stage for "" and "" in New York's Central Park at 
 
 Bruce and the E Street Band bring the Born in the U.S.A. Tour to The Netherlands for the first of two nights in Rotterdam.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD5tRNjiSRzrMpOiML4kWxO](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD5tRNjiSRzrMpOiML4kWxO)
 
@@ -50,7 +50,7 @@ Bruce and the E Street Band bring the Born in the U.S.A. Tour to The Netherlands
 
 Night Two in Turin on the Tunnel of Love Tour is cancelled due to low ticket sales(!)
 
-**1988:**
+**1988:**<br>
 
 The Reunion Tour's legendary ten-night final stand kicks off at Madison Square Garden with the world premiere of "." Despite the controversy that preceded the show and the mixed audience reaction tonight, Bruce plays "American Skin (41 Shots)" at this and each remaining show. You can hear just how strong the audience reaction was below.
 
@@ -80,15 +80,15 @@ Wolfgang Niedecken guest-stars on "" at Bruce's Rising show in Hamburg.
 
 A scheduled solo acoustic show in Berlin is rescheduled after Terry Magovern's fiancée passes away.
 
-**2005:**
+**2005:**<br>
 
 Bruce joins Jackson Browne on stage in Red Bank for two encore performances at a benefit for People with ALS.
 
-**2007:**
+**2007:**<br>
 
 Clarence Clemons suffers a severe stroke, and his friends and family rush to his side.
 
-**2011:**
+**2011:**<br>
 
 
 

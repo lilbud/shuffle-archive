@@ -20,9 +20,9 @@ But for students of Bruce's songwriting process, it's still interesting to hear 
 
 [Watch on Youtube: Bruce Springsteen Love is a Gun #1 harmonies](https://www.youtube.com/watch?v=opXs1pAbrM4)
 
-**Love is a Gun**
+**Love is a Gun**<br>
 **Recorded:** January-June 1979 (demos only)<br>
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

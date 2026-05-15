@@ -26,7 +26,7 @@ Sometimes a rhinestone is just… well, a rhinestone.
 
 [Watch on Youtube: Bruce Springsteen - Rhinestone Cowboy (Film Version - Official Audio)](https://www.youtube.com/watch?v=NcnM3nju2uQ)
 
-**Rhinestone Cowboy**
+**Rhinestone Cowboy**<br>
 **Released:** *Western Stars: Songs From the Film (2019)***First performed:** April 2019  
 **Last performed:** April 2019
 

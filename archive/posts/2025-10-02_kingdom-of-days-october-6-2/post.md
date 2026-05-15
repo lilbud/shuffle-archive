@@ -4,7 +4,7 @@
 
 Bruce opens for Jackson Browne at Villanova University. Before the show, the two future rock legends play a cover of The Eagles' "Peaceful Easy Feeling" in a pre-show jam.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce opens for Jackson Browne at Villanova University. Before the show, the two
 
 Bruce and the E Street Band play a gig at Clark University in Worcester, Massachusetts.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce and the E Street Band play a gig at Clark University in Worcester, Massach
 
 Bruce joins Ellen Shipley on stage for "Twist and Shout" at The Fast Lane in Asbury Park.
 
-**1979:**
+**1979:**<br>
 
 At the first of two River Tour nights at the Richfield Coliseum, Bruce and the E Street Band play "" for the very first time.
 
@@ -38,7 +38,7 @@ At the first of two River Tour nights at the Richfield Coliseum, Bruce and the E
 
 Bruce and his new touring band play a show at Sacramento's Arco Arena on World Tour 1992.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/wNaquumN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wNaquumN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -98,7 +98,7 @@ It may be early in the Magic Tour, but Philadelphia still gets its special show 
 
 Bruce travels to Ypsilanti, Michigan to join presidential candidate Barack Obama at a campaign rally.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/g3TcRbsm5xc?feature=oembed](https://www.youtube.com/embed/g3TcRbsm5xc?feature=oembed)
 

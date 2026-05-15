@@ -8,6 +8,6 @@ Bonus footage: check out this high-quality video from the original artists.
 
 [Watch on Youtube: Wooly Bully Sam Sham Pharaohs ReProCut Video JAR-ReMix HiQ Hybrid JARichardsFilm](https://www.youtube.com/watch?v=BcU3b_OfGrs)
 
-**Wooly Bully**
+**Wooly Bully**<br>
 **First performed:** September 19, 1982 (Asbury Park, NJ)<br>
 **Last performed:** May 8, 2009 (University Park, PA)<br>

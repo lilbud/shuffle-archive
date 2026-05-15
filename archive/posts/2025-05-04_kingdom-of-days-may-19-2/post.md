@@ -4,7 +4,7 @@
 
 Bruce cancels a scheduled performance at Detroit's Masonic Temple Theater.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -42,7 +42,7 @@ Bruce and the E Street Band rehearse for the upcoming Darkness Tour at the Param
 
 Bruce joins Clarence Clemons and The Red Bank Rockers on stage for four songs at The Stone Pony.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/8PYuzTA6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8PYuzTA6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -74,13 +74,13 @@ Bruce joins Joe Ely on stage at Joe's gig at Dublin's National Stadium for three
 
 Bruce plays a solo acoustic show in Toulon, France.
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/U0SMqWyc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/U0SMqWyc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Night Two of four at Earls Court in London for the Reunion Tour.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/L763UO8r?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/L763UO8r?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

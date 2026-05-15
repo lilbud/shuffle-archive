@@ -4,7 +4,7 @@
 
 At the Student Prince in Asbury Park, Bruce makes a guest appearance at the debut performance of The Sundance Blues Band, led by Steve Van Zandt and Southside Johnny, and featuring Vini Lopez, Garry Tallent, and Joe Hagstrom.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ At the Student Prince in Asbury Park, Bruce makes a guest appearance at the debu
 
 Bruce plays in Alabama for the first time, at a very sparsely-attended show at the Boutwell Memorial Auditorium in Birmingham.
 
-**1976:**
+**1976:**<br>
 
 At the Power Station in New York City, Bruce records for what will eventually become 
 
@@ -28,11 +28,11 @@ MTV premieres a new documentary, .
 
 While Bruce rehearses with his new band in Los Angeles for his upcoming tour, riots take place only blocks away following the acquittal of four police officers who were captured on video beating Rodney King. The incident and riots will influence Bruce's set list arrangements and performances throughout the tour.
 
-**1992:**
+**1992:**<br>
 
 Imagine this line-up: Bruce joins James Brown on stage at the opening of the West Hollywood House of Blues for "Get Up – I Feel Like Being a Sex Machine," with Dan Aykroyd, Magic Johnson, Wesley Snipes, and Woody Harrelson on backing vocals.
 
-**1994:**
+**1994:**<br>
 
 
 
@@ -64,7 +64,7 @@ Bruce brings his solo acoustic tour to Strasbourg, France.
 
 Back-to-back benefits: following the previous night's benefit for Bobby Bandiera Jr., Bruce plays a benefit for the Rumson County Day School at The Stone Pony with much of the same line-up: Patti Scialfa, Jon Bon Jovi, Southside Johnny, and Bobby Bandiera.
 
-**2003:**
+**2003:**<br>
 
 Nils Lofgren makes a guest appearance on a gorgeous "This Hard Land" at Bruce's solo acoustic show in Glendale, where Bruce plays "" for the first time in thirteen years and debuts "."
 
@@ -94,7 +94,7 @@ Bruce opens with a rare "" when the Magic Tour stops for a night at the John Pau
 
 Night Two in Oslo starts off strong with the tour premiere of "Leap of Faith."
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/6aX28r8nxzc?feature=oembed](https://www.youtube.com/embed/6aX28r8nxzc?feature=oembed)
 

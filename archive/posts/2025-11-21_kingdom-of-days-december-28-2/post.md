@@ -4,7 +4,7 @@
 
 Earth plays to their largest crowd yet at the Crystal Ballroom in New York City's Hotel Diplomat, but the show almost doesn't happen. One week out, not even 100 tickets had been sold for this fundraiser in an 1,800-seat ballroom, but the administration of Ocean County College contributed funds and transportation to help drive attendance and support their students who organized the event.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -12,7 +12,7 @@ Earth plays to their largest crowd yet at the Crystal Ballroom in New York City'
 
 Bruce and the E Street Band play two shows on their second of four nights at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1973:**
+**1973:**<br>
 
 On their second of a four-night stand at Philadelphia's Tower Theater, Bruce and the band open with a new arrangement of "" and play "" for the last time for 34 years. It would appear that this year-end stand was hastily booked, as a mere four days ago Toronto press was aggressively promoting Bruce's scheduled appearance on this date at Seneca college.
 
@@ -40,7 +40,7 @@ Christmas may be over, but you'd never know it in Uniondale. Bruce opens his thr
 
 Bruce makes a surprise appearance at La Bamba's Holiday Hurrah benefit show for the Monmouth County chapter of Big Brothers.
 
-**1983:**
+**1983:**<br>
 
 [https://videopress.com/embed/roAY4OcD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/roAY4OcD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

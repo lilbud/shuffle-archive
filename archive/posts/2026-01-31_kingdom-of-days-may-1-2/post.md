@@ -2,7 +2,7 @@
 
 Steel Mill returns to the Hullabaloo in Richmond, Virginia.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -10,7 +10,7 @@ Steel Mill returns to the Hullabaloo in Richmond, Virginia.
 
 Bruce joins the Sundance Blues Band (featuring Southside Johnny, Steve Van Zandt, Vini Lopez, Garry Tallent, and Joe Hagstrom) during their encore at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -30,13 +30,13 @@ Bruce plays a set at the Ahmanson Theater in Los Angeles, part of a promotional 
 
 Bruce plays in Denmark for the first time–as a guest (his first time guesting in Europe) with local band Malurt on "Hungry Heart."
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/YSkr1fneJkc?feature=oembed](https://www.youtube.com/embed/YSkr1fneJkc?feature=oembed)
 
 Bruce plays his first ever show in Portugal, in Lisbon. Local news coverage below.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/b7vi4nsmzrI?feature=oembed](https://www.youtube.com/embed/b7vi4nsmzrI?feature=oembed)
 
@@ -46,13 +46,13 @@ Bruce plays his first ever show in Portugal, in Lisbon. Local news coverage belo
 
 Bruce brings his solo acoustic tour to the Palais des Beaux-Arts in Brussels.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/uBIn2DK3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uBIn2DK3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the reunited E Street Band play their first of two shows at the Manchester Evening News Arena in England.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/QjudCSZ7TC4?feature=oembed](https://www.youtube.com/embed/QjudCSZ7TC4?feature=oembed)
 
@@ -68,7 +68,7 @@ Bruce's newly released album debuts in the top spot on both the U.S. and U.K. ch
 
 Bruce joins Tim McCloone on stage for two songs at the annual Ranney School Ball in Addison Park in Aberdeen, New Jersey. His autographed guitar is auctioned later to benefit the school.
 
-**2010:**
+**2010:**<br>
 
 
 
@@ -76,7 +76,7 @@ Bruce joins Tim McCloone on stage for two songs at the annual Ranney School Ball
 
 On International Workers' Day, Bruce opens his Tampa High Hopes show with "Joe Hill" and continues a streak of unpredictable tour premieres with "Brothers Under the Bridge," "Gloria," and warm-up performances of "Jesse James" and "O Mary Don't You Weep" for the band's upcoming Jazz Fest gig. During the encores, Bruce forgets that his microphone stand isn't bolted down, leading to an embarrassingly awkward backbend attempt on "Tenth Avenue Freeze-Out." This show is available as part of Bruce's official archive series.
 
-**2014:**
+**2014:**<br>
 
 [https://www.youtube.com/embed/T2UF8yw89yE?feature=oembed](https://www.youtube.com/embed/T2UF8yw89yE?feature=oembed)
 
@@ -104,7 +104,7 @@ The Tony Awards announce that Bruce will be awarded a special Tony for "a once i
 
 Dion releases a video single for his remake of "Hymn to Him," featuring backing vocals by Patti Scialfa and Bruce on guitar.
 
-**2020:**
+**2020:**<br>
 
 [https://www.youtube.com/embed/7BJ4Kg3Dl_4?feature=oembed](https://www.youtube.com/embed/7BJ4Kg3Dl_4?feature=oembed)
 

@@ -88,7 +88,7 @@ But he also tried giving "Rendezvous" to The Knack in 1978, offering the band a 
 
 [Watch Video Highlight](https://videopress.com/embed/d4wU6cXH)
 
-**Rendezvous**
+**Rendezvous**<br>
 **Recorded** September 29, 1977  
 **Released:** *The Promise* (2010)
 **First performed:** August 1, 1976 (Red Bank, NJ)

@@ -44,9 +44,9 @@ One can easily imagine Bruce tackling "I Forgot to Be Your Lover" in full soul s
 
 Still, these are quibbles that only surface during comparisons. Taken at its own merits, Bruce's version of "I Forgot to Be Your Lover" qualifies as one of his best vocal performances and a fine homage to a Stax classic.
 
-**I Forgot to Be Your Lover**
+**I Forgot to Be Your Lover**<br>
 **Recorded:** 2021<br>
 **Released:** *Only the Strong Survive* (2022)<br>
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

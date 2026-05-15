@@ -8,17 +8,17 @@ Bruce cancels a scheduled performance at Minnesota State University and instead 
 
 Bruce and the E Street Band work on "Tenth Avenue Freeze-Out" at the Record Plant in New York City.
 
-**1975:**
+**1975:**<br>
 
 Bruce and the E Street Band perform in Scotland for the very first time when they play their first of two River Tour shows at the Edinburgh Playhouse.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/1KZwfls7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1KZwfls7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at Big Man's West (for "Tenth Avenue Freeze-Out") and later with Cats on a Smooth Surface at The Stone Pony.
 
-**1982:**
+**1982:**<br>
 
 
 
@@ -26,7 +26,7 @@ Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at 
 
 : Bruce and Julianne leave Lake Oswego, Oregon, for their honeymoon.
 
-**1985**
+**1985**<br>
 
 
 
@@ -34,7 +34,7 @@ Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at 
 
 Jersey Artists for Mankind (JAM) releases their single, "We've Got the Love" in support of local charities. The song was written by Bobby Bandiera and Joel Krauss and features a guitar solo by Bruce and a sax solo by Clarence, along with vocal solos by Nils and Southside, among others. Look for some familiar faces in the video.
 
-**1986:**
+**1986:**<br>
 
 [https://www.youtube.com/embed/cEvOLMT9v_w?feature=oembed](https://www.youtube.com/embed/cEvOLMT9v_w?feature=oembed)
 
@@ -42,7 +42,7 @@ Jersey Artists for Mankind (JAM) releases their single, "We've Got the Love" in 
 
 Bruce kicks off a five-night stand at Madison Square Garden that wraps the U.S. leg of the Tunnel of Love Express Tour. The set includes the tour proper premiere of Roy Orbison's "Crying" along with a show-closing "New York, New York" instrumental. This show is available as part of Bruce's official archive series.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/bJW6MKNbxtE?feature=oembed](https://www.youtube.com/embed/bJW6MKNbxtE?feature=oembed)
 
@@ -54,19 +54,19 @@ Bruce kicks off a five-night stand at Madison Square Garden that wraps the U.S. 
 
 Bruce's World Tour continues its German leg with a show in Munich. Watch the complete first set below.
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/484BpLnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/484BpLnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce's solo acoustic tour of France continues at the Berlioz Opera House in Montpellier, where the set list features a rare performance of "For You."
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/PTD9NGHp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PTD9NGHp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 The Reunion Tour's U.K. swing continues with a show at the NEC Arena in Birmingham, where Edwin Starr makes a guest appearance on a tour one-off of "War."
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/Bg41FE4q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Bg41FE4q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -76,7 +76,7 @@ The Reunion Tour's U.K. swing continues with a show at the NEC Arena in Birmingh
 
 The Seeger Sessions Tour makes a stop at the Heineken Music Hall in Amsterdam.
 
-**2006:**
+**2006:**<br>
 
 [https://videopress.com/embed/0nkKkMgu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0nkKkMgu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -88,7 +88,7 @@ The Seeger Sessions Tour makes a stop at the Heineken Music Hall in Amsterdam.
 
 "Long Walk Home" makes for an unusual opener in Herning, Denmark. This show also features the tour premiere of "I Wish I Were Blind."
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/hxeOX9459HI?feature=oembed](https://www.youtube.com/embed/hxeOX9459HI?feature=oembed)
 
@@ -96,7 +96,7 @@ The Seeger Sessions Tour makes a stop at the Heineken Music Hall in Amsterdam.
 
 It's a mini-Seeger Sessions show at the Kristen Ann Carr Fund benefit at the Tribeca Grill in New York City, as Bruce, Charlie, Larry Eagle, Jeremy Chatzky, Sam Bardfield, Lisa Lowell, Ed Manion, Curt Ramm, and Soozie Tyrell play a four-song Seeger set, joined by Nils and and Curtis King as well.
 
-**2015:**
+**2015:**<br>
 
 [https://www.youtube.com/embed/DKKVN_76OMs?feature=oembed](https://www.youtube.com/embed/DKKVN_76OMs?feature=oembed)
 
@@ -120,7 +120,7 @@ Bruce releases "There Goes My Miracle," the second single in advance of his upco
 
 Bruce tour debuts a show-opening "Who'll Stop the Rain" and a unseasonable "Santa Claus is Comin' to Town" in Cork.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/rUQJrcyiW7A?feature=oembed](https://www.youtube.com/embed/rUQJrcyiW7A?feature=oembed)
 
@@ -128,7 +128,7 @@ Bruce tour debuts a show-opening "Who'll Stop the Rain" and a unseasonable "Sant
 
 President Trump dismisses Bruce's recent on-stage comments, calling Springsteen a "pushy, obnoxious jerk," "dumb as a rock," and a "dried out prune."
 
-**2025:**
+**2025:**<br>
 
 
 

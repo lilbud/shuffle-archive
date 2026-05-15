@@ -17,7 +17,7 @@ Here's that performance (with Bruce playing a supporting role on this one), from
 September 18, 1982 (Red Bank, NJ)
 September 18, 1982 (Red Bank, NJ)
 
-**Let's Talk About Us**
+**Let's Talk About Us**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

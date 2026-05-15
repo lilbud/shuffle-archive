@@ -12,7 +12,7 @@ A scheduled gig at Syracuse University is cancelled to make room for production 
 
 In the ongoing legal battle between Bruce and Mike Appel, a judge rules that Bruce is banned from entering a recording studio until the lawsuit is resolved. The only thing Bruce can do in the meantime is tour.
 
-**1976:**
+**1976:**<br>
 
 Bruce wins in the Best Composer category for "" (currently charting in the form of Manfred Mann's cover) at the third annual (and last ever) Rock Music Awards in Hollywood. He's not present for the ceremony, however–he's at The Record Plant recording studio in New York City, where he completes (for now) work on "." More than 30 years later, he'll pick it up again, finish it, and release it on .
 
@@ -40,7 +40,7 @@ At Night Four (of six) at the Philadelphia Spectrum, Bruce tour premieres "" and
 
 The night before Danny Federici's wedding, Bruce and the band celebrate Danny at the Taylor Farms Tea Room in Janesville, Wisconsin.
 
-**1987:**
+**1987:**<br>
 
 
 
@@ -62,13 +62,13 @@ The Human Rights Now! Tour kicks off a week-long North American leg with a show 
 
 Bruce and the E Street Band play their second of six Reunion Tour shows in Philadelphia.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/DF5badip?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DF5badip?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Patti plays a solo show at the Paramount Theater in Asbury Park, and Bruce backs her on guitar and vocals.
 
-**2004:**
+**2004:**<br>
 
 
 
@@ -76,7 +76,7 @@ Patti plays a solo show at the Paramount Theater in Asbury Park, and Bruce backs
 
 Bruce takes his son Evan to see Dropkick Murphys at the Roseland Ballroom in New York City.
 
-**2007:**
+**2007:**<br>
 
 
 
@@ -84,7 +84,7 @@ Bruce takes his son Evan to see Dropkick Murphys at the Roseland Ballroom in New
 
 Bruce and Steve catch Paul McCartney's show at Madison Square Garden and join him on stage during the encore, reprising the song that got the power pulled on them at Hyde Park.
 
-**2017:**
+**2017:**<br>
 
 [https://www.youtube.com/embed/cIKDbii1vZI?feature=oembed](https://www.youtube.com/embed/cIKDbii1vZI?feature=oembed)
 
@@ -96,7 +96,7 @@ Bruce releases the 28th installment of on E Street Radio. This episode is entitl
 
 Bruce has played in Asbury Park many times over the years, but never to a crowd this big, as he closes out Sea Hear Now with a headlining set featuring several tour premieres and a setlist tailored for the occasion. Before his set, Bruce pops up on two separate stages, joining undercards Gaslight Anthem and Trey Anastasio Band in guest appearances.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/HHhGgZ-Uz9Q?feature=oembed](https://www.youtube.com/embed/HHhGgZ-Uz9Q?feature=oembed)
 

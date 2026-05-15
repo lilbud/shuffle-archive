@@ -38,9 +38,9 @@ Thanks to folks at Springsteenlyrics.com, we've got at least something to go on,
 
 In any event, even the lyrics that we can make out make it clear that "Don't Say No" was never going to end up on *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).* Despite being rehearsed during that album's sessions, "Don't Say No" is more *The River* than *Darkness*. Had Bruce developed it into a final song, however, it would have made a fine candidate for *The Promise*.
 
-**Don't Say No**
+**Don't Say No**<br>
 **Recorded** November 1977  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

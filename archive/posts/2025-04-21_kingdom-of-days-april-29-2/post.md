@@ -4,7 +4,7 @@
 
 Michael Barakan (a.k.a. Shane Fontayne, 1992-93 touring band guitarist) is born.
 
-**1954:**
+**1954:**<br>
 
 
 
@@ -12,11 +12,11 @@ Michael Barakan (a.k.a. Shane Fontayne, 1992-93 touring band guitarist) is born.
 
 Bruce cancels a scheduled gig opening for Frank Zappa at Penn State University.
 
-**1973:**
+**1973:**<br>
 
 Bruce and the still unnamed E Street Band play two shows at the Roxy Theater in Northampton, Pennsylvania.
 
-**1974:**
+**1974:**<br>
 
 Eddie Floyd guest-stars on "," and "" (Floyd's greatest hit) at Bruce's show in Memphis. Following the show, Bruce and Steve taxi out to Graceland and jump the gate, hoping to meet Elvis but instead are kicked off the property by security. Watch Bruce tell the story decades later (he gets the year wrong, though).
 
@@ -54,11 +54,11 @@ Later in the show, Bruce performs "," but something moves him to do something un
 
 Bruce catches Elvis Costello's show at the Warfield Theater in San Francisco and jams with him a bit backstage.
 
-**1984:**
+**1984:**<br>
 
 Bruce joins John Fogerty on stage at a charity fundraiser at the House of Blues in West Hollywood.
 
-**1994:**
+**1994:**<br>
 
 At the Count Basie Theater in Red Bank, Bruce performs at , a benefit for Bobby Bandiera's son. Backed by Bobby's band, Bruce is joined by Southside Johnny, Jon Bon Jovi, Gary U.S. Bonds, and The Max Weinberg 7. The show is full of great performances and team-ups, including Bruce joining Southside Johnny on "" and Gary U.S. Bonds on ""
 
@@ -76,7 +76,7 @@ At the Count Basie Theater in Red Bank, Bruce performs at , a benefit for Bobby 
 
 Bruce plays a private fundraiser (backed by Bobby Bandiera and his band) for the Ranney School at The Stone Pony in Asbury Park.
 
-**2007:**
+**2007:**<br>
 
 Night Two at the Spectrum in Philadelphia brought with it the tour premieres of "," "" "," "," and an epic, show-closing "." For more highlights from this incredible show, see my from this date.
 

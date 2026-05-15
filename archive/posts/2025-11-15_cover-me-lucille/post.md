@@ -24,7 +24,7 @@ So it's no surprise to learn that Bruce covers it frequently during cover sets w
 
 <https://estreetshuffle.com/wp-content/uploads/2018/11/Bruce-Springsteen-16-Carol-Lucille-online-audio-converter.com_.mp3>
 
-**Lucille**
+**Lucille**<br>
 **First performed:** August 2, 1978 (Charlotte, NC)
 **Last performed:** September 14, 2024 (Asbury Park, NJ)
 

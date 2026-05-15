@@ -4,7 +4,7 @@
 
 Steel Mill opens for The Ike and Tina Turner Revue at a shockingly (at least in retrospect) underattended show at The Mosque in Richmond.
 
-**1970:**
+**1970:**<br>
 
 [https://www.youtube.com/embed/DojVK_-EKpg?feature=oembed](https://www.youtube.com/embed/DojVK_-EKpg?feature=oembed)
 
@@ -18,7 +18,7 @@ Steel Mill opens for The Ike and Tina Turner Revue at a shockingly (at least in 
 
 Bruce and the E Street Band headline at the Shady Grove Music Fair in Gaithersburg, Maryland. Starting at this show, Suki Lahav joins the band for the remainder of the tour.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/ekMTaEFIgfU?feature=oembed](https://www.youtube.com/embed/ekMTaEFIgfU?feature=oembed)
 
@@ -52,11 +52,11 @@ At Night Two at Chicago's Uptown Theater on the River Tour, Bruce tour premieres
 
 Bruce celebrates his birthday belatedly with a private party at his house. The Gotham Playboys–several members of whom will form the core of the Seeger Sessions Band–are the entertainment for the evening, and Steve, Max, Jon Bon Jovi, and Sheryl Crow are among the guests.
 
-**1998:**
+**1998:**<br>
 
 The Vote for Change Tour officially wraps at the MCI Center in Washington, DC. (There will be an epilogue of sorts in New Jersey a couple of days later, though.) This finale unites many of the headline performers in one giant simulcast show featuring Bruce, Jackson Browne, Bonnie Raitt, John Mellencamp, R.E.M., James Taylor, Pearl Jam, the Dave Matthews Band, the Dixie Chicks, and more.
 
-**2004:**
+**2004:**<br>
 
 [https://www.youtube.com/embed/M93fX5P7x-0?feature=oembed](https://www.youtube.com/embed/M93fX5P7x-0?feature=oembed)
 

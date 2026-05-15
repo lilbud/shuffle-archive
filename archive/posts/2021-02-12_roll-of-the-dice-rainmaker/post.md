@@ -119,9 +119,9 @@ Given his outspokenness about the Trump administration, we can imagine how sorel
 
 What an album that might have been.
 
-**Rainmaker**
+**Rainmaker**<br>
 **Recorded** 2003-2020  
 **Released:** *Letter to You* (2020)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

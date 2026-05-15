@@ -58,8 +58,8 @@ There's no music to accompany "Death of a Good Man," only a few spare chord nota
 
 But lyrically, "Death of a Good Man" offers us perhaps the earliest insight into the spare, observational storytelling style that Bruce would reveal on *Nebraska* more than a decade later.
 
-**Death of a Good Man**
-**Never Recorded**
-**Never Performed**
+**Death of a Good Man**<br>
+**Never Recorded**<br>
+**Never Performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

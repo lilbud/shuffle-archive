@@ -4,15 +4,15 @@
 
 Bruce and his band play their second of six nights (with two shows each night) at Max's Kansas City in New York, opening for Biff Rose.
 
-**1973:**
+**1973:**<br>
 
 Bruce and the band open for Wishbone Ash at Cleveland's Allen Theater.
 
-**1974:**
+**1974:**<br>
 
 The original River Tour stops at the St. Paul Civic Center Arena. As a fan explains to a reviewer: It's not all Twang! Twang! Boing!
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/dovVptok?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dovVptok?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

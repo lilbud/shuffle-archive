@@ -18,7 +18,7 @@ Here it is: Roy Orbison backed by Elvis Costello, Tom Waits, Bonnie Raitt, Bruce
 
 That was Bruce's one and only performance of the song, but that's may be for the best. This one would be hard to top.
 
-**Blue Bayou**
+**Blue Bayou**<br>
 **First performed:** September 30, 1987 (Los Angeles, CA)<br>
 **Last performed:** September 30, 1987 (Los Angeles, CA)<br>
 

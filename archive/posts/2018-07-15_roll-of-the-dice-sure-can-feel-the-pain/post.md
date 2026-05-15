@@ -61,7 +61,7 @@ I'll be darned if I know what the big black rooster symbolizes, what the bells a
 
 Got a theory about the hidden meaning of "Sure Can Feel the Pain?" I'd love to hear it.
 
-**Sure Can Feel the Pain**
+**Sure Can Feel the Pain**<br>
 Never Recorded  
 Never Released  
 **First performed:** December 3, 1971 (Asbury Park, NJ)

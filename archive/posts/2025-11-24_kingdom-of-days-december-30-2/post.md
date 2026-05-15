@@ -4,11 +4,11 @@
 
 Bruce and the E Street Band open for Sha Na Na at the Ohio Theater in Columbus.
 
-**1972:**
+**1972:**<br>
 
 Bruce and the band play two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -34,7 +34,7 @@ It's the world premiere of "Because the Night," played for the very first time a
 
 Bruce and the E Street Band near the end of the Darkness Tour, but before they do they make a return visit to Detroit, this time playing the larger Cobo Arena.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/YGNP5Fkutlk?feature=oembed](https://www.youtube.com/embed/YGNP5Fkutlk?feature=oembed)
 
@@ -42,7 +42,7 @@ Bruce and the E Street Band near the end of the Darkness Tour, but before they d
 
 Bruce and Patti welcome Jessica Rae Springsteen into the world, and Little Steven gets to break the news on stage.
 
-**1991:**
+**1991:**<br>
 
 [https://www.youtube.com/embed/tc9IFFMNskY?feature=oembed](https://www.youtube.com/embed/tc9IFFMNskY?feature=oembed)
 

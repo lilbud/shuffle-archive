@@ -10,11 +10,11 @@
 
 Bruce play two shows at the legendary Main Point in Bryn Mawr, Pennsylvania, opening for Travis Shook and The Club Wow.
 
-**1973:**
+**1973:**<br>
 
 : Bruce plays the second of a three-night stand at Joe's Place in Cambridge, Massachusetts. The setlist features a rare performance of "Zero and Blind Terry."
 
-**1974**
+**1974**<br>
 
 [https://www.youtube.com/embed/8xv3BmHjXww?feature=oembed](https://www.youtube.com/embed/8xv3BmHjXww?feature=oembed)
 
@@ -30,7 +30,7 @@ That afternoon, before the show, Bruce and the band rehearse "" with the intent 
 
 A newly published telephone poll reveals that 27% of all American adults (+/- 3 points) consider themselves Springsteen fans, and 46% have a positive opinion about him.
 
-**1987:**
+**1987:**<br>
 
 
 

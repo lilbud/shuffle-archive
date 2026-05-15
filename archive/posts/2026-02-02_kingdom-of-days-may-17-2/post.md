@@ -2,13 +2,13 @@
 
 Bruce and the E Street Band play their second River Tour show in Edinburgh, Scotland, with "The Ties That Bind" in the opening spot for the first time.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/m4LeZxuFzvY?feature=oembed](https://www.youtube.com/embed/m4LeZxuFzvY?feature=oembed)
 
 Bruce wraps up the German leg of his World Tour with a show in Mannheim, closing with the tour premiere of "It's All Right."
 
-**1993:**
+**1993:**<br>
 
 "" makes its Rising Tour premiere in Barcelona.
 
@@ -22,7 +22,7 @@ Bruce wraps up the German leg of his World Tour with a show in Mannheim, closing
 
 Bruce shocks fans at the Tower Theater in Philadelphia when he performs "Iceman" for the very first time, on piano. "Ramrod" makes its tour premiere, and during the soundcheck, Bruce covers Dominic Behan's "The Patriot Game" on pump organ. This show is available as part of Bruce's official archive series.
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/7Bn28oZ069w?feature=oembed](https://www.youtube.com/embed/7Bn28oZ069w?feature=oembed)
 
@@ -38,13 +38,13 @@ Bruce shocks fans at the Tower Theater in Philadelphia when he performs "Iceman"
 
 Wolfgang Niedecken joins Bruce and the Sessions Band for "Buffalo Gals" in Frankfurt.
 
-**2006:**
+**2006:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Columbian_Sat__May_20__2006_-scaled.jpg?resize=758%2C678&amp;ssl=1)
 
 Bruce joins Mike Ness on stage at The Stone Pony.
 
-**2008:**
+**2008:**<br>
 
 
 
@@ -56,7 +56,7 @@ Bruce joins Mike Ness on stage at The Stone Pony.
 
 An amazing Wrecking Ball show in Barcelona, where the tour premieres ("Hungry Heart" and "You Can Look (But You Better Not Touch)" are the least of the highlights. This show will be remembered as the night when the legendary extended instrumental intro to "Prove It All Night" from the Darkness Tour finally returned–by request–after being absent for 32 years.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/7orMrJZ8vPM?feature=oembed](https://www.youtube.com/embed/7orMrJZ8vPM?feature=oembed)
 
@@ -68,7 +68,7 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 The first night of a jaw-dropping two-night closing stand for the High Hopes Tour in an unusual venue: the Mohegan Sun Casino in Uncasville, Connecticut. The set list features an embarrassment of riches from the opening "Racing in the Street '78" to the tour premiere of "The Price You Pay" and "Quarter to Three" to the closing "Thunder Road." Little Steven makes his unannounced and triumphant return to the band for these last two shows.
 
-**2014:**
+**2014:**<br>
 
 [https://www.youtube.com/embed/As2eg3sJiw4?feature=oembed](https://www.youtube.com/embed/As2eg3sJiw4?feature=oembed)
 
@@ -106,7 +106,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Actres
 
 Night Two in Manchester on the Land of Hope and Dreams Tour features the return of "Out in the Street" to the setlist, absent since 2023.
 
-**2025:**
+**2025:**<br>
 
 [https://www.youtube.com/embed/Z0uePUDT1UI?feature=oembed](https://www.youtube.com/embed/Z0uePUDT1UI?feature=oembed)
 

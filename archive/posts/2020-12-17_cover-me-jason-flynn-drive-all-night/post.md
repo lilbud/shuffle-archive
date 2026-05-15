@@ -2,7 +2,7 @@
 
 Mysteriously, all traces of Jason Flynn seem to have been scrubbed from the Internet–web site, social media, videos… strange. I hope he's okay. I did find one stray copy of his wonderful "Drive All Night" cover however–it's not as great as the earlier clips I featured here, but it's worth watching nonetheless.
 
-**Update 12/17/2020:**
+**Update 12/17/2020:**<br>
 
 [https://videopress.com/embed/u7AbIMMn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u7AbIMMn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

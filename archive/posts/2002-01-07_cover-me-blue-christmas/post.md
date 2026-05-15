@@ -32,7 +32,7 @@ It was the last of the eleven-song set, in fact, and the last song Clarence "Big
 
 Ten years on, "Blue Christmas" performance remains a poignant annual reminder of both his absence and presence.
 
-**Blue Christmas**
+**Blue Christmas**<br>
 **First performed:** December 17, 2000 (Asbury Park, NJ)<br>
 **Last performed:** December 7, 2010 (Asbury Park, NJ)<br>
 

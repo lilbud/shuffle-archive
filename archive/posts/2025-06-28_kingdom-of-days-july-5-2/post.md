@@ -4,11 +4,11 @@
 
 The Castiles play a set at the West End Casino in Long Branch, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant's Cinema III movie theater in Red Bank, New Jersey. This is perhaps Bruce's first overtly political action as a musician, and even then his favored candidates were decidedly liberal.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -24,7 +24,7 @@ The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant
 
 Bruce and the E Street Band begin a five-night stand at The Main Point in Bryn Mawr, Pennsylvania, playing two shows on this first night.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -36,7 +36,7 @@ Bruce cancels a scheduled gig opening for Frank Zappa in St. Louis, most likely 
 
 Bruce and the E Street Band bring the Darkness Tour to The Forum in Inglewood .
 
-**1978:**
+**1978:**<br>
 
 After the show, Bruce sits down for an interview with local TV reporter J. J. Jackson. When the interview airs two days later, it will be his first-ever television appearance.
 
@@ -62,7 +62,7 @@ Bruce and the E Street Band play their third of six nights opening the Brendan B
 
 The Born in the U.S.A. Tour moves on to its second stop: the Riverfront Coliseum in Cincinnati, for the first of two nights.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/C92hW6tT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/C92hW6tT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

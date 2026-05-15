@@ -15,6 +15,6 @@ Three decades later, Bruce took his one and only swing at it when he made an una
 August 26, 1994 (Westfield, NJ)
 August 26, 1994 (Westfield, NJ)
 
-**Hippy Hippy Shake**
+**Hippy Hippy Shake**<br>
 **First performed:** <br>
 **Last performed:**<br>

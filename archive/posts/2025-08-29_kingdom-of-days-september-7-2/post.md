@@ -4,7 +4,7 @@
 
 Bruce and the as yet unnamed E Street Band headline during freshman orientation at Dean College in Franklin, Massachusetts.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce and the as yet unnamed E Street Band headline during freshman orientation 
 
 Live at the Ya Ya Lounge in New Orleans, it's… Lee Dorsey and the E Street Band? Bruce is on his way to the next tour stop in Texas, but the E Street Band stays behind in New Orleans to play a gig at the club without him. The gig is a barter for Dorsey lending his vocals on Southside Johnny's upcoming Steve Van Zandt-produced album.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -94,13 +94,13 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Follow
 
 On the 20th anniversary of the September 11th terror attacks, a new documentary film is released featuring Bruce's narration. (Skip to the five-minute mark to hear Bruce's contribution.)
 
-**2021:**
+**2021:**<br>
 
 [https://www.youtube.com/embed/atrdaj1mmLU?feature=oembed](https://www.youtube.com/embed/atrdaj1mmLU?feature=oembed)
 
 Bruce postpones his scheduled show in Syracuse to the following April due to his peptic ulcer disease.
 
-**2023:**
+**2023:**<br>
 
 [https://www.instagram.com/p/Cw3scktLQ4t/?utm_source=ig_embed&utm_campaign=loading](https://www.instagram.com/p/Cw3scktLQ4t/?utm_source=ig_embed&utm_campaign=loading)
 
@@ -114,7 +114,7 @@ View this post on Instagram
 
 After more than a year and two postponements, Bruce and the E Street Band take the stage in Nationals Park In Washington, D.C.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/yR5ELD4LcPA?feature=oembed](https://www.youtube.com/embed/yR5ELD4LcPA?feature=oembed)
 

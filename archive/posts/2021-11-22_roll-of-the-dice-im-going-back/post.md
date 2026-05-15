@@ -18,9 +18,9 @@ What might this song have become if Bruce had taken the time to finish it? We ma
 
 It turned out to be too soon to stick–he had one more solo album to focus on first–but it was a harbinger of a new E Street Band era to come.
 
-**I'm Going Back**
+**I'm Going Back**<br>
 **Recorded:** January 1995<br>
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

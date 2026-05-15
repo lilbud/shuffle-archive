@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band co-headline with Roger McGuinn at The Troubadour in West Hollywood, a surprise gig that only became public three days prior. (Bruce doesn't actually take the stage until almost 2am, however, so this technically qualifies as an entry for July 31.)
 
-**1974:**
+**1974:**<br>
 
 Bruce wraps up a three-night stand at the Carter Barron Amphitheater in Washington DC's Rock Creek Park, where he debuts his cover of The Drifters' "."
 
@@ -46,7 +46,7 @@ At the first of two nights in Detroit on the Born in the U.S.A. Tour, Bruce tour
 
 Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
 
-**1985:**
+**1985:**<br>
 
 Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey, playing reggae versions of "" and "," along with covers of "" and ""
 

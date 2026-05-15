@@ -2,11 +2,11 @@
 
 Bruce plays the third of four nights at My Father's Place on Long Island.
 
-**1973:**
+**1973:**<br>
 
 Bruce and the E Street Band resume the River Tour with the first of two shows at Toronto's Maple Leaf Gardens.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/kSDO0obnEGU?list=PL5552C6E52D287ABD](https://www.youtube.com/embed/kSDO0obnEGU?list=PL5552C6E52D287ABD)
 
@@ -62,7 +62,7 @@ Bruce joins Max and others at McLoone's Rum Runner in Sea Bright, New Jersey for
 
 Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2018:**
+**2018:**<br>
 
 Bruce's radio show returns with its first new episode of the year, Volume 17: "Lawyers, Guns & Money."
 

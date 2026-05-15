@@ -4,7 +4,7 @@
 
 Singer/songwriter and First Lady of E Street Vivienne Patricia Scialfa is born on this day in Deal, New Jersey. Happy birthday, Patti!
 
-**1953:**
+**1953:**<br>
 
 
 
@@ -12,7 +12,7 @@ Singer/songwriter and First Lady of E Street Vivienne Patricia Scialfa is born o
 
 The Castiles headline at the Loew's 35 Shore Drive-in Theater's 10th anniversary party in Hazlet, New Jersey.
 
-**1966:**
+**1966:**<br>
 
 
 
@@ -34,7 +34,7 @@ The Bruce Springsteen Band plays two shows at D'Scene in South Amboy, New Jersey
 
 Before their gig that evening at the Carter Barron Amphitheater in Washington, DC's Rock Creek Park, Bruce stops by a local radio station for an on-air interview.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -42,7 +42,7 @@ Before their gig that evening at the Carter Barron Amphitheater in Washington, D
 
 Mike Appel countersues Bruce for breach of contract, escalating their legal battle.
 
-**1976:**
+**1976:**<br>
 
 At the Bayfront Center Arena in St. Petersburg, Bruce opens his Darkness Tour show with his debut of "" and adds a second cover debut later in the show: Chuck Berry's "."
 
@@ -78,7 +78,7 @@ Southside Johnny guest-stars on "" when Bruce and the E Street Band bring the Ri
 
 Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey.
 
-**1987:**
+**1987:**<br>
 
 
 

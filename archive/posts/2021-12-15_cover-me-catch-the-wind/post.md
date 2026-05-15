@@ -15,7 +15,7 @@ Fortunately, their performance was captured on tape, so we can listen to the onl
 September 16, 1967 (Freehold, NJ)
 September 16, 1967 (Freehold, NJ)
 
-**Catch the Wind**
+**Catch the Wind**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

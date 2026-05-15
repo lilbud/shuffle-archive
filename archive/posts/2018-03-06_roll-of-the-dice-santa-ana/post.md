@@ -29,7 +29,7 @@ The second verse is grittier and streetier, with imagery reminiscent of "[Hollyw
 > *Only a fool would try to save what the desert chose to leave*
 > *And now, hey there, senorita, with your playboys in their Spanish bandanas*
 ***French cream won't soften those boots, baby***  
-***French kisses will not break your heart, oh!***
+***French kisses will not break your heart, oh!***<br>
 
 (Those last two lines would reappear slightly morphed in "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)" a few years later.)
 

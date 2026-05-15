@@ -45,7 +45,7 @@ So what's your take? Is this an original homage, or a creative cover? Share your
 February 25, 1988 (Worcester, MA)
 August 3, 1988 (Barcelona, Spain)
 
-**I'm a Coward**
+**I'm a Coward**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

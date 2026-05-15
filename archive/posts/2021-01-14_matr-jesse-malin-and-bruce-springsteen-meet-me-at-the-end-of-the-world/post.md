@@ -30,6 +30,6 @@ I can personally attest to that, too, thanks to my vantage point that night. Kee
 
 Given the zoom factor, you'll need to trust me on this, but you can see me bopping my way to the end of the world.
 
-**Meet Me at the End of the World**
+**Meet Me at the End of the World**<br>
 **First performed:** January 18, 2020 (Asbury Park, NJ)<br>
 **Last performed:** January 18, 2020 (Asbury Park, NJ)<br>

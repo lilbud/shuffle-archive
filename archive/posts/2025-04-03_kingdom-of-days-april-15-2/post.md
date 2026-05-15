@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band headlines a show at Rutgers University.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce's interview with Bill Ayres (recorded in late 1974) premieres on the radio
 
 The Chicken Scratch Tour moves on to Pittsburgh, for a single show at the Syria Mosque.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -34,7 +34,7 @@ The Chicken Scratch Tour moves on to Pittsburgh, for a single show at the Syria 
 
 Bruce joins Beaver Brown and Asbury Jukes members Joel Gramolini, Kevin Kavanaugh, Ed Manion, and Ritchie Rosenberg for four songs at The Fast Lane in Asbury Park.
 
-**1979:**
+**1979:**<br>
 
 
 
@@ -46,13 +46,13 @@ Bruce joins Beaver Brown and Asbury Jukes members Joel Gramolini, Kevin Kavanaug
 
 The fourth of five nights at Tokyo's Yoyogi National Gymnasium.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/u02wbf7O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u02wbf7O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 The Tunnel of Love Express finishes its Texas leg with a show at the University of Texas in Austin.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/GU2F61f3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GU2F61f3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -68,7 +68,7 @@ The Tunnel of Love Express finishes its Texas leg with a show at the University 
 
 The first of two shows at Sheffield Arena in England.
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/HTAFhS2M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HTAFhS2M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -104,7 +104,7 @@ Bruce and the E Street Band play a Reunion gig at Freedom Hall in Louisville. Th
 
 Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park. Fans are delighted when Bruce announces two rehearsal shows in Asbury Park for the following week.
 
-**2005:**
+**2005:**<br>
 
 
 
@@ -141,7 +141,7 @@ airs the third and final part of "The Bruce and Stevie Show." Essential listenin
 
 Bruce and Patti catch their friend Rita Wilson in concert at 54 Below on New York City.
 
-**2013:**
+**2013:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/medium-3.jpg?resize=500%2C357&amp;ssl=1)
 
@@ -155,11 +155,11 @@ The High Hopes Tour hits Columbus, bringing with it the tour premiere of "."
 
 Bruce attends the wedding of Max Weinberg's daughter, Ali.
 
-**2016:**
+**2016:**<br>
 
 Bruce takes his mom dancing to celebrate her birthday at the Wonder Bar in Asbury Park, where the Eddie Testa Band is playing. Bruce intends to join them on-stage but a power outage foils his plans.
 
-**2018:**
+**2018:**<br>
 
 [https://www.youtube.com/embed/KTRrWFRSS3c?feature=oembed](https://www.youtube.com/embed/KTRrWFRSS3c?feature=oembed)
 
@@ -167,7 +167,7 @@ Bruce takes his mom dancing to celebrate her birthday at the Wonder Bar in Asbur
 
 Bruce and Patti are scheduled to present (and perform) at the first annual American Music Honors at Monmouth University, but they are unfortunately forced to cancel when they test positive for COVID-19 the morning of the event. Still, Bruce records video tributes for honorees Darlene Love and Steven Van Zandt, and his videos are shown during the event.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/OcMZAhHegD0?feature=oembed](https://www.youtube.com/embed/OcMZAhHegD0?feature=oembed)
 
@@ -175,6 +175,6 @@ Bruce and Patti are scheduled to present (and perform) at the first annual Ameri
 
 Bruce tour premieres "Adam Raised a Cain" when the E Street Band brings their world tour to MVP Arena in Albany.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/0TwPTcTd1aw?feature=oembed](https://www.youtube.com/embed/0TwPTcTd1aw?feature=oembed)

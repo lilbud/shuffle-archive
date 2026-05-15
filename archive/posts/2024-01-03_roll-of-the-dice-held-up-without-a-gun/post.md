@@ -49,7 +49,7 @@ It would be more than 27 years before Bruce performed it again in concert, but w
 
 <https://estreetshuffle.com/wp-content/uploads/2021/10/114-Held-Up-Without-A-Gun.mp3>
 
-**Held Up Without a Gun**
+**Held Up Without a Gun**<br>
 **Recorded** February 23 – April 1, 1980  
 **Released:** *The River: Outtakes* (2015)
 **First performed:** December 31, 1980 (Uniondale, NY)

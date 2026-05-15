@@ -4,7 +4,7 @@
 
 Eleven-year-old Bruce Springsteen receives the sacrament of confirmation at St. Rose of Lima Church in Freehold.
 
-**1961:**
+**1961:**<br>
 
 
 
@@ -12,7 +12,7 @@ Eleven-year-old Bruce Springsteen receives the sacrament of confirmation at St. 
 
 Bruce and the as yet unnamed E Street Band play a show at Providence College in Rhode Island.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and the as yet unnamed E Street Band play a show at Providence College in 
 
 Bruce postpones a scheduled concert at Kent State University to June 1.
 
-**1974:**
+**1974:**<br>
 
 At a recording session at the Record Plant in New York City, Bruce begins work on "."
 
@@ -28,7 +28,7 @@ At a recording session at the Record Plant in New York City, Bruce begins work o
 
 Bruce plays his first-ever show in Norway, when the River Tour comes to Drammen.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/fZwe49y9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fZwe49y9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -72,13 +72,13 @@ The Recording Industry Association of America certifies "" as gold and "" as pla
 
 Bruce begins a mini-tour of Spain with a show in Madrid.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/sbxa6QBosCM?feature=oembed](https://www.youtube.com/embed/sbxa6QBosCM?feature=oembed)
 
 Bruce receives the Polar Music Prize from King Carl XVI Gustaf of Sweden. The ceremony is broadcast live on Swedish TV, and you can watch it below.
 
-**1997:**
+**1997:**<br>
 
 [https://www.youtube.com/embed/fCKMZC-5mD4?feature=oembed](https://www.youtube.com/embed/fCKMZC-5mD4?feature=oembed)
 
@@ -122,7 +122,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce appears at the opening night of Netflix's third annual FYSEE event, playing two songs and joining director Martin Scorsese for a Q&A session.
 
-**2019:**
+**2019:**<br>
 
 [https://www.dailymotion.com/embed/video/x77q6yr](https://www.dailymotion.com/embed/video/x77q6yr)
 
@@ -130,7 +130,7 @@ Bruce appears at the opening night of Netflix's third annual FYSEE event, playin
 
 Bruce kicks off a three-night stand in Dublin without any tour premieres, the first debut-less show since March. The encores open with "Land of Hope and Dreams," dedicated to Charlie Bird, who is in attendance tonight.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/GqK9Q3Dq5B8?feature=oembed](https://www.youtube.com/embed/GqK9Q3Dq5B8?feature=oembed)
 

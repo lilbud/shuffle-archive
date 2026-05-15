@@ -4,7 +4,7 @@
 
 Original E Street Band member David Sancious is born in Asbury Park, New Jersey.
 
-**1953:**
+**1953:**<br>
 
 
 
@@ -12,11 +12,11 @@ Original E Street Band member David Sancious is born in Asbury Park, New Jersey.
 
 A scheduled show at Virginia Commonwealth University in Richmond is postponed to January.
 
-**1973:**
+**1973:**<br>
 
 Bruce and the E Street Band play their second of two nights at the War Memorial Theater in Trenton.
 
-**1974:**
+**1974:**<br>
 
 At The Record Plant in New York City, Bruce and the E Street Band work on "."
 
@@ -32,11 +32,11 @@ Bruce takes the River Tour to the Civic Arena in Pittsburgh, where Bruce dedicat
 
 Bruce records "Roll Away the Stone," "Swoop Man," and "Under the Big Sky," all of which remain unreleased to this day.
 
-**1983:**
+**1983:**<br>
 
 Bruce and the E Street Band play their second of two nights at The Summit in Houston on the Born in the U.S.A. Tour.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/2IEIBCk4wKo?feature=oembed](https://www.youtube.com/embed/2IEIBCk4wKo?feature=oembed)
 
@@ -46,7 +46,7 @@ On this week's episode of host Casey Kasem introduces Clarence's new single with
 
 Bruce and his new touring band bring World Tour 1992 to The Omni in Atlanta.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/cjOiRN382kg?feature=oembed](https://www.youtube.com/embed/cjOiRN382kg?feature=oembed)
 
@@ -64,7 +64,7 @@ Bruce plays his second of two nights at the Berkeley Community Theater, where ""
 
 Bruce comes down with a severe cold and postpones a scheduled show in Arnhem to the next day.
 
-**2007:**
+**2007:**<br>
 
 The Wrecking Ball Tour travels down the west coast to Oakland for a show at Oracle Arena. Notables tonight include a rare full-band "" a by-request "" and a "" encore.
 
@@ -84,7 +84,7 @@ The Wrecking Ball Tour travels down the west coast to Oakland for a show at Orac
 
 Bruce continues his promotional book tour, stopping at Tattered Cover Bookstore in Denver to meet fans.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/DhwHRbF97yQ?feature=oembed](https://www.youtube.com/embed/DhwHRbF97yQ?feature=oembed)
 

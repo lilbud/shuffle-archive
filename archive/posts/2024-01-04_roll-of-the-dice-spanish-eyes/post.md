@@ -16,8 +16,8 @@ Here's an original work-in-progress version from June '77 with Bruce's original 
 
 The second thing that leaps out at us are the lyrics, which sound awfully familiar to anyone listening to the radio in 1985.
 
-***Hey little girl, is your daddy home***
-***Did he go away and leave you all alone***
+***Hey little girl, is your daddy home***<br>
+***Did he go away and leave you all alone***<br>
 > *Baby I been watching you for a long, long time*
 > *Come close, we could have us some fun*
 > *And after the burning is done*
@@ -26,7 +26,7 @@ The second thing that leaps out at us are the lyrics, which sound awfully famili
 
 *He's your Saturday night special baby**, is he good to you***
 > *Does he have money, honey, like I do*
-***Can he do the things that I'll do for you***
+***Can he do the things that I'll do for you***<br>
 > *If your answer it isn't so clear*
 > *Then maybe you should stay right here*
 > *And let your doubts slip away ‘neath your sighs*
@@ -75,7 +75,7 @@ Thank goodness for that tour's fan request segment, however. One time only, in (
 
 If we're only ever going to get one performance, at least it was a great one, featuring a gorgeous Curt Ramm trumpet solo. It's probably too deep a cut to surface again, but if you're laying odds keep an eye out for the Barcelona shows in a few months–you never know what surprises might lie in store.
 
-**Spanish Eyes**
+**Spanish Eyes**<br>
 **Recorded** June 30, 1977; 2010  
 **Released:** *The Promise* (2010)
 **First performed:** June 17, 2012 (Madrid, Spain)

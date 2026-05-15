@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -36,11 +36,11 @@ At The Power Station in New York City, Bruce holds a recording session for his u
 
 Boston DJ Mark Parenteau interviews Bruce by telephone for WBCN-FM.
 
-**1978:**
+**1978:**<br>
 
 Bruce and the boys rehearse for the upcoming River Tour at Clair Brothers Audio in Lititz, Pennsylvania, and the rehearsals are captured on video.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/ypJO5gYTrIU?feature=oembed](https://www.youtube.com/embed/ypJO5gYTrIU?feature=oembed)
 
@@ -56,7 +56,7 @@ Bruce and the boys rehearse for the upcoming River Tour at Clair Brothers Audio 
 
 Bruce makes a guest appearance with Southside Johnny and The Asbury Jukes at Morristown Community Theater. (Photo courtesy of Bob Ferrel and Terry Camp)
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/BLB6tDyx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BLB6tDyx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -68,7 +68,7 @@ Bruce makes a guest appearance with Southside Johnny and The Asbury Jukes at Mor
 
 The scheduled opener for the Born in the U.S.A. Tour's final stand becomes the closing show instead when Bruce postpones this Los Angeles show to make room for a previous rescheduled show in Denver.
 
-**1985:**
+**1985:**<br>
 
 
 

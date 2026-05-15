@@ -20,6 +20,6 @@ PS/PSA: [David Uosikkinen's In the Pocket](https://songsinthepocket.org/) is kee
 
 [Watch on Youtube: David Uosikkinen's IN THE POCKET "Expressway To Your Heart" promo - Directed by Steve Acito](https://www.youtube.com/watch?v=zitSYmeuSGI)
 
-**Expressway to Your Heart**
+**Expressway to Your Heart**<br>
 **First performed:** May 4, 2009 (Uniondale, NY)
 **Last performed:** May 4, 2009 (Uniondale, NY)

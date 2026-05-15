@@ -111,9 +111,9 @@ Bruce's tales of good men turned bad work better when subtler, and by the time "
 
 We'll listen to that one later this week.
 
-**James Lincoln Deere**
+**James Lincoln Deere**<br>
 **Recorded:** March 1982  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

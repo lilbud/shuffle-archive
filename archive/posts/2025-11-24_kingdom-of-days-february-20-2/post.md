@@ -2,15 +2,15 @@
 
 Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 The Bruce Springsteen Band plays their sixth of nine shows this month at The Back Door in Richmond, Virginia.
 
-**1972:**
+**1972:**<br>
 
 Bruce and the band co-headline with Richie Havens at Syria Mosque in Pittsburgh.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -18,7 +18,7 @@ Bruce and the band co-headline with Richie Havens at Syria Mosque in Pittsburgh.
 
 Bruce and the band play Dane County Memorial Coliseum in Madison on the Lawsuit Tour.
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -26,7 +26,7 @@ Bruce and the band play Dane County Memorial Coliseum in Madison on the Lawsuit 
 
 The River Tour finishes its Florida leg at the Hollywood Sportatorium. According to the local reviewer, the crowd is not on its best behavior.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/noKMOp30?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/noKMOp30?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

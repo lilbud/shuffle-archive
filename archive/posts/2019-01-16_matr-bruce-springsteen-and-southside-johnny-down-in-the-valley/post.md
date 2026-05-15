@@ -8,6 +8,6 @@ If you pay close attention at the end, you'll notice the boys get out of the son
 
 [Watch on Youtube: down in the valley ( Solomon Burke cover)](https://www.youtube.com/watch?v=pBaV-gpRnOg)
 
-**Down in the Valley**
+**Down in the Valley**<br>
 **First performed:** October 13, 1977 (Asbury Park, NJ)<br>
 **Last performed:** October 13, 1977 (Asbury Park, NJ)<br>

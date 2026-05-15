@@ -2,7 +2,7 @@
 
 For a short time, Bruce led a band called Earth. On this date, the band plays a two-hour show at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -28,13 +28,13 @@ On a "rest" day during the Born in the U.S.A. Tour, Bruce and Nils stop by the R
 
 Bruce plays the second of two acoustic shows at the Cleveland Music Hall.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/CkoS0nnL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CkoS0nnL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce rehearses at the Lincoln Memorial for his upcoming performance at Barack Obama's presidential inauguration.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/7IqJ-yR41Hs?feature=oembed](https://www.youtube.com/embed/7IqJ-yR41Hs?feature=oembed)
 
@@ -68,10 +68,10 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and Patti chair the U.S. Equestrian Team Foundation's fundraising gala. After personally raising $350,000 by auctioning off a signed motorcycle, signed guitar, front-row concert tickets and dinner, Bruce and Patti join the house band for a Wilson Pickett double-shot.
 
-**2020:**
+**2020:**<br>
 
 [https://www.youtube.com/embed/61HO5agQlIs?feature=oembed](https://www.youtube.com/embed/61HO5agQlIs?feature=oembed)
 
 Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. The opening block of the setlist is now firmly in place.
 
-**2023:**
+**2023:**<br>

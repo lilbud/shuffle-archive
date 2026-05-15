@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band play their second of two nights at the Tower Theater in Upper Darby, Pennsylvania. We can forgive the reviewer for mis-identifying "Jungle Man," since the song is still almost a year from being released.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -12,17 +12,17 @@ Bruce and the E Street Band play their second of two nights at the Tower Theater
 
 Bruce and the boys play their fourth of six nights at the Palladium in New York City on the Lawsuit Tour.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/tozpaAarzG0?feature=oembed](https://www.youtube.com/embed/tozpaAarzG0?feature=oembed)
 
 At a recording session at the Record Plant in New York City, Bruce and the E Street Band work on "Come On (Let's Go Tonight)."
 
-**1977:**
+**1977:**<br>
 
 The final leg of the Darkness Tour picks up steam at the Capital Center in Largo. The local press is less interested in the show than in Bruce's… well, read for yourself.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/aRqLwWDKY9I?feature=oembed](https://www.youtube.com/embed/aRqLwWDKY9I?feature=oembed)
 
@@ -68,7 +68,7 @@ Bruce makes his by now expected appearance at the third annual Light of Day bene
 
 The Magic Tour treks east, stopping for a night at the Xcel Energy Center in St. Paul. A few songs are captured up close in amazing quality–check them out below.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/P9G941oRZxY?feature=oembed](https://www.youtube.com/embed/P9G941oRZxY?feature=oembed)
 

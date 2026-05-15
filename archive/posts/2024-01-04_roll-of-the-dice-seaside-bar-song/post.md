@@ -92,7 +92,7 @@ But on a summer night at the shore, if you don't let the daylight steal your sou
 
 
 
-**Seaside Bar Song**
+**Seaside Bar Song**<br>
 **Recorded** June 28 – July 24, 1973  
 **Released:** *Tracks* (1998), *18 Tracks* (1999)
 **First performed:** June 13, 1973 (Binghamton, NY)

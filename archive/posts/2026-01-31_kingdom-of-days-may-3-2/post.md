@@ -14,7 +14,7 @@ After impressing John Hammond the day prior, Bruce records fourteen demo tracks 
 
 Bruce plays his first-ever show in Arkansas, at the Robinson Auditorium in Little Rock.
 
-**1976:**
+**1976:**<br>
 
 The original River Tour stops for a night at the Scandinavium in Gothenburg, Sweden. This is Bruce's first show in Sweden since 1975, so local fans are treated to their first performances of "Darkness on the Edge of Town," "The Promised Land" and other tracks along with cuts from .
 
@@ -26,13 +26,13 @@ The original River Tour stops for a night at the Scandinavium in Gothenburg, Swe
 
 At the Power Station in New York City, Bruce records what will eventually (upon its release more than two years later) become his most recognizable anthem: "Born in the U.S.A."
 
-**1982:**
+**1982:**<br>
 
 [https://www.youtube.com/embed/EPhWR4d3FJQ?feature=oembed](https://www.youtube.com/embed/EPhWR4d3FJQ?feature=oembed)
 
 Night Two at the Shoreline Amphitheater in Mountain View, California for the Tunnel of Love Express features the first "Little Latin Lupe Lu" in over ten years, along with the tour debut of "Twist and Shout." Check out the rare soundcheck of "I'm So Lonesome I Could Cry."
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/ZC_y56qVXX4?feature=oembed](https://www.youtube.com/embed/ZC_y56qVXX4?feature=oembed)
 
@@ -54,7 +54,7 @@ is certified platinum by the Recording Industry Association of America.
 
 At the second night at the Pantages Theater in Hollywood, fans hear the tour premieres of "My Beautiful Reward" (in a beautiful new pump organ arrangement), "Empty Sky," "The River," "Tougher Than the Rest," "All the Way Home," and "The Line." Nils makes a guest appearance on "Waitin' on a Sunny Day."
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/4EoHPdBo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4EoHPdBo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -62,7 +62,7 @@ At the second night at the Pantages Theater in Hollywood, fans hear the tour pre
 
 Bruce performs at the Clearwater Concert at Madison Square Garden, honoring Pete Seeger's 90th birthday.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/B4i8ziSHkNA?start=2&amp;feature=oembed](https://www.youtube.com/embed/B4i8ziSHkNA?start=2&amp;feature=oembed)
 
@@ -86,7 +86,7 @@ At the first of three Wrecking Ball shows at Friends Arena in Solna, Sweden, Bru
 
 Bruce makes a return visit (his third) to the New Orleans Jazz Festival for an afternoon show. Rickie Lee Jones joins Bruce for seven songs, and John Fogerty for two of his own ("Green River" and "Proud Mary"). Tour debuting tonight: "How Can a Poor Man Stand Such Times and Live" and "When the Saints Go Marching In."
 
-**2014:**
+**2014:**<br>
 
 [https://www.youtube.com/embed/wiH1MXrcWaA?feature=oembed](https://www.youtube.com/embed/wiH1MXrcWaA?feature=oembed)
 
@@ -106,6 +106,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce stops by Windmill Lane Recording Studio in Dublin to contribute vocals for "History Books" the title track for Gaslight Anthem's upcoming album.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/gyUgfrCegOs?feature=oembed](https://www.youtube.com/embed/gyUgfrCegOs?feature=oembed)

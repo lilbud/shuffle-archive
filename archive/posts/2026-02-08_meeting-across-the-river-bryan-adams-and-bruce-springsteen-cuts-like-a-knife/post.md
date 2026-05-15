@@ -19,7 +19,7 @@ Here's that wonderfully filmed Bruce and Bryan performance of "Cuts Like a Knife
 May 13, 2010 (New York City, NY)
 September 30, 2017 (Toronto, ON)
 
-**Cuts Like a Knife**
+**Cuts Like a Knife**<br>
 **First performed:**<br>
 **Last performed:**<br>
 

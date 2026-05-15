@@ -2,7 +2,7 @@
 
 Bruce meets Nils Lofgren for the first time at The Matrix in San Francisco, where both Steel Mill (Bruce's band) and Grin (Nils' band) are playing.
 
-**1970:**
+**1970:**<br>
 
 Bruce plays a solo acoustic show at Freehold Township High School. The set list includes his never-released "," and "," and "."
 
@@ -10,7 +10,7 @@ Bruce plays a solo acoustic show at Freehold Township High School. The set list 
 
 Bruce cancels a show in Columbus following the firing of original E Street Band drummer Vini Lopez.
 
-**1974:**
+**1974:**<br>
 
 Ronnie Spector and Flo and Eddie make guest appearances with Bruce and the E Street Band at the Richfield Coliseum. Together, they perform "," "," "," and "" (the last of which was recently recorded in the studio with the E Street Band).
 
@@ -22,7 +22,7 @@ Ronnie Spector and Flo and Eddie make guest appearances with Bruce and the E Str
 
 Bruce plays a solo acoustic show in Hamburg.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/JF6dp17utwk?feature=oembed](https://www.youtube.com/embed/JF6dp17utwk?feature=oembed)
 
@@ -38,7 +38,7 @@ Bruce plays a solo acoustic show in Hamburg.
 
 Bruce wraps up his Australian solo acoustic tour with a third show in Melbourne (and has dinner at tiny restaurant France Soir).
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/8Pdte2JL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8Pdte2JL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

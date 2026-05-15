@@ -2,7 +2,7 @@
 
 The Bruce Springsteen Band opens for Mitch Ryder (of "Detroit Medley" fame) in Richmond. Also on the bill: the Mike Quatro Jamband. Mike's sister Suzi will go on to become a well-known rocker (and minor TV star), someday covering Bruce's signature song, "Born to Run."
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -14,19 +14,19 @@ The Bruce Springsteen Band opens for Mitch Ryder (of "Detroit Medley" fame) in R
 
 Bruce and the as-yet-unnamed E Street Band play a gig at Oliver's in Boston, their sixth of seven straight nights.
 
-**1973:**
+**1973:**<br>
 
 At Columbia Recording Studios in New York City, Bruce attempts to remix "Born to Run" for his upcoming album but ultimately decide to stick with the original.
 
-**1975:**
+**1975:**<br>
 
 Bruce attends Warren Zevon's show at Trax in New York City–and may possibly have contributed backup howls on "Werewolves of London." (Accounts vary.)
 
-**1978:**
+**1978:**<br>
 
 : The scheduled European opener of the River Tour is postponed to give Bruce time to recover from the first two legs of the tour.
 
-**1981**
+**1981**<br>
 
 
 
@@ -34,13 +34,13 @@ Bruce attends Warren Zevon's show at Trax in New York City–and may possibly ha
 
 Bruce and the E Street Band play their second of two nights at the Rosemont Horizon near Chicago, where they tour premiere "Darkness on the Edge of Town" and "Backstreets."
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/iEJOIMJg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iEJOIMJg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 On a night off from his solo tour, Bruce joins Joe Ely on stage at The Mean Fiddler in Dublin for three songs during the main set; he returns for two more in the encore. Listen to both appearances below.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/rys9ZuBP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/rys9ZuBP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -62,7 +62,7 @@ a Pete Seeger tribute album, is released, featuring Bruce's cover of "We Shall O
 
 Richard Davis, bassist on the studio recording of "Meeting Across the River," guest-stars when Bruce and the E Street Band play that song at the Bradley Center in Milwaukee during the Magic Tour. "Streets of Fire" tour premieres tonight as well.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/2gnWNO0l-y4?feature=oembed](https://www.youtube.com/embed/2gnWNO0l-y4?feature=oembed)
 
@@ -70,11 +70,11 @@ Richard Davis, bassist on the studio recording of "Meeting Across the River," gu
 
 Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park's Convention Hall.
 
-**2009:**
+**2009:**<br>
 
 The night before he kicks off the Wrecking Ball Tour, Bruce visits the Red Light Cafe in Atlanta to take in local guitarist Glenn Phillips.
 
-**2012:**
+**2012:**<br>
 
 
 
@@ -82,7 +82,7 @@ The night before he kicks off the Wrecking Ball Tour, Bruce visits the Red Light
 
 At Night Two (of three) at the Los Angeles Sports Arena, Bruce tour premieres "Death to My Hometown" and "American Land" for St. Patrick's Day.
 
-**2016:**
+**2016:**<br>
 
 [https://videopress.com/embed/vlByZSBh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vlByZSBh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -96,6 +96,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 : In Phoenix for tour rehearsals with the E Street Band, Bruce takes a break to record a message for fans coming to town for the show.
 
-**2024**
+**2024**<br>
 
 [https://videopress.com/embed/nfEDvruw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nfEDvruw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)

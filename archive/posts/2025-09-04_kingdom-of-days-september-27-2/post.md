@@ -20,7 +20,7 @@ At the Record Plant in New York City, Bruce records "Because the Night," "," and
 
 Bruce and the boys rehearse for the upcoming River Tour at Clair Brothers Audio in Lititz, Pennsylvania, and the rehearsals are captured on video.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/mjAgyyRGv2k?feature=oembed](https://www.youtube.com/embed/mjAgyyRGv2k?feature=oembed)
 
@@ -68,7 +68,7 @@ The Human Rights Now! Tour lands in Asia, starting with a show at the Tokyo Dome
 
 Night One in Chicago on the Reunion Tour features a standard Night One set list, but there are still two nights to go in this stand at the United Center.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/DJ0ByzWd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DJ0ByzWd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -104,7 +104,7 @@ The Rising Tour is winding down, and each show of this last month is special. At
 
 Bruce and the E Street Band rehearse at Asbury Park's Convention Hall for their upcoming Vote for Change Tour.
 
-**2004:**
+**2004:**<br>
 
 
 
@@ -112,7 +112,7 @@ Bruce and the E Street Band rehearse at Asbury Park's Convention Hall for their 
 
 Sirius XM radio brings back E Street Radio for a return engagement to coincide with the release of Magic. At least as of this writing, it will never leave the air again.
 
-**2007:**
+**2007:**<br>
 
 
 

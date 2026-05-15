@@ -141,7 +141,7 @@ Unfortunately, by the time Bruce recorded and filmed his Broadway show for offic
 
 [Watch Video Highlight](https://videopress.com/embed/nKNDHlSR)
 
-**Long Walk Home**
+**Long Walk Home**<br>
 **Recorded** March-April 2007  
 **Released:** *Magic* (2007)
 **First performed:** November 11, 2006 (London, England)

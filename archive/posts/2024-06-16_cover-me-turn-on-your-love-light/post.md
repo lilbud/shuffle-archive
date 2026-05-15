@@ -44,6 +44,6 @@ But come on, Bruce. Enough time has passed. You've got the horns, and you've got
 
 Let it shine!
 
-**Turn On Your Love Light**
+**Turn On Your Love Light**<br>
 **First performed:** November 27, 1970 (Asbury Park, NJ)<br>
 **Last performed:** January 22, 1971 (Asbury Park, NJ)<br>

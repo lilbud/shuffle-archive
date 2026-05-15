@@ -23,6 +23,6 @@ The horns aren't featured on this song, but it's still a great encore performanc
 August 1, 1976 (Red Bank, NJ)
 August 1, 1976 (Red Bank, NJ)
 
-**She's Sure the Girl I Love (orig. He's Sure the Boy I Love)**
+**She's Sure the Girl I Love (orig. He's Sure the Boy I Love)**<br>
 **First performed:**<br>
 **Last performed:**<br>

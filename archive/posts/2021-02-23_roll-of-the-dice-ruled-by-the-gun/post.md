@@ -41,9 +41,9 @@ But that's a topic for another day.
 
 [Watch on Youtube: Bruce Springsteen Ruled By The Gun #2 harmonies & guitar solos](https://www.youtube.com/watch?v=pvJXJPjk9NM)
 
-**Ruled by the Gun**
+**Ruled by the Gun**<br>
 **Recorded** September 1981 – May 1982 (demos only)
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

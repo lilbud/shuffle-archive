@@ -4,11 +4,11 @@
 
 The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank.
 
-**1968:**
+**1968:**<br>
 
 Bruce starts a six-night stand opening for Dave Van Ronk at Max's Kansas City in New York.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -32,7 +32,7 @@ Bruce cancels an outdoor gig at the Tanglewood Music Festival in Lenox, Massachu
 
 Bruce and the E Street Band bring the Born to Run Tour to Pittsburgh's Syria Mosque, where future friend and collaborator Joe Grushecky is in attendance.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -44,7 +44,7 @@ Bruce and the E Street Band bring the Born to Run Tour to Pittsburgh's Syria Mos
 
 Mike Appel's lawsuit against Bruce gets underway, as a judge places a preliminary injunction on Bruce, prohibiting him from recording with Jon Landau.
 
-**1976:**
+**1976:**<br>
 
 Bruce and the E Street Band hold a recording session for at Atlantic Studios in New York City.
 
@@ -66,7 +66,7 @@ Bruce and the E Street Band play one of their best shows of the Darkness Tour at
 
 Bruce's scheduled River Tour gig in Detroit is postponed by three days.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -80,7 +80,7 @@ At Night Four of Ten at the Meadowlands during the Born in the U.S.A. Tour, J. T
 
 The Born in the U.S.A. stadium tour lands at Soldier Field in Chicago, and the show is captured in stellar quality.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/l-IRmIGFCnc?feature=oembed](https://www.youtube.com/embed/l-IRmIGFCnc?feature=oembed)
 
@@ -94,7 +94,7 @@ The Born in the U.S.A. stadium tour lands at Soldier Field in Chicago, and the s
 
 Bruce and the E Street Band play a mostly-covers set at The Stone Pony in Asbury Park for the second week running.
 
-**1987:**
+**1987:**<br>
 
 [https://videopress.com/embed/MVKuXisC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MVKuXisC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -112,7 +112,7 @@ is certified platinum by the Recording Industry Association of America, eighteen
 
 Bruce stops by the Great Northern Bar and Grill in Whitefish, Montana–a state in which he has never played before–and joins the house band on stage for two songs. The Fanatics have been hired for the wedding of Toby Scott, Bruce's long-time sound man and archivist, so Bruce puts them through their paces.
 
-**1996:**
+**1996:**<br>
 
 
 
@@ -140,7 +140,7 @@ Night Thirteen of fifteen at the Meadowlands sees the Reunion Tour premiere and 
 
 Bruce and the band play their second of three nights at Philadelphia's Lincoln Financial Field on the Rising Tour's stadium leg.
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/X1CpfvCE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/X1CpfvCE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -168,7 +168,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and E Street Band kick off the second domestic leg of their 2023 World Tour at Wrigley Field in Chicago.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/1hI3bwtVBYg?feature=oembed](https://www.youtube.com/embed/1hI3bwtVBYg?feature=oembed)
 

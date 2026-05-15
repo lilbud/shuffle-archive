@@ -66,9 +66,9 @@ I will, however, leave you with another artist's smash hit single that reached #
 
 [Watch on Youtube: Rick Springfield - Don't Talk To Strangers (Official Video)](https://www.youtube.com/watch?v=cp42V938eBA)
 
-**Love Is a Dangerous Thing**
+**Love Is a Dangerous Thing**<br>
 **Recorded** September-December 1981 (demo only)
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

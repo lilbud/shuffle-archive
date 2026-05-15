@@ -164,9 +164,9 @@ Three days later, Bruce and Odin once again appeared on the same bill, the last 
 
 It was the first public performance of the group who would someday be dubbed The E Street Band.
 
-**Water Station**
-**Never recorded**
-**Never released**
+**Water Station**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** September 9, 1972 (Highlands, NJ)
 **Last performed:** September 9, 1972 (Highlands, NJ)
 

@@ -4,7 +4,7 @@
 
 Future singer/guitarist/songwriter/producer/arranger/actor/DJ/best-selling author, member of the E Street Band, co-founder of the Asbury Jukes, and leader of the Disciples of Soul–Steven Van Zandt is born today in Winthrop, Massachusetts.
 
-**1950:**
+**1950:**<br>
 
 
 
@@ -12,7 +12,7 @@ Future singer/guitarist/songwriter/producer/arranger/actor/DJ/best-selling autho
 
 Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -20,7 +20,7 @@ Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 Still transitioning from Child to Steel Mill, Bruce and the band open for Iron Butterfly at Randolph-Macon College.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -28,7 +28,7 @@ Still transitioning from Child to Steel Mill, Bruce and the band open for Iron B
 
 Bruce and the E Street Band headline at West Chester College.
 
-**1974:**
+**1974:**<br>
 
 On hiatus without a leader, the E Street Band backs Marshall Crenshaw and Joey Ramone for a long, by-request set broadcast live on WKRK in New York City.
 
@@ -44,7 +44,7 @@ Bruce kicks off what will prove to be a marathon-length world tour, performing s
 
 The anticipation for Bruce's upcoming show in Tampa is building, stoked by the local news. Tonight, they air a special look at Bruce's local fandom.
 
-**2002:**
+**2002:**<br>
 
 [https://www.youtube.com/embed/Muj_8nm8kyc?feature=oembed](https://www.youtube.com/embed/Muj_8nm8kyc?feature=oembed)
 
@@ -86,7 +86,7 @@ Four years later to the day, Bruce is wrapping up another tour, as the Working o
 
 President Barack Obama presents Bruce with the Presidential Medal of Freedom, the nation's highest civilian honor.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/Zag_-9Rr1vk?feature=oembed](https://www.youtube.com/embed/Zag_-9Rr1vk?feature=oembed)
 
@@ -122,7 +122,7 @@ Bruce gives to reporter Chris Jordan for the .
 
 Bruce and the E Street Band close out World Tour '24 with a festive show (their longest of the year) in Vancouver, British Columbia.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/NsZ5gYhDr8A?start=6&amp;feature=oembed](https://www.youtube.com/embed/NsZ5gYhDr8A?start=6&amp;feature=oembed)
 

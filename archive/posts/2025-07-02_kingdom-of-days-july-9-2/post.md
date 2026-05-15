@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band headline at The Main Point in Bryn Mawr, Pennsylvania. Bruce is no stranger to having his name misspelled by now, but this is a new one.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce and the E Street Band headline at The Main Point in Bryn Mawr, Pennsylvani
 
 Bruce sits down for an interview with WNEW-FM DJ Dave Herman in San Diego. (The interview will air in September on the King Biscuit Flower Hour.) As with Mary Turner a few days earlier, Bruce is loose, talkative, and funny. This interview is definitely worth a listen.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/1tvtbjLH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1tvtbjLH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -58,13 +58,13 @@ Bruce brings the Tunnel of Love Tour to Sheffield for the first of two nights. "
 
 Bruce joins Cats on a Smooth Surface at The Stone Pony for "Travelin' Band."
 
-**1989:**
+**1989:**<br>
 
 [https://www.youtube.com/embed/IcBM6UlaIzA?feature=oembed](https://www.youtube.com/embed/IcBM6UlaIzA?feature=oembed)
 
 Bruce and his new touring band play their second of five nights at Wembley Arena in London.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/mY6CjOdb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mY6CjOdb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -108,7 +108,7 @@ The Wrecking Ball Tour stops in Zurich for a night, where Bruce opens the show w
 
 In town a day early for his show in Rome, Bruce catches Sting's gig at Stadio del Tennis. After the show, Sting's pianist David Sancious join his current and old bosses for a late dinner at Bruce's hotel.
 
-**2013:**
+**2013:**<br>
 
 The video–a short film, really–for "" makes its debut. It is perhaps Bruce's most artistically ambitious video ever.
 
@@ -138,7 +138,7 @@ continues its limited return engagement at the St. James Theater in New York Cit
 
 In flight to his next World Tour 2023 stop, Bruce records a salute to old friend and engineer Louis Lahav, who is receiving a lifetime achievement award in Israel for his contribution to music.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/TdpPb-dsFeg?feature=oembed](https://www.youtube.com/embed/TdpPb-dsFeg?feature=oembed)
 

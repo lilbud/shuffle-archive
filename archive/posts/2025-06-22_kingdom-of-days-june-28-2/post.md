@@ -4,17 +4,17 @@
 
 The Castiles headline at the West End Casino in Long Branch, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 David Sancious rejoins the band as recording sessions continue for Bruce's second album at 914 Sound Studios in New York City. Listen to an early take of "New York City Serenade" from this session below.
 
-**1973:**
+**1973:**<br>
 
 [https://www.youtube.com/embed/rCVdZiAgGWY?feature=oembed](https://www.youtube.com/embed/rCVdZiAgGWY?feature=oembed)
 
 A scheduled E Street Band gig in Memphis is cancelled.
 
-**1974:**
+**1974:**<br>
 
 At the Civic Center Arena in St. Paul, the day before the Born in the U.S.A. Tour begins, director Brian De Palma films footage for the video for "." Bruce performs before an "audience" of three professional models (including future actress Courtney Cox), five lucky fans, and at least 200 extras behind the stage. To thank the intimate crowd, Bruce and the band perform a mini-concert concluding with "" when the shoot is complete. Bruce fan (and E Street Shuffle guest blogger!) Sandi Pederson is one of the five lucky locals chosen to join the models and extras for the video shoot. Read her guest to find out what it was like to be up close with Bruce for his iconic video shoot.
 
@@ -26,13 +26,13 @@ At the Civic Center Arena in St. Paul, the day before the Born in the U.S.A. Tou
 
 The Tunnel of Love Tour arrives in Rotterdam for the first of two nights.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/Qh1rK3ay?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Qh1rK3ay?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce joins Clarence and the Red Bank Rockers on stage for 30 minutes of their set at Tradewinds in Sea Bright, New Jersey.
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/8wxTcxZg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8wxTcxZg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -44,7 +44,7 @@ Bruce joins Clarence and the Red Bank Rockers on stage for 30 minutes of their s
 
 Bruce and the E Street Band play their final European Rising show in Milan during an intense thunderstorm. Check out the video below to see how intense the rain was during the performance, and for the beautiful performance (and tour premiere) of "Follow That Dream."
 
-**2003:**
+**2003:**<br>
 
 [https://www.youtube.com/embed/2Pi79S-DHxg?feature=oembed](https://www.youtube.com/embed/2Pi79S-DHxg?feature=oembed)
 

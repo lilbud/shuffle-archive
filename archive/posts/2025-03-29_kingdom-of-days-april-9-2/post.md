@@ -4,7 +4,7 @@
 
 Child performs at the Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce and most of the E Street Band (Boom Carter is not in attendance) drop by W
 
 The Chicken Scratch Tour moves on to Colgate University for a surprise concert arranged at only a week's notice. Listen to the story below.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/7YUeYbdMnnk?feature=oembed](https://www.youtube.com/embed/7YUeYbdMnnk?feature=oembed)
 
@@ -62,7 +62,7 @@ is certified is 2x multi-platinum by the Recording Industry Association of Ameri
 
 The first public E Street Band concert since 1988, as the Reunion Tour kicks off at Palau Sant Jordi in Barcelona. Fans flock to the shows from all over the world–check out the interviews and pre-show build-up below.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/JSBIdM0IjLw?feature=oembed](https://www.youtube.com/embed/JSBIdM0IjLw?feature=oembed)
 
@@ -112,7 +112,7 @@ Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list feat
 
 The Hear the World Foundation announces that Bruce will serve as an ambassador to raise awareness for the non-profit organization's campaign to prevent hearing loss.
 
-**2018:**
+**2018:**<br>
 
 
 

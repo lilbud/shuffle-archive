@@ -37,9 +37,9 @@ For the life of me, I cannot fathom why Bruce left this off of *Nebraska*. Tight
 
 When the next tour comes, I think I know what my next sign request is gonna be.
 
-**Riding Horse**
+**Riding Horse**<br>
 **Recorded:** March-April 1981  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -4,7 +4,7 @@
 
 Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the fourth of a five-night/ten-show stand.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -24,7 +24,7 @@ Continuing a week of Texas shows, Bruce and the E Street Band play a show at Hou
 
 A scheduled show at Jai Alai Fronton in Tampa is rescheduled for the following day.
 
-**1975:**
+**1975:**<br>
 
 Bruce and the E Street Band work on "" at a recording session at The Record Plant in New York City.
 
@@ -52,7 +52,7 @@ Bruce brings World Tour 1992 to the Nassau Coliseum in Uniondale for a two-night
 
 Bruce and the E Street Band bring their Reunion Tour to the Bradley Center in Milwaukee.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/WkqV0zVzpCo?feature=oembed](https://www.youtube.com/embed/WkqV0zVzpCo?feature=oembed)
 
@@ -68,7 +68,7 @@ Bruce and the E Street Band bring their Reunion Tour to the Bradley Center in Mi
 
 A scheduled Rising Tour show in Columbus is postponed to December due to Clarence's detached retina.
 
-**2002:**
+**2002:**<br>
 
 
 
@@ -146,7 +146,7 @@ Bruce joins Questlove on his podcast to promote his new album,
 
 Bruce and the E Street Band continue their Canadian tour with a show at Canadian Tire Center in Ottawa.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/KAHjGaCZzEM?feature=oembed](https://www.youtube.com/embed/KAHjGaCZzEM?feature=oembed)
 

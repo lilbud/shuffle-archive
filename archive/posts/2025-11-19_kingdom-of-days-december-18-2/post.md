@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 Bruce and his band with no name play their second of a three-night stand at the Student Prince in Asbury Park.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and his band with no name play their second of a three-night stand at the 
 
 A scheduled Darkness show in Portland, Oregon is postponed to the following day.
 
-**1978:**
+**1978:**<br>
 
 The River Tour comes home (or close to it, anyway) for the holidays, as Bruce and the band play their first of two nights at Madison Square Garden. Early in the set, they play "" for the first time ever.
 
@@ -42,7 +42,7 @@ Bruce joins local musicians at the Stone Pony and plays "" for local ill and dis
 
 Bruce holds his second of two inaugural Asbury Park holiday shows at Convention Hall, benefiting local charities, and once again he is surrounded by friends and family: The Max Weinberg 7 serves as the official house band, but Danny, Garry, Patti (who previews new music), Nils, Roy, Steve and Clarence are here, too. Also in the house and on stage: Soozie Tyrell, Lisa Lowell, Bobby Bandiera, Southside Johnny, and Marah.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/8HQV6Lmm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8HQV6Lmm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

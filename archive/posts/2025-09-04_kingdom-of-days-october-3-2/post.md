@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 A scheduled show at the Rivoli Theatre in Indianapolis is cancelled.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -20,7 +20,7 @@ A scheduled show at the Rivoli Theatre in Indianapolis is cancelled.
 
 Bruce and the E Street Band continue their week of California shows with a stop at Santa Clara University.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -32,7 +32,7 @@ Bruce and the E Street Band continue their week of California shows with a stop 
 
 The original River Tour kicks off at the University of Michigan in Ann Arbor, with "Born to Run" opening the show for the first time ever. Bruce is clearly a bit rusty, as he forgets the lyrics to his most well-known song. "Thunder Road" is played twice, the first time mid-set and the second as a final encore with Bob Seger.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/e8rcWIHfxeI?feature=oembed](https://www.youtube.com/embed/e8rcWIHfxeI?feature=oembed)
 
@@ -66,19 +66,19 @@ A couple of days ahead of the album it comes from, the first single from is rele
 
 Bruce plays his first and only show ever in Greece when the Human Rights Now! Tour stops at Athens' Olympic Stadium.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/SXX55npP284?feature=oembed](https://www.youtube.com/embed/SXX55npP284?feature=oembed)
 
 Bruce and his new touring band play their second of two World Tour 1992 nights at Phoenix's America West Arena.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/0dyy3mhN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0dyy3mhN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce plays a solo acoustic show at the Northrop Auditorium in Minneapolis.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/lhef9P4J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lhef9P4J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -142,7 +142,7 @@ Night Three of five at Giants Stadium on the Working on a Dream Tour features th
 
 Bruce makes an appearance at Barnes & Noble at The Grove in Los Angeles to promote his new autobiography.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/odKtPqBfo-U?feature=oembed](https://www.youtube.com/embed/odKtPqBfo-U?feature=oembed)
 
@@ -172,6 +172,6 @@ Bruce films videos for "Nightshift" and "" at Samson Stages in Brooklyn.
 
 On social media, Bruce publishes his endorsement of Vice President Kamala Harris in the 2024 U.S. presidential election campaign. Although the endorsement itself was unsurprising, the passion and urgency of Bruce's plea sustains for days through the news cycle.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/7FDFj5SgDYc?feature=oembed](https://www.youtube.com/embed/7FDFj5SgDYc?feature=oembed)

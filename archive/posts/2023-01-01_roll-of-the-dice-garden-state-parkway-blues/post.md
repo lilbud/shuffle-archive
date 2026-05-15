@@ -48,7 +48,7 @@ Seriously, take a listen:
 > *Now you make sure the kids don't forget to take their lunch"*
 > *I clean myself up and I stumble out the door*
 *Into my garage and **I jump into my old Ford***
-***But the damn thing it don't wanna start***
+***But the damn thing it don't wanna start***<br>
 > *But I don't care, what do I care?*
 > *It's really got a heart*
 
@@ -155,7 +155,7 @@ This is a relatively strong passage, not just for its metaphor, but for the way 
 
 > *You know I used to tell myself*
 *Oh some day you're gonna be driving a, a big **Cadillac***
-***Oh so shiny and black***
+***Oh so shiny and black***<br>
 
 I see you, "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)!" Thought you could sneak by under Bruce's breath, didn't you? But no–we caught you, making your first lyrical appearance a full decade before we'd next hear you.
 
@@ -266,8 +266,8 @@ Whew!
 
 What are we to make of "Garden State Parkway Blues" looking back? It's mottled and disjointed, but lighthearted and ambitious at the same time. It's also a fascinating glimpse into Bruce's contemporary influences and future songwriting. For those (like me) who study the evolution of Bruce's craft with fascination, "Garden State Parkway Blues" is an essential listen.
 
-**Garden State Parkway Blues**
-**Never recorded or released**
+**Garden State Parkway Blues**<br>
+**Never recorded or released**<br>
 **First performed:** September 20, 1969 (Richmond, VA)
 **Last performed:** October 17, 1970 (Long Branch, NJ)
 

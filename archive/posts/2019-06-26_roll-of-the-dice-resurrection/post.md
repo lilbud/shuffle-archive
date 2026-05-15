@@ -57,9 +57,9 @@ The song opens up here, as Bruce leads us away from the church and toward more p
 
 "Resurrection" may have been a reliable crowd-pleaser during the Steel Mill era (the boys played it from 1969 through 1971), but it was far from Bruce's best early work. We're not likely to ever hear Bruce play it again; maybe that's why he gave Vini his blessing for Steel Mill Retro to record it instead. (You can find it on their 2009 album, *All Man the Guns for America*.)
 
-**Resurrection**
-**Never recorded**
-**Never released**
+**Resurrection**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** September 20, 1969 (Richmond, VA)
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
 

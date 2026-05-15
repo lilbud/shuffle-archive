@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band open for Chicago at the Baltimore Civic Center. Prior to the show, Bruce stops by WHFS-FM in Bethesda for an interview and in-station performance.
 
-**1973:**
+**1973:**<br>
 
 [https://www.youtube.com/embed/NPAVhepem1A?feature=oembed](https://www.youtube.com/embed/NPAVhepem1A?feature=oembed)
 
@@ -14,7 +14,7 @@ Listen to Bruce recall his memory of this show 36 years later:
 
 Bruce and the band headline at the Agora in Toledo, Ohio. This show is notable for its opener: the only known performance of "A Night Like This" (also known as "Angel Baby" or "Dance On Little Angel"), an outtake that remains unreleased to this day.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/iBgH1Irpf2w?feature=oembed](https://www.youtube.com/embed/iBgH1Irpf2w?feature=oembed)
 
@@ -60,7 +60,7 @@ Recording continues for what will become at The Hit Factory in New York City.
 
 Bruce, Roy, Patti, and the Miami Horns join Max Weinberg's band Killer Joe on stage at The Stone Pony for four songs.
 
-**1989:**
+**1989:**<br>
 
 [https://videopress.com/embed/Z5HLzrqT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Z5HLzrqT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -76,7 +76,7 @@ Bruce and the E Street Band bring the Reunion Tour to Paris for the first of two
 
 Bruce politely but pointedly declines an invitation to be interviewed by the Los Angeles Times on the occasion of the 50th anniversary of the Fender Stratocaster.
 
-**2004:**
+**2004:**<br>
 
 
 
@@ -84,7 +84,7 @@ Bruce politely but pointedly declines an invitation to be interviewed by the Los
 
 Bruce plays a solo acoustic show in Madrid.
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/HAYMQ1R9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HAYMQ1R9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

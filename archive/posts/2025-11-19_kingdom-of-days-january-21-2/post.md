@@ -2,7 +2,7 @@
 
 Upon returning home from his aborted relocation to California, Bruce reunites with his eponymous band (now called The Sundance Blues Band) at The Captain's Garter in Neptune, New Jersey.
 
-**1972:**
+**1972:**<br>
 
 [https://www.youtube.com/embed/Xa69gujpD7g?feature=oembed](https://www.youtube.com/embed/Xa69gujpD7g?feature=oembed)
 
@@ -12,11 +12,11 @@ Upon returning home from his aborted relocation to California, Bruce reunites wi
 
 : Bruce and the band play their final of four nights at My Father's Place on Long Island.
 
-**1973**
+**1973**<br>
 
 Night Two in Toronto on the River Tour. Listen to the show below.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1CY8lZmxi5bYYm_HCKVCEGQ](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1CY8lZmxi5bYYm_HCKVCEGQ)
 
@@ -54,7 +54,7 @@ Bruce assembles the Seeger Sessions band for a final recording session, capturin
 
 Bruce drops by the Transparent Clinch Gallery in Asbury Park, where he poses for a photo with the gallery's owner (and himself). (Photo credit: Maria Barba-Clinch/Transparent Gallery Instagram)
 
-**2022:**
+**2022:**<br>
 
 
 

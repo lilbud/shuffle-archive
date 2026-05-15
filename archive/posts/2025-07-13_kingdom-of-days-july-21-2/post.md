@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band headline two shows at Max's Kansas City in New York, with The Wailers opening for them.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce brings the Darkness Tour to Nashville and plays the earliest known perform
 
 The Born in the U.S.A. Tour starts its Canadian leg with a show at the Montreal Forum.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/mQ0tWBPe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mQ0tWBPe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

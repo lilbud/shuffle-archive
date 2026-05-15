@@ -12,7 +12,7 @@ Bruce plays his first-ever show in Texas, at Houston's Liberty Hall–the first 
 
 Bruce and the E Street Band play a show at the Painters Mill Music Fair in Owings Mills, Maryland.
 
-**1975:**
+**1975:**<br>
 
 [https://videopress.com/embed/2aVBRLsq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2aVBRLsq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -24,7 +24,7 @@ Bruce and the E Street Band play a show at the Painters Mill Music Fair in Owing
 
 Bruce joins Carole King on stage at the Beacon Theater in New York City in a surprise appearance during the encore of the final night of King's stand. Bruce and Carole sing "The Loco-Motion" together.
 
-**1976:**
+**1976:**<br>
 
 "," a benefit single recorded by United Support of Artists for Africa (a collection of musicians that includes Bruce) is released. Both the single and video feature Bruce's distinctive vocals, and the single will go on to sell more than twenty million copies.
 

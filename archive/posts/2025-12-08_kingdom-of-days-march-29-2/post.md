@@ -2,7 +2,7 @@
 
 Bruce and his band open for Stevie Wonder at Kutztown State College.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -18,7 +18,7 @@ Bruce and his band open for Stevie Wonder at Kutztown State College.
 
 Finding themselves with time to spare following a gig at Duke University, Bruce and the E Street band play an extra show at the Ovens Auditorium in Charlotte.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -30,7 +30,7 @@ Finding themselves with time to spare following a gig at Duke University, Bruce 
 
 : Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform "One Step Up" below.
 
-**1988**
+**1988**<br>
 
 [https://www.youtube.com/embed/RGj1gGvXJT8?start=117&amp;feature=oembed](https://www.youtube.com/embed/RGj1gGvXJT8?start=117&amp;feature=oembed)
 
@@ -40,7 +40,7 @@ is certified 3x multi-platinum by the Recording Industry Association of America.
 
 Bruce opens with "Trapped" and pulls out the Magic tour premiere of "Point Blank" and a very rare "Your Own Worst Enemy" at his KeyArena show in Seattle.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/RSl5Oe0oXIo?feature=oembed](https://www.youtube.com/embed/RSl5Oe0oXIo?feature=oembed)
 
@@ -80,7 +80,7 @@ Bruce and President Barack Obama release Episode 7 of their podcast, entitled "F
 
 "Darkness on the Edge of Town" makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/ozJ7CrhBLKI?feature=oembed](https://www.youtube.com/embed/ozJ7CrhBLKI?feature=oembed)
 

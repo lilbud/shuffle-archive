@@ -27,7 +27,7 @@ Check out that performance below–"Surfin' U.S.A." starts around the one-minute
 July 1, 2015 (Holmdel, NJ)
 July 1, 2015 (Holmdel, NJ)
 
-**Surfin' U.S.A.**
+**Surfin' U.S.A.**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

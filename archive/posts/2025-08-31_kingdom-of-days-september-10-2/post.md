@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band continues their residency at The Student Prince.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -50,7 +50,7 @@ On a free day in between shows, Clarence appears as a guest on and he performs a
 
 Bruce shakes up the set list for Night Two in Miami on the Born in the U.S.A. Tour–no tour premieres, but several songs make their return after a month of unchanging sets.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/Yx72G4DQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Yx72G4DQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -92,7 +92,7 @@ One final Canadian show on the Rising Tour at the Skydome in Toronto, where Bruc
 
 Bruce and the E Street Band begin rehearsing for their upcoming Magic Tour at Convention Hall in Asbury Park.
 
-**2007:**
+**2007:**<br>
 
 
 
@@ -100,7 +100,7 @@ Bruce and the E Street Band begin rehearsing for their upcoming Magic Tour at Co
 
 Bruce and the band rehearse for the South American leg of the Wrecking Ball Tour at Movistar Arena in Santiago.
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/LA-yNDJDNOM?feature=oembed](https://www.youtube.com/embed/LA-yNDJDNOM?feature=oembed)
 

@@ -85,7 +85,7 @@ Bruce performed "Balboa Park" nightly throughout the Ghost of Tom Joad Tour, but
 
 There were as many as fifty boys in Rotella's original 1993 article. More than a quarter-century on, who knows where or who those boys are now? We don't, and that's just one more haunting aspect of "Balboa Park."
 
-**Balboa Park**
+**Balboa Park**<br>
 **Recorded** March-August 1995  
 **Released:** *The Ghost of Tom Joad* (1995)
 **First performed:** November 21, 1995 (New Brunswick, NJ)

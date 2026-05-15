@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band play their third consecutive night at Fat City in Seaside Heights, New Jersey.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band record "" at Atlantic Studios in New York City.
 
 Bruce and the E Street Band bring the Darkness Tour to the Pacific Northwest, starting with a show at the Paramount Theater in Portland.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/1tApe9uQUCs?feature=oembed](https://www.youtube.com/embed/1tApe9uQUCs?feature=oembed)
 
@@ -30,7 +30,7 @@ Bruce and the E Street Band bring the Darkness Tour to the Pacific Northwest, st
 
 Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man's West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.
 
-**1984:**
+**1984:**<br>
 
 Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including "."
 
@@ -68,7 +68,7 @@ A momentous night: Bruce and his touring band play a special "Concert to Fight H
 
 Night Two in Stockholm on the Reunion Tour.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/vIBrhlatcuA?feature=oembed](https://www.youtube.com/embed/vIBrhlatcuA?feature=oembed)
 
@@ -76,7 +76,7 @@ Night Two in Stockholm on the Reunion Tour.
 
 The Seeger Sessions Tour starts its last American stand at the PNC Bank Arts Center in Holmdel, New Jersey.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/aff_zv76sCY?feature=oembed](https://www.youtube.com/embed/aff_zv76sCY?feature=oembed)
 
@@ -90,7 +90,7 @@ Bruce performs "" at a wedding for friends of his in River Vale, New Jersey; he 
 
 Bruce and the E Street Band headline at the Isle of Wight Festival.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/RYR7oQYvBiU?feature=oembed](https://www.youtube.com/embed/RYR7oQYvBiU?feature=oembed)
 

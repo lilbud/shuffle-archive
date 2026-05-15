@@ -8,7 +8,7 @@ This audio clip is the final encore from the October 20, 1995 show at Nick's Fat
 
 <http://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3>
 
-**Lighten Up**
+**Lighten Up**<br>
 **First performed:** October 20, 1995 (Pittsburgh, PA)<br>
 **Last performed:** October 20, 1995 (Pittsburgh, PA)<br>
 

@@ -2,7 +2,7 @@
 
 : Bruce and the band play their fourth of seven nights at Oliver's in Boston.
 
-**1973**
+**1973**<br>
 
 Bruce plays Austin for the first time to a sold-out crowd at Armadillo World Headquarters. He'll be back in 38 years to the day to keynote at SXSW. 
 
@@ -22,7 +22,7 @@ Extended studio sessions for prompt the postponement of a scheduled show in Atla
 
 Bruce and the band play their third show in three nights, this time at Broome County Veterans Memorial Arena in Binghamton, New York.
 
-**1977:**
+**1977:**<br>
 
 [https://videopress.com/embed/R0xeoh7J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/R0xeoh7J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -34,11 +34,11 @@ Bruce and the band play their third show in three nights, this time at Broome Co
 
 At the Record Plant in New York City, Bruce records "(I Love) Everything About You," which remains unreleased to this day.
 
-**1978:**
+**1978:**<br>
 
 In town a day early for his show in Rosemont the next night, Bruce has dinner out at an Italian restaurant.
 
-**1988:**
+**1988:**<br>
 
 
 
@@ -46,7 +46,7 @@ In town a day early for his show in Rosemont the next night, Bruce has dinner ou
 
 Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street Band play a mini-set that includes Springsteen classics like "The Promised Land" and "Tenth Avenue Freeze-Out," a duet with Wilson Pickett (and Billy Joel on keyboard) and an all-star jam on "Let It Be."
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/rnLjmojIp20?feature=oembed](https://www.youtube.com/embed/rnLjmojIp20?feature=oembed)
 
@@ -68,7 +68,7 @@ Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street 
 
 Bruce inducts Jackson Browne into the Rock and Roll Hall of Fame.
 
-**2004:**
+**2004:**<br>
 
 [https://www.youtube.com/embed/8YFyC6pnz-k?feature=oembed](https://www.youtube.com/embed/8YFyC6pnz-k?feature=oembed)
 
@@ -76,11 +76,11 @@ Bruce inducts Jackson Browne into the Rock and Roll Hall of Fame.
 
 Bruce attends the 25th Annual Rock and Roll Hall of Fame induction ceremony at the Waldorf-Astoria Hotel in New York City.
 
-**2010:**
+**2010:**<br>
 
 38 years to the day after his first concert in Austin, Bruce delivers the keynote address at SXSW.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/VW05XedG4zk?feature=oembed](https://www.youtube.com/embed/VW05XedG4zk?feature=oembed)
 
@@ -100,11 +100,11 @@ After the speech, Bruce plays a warm-up show for the upcoming Wrecking Ball Tour
 
 In today's episode of Legends of Springsteen, Bruce tours around the Lake Okeechobee area of Florida on his motorcycle, taking selfies and photos, hanging out at a local watering hole, and making a PSA for wearing a bike helmet.
 
-**2014:**
+**2014:**<br>
 
 Night One of an outstanding three-night stand along the River Tour (2016 Edition), the final stand Bruce will ever play at the Los Angeles Memorial Sports Arena.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/vN0nwWB8sp4?feature=oembed](https://www.youtube.com/embed/vN0nwWB8sp4?feature=oembed)
 
@@ -130,4 +130,4 @@ Spotify premieres Episode 5 of the new podcast from Bruce and President Barack O
 
 Bruce and the E Street Band rehearse for the next leg of their world tour, resuming within days in Phoenix.
 
-**2024:**
+**2024:**<br>

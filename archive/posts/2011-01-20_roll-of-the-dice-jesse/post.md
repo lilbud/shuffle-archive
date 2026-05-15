@@ -64,9 +64,9 @@ He knows how to lift his family's spirits in the moment–he lights up the room 
 
 Here's hoping we'll see this one leave the vault someday.
 
-**Jesse**
+**Jesse**<br>
 **Recorded:** April-May 1972  
 **Never released**  
-**Never performed**
+**Never performed**<br>
 
 © August 31, 2018

@@ -2,7 +2,7 @@ As I announced last month, this site will cease publication on January 5th, 2026
 
 But from its digital ashes rises....
 
-**The E Street Shuffle Bookshelf Collection!**
+**The E Street Shuffle Bookshelf Collection!**<br>
 
 And I do mean *collection*.
 

@@ -52,7 +52,7 @@ The River Tour gets rolling on Night Two, moving on to Cincinnati's Riverfront C
 
 Bruce speaks and performs acoustically at the dedication ceremony for a Boston bridge named after an activist friend of Bruce's, Lenny Zakim.
 
-**2002:**
+**2002:**<br>
 
 [https://videopress.com/embed/0Qzz0jXM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0Qzz0jXM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -112,7 +112,7 @@ Bruce tour premieres "" in a brand new arrangement at his Seeger Sessions show i
 
 Bruce kicks off a solo mini-tour in support of presidential candidate Barack Obama at a massive rally on the Ben Franklin Parkway in Philadelphia.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/xFnCc20E87g?feature=oembed](https://www.youtube.com/embed/xFnCc20E87g?feature=oembed)
 
@@ -136,7 +136,7 @@ Bruce kicks off a solo mini-tour in support of presidential candidate Barack Oba
 
 Bruce appears at Powell's City of Books in Portland, Oregon, promoting his new book and meeting fans.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/MgBsRyBfk2k?feature=oembed](https://www.youtube.com/embed/MgBsRyBfk2k?feature=oembed)
 
@@ -150,4 +150,4 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 
 Bruce takes his daughter Jessica to see Bleachers at Madison Square Garden but doesn't make a guest appearance on stage.
 
-**2024:**
+**2024:**<br>

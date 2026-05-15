@@ -4,7 +4,7 @@
 
 Bruce and the (not yet named) E Street Band play a gig at Niagara University in Lewiston, New York. Meanwhile, a couple of hours away in Ithaca, the local paper publishes a review of Bruce's recently released debut album. Keep an eye on him, the reviewer advises.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce and the (not yet named) E Street Band play a gig at Niagara University in 
 
 Bruce and the band perform on a revolving stage at the Celebrity Theater in Phoenix. After the show, Bruce grants a fascinating interview to The Phoenix New Times and Arizona State University. You can listen to it below–it's well worth it.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -38,7 +38,7 @@ At the Power Station in New York City, Bruce and the E Street Band work on "."
 
 Bruce postpones a scheduled show in Manchester in order to recover from the first two legs of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -52,7 +52,7 @@ In his home studio in Los Angeles, Bruce records "." It will remain unreleased f
 
 Night Three of five in Sydney on the Born in the U.S.A. Tour.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/BtcDRPOX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BtcDRPOX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -84,7 +84,7 @@ The second and final rehearsal show for the Working on a Dream Tour features the
 
 The Australian leg of the Wrecking Ball Tour moves on to Melbourne for the first of three nights at the Rod Laver Arena.
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/2Oca7f4hxDM?feature=oembed](https://www.youtube.com/embed/2Oca7f4hxDM?feature=oembed)
 
@@ -104,7 +104,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City, where 
 
 Bruce appears in a promotional video to announce the launch of the New Jersey Pandemic Relief Fund. This is his first public appearance since the onset of the COVID-19 pandemic.
 
-**2020:**
+**2020:**<br>
 
 [https://www.youtube.com/embed/uHGGh5mFJng?feature=oembed](https://www.youtube.com/embed/uHGGh5mFJng?feature=oembed)
 

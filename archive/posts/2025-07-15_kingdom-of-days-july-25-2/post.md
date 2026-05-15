@@ -4,7 +4,7 @@
 
 The Castiles play at a YMCA pool party at Camp Arrowhead, in Marlboro, New Jersey.
 
-**1967:**
+**1967:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play at a YMCA pool party at Camp Arrowhead, in Marlboro, New Jerse
 
 The Bruce Springsteen Band plays an IPO party (really) in Rumson for the Marine International Corporation.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -20,7 +20,7 @@ The Bruce Springsteen Band plays an IPO party (really) in Rumson for the Marine 
 
 Bruce and the E Street Band open for the late, great Dr. John at the Santa Monica Civic Auditorium.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -78,7 +78,7 @@ Bruce plays a Tunnel of Love show in Copenhagen, where Link Wray guest-stars on 
 
 Bruce and Patti welcome their first son, Evan James, into the world.
 
-**1990:**
+**1990:**<br>
 
 
 
@@ -116,7 +116,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 Bruce and the E Street Band end their European tour at the Autodromo in Monza, Italy.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/vayPOdo0i38?feature=oembed](https://www.youtube.com/embed/vayPOdo0i38?feature=oembed)
 
@@ -126,7 +126,7 @@ Bruce and the E Street Band end their European tour at the Autodromo in Monza, I
 
 Bruce and the E Street Band play their first of two nights at Wembley Stadium in London.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/dGmxP7ahGvQ?feature=oembed](https://www.youtube.com/embed/dGmxP7ahGvQ?feature=oembed)
 

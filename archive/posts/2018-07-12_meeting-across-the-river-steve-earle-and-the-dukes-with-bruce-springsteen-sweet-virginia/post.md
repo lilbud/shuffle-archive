@@ -6,6 +6,6 @@ This was Bruce's one and only performance to date of "Sweet Virginia." Here's th
 
 [Watch on Youtube: Sweet Virginia](https://www.youtube.com/watch?v=5R3xFy85fVE)
 
-**Sweet Virginia**
+**Sweet Virginia**<br>
 **First performed:** February 6, 1998 (Sea Bright, NJ)<br>
 **Last performed:** February 6, 1998 (Sea Bright, NJ)<br>

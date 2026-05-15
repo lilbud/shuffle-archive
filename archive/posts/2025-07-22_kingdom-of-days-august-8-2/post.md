@@ -4,7 +4,7 @@
 
 A scheduled Steel Mill gig in Long Branch at the aptly named First Annual Nothing's Festival is cancelled when the event's local venues become ensnared in a web of regulatory oversight.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -24,7 +24,7 @@ A scheduled Steel Mill gig in Long Branch at the aptly named First Annual Nothin
 
 Bruce places a famous ad in the Village Voice classifieds. Among the respondents: Roy Bittan and Max Weinberg.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -40,7 +40,7 @@ Bruce places a famous ad in the Village Voice classifieds. Among the respondents
 
 A planned Darkness Tour stop at Ryserson University in Toronto is cancelled.
 
-**1978:**
+**1978:**<br>
 
 Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for seven songs, including a work-in-progress (and never released) "On the Prowl" and covers of "" "" and "."
 
@@ -50,7 +50,7 @@ Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park f
 
 Bruce and the E Street Band play their third of ten nights at the Brendan Byrne Arena in East Rutherford on the Born in the U.S.A. Tour.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/qUtloRcX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qUtloRcX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

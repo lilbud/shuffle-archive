@@ -34,7 +34,7 @@ Bruce played it once more in a return appearance at Fenway Park in 2012 (no Pete
 
 As long as Bruce keeps returning to Boston, it's a good bet we haven't heard the end of "Dirty Water."
 
-**Dirty Water**
+**Dirty Water**<br>
 **First performed:** April 8, 1984 (Asbury Park, NJ)<br>
 **Last performed:** March 20, 2023 (Boston, MA)<br>
 

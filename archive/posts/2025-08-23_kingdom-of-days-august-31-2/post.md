@@ -4,13 +4,13 @@
 
 Bruce catches The Doors' concert at Asbury Park's Convention Hall. Watch actual footage of Jim Morrison from that day below.
 
-**1968:**
+**1968:**<br>
 
 [https://www.youtube.com/embed/Z3DElGznXIE?feature=oembed](https://www.youtube.com/embed/Z3DElGznXIE?feature=oembed)
 
 Bruce and his band play two shows at Fat City in Seaside Heights, New Jersey.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -18,7 +18,7 @@ Bruce and his band play two shows at Fat City in Seaside Heights, New Jersey.
 
 Bruce plays tour guide and historian to Phil Ceccola, who interviews and photographs Bruce around Asbury Park. The interview remains unpublished.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -34,7 +34,7 @@ What was originally scheduled to be the closing night of six shows at Giants Sta
 
 Bruce and the reunited E Street Band kick off a three-show stand at the MCI Center in Washington, DC.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/OxY9LMWc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OxY9LMWc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

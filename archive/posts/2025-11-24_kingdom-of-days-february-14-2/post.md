@@ -2,7 +2,7 @@
 
 Earth (one of Bruce's early bands) plays their final gig at the Italian-American Mens Association Clubhouse in Long Branch, New Jersey. Vini Lopez is in attendance and is impressed enough to recruit Bruce for a new band he's putting together. Over the next several weeks, that band will gel under the name of Child and include not just Bruce and Vini, but also Danny Federici. By the end of the year, Child will become Steel Mill, which will eventually give way to The Bruce Springsteen Band, all the while drawing the E Street musicians ever closer into Bruce's orbit. If the E Street Band has a secret origin, this is where it begins.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -10,7 +10,7 @@ Earth (one of Bruce's early bands) plays their final gig at the Italian-American
 
 Steel Mill opens for Boz Scaggs on the last night of a three-night stand at The Matrix in San Francisco.
 
-**1970:**
+**1970:**<br>
 
 Bruce takes the bus into New York City with his acoustic guitar in hand to audition for Mike Appel, Jim Cretecos, and Bob Spitz at Appel's office. Appel likes what he hears–so much so that within a month he will sign Bruce as a client under his management. Among the songs Bruce performs at the audition: "," "," ," and "."
 
@@ -18,7 +18,7 @@ Bruce takes the bus into New York City with his acoustic guitar in hand to audit
 
 Bruce and the band open for Dan Hicks and His Hot Licks at Virginia Commonwealth University in Richmond. The show features the earliest known performance of "Rosalita (Come Out Tonight)." The recording is muddy but quite listenable, and it's worth a listen if only for the fascinating early lyrics, the mid-song "There I was" story, the mid-song James Brown vamp, and the complete mid-song cover of The Beach Boys' "Fun Fun Fun." Yes, this was all during that single, first performance of "Rosalita." Rosie comes out at 27:41 below–take a listen.
 
-**1973:**
+**1973:**<br>
 
 [https://videopress.com/embed/sCffbs7D?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/sCffbs7D?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

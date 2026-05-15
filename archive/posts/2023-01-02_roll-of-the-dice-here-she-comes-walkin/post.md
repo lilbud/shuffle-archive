@@ -45,9 +45,9 @@ How much either live version of "Here She Comes Walkin'" has in common with what
 
 Let's hope.
 
-**Here She Comes Walkin'**
-**Never recorded**
-**Never released**
+**Here She Comes Walkin'**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** October 11, 1980 (Chicago, IL)
 **Last performed:** July 28, 2016 (Oslo, Norway)
 

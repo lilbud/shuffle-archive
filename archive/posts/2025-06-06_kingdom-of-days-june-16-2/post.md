@@ -4,7 +4,7 @@
 
 Steel Mill member Robbin Thompson is born.
 
-**1949:**
+**1949:**<br>
 
 
 
@@ -12,7 +12,7 @@ Steel Mill member Robbin Thompson is born.
 
 Under record label pressure to release a new single, Bruce cancels a scheduled performance at Houston's Music Hall.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band work on material for their upcoming album at Atlantic Studios in New York City. Listen to their early cut of "" from this session below.
 
@@ -90,13 +90,13 @@ Bruce and the Sessions Band tour premiere "" and a solo acoustic "Into the Fire"
 
 The Magic Tour stops at LTU Arena in Dusseldorf, where power outages interrupt the show twice during the opening songs.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/CKuPtL_sBAo?feature=oembed](https://www.youtube.com/embed/CKuPtL_sBAo?feature=oembed)
 
 While Clarence fights for his life, Lady Gaga releases the video for "The Edge of Glory," featuring Clarence's final performance.
 
-**2011:**
+**2011:**<br>
 
 [https://www.youtube.com/embed/QeWBS0JBNzQ?feature=oembed](https://www.youtube.com/embed/QeWBS0JBNzQ?feature=oembed)
 

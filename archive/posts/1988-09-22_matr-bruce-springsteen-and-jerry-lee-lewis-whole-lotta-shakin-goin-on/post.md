@@ -34,7 +34,7 @@ Curiously, Bruce and the E Street Band actually served as backing band for both 
 
 There's no indication whether either Berry or Lewis recalled that night two decades later, but their performances that night in 1995 might be ones the E Street Band would prefer to forget.
 
-**Whole Lotta Shakin' Goin' On**
+**Whole Lotta Shakin' Goin' On**<br>
 **First performed:** July 17, 1982 (Red Bank, NJ)<br>
 **Last performed:** November 6, 2004 (Asbury Park, NJ)<br>
 

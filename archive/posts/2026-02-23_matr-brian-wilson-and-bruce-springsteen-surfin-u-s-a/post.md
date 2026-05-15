@@ -18,7 +18,7 @@ Check out that performance below–"Surfin' U.S.A." starts around the one-minute
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cFUsZHWVB1M)
 
-**Surfin' U.S.A.**
+**Surfin' U.S.A.**<br>
 **First performed:** July 1, 2015 (Holmdel, NJ)<br>
 **Last performed:** July 1, 2015 (Holmdel, NJ)<br>
 

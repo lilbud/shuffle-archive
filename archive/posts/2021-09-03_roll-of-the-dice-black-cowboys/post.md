@@ -126,7 +126,7 @@ In the end, through the power of her love and the dreams she instilled in her so
 
 [Watch on Youtube: Bruce Springsteen - BLACK COWBOYS (live 2005)](https://www.youtube.com/watch?v=K3bjY14BQf0)
 
-**Black Cowboys**
+**Black Cowboys**<br>
 **Recorded** 1997-2004  
 **Released:** *Devils & Dust* (2005)
 **First performed:** April 21, 2005 (Asbury Park, NJ)

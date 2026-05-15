@@ -39,8 +39,8 @@ Many of Bruce's early songs–even his unfinished ones–contain lines, phrases,
 
 If only it wasn't saddled with that title.
 
-**Vaginal Vandals**
-**Never recorded**
-**Never performed**
+**Vaginal Vandals**<br>
+**Never recorded**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

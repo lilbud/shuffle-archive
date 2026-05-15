@@ -2,7 +2,7 @@
 
 Bruce and his still unnamed band play their final of four nights at Gertie's in Dallas.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -10,7 +10,7 @@ Bruce and his still unnamed band play their final of four nights at Gertie's in 
 
 Bruce and the band play a warm-up for their upcoming Chicken Scratch Tour at The Stone Pony in Asbury Park.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -18,19 +18,19 @@ Bruce and the band play a warm-up for their upcoming Chicken Scratch Tour at The
 
 Bruce works on mixing and overdubs for "Racing in the Street" at the Record Plant in New York City.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/cm9UuM3UXdc?feature=oembed](https://www.youtube.com/embed/cm9UuM3UXdc?feature=oembed)
 
 Bruce and the E Street Band record "Out in the Street" at the Power Station in New York City.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/abIbKWBwCkU?feature=oembed](https://www.youtube.com/embed/abIbKWBwCkU?feature=oembed)
 
 Bruce plays in Australia for the first time as the next leg of the Born in the U.S.A. Tour kicks off with a six-night stand at the Sydney Entertainment Center.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/FcYu3LmlkZg?feature=oembed](https://www.youtube.com/embed/FcYu3LmlkZg?feature=oembed)
 
@@ -60,7 +60,7 @@ In advance of the broadcast debut of , Bob Costas interviews Bruce for… HBO Sp
 
 Jon Bon Jovi, co-owner of the Philadelphia Soul arena football team, invites some friends to take in his team's game against Colorado in his suite at the Wachovia Center. The broadcast team covering the team catches and refers to Bruce and Jon on camera several times, but Southside Johnny gets no love, and Al Gore gets… whatever.
 
-**2004:**
+**2004:**<br>
 
 [https://www.youtube.com/embed/v01FDP8aiZo?feature=oembed](https://www.youtube.com/embed/v01FDP8aiZo?feature=oembed)
 
@@ -68,11 +68,11 @@ Jon Bon Jovi, co-owner of the Philadelphia Soul arena football team, invites som
 
 Bruce and the Sessions band rehearse at the Paramount Theater in Asbury Park.
 
-**2006:**
+**2006:**<br>
 
 Bruce and the E Street Band rehearse for the upcoming Working on a Dream Tour at Asbury Park's Convention Hall. Afterward, Bruce joins the Panther Club Band on-stage at a Ranney School benefit concert in Long Branch.
 
-**2009:**
+**2009:**<br>
 
 
 
@@ -86,12 +86,12 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 President Biden awards Bruce with the National Medal of Arts in the East Room of the White House.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/nzUeaw38DYo?list=PLnbVaK2f4ragcpXdCQfT5hIDQTHjBYAjC](https://www.youtube.com/embed/nzUeaw38DYo?list=PLnbVaK2f4ragcpXdCQfT5hIDQTHjBYAjC)
 
 Bruce calls into E Street Radio to discuss the new leg of his world tour with host Jim Rotolo.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/Uw5jmJCB0Fw?feature=oembed](https://www.youtube.com/embed/Uw5jmJCB0Fw?feature=oembed)

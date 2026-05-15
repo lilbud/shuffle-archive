@@ -47,7 +47,7 @@ Bruce may have been born to rock, but when he wants to, that pair of bookend per
 July 10, 1971 (Lincroft, NJ)
 April 2, 2011 (Asbury Park, NJ)
 
-**C.C. Rider**
+**C.C. Rider**<br>
 **First performed:** <br>
 
 **Last performed:**<br>

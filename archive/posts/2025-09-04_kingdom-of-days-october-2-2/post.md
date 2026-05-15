@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce plays his first-ever show in the state of Wisconsin, at the Uptown Theater
 
 Bruce and the E Street Band bring their Lawsuit Tour to the Paramount Theater in Oakland.
 
-**1976:**
+**1976:**<br>
 
 [https://videopress.com/embed/ZHK0AYUU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZHK0AYUU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -34,7 +34,7 @@ Bruce and the E Street Band bring their Lawsuit Tour to the Paramount Theater in
 
 The marathon Born in the U.S.A. Tour finally comes to a close in Los Angeles, with Julianne and Jon Landau getting on-stage appearances. Watch some great highlights from the show below, along with extensive news coverage of the event.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/Jz1mkeUE0rA?feature=oembed](https://www.youtube.com/embed/Jz1mkeUE0rA?feature=oembed)
 
@@ -50,7 +50,7 @@ The marathon Born in the U.S.A. Tour finally comes to a close in Los Angeles, wi
 
 World Tour 1992 moves on to the America West Arena in Phoenix for the first of two nights.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/Ba5xlxSS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ba5xlxSS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -84,7 +84,7 @@ The Vote for Change Tour of swing states moves on to Cleveland's Gund Arena, whe
 
 Bruce's Italian tour with the Sessions Band moves on to Torino.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/S43vfTjPZ1A?feature=oembed](https://www.youtube.com/embed/S43vfTjPZ1A?feature=oembed)
 
@@ -94,7 +94,7 @@ Bruce's Italian tour with the Sessions Band moves on to Torino.
 
 Bruce and the E Street Band kick off the Magic Tour at the Hartford Civic Center with a set list that hews very closely to the rehearsal show.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/Cx2NGZgmrVs?feature=oembed](https://www.youtube.com/embed/Cx2NGZgmrVs?feature=oembed)
 

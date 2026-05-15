@@ -86,9 +86,9 @@ It's also a reminder that against the vast reach of the universe and the march o
 
 We may be gone in a minute, but this minute we're here.
 
-**One Minute You're Here**
+**One Minute You're Here**<br>
 **Recorded** Unknown (as early as September 2004 for the backing track, and likely 2019 for the vocals)
 **Released:** *Letter to You (2020)*
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

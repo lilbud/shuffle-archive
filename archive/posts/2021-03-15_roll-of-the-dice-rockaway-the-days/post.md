@@ -90,9 +90,9 @@ Bruce gave no explanation for the one-off arrangement, and he never played the s
 
 [Watch on Youtube: Seeds (Live at Shoreline Amphitheatre, Mountain View, CA - 10/13/86 - Official Audio)](https://www.youtube.com/watch?v=eCdCbD6iA7g)
 
-**Rockaway the Days**
+**Rockaway the Days**<br>
 **Recorded** January 12, 1984  
 **Released:** *Tracks* (1998)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

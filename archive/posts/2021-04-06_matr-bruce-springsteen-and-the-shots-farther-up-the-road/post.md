@@ -24,6 +24,6 @@ It certainly sounds to me like Bruce is ad libbing quite a bit (as is his wont),
 
 Still, this remains the only time to date that Bruce has covered this early Texas blues standard.
 
-**Farther Up the Road**
+**Farther Up the Road**<br>
 **First performed:** September 4, 1977 (Asbury Park, NJ)<br>
 **Last performed:** September 4, 1977 (Asbury Park, NJ)<br>

@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band is in residency at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Bruce Springsteen Band is in residency at the Student Prince in Asbury Park.
 
 Bruce and the E Street Band make a Darkness Tour stop at the Veterans Memorial Auditorium in Columbus.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/axwbJFmG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/axwbJFmG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -34,7 +34,7 @@ Bruce makes a guest appearance with The Pretenders on "" at Perkins Palace in Pa
 
 Bruce and the E Street Band play their second of two nights at The Centrum in Worcester, Massachusetts.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/OcpzKL31?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OcpzKL31?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -46,7 +46,7 @@ At the MTV Video Music Awards, "" loses in the Best Male Video category to Rober
 
 The Human Rights Now! Tour is in Paris for the second of two nights, and Bruce and the E Street Band close the show. "Because the Night" is a tour premiere.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/bFjRYh5zi4Y?feature=oembed](https://www.youtube.com/embed/bFjRYh5zi4Y?feature=oembed)
 

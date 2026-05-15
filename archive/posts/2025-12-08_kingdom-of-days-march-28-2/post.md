@@ -2,7 +2,7 @@
 
 Steel Mill plays a second night at the Hullabaloo in Richmond.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -10,7 +10,7 @@ Steel Mill plays a second night at the Hullabaloo in Richmond.
 
 Bruce and the E Street Band play a gig at Duke University, where "Raise Your Hand" makes its proper live debut.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/5oWCb3rgJHA?feature=oembed](https://www.youtube.com/embed/5oWCb3rgJHA?feature=oembed)
 
@@ -18,15 +18,15 @@ Bruce and the E Street Band play a gig at Duke University, where "Raise Your Han
 
 Three Mile Island nuclear power plant partially melts down in Pennsylvania. The incident inspires Bruce to write "Roulette."
 
-**1979:**
+**1979:**<br>
 
 Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 At their fifth and final night in Sydney on the Born in the U.S.A. Tour, Bruce and the E Street Band play "Wreck on the Highway." It will be a full twenty-five years before anyone hears the E Street Band perform it again.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/Wk0wuyNr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Wk0wuyNr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -58,11 +58,11 @@ A rather significant show from the Tunnel of Love Express Tour in Detroit–the 
 
 Bruce and the E Street Band play their first-ever show in New Zealand at the Western Springs Stadium in Auckland, where he tour premieres "Who'll Stop the Rain."
 
-**2003:**
+**2003:**<br>
 
 The Magic Tour begins its Pacific Northwest swing with a show at the Rose Garden in Portland.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/xT7LMmSwdxA?feature=oembed](https://www.youtube.com/embed/xT7LMmSwdxA?feature=oembed)
 
@@ -74,7 +74,7 @@ The Magic Tour begins its Pacific Northwest swing with a show at the Rose Garden
 
 At the first of two nights at the Wells Fargo Center in Philadelphia, "Seaside Bar Song" makes a very rare appearance.
 
-**2012:**
+**2012:**<br>
 
 [https://videopress.com/embed/xaRe5dtt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xaRe5dtt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -86,7 +86,7 @@ At the first of two nights at the Wells Fargo Center in Philadelphia, "Seaside B
 
 At Madison Square Garden in NYC, Bruce breaks out the tour premiere of "Meeting Across the River" with its classic segue into "Jungleland" in the post-album set.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/HHcf30KilOI?feature=oembed](https://www.youtube.com/embed/HHcf30KilOI?feature=oembed)
 
@@ -104,7 +104,7 @@ reaches a milestone–the 100th show–in its theatrical run at the Walter Kerr 
 
 Bruce and the E Street Band return to San Francisco after more than two decades away, opening the show with "Something in the Night" for the first time in 47 years.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/aDptrfS-xP4?feature=oembed](https://www.youtube.com/embed/aDptrfS-xP4?feature=oembed)
 

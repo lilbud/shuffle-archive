@@ -4,11 +4,11 @@
 
 Bruce and the as-yet-unnamed E Street Band play a gig at Waynesburg College in Pennsylvania.
 
-**1973:**
+**1973:**<br>
 
 "The Promise" makes its second-ever appearance, still a work-in-progress, when the Lawsuit Tour stops in Santa Monica for the first of two nights.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/Q4pJ5hDqxTA?feature=oembed](https://www.youtube.com/embed/Q4pJ5hDqxTA?feature=oembed)
 
@@ -42,7 +42,7 @@ The Darkness Tour moves on to Boutwell Memorial Auditorium in Birmingham.
 
 Bruce plays two songs (although this is up for debate) with Billy Rancher & The Unreal Gods on stage at On Broadway in Westwood, New Jersey.
 
-**1982:**
+**1982:**<br>
 
 Bruce and the E Street Band play their second of four shows at the final stand of the Born in the U.S.A. Tour in Los Angeles. In attendance tonight: The cast of television's .
 
@@ -58,7 +58,7 @@ Bruce rehearses with Roy Orbison at the Cocoanut Grove in Los Angeles for the fi
 
 Bruce makes a pit-stop at Matt's Saloon in Prescott, Arizona while on a motorcycle trip from Los Angeles, joining house band Mile High Band on stage for about an hour and befriending and changing the life of a bartender before heading off to the Grand Canyon.
 
-**1989:**
+**1989:**<br>
 
 [https://www.youtube.com/embed/ordKJO1_Rxg?feature=oembed](https://www.youtube.com/embed/ordKJO1_Rxg?feature=oembed)
 
@@ -74,7 +74,7 @@ Bruce makes a pit-stop at Matt's Saloon in Prescott, Arizona while on a motorcyc
 
 Bruce and his new band play the San Diego Sports Arena on World Tour 1992.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/c-IWG0XJeWk?feature=oembed](https://www.youtube.com/embed/c-IWG0XJeWk?feature=oembed)
 
@@ -82,7 +82,7 @@ Bruce and his new band play the San Diego Sports Arena on World Tour 1992.
 
 Bruce plays with Pete Seeger for the very first time at a Woody Guthrie tribute concert in Cleveland, along with Joe Ely, Arlo Guthrie, Ani DiFranco, the Indigo Girls, and more.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/0G8dDlLkG7c?feature=oembed](https://www.youtube.com/embed/0G8dDlLkG7c?feature=oembed)
 
@@ -102,7 +102,7 @@ Bruce tour premieres "" when the Rising Tour stops at the Fargodome in North Dak
 
 Bruce, the E Street Band, and John Fogerty rehearse at Asbury Park's Convention Hall for their upcoming Vote for Change Tour.
 
-**2004:**
+**2004:**<br>
 
 Bruce makes a book tour appearance at the Free Library of Philadelphia to promote his new autobiography, . A local schoolboy skips class to meet Bruce and convinces Bruce to sign his absence note, which he duly hands to his teacher the next day.
 
@@ -122,7 +122,7 @@ Bruce makes a book tour appearance at the Free Library of Philadelphia to promot
 
 Bruce holds his first and only dress rehearsal (invite-only) for Springsteen on Broadway at the Walter Kerr Theater in New York City.
 
-**2017:**
+**2017:**<br>
 
 
 
@@ -160,4 +160,4 @@ View this post on Instagram
 
 Bruce's scheduled show at Nationals Park in Washington D.C.–already rescheduled once from a month earlier–is postponed for almost another a full year.
 
-**2023:**
+**2023:**<br>

@@ -64,9 +64,9 @@ About all we can say with some confidence about "The Virgin Flower" is that Bruc
 
 Beyond that, I think we'd need a closer look at clearer lyrics in order to grok what young Bruce was reaching for–and since the notebook is reportedly in the hands of a private collector, maybe we'll yet get a chance to see it for ourselves someday.
 
-**The Virgin Flower**
-**Never recorded**
-**Never released**
-**Never performed**
+**The Virgin Flower**<br>
+**Never recorded**<br>
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

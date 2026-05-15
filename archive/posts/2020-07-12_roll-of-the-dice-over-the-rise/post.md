@@ -52,10 +52,10 @@ Bruce has never performed "Over the Rise" in public. I suspect he never will.
 
 (I certainly don't expect anyone to request it.)
 
-**Over the Rise**
+**Over the Rise**<br>
 **Recorded:** December 7, 1990  
 **Released:** *Tracks* (1998)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 

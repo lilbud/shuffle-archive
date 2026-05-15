@@ -19,6 +19,6 @@ It's pretty standard "that's all right with me" romantic territory for Bruce, bu
 **I Need You**  
 **Recorded:** early 1982  
 **Never released**  
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -4,7 +4,7 @@
 
 Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey. (Note: Brucebase places this show on this date, but local press advertisements suggest it did not take place, at least not tonight. Consider this one suspect.)
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -12,13 +12,13 @@ Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey. (Note: Bruceb
 
 Child plays their second of two nights at the Free University in Richmond. Listen to this show–the earliest known Child recording–below.
 
-**1969:**
+**1969:**<br>
 
 [https://videopress.com/embed/oMbk0dT7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oMbk0dT7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the new E Street Band play a sold-out show at Philadelphia's Tower Theater.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -26,7 +26,7 @@ Bruce and the new E Street Band play a sold-out show at Philadelphia's Tower The
 
 Bruce and the E Street Band play at Grinnell College in Iowa, their first-ever show in that state.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -62,7 +62,7 @@ Bruce releases his sixth studio album,
 
 In town a day early for his Born in the U.S.A. Tour stop, Bruce makes his second guest appearance with the Iron City Houserockers (fronted by Joe Grushecky in one of the band's final performances) at the Pennsylvania Decade in Pittsburgh.
 
-**1984:**
+**1984:**<br>
 
 Patti Scialfa appears on promoting her recent album and performing "Lucky Girl."
 
@@ -106,7 +106,7 @@ Buffalo gets one of the best and certainly the most surprising shows from the Ri
 
 Bruce rehearses with the Sessions Band for their upcoming European tour.
 
-**2006:**
+**2006:**<br>
 
 
 
@@ -130,7 +130,7 @@ Bruce premieres a new concept, playing a full album start-to-finish in select sh
 
 Legends of Springsteen! Bruce spots a couple posing for engagement photos at the beach in Manasquan, New Jersey, and he decides to join them.
 
-**2010:**
+**2010:**<br>
 
 
 

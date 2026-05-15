@@ -4,13 +4,13 @@
 
 Castiles drummer Bart Haynes quits the band. A year later, Bart will join the Marines and ship out to Vietnam, where he will be killed in action. Bruce will remember Bart often–in his shows, in print, and on Broadway.
 
-**1965:**
+**1965:**<br>
 
 [https://www.youtube.com/embed/p53I93UK9j0?feature=oembed](https://www.youtube.com/embed/p53I93UK9j0?feature=oembed)
 
 The Bruce Springsteen Band opens for Cactus at Virginia Commonwealth University in Richmond.
 
-**1971:**
+**1971:**<br>
 
 [https://www.youtube.com/embed/s_qjKVhl8xo?feature=oembed](https://www.youtube.com/embed/s_qjKVhl8xo?feature=oembed)
 
@@ -18,11 +18,11 @@ The Bruce Springsteen Band opens for Cactus at Virginia Commonwealth University 
 
 Bruce and the boys headline two shows at The Main Point in Bryn Mawr, Pennsylvania–their second of a three-night stand. Richard Blackwell makes a guest appearance on congas.
 
-**1973:**
+**1973:**<br>
 
 Patti Smith guest-stars on Night Three (of six) at the Palladium in New York City, joining Bruce and the Band for an unusual version of "Rosalita (Come Out Tonight)."
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/NcAdOEJeZfo?feature=oembed](https://www.youtube.com/embed/NcAdOEJeZfo?feature=oembed)
 
@@ -68,7 +68,7 @@ Also today, Bruce donates a complete signed collection of his albums to The Rain
 
 Bruce and his new touring band bring World Tour 1992 to Iowa State University in Ames.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/9XFkbcPs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9XFkbcPs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -106,7 +106,7 @@ At Night Two in Los Angeles on the Magic Tour, Bruce celebrates Halloween a day 
 
 Bruce and Roy make a guest appearance with U2 and Patti Smith at Night Two of the Rock and Roll Hall of Fame 25th Anniversary Concerts.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/be8YuyneES4?feature=oembed](https://www.youtube.com/embed/be8YuyneES4?feature=oembed)
 
@@ -116,7 +116,7 @@ Bruce and Roy make a guest appearance with U2 and Patti Smith at Night Two of th
 
 A scheduled Wrecking Ball show in Rochester is postponed to the following day due to Hurricane Sandy.
 
-**2012:**
+**2012:**<br>
 
 
 
@@ -146,7 +146,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 Fifth-grader Camryn Sherer interviews Bruce for her school newspaper and scores a genuine scoop when she asks him to share something no one knows about him.
 
-**2019:**
+**2019:**<br>
 
 
 

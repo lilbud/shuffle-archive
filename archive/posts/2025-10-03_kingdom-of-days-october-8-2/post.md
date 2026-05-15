@@ -4,7 +4,7 @@
 
 The Castiles play what is believed to be their first publicly advertised gig at the I.B. Club in Howell, New Jersey.
 
-**1965:**
+**1965:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play what is believed to be their first publicly advertised gig at 
 
 The Bruce Springsteen Band headlines at The Ledge at Rutgers University.
 
-**1971:**
+**1971:**<br>
 
 is certified gold by the Recording Industry Association of America.
 
@@ -48,7 +48,7 @@ That evening, Bruce joins Little Steven and the Disciples of Soul at The Ritz in
 
 A scheduled show at Mountain View's Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.
 
-**1992:**
+**1992:**<br>
 
 
 
@@ -56,7 +56,7 @@ A scheduled show at Mountain View's Shoreline Amphitheater is postponed until la
 
 Bruce and Mike Appel testify in the Royal Courts of Justice in London to prevent the unauthorized publication of some of Bruce's early recorded but unreleased songs.
 
-**1998:**
+**1998:**<br>
 
 
 
@@ -80,7 +80,7 @@ The Vote for Change Tour stops in Orlando, where Tracy Chapman joins Bruce on st
 
 Bruce and the Sessions Band play a show at Palamaggio in Caserta, Italy.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/oh4pznAPHkg?feature=oembed](https://www.youtube.com/embed/oh4pznAPHkg?feature=oembed)
 

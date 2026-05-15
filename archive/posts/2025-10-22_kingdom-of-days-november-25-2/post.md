@@ -4,7 +4,7 @@
 
 Steel Mill spends Thanksgiving eve headlining at Newark State College.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -16,11 +16,11 @@ Steel Mill spends Thanksgiving eve headlining at Newark State College.
 
 Bruce plays his first-ever show in Michigan, a free concert at the Detroit Auto Show, where the band's amps get fried when they're accidentally connected to a 220-volt power source.
 
-**1972:**
+**1972:**<br>
 
 Bruce and his unnamed band open for John Mayall at UMass Amherst.
 
-**1973:**
+**1973:**<br>
 
 [https://www.youtube.com/embed/cLyBcGG60zU?feature=oembed](https://www.youtube.com/embed/cLyBcGG60zU?feature=oembed)
 
@@ -40,13 +40,13 @@ Bruce and local DJ Ed Sciaky drop by Philadelphia's Sigma Sound Studios to meet 
 
 Bruce and the E Street Band play a Darkness show at Kiel Opera House in St. Louis.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/2cqrerzuSAI?feature=oembed](https://www.youtube.com/embed/2cqrerzuSAI?feature=oembed)
 
 Bruce and the band play their first of two Born in the U.S.A. shows at the Reunion Arena in Dallas.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/LR4emMOg_HI?feature=oembed](https://www.youtube.com/embed/LR4emMOg_HI?feature=oembed)
 
@@ -64,7 +64,7 @@ Bruce plays his second of three very special shows at the Paramount Theater in A
 
 Bruce kicks off the first European leg of the Magic Tour in Madrid, without Danny Federici for the first time. Charlie Giordano sits in for Danny, who is battling late-stage melanoma. Although no one knows it now, Charlie will be on stage at every E Street Band show ever after.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/3oFsG-jXGj4?feature=oembed](https://www.youtube.com/embed/3oFsG-jXGj4?feature=oembed)
 

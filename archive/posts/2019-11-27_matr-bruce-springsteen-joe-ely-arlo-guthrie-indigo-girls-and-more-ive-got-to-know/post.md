@@ -15,6 +15,6 @@ Here's the original for comparison:
 September 29, 1996 (Cleveland, OH)
 September 29, 1996 (Cleveland, OH)
 
-**I've Got to Know**
+**I've Got to Know**<br>
 **First performed:**<br>
 **Last performed:**<br>

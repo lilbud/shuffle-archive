@@ -4,7 +4,7 @@
 
 Bruce opens for Lou Reed at the Palace Concert Theater in Providence.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce opens for Lou Reed at the Palace Concert Theater in Providence.
 
 Bruce plays guest DJ on KDKB-FM in Phoenix, spinning platters for over an hour.
 
-**1974:**
+**1974:**<br>
 
 Night Two in Boston features Bruce's live premiere of "."
 
@@ -24,13 +24,13 @@ Night Two in Boston features Bruce's live premiere of "."
 
 At the Record Plant in New York City, Bruce completes "Racing in the Street."
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/cm9UuM3UXdc?feature=oembed](https://www.youtube.com/embed/cm9UuM3UXdc?feature=oembed)
 
 Bruce postpones a scheduled show in Manchester in order to recover from the first two legs of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -38,7 +38,7 @@ Bruce postpones a scheduled show in Manchester in order to recover from the firs
 
 Bruce and the E Street Band play their second of six nights at the Sydney Entertainment Center, as Rosie returns to the set list for the first time this year.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/4R9wQY6l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4R9wQY6l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -76,7 +76,7 @@ Bruce plays a food bank benefit show at the Count Basie Theater in Red Bank befo
 
 Bruce's scheduled show in London is postponed until the following month so that he can perform at this year's Oscar ceremony.
 
-**1996:**
+**1996:**<br>
 
 
 
@@ -124,7 +124,7 @@ continues its Broadway run at the Walter Kerr Theater in New York City.
 
 Bruce and the E Street Band bring their World Tour to the Keybank Center in Buffalo.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/anheQ4NAjR8?feature=oembed](https://www.youtube.com/embed/anheQ4NAjR8?feature=oembed)
 

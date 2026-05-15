@@ -10,7 +10,7 @@ The Bruce Springsteen Band headlines at Rutgers University in New Brunswick. The
 
 Bruce and his band kick off a three-night stand at the Student Prince in Asbury Park, Bruce's first official gig in that club in almost exactly two years.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -18,7 +18,7 @@ Bruce and his band kick off a three-night stand at the Student Prince in Asbury 
 
 The Born to Run Tour barrels into the holiday stretch with no signs of slowing down. Tonight, Bruce and the band play at Kleinhans Music Hall in Buffalo.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/shuMnHcAwwA?feature=oembed](https://www.youtube.com/embed/shuMnHcAwwA?feature=oembed)
 
@@ -26,7 +26,7 @@ The Born to Run Tour barrels into the holiday stretch with no signs of slowing d
 
 Bruce and the E Street Band (plus Little Steven for the encore set for the third consecutive show) close out 1984 at The Omni in Atlanta.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/SJx4HDT2JIQ?feature=oembed](https://www.youtube.com/embed/SJx4HDT2JIQ?feature=oembed)
 
@@ -56,7 +56,7 @@ After a brief side trip to Boston, Bruce closes out his solo acoustic stand at t
 
 Bruce launches a tradition that will continue for several years to come, calling on friends to help throw a big holiday concert at Asbury Park's Convention Hall to benefit local charities. On hand are the Max Weinberg 7, Danny, Garry, Roy, Patti (who debuts new music), Soozie, Steve, Nils, Clarence, Southside, Lisa Lowell, and Bobby Bandiera. In the encores, Bruce debuts a brand new song, "My City of Ruins," written for and dedicated to Asbury Park. Before a year is up, however, the song will grow and take on new meaning and resonance to a wider audience.
 
-**2000:**
+**2000:**<br>
 
 [https://www.youtube.com/embed/pDPiMyC_1mY?feature=oembed](https://www.youtube.com/embed/pDPiMyC_1mY?feature=oembed)
 

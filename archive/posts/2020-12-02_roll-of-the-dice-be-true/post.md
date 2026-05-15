@@ -106,7 +106,7 @@ It remains on many fans' chase list, but like I said: "Be True" hasn't missed an
 
 [Watch on Youtube: Bruce Springsteen Be True Solo Acoustic Live From Seattle 11/08/2005](https://www.youtube.com/watch?v=LjFlB4r5jMQ)
 
-**Be True**
+**Be True**<br>
 **Recorded** July 18, 1979  
 **Released:** *Tracks* (1998), *The River: Single Album* (2015)
 **First performed:** August 26, 1984 (Largo, MD)

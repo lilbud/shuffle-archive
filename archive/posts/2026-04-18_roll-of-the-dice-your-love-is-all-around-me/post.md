@@ -75,9 +75,9 @@ Reportedly, Bruce and the band recorded a studio take of the completed song thre
 
 Let's hope we get one, though. It's a clever song, a nice companion piece to "I'm Goin' Down," and it would be great to hear a finished version someday.
 
-**Your Love Is All Around Me**
+**Your Love Is All Around Me**<br>
 **Recorded** Early 1982 (rehearsals); May 10, 1982 (studio)
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 © July 30, 2019 / April 14, 2026

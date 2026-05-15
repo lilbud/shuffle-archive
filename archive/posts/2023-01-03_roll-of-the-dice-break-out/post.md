@@ -38,7 +38,7 @@ In the second verse, however, we hear the seed of a different *Darkness* classic
 
 > *Now I ain't into fast livin', I ain't into dying young*
 > *And I ain't looking to be forgiven for any of the stupid things that I've done*
-***For the ones who once had a notion, a notion it was good to be alive***
+***For the ones who once had a notion, a notion it was good to be alive***<br>
 > *Feel the spark, the rush of emotion, I want to break out baby tonight*
 
 We're listening to a track from November 1977. Just a few weeks later, that **bolded** line would appear in a more polished form in "Badlands." (It also appears in a more familiar form a few verses below.)
@@ -85,9 +85,9 @@ I know we've been focusing on the lyrical easter eggs, but "Break Out" really do
 
 So keep your fingers crossed: "Break Out" may yet break out.
 
-**Break Out**
+**Break Out**<br>
 **Recorded** September-November 1977  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

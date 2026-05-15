@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Bruce performs "For You" from Asbury Park in 1996](https://www.youtube.com/watch?v=Ig9CTPe6udI)
 
-**![](../../assets/2020/11/1996-11-25.png)**
+**![](../../assets/2020/11/1996-11-25.png)**<br>
 
 **2007:** Bruce kicks off the first European leg of the Magic Tour in Madrid, without Danny Federici for the first time. Charlie Giordano sits in for Danny, who is battling late-stage melanoma. Although no one knows it now, Charlie will be on stage at every E Street Band show ever after.
 

@@ -4,7 +4,7 @@
 
 The Castiles play a gig at the Matawan-Keyport Roller Drome.
 
-**1966:**
+**1966:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play a gig at the Matawan-Keyport Roller Drome.
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park. After playing there for weeks, it seems the venue has Bruce's name spelling down pat. They've moved on to mangling Steve's name now.
 
-**1971:**
+**1971:**<br>
 
 [https://www.youtube.com/embed/bKUlWPTptBY?feature=oembed](https://www.youtube.com/embed/bKUlWPTptBY?feature=oembed)
 
@@ -40,7 +40,7 @@ Bruce and the boys bring the Darkness Tour to Southern Illinois University in Ca
 
 Bruce drops by the Keystone in Palo Alto to catch Clarence Clemons and The Red Bank Rockers play their late show, joining them on stage for "Lucille" and "From Small Things (Big Things One Day Come)." The Stanford Daily is on the scene to cover it, and you gotta love their headline.
 
-**1982:**
+**1982:**<br>
 
 
 
@@ -56,7 +56,7 @@ Bruce debuts two new videos ("" and "") as part of a documentary,
 
 Bruce and his new touring band bring World Tour 1992 to the St. Louis Arena.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/Tg2XI0pVTnw?feature=oembed](https://www.youtube.com/embed/Tg2XI0pVTnw?feature=oembed)
 
@@ -64,7 +64,7 @@ Bruce and his new touring band bring World Tour 1992 to the St. Louis Arena.
 
 Bruce plays a solo acoustic show at Chicago's Rosemont Theater. After the show, Bruce is visited by director Peter Bogdanovich, and their conversation is captured by reporters.
 
-**1995:**
+**1995:**<br>
 
 [https://www.youtube.com/embed/q8NodXzYYsE?feature=oembed](https://www.youtube.com/embed/q8NodXzYYsE?feature=oembed)
 
@@ -80,7 +80,7 @@ Bruce plays a solo acoustic show at Chicago's Rosemont Theater. After the show, 
 
 Bruce plays his second of two solo acoustic shows at the Sunrise Musical Theater in Florida.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/7uVp4aK0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7uVp4aK0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

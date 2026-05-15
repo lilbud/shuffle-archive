@@ -4,7 +4,7 @@
 
 Bruce cancels a scheduled show at Quinnipiac University in Hamden, Connecticut.
 
-**1973:**
+**1973:**<br>
 
 Bruce gifts Robert Gordon with his song "" and joins Robert in the studio, playing piano on the recorded track.
 
@@ -22,7 +22,7 @@ The Darkness Tour enters into its final month with a show at the University of O
 
 Bruce and the E Street Band play their second of two River Tour nights at the Civic Arena in Pittsburgh.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/JtWlz2mOPgk?feature=oembed](https://www.youtube.com/embed/JtWlz2mOPgk?feature=oembed)
 
@@ -56,7 +56,7 @@ U2 performs in Times Square for World AIDS Day, but Bono is out of action follow
 
 Bruce continues his promotional book tour, stopping in Austin to meet fans at BookPeople.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/QsJU5ykkZRk?feature=oembed](https://www.youtube.com/embed/QsJU5ykkZRk?feature=oembed)
 

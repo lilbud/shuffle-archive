@@ -2,7 +2,7 @@
 
 "Mad Dog" Vini Lopez, original E Street Band drummer, is born in Neptune Township, New Jersey.
 
-**1949:**
+**1949:**<br>
 
 
 
@@ -10,7 +10,7 @@
 
 Bruce and Steel Mill open for the Elvin Bishop Band at The Matrix in San Francisco.
 
-**1970:**
+**1970:**<br>
 
 : Steel Mill's last stand, the first of two nights at The Upstage in Asbury Park. Late in the show, the band makes a PSA to support The Upstage, and Bruce talks about how hard it's been finding gigs thanks to the from last summer.
 
@@ -22,7 +22,7 @@ Bruce and Steel Mill open for the Elvin Bishop Band at The Matrix in San Francis
 
 Bruce and the Sundance Blues Band open for Ruby Falls and the Rock City Band at The Captain's Garter in Neptune, New Jersey.
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -98,7 +98,7 @@ Bruce and the E Street Band kick off their Australian Summer tour in Perth. This
 
 Bruce poses for photographer Danny Clinch at the site of the former Turf Club in Asbury Park. (Photo credit: Tom Parr)
 
-**2023:**
+**2023:**<br>
 
 
 

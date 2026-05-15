@@ -35,7 +35,7 @@ Well, completely. Bruce has often teased a few lines of "Dancing in the Street" 
 December 31, 1969 (Big Sur, CA)
 January 22, 1971 (Asbury Park, NJ)
 
-**Dancing in the Street**
+**Dancing in the Street**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

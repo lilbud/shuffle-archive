@@ -16,7 +16,7 @@ Bruce and Joe play the song live together frequently (30 times over the past 24 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aor4Wdwbfgc)
 
-**Never Be Enough Time**
+**Never Be Enough Time**<br>
 **First performed:** August 20, 1994 (Long Branch, NJ)<br>
 **Last performed:** January 17, 2026 (Red Bank, NJ)<br>
 

@@ -75,9 +75,9 @@ But what is clear is that "No Need" feels more in keeping with some of Bruce's e
 
 I consider "No Need" to be a stepping stone on Bruce's songwriting journey, but an important one that offers fascinating insight into the artist at a young and pivotal age.
 
-**No Need**
+**No Need**<br>
 **Recorded** April-July 1972  
-**Never released**
+**Never released**<br>
 **First performed:** February 17, 1972 (Freehold, NJ)
 **Last performed:** February 17, 1972 (Freehold, NJ)
 

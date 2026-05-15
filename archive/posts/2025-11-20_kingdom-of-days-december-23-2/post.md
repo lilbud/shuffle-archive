@@ -2,11 +2,11 @@
 
 No updates
 
-**New for 2025:**
+**New for 2025:**<br>
 
 The Castiles play a sweet sixteen party for a high school classmate at the American Hotel in Freehold.
 
-**1966:**
+**1966:**<br>
 
 Bruce and his unnamed band headline at the Rova Farm Function Center in Jackson, New Jersey, where a fight breaks out during (of all things) "." Luckily, the police break up the brawl and allow the show to go on.
 
@@ -18,7 +18,7 @@ Bruce and his unnamed band headline at the Rova Farm Function Center in Jackson,
 
 Just in time for Christmas, Bruce releases the video from his intimate concert at the Asbury Park Casino's Carousel House a few weeks earlier.
 
-**2010:**
+**2010:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLIveWZmYDjBnj-ubogqlqx_QS2Hy8C7wC](https://www.youtube.com/embed/videoseries?list=PLIveWZmYDjBnj-ubogqlqx_QS2Hy8C7wC)
 

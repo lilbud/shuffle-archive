@@ -182,7 +182,7 @@ I'll leave you with one of Bruce's most recent performances, from the show where
 
 [Watch on Youtube: Bruce Springsteen - Incident On 57th Street (E Rutherford 8/30/16) cam mix video](https://www.youtube.com/watch?v=Ez2tGloaHXk)
 
-**Incident on 57th Street**
+**Incident on 57th Street**<br>
 **Recorded** September 23, 1973  
 **Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)
 **First performed:** October 13, 1973 (Washington, DC)

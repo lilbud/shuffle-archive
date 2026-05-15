@@ -4,7 +4,7 @@
 
 "Professor" Roy Bittan is born in Rockaway Beach, New York.
 
-**1949:**
+**1949:**<br>
 
 
 
@@ -12,11 +12,11 @@
 
 The Castiles play an opening set for The Rogues at the new Surf ‘n' See Club in Sea Bright, New Jersey.
 
-**1966:**
+**1966:**<br>
 
 The "Fabulous" Castiles play a gig at the See ‘n' Surf Club (not a typo–same club, new name) to mark its first anniversary.
 
-**1967:**
+**1967:**<br>
 
 
 
@@ -24,7 +24,7 @@ The "Fabulous" Castiles play a gig at the See ‘n' Surf Club (not a typo–same
 
 The Sundance Blues Band plays the Upstage in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -32,7 +32,7 @@ The Sundance Blues Band plays the Upstage in Asbury Park.
 
 Mike Appel sends Bruce a letter informing him that he is prohibited from recording new music due to their ongoing legal dispute. Bruce will spend 1976 and much of 1977 touring instead of recording as a result.
 
-**1976:**
+**1976:**<br>
 
 Bruce and the E Street Band record "" at Atlantic Studios in New York City, and Bruce works on a beautiful early solo piano arrangement of "."
 
@@ -80,7 +80,7 @@ Bruce joins Gary U.S. Bonds at The Cafe Bar in Long Branch for six songs: "" ","
 
 A scheduled show in Barcelona is postponed by two days due to a transport worker strike.
 
-**1992:**
+**1992:**<br>
 
 Bruce films a cameo performance in the movie at Disney Soundstage Studios in New York City.
 
@@ -102,7 +102,7 @@ continues its reprise run at the St. James Theater in New York City.
 
 "Downbound Train makes its tour debut when Bruce and the E Street Band play their second of two shows in Oslo.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/96VumdFyljA?feature=oembed](https://www.youtube.com/embed/96VumdFyljA?feature=oembed)
 
@@ -112,7 +112,7 @@ continues its reprise run at the St. James Theater in New York City.
 
 Bruce and the E Street Band bring World Tour '24 to Werchter Park in Belgium.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/afdXGayzOEk?feature=oembed](https://www.youtube.com/embed/afdXGayzOEk?feature=oembed)
 

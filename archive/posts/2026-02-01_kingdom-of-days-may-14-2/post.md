@@ -2,7 +2,7 @@
 
 Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under that name, at Asbury Park's Sunshine In.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -14,7 +14,7 @@ Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under
 
 Bruce assembles his band at 914 Sound Studio to begin recording his second album.
 
-**1973:**
+**1973:**<br>
 
 Bruce cancels a scheduled gig at Tusculum College in Greeneville, Tennessee, to make room for recording sessions for .
 
@@ -22,13 +22,13 @@ Bruce cancels a scheduled gig at Tusculum College in Greeneville, Tennessee, to 
 
 Bruce rehearses with the E Street Band at his home studio in Holmdel. Listen to their rehearsal of "Bring on the Night" below.
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/48hBjV19GlM?feature=oembed](https://www.youtube.com/embed/48hBjV19GlM?feature=oembed)
 
 Those poor ticket holders for Bruce's second River Tour show in Manchester, England: The original concert was postponed from March 24th when Bruce took ill, and on this night, Bruce is sick again. He performs an abbreviated set (five songs fewer than the night before) at the Apollo Theatre, the shortest show of the European leg.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/oAGgq6zb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oAGgq6zb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -44,7 +44,7 @@ Bruce and the E Street Band are in the studio at the Power Station in New York C
 
 Bruce and Julianne hold their wedding reception, a day after their wedding.
 
-**1985:**
+**1985:**<br>
 
 
 
@@ -56,7 +56,7 @@ On , host Casey Kasem introduces Natalie Cole's cover of "Pink Cadillac" with a 
 
 Bruce's World Tour 1993 moves on to Germany for the first of four shows. The opener is in Berlin, where Bruce plays "Satan's Jeweled Crown" for the very first time. This show is available as part of Bruce's official archive series.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/Fg1Uze7_2W4?feature=oembed](https://www.youtube.com/embed/Fg1Uze7_2W4?feature=oembed)
 
@@ -66,7 +66,7 @@ Bruce's World Tour 1993 moves on to Germany for the first of four shows. The ope
 
 At his solo show at the Patriot Center in Fairfax, Bruce treats fans to the tour premieres of "Wreck on the Highway" (his first performance of that song in over a decade), "The Ghost of Tom Joad," and "Dry Lightning."
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/aurDV4QN-Os?feature=oembed](https://www.youtube.com/embed/aurDV4QN-Os?feature=oembed)
 
@@ -74,7 +74,7 @@ At his solo show at the Patriot Center in Fairfax, Bruce treats fans to the tour
 
 The Seeger Sessions Tour stops in Barcelona. Watch the local news coverage and interview below.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/mC9qvPAAtWQ?feature=oembed](https://www.youtube.com/embed/mC9qvPAAtWQ?feature=oembed)
 
@@ -84,7 +84,7 @@ The Seeger Sessions Tour stops in Barcelona. Watch the local news coverage and i
 
 Max Weinberg misses his first show in 35 years as his son Jay takes over the drums for the entire show for the first time in Albany, New York.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/W9yRr0nYzTQ?feature=oembed](https://www.youtube.com/embed/W9yRr0nYzTQ?feature=oembed)
 
@@ -108,7 +108,7 @@ Bruce continues playing full albums on the Wrecking Ball Tour, this time in Cope
 
 The High Hopes Tour makes its penultimate stop in Hershey, Pennsylvania, where the set includes an opening "Clampdown," the tour premiere of "Be True," and a stunning solo piano performance of "For You."
 
-**2014:**
+**2014:**<br>
 
 [https://www.youtube.com/embed/ZWwZoz9pRWE?feature=oembed](https://www.youtube.com/embed/ZWwZoz9pRWE?feature=oembed)
 
@@ -132,7 +132,7 @@ The European leg of the River Tour kicks off with a show at Camp Nou in Barcelon
 
 The Land of Hope and Dreams Tour kicks off in Manchester with a defiant setlist that includes the live debut of "Rainmaker" and the long-awaited return of "Chimes of Freedom." Bruce's opening remarks make news worldwide.
 
-**2025:**
+**2025:**<br>
 
 [https://www.youtube.com/embed/M2-y-3a9RPg?feature=oembed](https://www.youtube.com/embed/M2-y-3a9RPg?feature=oembed)
 

@@ -122,7 +122,7 @@ I'll leave you with one of my favorite performances of "Human Touch," from Adela
 
 [Watch on Youtube: Bruce Springsteen | Human Touch - Adelaide - 11/02/2014](https://www.youtube.com/watch?v=jyBfhpiZsSc)
 
-**Human Touch**
+**Human Touch**<br>
 **Recorded:** Spring 1990  
 **Released:** *Human Touch* (1992) (edited versions appear on *Greatest Hits* and *The Essential Bruce Springsteen* as well)
 **First performed:** May 6, 1992 (New York City, NY)

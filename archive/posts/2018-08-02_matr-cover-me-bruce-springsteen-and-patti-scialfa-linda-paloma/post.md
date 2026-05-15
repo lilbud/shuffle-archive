@@ -12,6 +12,6 @@ But the real star of this show is Bruce's warm, soaring lead vocal–one of his 
 
 [Watch on Youtube: Bruce Springsteen (with Patti Scialfa)- Linda Paloma](https://www.youtube.com/watch?v=w_AOOTMlL1k)
 
-**Linda Paloma**
+**Linda Paloma**<br>
 **Released:** *Looking Into You: A Tribute to Jackson Browne* (2014)<br>
-**Never performed live**
+**Never performed live**<br>

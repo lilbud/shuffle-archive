@@ -2,11 +2,11 @@
 
 Bruce and the E Street Band play for the U.S. Military Academy at West Point.
 
-**1976:**
+**1976:**<br>
 
 At Night Two in Philadelphia on the Darkness Tour, the core of the set finally gels, as fans hear the first consecutive plays of "The Promised Land," "Prove It All Night," "Racing in the Street," "Thunder Road," and "Jungleland." This core five-pack will last throughout the rest of the tour.
 
-**1978:**
+**1978:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-26.jpg?resize=758%2C789&amp;ssl=1)
 
@@ -20,7 +20,7 @@ Bruce joins Robert Gordon on stage for "" at the Paramount Theater in Asbury Par
 
 At the Brighton Center on the River Tour, Bruce and the E Street Band perform "The Price You Pay" for the last time for 28 years.
 
-**1981:**
+**1981:**<br>
 
 Bruce and the E Street Band record at The Hit Factory in New York City for , although none of the tracks from today's session will make the album.
 
@@ -28,23 +28,23 @@ Bruce and the E Street Band record at The Hit Factory in New York City for , alt
 
 Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell's in Hoboken for the first of two days of filming for the video for "Glory Days." Watch local news coverage below.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/NeJrkyzmyS0?feature=oembed](https://www.youtube.com/embed/NeJrkyzmyS0?feature=oembed)
 
 Bruce and the E Street Band make a Reunion Tour stop at the Flanders Expo in Ghent, where Elliott Murphy guest-stars on "Hungry Heart" and "Born to Run."
 
-**1999:**
+**1999:**<br>
 
 Bruce plays his first-ever show in Las Vegas when the Reunion Tour stops at the MGM Grand Garden Arena. Bruce opens and closes with the premiere of "Viva Las Vegas," and he tour premieres "Can't Help Falling in Love" for the occasion as well.
 
-**2000:**
+**2000:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC6-aOkAImq5An0nRfHsd63](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC6-aOkAImq5An0nRfHsd63)
 
 Bruce and Graham Parker join Southside Johnny and the Asbury Jukes at The Stone Pony's 25th anniversary celebration of Southside's live radio broadcast.
 
-**2001:**
+**2001:**<br>
 
 [https://www.youtube.com/embed/VyrkKwtkNzg?feature=oembed](https://www.youtube.com/embed/VyrkKwtkNzg?feature=oembed)
 
@@ -52,7 +52,7 @@ Bruce and Graham Parker join Southside Johnny and the Asbury Jukes at The Stone 
 
 At Night Two at London's Crystal Palace on the Rising Tour, Bruce opens with a solo acoustic "Born in the U.S.A."
 
-**2003:**
+**2003:**<br>
 
 [https://www.youtube.com/embed/dlAdt0dbmIM?feature=oembed](https://www.youtube.com/embed/dlAdt0dbmIM?feature=oembed)
 
@@ -64,7 +64,7 @@ At Night Two at London's Crystal Palace on the Rising Tour, Bruce opens with a s
 
 Bruce brings his solo acoustic tour to London for the first of two nights at Royal Albert Hall.
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/I1lus3XUg7c?feature=oembed](https://www.youtube.com/embed/I1lus3XUg7c?feature=oembed)
 
@@ -78,7 +78,7 @@ Bruce brings his solo acoustic tour to London for the first of two nights at Roy
 
 The American leg of the Seeger Sessions Tour begins with a show at the Tweeter Center in Mansfield, Massachusetts. Peter Wolf guest-stars on a "Dirty Water" / "Buffalo Gals" medley.
 
-**2006:**
+**2006:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2006-05-27.jpg?resize=758%2C860&amp;ssl=1)
 
@@ -100,7 +100,7 @@ The American leg of the Seeger Sessions Tour begins with a show at the Tweeter C
 
 Bruce and the E Street Band play the first of two River Tour (2016 edition) shows at Croke Park in Dublin. "Back in Your Arms" and "Lost in the Flood" both make their tour debuts.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/Nq28PzXDr8Y?feature=oembed](https://www.youtube.com/embed/Nq28PzXDr8Y?feature=oembed)
 
@@ -114,13 +114,13 @@ Bruce and the E Street Band play the first of two River Tour (2016 edition) show
 
 Bruce joins Little Steven and the Disciples of Soul on stage at the Count Basie Theater in Red Bank four a four-song encore performance.
 
-**2017:**
+**2017:**<br>
 
 [https://www.youtube.com/embed/wd8AfjeVLyw?feature=oembed](https://www.youtube.com/embed/wd8AfjeVLyw?feature=oembed)
 
 Bruce attends his niece's graduation ceremony at the Ranney School in Tinton Falls.
 
-**2021:**
+**2021:**<br>
 
 
 
@@ -128,7 +128,7 @@ Bruce attends his niece's graduation ceremony at the Ranney School in Tinton Fal
 
 Bruce takes a tumble during "Ghosts" when he and the E Street Band play their second of two nights in Amsterdam on their 2023 World Tour.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/S4PFmorEK0M?feature=oembed](https://www.youtube.com/embed/S4PFmorEK0M?feature=oembed)
 
@@ -140,7 +140,7 @@ Bruce takes a tumble during "Ghosts" when he and the E Street Band play their se
 
 Bruce and the E Street Band play their second of two nights in Lille, France.
 
-**2025:**
+**2025:**<br>
 
 [https://www.youtube.com/embed/7ls_uypxUf4?feature=oembed](https://www.youtube.com/embed/7ls_uypxUf4?feature=oembed)
 

@@ -14,7 +14,7 @@ Together, the all-star ensemble performed Dion's 1959 classic, "A Teenager in Lo
 
 [https://www.youtube.com/embed/2pwgswchPDo?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/2pwgswchPDo?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**A Teenager in Love**
+**A Teenager in Love**<br>
 **First performed:** September 30, 1976 (West Hollywood, CA)<br>
 **Last performed:** December 13, 1987 (New York City, NY)<br>
 

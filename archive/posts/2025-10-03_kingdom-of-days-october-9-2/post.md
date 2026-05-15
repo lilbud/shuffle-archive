@@ -4,7 +4,7 @@
 
 Bruce plays at Grendel's Lair Coffee House in Philadelphia.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce plays at Grendel's Lair Coffee House in Philadelphia.
 
 Bruce plays his first-ever show in Indiana, at the University of Notre Dame in South Bend. Following the show, Bruce and the band jam with Otis Rush on stage at a nearby club.
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/y65r87DErrw?feature=oembed](https://www.youtube.com/embed/y65r87DErrw?feature=oembed)
 
@@ -40,7 +40,7 @@ The River Tour moves on to Detroit's Cobo Arena, where Bruce and the boys close 
 
 Bruce plays his first and only show to date in the Ivory Coast when the Human Rights Now! Tour stops there for a show.
 
-**1988:**
+**1988:**<br>
 
 
 
@@ -52,7 +52,7 @@ Bruce plays his first and only show to date in the Ivory Coast when the Human Ri
 
 A scheduled show at Mountain View's Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.
 
-**1992:**
+**1992:**<br>
 
 
 
@@ -60,7 +60,7 @@ A scheduled show at Mountain View's Shoreline Amphitheater is postponed until la
 
 Bruce opens his solo acoustic show at the Nassau Coliseum with a rare "Stolen Car."
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/7Uotb7nK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7Uotb7nK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -70,7 +70,7 @@ Bruce opens his solo acoustic show at the Nassau Coliseum with a rare "Stolen Ca
 
 It's a standard set at Magic Tour Night One at East Rutherford's Continental Airlines Arena, but surprises are in store for Night Two.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/rw8nbrZzYPk?feature=oembed](https://www.youtube.com/embed/rw8nbrZzYPk?feature=oembed)
 

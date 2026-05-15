@@ -50,6 +50,6 @@ For more background on the American Music Masters series and Bruce's involvement
 
 
 
-**Hard Travelin'**
+**Hard Travelin'**<br>
 **First performed:** September 29, 1996 (Cleveland, OH)<br>
 **Last performed:** September 29, 1996 (Cleveland, OH)<br>

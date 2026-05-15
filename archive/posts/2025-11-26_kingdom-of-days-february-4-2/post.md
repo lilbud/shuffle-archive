@@ -8,17 +8,17 @@
 
 The Bruce Springsteen Band opens a nine-show stand at The Back Door in Richmond, where the band will play for much of the month. Listen to their set below.
 
-**1972:**
+**1972:**<br>
 
 [https://videopress.com/embed/x5Fk6fi8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/x5Fk6fi8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the as-yet-unnamed E Street Band play their fifth of six nights at Max's Kansas City in New York, both opening and closing for headliner Biff Rose.
 
-**1973:**
+**1973:**<br>
 
 Bruce and the band play Southern Illinois University in Carbondale along the original River Tour.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -26,7 +26,7 @@ Bruce and the band play Southern Illinois University in Carbondale along the ori
 
 Bruce and Patti attend the opening night of Sting's stand at the Wiltern Theater in Los Angeles. Entertainment Tonight catches a brief glimpse of the pair (not yet married) during their segment covering the show.
 
-**1991:**
+**1991:**<br>
 
 [https://www.youtube.com/embed/wGnu-V5Yeeo?feature=oembed](https://www.youtube.com/embed/wGnu-V5Yeeo?feature=oembed)
 
@@ -34,7 +34,7 @@ Bruce and Patti attend the opening night of Sting's stand at the Wiltern Theater
 
 Bruce plays his first ever Australian solo acoustic show at the QPAC Concert Hall in Brisbane.
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/vJwTbTcJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vJwTbTcJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

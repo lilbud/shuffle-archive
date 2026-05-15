@@ -4,7 +4,7 @@
 
 The Castiles take part in a battle of the bands at the Middletown Community Center.
 
-**1967:**
+**1967:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce makes a guest appearance with Cats on a Smooth Surface at The Stone Pony i
 
 Bruce plays in Africa for the very first time at the Human Rights Now! show at Zimbabwe's National Sports Stadium in Harare, before a largely white South African audience. Watch Bruce's recollection of the show below.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/dY4IpKtNSJk?feature=oembed](https://www.youtube.com/embed/dY4IpKtNSJk?feature=oembed)
 

@@ -40,7 +40,7 @@ The runners up:
 > *Now a life of leisure and a pirate's treasure don't make much for tragedy*
 ***It's a sad man my friend who's living in his own skin and can't stand the company***  
 > *Every fool's got a reason to feeling sorry for himself and turning his heart to stone*
-***Tonight this fool's halfway to heaven and just a mile outta hell and I feel like I'm coming home***
+***Tonight this fool's halfway to heaven and just a mile outta hell and I feel like I'm coming home***<br>
 
 Those lines in bold–that's just some killer imagery. But look past them, and realize what Bruce is saying. Decades before he shared his bouts with depression in his autobiography, here's Bruce confessing that he's not comfortable in his own skin, and that he realizes that he can't share that fact with anyone–because who would understand? Who would feel sorry for the rich, talented, admired, and fabulously successful rock star?
 

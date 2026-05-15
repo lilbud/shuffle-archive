@@ -30,7 +30,7 @@ Fellow U.K. singer-songwriter Tom Seth Johnson completely transforms Bruce's son
 
 [Watch on Youtube: Dancing In The Dark (Cover) - Tom Seth Johnson](https://www.youtube.com/watch?v=tbw586sPRxs)
 
-**Bonus entry:**
+**Bonus entry:**<br>
 
 This one's an outlier in that it's neither modern nor indie. In fact, it's one of the earliest-ever covers of "Dancing in the Dark," and it proved so popular that it peaked at #21 in the U.K. in the summer of 1985.
 

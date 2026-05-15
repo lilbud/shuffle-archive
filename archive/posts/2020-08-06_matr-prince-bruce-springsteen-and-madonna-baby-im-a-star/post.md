@@ -33,7 +33,7 @@ This is likely a truly one-time-only performance.
 February 23, 1985 (Inglewood, CA)
 February 23, 1985 (Inglewood, CA)
 
-**Baby I'm a Star|**
+**Baby I'm a Star|**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

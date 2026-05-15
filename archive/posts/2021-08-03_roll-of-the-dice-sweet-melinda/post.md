@@ -36,7 +36,7 @@ As for our heroine, she's certainly a crowd-pleaser, with a reputation ("All the
 
 "Sweet Melinda" isn't a song you'd turn to when asked to typify the Steel Mill sound (let alone Bruce's later music), but it was a regular feature of their shows throughout their fourteen-month tenure, a lark that offered glimpses of versatility still to come.
 
-**Sweet Melinda**
+**Sweet Melinda**<br>
 **First performed:** November 20, 1969 (Richmond, VA)
 **Last performed:** January 23, 1971 (Asbury Park, NJ)
 

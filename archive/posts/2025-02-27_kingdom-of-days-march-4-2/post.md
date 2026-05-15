@@ -4,7 +4,7 @@
 
 What would have been Bruce's first-ever appearance in Seattle is scuttled when he bows out of a scheduled gig opening for Paul Butterfield at the Paramount Theater. (Note: Brucebase lists this show as having been cancelled, but a newspaper review reveals that it went on without Bruce's involvement.)
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce and the band play Jacksonville, FL.
 
 In Lexington, Bruce and the E Street Band bring the River Tour to the Rupp Arena.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/83D0WG3d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/83D0WG3d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -36,19 +36,19 @@ In Lexington, Bruce and the E Street Band bring the River Tour to the Rupp Arena
 
 Bruce and the band play their second of two nights at the University of North Carolina in Chapel Hill.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/B1HDdUGGep8?feature=oembed](https://www.youtube.com/embed/B1HDdUGGep8?feature=oembed)
 
 Bruce and Patti take in a hockey game in New York City, where the Islanders play the Rangers.
 
-**1994:**
+**1994:**<br>
 
 [https://www.youtube.com/embed/zrVi-AgoBiE?feature=oembed](https://www.youtube.com/embed/zrVi-AgoBiE?feature=oembed)
 
 Rehearsals begin for Bruce Springsteen and the E Street Band's Reunion Tour in Asbury Park.
 
-**1999:**
+**1999:**<br>
 
 
 
@@ -56,7 +56,7 @@ Rehearsals begin for Bruce Springsteen and the E Street Band's Reunion Tour in A
 
 The Reunion Tour begins its Florida leg at Orlando Arena.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/X8MwF6hm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/X8MwF6hm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

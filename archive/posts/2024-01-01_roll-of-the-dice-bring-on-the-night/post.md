@@ -16,13 +16,13 @@ But while the protagonist of "My Love" is fiercely defiant and determined to mak
 > *When I walk home in the daybreak, I pray come back home, baby, won't you give me*
 > *Darling bring on the night*
 
-***I walk the street, I'm looking for romance***
-***I end up stumbling in some stupid half-trance***
+***I walk the street, I'm looking for romance***<br>
+***I end up stumbling in some stupid half-trance***<br>
 > *As I watch the lovers mix with circumstance*
 > *We watch the disco dancers dance*
 
-***I look for connection in some new eyes***
-***But for protection they're tranquilized***
+***I look for connection in some new eyes***<br>
+***But for protection they're tranquilized***<br>
 > *Forbidding close inspection of who's telling who*
 > *Forbidding close inspection of who's telling who lies*
 
@@ -66,9 +66,9 @@ Nevertheless, it offers a fascinating peek into Bruce's songwriting process, and
 
 [Watch on Youtube: Bruce Springsteen Bring on the Night #3](https://www.youtube.com/watch?v=ZYpPhvthseA)
 
-**Bring on the Night**
+**Bring on the Night**<br>
 **Recorded:** June 13, 1979  
 **Released:** *Tracks* (1998)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

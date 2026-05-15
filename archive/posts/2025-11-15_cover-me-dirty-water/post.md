@@ -39,7 +39,7 @@ As long as Bruce keeps returning to Boston, it's a good bet we haven't heard the
 April 8, 1984 (Asbury Park, NJ)
 March 20, 2023 (Boston, MA)
 
-**Dirty Water**
+**Dirty Water**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

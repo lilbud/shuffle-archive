@@ -8,7 +8,7 @@ But unfortunately, all of the videos of her performance of it had been removedâ€
 
 Found itâ€“and it's complete, too! Here's that gorgeous performance at the Stone Pony in May 2014. Watch and marvel:
 
-**Update 8/25/19:**
+**Update 8/25/19:**<br>
 
 [https://www.youtube.com/embed/TtdLEKv27y0?feature=oembed](https://www.youtube.com/embed/TtdLEKv27y0?feature=oembed)
 

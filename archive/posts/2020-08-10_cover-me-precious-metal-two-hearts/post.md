@@ -4,7 +4,7 @@ Or so we're told at least, by the band themselves.
 
 When journalists ask the band about that particular album, it's usually the infamous Donald Trump incident that they want to know about. But when the all-woman pop/metal band was interviewed by [Metal Maidens](https://www.metalmaidens.com/pmetal.htm), they got a chance to retell their Springsteen story:
 
-***Whose idea was it to record the Bruce Springsteen cover "Two Hearts" on this album?***
+***Whose idea was it to record the Bruce Springsteen cover "Two Hearts" on this album?***<br>
 
 > *Leslie Knauer: "That guy, Bruce Springsteen's producer… I can't remember his name!"*
 

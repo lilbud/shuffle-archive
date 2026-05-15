@@ -6,15 +6,15 @@ Three–count 'em–Asbury Park shows on this date–first at 1am with the Red H
 
 Bruce and the E Street Band work on "Jackson Cage" at the Power Station in New York City.
 
-**1979:**
+**1979:**<br>
 
 Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
 
-**1984:**
+**1984:**<br>
 
 : Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of "Lonely Teardrops" as the final encore.
 
-**1988**
+**1988**<br>
 
 [https://www.youtube.com/embed/Ds9KR6GIIn0?feature=oembed](https://www.youtube.com/embed/Ds9KR6GIIn0?feature=oembed)
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at
 
 Bruce's World Tour 1993 makes a stop at The National Bowl in Milton Keynes, England.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/rycHB4XH76w?feature=oembed](https://www.youtube.com/embed/rycHB4XH76w?feature=oembed)
 
@@ -40,7 +40,7 @@ Bruce's World Tour 1993 makes a stop at The National Bowl in Milton Keynes, Engl
 
 Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the true highlight from this date happens afterward: the crowd sticks around outside the theater and sings "O Sole Mio"(which Bruce performed briefly during the show), prompting Bruce to appear on the theater's balcony with Kevin Buell to play and lead the crowd in a sing-along of "Thunder Road." Watch this moment–it's magical.
 
-**1997:**
+**1997:**<br>
 
 [https://www.youtube.com/embed/zij-yhyGwO4?feature=oembed](https://www.youtube.com/embed/zij-yhyGwO4?feature=oembed)
 
@@ -48,7 +48,7 @@ Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the
 
 The E Street Band plays "Roll of the Dice" for the very first time and tour premieres "Gloria" at the second of two Reunion shows in Anaheim. This show is available as part of Bruce's official archive series–get it here.
 
-**2000:**
+**2000:**<br>
 
 [https://www.youtube.com/embed/mc6fmduuvNg?feature=oembed](https://www.youtube.com/embed/mc6fmduuvNg?feature=oembed)
 
@@ -60,13 +60,13 @@ The E Street Band plays "Roll of the Dice" for the very first time and tour prem
 
 The Rising Tour stops at Arena Aufschalke in Gelsenkirchen, Germany.
 
-**2003:**
+**2003:**<br>
 
 [https://www.youtube.com/embed/3dchRxgo_aE?feature=oembed](https://www.youtube.com/embed/3dchRxgo_aE?feature=oembed)
 
 The second European leg of the Magic Tour kicks off with the first of three shows at RDS Arena in Dublin.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/nmlnbQp2mtk?feature=oembed](https://www.youtube.com/embed/nmlnbQp2mtk?feature=oembed)
 
@@ -76,11 +76,11 @@ The second European leg of the Magic Tour kicks off with the first of three show
 
 : Bruce and Patti perform at a benefit show (along with Jon Stewart) for Gateway Schools at the Nokia Theater in New York City.
 
-**2010**
+**2010**<br>
 
 Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers for the first of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh. The show features an eclectic mix of Bruce and Joe songs, featuring surprising acoustic performances of "Mary Queen of Arkansas," "Two for the Road," "Kingdom of Days," "The Wall," and "Incident on 57th Street," along with the world premiere of "Leavin' Train."
 
-**2014:**
+**2014:**<br>
 
 [https://www.youtube.com/embed/sOAq73Dv6_I?feature=oembed](https://www.youtube.com/embed/sOAq73Dv6_I?feature=oembed)
 
@@ -104,7 +104,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce opens a rainy show in Sunderland with the tour premiere of "Waitin' on a Sunny Day."
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/VMZJMttAMms?feature=oembed](https://www.youtube.com/embed/VMZJMttAMms?feature=oembed)
 
@@ -112,6 +112,6 @@ Bruce opens a rainy show in Sunderland with the tour premiere of "Waitin' on a S
 
 At the Ivors Awards in London, Bruce presents the Special International Award to Brandon Flowers.
 
-**2025:**
+**2025:**<br>
 
 [https://www.youtube.com/embed/hDoXY6nput0?feature=oembed](https://www.youtube.com/embed/hDoXY6nput0?feature=oembed)

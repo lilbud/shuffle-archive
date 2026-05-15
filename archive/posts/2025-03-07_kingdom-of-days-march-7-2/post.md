@@ -36,7 +36,7 @@
 
 **2006:** At a listening party preview for *We Shall Overcome: The Seeger Sessions* at B.B. King's Blues Club in New York City, Bruce previews five songs from the upcoming album and chats with fans.
 
-**![](../../assets/2024/03/2006-03-07.jpg)**
+**![](../../assets/2024/03/2006-03-07.jpg)**<br>
 
 **2008:** "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" and "[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)" make their Magic Tour premiere at HSBC Arena in Buffalo.
 

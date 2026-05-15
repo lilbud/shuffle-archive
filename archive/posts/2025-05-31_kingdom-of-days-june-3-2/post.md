@@ -32,7 +32,7 @@ Bruce attends the wedding of his lighting director and travel agent at the Whisk
 
 Bruce serenades the attendees of Roy Bittan's wedding with a cover of Elvis' "Loving You."
 
-**1989:**
+**1989:**<br>
 
 
 
@@ -72,7 +72,7 @@ Nils guest-stars on "" (and enjoys the show from the pit!) when the Seeger Sessi
 
 In Lisbon's Bela Vista Park, Bruce and the E Street Band headline Rock in Rio. (Technically this show is performed on June 4th, as Bruce starts the show after midnight.) Bruce closes the show with the tour premiere of "Twist and Shout."
 
-**2012:**
+**2012:**<br>
 
 [https://videopress.com/embed/KbsRPLnm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KbsRPLnm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -104,4 +104,4 @@ With no fanfare, Bruce premieres his own recording of "," (originally released b
 
 Bruce postpones his scheduled show at San Siro Stadium in Milan due to vocal challenges. As of this writing, the rescheduled show has not yet taken place.
 
-**2024:**
+**2024:**<br>

@@ -4,11 +4,11 @@
 
 Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 Bruce cancels a gig in Vancouver, BC, where he was scheduled to open for Paul Butterfield's Better Days.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce cancels a gig in Vancouver, BC, where he was scheduled to open for Paul Bu
 
 Bruce and the band continue the Lawsuit Tour's Florida swing with a show at Jai Alai Fronton in Miami.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/GX_J6NoHtzg?feature=oembed](https://www.youtube.com/embed/GX_J6NoHtzg?feature=oembed)
 
@@ -36,7 +36,7 @@ Bruce joins Soul Asylum on stage at Tramps in New York City for "."
 
 The Reunion Tour continues its Florida leg with a show at Tampa's Ice Palace.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/QGXzMswB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QGXzMswB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -56,7 +56,7 @@ Bruce Hornsby and former Steel Mill bandmate Robbin Thompson join Bruce and the 
 
 The Magic Tour stops at Rochester's Blue Cross Arena, where "Rosalita (Come Out Tonight)" makes its welcome return after a five-year absence.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/MbTMTE_qC20?feature=oembed](https://www.youtube.com/embed/MbTMTE_qC20?feature=oembed)
 

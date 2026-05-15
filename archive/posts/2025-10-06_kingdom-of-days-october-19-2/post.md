@@ -4,7 +4,7 @@
 
 Earth plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -16,7 +16,7 @@ Earth plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
 Bruce and the E Street Band play their fifth of five nights at Oliver's in Boston in lieu of a scheduled but cancelled show at the University of Bridgeport.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -24,13 +24,13 @@ Bruce and the E Street Band play their fifth of five nights at Oliver's in Bosto
 
 Bruce and the E Street Band play a show at Union College, in the school's Memorial Chapel Concert Hall.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/W9kelA2SxSk?feature=oembed](https://www.youtube.com/embed/W9kelA2SxSk?feature=oembed)
 
 Bruce and the E Street Band wrap up their four-night/six-show stand at the Roxy Theater in West Hollywood.
 
-**1975:**
+**1975:**<br>
 
 [https://videopress.com/embed/5HvNdNG9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5HvNdNG9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -62,7 +62,7 @@ The October Assault moves on to Philadelphia, where Bruce again joins Joe Grushe
 
 Bruce plays his first and only show in New Mexico, a solo acoustic Ghost of Tom Joad Tour stop at the Kiva Auditorium in Albuquerque.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/S30vkti6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/S30vkti6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -74,7 +74,7 @@ Bruce plays his first and only show in New Mexico, a solo acoustic Ghost of Tom 
 
 Bruce joins a stellar line-up of talent (including Joan Jett, Joe Ely, Bon Jovi, Phoebe Snow, Max Weinberg, Patti Scialfa, Michelle Moore, and musical director Garry Tallent) for the second of two Alliance of Neighbors benefit concerts for the victims of the recent 9/11 attacks.
 
-**2001:**
+**2001:**<br>
 
 [https://www.youtube.com/embed/66d1G-UMr_M?feature=oembed](https://www.youtube.com/embed/66d1G-UMr_M?feature=oembed)
 
@@ -100,7 +100,7 @@ is released. Bruce contributes a track to the tribute album, his live 2003 perfo
 
 Bruce and the Sessions Band arrive in Spain for a week of shows, starting with a night in Madrid.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/yN0VbV2Iad4?feature=oembed](https://www.youtube.com/embed/yN0VbV2Iad4?feature=oembed)
 

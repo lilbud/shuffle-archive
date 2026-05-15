@@ -22,7 +22,7 @@ One could argue that Bruce actually did play "Lucille" more frequently with the 
 
 [https://estreetshuffle.com/wp-content/uploads/2018/11/Bruce-Springsteen-16-Carol-Lucille-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/11/Bruce-Springsteen-16-Carol-Lucille-online-audio-converter.com_.mp3?_=2)
 
-**Lucille**
+**Lucille**<br>
 **First performed:** August 2, 1978 (Charlotte, NC)<br>
 **Last performed:** September 14, 2024 (Asbury Park, NJ)<br>
 

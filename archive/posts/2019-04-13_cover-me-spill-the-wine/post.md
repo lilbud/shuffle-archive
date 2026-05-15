@@ -11,7 +11,7 @@ It was a pretty faithful cover–judge for yourself by comparing with the origin
 February 23, 2014 (Hunter Valley, Australia)
 February 23, 2014 (Hunter Valley, Australia)
 
-**Spill the Wine**
+**Spill the Wine**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

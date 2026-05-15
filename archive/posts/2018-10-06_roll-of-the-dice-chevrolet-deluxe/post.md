@@ -111,8 +111,8 @@ See what I mean? The second take is a bit more uptempo, but still unintelligible
 
 I still wonder if there's isn't a fully fleshed-out version of "Chevrolet Deluxe" in the vaults somewhere–or at least developed enough for Bruce to apply some touch-up work (a la *The Promise*) and release someday. Until then, this is all we have.
 
-**Chevrolet Deluxe**
-**Never recorded**
-**Never performed**
+**Chevrolet Deluxe**<br>
+**Never recorded**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

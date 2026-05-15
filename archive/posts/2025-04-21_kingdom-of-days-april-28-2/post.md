@@ -4,7 +4,7 @@
 
 Bruce opens for Jerry Lee Lewis and Chuck Berry at the University of Maryland. After his set, Bruce and the E Street Band (plus Southside Johnny) serve as the backing band at no charge for Lewis and Berry, remaining on stage the entire night. The band has no rehearsal time with Berry, who keeps the band on their toes the entire night. Watch Bruce tell the story below. (Thanks to Dave Homorody for the photo!)
 
-**1973:**
+**1973:**<br>
 
 [https://www.youtube.com/embed/ZdWu4peTI3Y?feature=oembed](https://www.youtube.com/embed/ZdWu4peTI3Y?feature=oembed)
 
@@ -12,7 +12,7 @@ Bruce opens for Jerry Lee Lewis and Chuck Berry at the University of Maryland. A
 
 Bruce and the E Street Band play an intimate (less than 300 attendees) outdoor show at Swarthmore College.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and the E Street Band play an intimate (less than 300 attendees) outdoor s
 
 Bruce plays the Grand Ole Opry House in Nashville.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -68,7 +68,7 @@ At the Reunion show in Lyon, France, Jon Bon Jovi guest-stars on "."
 
 Bruce rehearses at the Count Basie Theater for Bobby Bandiera's Hope Concert benefit the following day.
 
-**2003:**
+**2003:**<br>
 
 On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays "" for the first time in 17 years, and Jimmy LaFave guest-stars on "" Also new to the set list tonight: "" and "."
 
@@ -122,11 +122,11 @@ Philadelphia always seems to get great shows, and the Working on a Dream Tour ke
 
 Bruce and the E Street Band rehearse for the next leg of the Wrecking Ball Tour at Nordisk Film Studios in Oslo.
 
-**2013:**
+**2013:**<br>
 
 Tom Hanks interviews Bruce at the Tribeca Film Festival.
 
-**2017:**
+**2017:**<br>
 
 [https://www.youtube.com/embed/ZZDea7CzzFY?feature=oembed](https://www.youtube.com/embed/ZZDea7CzzFY?feature=oembed)
 

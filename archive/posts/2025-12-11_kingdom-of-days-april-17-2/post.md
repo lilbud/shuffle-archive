@@ -2,7 +2,7 @@
 
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -10,7 +10,7 @@ Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting)
 
 Bruce and the E Street Band play a show at the University of Rochester.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band play a show at the University of Rochester.
 
 Bruce joins Southside Johnny and the Asbury Jukes at The Stone Pony for four songs.
 
-**1977:**
+**1977:**<br>
 
 [https://videopress.com/embed/ztiTtNxb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ztiTtNxb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -30,7 +30,7 @@ Bruce joins Southside Johnny and the Asbury Jukes at The Stone Pony for four son
 
 Bruce's Tunnel of Love Express show at the St. Louis Arena is captured by a fan on film. Watch the full show here:
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/L1ps9QQt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/L1ps9QQt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -46,13 +46,13 @@ Bruce's Tunnel of Love Express show at the St. Louis Arena is captured by a fan 
 
 Bruce plays a second solo acoustic show at Royal Albert Hall in London, where "The Wish" is played for the first time in the U.K. This show was rescheduled from its original date in March.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/ueRkPB8b?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ueRkPB8b?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 The Reunion Tour arrives in Italy, starting with a single show in Bologna. The set list features a rare outing for "Brilliant Disguise" and an unusual opening arrangement for "She's the One."
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/q2pvUIVEWyg?feature=oembed](https://www.youtube.com/embed/q2pvUIVEWyg?feature=oembed)
 
@@ -60,7 +60,7 @@ The Reunion Tour arrives in Italy, starting with a single show in Bologna. The s
 
 Joe Ely guest-stars for "All Just to Get to You" at Bruce and the E Street Band's Reunion show in Austin.
 
-**2000:**
+**2000:**<br>
 
 [https://www.youtube.com/embed/ndgNa1X41jQ?feature=oembed](https://www.youtube.com/embed/ndgNa1X41jQ?feature=oembed)
 
@@ -68,7 +68,7 @@ Joe Ely guest-stars for "All Just to Get to You" at Bruce and the E Street Band'
 
 Original E Street Band (and Child and Steel Mill) member Danny Federici passes away after a long battle against melanoma.
 
-**2008:**
+**2008:**<br>
 
 
 
@@ -76,7 +76,7 @@ Original E Street Band (and Child and Steel Mill) member Danny Federici passes a
 
 Bruce brings the Wrecking Ball Tour to Quicken Loans Arena in Cleveland, where "My Love Will Not Let You Down" and "Light of Day" make their tour debuts.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/R0ix0kveYrc?feature=oembed](https://www.youtube.com/embed/R0ix0kveYrc?feature=oembed)
 
@@ -86,7 +86,7 @@ Bruce brings the Wrecking Ball Tour to Quicken Loans Arena in Cleveland, where "
 
 The High Hopes Tour stops at Nashville's Bridgestone Arena and brings with it tour premieres of "Burning Love" and "Point Blank," and "(I Can't Get No) Satisfaction."
 
-**2014:**
+**2014:**<br>
 
 [https://www.youtube.com/embed/OQDFsN_saAY?feature=oembed](https://www.youtube.com/embed/OQDFsN_saAY?feature=oembed)
 

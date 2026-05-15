@@ -24,7 +24,7 @@ When asked for his reaction to the news in an interview at the time, Fogerty dea
 
 "It came out of left field."
 
-**Centerfield**
+**Centerfield**<br>
 **First performed:** October 1, 2004 (Philadelphia, PA)<br>
 **Last performed:** October 13, 2004 (East Rutherford, NJ)<br>
 

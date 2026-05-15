@@ -40,7 +40,7 @@ This is a mutual breakup song, plain and simple, with spare lyrics that leave ve
 If "Why's It So Hard" is notable for any other reason, it's because it's another early example of Bruce grappling with the right balance for a break-up song. (See "She's Leaving" for a contemporaneous example with less anger and more self-pity.) I'd argue that Bruce would finally land on the right recipe a year later, but that's an essay for another day.
 
 **Why's It So Hard?  
-**Never recorded**
+**Never recorded**<br>
 **Never Released**  
 **First performed:** January 21, 1972 (Neptune, NJ)  
 **Last performed:** January 21, 1972 (Neptune, NJ)

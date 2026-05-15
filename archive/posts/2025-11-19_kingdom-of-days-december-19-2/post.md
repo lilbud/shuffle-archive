@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band completes their residency at the Student Prince in Asbury Park. Following this show, Bruce will drive out to California to visit his parents, with no clear return date in mind. The band will continue on without him for a time, reverting to The Sundance Blues Band.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Bruce Springsteen Band completes their residency at the Student Prince in As
 
 Bruce and his unnamed band play their last of a three-night stand at the Student Prince in Asbury Park.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce plays his first-ever show in Canada when the Born to Run Tour stops in Mon
 
 Bruce and the boys take the Darkness Tour up the west coast, stopping in Portland for a show at the Paramount Theater.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD3hW_VtYk4CeYO6l40N7SR](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD3hW_VtYk4CeYO6l40N7SR)
 
@@ -36,7 +36,7 @@ Bruce and the boys take the Darkness Tour up the west coast, stopping in Portlan
 
 Bruce and the E Street Band play their second of two River Tour nights at Madison Square Garden.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/r89V54hEc4M?list=PLJTyL9twk3zBmC4UM3RkfCzgwXxNVZkgc](https://www.youtube.com/embed/r89V54hEc4M?list=PLJTyL9twk3zBmC4UM3RkfCzgwXxNVZkgc)
 
@@ -82,7 +82,7 @@ This year's holiday shows are at Harry's Roadhouse in Asbury Park, and although 
 
 The first European leg of the Magic Tour wraps up in London at the O2 Arena.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/kLNytdIyfFg?feature=oembed](https://www.youtube.com/embed/kLNytdIyfFg?feature=oembed)
 

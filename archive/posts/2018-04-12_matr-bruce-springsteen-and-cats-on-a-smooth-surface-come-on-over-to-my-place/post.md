@@ -6,6 +6,6 @@ Bruce and the Cats turned in a pretty faithful cover–listen to the original be
 
 [Watch on Youtube: The Drifters - Come on Over to My Place ( 1965 )](https://www.youtube.com/watch?v=RmRRBHNo4ZU)
 
-**Come On Over to My Place**
+**Come On Over to My Place**<br>
 **First performed:** August 1, 1982 (Asbury Park, NJ)<br>
 **Last performed:** October 3, 1982 (Asbury Park, NJ)<br>

@@ -8,11 +8,11 @@
 
 Bruce and his band play two shows at their second night at Gertie's in Dallas.
 
-**1974:**
+**1974:**<br>
 
 The Lawsuit Tour moves north to the Central Maine Youth Center in Lewiston, where writer Stephen King is in attendance.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/jq3U8CECx54?feature=oembed](https://www.youtube.com/embed/jq3U8CECx54?feature=oembed)
 
@@ -22,11 +22,11 @@ The Lawsuit Tour moves north to the Central Maine Youth Center in Lewiston, wher
 
 A scheduled show in London is postponed due to Bruce's exhaustion from the first two legs of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 Bruce arrives in Sydney two days before what will be his first-ever show in Australia.
 
-**1985:**
+**1985:**<br>
 
 
 
@@ -34,7 +34,7 @@ Bruce arrives in Sydney two days before what will be his first-ever show in Aust
 
 Bruce plays his first-ever show in Northern Ireland, at King's Hall in Belfast. This show is available as part of Bruce's official archive series.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/t21WgfwCqB8?feature=oembed](https://www.youtube.com/embed/t21WgfwCqB8?feature=oembed)
 
@@ -48,7 +48,7 @@ Bruce plays his first-ever show in Northern Ireland, at King's Hall in Belfast. 
 
 A second public warm-up show for Bruce Springsteen and the E Street Band, their last in the U.S. before the Reunion Tour kicks off. "Give the Girl a Kiss" makes its live debut, and "The Promise" is played for the first time in 21 years.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/yPtVKHzK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yPtVKHzK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -64,7 +64,7 @@ A second public warm-up show for Bruce Springsteen and the E Street Band, their 
 
 Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/KtVROHSG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KtVROHSG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -72,19 +72,19 @@ Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.
 
 With the Seeger Sessions Band in his home studio, Bruce records "Old Dan Tucker," "Mrs. McGrath," "Erie Canal," "O Mary Don't You Weep," "John Henry," "Shenandoah," "Froggie Went A-courtin'" and "Pay Me My Money Down."
 
-**2005:**
+**2005:**<br>
 
 [https://www.youtube.com/embed/tebjshm7f_I?feature=oembed](https://www.youtube.com/embed/tebjshm7f_I?feature=oembed)
 
 Jon Stewart interviews Bruce on The Daily Show, where Bruce performs an acoustic version of "Working on a Dream." Later that evening, Bruce and the E Street Band (with Jay Weinberg filling in for his dad) rehearse at Asbury Park Convention Hall.
 
-**2009:**
+**2009:**<br>
 
 [https://videopress.com/embed/5Dsw0eAI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5Dsw0eAI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Night Two of the Wrecking Ball Tour, at the Greensboro Coliseum.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/8mHqlZioB3g?feature=oembed](https://www.youtube.com/embed/8mHqlZioB3g?feature=oembed)
 
@@ -92,7 +92,7 @@ Night Two of the Wrecking Ball Tour, at the Greensboro Coliseum.
 
 The final night (for anyone) at the L.A. Sports Arena features a magical "Drive All Night." The arena is demolished shortly thereafter.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/c9g0jM7KDy4?feature=oembed](https://www.youtube.com/embed/c9g0jM7KDy4?feature=oembed)
 
@@ -102,7 +102,7 @@ The final night (for anyone) at the L.A. Sports Arena features a magical "Drive 
 
 Bruce and the E Street Band resume their world tour at Footprint Center in Phoenix, where "Don't Play That Song" makes a welcome return to the set and "Kitty's Back" is notably and sadly absent.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/E3yzf78emYk?feature=oembed](https://www.youtube.com/embed/E3yzf78emYk?feature=oembed)
 

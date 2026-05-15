@@ -4,7 +4,7 @@
 
 The Castiles play The Cage in Middletown, New Jersey.
 
-**1967:**
+**1967:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play The Cage in Middletown, New Jersey.
 
 Bruce Springsteen meets his future wife when high school student Patti Scialfa attends his gig at the local YWHA in Deal, New Jersey.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce Springsteen meets his future wife when high school student Patti Scialfa a
 
 The Bruce Springsteen Band plays a gig at Hampden-Sydney College in Virginia.
 
-**1972:**
+**1972:**<br>
 
 Bruce and his band finish their weeklong stint at Oliver's in Boston with a rare Sunday matinee performance. Following the show, the band drives to the University of Rhode Island for an evening show opening for Sha Na Na. 
 
@@ -36,11 +36,11 @@ Bruce and his band finish their weeklong stint at Oliver's in Boston with a rare
 
 Bruce and his unnamed band play their first two shows (of eight total) at Gertie's in Dallas. Bruce is not yet popular in Dallas, and the shows are poorly attended.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band bring the Lawsuit Tour to the Veterans Memorial Coliseum in New Haven, Connecticut.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/VvLq3FWKFqg?feature=oembed](https://www.youtube.com/embed/VvLq3FWKFqg?feature=oembed)
 
@@ -68,7 +68,7 @@ News coverage from the day:
 
 The Reunion Tour moves on to Memphis and the Pyramid Arena, where "Follow That Dream" makes its tour debut and only appearance.
 
-**2000:**
+**2000:**<br>
 
 [https://www.youtube.com/embed/wKD0Fh5A8eg?feature=oembed](https://www.youtube.com/embed/wKD0Fh5A8eg?feature=oembed)
 
@@ -106,7 +106,7 @@ The Wrecking Ball Tour kicks off at Philips Arena in Atlanta, featuring the live
 
 Bruce and the E Street Band play the first of three nights at Allphones Arena in Sydney.
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/ZvHd6CCBsVM?feature=oembed](https://www.youtube.com/embed/ZvHd6CCBsVM?feature=oembed)
 
@@ -134,4 +134,4 @@ Bruce and the E Street Band bring their World Tour to Penn State University, whe
 
 Bruce and the E Street Band rehearse at the Footprint Center in Phoenix.
 
-**2024:**
+**2024:**<br>

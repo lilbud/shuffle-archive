@@ -4,7 +4,7 @@
 
 The Castiles play a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1967:**
+**1967:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
 Earth plays four sets at Le Teendezvous in New Shrewsbury.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -20,7 +20,7 @@ Earth plays four sets at Le Teendezvous in New Shrewsbury.
 
 Bruce and the E Street Band kick off a four-night/two-shows-nightly stand at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -44,7 +44,7 @@ Bruce and the E Street Band hold a recording session for at The Record Plant in 
 
 The Darkness Tour heads into its last week with the first of two nights at the Stanley Theater in Pittsburgh.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/KFstN5Spd_g?feature=oembed](https://www.youtube.com/embed/KFstN5Spd_g?feature=oembed)
 

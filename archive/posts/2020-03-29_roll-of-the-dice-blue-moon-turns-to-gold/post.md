@@ -38,9 +38,9 @@ So, um, yeah–not exactly Bruce's deepest (or even coherent) lyrics.
 
 I can understand why this one hasn't seen the light of day. But it makes you wonder, doesn't it: what else is hidden on the flip sides of those notebook pages?
 
-**Blue Moon Turns to Gold**
-**Never recorded**
-**Never released**
-**Never performed**
+**Blue Moon Turns to Gold**<br>
+**Never recorded**<br>
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

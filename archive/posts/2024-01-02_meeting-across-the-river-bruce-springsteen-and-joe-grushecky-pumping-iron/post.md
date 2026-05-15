@@ -22,7 +22,7 @@ Bruce joined Joe and The Houserockers throughout their American Babylon Tour (ot
 
 [Watch on Youtube: Joe Grushecky & Houserockers Bruce Springsteen](https://www.youtube.com/watch?v=5TrjyioI4IQ)
 
-**Pumping Iron**
+**Pumping Iron**<br>
 **First performed:** July 22, 1995 (Sea Bright, NJ)
 **Last performed:** January 18, 2020 (Asbury Park, NJ)
 

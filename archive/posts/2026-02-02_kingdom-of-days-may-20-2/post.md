@@ -2,7 +2,7 @@
 
 The River Tour continues its almost month-long U.K. leg with a show at waterlogged New Bingley Hall in Stafford.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -10,13 +10,13 @@ The River Tour continues its almost month-long U.K. leg with a show at waterlogg
 
 Bruce and his new touring band rehearse for their upcoming tour on a Hollywood soundstage.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed](https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed)
 
 Not one but two guest-stars when Bruce's World Tour 1993 stops at the RDS Arena in Dublin: Joe Ely joins Bruce for Joe's "Settle for Love" (which the two played at Joe's show the night before), and Jerry Lee Lewis joined Bruce for encores of "Great Balls of Fire" and "Whole Lotta Shakin' Goin' On." Despite the special guests, the show is poorly reviewed by local press.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/JkrlvfNoivc?feature=oembed](https://www.youtube.com/embed/JkrlvfNoivc?feature=oembed)
 
@@ -26,7 +26,7 @@ Not one but two guest-stars when Bruce's World Tour 1993 stops at the RDS Arena 
 
 Bruce and Patti attend Don Henley's wedding. Several musicians are in attendance and perform, including Bruce on "634-5789 (Soulsville, U.S.A.)"
 
-**1995:**
+**1995:**<br>
 
 
 
@@ -34,7 +34,7 @@ Bruce and Patti attend Don Henley's wedding. Several musicians are in attendance
 
 The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheum Theater in Boston.
 
-**2005:**
+**2005:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20a.jpg?resize=501%2C963&amp;ssl=1)
 
@@ -44,7 +44,7 @@ The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheu
 
 "Devils & Dust" makes its Seeger Sessions Tour debut at the Oslo Spektrum.
 
-**2006:**
+**2006:**<br>
 
 Sirius XM debuts the fourth installment of Bruce's series.
 
@@ -52,6 +52,6 @@ Sirius XM debuts the fourth installment of Bruce's series.
 
 Bruce and the E Street Band play their last of three nights at Co-op Live in Manchester.
 
-**2025:**
+**2025:**<br>
 
 [https://www.youtube.com/embed/IAVJ1nh2gzg?feature=oembed](https://www.youtube.com/embed/IAVJ1nh2gzg?feature=oembed)

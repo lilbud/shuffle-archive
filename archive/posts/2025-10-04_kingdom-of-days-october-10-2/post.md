@@ -4,7 +4,7 @@
 
 Bruce plays at Grendel's Lair Coffee House in Philadelphia.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -68,7 +68,7 @@ The Night Two rule is in effect in East Rutherford: Bruce and the E Street Band 
 
 Bruce makes a promotional appearance at The Harvard Coop to promote his new autobiography.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/rpT2MYElKzM?feature=oembed](https://www.youtube.com/embed/rpT2MYElKzM?feature=oembed)
 

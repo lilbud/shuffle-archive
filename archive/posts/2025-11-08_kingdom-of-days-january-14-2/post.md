@@ -2,7 +2,7 @@
 
 Bruce and the E Street Band conclude their seven-day, twice-a-day gig at Paul's Mall in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -10,13 +10,13 @@ Bruce and the E Street Band conclude their seven-day, twice-a-day gig at Paul's 
 
 At the Power Station in New York City, Bruce and the E Street Band record "Restless Nights."
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/DCFYLa02WzE?feature=oembed](https://www.youtube.com/embed/DCFYLa02WzE?feature=oembed)
 
 : Bruce joins John Eddie for six songs at the Patrix in New Brunswick, New Jersey.
 
-**1984**
+**1984**<br>
 
 [https://videopress.com/embed/ATjdzWXO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ATjdzWXO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -76,7 +76,7 @@ Oh, and the first and only performance of "."
 
 Bruce and Patti attend the swearing-in ceremony for their son Sam as he becomes a firefighter for the Jersey City Fire Department.
 
-**2020:**
+**2020:**<br>
 
 [https://www.youtube.com/embed/LT9bWyCtO6E?feature=oembed](https://www.youtube.com/embed/LT9bWyCtO6E?feature=oembed)
 

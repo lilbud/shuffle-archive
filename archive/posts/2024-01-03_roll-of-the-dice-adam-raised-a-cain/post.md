@@ -120,7 +120,7 @@ The other is a jaw-droppingly intense performance before an empty Paramount Thea
 
 When Bruce and the band hit the road again next year, odds are very, very high that "Adam" will be with them, too.
 
-**Adam Raised a Cain**
+**Adam Raised a Cain**<br>
 **Recorded** February 15-17, 1978  
 **Released:** *Darkness on the Edge of Town* (1978)
 **First performed:** May 23, 1978 (Buffalo, NY)

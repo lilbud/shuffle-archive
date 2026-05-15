@@ -2,7 +2,7 @@
 
 : Honorary E Streeter Tom Morello is born in New York City.
 
-**1964**
+**1964**<br>
 
 
 
@@ -14,7 +14,7 @@
 
 Bruce plays his first North Carolina show, opening for Chicago at the Cumberland County Memorial Arena in Fayetteville. This is the start of a thirteen-show tour with Chicago, which will not go well–Bruce's music and style are not a good fit for Chicago fans.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -26,7 +26,7 @@ Bruce plays his first North Carolina show, opening for Chicago at the Cumberland
 
 Southside Johnny's debut album release party at The Stone Pony is broadcast live on WNEW-FM and other stations. Bruce, Stevie, Max, Clarence, Ronnie Spector, and other notables are in attendance and join Southside for the encore performance of "Having a Party."
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/AyS5BOOhbEw?feature=oembed](https://www.youtube.com/embed/AyS5BOOhbEw?feature=oembed)
 
@@ -42,25 +42,25 @@ Southside Johnny's debut album release party at The Stone Pony is broadcast live
 
 At Night Two of three at Boston's Music Hall, Bruce tour premieres "Because the Night" as an encore.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/The8c38RJr0?feature=oembed](https://www.youtube.com/embed/The8c38RJr0?feature=oembed)
 
 Bruce and the E Street Band work on "Mary Lou" and "Point Blank" at the Power Station in New York City.
 
-**1979:**
+**1979:**<br>
 
 [https://www.youtube.com/embed/xcka1wNBS9Q?feature=oembed](https://www.youtube.com/embed/xcka1wNBS9Q?feature=oembed)
 
 : Bruce and the E Street Band play "Jackson Cage" for the first time in Europe at their second of six nights at London's Wembley Arena on the original River Tour.
 
-**1981**
+**1981**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1981-0530.jpg?resize=758%2C1045&amp;ssl=1)
 
 Bruce's World Tour 1993 stops for a night in the town of Gentofte, Denmark.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/bZvWPUzT75Q?feature=oembed](https://www.youtube.com/embed/bZvWPUzT75Q?feature=oembed)
 
@@ -68,21 +68,21 @@ Bruce's World Tour 1993 stops for a night in the town of Gentofte, Denmark.
 
 Bruce opens the second Reunion show in Berlin with "I Wanna Be With You."
 
-**1999:**
+**1999:**<br>
 
 Bruce plays a solo acoustic show at Forest National in Brussels, where "State Trooper" makes its Devils & Dust Tour premiere.
 
-**2005:**
+**2005:**<br>
 
 The Seeger Sessions Tour arrives at the Germain Amphitheater in Columbus, where Bruce premieres The Band's "Rag Mama Rag."
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/iH1zAoS99gE?feature=oembed](https://www.youtube.com/embed/iH1zAoS99gE?feature=oembed)
 
 The Magic Tour gets its longest show to date, at Emirates Stadium in London.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/u7HfoSgA1bw?feature=oembed](https://www.youtube.com/embed/u7HfoSgA1bw?feature=oembed)
 
@@ -90,7 +90,7 @@ The Magic Tour gets its longest show to date, at Emirates Stadium in London.
 
 Bruce and the E Street Band kick off the European leg of the Working on a Dream Tour by headlining Pinkpop in The Netherlands, where "From Small Things (Big Things One Day Come)" makes its tour debut and Brandon Flowers guest-stars on "Thunder Road."
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/dzkecxiSwdY?feature=oembed](https://www.youtube.com/embed/dzkecxiSwdY?feature=oembed)
 
@@ -100,7 +100,7 @@ Bruce and the E Street Band kick off the European leg of the Working on a Dream 
 
 The Wrecking Ball Tour arrives in Berlin, and Bruce marks the occasion by opening with his only known performance of Wizz Jones' "When I Leave Berlin" and tour debuting "Save My Love."
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/MsjkqHT0O-o?feature=oembed](https://www.youtube.com/embed/MsjkqHT0O-o?feature=oembed)
 
@@ -108,7 +108,7 @@ The Wrecking Ball Tour arrives in Berlin, and Bruce marks the occasion by openin
 
 Bruce and Patti perform some classic covers with Bobby Bandiera's band at the wedding of Patti's personal assistant in Oakland, New Jersey.
 
-**2015:**
+**2015:**<br>
 
 
 
@@ -126,7 +126,7 @@ Bruce releases "Tucson Train," the third single from his upcoming album.
 
 Bruce and the E Street Band play their first show in Edinburgh in more than four decades.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/FGZn78VoIco?feature=oembed](https://www.youtube.com/embed/FGZn78VoIco?feature=oembed)
 

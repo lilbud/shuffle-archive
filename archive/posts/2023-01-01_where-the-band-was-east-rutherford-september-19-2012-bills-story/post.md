@@ -78,7 +78,7 @@ What's your story?
 
 
 
-**9/19/12 – MetLife Stadium, NJ**
+**9/19/12 – MetLife Stadium, NJ**<br>
 
 Shackled and Drawn
 Prove It All Night ('78 intro)
@@ -112,4 +112,4 @@ Dancing in the Dark
 Tenth Avenue Freeze-out
 Twist and Shout
 
-**Setlist:**
+**Setlist:**<br>

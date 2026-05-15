@@ -4,7 +4,7 @@
 
 : The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971**
+**1971**<br>
 
 
 
@@ -12,7 +12,7 @@
 
 The Born in the U.S.A. Tour comes to Kemper Arena in Kansas City for a night.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/XxX9V1TLmZo?feature=oembed](https://www.youtube.com/embed/XxX9V1TLmZo?feature=oembed)
 
@@ -52,7 +52,7 @@ The promotional push for begins, as Bruce tapes a 20-minute interview with Bob C
 
 Patti is still out of action due to a perforated eardrum when the Reunion Tour stops at Buffalo's Marine Midland Arena.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/rkODLqMs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/rkODLqMs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -144,6 +144,6 @@ Bruce appears on RTE Radio in Ireland to promote his new album, .
 
 Bruce and the E Street Band play their penultimate show of the year at Rogers Place in Edmonton, Alberta, more than a year's postponement.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/_0YBD_DpiIs?feature=oembed](https://www.youtube.com/embed/_0YBD_DpiIs?feature=oembed)

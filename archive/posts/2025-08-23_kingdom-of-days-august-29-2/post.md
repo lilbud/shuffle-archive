@@ -4,7 +4,7 @@
 
 Child plays a gig at the Ocean Side Surf Club in Sea Bright, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -12,7 +12,7 @@ Child plays a gig at the Ocean Side Surf Club in Sea Bright, New Jersey.
 
 Bruce plays his first-ever show in Tennessee when Steel Mill opens for Roy Orbison, Ronnie Milsap and others at the 3rd Annual Nashville Music Festival. About 50,000 people attend, making this show the largest Bruce will play until he starts playing stadiums in the mid-1980s.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce plays his first-ever show in Tennessee when Steel Mill opens for Roy Orbis
 
 Bruce cancels a scheduled show at the University of Miami.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -58,7 +58,7 @@ Bruce and the E Street Band record an alternate version of "" at The Power Stati
 
 Bruce and the boys wrap up their four-night stand at the Capital Center in Largo, Maryland.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/lUINKgNF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lUINKgNF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

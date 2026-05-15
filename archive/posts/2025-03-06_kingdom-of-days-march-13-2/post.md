@@ -4,15 +4,15 @@
 
 Child, Bruce's new band, performs at Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 Night Two of seven at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -28,7 +28,7 @@ Extended studio sessions for prompt the postponement of a scheduled show in Atla
 
 Bruce and the E Street Band play Towson State University on the Lawsuit Tour.
 
-**1977:**
+**1977:**<br>
 
 [https://videopress.com/embed/SsdSEZB7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SsdSEZB7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -36,7 +36,7 @@ Bruce and the E Street Band play Towson State University on the Lawsuit Tour.
 
 : The Tunnel of Love Express Tour moves on to the Coliseum in Richfield, Ohio, where Kid Leo provides a unique introduction.
 
-**1988**
+**1988**<br>
 
 [https://videopress.com/embed/qnlgh7uK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qnlgh7uK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -50,13 +50,13 @@ Bruce and the E Street Band play Towson State University on the Lawsuit Tour.
 
 Bruce begins a mini-tour of Scandinavia with a solo acoustic show in Stockholm.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/Fng7zE6y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Fng7zE6y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the E Street Band play the aptly named Reunion Arena in Dallas.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/eMM9d2g9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eMM9d2g9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -66,11 +66,11 @@ Bruce and the E Street Band play the aptly named Reunion Arena in Dallas.
 
 Bruce and the Sessions Band rehearse for their upcoming tour at Asbury Park's Paramount Theater.
 
-**2006:**
+**2006:**<br>
 
 : The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg's benefit.
 
-**2009**
+**2009**<br>
 
 The River Tour (2016 Edition) moves on to the Oracle Arena in Oakland. For highlights, see my report for that show.
 

@@ -40,7 +40,7 @@ This time, Bruce didn't let the music speak for itself. On opening night in Minn
 
 > *And as the great civil rights leader John Lewis said, "Go out and get into some good trouble."*
 
-**Chimes of Freedom**
+**Chimes of Freedom**<br>
 **Recorded** July 3, 1988  
 **Released:** *Chimes of Freedom* (1988)
 **First performed:** September 1, 1978 (Detroit, MI)

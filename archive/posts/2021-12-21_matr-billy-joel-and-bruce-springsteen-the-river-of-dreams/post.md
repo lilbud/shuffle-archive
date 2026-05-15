@@ -23,7 +23,7 @@ Here's hoping for an encore performance–for both the song and a show-length te
 October 16, 2008 (New York City, NY)
 October 16, 2008 (New York City, NY)
 
-**River of Dreams**
+**River of Dreams**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

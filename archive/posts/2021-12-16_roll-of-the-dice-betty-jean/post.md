@@ -57,9 +57,9 @@ But Beverly's story is a tale for another day.
 
 Bobby may have been the only member of the Jean family to make it out into the wide world, but the others still have tales worth telling.
 
-**Betty Jean**
+**Betty Jean**<br>
 **Recorded:** January 20, 1983  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -4,17 +4,17 @@
 
 Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that's where the band wants to be–but they honor their commitment.
 
-**1969:**
+**1969:**<br>
 
 Bruce and the E Street Band wrap up their legendary five-night stand at The Bottom Line in New York City with two final shows. The buzz from these shows will turbocharge Bruce's career and the remainder of the Born to Run Tour.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/4Y-7c4n2eaE?feature=oembed](https://www.youtube.com/embed/4Y-7c4n2eaE?feature=oembed)
 
 Bruce and the boys play their second night at Red Rocks Amphitheater on the River Tour, but on this night the weather cooperates.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeU6hH1IQ-_RzSrXz3-Te7tL](https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeU6hH1IQ-_RzSrXz3-Te7tL)
 
@@ -26,7 +26,7 @@ The Born in the U.S.A. Tour's ten-night stand at the Brendan Byrne Arena in East
 
 Bruce and his new touring band bring World Tour 1992 to the Detroit area for their first of two shows at The Palace of Auburn Hills. Watch the soundcheck, pre-show interview, and concert footage below.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/XxssRVjw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XxssRVjw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -40,7 +40,7 @@ Bruce and his new touring band bring World Tour 1992 to the Detroit area for the
 
 Bruce postpones a scheduled Reunion show in Detroit to the following month due to "scheduling conflicts."
 
-**1999:**
+**1999:**<br>
 
 
 
@@ -48,7 +48,7 @@ Bruce postpones a scheduled Reunion show in Detroit to the following month due t
 
 Bruce and the E Street Band play their second of only two Rising Tour stadium shows on the west coast, this one at Dodger Stadium in Los Angeles.
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/ijPr8cpo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ijPr8cpo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

@@ -16,7 +16,7 @@ At 914 Sound Studios in Blauvelt, New York, Bruce completes "," "," "," and ""
 
 Bruce and the as-yet-unnamed E Street Band headline a show for Hobart & William Smith College at the Geneva Theater in Geneva, New York.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce and the as-yet-unnamed E Street Band headline a show for Hobart & William 
 
 Bruce and the E Street Band play a gig at the Julia Sanderson Theater in Springfield, Massachusetts.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/tBn8f0qhBkE?feature=oembed](https://www.youtube.com/embed/tBn8f0qhBkE?feature=oembed)
 
@@ -32,7 +32,7 @@ Bruce and the E Street Band play a gig at the Julia Sanderson Theater in Springf
 
 Bruce plays his first-ever show in Washington state when the Born to Run Tour stops at the Paramount Theater in Seattle.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1BMPq5dYzE6I-BOKp7PK3ui](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1BMPq5dYzE6I-BOKp7PK3ui)
 
@@ -44,7 +44,7 @@ Bruce plays his first-ever show in Washington state when the Born to Run Tour st
 
 Bruce's scheduled show at the Philadelphia Spectrum is postponed to the following day due to Clarence's scheduling conflicts.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -52,7 +52,7 @@ Bruce's scheduled show at the Philadelphia Spectrum is postponed to the followin
 
 Bruce and the E Street Band rehearse for the upcoming and final leg of the Darkness Tour at Bruce's farmhouse in Holmdel.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/4-llKqR-wgE?feature=oembed](https://www.youtube.com/embed/4-llKqR-wgE?feature=oembed)
 
@@ -62,11 +62,11 @@ Bruce and the E Street Band rehearse for the upcoming and final leg of the Darkn
 
 At The Hit Factory in New York City, Bruce records "Shut Down" and "100 Miles From Jackson." Neither have ever been released.
 
-**1983:**
+**1983:**<br>
 
 The length of Bruce' concerts have become legendary–so much so that local DJ Rick Dees discovers how easy it is to convince fans that Bruce's concert at the Sports Arena last night is still going on this morning. Hundreds of listeners frantically call the arena and two dozen fans make the return trip to catch the end of Bruce's "overnight encore."
 
-**1984:**
+**1984:**<br>
 
 
 
@@ -80,7 +80,7 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 Bruce and his new band bring World Tour 1992 to the McNichols Sports Arena in Denver.
 
-**1992:**
+**1992:**<br>
 
 [https://www.youtube.com/embed/oDCcsSc9BTc?feature=oembed](https://www.youtube.com/embed/oDCcsSc9BTc?feature=oembed)
 
@@ -102,7 +102,7 @@ Bruce plays a solo acoustic benefit show for the John Steinbeck Research Center 
 
 Bruce and the reunited E Street Band play their second of three shows at the Oakland Arena.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/3YHZqkbJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3YHZqkbJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -116,7 +116,7 @@ Night Two in Oakland on the Magic Tour bring tour premieres of "," "Racing in th
 
 Bruce's cousin and assistant tour manager Lenny Sullivan passes away, prompting the last-minute cancellation of Bruce's show in Kansas City.
 
-**2009:**
+**2009:**<br>
 
 
 

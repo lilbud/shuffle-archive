@@ -91,7 +91,7 @@ Bruce performed "The Line" nightly throughout the Ghost of Tom Joad Tour, as wel
 
 [Watch on Youtube: Bruce Springsteen - THE LINE 1996 (audio)](https://www.youtube.com/watch?v=Hh7Y8xeZSwM)
 
-**The Line**
+**The Line**<br>
 **Recorded:** March-August 1995  
 **Released:** *The Ghost of Tom Joad* (1995)
 **First performed:** November 21, 1995 (New Brunswick, NJ)

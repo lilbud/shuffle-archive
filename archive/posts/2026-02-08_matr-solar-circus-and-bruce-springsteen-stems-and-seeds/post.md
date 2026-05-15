@@ -27,7 +27,7 @@ That was the first and only time Bruce performed with Solar Circus.
 August 10, 1995 (Long Branch, NJ)
 August 10, 1995 (Long Branch, NJ)
 
-**Stems and Seeds**
+**Stems and Seeds**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

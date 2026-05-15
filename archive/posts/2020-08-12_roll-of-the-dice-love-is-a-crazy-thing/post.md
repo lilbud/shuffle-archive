@@ -58,9 +58,9 @@ So maybe we can cut him a little slack for writing an entire song about a girl w
 
 "Love Is a Crazy Thing" isn't one of Bruce's stronger songs from that period, but it was a signpost pointing to greater things to come.
 
-**Love Is a Crazy Thing**
-**Never recorded**
-**Never released**
+**Love Is a Crazy Thing**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** February 4, 1972 (Richmond, VA)
 **Last performed:** February 4, 1972 (Richmond, VA)
 

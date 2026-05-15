@@ -2,7 +2,7 @@
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -10,7 +10,7 @@ The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 The final stand of the Lawsuit Tour begins with the first of four nights at Boston's Music Hall.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/V_QpVUpzeWE?feature=oembed](https://www.youtube.com/embed/V_QpVUpzeWE?feature=oembed)
 
@@ -26,7 +26,7 @@ Bruce works on mixing and overdubs for "" at the Record Plant in New York City.
 
 In between Bruce's first and second shows at the Sydney Entertainment Center, Neil Young plays a gig. Bruce joins him during the encore for "Down by the River."
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/1Y3URvR1u78?feature=oembed](https://www.youtube.com/embed/1Y3URvR1u78?feature=oembed)
 
@@ -34,7 +34,7 @@ In between Bruce's first and second shows at the Sydney Entertainment Center, Ne
 
 The Tunnel of Love Express Tour stops in Atlanta for the first of two nights at The Omni.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/d2qzoBK8fmE?feature=oembed](https://www.youtube.com/embed/d2qzoBK8fmE?feature=oembed)
 
@@ -48,7 +48,7 @@ The Tunnel of Love Express Tour stops in Atlanta for the first of two nights at 
 
 Night One in Sydney on the Rising Tour is plagued by power failures–four times in the first hour of the show. But the show goes on, and to thank fans for their patience, Bruce plays "Rosalita (Come Out Tonight)" — its first E Street stage appearance since mid-1999.
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/lGOMYAlV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lGOMYAlV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -56,7 +56,7 @@ Night One in Sydney on the Rising Tour is plagued by power failures–four times
 
 "Lost in the Flood" and "Glory Days" makes their tour premieres at Bruce's Magic show at the U.S. Bank Arena in Cincinnati.
 
-**2008:**
+**2008:**<br>
 
 [https://videopress.com/embed/q392pFh8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/q392pFh8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -66,7 +66,7 @@ Night One in Sydney on the Rising Tour is plagued by power failures–four times
 
 The third and final night at Sydney's Allphones arena on the Wrecking Ball Tour brings Australia's first-ever performance of "Night" and "Prove It All Night ('78)."
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/El1QmXhvGPA?feature=oembed](https://www.youtube.com/embed/El1QmXhvGPA?feature=oembed)
 
@@ -78,7 +78,7 @@ The third and final night at Sydney's Allphones arena on the Wrecking Ball Tour 
 
 The River Tour (2016 version) comes to the Pacific Northwest, starting with a show at Portland's Moda Center.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/JGNMrVRl9d4?feature=oembed](https://www.youtube.com/embed/JGNMrVRl9d4?feature=oembed)
 
@@ -100,7 +100,7 @@ Bruce and President Barack Obama release the sixth episode of their podcast, . T
 
 Bruce and the E Street Band perform in Las Vegas for the first time in over two decades, opening with the tour premiere of "Roll of the Dice" and kicking off the encores with their first performance of "Viva Las Vegas" since 2002.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/P6t_j51yi30?feature=oembed](https://www.youtube.com/embed/P6t_j51yi30?feature=oembed)
 

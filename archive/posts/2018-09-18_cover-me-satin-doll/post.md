@@ -20,6 +20,6 @@ At least once, he swapped out "switcherooney" for "ask your mama." Why? Who know
 
 Bruce may never have treated "Satin Doll" as more than a novelty song, but multiple performances of it exist in the wild as documents to the early versatility and musicality of the E Street Band.
 
-**Satin Doll**
+**Satin Doll**<br>
 **First performed:** January 9, 1973<br>
 **Last performed:** April 9, 1974<br>

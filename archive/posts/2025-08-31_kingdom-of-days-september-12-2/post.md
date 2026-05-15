@@ -4,7 +4,7 @@
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 Bruce and the E Street Band kick off a week of Texas shows with a show at the Austin Municipal Auditorium.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/2LuhuZw1KDA?feature=oembed](https://www.youtube.com/embed/2LuhuZw1KDA?feature=oembed)
 
@@ -24,11 +24,11 @@ Bruce and the E Street Band kick off a week of Texas shows with a show at the Au
 
 Bruce holds a recording session for his next album with the E Street Band at The Record Plant in New York City.
 
-**1977:**
+**1977:**<br>
 
 The Darkness Tour returns to the east coast, starting with this show in Syracuse, where a couple of fans sneak back into the arena after the show and encounter Bruce in the shower.
 
-**1978:**
+**1978:**<br>
 
 
 
@@ -46,7 +46,7 @@ Bruce and the band play their second of six shows at the Philadelphia Spectrum o
 
 Bruce and the E Street Band rehearse for their upcoming Magic Tour at Asbury Park's Convention Hall.
 
-**2007:**
+**2007:**<br>
 
 The Working on a Dream Tour starts a southern swing with a show at the Ford Amphitheater in Tampa, with two notable tour premieres: the very first E Street Band performance of "" and "" (last played by the E Street Band 28 years prior).
 
@@ -90,7 +90,7 @@ debuts at the Toronto International Film Festival, and co-directors Bruce Spring
 
 Bruce issues a video plea for support for the Community Hospital Endowment Fund for the Kenyan city of Lwala.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/5kFCEGnJJNo?list=PLnbVaK2f4rahkarvl0qDgKW3lpuomUWEd](https://www.youtube.com/embed/5kFCEGnJJNo?list=PLnbVaK2f4rahkarvl0qDgKW3lpuomUWEd)
 

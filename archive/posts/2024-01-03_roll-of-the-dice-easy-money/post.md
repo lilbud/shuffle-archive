@@ -61,7 +61,7 @@ That's too bad, because "Easy Money" was both a crowd- and artist-pleaser, judgi
 
 [Watch on Youtube: Easy Money - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=7lzRDbg_6IQ)
 
-**Easy Money**
+**Easy Money**<br>
 **Recorded:** 2011  
 **Released:** *Wrecking Ball* (2011)
 **First performed:** March 18, 2012 (Atlanta, GA)

@@ -75,7 +75,7 @@ Bruce has never performed "Delivery Man," and he's obviously never released it. 
 
 Let's hope, because a live "Delivery Man"/"Darlington County" double-shot would be too much fun to miss out on.
 
-**Delivery Man**
+**Delivery Man**<br>
 **Recorded:** January 1983  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>

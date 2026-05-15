@@ -4,7 +4,7 @@
 
 The Castiles perform at their own junior prom at Freehold Regional High School.
 
-**1966:**
+**1966:**<br>
 
 Even shorter-lived than Dr. Zoom and the Sonic Boom: , making their debut performance in two shows at The Upstage. Bruce also plays an afternoon show on this date with The Sundance Blues Band.
 
@@ -16,13 +16,13 @@ Even shorter-lived than Dr. Zoom and the Sonic Boom: , making their debut perfor
 
 Bruce cuts the first version of "Born to Run" in the studio (instrumental only).
 
-**1974:**
+**1974:**<br>
 
 [https://videopress.com/embed/IGNGHlDK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IGNGHlDK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce takes in a show by local band Pegasus (but does not perform) at The Jail in Hillsdale, New Jersey.
 
-**1977:**
+**1977:**<br>
 
 With the band on break while Bruce and Julianne honeymoon, Clarence appears on .
 
@@ -38,7 +38,7 @@ Bruce rehearses with his new band for their upcoming tour. After the rehearsal, 
 
 : The marathon Ghost of Tom Joad Tour enters its last week with a show at Teatro Verdi in Florence.
 
-**1997**
+**1997**<br>
 
 [https://videopress.com/embed/Fr7NZ7c2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Fr7NZ7c2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -68,7 +68,7 @@ Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of "" a
 
 Still chugging along, the Reunion Tour stops in Anaheim for the first of two shows.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/iW3kCI3S?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iW3kCI3S?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -84,7 +84,7 @@ Still chugging along, the Reunion Tour stops in Anaheim for the first of two sho
 
 Stockholm gets its first Seeger Sessions show, and the BBC airs a Johnnie Walker interview with Bruce.
 
-**2006:**
+**2006:**<br>
 
 [https://videopress.com/embed/OXjjzQI1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OXjjzQI1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -92,7 +92,7 @@ Stockholm gets its first Seeger Sessions show, and the BBC airs a Johnnie Walker
 
 The final stand of the first American leg of the Working on a Dream Tour begins with the first of two shows at the Izod Center in East Rutherford.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/q-bzVBUCcKg?feature=oembed](https://www.youtube.com/embed/q-bzVBUCcKg?feature=oembed)
 

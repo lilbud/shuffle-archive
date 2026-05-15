@@ -123,6 +123,6 @@ Mask up, everybody.
 **Randolph Street  
 Recorded:** April 1972  
 **Never released**  
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -60,9 +60,9 @@ Finally, a fourth outtake almost feels like a reversion. Bruce dips into his tru
 
 There's no evidence to suggest that any version of "Stockton Boys" ever made it past the home demo stage. Other than some shared DNA with "Working on the Highway," this one appears to be truly lost in time.
 
-**Stockton Boys**
+**Stockton Boys**<br>
 **Recorded:** January – February 1980 (home demos only)
-**Never released**
-**Never performed live**
+**Never released**<br>
+**Never performed live**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

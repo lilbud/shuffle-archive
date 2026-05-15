@@ -31,9 +31,9 @@ That's all we get. As far as we know, "Phantom Love (Just 16)" never evolved int
 
 We'll chalk this one up to a songwriter's experiment, one of what must be countless hidden away in the pages of Bruce's decades of notebooks.
 
-**Phantom Love (Just 16)**
-**Never recorded**
-**Never released**
-**Never performed**
+**Phantom Love (Just 16)**<br>
+**Never recorded**<br>
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

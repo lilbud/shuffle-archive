@@ -16,7 +16,7 @@ From Neil and Pegi's Bridge School Benefit concert on October 28, 1995, listen t
 
 [https://videopress.com/embed/2TjNMtEs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2TjNMtEs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-**Rockin' in the Free World**
+**Rockin' in the Free World**<br>
 **First performed:** October 28, 1995 (Mountain View, CA)<br>
 **Last performed:** October 5, 2004 (St. Paul, MN)<br>
 

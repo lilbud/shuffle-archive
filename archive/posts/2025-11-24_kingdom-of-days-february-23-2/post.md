@@ -2,13 +2,13 @@
 
 The Beatles make their third appearance on the Ed Sullivan show, and fourteen-year-old Bruce Springsteen is watching.
 
-**1964:**
+**1964:**<br>
 
 [https://www.youtube.com/embed/b-VAxGJdJeQ?feature=oembed](https://www.youtube.com/embed/b-VAxGJdJeQ?feature=oembed)
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -16,17 +16,17 @@ The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 In the wee hours of Sunday morning, Bruce, Vinnie Roslin, and Big Bad Bobby Williams jam at The Upstage in Asbury Park. Danny Federici joins in, and Vini Lopez swaps in for Williams. That foursome (Springsteen, Roslin, Federici, and Lopez) will soon gel as a band called Child, which by the end of the year will become Steel Mill.
 
-**1969:**
+**1969:**<br>
 
 Ernest "Boom" Carter makes his debut as the E Street Band's drummer at the Satellite Lounge in Cookstown, New Jersey. Bruce tried to cancel this show to give Carter time to come up to speed on the band's material, but the owner of the club took that news in a very New Jersey fashion. I'll let Bruce tell the rest of the story:
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/kzXpb_tv7-0?start=17&amp;feature=oembed](https://www.youtube.com/embed/kzXpb_tv7-0?start=17&amp;feature=oembed)
 
 Bruce and the E Street Band play the Westbury Music Fair in Westbury, New York. The stage rotates (or at least it does until it stops during the encores). Listen to the soundcheck below.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/thVo0BShjFI?feature=oembed](https://www.youtube.com/embed/thVo0BShjFI?feature=oembed)
 
@@ -36,7 +36,7 @@ Bruce and the E Street Band play the Westbury Music Fair in Westbury, New York. 
 
 Twelve-year old Eddie Vedder sees Bruce Springsteen and the E Street Band play Chicago's Auditorium Theater.
 
-**1977:**
+**1977:**<br>
 
 [https://videopress.com/embed/s9oiucKA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/s9oiucKA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -44,7 +44,7 @@ Twelve-year old Eddie Vedder sees Bruce Springsteen and the E Street Band play C
 
 : The original River Tour makes a stop at The Omni in Atlanta for one night.
 
-**1981**
+**1981**<br>
 
 [https://www.youtube.com/embed/adlTiwV7I0Y?feature=oembed](https://www.youtube.com/embed/adlTiwV7I0Y?feature=oembed)
 
@@ -86,7 +86,7 @@ Bruce performs "" on French television. Here's the rehearsal and the actual perf
 
 Despite being nominated for both the Best Male Rock Vocal Performance and Best Rock Song categories (both for "The Promise"), Bruce takes home no Grammy Awards this year.
 
-**2000:**
+**2000:**<br>
 
 At the 45th Grammy Awards in Madison Square Garden, Bruce performs and wins three awards (Best Male Rock Vocal Performance and Best Rock Song for "," and Best Rock Album for ). Although nominated for Album of the Year and Song of the Year as well, Bruce does not win in those categories. At the end of the show, Bruce and Steve pay tribute to Joe Strummer with Elvis Costello and Dave Grohl, performing "."
 

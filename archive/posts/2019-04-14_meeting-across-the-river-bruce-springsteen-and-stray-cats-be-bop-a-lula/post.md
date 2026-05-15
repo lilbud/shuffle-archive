@@ -11,6 +11,6 @@ This is the only time Bruce is known to have played this classic, made famous in
 July 23, 1982 (Asbury Park, NJ)
 July 23, 1982 (Asbury Park, NJ)
 
-**Be-Bop-a-Lula**
+**Be-Bop-a-Lula**<br>
 **First performed:** <br>
 **Last performed:**<br>

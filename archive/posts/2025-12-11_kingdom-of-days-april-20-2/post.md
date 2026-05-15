@@ -2,11 +2,11 @@
 
 Child performs at Hullabaloo in Asbury Park.
 
-**1969:**
+**1969:**<br>
 
 Bruce and the still-unnamed E Street Band perform a truncated show (for fire safety reasons) at Ursinus College in Collegeville, Pennsylvania.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -14,7 +14,7 @@ Bruce and the still-unnamed E Street Band perform a truncated show (for fire saf
 
 Bruce and the band play a sparsely attended show at the Freedom Hall Civic Center in Johnson City, Tennessee.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -30,17 +30,17 @@ Bruce works on mixes for his upcoming album at Clover Studios in Los Angeles.
 
 A scheduled River Tour show in Paris for this date was moved to April 18.
 
-**1981:**
+**1981:**<br>
 
 Bruce works on "Cynthia" at his home studio in Los Angeles.
 
-**1983:**
+**1983:**<br>
 
 [https://www.youtube.com/embed/Ky7XO1Jliv4?feature=oembed](https://www.youtube.com/embed/Ky7XO1Jliv4?feature=oembed)
 
 The Tunnel of Love Express Tour moves on to Denver for a show a the McNichols Sports Arena.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/29cLHNnJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/29cLHNnJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -48,19 +48,19 @@ The Tunnel of Love Express Tour moves on to Denver for a show a the McNichols Sp
 
 The second of two nights in Rotterdam for Bruce's World Tour 1993.
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/VX775UJx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VX775UJx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce plays a solo acoustic show in Antwerp, rescheduled from March.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/bNxmQ6UM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bNxmQ6UM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Another live debut for Milan at Night Two in the Fila Forum: Bruce opens with the first-ever performance of "I Wanna Be With You." This is only the second Night Two of the tour, and Bruce breaks the set list open with the first performances of "Atlantic City," "Factory," "Sherry Darling," "Cadillac Ranch," and "This Hard Land" of the Reunion era.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/tHNbxq82eYI?feature=oembed](https://www.youtube.com/embed/tHNbxq82eYI?feature=oembed)
 
@@ -74,11 +74,11 @@ Another live debut for Milan at Night Two in the Fila Forum: Bruce opens with th
 
 At the Paramount Theater in Asbury Park, Bruce holds his final rehearsal before beginning his solo acoustic tour.
 
-**2005:**
+**2005:**<br>
 
 The first public warm-up show for the Seeger Sessions Tour features the premiere of "How Can a Poor Man Stand Such Times and Live," "When the Saints Go Marching In" and the album tracks.
 
-**2006:**
+**2006:**<br>
 
 [https://videopress.com/embed/rGqntUpa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/rGqntUpa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -96,11 +96,11 @@ The first public warm-up show for the Seeger Sessions Tour features the premiere
 
 Bruce attends (but does not perform at) the annual Kirsten Ann Carr Fund event.
 
-**2013:**
+**2013:**<br>
 
 At Baltimore's River show, "I Wanna Marry You" features one of what turns into several marriage proposals along the tour.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/2909CodHLiE?feature=oembed](https://www.youtube.com/embed/2909CodHLiE?feature=oembed)
 

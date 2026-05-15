@@ -46,7 +46,7 @@ The next time Bruce performed "In the Midnight Hour," it would be in memory of P
 
 We're fortunate to have had that one-time-only pairing on one of rock's iconic songs.
 
-**Bonus:**
+**Bonus:**<br>
 
 In May 1995, Bruce attended John Fogerty's 50th birthday party at John's house, where Bruce and John jammed for a set that included at least nine songs–a previously unknown gig (featuring a previously unknown Springsteen original) until actor John Stamos posted his home video from the evening earlier this year.
 
@@ -56,6 +56,6 @@ Here's a brief snippet of John and Bruce performing "In the Midnight Hour" toget
 
 Happy new year, everyone–we made it!
 
-**In the Midnight Hour**
+**In the Midnight Hour**<br>
 **First performed:** December 31, 1969 (Big Sur, CA)<br>
 **Last performed:** January 17, 2020 (Wellington, FL)<br>

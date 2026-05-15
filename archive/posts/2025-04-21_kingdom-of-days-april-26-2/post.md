@@ -4,7 +4,7 @@
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -20,7 +20,7 @@ The new issue of features a profile of Bruce, their first of many to come. (Than
 
 Bruce and the E Street Band play at the Soldiers & Sailors Memorial Auditorium in Chattanooga, their first of three nights in Tennessee.
 
-**1976:**
+**1976:**<br>
 
 Bruce and his studio team complete the mixes for "" and "" at Clover Studios in Los Angeles.
 
@@ -32,7 +32,7 @@ Bruce and his studio team complete the mixes for "" and "" at Clover Studios in 
 
 Bruce plays his first-ever show in Belgium (and the first ever "Stolen Car" in Europe) when the River Tour arrives in Brussels.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/UyXUhTpJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UyXUhTpJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -48,7 +48,7 @@ Bruce in the studio at the Power Station in New York, recording for what will be
 
 Douglas Springsteen, Bruce's father, passes away at the age of 73.
 
-**1998:**
+**1998:**<br>
 
 
 
@@ -56,7 +56,7 @@ Douglas Springsteen, Bruce's father, passes away at the age of 73.
 
 Bruce and the E Street Band bring the Reunion Tour to Zurich.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/5QWqHj9x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5QWqHj9x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

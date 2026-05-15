@@ -62,9 +62,9 @@ Does Jamey ever make it back to Jessie? We never find out, but I'd wager the ans
 
 Miles to go is miles away.
 
-**Phantoms**
+**Phantoms**<br>
 **Recorded:** June 1973  
-**Never released**
+**Never released**<br>
 **First performed:** June 13, 1973 (Binghamton, NY)
 **Last performed:** June 13, 1973 (Binghamton, NY)
 

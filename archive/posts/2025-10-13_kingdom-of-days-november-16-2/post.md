@@ -4,7 +4,7 @@
 
 Bruce headlines his final show of a three-night stand at My Father's Place in Roslyn, New York.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -114,7 +114,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce plays a private benefit show with Bobby Bandiera and his band (and for half the show, Max Weinberg on drums) for Boston College.
 
-**2019:**
+**2019:**<br>
 
 [https://www.youtube.com/embed/ldfdgTvQOsY?feature=oembed](https://www.youtube.com/embed/ldfdgTvQOsY?feature=oembed)
 
@@ -134,11 +134,11 @@ On the third night of his "takeover," Bruce performs "Nightshift" (recorded duri
 
 Bruce's scheduled show in Ottawa is postponed by almost a year due to his peptic ulcer disease.
 
-**2023:**
+**2023:**<br>
 
 More than a year after it was originally scheduled, Bruce and the E Street Band perform at Scotiabank Saddledome in Calgary.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/76QhRyDrqWw?feature=oembed](https://www.youtube.com/embed/76QhRyDrqWw?feature=oembed)
 

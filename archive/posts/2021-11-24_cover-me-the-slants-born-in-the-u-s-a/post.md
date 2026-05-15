@@ -14,7 +14,7 @@ Let's watch *The Daily Show* correspondent Ronnie Cheing help the band tell thei
 
 
 
-**[The Daily Show with Trevor Noah](https://www.cc.com/shows/the-daily-show-with-trevor-noah)**
+**[The Daily Show with Trevor Noah](https://www.cc.com/shows/the-daily-show-with-trevor-noah)**<br>
 
 That's right: the U.S. government fought to prevent the band from calling themselves The Slants, because the term was too racist to be applied to Asian Americans. Even by Asian Americans.
 

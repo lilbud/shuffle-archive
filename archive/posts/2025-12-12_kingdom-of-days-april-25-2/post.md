@@ -10,33 +10,33 @@ Bruce plays two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
 Bruce works on "Jungleland" and "Thunder Road" at the Record Plant in New York City.
 
-**1975:**
+**1975:**<br>
 
 Bruce and his studio team complete the mix for "Prove It All Night" at the Record Plant in New York City.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/UzjkWdRqWFo?feature=oembed](https://www.youtube.com/embed/UzjkWdRqWFo?feature=oembed)
 
 Bruce and his studio team complete the mix for "Independence Day" at Clover studios in Los Angeles.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/9GggK3Sn258?feature=oembed](https://www.youtube.com/embed/9GggK3Sn258?feature=oembed)
 
 Bruce catches Cats on a Smooth Surface performing at The Stone Pony in Asbury Park, but he does not take the stage.
 
-**1982:**
+**1982:**<br>
 
 Night Three (of five) for the Tunnel of Love Express Tour at the L.A. Sports Arena.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/77lAhHBZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/77lAhHBZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 At Micky Rourke's Rubber Club in Los Angeles, Bruce joins a local band on stage for "Stand By Me."
 
-**1989:**
+**1989:**<br>
 
 
 
@@ -44,7 +44,7 @@ At Micky Rourke's Rubber Club in Los Angeles, Bruce joins a local band on stage 
 
 Elliott Murphy and Joe Grushecky join Bruce for a final encore of "Blowin' Down This Road" at Bruce's second solo acoustic show at Brixton Academy in London.
 
-**1996:**
+**1996:**<br>
 
 [https://www.youtube.com/embed/3vI9BTN8l8E?feature=oembed](https://www.youtube.com/embed/3vI9BTN8l8E?feature=oembed)
 
@@ -52,7 +52,7 @@ Elliott Murphy and Joe Grushecky join Bruce for a final encore of "Blowin' Down 
 
 The first of two Reunion shows at Mellon Arena in Pittsburgh features the first E Street Band performance of "Human Touch" and a Joe Grushecky guest appearance on "Idiot's Delight."
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/txuqoZGk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/txuqoZGk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -66,11 +66,11 @@ The first of two Reunion shows at Mellon Arena in Pittsburgh features the first 
 
 Bruce plays a benefit for Rumson Country Day School (along with Patti, Southside Johnny, and Bobby Bandiera) for the third year running at The Stone Pony in Asbury Park.
 
-**2004:**
+**2004:**<br>
 
 Bruce kicks off his solo acoustic tour with a show at the Fox Theater in Detroit.
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/bZmO5Gza?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bZmO5Gza?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -112,7 +112,7 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 The Magic Tour moves to Atlanta for a show at Philips Arena, where "Blinded by the Light" makes its tour premiere.
 
-**2008:**
+**2008:**<br>
 
 [https://videopress.com/embed/CcJp0LLz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CcJp0LLz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -124,7 +124,7 @@ The Magic Tour moves to Atlanta for a show at Philips Arena, where "Blinded by t
 
 The closing night of the first U.S. leg of the River Tour (2016 version) at Barclays Center in Brooklyn brings the tour premieres of "Boom Boom" and "Trapped" along with a reprise of Bruce's "Purple Rain" tribute, a rare "Loose Ends," and an adorable fan singalong to "Blinded by the Light."
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/QTMfT2Pr_P4?feature=oembed](https://www.youtube.com/embed/QTMfT2Pr_P4?feature=oembed)
 

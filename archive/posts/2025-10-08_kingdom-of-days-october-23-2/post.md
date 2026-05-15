@@ -4,7 +4,7 @@
 
 Steel Mill headlines a show at the University of Richmond.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -12,7 +12,7 @@ Steel Mill headlines a show at the University of Richmond.
 
 One year to the day from his appearance there with Steel Mill, Bruce brings The Bruce Springsteen Band to the University of Richmond. (Disregard the date stamp on the videos below–they are indeed from this date.)
 
-**1971:**
+**1971:**<br>
 
 [https://www.youtube.com/embed/jGPDXzVkOhQ?feature=oembed](https://www.youtube.com/embed/jGPDXzVkOhQ?feature=oembed)
 
@@ -24,11 +24,11 @@ One year to the day from his appearance there with Steel Mill, Bruce brings The 
 
 Bruce meets Bob Dylan for the first time at a birthday party for Mike Porco, owner of Gerde's Folk City in New York City. Bruce and Dylan join others present to sing "Happy Birthday" to Porco, making this (sort of) their first performance together. The event is filmed, but no Bruce footage will be released. Reportedly, Dylan invites Bruce to join his Rolling Thunder Revue as a solo performer, but Bruce declines.
 
-**1975:**
+**1975:**<br>
 
 Montana musician Phil Hamilton–a devoted Bruce fan–arranges a two-night stand in Seattle for his Lost Highway Band in order to be in town for Bruce's River show the next day. Coincidentally, Hamilton spots Bruce walking on the street, introduces himself, and invites Bruce to come watch their show at The Old Timer's Cafe that night. Bruce shocks the band by doing just that, even joining them on stage for a few songs.
 
-**1980:**
+**1980:**<br>
 
 
 

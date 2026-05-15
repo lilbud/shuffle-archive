@@ -14,7 +14,7 @@ Bruce actually telegraphs it in his opening verse with a lyric that would show u
 
 > *Sleepy town ain't got the guts to budge*
 > *Baby, this emptiness has already been judged*
-***I wanna go out tonight, I wanna find out what I got***
+***I wanna go out tonight, I wanna find out what I got***<br>
 
 It's certainly understandable why most listeners come away feeling depressed after listening to "Iceman," though. It's ponderously paced, somberly sung, and even the title misleads (we'll get to that in a bit).
 
@@ -83,7 +83,7 @@ Following that solo debut, Bruce played it twice more with the E Street Band, on
 
 With only three performances ever, "Iceman" remains a rarity–too misunderstood to be fully appreciated and too stately-sounding to sustain the momentum of an E Street Band concert. It's likely to remain one of Bruce's most under-the-radar and underappreciated tracks.
 
-**Iceman**
+**Iceman**<br>
 **Recorded** October 27, 1977  
 **Released:** *Tracks* (1998)
 **First performed:** May 17, 2005 (Philadelphia, PA)

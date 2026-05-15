@@ -108,12 +108,12 @@ I unchained a door in my heart, welcomed all the wonderful traits and idiosyncra
 
 I am my father's house now, and as long as I'm here, he has a home.
 
-**Donald Stephen Rosen**
-**December 23, 1942 – August 12, 2021**
+**Donald Stephen Rosen**<br>
+**December 23, 1942 – August 12, 2021**<br>
 
 (I'm going to take a short break while I join my family in remembering my father. I'll be back in a week.)
 
-**My Father's House**
+**My Father's House**<br>
 **Recorded** May 25, 1982  
 **Released:** *Nebraska* (1982), *Chapter and Verse* (2016)
 **First performed:** July 26, 1984 (Toronto, ON)

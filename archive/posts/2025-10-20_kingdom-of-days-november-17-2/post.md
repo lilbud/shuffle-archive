@@ -12,7 +12,7 @@ Bruce and the E Street Band headline two shows at the Roxy Theater in Roxborough
 
 Joe Walsh is in the audience when Bruce and the boys play a gig at the University of Virginia in Charlottesville.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -24,7 +24,7 @@ Joe Walsh is in the audience when Bruce and the boys play a gig at the Universit
 
 Bruce and the boys play a Darkness show at the Munn Ice Arena at Michigan State University in East Lansing, and at least one reviewer is not impressed. Watch rare video from this show below, but note that the footage was recorded silently–the dubbed audio is from a different show.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/KO8HMeGkox0?feature=oembed](https://www.youtube.com/embed/KO8HMeGkox0?feature=oembed)
 
@@ -122,7 +122,7 @@ Patti rejoins the Seeger Sessions Tour for its home stretch, which kicks off wit
 
 Bruce performs a four-song acoustic set at the Concert for Autism Speaks at Carnegie Hall.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/tHFFmcUMZ2M?feature=oembed](https://www.youtube.com/embed/tHFFmcUMZ2M?feature=oembed)
 

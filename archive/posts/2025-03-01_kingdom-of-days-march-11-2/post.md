@@ -4,7 +4,7 @@
 
 At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bruce and the E Street Band add a one-time-only "Farmer John" into "Twist and Shout."
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/FCJHKUBH7OI?feature=oembed](https://www.youtube.com/embed/FCJHKUBH7OI?feature=oembed)
 
@@ -12,7 +12,7 @@ At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bru
 
 Bruce and the reunited E Street Band have their final private rehearsal for their upcoming tour before an audience of 25-30 lucky fans at Convention Hall in Asbury Park.
 
-**1999:**
+**1999:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and the reunited E Street Band have their final private rehearsal for thei
 
 Bruce, Patti, and Little Steven attend the 15th Annual Silver Clef Awards dinner and auction at the Roseland Ballroom in New York City.
 
-**2002:**
+**2002:**<br>
 
 "" gets a rare outing at the Blue Cross Arena in Rochester, along with the Rising Tour premiere of "."
 
@@ -40,11 +40,11 @@ Bruce, Patti, and Little Steven attend the 15th Annual Silver Clef Awards dinner
 
 Bruce rehearses for his solo tour at the Paramount Theater in Asbury Park.
 
-**2005:**
+**2005:**<br>
 
 Bruce and the E Street Band rehearse for the Working on a Dream Tour at the Paramount Theater in Asbury Park.
 
-**2009:**
+**2009:**<br>
 
 
 

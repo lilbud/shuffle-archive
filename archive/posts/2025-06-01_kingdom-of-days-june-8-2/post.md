@@ -4,11 +4,11 @@
 
 The Castiles play a show at the Hullabaloo in Middletown, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 Bruce and the E Street Band open for Chicago at Boston Garden.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce and the E Street Band hold recording sessions for at Atlantic Studios in N
 
 The Darkness Tour stops in Madison for a show at the Dane County Memorial Coliseum.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/qYS6FRjrkU8?feature=oembed](https://www.youtube.com/embed/qYS6FRjrkU8?feature=oembed)
 
@@ -34,7 +34,7 @@ The Darkness Tour stops in Madison for a show at the Dane County Memorial Colise
 
 The European leg of the River Tour wraps up with a second show in Birmingham, England.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/dAro3Txt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dAro3Txt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -52,7 +52,7 @@ Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in 
 
 The stadium-breaker! Bruce's encore of "Twist and Shout" almost collapses the stadium in Gothenburg, Sweden. Bruce will refer to this show many times over the years.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/hfIsMDrMlSY?feature=oembed](https://www.youtube.com/embed/hfIsMDrMlSY?feature=oembed)
 

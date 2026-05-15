@@ -37,8 +37,8 @@ The notion of being cast as an "outlaw"–specifically the use of that term–is
 
 But we'll probably never know, and it would rank pretty close to the bottom of things I'd ever ask Bruce about if I had the chance. "We've Got to Do It Now" is likely to remain a historical curiosity.
 
-**We've Got to Do It Now**
-**Never recorded**
+**We've Got to Do It Now**<br>
+**Never recorded**<br>
 Never released  
 **First performed:** November 27, 1970 (Asbury Park, NJ)
 **Last performed:** November 27, 1970 (Asbury Park, NJ)

@@ -29,7 +29,7 @@ It took a request sign to finally get Bruce to play the song with the E Street B
 July 25, 1982 (Asbury Park, NJ)
 September 21, 2009 (Des Moines, IA)
 
-**The Wanderer**
+**The Wanderer**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

@@ -48,9 +48,9 @@ Unfortunately, though, this is the only known recording of Steel Mill performing
 
 So we'll appreciate this recording for what it is: a remarkably clear and very listenable document of an important evolutionary step toward the someday E Street Band.
 
-**Goin' Down Slow**
-**Never recorded**
-**Never released**
+**Goin' Down Slow**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** September 20, 1969 (Richmond, VA)
 **Last performed:** April 18, 1970 (Toms River, NJ)
 

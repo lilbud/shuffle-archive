@@ -17,7 +17,7 @@ The latter performance in particular features some lovely guitar work from Bruce
 September 22, 2015 (Red Bank, NJ)
 September 21, 2017 (Holmdel, NJ)
 
-**Our Lady of the Well**
+**Our Lady of the Well**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

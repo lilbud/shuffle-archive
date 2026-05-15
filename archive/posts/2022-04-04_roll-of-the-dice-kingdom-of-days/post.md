@@ -89,7 +89,7 @@ Watch this performance all the way through to hear Bruce channel his inner Orbis
 
 [Watch Video Highlight](https://videopress.com/embed/6UU4PT3e)
 
-**Kingdom of Days**
+**Kingdom of Days**<br>
 **Recorded** Early 2008  
 **Released:** *Working on a Dream* (2009)
 **First performed:** March 24, 2009 (Asbury Park, NJ)

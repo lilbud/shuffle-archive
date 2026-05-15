@@ -10,8 +10,8 @@ But it sure *sounds* like something a heterosexual teenage boy would write. I ca
 
 Ah, but that guitar solo just past the three-minute mark... that's another story. Bruce had a reputation even then as one of the fastest guitarists on the Jersey Shore, and he reminds us why in this performance. It's worth listening to just for that.
 
-**Good Lovin' Woman**
-**Never recorded**
+**Good Lovin' Woman**<br>
+**Never recorded**<br>
 **First performed:** August 14, 1970 (Richmond, VA)<br>
 **Last performed:** August 14, 1970 (Richmond, VA)<br>
 

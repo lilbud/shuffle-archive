@@ -27,9 +27,9 @@ What happened to "Love Will Get You Down" after these home recordings is murky. 
 
 In any event, that later recording does not circulate broadly, so for now, the trail ends here.
 
-**Love Will Get You Down**
+**Love Will Get You Down**<br>
 **Recorded:** Early 1979 (work in progress demo only)
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

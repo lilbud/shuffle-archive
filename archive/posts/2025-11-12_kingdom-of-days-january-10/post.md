@@ -2,15 +2,15 @@
 
 Steel Mill plays the College of Marin during their California sojourn.
 
-**1970:**
+**1970:**<br>
 
 Bruce and the band continue their Boston residency with two shows at Paul's Mall.
 
-**1973:**
+**1973:**<br>
 
 At his home studio in Holmdel, Bruce and the E Street Band rehearse "Restless Nights."
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/KsosBOD17_0?feature=oembed](https://www.youtube.com/embed/KsosBOD17_0?feature=oembed)
 
@@ -46,7 +46,7 @@ Days before the release of , Bruce calls into E Street Radio for a lengthy inter
 
 : Bob Santelli interviews Bruce on stage at Monmouth University.
 
-**2017**
+**2017**<br>
 
 
 

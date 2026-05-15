@@ -2,11 +2,11 @@
 
 Clarence "Big Man" Clemons is born in Norfolk, Virginia.
 
-**1942:**
+**1942:**<br>
 
 Bruce and the band continue their Boston residency with two shows at Paul's Mall.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -14,7 +14,7 @@ Bruce and the band continue their Boston residency with two shows at Paul's Mall
 
 Bruce and the E Street Band play a set of cover tunes at a private 37th birthday party for Clarence at Lock Stock & Barrel in Fair Haven, New Jersey.
 
-**1979:**
+**1979:**<br>
 
 At his home studio in Holmdel, Bruce and the E Street Band rehearse material for their upcoming recording sessions for 
 
@@ -30,7 +30,7 @@ At his home studio in Holmdel, Bruce and the E Street Band rehearse material for
 
 Bruce plays the second of two shows at Detroit's Fox Theater.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/w4Rg1WKW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/w4Rg1WKW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

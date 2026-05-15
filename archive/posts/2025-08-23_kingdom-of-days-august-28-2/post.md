@@ -4,7 +4,7 @@
 
 Robbin Thompson makes his Steel Mill debut at the band's University of Richmond gig.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -72,7 +72,7 @@ World Tour 1992 moves on to Philadelphia for the first of two shows at The Spect
 
 Bruce makes a guest appearance with Jimmy & the Gigolos at The Derby in Hollywood.
 
-**1997:**
+**1997:**<br>
 
 The Rising Tour stadium leg returns to Giants Stadium, where Bruce and the E Street Band tour premiere "" and Bobby Bandiera makes a guest appearance on "From Small Things (Big Things One Day Come)."
 
@@ -118,7 +118,7 @@ continues its limited return engagement at the St. James Theater in New York Cit
 
 A scheduled show at Nationals Park in Washington, D.C. is postponed to late September. It will eventually be postponed again.
 
-**2023:**
+**2023:**<br>
 
 
 

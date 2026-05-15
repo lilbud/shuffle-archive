@@ -4,7 +4,7 @@
 
 A watershed moment for Bruce, when he plays two shows opening for Bonnie Raitt at the Harvard Square Theater in Cambridge, Massachusetts. Not only is his band introduced as "The E Street Band" for the very first time at the early show, but Jon Landau attends the late show and is moved to write his famous "rock and roll future" review.
 
-**1974:**
+**1974:**<br>
 
 [https://www.youtube.com/embed/i3hDt5fEge0?feature=oembed](https://www.youtube.com/embed/i3hDt5fEge0?feature=oembed)
 
@@ -18,7 +18,7 @@ A scheduled gig at Madison Square Garden is cancelled to make room for recording
 
 Bruce and the E Street Band play the Municipal Auditorium Theater in Mobile, Alabama.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -26,7 +26,7 @@ Bruce and the E Street Band play the Municipal Auditorium Theater in Mobile, Ala
 
 Bruce and team complete the mix for "Stolen Car" at Clover Studios in Los Angeles.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/f0RNWwXcQiU?feature=oembed](https://www.youtube.com/embed/f0RNWwXcQiU?feature=oembed)
 
@@ -40,7 +40,7 @@ Bruce and team complete the mix for "Stolen Car" at Clover Studios in Los Angele
 
 The news is out: Bruce Springsteen is getting married to actress/model Julianne Phillips in Lake Oswego. When Juli's parents confirm the news, the press runs with the story.
 
-**1985:**
+**1985:**<br>
 
 
 
@@ -52,7 +52,7 @@ The news is out: Bruce Springsteen is getting married to actress/model Julianne 
 
 The Tunnel of Love Express heads to Bloomington, Minnesota for the first of two nights. Eavesdrop on the soundcheck below, featuring Nils singing lead on a cover of "He Can't Love You."
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/gz3jjnQH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gz3jjnQH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -86,7 +86,7 @@ Bruce continues his tour of Spain with a single show in Santiago. Watch terrific
 
 Bruce plays his first-ever show in Poland, the first of two nights at Sala Kongresowa in Warsaw.
 
-**1997:**
+**1997:**<br>
 
 [https://www.youtube.com/embed/eMbKtLHR_9A?feature=oembed](https://www.youtube.com/embed/eMbKtLHR_9A?feature=oembed)
 
@@ -114,7 +114,7 @@ Bruce and the E Street Band tour premiere "" at their final night of three at RD
 
 Bruce's voice falls victim to a cold but the show must go on when World Tour 2024 arrives in Belfast.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/q6i-F4IYBVc?feature=oembed](https://www.youtube.com/embed/q6i-F4IYBVc?feature=oembed)
 

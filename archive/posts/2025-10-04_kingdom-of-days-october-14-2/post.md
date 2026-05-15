@@ -4,7 +4,7 @@
 
 Bruce runs a classified ad in the Asbury Park Press seeking a "together and ready to travel" pianist and country violinist. Let's hope he finds at least one of them. Maybe David Sancious is still available?
 
-**1972:**
+**1972:**<br>
 
 
 
@@ -30,7 +30,7 @@ Bruce calls an out-of-left-field audible at his River Tour stop at Milwaukee's M
 
 Bruce plays his first-ever show in Argentina (although half of those in attendance were from Chile) when the Human Rights Now! Tour stops in Mendoza.
 
-**1988:**
+**1988:**<br>
 
 
 
@@ -38,11 +38,11 @@ Bruce plays his first-ever show in Argentina (although half of those in attendan
 
 Bruce jams with The Gotham Playboys (and future Sessions Band bandmates), who are once again the entertainment at Bruce's belated birthday party at his house in Colts Neck.
 
-**2000:**
+**2000:**<br>
 
 The first European leg of the Rising Tour kicks off in Paris, where Elliot Murphy makes a guest appearance for "Born to Run."
 
-**2002:**
+**2002:**<br>
 
 [https://www.youtube.com/embed/Rsfjntm1jok?feature=oembed](https://www.youtube.com/embed/Rsfjntm1jok?feature=oembed)
 

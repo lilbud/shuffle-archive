@@ -4,11 +4,11 @@
 
 Child performs at Hullabaloo in Asbury Park.
 
-**1969:**
+**1969:**<br>
 
 Bruce and the still-unnamed E Street Band perform a truncated show (for fire safety reasons) at Ursinus College in Collegeville, Pennsylvania.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce and the still-unnamed E Street Band perform a truncated show (for fire saf
 
 Bruce and the band play a sparsely attended show at the Freedom Hall Civic Center in Johnson City, Tennessee.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -32,7 +32,7 @@ Bruce works on mixes for his upcoming album at Clover Studios in Los Angeles.
 
 A scheduled River Tour show in Paris for this date was moved to April 18.
 
-**1981:**
+**1981:**<br>
 
 Bruce works on "" at his home studio in Los Angeles.
 
@@ -42,7 +42,7 @@ Bruce works on "" at his home studio in Los Angeles.
 
 The Tunnel of Love Express Tour moves on to Denver for a show a the McNichols Sports Arena.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/29cLHNnJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/29cLHNnJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -50,13 +50,13 @@ The Tunnel of Love Express Tour moves on to Denver for a show a the McNichols Sp
 
 The second of two nights in Rotterdam for Bruce's World Tour 1993.
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/VX775UJx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VX775UJx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce plays a solo acoustic show in Antwerp, rescheduled from March.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/bNxmQ6UM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bNxmQ6UM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -78,7 +78,7 @@ Another live debut for Milan at Night Two in the Fila Forum: Bruce opens with th
 
 At the Paramount Theater in Asbury Park, Bruce holds his final rehearsal before beginning his solo acoustic tour.
 
-**2005:**
+**2005:**<br>
 
 The first public warm-up show for the Seeger Sessions Tour features the premiere of "," "" and the album tracks.
 
@@ -100,7 +100,7 @@ The first public warm-up show for the Seeger Sessions Tour features the premiere
 
 Bruce attends (but does not perform at) the annual Kirsten Ann Carr Fund event.
 
-**2013:**
+**2013:**<br>
 
 At Baltimore's River show, "" features one of what turns into several marriage proposals along the tour.
 

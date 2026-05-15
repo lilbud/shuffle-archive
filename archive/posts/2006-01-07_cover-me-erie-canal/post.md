@@ -24,7 +24,7 @@ Here's the penultimate performance of "Erie Canal" to date, from the final Seege
 
 [Watch on Youtube: Bruce Springsteen with the Sessions Band - Erie Canal (Live In Dublin)](https://www.youtube.com/watch?v=dmHpXfP7S0k)
 
-**Erie Canal**
+**Erie Canal**<br>
 **Recorded:** March 19, 2005<br>
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>

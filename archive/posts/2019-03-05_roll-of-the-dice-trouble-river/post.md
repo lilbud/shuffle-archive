@@ -42,7 +42,7 @@ The band seems a bit nonplussed, too. Watch the video below (and yes, it's remar
 
 Whatever the reason, the song didn't seem to translate well to the E Street stage, and perhaps that's why we haven't seen it since. That's too bad–while I certainly wouldn't rank it amongst Bruce's best work, the successful recent outings for the musically similar "Seven Angels" and "All or Nothin' at All" suggest that there's a place for a song like "Trouble River" in Bruce's sets.
 
-**Trouble River**
+**Trouble River**<br>
 **Recorded** April 6, 1990  
 **Released:** *18 Tracks* (1999)
 **First performed:** August 1, 1999 (East Rutherford, NJ)

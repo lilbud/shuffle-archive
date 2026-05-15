@@ -80,7 +80,7 @@ Now more than ever, "Land of Hope and Dreams" is (in my opinion, at least) the m
 
 It's a national anthem for our times.
 
-**Land of Hope and Dreams**
+**Land of Hope and Dreams**<br>
 **Recorded:** July 1, 2000 (live), unknown (studio)**Released:** *Live in New York City* (2002), *Wrecking Ball* (2011)**First performed:** March 18, 1999 (Asbury Park, NJ)<br>
 **Last performed:** April 23, 2026 (Sunrise, FL)<br>
 

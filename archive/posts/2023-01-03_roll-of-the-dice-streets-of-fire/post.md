@@ -53,7 +53,7 @@ Or better yet: when the storm is inside.
 ---
 
 
-**Postscript:**
+**Postscript:**<br>
 
 I wasn't kidding earlier about the third verse missing half its lyrics. Bruce gets about halfway through and then gives up and just bluffs the rest.
 
@@ -75,7 +75,7 @@ But one would be forgetting: when it comes to "Streets of Fire," the words don't
 
 Don't listen. Just feel.
 
-**Streets of Fire**
+**Streets of Fire**<br>
 **Recorded** June 24 – December 29, 1977  
 **Released:** *Darkness on the Edge of Town* (1978)
 **First performed:** May 23, 1978 (Buffalo, NY)

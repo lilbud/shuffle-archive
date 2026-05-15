@@ -1,4 +1,4 @@
-***Editor's Note***
+***Editor's Note***<br>
 
 ****Katy Crane returns today with her third Two Faces entry. This one's a little bit different, though, and I'll let Katy explain why.*
 

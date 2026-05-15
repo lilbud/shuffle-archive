@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band play an afternoon show for the University of Pittsburgh and Carnegie Mellon University.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,15 +12,15 @@ Bruce and the E Street Band play an afternoon show for the University of Pittsbu
 
 Bruce makes his first-ever on-stage appearance at The Stone Pony in Asbury Park, sitting in with Steve Van Zandt and Southside Johnny's Blackberry Booze Band (the forerunner of The Asbury Jukes). Garry and Vini join in as well, and the jam lasts well into the night.
 
-**1974:**
+**1974:**<br>
 
 Bruce holds a recording session at The Record Plant in New York City.
 
-**1977:**
+**1977:**<br>
 
 The River Tour arrives in Chicago for the first of three nights at the Rosemont Horizon.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/G9I9gL8f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/G9I9gL8f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -44,7 +44,7 @@ After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio spec
 
 The Human Rights Now! Tour continues its global trek, arriving in Italy for one show in Turin.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/8DBwoLQ0yKE?feature=oembed](https://www.youtube.com/embed/8DBwoLQ0yKE?feature=oembed)
 
@@ -54,7 +54,7 @@ The Human Rights Now! Tour continues its global trek, arriving in Italy for one 
 
 Future honorary/second-generation E Streeter and Slipknot drummer Jay Weinberg is born. Jay will one day fill his father's shoes behind the drums when Max's TV commitments prevent him from appearing in many shows on the Working on a Dream Tour.
 
-**1990:**
+**1990:**<br>
 
 
 
@@ -72,7 +72,7 @@ Bruce wins the MTV Video Music Award for Best Video from a Film for "" (although
 
 Bruce and the reunited E Street Band play their first of two shows at The Palace of Auburn Hills.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/DjhQvXvh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DjhQvXvh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

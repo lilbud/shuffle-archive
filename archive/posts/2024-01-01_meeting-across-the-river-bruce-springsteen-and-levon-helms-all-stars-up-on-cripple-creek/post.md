@@ -17,6 +17,6 @@ And of course, here's the original by The Band from way back in 1969.
 August 22, 1987 (Asbury Park, NJ)
 April 21, 2017 (Asbury Park, NJ)
 
-**Up on Cripple Creek**
+**Up on Cripple Creek**<br>
 **First performed:**<br>
 **Last performed:**<br>

@@ -16,8 +16,8 @@ Bruce end up contributing lead vocals and a screaming guitar solo, and the finis
 
 "Black Boots" is a scorcher, featuring strong vocal performances from both Bruce and Matt and some serious shredding. It stayed under the radar upon its release, but it deserves to be in any Springsteen fan's collection.
 
-**Black Boots**
+**Black Boots**<br>
 **Recorded:** Late 2013**Released:** *Brotherhood* (2016)<br>
-**Never performed**
+**Never performed**<br>
 
 © November 8, 2021

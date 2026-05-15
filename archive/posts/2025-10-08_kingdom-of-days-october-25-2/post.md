@@ -4,15 +4,15 @@
 
 Steel Mill performs at the Richmond Arena.
 
-**1970:**
+**1970:**<br>
 
 Bruce and what will eventually be named the E Street Band (including new member Clarence Clemons) rehearse for their upcoming Greetings from Asbury Park Tour at Bill Herring's guitar store in Point Pleasant, New Jersey. That night, they play an impromptu performance at The Shipbottom Lounge in the Beacon Hotel.
 
-**1972:**
+**1972:**<br>
 
 Bruce and the E Street band play two shows at Dartmouth College.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce and the E Street band play two shows at Dartmouth College.
 
 Bruce plays his very first show in Oregon, to a small crowd at Portland's Paramount Theater.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -64,7 +64,7 @@ Bruce and the E Street Band start work on a new song, "No Surrender" at a record
 
 Bruce and the E Street Band kick off a seven-night Born in the U.S.A. Tour stand at the Los Angeles Memorial Sports Arena.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/qBRQ024Q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qBRQ024Q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -100,7 +100,7 @@ Danny Federici makes a guest appearance at Bruce's solo acoustic show in Santa B
 
 Bruce and the reunited E Street Band open their three-night stand at the Oakland Arena.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/RlmBmZimZ1E?feature=oembed](https://www.youtube.com/embed/RlmBmZimZ1E?feature=oembed)
 
@@ -130,7 +130,7 @@ At the final Seeger Sessions show of the Spanish leg in Santander, Bruce tour de
 
 Bruce and the E Street Band bring the Magic Tour to the Oracle Arena in Oakland for the first of two nights.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/5uNraGEh8fg?feature=oembed](https://www.youtube.com/embed/5uNraGEh8fg?feature=oembed)
 
@@ -164,7 +164,7 @@ Bruce's Wrecking Ball show in Hartford rockets out of the gate with the tour pre
 
 Bruce takes his mother to see Ringo Starr & His All-Starr Band perform at the New Jersey State Theater in New Brunswick.
 
-**2015:**
+**2015:**<br>
 
 
 
@@ -172,11 +172,11 @@ Bruce takes his mother to see Ringo Starr & His All-Starr Band perform at the Ne
 
 Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2017:**
+**2017:**<br>
 
 Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: President Bill Clinton and Secretary Hillary Clinton.
 
-**2018:**
+**2018:**<br>
 
 
 

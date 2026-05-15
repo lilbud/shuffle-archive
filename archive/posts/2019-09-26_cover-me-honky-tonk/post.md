@@ -18,6 +18,6 @@ For a completely (and suitably) improv performance, the band nailed it–which l
 
 And yet to this day, we have no record of Bruce and the E Street Band playing "Honky Tonk" before or ever after.
 
-**Honky Tonk**
+**Honky Tonk**<br>
 **First performed:** July 16, 1978 (New Orleans, LA)<br>
 **Last performed:** July 16, 1978 (New Orleans, LA)<br>

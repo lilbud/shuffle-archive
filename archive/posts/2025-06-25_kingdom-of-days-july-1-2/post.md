@@ -4,7 +4,7 @@
 
 Bruce makes a guest appearance with Norman Seldin and the Joyful Noyze, of which Clarence Clemons is a member. This is only the third time Bruce has ever performed with Clarence.
 
-**1972:**
+**1972:**<br>
 
 Bruce, David Sancious, Richard Blackwell, and Suki Lahav layer overdubs onto "" at 914 Sound Studios in Blauvelt, completing the song. It will remain unreleased for another 25 years.
 
@@ -80,7 +80,7 @@ Bruce joins Brian Wilson at the PNC Banks Arts Center in Holmdel, New Jersey, fo
 
 Bruce has the night off from his Broadway show, but he still spends it in New York. U2 is in concert at Madison Square Garden, and Bruce is there to see the show.
 
-**2018:**
+**2018:**<br>
 
 
 

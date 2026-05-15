@@ -4,7 +4,7 @@
 
 Earth plays two shows at the Off Broad Street Coffee House in Red Bank, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -32,7 +32,7 @@ Bruce and the E Street Band play their first of two shows at the Houston Music H
 
 Bruce makes a guest appearance at The Stone Pony with Southside Johnny and the Asbury Jukes, at a benefit show for Bob Campanell of The Shakes.
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -40,7 +40,7 @@ Bruce makes a guest appearance at The Stone Pony with Southside Johnny and the A
 
 The Darkness Tour stops for a night in Springfield.
 
-**1978:**
+**1978:**<br>
 
 [https://videopress.com/embed/uRJrVPG4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uRJrVPG4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -48,7 +48,7 @@ The Darkness Tour stops for a night in Springfield.
 
 The River Tour enters its last stand with the first of two nights at Cincinnati's Riverfront Coliseum.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/AfYeFiTk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AfYeFiTk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -60,7 +60,7 @@ The River Tour enters its last stand with the first of two nights at Cincinnati'
 
 Washington Post columnist George Will publishes a column praising Bruce as a paragon of conservative American values, sparking a debate over the meaning behind Bruce's music and performance. Within a week, the president of the United States will weigh in.
 
-**1984:**
+**1984:**<br>
 
 
 
@@ -96,7 +96,7 @@ Why isn't Bruce there to accept his award? Because he's on stage with the E Stre
 
 Despite some lead-up controversy, Bruce plays his first and only show to date in Costa Rica when the Human Rights Now! Tour arrives in San Jose.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/heGNgcLdW1E?feature=oembed](https://www.youtube.com/embed/heGNgcLdW1E?feature=oembed)
 
@@ -104,11 +104,11 @@ Despite some lead-up controversy, Bruce plays his first and only show to date in
 
 Bruce works on overdubs and mixing for "Streets of Philadelphia" at Thrill Hill West in Beverly Hills.
 
-**1993:**
+**1993:**<br>
 
 Bruce and Patti attend a beach party in Sea Bright to benefit the Count Basie Learning Center in Red Bank.
 
-**1998:**
+**1998:**<br>
 
 
 
@@ -116,7 +116,7 @@ Bruce and Patti attend a beach party in Sea Bright to benefit the Count Basie Le
 
 Bruce and the reunited E Street Band kick off a six-night stand at Philadelphia's First Union Center.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/Ts6lVoai?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ts6lVoai?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -146,7 +146,7 @@ The Rising Tour is in its last month, and the set lists are getting looser. Bruc
 
 Bruce and the E Street Band rehearse for their upcoming Magic Tour at Asbury Park's Convention Hall.
 
-**2007:**
+**2007:**<br>
 
 Bruce and the band take the Working on a Dream Tour to Sunrise, Florida, where the encores include the surprising tour premiere of "" Oh, and "Hava Nagilla." (Not really, just a snippet.)
 

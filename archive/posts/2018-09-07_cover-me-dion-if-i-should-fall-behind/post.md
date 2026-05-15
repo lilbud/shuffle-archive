@@ -6,7 +6,7 @@ Dion gave it his signature doo-wop treatment, and the result is so perfect that 
 
 [Watch on Youtube: Dion - If I Should Fall Behind](https://www.youtube.com/watch?v=TBGO_OBp9y8)
 
-**Bonus:**
+**Bonus:**<br>
 
 Dion and Bruce performed "If I Should Fall Behind" together a couple of times. Here's the first, from The Ghost of Tom Joad Tour, in Sunrise, Florida.
 

@@ -25,6 +25,6 @@ Together with John Eddie, Greg Kihn, Marshall Crenshaw, and Elliott Murphy, Bruc
 October 21, 1994 (Sayreville, NJ)
 October 21, 1994 (Sayreville, NJ)
 
-**Get It On**
+**Get It On**<br>
 **First performed:**<br>
 **Last performed:**<br>

@@ -16,7 +16,7 @@ Two hours later my company and I are inside the venue and to our surprise IN the
 
 ![](../../assets/2019/05/anna.jpg)
 
-**The show**
+**The show**<br>
 
 Bruce Springsteen and the extended E Street Band get on stage around eight o'clock. Bruce is wearing black: jeans, a shirt and a vest. His face is slightly tanned.
 

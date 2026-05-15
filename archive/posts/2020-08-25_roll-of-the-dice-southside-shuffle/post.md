@@ -34,9 +34,9 @@ As for the lyrics, like I said: they're beside the point, and they require no an
 
 Don't dismiss "Southside Shuffle" based on its fluffy lyrical substance, though–the nascent talent on display is astounding. That performance will turn 50 years old next spring, and most of those players are still going strong.
 
-**Southside Shuffle**
-**Never recorded**
-**Never released**
+**Southside Shuffle**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** May 15, 1971 (Union, NJ)
 **Last performed:** May 15, 1971 (Union, NJ)
 

@@ -10,17 +10,17 @@ The Castiles play the Matawan-Keyport Roller Drome in Matawan, serving as the ba
 
 Bruce jams at an open mic night at The Upstage in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 The Bruce Springsteen Band plays show number eight of nine at The Back Door in Richmond.
 
-**1972:**
+**1972:**<br>
 
 [https://videopress.com/embed/rk5jflxT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/rk5jflxT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce plays his first west coast show since signing his record deal at The Troubadour in West Hollywood, opening for Pan. When his guitar amp dies a couple of songs in, Bruce finishes the rest of his set on piano.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce plays his first west coast show since signing his record deal at The Troub
 
 Bruce and the E Street Band play the Indiana Convention Center in Indianapolis.
 
-**1977:**
+**1977:**<br>
 
 [https://videopress.com/embed/rnSgE4Xn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/rnSgE4Xn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -36,7 +36,7 @@ Bruce and the E Street Band play the Indiana Convention Center in Indianapolis.
 
 The River Tour moves on to the Nashville Municipal Auditorium.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/bWl65Snm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bWl65Snm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -90,7 +90,7 @@ Bruce stops by to collect Max for the upcoming Reunion Tour and performs a fun "
 
 Bruce and the band rehearse for the next leg of the Magic Tour at Convention Hall in Asbury Park.
 
-**2008:**
+**2008:**<br>
 
 The E Street Band wraps up their Australian tour in Brisbane with surprises galore: the show opens with a fantastic cover of "" by the Bee Gees, featuring a string section. The strings came back later in the show for a rare outing of "New York City Serenade" at the end of a full album performance. Eddie Vedder joins the band in the encores for "Highway to Hell."
 

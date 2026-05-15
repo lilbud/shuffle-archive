@@ -8,6 +8,6 @@ Strummer's love for Glastonbury is well known, and "Coma Girl" itself is reporte
 
 [Watch on Youtube: Joe Strummer & The Mescaleros - Coma Girl](https://www.youtube.com/watch?v=x7YHHK9WReY)
 
-**Coma Girl**
+**Coma Girl**<br>
 **First performed:** June 27, 2009 (Pilton, England)<br>
 **Last performed:** June 27, 2009 (Pilton, England)<br>

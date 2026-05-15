@@ -33,7 +33,7 @@ That's indeed what it all boils down to: trust or distrust. Which angel does the
 
 Here's hoping we see an encore performance soon!
 
-**Seven Angels**
+**Seven Angels**<br>
 **Recorded:** June 29, 1990  
 **Released:** *Tracks* (1998)
 **First performed:** May 18, 2014 (Uncasville, CT)

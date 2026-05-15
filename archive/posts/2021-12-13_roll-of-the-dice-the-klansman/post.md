@@ -35,9 +35,9 @@ We're left to wonder which path the boy chose for himself, which is undoubtedly 
 
 Rumors still fly about a someday-soon box set treatment for *Born in the U.S.A.* and its contemporary outtakes. Odds are good–or at least they *should* be–that "The Klansman" will finally see a release if and when.
 
-**The Klansman**
+**The Klansman**<br>
 **Recorded:** March 10, 1983  
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

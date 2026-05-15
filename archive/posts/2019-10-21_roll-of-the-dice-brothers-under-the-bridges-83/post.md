@@ -72,11 +72,11 @@ This older (wiser?) narrator is still by the highway, but it's no longer the car
 
 The last line of the song implies that our hero has finally joined the brotherhood–and he's beginning to suspect that the secrets they share are not as romantic as his younger self imagined. In a dozen years, Bruce would revisit our young hero and his brotherhood and show us just how prescient that last verse was.
 
-**To be continued in Roll of the Dice: [Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/)**
+**To be continued in Roll of the Dice: [Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/)**<br>
 
-**Brothers Under the Bridges**
+**Brothers Under the Bridges**<br>
 **Recorded** September 14 – October 10, 1983  
 **Released:** *Tracks* (1998)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

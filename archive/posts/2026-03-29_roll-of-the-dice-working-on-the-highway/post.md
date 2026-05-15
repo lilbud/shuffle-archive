@@ -53,7 +53,7 @@ Pretty amazing how the slower melody lets the meaning of the lyrics leap out at 
 
 You're welcome.
 
-**Update 3/29/2026:**
+**Update 3/29/2026:**<br>
 
 Late last year, Bruce released an expanded *Nebraska '82* box set, with a bonus disc entitled *Nebraska Outtakes*. Among the "outtakes" included was a charming acoustic version of "Working on the Highway," featuring an extra verse that would be excised from the final *Born in the U.S.A.* version.
 
@@ -63,7 +63,7 @@ However, while I'm certainly grateful for any unearthed early versions of classi
 
 Bruce recorded it on April 30, 1982, more than two weeks after he'd begun shaping and rehearsing the song with the E Street Band. More likely than not, it was an attempt by Bruce to capture solo the arrangement and feel he was aiming for with the band (and I'd argue he was successful). His laughter early on and at the end of the track suggests this take was never seriously considered for release.
 
-**Working on the Highway**
+**Working on the Highway**<br>
 **Recorded** (final version): May 6, 1982  
 **Released:** *Born in the U.S.A.* (1984)
 **First Performed:** June 29, 1984 (St. Paul, MN)

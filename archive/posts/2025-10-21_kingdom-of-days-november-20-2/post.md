@@ -4,7 +4,7 @@
 
 Steel Mill headlines at the Free University in Richmond.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -12,7 +12,7 @@ Steel Mill headlines at the Free University in Richmond.
 
 : The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971**
+**1971**<br>
 
 
 
@@ -20,7 +20,7 @@ Steel Mill headlines at the Free University in Richmond.
 
 Bruce and the E Street Band bring the Darkness Tour to the University of Illinois at Champaign.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/yhJqumucMCY?feature=oembed](https://www.youtube.com/embed/yhJqumucMCY?feature=oembed)
 
@@ -72,7 +72,7 @@ Bruce sits down for a remarkable 50-minute television interview with Charlie Ros
 
 In town a day early for their show in Orlando, Bruce and the band have dinner at the Hard Rock cafe after Steve gets in a round of golf.
 
-**2002:**
+**2002:**<br>
 
 
 
@@ -80,7 +80,7 @@ In town a day early for their show in Orlando, Bruce and the band have dinner at
 
 On their day off in Ireland, Bruce spends the afternoon at Slane Castle, where he and Patti dine and celebrate with Lord and Lady Mount Charles.
 
-**2006:**
+**2006:**<br>
 
 
 
@@ -88,7 +88,7 @@ On their day off in Ireland, Bruce spends the afternoon at Slane Castle, where h
 
 The day after an emotional show spotlighting Danny Federici, Bruce confirms what fans already feared: Danny is taking a leave of absence to receive treatment for melanoma. "Danny is one of the pillars of our sound," Bruce writes. "We all eagerly await his healthy and speedy return."
 
-**2007:**
+**2007:**<br>
 
 
 

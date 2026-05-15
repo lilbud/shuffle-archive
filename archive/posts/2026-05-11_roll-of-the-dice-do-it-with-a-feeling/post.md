@@ -51,7 +51,7 @@ Still, it strikes a theme so Springsteenian that it's practically his mission st
 Even for a Bruce Springsteen Band fan like myself, "Do It With a Feeling" is forgettable, but it demonstrates that Bruce's early band eras weren't as distinct as we might otherwise think.
 
 **Do It With a Feeling**  
-**Never recorded**
+**Never recorded**<br>
 **Never released**  
 **First performed:** July 22, 1971 (South Amboy, NJ)  
 **Last performed:** October 23, 1971 (Richmond, VA)

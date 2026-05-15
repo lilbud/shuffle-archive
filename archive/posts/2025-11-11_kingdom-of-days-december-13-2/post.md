@@ -4,7 +4,7 @@
 
 Newly discovered contemporaneous press coverage (dated December 26 1973) suggests Bruce played a show (or at least was scheduled to) at the Shaboo Inn in Willimantic Connecticut.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Newly discovered contemporaneous press coverage (dated December 26 1973) suggest
 
 Bruce and the E Street Band play a Darkness Tour show at the Tucson Community Center Arena. Before the show, Bruce gives an interview to San Francisco radio station KSAN-FM. It will be aired two days later during what will prove to be one of Bruce's most legendary shows.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/JX5nlFu8oBE?feature=oembed](https://www.youtube.com/embed/JX5nlFu8oBE?feature=oembed)
 
@@ -34,7 +34,7 @@ Bruce and the E Street Band play a Darkness Tour show at the Tucson Community Ce
 
 Bruce and the band play their first of two Born in the U.S.A. shows at the Mid-South Coliseum in Memphis.
 
-**1984:**
+**1984:**<br>
 
 [https://www.youtube.com/embed/UzMaKpyptz4?feature=oembed](https://www.youtube.com/embed/UzMaKpyptz4?feature=oembed)
 
@@ -82,13 +82,13 @@ Patti makes a guest appearance when World Tour 1992 stops in Boston for the firs
 
 Bruce brings his solo acoustic tour to the Beacon Theater in New York City for the second of three nights.
 
-**1995:**
+**1995:**<br>
 
 [https://www.youtube.com/embed/4-ut6-51V8A?feature=oembed](https://www.youtube.com/embed/4-ut6-51V8A?feature=oembed)
 
 Bruce makes a guest appearance at Joe Grushecky's acoustic show at Cheers in Long Branch, New Jersey.
 
-**1997:**
+**1997:**<br>
 
 
 

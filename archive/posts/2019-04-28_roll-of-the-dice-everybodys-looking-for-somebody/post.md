@@ -12,9 +12,9 @@ So please give it a shot, and then you tell me. Take a listen below, and leave a
 
 [Watch Video Highlight](https://videopress.com/embed/cFNkYdxa)
 
-**Everybody's Looking for ???**
+**Everybody's Looking for ???**<br>
 **Recorded:** September-December 1979<br>
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -45,7 +45,7 @@ And the check out the next verse:
 > *We hide from truth in our hearts*
 > *Like one look and everything will fall apart*
 > *Here in your arms, soft decay*
-***I can feel myself wasting away***
+***I can feel myself wasting away***<br>
 
 That last line echoes "Streets of Philadelphia" as well: "So brother are you gonna leave me wasting away"
 
@@ -58,9 +58,9 @@ The similarities in language and imagery sways me toward believing that "Waiting
 
 What do you think?
 
-**Waiting on the End of the World**
+**Waiting on the End of the World**<br>
 **Recorded:** January 1995  
-**Never Released**
-**Never Performed**
+**Never Released**<br>
+**Never Performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

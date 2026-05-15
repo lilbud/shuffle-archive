@@ -8,20 +8,20 @@ There is some merit to that argument: musically, the melody is a dead ringer for
 
 And lyrically, a late verse sounds *very* similar to "Wings for Wheels," which was *definitely* an early version of "Thunder Road:"
 
-**From "Walking in the Street.."**
+**From "Walking in the Street.."**<br>
 
 > *Oh baby, I can't lay the stars at your feet,  
 Oh but I think we could take it all , just you and me  
 Oh come on and see there's a lot of room for you baby in this front seat.*
 
-**…to "Wings for Wheels…"**
+**…to "Wings for Wheels…"**<br>
 
 > *Maybe I can't lay the stars at your feet,  
 But I got this old car and she's pretty tough to beat*
 > *There's plenty of room in my front seat*
 > *If you think you can make it, climb in.*
 
-**to "Thunder Road."**
+**to "Thunder Road."**<br>
 
 > *Well, I ain't no hero, that's understood.*
 > *All the redemption I can offer, girl, is beneath this dirty hood*
@@ -42,9 +42,9 @@ Walking in the street with nowhere to go.*
 
 So give a listen to this never-released, never-performed classic, lost somewhere with Billy and Cherry, forever walking in the street with nowhere to go.
 
-**Walking in the Street**
+**Walking in the Street**<br>
 **Recorded** August-September 1974  
 **Never released**  
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

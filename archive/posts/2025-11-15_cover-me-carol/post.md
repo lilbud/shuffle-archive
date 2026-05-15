@@ -32,7 +32,7 @@ Bruce's ease and familiarity with Berry's song is evident in every performance, 
 
 "Carol" made her last appearance with Bruce at a Stone Pony appearance with Cats on a Smooth Surface in 1989. But even though she hasn't been seen since, don't count her out. "Carol" is a perennial favorite of rock and roll bands to this day.
 
-**Carol**
+**Carol**<br>
 **First performed:** July 26, 1975 (Kutztown, PA)
 **Last performed:** July 23, 1989 (Asbury Park, NJ)
 

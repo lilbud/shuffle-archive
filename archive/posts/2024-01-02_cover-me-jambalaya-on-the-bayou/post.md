@@ -23,7 +23,7 @@ Whatever made Bruce play that particular song on that particular day, we should 
 October 11, 1998 (Colts Neck, NJ)
 January 23, 2010 (Asbury Park, NJ)
 
-**Jambalaya (On the Bayou)**
+**Jambalaya (On the Bayou)**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

@@ -24,9 +24,9 @@ Yeah, I know that's probably not gonna happen.
 
 But I can dream.
 
-**Crazy Rocker**
+**Crazy Rocker**<br>
 **Recorded:** August 1977<br>
-**Never released**
-**Never performed**
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

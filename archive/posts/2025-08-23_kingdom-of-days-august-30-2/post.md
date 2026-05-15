@@ -4,7 +4,7 @@
 
 Bruce plays an unadvertised acoustic set at Max's Kansas City in New York.
 
-**1972:**
+**1972:**<br>
 
 Bruce and the E Street Band are in the studio, recording material for what will become .
 
@@ -28,11 +28,11 @@ Later that night–so late that it's technically the following day, August 31–
 
 Bruce joins Cats on a Smooth Surface on stage at a private event at Jon Jon's in Wall, New Jersey.
 
-**1982:**
+**1982:**<br>
 
 Bruce's scheduled return to Giants Stadium is postponed due to rain, meaning this show will unexpectedly become the closing night of a six-show stand.
 
-**1985:**
+**1985:**<br>
 
 
 
@@ -44,7 +44,7 @@ Bruce's scheduled return to Giants Stadium is postponed due to rain, meaning thi
 
 Julianne Phillips files for divorce after newspaper tabloids published pictures of Bruce and Patti caught in intimate circumstances earlier in the summer.
 
-**1988:**
+**1988:**<br>
 
 
 
@@ -88,7 +88,7 @@ An epilogue for the Magic Tour: Bruce and the E Street Band headline the Harley 
 
 Bruce watches his daughter Jessica compete at the 34th annual Hampton Classic.
 
-**2009:**
+**2009:**<br>
 
 
 

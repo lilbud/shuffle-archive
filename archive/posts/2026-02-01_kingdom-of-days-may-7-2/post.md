@@ -2,7 +2,7 @@
 
 Four days before Bruce's scheduled show at Auburn University, Bruce makes an unannounced visit to the campus… or does he? (h/t Bud McLaughlin)
 
-**1976:**
+**1976:**<br>
 
 [https://www.youtube.com/embed/mG2oL2ONmvc?start=11&amp;feature=oembed](https://www.youtube.com/embed/mG2oL2ONmvc?start=11&amp;feature=oembed)
 
@@ -16,17 +16,17 @@ At a mixing station for at Clover Studios in Los Angeles, Bruce and team complet
 
 Bruce and the E Street Band play their first of two nights at Johanneshovs Isstadion in Stockholm.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/WskRlbSBWuU?feature=oembed](https://www.youtube.com/embed/WskRlbSBWuU?feature=oembed)
 
 Bruce and the E Street Band work on "My Love Will Not Let You Down" at the Power Station in New York City.
 
-**1982:**
+**1982:**<br>
 
 Bruce and the E Street Band rehearse for the Born in the U.S.A. Tour at what was once Big Man's West.
 
-**1984:**
+**1984:**<br>
 
 Bruce appears in a commercial with Tom Hanks to promote his upcoming appearance on .
 
@@ -36,7 +36,7 @@ Bruce appears in a commercial with Tom Hanks to promote his upcoming appearance 
 
 Bruce's mini-tour of Spain continues with a show in Gijon, featuring the tour premiere of "Across the Borderline" (with its final verse in Spanish).
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/p3uQfHSFNzw?feature=oembed](https://www.youtube.com/embed/p3uQfHSFNzw?feature=oembed)
 
@@ -56,13 +56,13 @@ Bruce performs his second of two solo acoustic shows at Teatro Tivoli in Barcelo
 
 On Night Two in Vienna during Bruce's first-ever tour stop in Austria, Patti makes a guest appearance in the encores, joining Bruce on "Two Hearts."
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/vUOwcBfv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vUOwcBfv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce brings the Reunion Tour to Hartford for the first of two nights.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/owthSofs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/owthSofs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -70,7 +70,7 @@ Bruce brings the Reunion Tour to Hartford for the first of two nights.
 
 At his solo acoustic show in Denver, Bruce plays the tour debut of "The Promise."
 
-**2005:**
+**2005:**<br>
 
 [https://videopress.com/embed/NWEGes7W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NWEGes7W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -96,7 +96,7 @@ Bruce and the E Street Band (with guests The Mighty Max Horns) play a benefit sh
 
 Bruce plays the tour premiere of "Louie Louie" at the Air Canada Center in Toronto on the Working on a Dream Tour.
 
-**2009:**
+**2009:**<br>
 
 [https://videopress.com/embed/BEpViGto?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BEpViGto?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -108,7 +108,7 @@ Bruce plays the tour premiere of "Louie Louie" at the Air Canada Center in Toron
 
 At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce and the band play "Brilliant Disguise" for the first time on the tour and open the encores with a rare "Queen of the Supermarket."
 
-**2013:**
+**2013:**<br>
 
 [https://www.youtube.com/embed/QuKwfdLA4gQ?feature=oembed](https://www.youtube.com/embed/QuKwfdLA4gQ?feature=oembed)
 
@@ -122,7 +122,7 @@ At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce an
 
 Bruce and Patti fly to Los Angeles for the USC Shoah Foundation's Ambassadors for Humanity gala, where Bruce performs "The Promised Land" and "Dancing in the Dark."
 
-**2014:**
+**2014:**<br>
 
 [https://www.youtube.com/embed/sRHdTW95P_A?feature=oembed](https://www.youtube.com/embed/sRHdTW95P_A?feature=oembed)
 
@@ -130,7 +130,7 @@ Bruce and Patti fly to Los Angeles for the USC Shoah Foundation's Ambassadors fo
 
 Bruce and the E Street Band play their second of three shows at RDS Arena in Dublin.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/dh7XP_cIJ7E?feature=oembed](https://www.youtube.com/embed/dh7XP_cIJ7E?feature=oembed)
 

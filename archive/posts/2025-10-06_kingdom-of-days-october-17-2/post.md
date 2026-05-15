@@ -4,7 +4,7 @@
 
 Steel Mill headlines at Monmouth College, where Danny Federici, still on the lam after the infamous swim club show, makes an appearance and turns himself in shortly thereafter.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -16,7 +16,7 @@ Steel Mill headlines at Monmouth College, where Danny Federici, still on the lam
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -24,7 +24,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 Bruce and the E Street Band play their third of five nights at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -36,7 +36,7 @@ Bruce and the E Street Band work on "" during a recording session at 914 Sound S
 
 Bruce and the E Street Band play two shows at the Roxy in West Hollywood, the first of which is broadcast live on the radio.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/Lg01I4qSQf4?feature=oembed](https://www.youtube.com/embed/Lg01I4qSQf4?feature=oembed)
 
@@ -48,7 +48,7 @@ Bruce and the E Street Band play two shows at the Roxy in West Hollywood, the fi
 
 Bruce and the boys play their first of two Lawsuit Tour shows at Georgetown University.
 
-**1976:**
+**1976:**<br>
 
 [https://videopress.com/embed/y9o1VLNX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/y9o1VLNX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -62,7 +62,7 @@ Bruce makes a guest appearance with The Knack at their show at the Troubadour in
 
 Photographer David Gahr captures Bruce and the E Street Band on film during a day of photo shoots in New Jersey.
 
-**1979:**
+**1979:**<br>
 
 
 
@@ -78,7 +78,7 @@ Photographer David Gahr captures Bruce and the E Street Band on film during a da
 
 Bruce and the E Street Band play a show–the first of two on the River Tour–at the Kiel Opera House in St. Louis.
 
-**1980:**
+**1980:**<br>
 
 [https://videopress.com/embed/bxlCMxZT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bxlCMxZT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -86,7 +86,7 @@ Bruce and the E Street Band play a show–the first of two on the River Tour–a
 
 Bruce and the E Street Band play their first of two Born in the U.S.A. Tour shows at the Tacoma Dome. Bruce starts to come down with flu symptoms earlier in the day, and by the time the show ends, he is full-blown sick.
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/VH3WetqL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VH3WetqL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -102,7 +102,7 @@ Bruce and the E Street Band play their first of two Born in the U.S.A. Tour show
 
 World Tour 1992 continues its Canadian leg with a show at the Olympic Saddledome in Calgary, Bruce's first-ever show in Alberta.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/6SNwRz24?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6SNwRz24?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -134,13 +134,13 @@ Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushec
 
 Bruce plays the second of two solo acoustic Ghost of Tom Joad Tour shows at Denver's Paramount Theater.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/0padY2o4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0padY2o4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the reunited E Street Band kick off a four-night stand in Los Angeles with the very first concert to be held at the new Staples Center.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/vZj3KOnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vZj3KOnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -168,7 +168,7 @@ Bruce straps on an electric guitar for a change, when he takes a short break fro
 
 The young Magic Tour moves on to Madison Square Garden for the first of two nights.
 
-**2007:**
+**2007:**<br>
 
 [https://videopress.com/embed/U5CleNrI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/U5CleNrI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -182,11 +182,11 @@ The young Magic Tour moves on to Madison Square Garden for the first of two nigh
 
 Bruce, Patti, Southside Johnny, and Bobby Bandiera and his band perform at a school benefit show at The Stone Pony.
 
-**2009:**
+**2009:**<br>
 
 Bruce speaks his mind on the U.S. presidential election and other topics at a press event at the Institute of Contemporary Arts in London. Later in the day, he makes a promotional book tour appearance at Waterstones book store.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/1_UoZ8wP6zg?feature=oembed](https://www.youtube.com/embed/1_UoZ8wP6zg?feature=oembed)
 

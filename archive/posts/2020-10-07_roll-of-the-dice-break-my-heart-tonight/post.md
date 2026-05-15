@@ -22,9 +22,9 @@ That one didn't go anywhere either.
 
 But Bruce wasn't about to give up on that riff. Before long, he found a new home for it, and by August he and the band had recorded "[Dollhouse](https://estreetshuffle.com/index.php/2020/08/15/roll-of-the-dice-dollhouse/)."
 
-**Break My Heart (Tonight)**
-**Never recorded**
-**Never released**
-**Never performed**
+**Break My Heart (Tonight)**<br>
+**Never recorded**<br>
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

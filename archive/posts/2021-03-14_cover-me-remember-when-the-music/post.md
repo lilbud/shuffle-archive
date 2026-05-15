@@ -26,6 +26,6 @@ Over the years and decades that followed, Bruce would involve and at times immer
 
 While Bruce never again performed "Remember When the Music," to this day he continues to tip his hat to Chapin through his ongoing support for [WhyHunger](https://whyhunger.org/?s=springsteen), the non-profit Chapin started.
 
-**Remember When the Music**
+**Remember When the Music**<br>
 **First performed:** December 7, 1987 (New York City, NY)<br>
 **Last performed:** December 7, 1987 (New York City, NY)<br>

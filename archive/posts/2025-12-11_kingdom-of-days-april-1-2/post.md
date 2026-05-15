@@ -2,7 +2,7 @@
 
 Bruce and his "strange but adept" band headline a show at Rutgers University.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -10,7 +10,7 @@ Bruce and his "strange but adept" band headline a show at Rutgers University.
 
 Bruce and the band cancel a scheduled show at Butler University when the school is unable to front the band's appearance fee. Instead, they play a Chicken Scratch gig at Ohio University in Athens, where the venue takes some heavy damage as a result.
 
-**1976:**
+**1976:**<br>
 
 
 
@@ -30,7 +30,7 @@ Bruce and his studio team work on mixing and overdubs for at the Power Station i
 
 Bruce and the band play the first of two shows at Nassau Coliseum, where a sneaky fan films the show from behind the stage.
 
-**1988:**
+**1988:**<br>
 
 [https://videopress.com/embed/ncuIPX6s?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ncuIPX6s?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -50,7 +50,7 @@ The Tour kicks off at HP Pavilion in San Jose. "Good Eye" is performed for the o
 
 On opening night of the Major League Baseball season in Miami, Clarence plays the national anthem.
 
-**2011:**
+**2011:**<br>
 
 [https://www.youtube.com/embed/uijnPTZfQVY?feature=oembed](https://www.youtube.com/embed/uijnPTZfQVY?feature=oembed)
 
@@ -60,7 +60,7 @@ Meanwhile, Bruce joins Little Steven at the Underground Garage for part one of a
 
 At the Verizon Center in Washington, DC, Bruce and the E Street Band play "The Promise" in a full-band arrangement for only the third time ever. "Adam Raised a Cain" and "Out in the Street" make their tour premieres tonight as well.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/w1DPQX36v20?feature=oembed](https://www.youtube.com/embed/w1DPQX36v20?feature=oembed)
 
@@ -72,7 +72,7 @@ At the Verizon Center in Washington, DC, Bruce and the E Street Band play "The P
 
 Bruce tour debuts "Jungleland" at Madison Square Garden when the reprise of the River Tour makes a stop in New York City. Paul McCartney is in attendance tonight.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/RIMN6GUDKqM?feature=oembed](https://www.youtube.com/embed/RIMN6GUDKqM?feature=oembed)
 

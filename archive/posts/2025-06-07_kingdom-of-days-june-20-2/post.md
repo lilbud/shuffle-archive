@@ -4,11 +4,11 @@
 
 Steel Mill plays their second of two nights at The String Factory in Richmond.
 
-**1970:**
+**1970:**<br>
 
 The Sundance Blues Band plays an afternoon gig at The Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -26,7 +26,7 @@ Bruce and the E Street Band play Red Rocks for the first time at this Darkness T
 
 Bruce and the E Street Band work on "Stolen Car" at The Power Station in New York City.
 
-**1979:**
+**1979:**<br>
 
 Bruce makes his by now customary "surprise" appearance with Cats on a Smooth Surface at The Stone Pony, with a setlist that includes covers of "," "," "," "," and more.
 
@@ -38,11 +38,11 @@ Bruce makes his by now customary "surprise" appearance with Cats on a Smooth Sur
 
 Bruce makes a guest appearance with Bobby Bandiera at Martell's Sea Breeze in Point Pleasant Beach, New Jersey.
 
-**1989:**
+**1989:**<br>
 
 World Tour 1992 moves on from Stockholm to Milan, with this first of two nights at Forum di Assago.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/Sx92iRWL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Sx92iRWL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -98,7 +98,7 @@ Bruce and the Sessions Band deliver a great show at the Tweeter Center in Camden
 
 Fans gather at The Stone Pony to remember Clarence Clemons, who passed away two days prior.
 
-**2011:**
+**2011:**<br>
 
 [https://www.youtube.com/embed/456baiiyLcs?feature=oembed](https://www.youtube.com/embed/456baiiyLcs?feature=oembed)
 
@@ -116,7 +116,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and Patti attend a celebration of life at The Stone Pony for the late Kerry Layton, Patti's life-long friend.
 
-**2019:**
+**2019:**<br>
 
 
 

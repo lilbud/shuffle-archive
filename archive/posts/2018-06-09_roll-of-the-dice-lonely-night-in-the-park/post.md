@@ -130,6 +130,6 @@ Lonely lonely lonely night…
 
 **Lonely Night in the Park****Recorded:** Feb-Apr, 1975  
 **Never Released**  
-**Never Performed**
+**Never Performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

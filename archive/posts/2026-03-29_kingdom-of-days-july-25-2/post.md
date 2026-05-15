@@ -52,7 +52,7 @@
 
 ![](../../assets/2018/07/evan-2.jpg)
 
-**![](../../assets/2020/07/1990-07-25.png)**
+**![](../../assets/2020/07/1990-07-25.png)**<br>
 
 **1992:** On Night Two (of eleven!) at Brendan Byrne Arena in East Rutherford on World Tour 1992, Bruce tour premieres "Open All Night" and "Ninety-nine and a Half (Won't Do)." He also plays "Real Man" for the last time to date. This show is available for purchase as part of Bruce's official archive series.
 

@@ -4,15 +4,15 @@
 
 The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 Child plays an under-the-radar show at Monmouth College in West Long Branch, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 Steel Mill headlines a show at the Clearwater Swim Club in Atlantic Highlands, New Jersey. The band plays to their largest crowd yet–about 4,000 people–and Garry Tallent's band Glory Road opens the show.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -28,7 +28,7 @@ Bruce and his band gather at 914 Sound Studios in Blauvelt, New York to kick off
 
 Bruce and the E Street Band play two shows on their second of three consecutive nights at Le Garage on Long Beach Island.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -36,11 +36,11 @@ Bruce and the E Street Band play two shows on their second of three consecutive 
 
 Bruce shaves his beard completely off. It hasn't been seen since.
 
-**1976:**
+**1976:**<br>
 
 Bruce and the E Street Band play at Max Weinberg's wedding in East Orange, New Jersey.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/BYSy8wMTC34?feature=oembed](https://www.youtube.com/embed/BYSy8wMTC34?feature=oembed)
 
@@ -64,7 +64,7 @@ The Reunion Tour's last stand reaches its halfway point on Night Five at Madison
 
 Night Two in Gothenburg on the Rising Tour.
 
-**2003:**
+**2003:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1CvQqNk_hSrxz1tlmF6MKNa](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1CvQqNk_hSrxz1tlmF6MKNa)
 
@@ -92,7 +92,7 @@ Bruce releases .
 
 Bruce and the E Street Band continue the Wrecking Ball Tour's mini-leg through England with a show at Ethiad Stadium in Manchester, where Curt Ramm takes a header to the stage during his solo on "Twist and Shout," to the amazement and amusement of Bruce, who has trouble keeping his composure for the rest of the song.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/cAVV77kbSyc?feature=oembed](https://www.youtube.com/embed/cAVV77kbSyc?feature=oembed)
 

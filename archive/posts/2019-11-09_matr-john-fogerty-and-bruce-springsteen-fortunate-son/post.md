@@ -30,6 +30,6 @@ But while almost every post-Reunion era Springsteen performance of "Fortunate So
 
 [Watch on Youtube: Springsteen, Grohl, Brown - Fortunate Son](https://www.youtube.com/watch?v=BXTMhDJD3vk)
 
-**Fortunate Son**
+**Fortunate Son**<br>
 **First performed:** August 9, 1987 (Asbury Park, NJ)<br>
 **Last performed:** November 11, 2014 (Washington, DC)<br>

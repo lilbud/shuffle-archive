@@ -6,6 +6,6 @@ Not quite a year ago, Bruce joined the all-star Upstage Jam Band (featuring Sout
 
 [Watch on Youtube: The Blues Is My Business](https://www.youtube.com/watch?v=o8KAaspYh4U)
 
-**The Blues is My Business**
+**The Blues is My Business**<br>
 **First performed:** April 21, 2017 (Asbury Park, NJ)<br>
 **Last performed:** April 21, 2017 (Asbury Park, NJ)<br>

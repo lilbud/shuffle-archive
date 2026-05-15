@@ -27,6 +27,6 @@ Bruce read the lyrics, agreed, and recorded his contribution in two takes. The r
 **Street** **Hassle  
 **Recorded:** Autumn 1977<br>
 **Released:** *Street Hassle* (1978)<br>
-**Never performed**
+**Never performed**<br>
 
 © February 2, 2019

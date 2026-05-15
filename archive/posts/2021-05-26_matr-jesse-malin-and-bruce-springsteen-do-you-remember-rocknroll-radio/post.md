@@ -13,7 +13,7 @@ Here's the original for good measure–because there's no such thing as too much
 January 18, 2014 (Asbury Park, NJ)
 January 18, 2014 (Asbury Park, NJ)
 
-**Do You Remember Rock ‘n' Roll Radio**
+**Do You Remember Rock ‘n' Roll Radio**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

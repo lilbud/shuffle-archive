@@ -4,11 +4,11 @@
 
 Earth plays a private gig at a wedding in Brooklyn.
 
-**1968:**
+**1968:**<br>
 
 Bruce and the E Street Band play their fifth night of a week-long residency at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce and the E Street Band play their fifth night of a week-long residency at O
 
 A scheduled show is cancelled at the Cinematic Circus in Woodbourne, New York.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -24,7 +24,7 @@ A scheduled show is cancelled at the Cinematic Circus in Woodbourne, New York.
 
 Bruce and the E Street Band hold a recording session in New York City for their upcoming album.
 
-**1977:**
+**1977:**<br>
 
 Bruce and the band record "" and an early arrangement of "" during a recording session at the Power Station in New York City.
 
@@ -52,13 +52,13 @@ Bruce makes a surprise appearance at Sting's show at Madison Square Garden, duet
 
 Bruce and the reunited E Street Band play their third of five shows at Boston's Fleet Center.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/qSXQWyuKEV0?feature=oembed](https://www.youtube.com/embed/qSXQWyuKEV0?feature=oembed)
 
 The Rising Tour's barnstorming leg continues with a show at The Forum in Inglewood, California.
 
-**2002:**
+**2002:**<br>
 
 [https://videopress.com/embed/zHuEISJq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/zHuEISJq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -106,7 +106,7 @@ continues its limited return engagement at the St. James Theater in New York Cit
 
 Bruce returns to the stage in Foxboro following two postponed Philadelphia shows, his voice clearly straining at times.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/DGF0RrTTBII?feature=oembed](https://www.youtube.com/embed/DGF0RrTTBII?feature=oembed)
 

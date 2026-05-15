@@ -2,11 +2,11 @@
 
 The Bruce Springsteen Band plays at The Back Door in Richmond.
 
-**1972:**
+**1972:**<br>
 
 Bruce cancels a concert in Cleveland after firing drummer Vini Lopez the week before.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band play a gig at John Carroll University in Cleveland. 
 
 The River Tour continues its Florida leg with a stop at the Jacksonville Veterans Memorial Coliseum. Eavesdrop on the soundcheck below.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/_oYfUcPwuFM?feature=oembed](https://www.youtube.com/embed/_oYfUcPwuFM?feature=oembed)
 
@@ -42,13 +42,13 @@ Bruce and Nils jam at Bruce's house and listen to the just-completed album. At s
 
 Bruce wraps up the German leg of his European solo acoustic tour with a show in Dusseldorf.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/qsGD2AcQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qsGD2AcQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 The River (2016) Tour moves on to Philips Arena in Atlanta.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/hCx_XVLmHeg?feature=oembed](https://www.youtube.com/embed/hCx_XVLmHeg?feature=oembed)
 

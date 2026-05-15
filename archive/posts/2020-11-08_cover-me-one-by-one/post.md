@@ -14,7 +14,7 @@ It's unclear which version Bruce Springsteen and The Castiles had in mind when t
 
 But we at least have a pretty good idea why they chose to cover it at all: Bruce and the band had just seen The Blues Magoos perform it live in concert at Asbury Park's Convention Hall just a few weeks earlier.
 
-**One By One**
+**One By One**<br>
 **First performed:** September 30, 1967 (Freehold, NJ)
 **Last performed:** September 30, 1967 (Freehold, NJ)
 

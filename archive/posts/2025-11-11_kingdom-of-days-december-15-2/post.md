@@ -4,13 +4,13 @@
 
 Bruce and the E Street Band play a gig at Nassau Community College in Garden City, New York. The show is filmed, and snippets of it have been aired at special events and in documentaries.
 
-**1973:**
+**1973:**<br>
 
 [https://videopress.com/embed/0GMcGpH8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0GMcGpH8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the E Street Band work on "Adam Raised a Cain" at a recording session at The Record Plant in New York City.
 
-**1977:**
+**1977:**<br>
 
 Bruce and the band play their first of two nights at the Winterland Ballroom in San Francisco on the Darkness Tour, and it will go down in history as one of their best. Broadcast live on KSAN-FM and captured as a soundboard recording, this show will be prolifically bootlegged for decades to come. It will finally be officially released more than four decades later as part of Bruce's archive series–get it .
 
@@ -32,7 +32,7 @@ Bruce and the band play their first of two nights at the Winterland Ballroom in 
 
 Bruce and the boys play their first of two River Tour nights at the Boston Garden.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/1z2be7bb0QI?feature=oembed](https://www.youtube.com/embed/1z2be7bb0QI?feature=oembed)
 
@@ -48,7 +48,7 @@ Bruce plays his first of two solo acoustic shows at the Orpheum Theater in Bosto
 
 Bruce makes a guest appearance with Tim McLoone's Holiday Express at the Continental Airlines Arena in East Rutherford.
 
-**2001:**
+**2001:**<br>
 
 [https://www.youtube.com/embed/idLXa1qQmNc?feature=oembed](https://www.youtube.com/embed/idLXa1qQmNc?feature=oembed)
 
@@ -58,7 +58,7 @@ Bruce makes a guest appearance with Tim McLoone's Holiday Express at the Contine
 
 Bruce and the E Street Band bring the Magic Tour to the Odyssey Arena in Belfast.
 
-**2007:**
+**2007:**<br>
 
 [https://www.youtube.com/embed/Lgj-Bn7CHv0?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/Lgj-Bn7CHv0?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 

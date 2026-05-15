@@ -18,7 +18,7 @@ Bruce and the as yet unnamed E Street Band play their third of six nights at Max
 
 Bruce and the band headline at Springfield College, where a snowstorm keeps all but about 30 people from attending. When the power goes out during the show, Bruce switches to solo piano.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -26,7 +26,7 @@ Bruce and the band headline at Springfield College, where a snowstorm keeps all 
 
 The River Tour (original version) moves on to Dane County Memorial Coliseum in Madison, Wisconsin.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/Aj2vCNPN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Aj2vCNPN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -44,7 +44,7 @@ is certified 3x Platinum by the Recording Industry Association of America.
 
 Bruce and the E Street Band rehearse for their upcoming Tunnel of Love Express Tour at the Expo Theater in Fort Monmouth, New Jersey.
 
-**1988:**
+**1988:**<br>
 
 Bruce and Patti are in New Orleans filming the video for "." That evening, they drop by the Maple Leaf Bar, where the Iguanas are playing. Introduced by a pseudonym, Bruce joins the band for "" "" and "Betty Jean."
 
@@ -56,7 +56,7 @@ Bruce and Patti are in New Orleans filming the video for "." That evening, they 
 
 The River Tour (2016 edition) makes a single stop in Canada, at the Air Center in Toronto.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/2WG7ZnXv7uM?feature=oembed](https://www.youtube.com/embed/2WG7ZnXv7uM?feature=oembed)
 

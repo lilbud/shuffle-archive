@@ -6,11 +6,11 @@ Note: This is a strange date in history: Bruce rarely cancels shows, but on this
 
 A scheduled date in San Jose opening for Paul Butterfield is cancelled due to low ticket sales.
 
-**1973:**
+**1973:**<br>
 
 Bruce cancels a show at the New Jersey State Theater due to illness. Who knew Bruce graduated from Rutgers? (The journalist below sure doesn't.) Disappointed Springsteen fans ask for their money back; the theater obliges and throws in a bonus.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -34,13 +34,13 @@ Bruce sits in with the David Johansen Group at The Fast Lane in Asbury Park, joi
 
 Friday Night Videos airs Part 2 of its "Private Reel" profile of Bruce.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/JM4oYHfP5nc?start=1&amp;feature=oembed](https://www.youtube.com/embed/JM4oYHfP5nc?start=1&amp;feature=oembed)
 
 Bruce and Bob Dylan make a guest appearance with Tom Petty and the Heartbreakers at the Forum in Inglewood, California.
 
-**1990:**
+**1990:**<br>
 
 [https://www.youtube.com/embed/LG2mygv6WPs?feature=oembed](https://www.youtube.com/embed/LG2mygv6WPs?feature=oembed)
 
@@ -48,7 +48,7 @@ Bruce and Bob Dylan make a guest appearance with Tom Petty and the Heartbreakers
 
 At the Grammy Awards, Bruce appears with B.B. King, Bonnie Raitt, Steve Winwood and others during a medley tribute to Curtis Mayfield. Watch their performance below.
 
-**1994:**
+**1994:**<br>
 
 [https://www.youtube.com/embed/AjM2KHrNUxk?feature=oembed](https://www.youtube.com/embed/AjM2KHrNUxk?feature=oembed)
 
@@ -70,7 +70,7 @@ Bruce performs "" and wins Grammys for Best Rock Song, Best Male Rock Vocal Perf
 
 If press reports are accurate, Bruce gets a workout in at Marco's Gym in Edinburgh during an off-day on his solo acoustic tour. The timing is odd, however, since he played in Birmingham last night and will perform in Newcastle tomorrow. His Edinburgh show isn't for another two days. Perhaps he's making Edinburgh his base of operations for this leg of the tour.
 
-**1996:**
+**1996:**<br>
 
 
 
@@ -78,7 +78,7 @@ If press reports are accurate, Bruce gets a workout in at Marco's Gym in Edinbur
 
 Bruce sets a Ticketmaster record, becoming the first artist to sell tickets for seven stadium shows in a single day. Before the day is out, Bruce will sell more than 300,000 tickets to his summer residency at Giants Stadium.
 
-**2003:**
+**2003:**<br>
 
 
 

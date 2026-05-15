@@ -14,7 +14,7 @@ That concert featured a treasure chest of one-time-only Springsteen performances
 
 Here's hoping for an encore performance–for both the song and a show-length team-up–sometime soon.
 
-**River of Dreams**
+**River of Dreams**<br>
 **First performed:** October 16, 2008 (New York City, NY)<br>
 **Last performed:** October 16, 2008 (New York City, NY)<br>
 

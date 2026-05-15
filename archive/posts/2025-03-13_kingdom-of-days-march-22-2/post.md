@@ -4,7 +4,7 @@
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 The final stand of the Lawsuit Tour begins with the first of four nights at Boston's Music Hall.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/V_QpVUpzeWE?feature=oembed](https://www.youtube.com/embed/V_QpVUpzeWE?feature=oembed)
 
@@ -36,7 +36,7 @@ In between Bruce's first and second shows at the Sydney Entertainment Center, Ne
 
 The Tunnel of Love Express Tour stops in Atlanta for the first of two nights at The Omni.
 
-**1988:**
+**1988:**<br>
 
 [https://www.youtube.com/embed/d2qzoBK8fmE?feature=oembed](https://www.youtube.com/embed/d2qzoBK8fmE?feature=oembed)
 
@@ -50,7 +50,7 @@ The Tunnel of Love Express Tour stops in Atlanta for the first of two nights at 
 
 Night One in Sydney on the Rising Tour is plagued by power failures–four times in the first hour of the show. But the show goes on, and to thank fans for their patience, Bruce plays "Rosalita (Come Out Tonight)" — its first E Street stage appearance since mid-1999.
 
-**2003:**
+**2003:**<br>
 
 [https://videopress.com/embed/lGOMYAlV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lGOMYAlV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

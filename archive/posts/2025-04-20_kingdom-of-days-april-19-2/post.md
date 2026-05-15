@@ -4,7 +4,7 @@
 
 Bruce and the not quite E Street Band play a poorly advertised (and therefore poorly attended) show at the New Jersey State Theater in New Brunswick. In attendance tonight: Penn Jillette.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce and the not quite E Street Band play a poorly advertised (and therefore po
 
 Bruce works on "Thunder Road" in the studio at the Record Plant in New York City.
 
-**1975:**
+**1975:**<br>
 
 Bruce finalizes the mix for "" at Clover Studios in Los Angeles.
 
@@ -34,7 +34,7 @@ One night after debuting "" Bruce opens his second show in Paris by premiering h
 
 Bruce's tour of Japan moves from Tokyo to Kyoto for a night at Furitsu Taikukan.
 
-**1985:**
+**1985:**<br>
 
 [https://videopress.com/embed/TVhMNdU8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/TVhMNdU8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -104,7 +104,7 @@ The Canadian leg of the Rising Tour concludes with a show at Bell Center in Mont
 
 Bruce reschedules a scheduled show in Orlando due to the passing of Danny Federici.
 
-**2008:**
+**2008:**<br>
 
 
 

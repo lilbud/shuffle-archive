@@ -2,7 +2,7 @@
 
 The Castiles play the Matawan-Keyport Roller Drome in Matawan, New Jersey. Can you believe you could once see Bruce play for $1.25?
 
-**1966:**
+**1966:**<br>
 
 
 
@@ -14,7 +14,7 @@ The Castiles play the Matawan-Keyport Roller Drome in Matawan, New Jersey. Can y
 
 Bruce sits in with Steve Van Zandt and The Big Bad Bobby Williams Band (which included Garry Tallent, Dave Sancious, and Southside Johnny) at The Upstage in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 
 
@@ -22,7 +22,7 @@ Bruce sits in with Steve Van Zandt and The Big Bad Bobby Williams Band (which in
 
 The Bruce Springsteen Band continues a three-night gig at The Captain's Garter in Neptune, New Jersey.
 
-**1972:**
+**1972:**<br>
 
 Bruce and the band open for Freddie King at Muther's Music Emporium in Nashville. Intended as an unofficial promotional opportunity co-located with a CBS Sales Convention, Mike Appel is unable to drum up the attendance he'd hoped for, and the theater is quite empty–but the show is recorded from the soundboard nonetheless. Listen to the unusual arrangement of "" below.
 
@@ -38,7 +38,7 @@ Bruce and the band open for Freddie King at Muther's Music Emporium in Nashville
 
 Bruce and the E Street Band play Iowa State University on The River Tour.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/UVgOmD6M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UVgOmD6M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -56,13 +56,13 @@ Bruce records "" at A&M Studios in Los Angeles. It will be released seven years 
 
 Bruce plays the second night of four in Tokyo on his solo acoustic tour.
 
-**1997:**
+**1997:**<br>
 
 [https://videopress.com/embed/4XW8xsgT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4XW8xsgT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 At the Paramount Theater in Asbury Park, Bruce rehearses for an upcoming benefit concert for slain police office Patrick King.
 
-**1998:**
+**1998:**<br>
 
 
 
@@ -70,7 +70,7 @@ At the Paramount Theater in Asbury Park, Bruce rehearses for an upcoming benefit
 
 Bruce and the E Street Band hold a press conference (Bruce's first in over twenty years) and a dress rehearsal for their upcoming Super Bowl performance.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/b5-nERmAwo8?feature=oembed](https://www.youtube.com/embed/b5-nERmAwo8?feature=oembed)
 
@@ -78,7 +78,7 @@ Bruce and the E Street Band hold a press conference (Bruce's first in over twent
 
 Bruce plays a benefit for his kids' school at The Stone Pony in Asbury Park, joined by Bobby Bandiera, Max Weinberg, and Southside Johnny.
 
-**2011:**
+**2011:**<br>
 
 [https://www.youtube.com/embed/6V07k6CHBHA?feature=oembed](https://www.youtube.com/embed/6V07k6CHBHA?feature=oembed)
 
@@ -102,7 +102,7 @@ Also today: Le Grand Journal publishes Antoine de Caunes' interview with Bruce.
 
 The River Tour (2016 Edition) moves on to the Verizon Center in Washington, DC.
 
-**2016:**
+**2016:**<br>
 
 [https://www.youtube.com/embed/oazZpdk52f8?feature=oembed](https://www.youtube.com/embed/oazZpdk52f8?feature=oembed)
 

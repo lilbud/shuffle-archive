@@ -6,9 +6,9 @@ Toward the end of Patti Scialfa's third album, *Play It as It Lays*, there's a q
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ewTqMZm21LE)
 
-**Play Around**
+**Play Around**<br>
 **Recorded:** ?<br>
 **Released:** *Play It as It Lays* (2007)<br>
-**Never performed**
+**Never performed**<br>
 
 © February 6, 2020

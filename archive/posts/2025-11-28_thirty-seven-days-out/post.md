@@ -12,7 +12,7 @@ First: barring unforeseen circumstances, this site–meaning the E Street Shuffl
 
 That said, here's what you need to know about the *content* on the site:
 
-**Kingdom of Days**
+**Kingdom of Days**<br>
 
 *Kingdom of Days* will remain on the site until it closes in late 2027 or early 2028. However, due to the archiving software I am using and in order to optimize for print, you'll notice the following changes:
 
@@ -24,7 +24,7 @@ That said, here's what you need to know about the *content* on the site:
 
 These changes are already in effect for all of the January entries from Jan 5th onward, as well as for February entries. I'll be working my way through the remainder of the *Kingdom* posts month by month throughout 2026.
 
-**Roll of the Dice, Cover Me, Meeting Across the River*,* and **Where the Band Was**
+**Roll of the Dice, Cover Me, Meeting Across the River*,* and **Where the Band Was**<br>
 
 All of these articles will gradually and permanently disappear, starting in just a few days time. (Yes, even before the blog stops publishing.)
 

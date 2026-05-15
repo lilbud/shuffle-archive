@@ -2,7 +2,7 @@
 
 No updates
 
-**New for 2025:**
+**New for 2025:**<br>
 
 Bruce drops by the Bottom Line in New York City to catch Patti Smith's late show, providing backing vocals for "."
 
@@ -14,7 +14,7 @@ Bruce drops by the Bottom Line in New York City to catch Patti Smith's late show
 
 Bruce announces an extension of his solo acoustic tour in the new year, with select dates in North America before heading overseas.
 
-**1995:**
+**1995:**<br>
 
 
 

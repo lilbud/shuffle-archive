@@ -8,8 +8,8 @@ Written in the 1980s (which explains the Billy Idol reference) when her band Ven
 
 Too bad they've never performed it together live.
 
-**The Moulin Rouge**
+**The Moulin Rouge**<br>
 **Released:** *Beautiful Behavior* (2010)
-**Never performed live**
+**Never performed live**<br>
 
 © December 12, 2018

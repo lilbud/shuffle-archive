@@ -60,8 +60,8 @@ Bruce may have abandoned the song, but he didn't abandon its themes: He would co
 
 "Everybody Wants My Baby," however, remains an unfinished work.
 
-**Everybody Wants My Baby**
-**Never released**
-**Never performed**
+**Everybody Wants My Baby**<br>
+**Never released**<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

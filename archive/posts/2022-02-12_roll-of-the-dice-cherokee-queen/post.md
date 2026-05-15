@@ -55,9 +55,9 @@ Bruce seems to have belatedly recognized its potential, too: in early 1983, he b
 
 Well, mostly unutilized. There actually is a commercially available studio track of "Cherokee Queen" available–it's just not Bruce performing it. We'll take a listen to it later this month.
 
-**Cherokee Queen**
-**Never recorded**
-**Never released**
+**Cherokee Queen**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** July 1971 (South Amboy, NJ)
 **Last performed:** October 23, 1971 (Richmond, VA)
 

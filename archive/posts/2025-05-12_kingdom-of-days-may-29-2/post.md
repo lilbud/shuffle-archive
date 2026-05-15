@@ -4,7 +4,7 @@
 
 Child plays a gig at Pandemonium in Wanamassa, New Jersey.
 
-**1969:**
+**1969:**<br>
 
 
 
@@ -12,11 +12,11 @@ Child plays a gig at Pandemonium in Wanamassa, New Jersey.
 
 The Sundance Blues Band plays The Student Prince in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 Bruce and the E Street Band play two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1974:**
+**1974:**<br>
 
 
 
@@ -62,7 +62,7 @@ At the first of six River shows at London's Wembley Arena, Bruce performs "" for
 
 Bruce and Southside Johnny join Beaver Brown on stage at Big Man's West in Red Bank.
 
-**1982:**
+**1982:**<br>
 
 [https://videopress.com/embed/oqbaupOb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oqbaupOb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -70,7 +70,7 @@ Bruce and Southside Johnny join Beaver Brown on stage at Big Man's West in Red B
 
 The town of Freehold cancels the permit for a planned Jersey Artists for Mankind outdoor benefit show when a rumor spread that Bruce would appear. The small park can't hold the expected throngs, so the town cancels the event.
 
-**1986:**
+**1986:**<br>
 
 
 
@@ -86,7 +86,7 @@ reports that Bruce and Patti will marry on June 9th, according to a mysterious s
 
 Bruce hires Gia Ciambotti, Carol Dennis, Cleo Kennedy, and Angel Rogers as backup singers for his upcoming World Tour.
 
-**1992:**
+**1992:**<br>
 
 Bruce makes one of his most unusual guest appearances with The Rock Bottom Remainders, a band comprised entirely of famous authors, including Stephen King, Amy Tan, Matt Groening, and others at a booksellers convention in Hollywood. Bruce joins the motley crew for "."
 
@@ -100,7 +100,7 @@ Bruce makes one of his most unusual guest appearances with The Rock Bottom Remai
 
 Bruce and the E Street Band deliver a typical Night One show at the first of two Reunion shows in Berlin.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/3HRnAU3V?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3HRnAU3V?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

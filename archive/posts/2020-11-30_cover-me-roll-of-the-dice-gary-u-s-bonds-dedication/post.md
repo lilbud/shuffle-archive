@@ -73,7 +73,7 @@ They're not Bruce's deepest lyrics, but they would have been right at home on *T
 
 [Watch Video Highlight](https://videopress.com/embed/SsZa33Wh)
 
-**Dedication**
+**Dedication**<br>
 **Recorded** June-August 1980 (vocals–possibly using a December 1979 instrumental track)
 **Released:** Dedication (1981)
 **First performed** (by Bruce): July 2, 1989 (Long Branch, NJ)

@@ -2,11 +2,11 @@
 
 Founding E Street Band member "Phantom" Dan Federici is born in Flemington, New Jersey.
 
-**1950:**
+**1950:**<br>
 
 At the Upstage in Asbury Park, Steel Mill plays its final gig. Listen in on three songs from that show below.
 
-**1971:**
+**1971:**<br>
 
 [https://www.youtube.com/embed/RJUvc_TRTHs?feature=oembed](https://www.youtube.com/embed/RJUvc_TRTHs?feature=oembed)
 
@@ -18,11 +18,11 @@ At the Upstage in Asbury Park, Steel Mill plays its final gig. Listen in on thre
 
 Bruce sits in with the Sundance Blues Band at The Captain's Garter in Neptune, NJ.
 
-**1972:**
+**1972:**<br>
 
 The original River Tour continues its Canadian leg with a stop at the Montreal Forum. The show is captured on video–the quality isn't great (it's 1981, after all), but it's quite watchable.
 
-**1981:**
+**1981:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLnbVaK2f4rag1FRO13B9e2PprQP-HQFcW](https://www.youtube.com/embed/videoseries?list=PLnbVaK2f4rag1FRO13B9e2PprQP-HQFcW)
 
@@ -50,7 +50,7 @@ Night One in Providence on the Tour.
 
 Bruce performs solo at the Jesse H. Jones Hall for the Performing Arts in Houston.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/ldxTa26C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ldxTa26C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -58,7 +58,7 @@ Bruce performs solo at the Jesse H. Jones Hall for the Performing Arts in Housto
 
 Backed by Bobby Bandiera and his band, Bruce plays a benefit for his kids' school at the Stone Pony, with guest appearances by Patti, Southside, and Brian Williams.
 
-**2010:**
+**2010:**<br>
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Bono.
 

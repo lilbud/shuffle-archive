@@ -20,7 +20,7 @@ Just try to watch this without breaking into a goofy grin when Bruce takes the m
 
 [https://www.youtube.com/embed/oxwAB3SECtc?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/oxwAB3SECtc?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**I Saw Her Standing There**
+**I Saw Her Standing There**<br>
 **First performed:** January 20, 1988 (New York City, NY)<br>
 **Last performed:** September 15, 2017 (New York City, NY)<br>
 

@@ -61,9 +61,9 @@ In 1983, these lyrics were offensive. Today, they're also creepy.
 
 So, yeah: this is a lost track that probably should have stayed lost.
 
-**Little Girl Like You**
+**Little Girl Like You**<br>
 **Recorded:** January 20, 1983  
 **Released:** *L.A. Garage Sessions '83* (2025)
-**Never performed**
+**Never performed**<br>
 
 © June 15, 2018 / December 12, 2025

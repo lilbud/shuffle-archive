@@ -2,7 +2,7 @@
 
 The Castiles perform at their own junior prom at Freehold Regional High School.
 
-**1966:**
+**1966:**<br>
 
 Even shorter-lived than Dr. Zoom and the Sonic Boom: , making their debut performance in two shows at The Upstage. Bruce also plays an afternoon show on this date with The Sundance Blues Band.
 
@@ -14,11 +14,11 @@ Even shorter-lived than Dr. Zoom and the Sonic Boom: , making their debut perfor
 
 Bruce cuts the first version of "Born to Run" in the studio (instrumental only).
 
-**1974:**
+**1974:**<br>
 
 Bruce takes in a show by local band Pegasus (but does not perform) at The Jail in Hillsdale, New Jersey.
 
-**1977:**
+**1977:**<br>
 
 With the band on break while Bruce and Julianne honeymoon, Clarence appears on .
 
@@ -34,7 +34,7 @@ Bruce rehearses with his new band for their upcoming tour. After the rehearsal, 
 
 : The marathon Ghost of Tom Joad Tour enters its last week with a show at Teatro Verdi in Florence.
 
-**1997**
+**1997**<br>
 
 [https://www.youtube.com/embed/K7U2VN19AYo?feature=oembed](https://www.youtube.com/embed/K7U2VN19AYo?feature=oembed)
 
@@ -52,7 +52,7 @@ ABC-TV airs a Rolling special featuring rare (for the time) band performances of
 
 Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of "You Can Look (But You Better Not Touch)" and the first "Meeting Across the River" in 20 years. Watch the soundcheck below, featuring a lovely, lonely "Racing in the Street" and a bit of Patti Scialfa's beautiful ballad, "As Long As I (Can Be With You)."
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/0raE2AKOFtA?feature=oembed](https://www.youtube.com/embed/0raE2AKOFtA?feature=oembed)
 
@@ -60,7 +60,7 @@ Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of "You
 
 Still chugging along, the Reunion Tour stops in Anaheim for the first of two shows.
 
-**2000:**
+**2000:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-05-21a.jpg?resize=758%2C422&amp;ssl=1)
 
@@ -74,13 +74,13 @@ Still chugging along, the Reunion Tour stops in Anaheim for the first of two sho
 
 Stockholm gets its first Seeger Sessions show, and the BBC airs a Johnnie Walker interview with Bruce.
 
-**2006:**
+**2006:**<br>
 
 [https://www.youtube.com/embed/T8RlhwsRDAA?feature=oembed](https://www.youtube.com/embed/T8RlhwsRDAA?feature=oembed)
 
 The final stand of the first American leg of the Working on a Dream Tour begins with the first of two shows at the Izod Center in East Rutherford.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/q-bzVBUCcKg?feature=oembed](https://www.youtube.com/embed/q-bzVBUCcKg?feature=oembed)
 
@@ -106,7 +106,7 @@ When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres "My City
 
 Bruce and the E Street Band return to Circus Maximus for a star-studded (in attendance, anyway) show in Rome. In attendance tonight: Sting, Chris Rock, Woody Harrelson, Aaron Sorkin, Lars Ulrich, Nick Cave, Isla Fisher, and more.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/A-dAnZytl24?feature=oembed](https://www.youtube.com/embed/A-dAnZytl24?feature=oembed)
 

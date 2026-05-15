@@ -136,7 +136,7 @@ I'll leave you with a rare solo electric piano performance of "The Fever" from B
 
 [Watch Video Highlight](https://videopress.com/embed/iEdaryZ4)
 
-**The Fever**
+**The Fever**<br>
 **Recorded** May 16, 1973  
 **Released:** *18 Tracks* (1999)
 **First performed:** March 15, 1973 (Boston, MA)

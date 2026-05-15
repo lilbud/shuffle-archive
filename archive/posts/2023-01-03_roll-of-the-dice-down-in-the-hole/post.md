@@ -63,9 +63,9 @@ Regardless of the reason, it's effective–it keeps us at a distance and then dr
 > *Fires keep on burning, I'm here with you in the cold*
 > *Down in the hole*
 
-**Down in the Hole**
+**Down in the Hole**<br>
 **Recorded** 2002, 2013  
 **Released:** *High Hopes* (2014)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

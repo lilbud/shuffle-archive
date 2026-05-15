@@ -129,7 +129,7 @@ The break in the song eventually healed, just like a broken heart does, but "Ten
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Tenth Avenue Freeze-Out (Live in New York City)](https://www.youtube.com/watch?v=r1twvwbB_cU)
 
-**Tenth Avenue Freeze-Out**
+**Tenth Avenue Freeze-Out**<br>
 **Recorded:** May 5-16, 1975  
 **Released:** *Born to Run* (1975), *The Essential Bruce Springsteen* (2003)
 **First performed:** July 20, 1975 (Providence, RI)

@@ -144,7 +144,7 @@ Bonus #2: Here's another "Frankie" studio outtake, this one from the 1982 sessio
 
 <https://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3>
 
-**Frankie**
+**Frankie**<br>
 **Recorded** May 14,1982  
 **Released:** *Tracks* (1998)
 **First performed:** March 26, 1976 (Atlanta, GA)

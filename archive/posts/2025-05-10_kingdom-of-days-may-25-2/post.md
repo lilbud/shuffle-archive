@@ -4,7 +4,7 @@
 
 Bruce plays the second of three nights at Childe Harold in Washington, DC.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce plays the second of three nights at Childe Harold in Washington, DC.
 
 A scheduled gig at Archbishop John Carroll High School in Radnor, Pennsylvania is cancelled due to low ticket sales.
 
-**1974:**
+**1974:**<br>
 
 Bruce and the E Street Band work on "" at the Power Station in New York City.
 
@@ -26,11 +26,11 @@ Bruce records "" in his home studio. It will be released later on the year on .
 
 Bruce and the E Street Band record for their upcoming album at The Hit Factory in New York City.
 
-**1983:**
+**1983:**<br>
 
 Bruce's World Tour 1993 moves on to Rome for a show at Stadio Flaminio.
 
-**1993:**
+**1993:**<br>
 
 [https://www.youtube.com/embed/f_deiYzeqHI?feature=oembed](https://www.youtube.com/embed/f_deiYzeqHI?feature=oembed)
 
@@ -40,7 +40,7 @@ Bruce's World Tour 1993 moves on to Rome for a show at Stadio Flaminio.
 
 The final stand of the Ghost of Tom Joad Tour begins with the first of two shows in Paris.
 
-**1997:**
+**1997:**<br>
 
 [https://www.youtube.com/embed/pSfuW0PzEr4?feature=oembed](https://www.youtube.com/embed/pSfuW0PzEr4?feature=oembed)
 
@@ -98,7 +98,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce and the E Street Band play their first of two nights at Johan Cruijff Arena in Amsterdam, reaching the three-hour mark for the first time this year.
 
-**2023:**
+**2023:**<br>
 
 [https://www.youtube.com/embed/ZMvJcqtP6dI?feature=oembed](https://www.youtube.com/embed/ZMvJcqtP6dI?feature=oembed)
 
@@ -106,4 +106,4 @@ Bruce and the E Street Band play their first of two nights at Johan Cruijff Aren
 
 Shortly before showtime, Bruce is forced to postpone his concert in Marseille due to vocal problems. As of this writing, the show has yet to occur.
 
-**2024:**
+**2024:**<br>

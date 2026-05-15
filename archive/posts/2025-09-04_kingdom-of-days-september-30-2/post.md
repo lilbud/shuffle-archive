@@ -10,7 +10,7 @@ The Castiles play their second and final gig at The Left Foot in Freehold, where
 
 Bruce's acoustic guitar is stolen at a Wild & Innocent gig at Stony Brook University. Bruce will play road manager Albee Tellone's guitar (the same model as Bruce's) until Mike Appel replaces it as a Christmas gift.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -18,7 +18,7 @@ Bruce's acoustic guitar is stolen at a Wild & Innocent gig at Stony Brook Univer
 
 Bruce makes his debut appearance in Nebraska, playing a Born to Run show at Omaha's Civic Auditorium Music Hall.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -36,7 +36,7 @@ At Night Two on the Lawsuit Tour in Santa Monica, Bruce tells a mid-song "" stor
 
 During a recording session break at The Record Plan in New York City, Bruce works on "Candy's Room" on piano.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/0VJZpmNy-OI?feature=oembed](https://www.youtube.com/embed/0VJZpmNy-OI?feature=oembed)
 

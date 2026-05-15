@@ -29,7 +29,7 @@ Almost a decade later, Bruce opened another Denver show with "Get Out of Denver"
 April 13, 2002 (Asbury Park, NJ)
 November 19, 2012 (Denver, CO)
 
-**Get Out of Denver**
+**Get Out of Denver**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

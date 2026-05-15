@@ -2,7 +2,7 @@
 
 Steel Mill opens for Boz Scaggs for the second of three nights at The Matrix in San Francisco.
 
-**1970:**
+**1970:**<br>
 
 
 
@@ -10,7 +10,7 @@ Steel Mill opens for Boz Scaggs for the second of three nights at The Matrix in 
 
 Bruce jams at an open mic night at The Upstage in Asbury Park.
 
-**1971:**
+**1971:**<br>
 
 After performing "" Bruce and the E Street Band take a mid-show intermission for the first time, as the Lawsuit Tour continues its Canadian leg with a show at Toronto's Maple Leaf Gardens.
 
@@ -24,7 +24,7 @@ After performing "" Bruce and the E Street Band take a mid-show intermission for
 
 Bruce and the band play Mississippi State University along the River Tour.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/ClPPlc19?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ClPPlc19?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

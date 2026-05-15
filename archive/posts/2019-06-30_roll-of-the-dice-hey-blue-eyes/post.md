@@ -84,9 +84,9 @@ And as the song trails the final chorus, we're deeply unsettled by the realizati
 > *Hey blue eyes, what you doing tonight*
 > *Hey blue eyes, yeah it's alright*
 
-**Hey Blue Eyes**
+**Hey Blue Eyes**<br>
 **Recorded:** Unknown, but likely 2007-ish  
 **Released:** *American Beauty* (2014)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

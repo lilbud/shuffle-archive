@@ -4,7 +4,7 @@
 
 Bruce Springsteen and his studio band" headline at Sandy's in Beverly, Massachusetts.
 
-**1973: "**
+**1973: "**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce Springsteen and his studio band" headline at Sandy's in Beverly, Massachus
 
 Bruce and the E Street Band bring the Born to Run Tour to Seneca College in Toronto.
 
-**1975:**
+**1975:**<br>
 
 [https://www.youtube.com/embed/olusvTlt3_0?feature=oembed](https://www.youtube.com/embed/olusvTlt3_0?feature=oembed)
 

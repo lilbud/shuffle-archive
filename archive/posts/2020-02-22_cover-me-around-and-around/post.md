@@ -31,7 +31,7 @@ Those may have been the only two "official" E Street Band performances, but in b
 July 29, 1978 (St. Petersburg, FL)
 December 13, 2002 (Albany, NY)
 
-**Around and Around**
+**Around and Around**<br>
 **First performed:**<br>
 
 **Last performed:**<br>

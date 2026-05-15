@@ -60,9 +60,9 @@ The lyrics speak for themselves–not much is required in the way of analysis. T
 
 Bruce has never performed "All I Need" live, not even with Bonds. But as long as both men keep performing, hope is alive.
 
-**All I Need**
+**All I Need**<br>
 **Recorded:** Early 1982  
 **Released:** *On the Line* (1982)
-**Never performed**
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

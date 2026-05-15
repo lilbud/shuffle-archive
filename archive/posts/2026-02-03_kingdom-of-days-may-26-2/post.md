@@ -2,15 +2,15 @@
 
 Seven-year-old Bruce Springsteen receives his first Communion at St. Rose of Lima Church.
 
-**1957:**
+**1957:**<br>
 
 Bruce and the E Street Band headline the third of three shows at Childe Harold in Washington, DC.
 
-**1973:**
+**1973:**<br>
 
 The Darkness Tour picks up steam as it rolls into Philadelphia for the first of two nights at The Spectrum. "Growin' Up" and "It's Hard to Be a Saint in the City" make their tour premieres. About six minutes of the show is captured on 8mm film–watch the earliest known footage from the Darkness Tour below.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/gTWkVHl3Bw8?feature=oembed](https://www.youtube.com/embed/gTWkVHl3Bw8?feature=oembed)
 
@@ -24,11 +24,11 @@ Bruce plays the first of two shows in Brighton, England.
 
 Bruce's world premiere performance of "Dancing in the Dark" occurs under very strange circumstances: Bruce happens to be at Xanadu in Asbury Park where the band Bystander is playing. The band had managed to obtain a promo copy of Bruce's new single, learned the song, and planned to debut it on this night. When they learn that Bruce is in the house, they invite him to join them, but Bruce declines. The band extends the intro, hoping Bruce will relent–and he does, grabbing the mic at the last second and performing the live debut of his greatest hit.
 
-**1984:**
+**1984:**<br>
 
 Bruce joins John Mellencamp on stage for "Like a Rolling Stone" at the Irvine Meadows Amphitheater in Irvine, California.
 
-**1988:**
+**1988:**<br>
 
 
 
@@ -36,7 +36,7 @@ Bruce joins John Mellencamp on stage for "Like a Rolling Stone" at the Irvine Me
 
 Bruce wraps up the Ghost of Tom Joad Tour with the second of two nights in Paris. Elliot Murphy makes a guest appearance, joining Bruce for "Blowin' Down This Road," and "Diamonds by the Yard" (the only known performance of this song).
 
-**1997:**
+**1997:**<br>
 
 [https://www.youtube.com/embed/eIVqrJvUvx4?feature=oembed](https://www.youtube.com/embed/eIVqrJvUvx4?feature=oembed)
 
@@ -52,7 +52,7 @@ Bruce wraps up the Ghost of Tom Joad Tour with the second of two nights in Paris
 
 At the first of two Rising shows at the Crystal Palace in London, Bruce tour premieres "Meeting Across the River" (into "Jungleland," of course).
 
-**2003:**
+**2003:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Independent_Tue__May_27__2003_.jpg?resize=758%2C913&amp;ssl=1)
 

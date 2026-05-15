@@ -4,11 +4,11 @@
 
 Bruce and his band play two shows at their third night at Gertie's in Dallas.
 
-**1974:**
+**1974:**<br>
 
 "Juicy Brucey" and the E Street Band bring the Lawsuit Tour to Providence College.
 
-**1977:**
+**1977:**<br>
 
 
 
@@ -16,7 +16,7 @@ Bruce and his band play two shows at their third night at Gertie's in Dallas.
 
 A scheduled show in London is postponed due to Bruce's exhaustion from the first two legs of the River Tour.
 
-**1981:**
+**1981:**<br>
 
 
 
@@ -24,7 +24,7 @@ A scheduled show in London is postponed due to Bruce's exhaustion from the first
 
 A New Zealand news station covers the anticipation over the Australian leg of the Born in the U.S.A. Tour.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/17lftoPySfs?feature=oembed](https://www.youtube.com/embed/17lftoPySfs?feature=oembed)
 
@@ -60,7 +60,7 @@ Joe Grushecky guest-stars for a final encore of "" as the Tunnel of Love Express
 
 Bruce brings his solo acoustic tour to the Point Theater in Dublin.
 
-**1996:**
+**1996:**<br>
 
 [https://videopress.com/embed/GAhWMl2F?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GAhWMl2F?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -80,7 +80,7 @@ On the eve of the Iraq War, Bruce opens the Australia leg of The Rising Tour wit
 
 Bruce rehearses with The Sessions Band at the Paramount Theater in Asbury Park.
 
-**2006:**
+**2006:**<br>
 
 Danny Federici appears on-stage with the E Street Band for the final time at Bruce's Magic show at the Conseco Fieldhouse in Indianapolis, where Bruce and the band tour premiere "." Watch the official, emotional video of "" (also available on the EP). This show is available as part of Bruce's official archive series–get it .
 

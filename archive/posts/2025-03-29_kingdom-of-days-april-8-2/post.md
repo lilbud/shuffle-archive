@@ -28,7 +28,7 @@ At the second of two shows in Zurich, Bruce plays "" for the first and only time
 
 : Bruce and the reunited E Street Band play their final rehearsal in Barcelona before the kick-off of the Reunion Tour the following day.
 
-**1999**
+**1999**<br>
 
 
 
@@ -36,7 +36,7 @@ At the second of two shows in Zurich, Bruce plays "" for the first and only time
 
 The Reunion Tour returns to the American Midwest for a show at Kiel Center in St. Louis.
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/Yl8UjR7w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Yl8UjR7w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -54,7 +54,7 @@ is certified 4x multi-platinum by the Recording Industry Association of America.
 
 Night Two in Anaheim at the Honda Center for the Magic Tour, with Tom Morello making another guest appearance and "Thunder Road" serving as a rare set opener.
 
-**2008:**
+**2008:**<br>
 
 [https://www.youtube.com/embed/ZNgu0Ai-5CU?feature=oembed](https://www.youtube.com/embed/ZNgu0Ai-5CU?feature=oembed)
 
@@ -70,7 +70,7 @@ The Working on a Dream Tour moves on to Houston for a show at the Toyota Center,
 
 Little Steven's Underground Garage airs Part 2 of The Bruce and Stevie Show. Absolutely essential listening for a fan of Bruce, Stevie, great music, and lifelong friendships.
 
-**2011:**
+**2011:**<br>
 
 [https://videopress.com/embed/1lqTkF5o?hd=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1](https://videopress.com/embed/1lqTkF5o?hd=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1)
 
@@ -90,7 +90,7 @@ The High Hopes Tour resumes proper (minus Steve Van Zandt, who will miss most of
 
 With two days' notice, Bruce cancels his upcoming show in Greensboro in protest of the state's adoption of a law discriminating against transgender people. Bruce's decision generates increased news coverage and national discussion around an already controversial law.
 
-**2016:**
+**2016:**<br>
 
 
 

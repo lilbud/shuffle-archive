@@ -20,7 +20,7 @@ Lyrically, "Lady of Boston" underwhelms. About the only thing worth noting from 
 > *All I want is your loving, Great god almighty she got the lord on her side*
 
 > *See her every Friday night down at the disco scene*
-***When she gets out on the floor everybody moves, she's so clean***
+***When she gets out on the floor everybody moves, she's so clean***<br>
 > *You know she's so heavenly, all a man wants to do is just hold her*
 > *And I tell you there ain't no other woman on earth, there just ain't nobody bolder*
 > *Now I don't care about her bankbook 'cause Sally's what satisfies*
@@ -48,9 +48,9 @@ The fact that I still can't tell if "Lady of Boston" is an incomplete song, an i
 
 In the end both Dr. Zoom and the Sonic Boom and "Lady of Boston" are historical footnotes, transitional steps on Bruce's journey toward his own musical sound.
 
-**Lady of Boston**
-**Never recorded**
-**Never released**
+**Lady of Boston**<br>
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** May 15, 1971 (Union, NJ)
 **Last performed:** May 15, 1971 (Union, NJ)
 

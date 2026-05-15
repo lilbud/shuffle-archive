@@ -14,7 +14,7 @@ Bruce and the E Street Band work on "" at the Record Plant in New York City.
 
 Bruce and the E Street Band perform in Scotland for the very first time when they play their first of two River Tour shows at the Edinburgh Playhouse.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/1KZwfls7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1KZwfls7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -28,7 +28,7 @@ Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at 
 
 : Bruce and Julianne leave Lake Oswego, Oregon, for their honeymoon.
 
-**1985**
+**1985**<br>
 
 
 
@@ -56,7 +56,7 @@ Bruce kicks off a five-night stand at Madison Square Garden that wraps the U.S. 
 
 Bruce's World Tour continues its German leg with a show in Munich. Watch the complete first set below.
 
-**1993:**
+**1993:**<br>
 
 [https://videopress.com/embed/484BpLnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/484BpLnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -78,7 +78,7 @@ The Reunion Tour's U.K. swing continues with a show at the NEC Arena in Birmingh
 
 The Seeger Sessions Tour makes a stop at the Heineken Music Hall in Amsterdam.
 
-**2006:**
+**2006:**<br>
 
 [https://videopress.com/embed/0nkKkMgu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0nkKkMgu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -98,7 +98,7 @@ The Seeger Sessions Tour makes a stop at the Heineken Music Hall in Amsterdam.
 
 It's a mini-Seeger Sessions show at the Kristen Ann Carr Fund benefit at the Tribeca Grill in New York City, as Bruce, Charlie, Larry Eagle, Jeremy Chatzky, Sam Bardfield, Lisa Lowell, Ed Manion, Curt Ramm, and Soozie Tyrell play a four-song Seeger set, joined by Nils and and Curtis King as well.
 
-**2015:**
+**2015:**<br>
 
 [https://www.youtube.com/embed/DKKVN_76OMs?feature=oembed](https://www.youtube.com/embed/DKKVN_76OMs?feature=oembed)
 

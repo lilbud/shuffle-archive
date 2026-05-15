@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band play their third night of a week-long residency at Oliver's in Boston.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -12,7 +12,7 @@ Bruce and the E Street Band play their third night of a week-long residency at O
 
 Bruce and the boys play their second of three nights at Alex Cooley's Electric Ballroom in Atlanta.
 
-**1975:**
+**1975:**<br>
 
 
 
@@ -24,7 +24,7 @@ Bruce and the boys play their second of three nights at Alex Cooley's Electric B
 
 The original Miami Horns (also known as the Asbury Jukes horn section) make their final appearance with Bruce and the E Street Band at their show at the Springfield Civic Center.
 
-**1976:**
+**1976:**<br>
 
 [https://videopress.com/embed/Byyk5H71?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Byyk5H71?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -32,7 +32,7 @@ The original Miami Horns (also known as the Asbury Jukes horn section) make thei
 
 At Night Two of a three-night Darkness Tour stand at Madison Square Garden, Bruce brings his sixteen-year-old kid sister Pam on stage during the final encore.
 
-**1978:**
+**1978:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1D4drCKmEeRRz7nBqEGW0pV](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1D4drCKmEeRRz7nBqEGW0pV)
 
@@ -74,13 +74,13 @@ Bruce makes a surprise appearance at The Stone Pony for a second night in a rowâ
 
 Bruce and his new touring band bring World Tour 1992 to the Richfield Coliseum for the second of two nights.
 
-**1992:**
+**1992:**<br>
 
 [https://videopress.com/embed/bFZgm7vd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bFZgm7vd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the E Street Band play their second of five Reunion shows at Boston's Fleet Center.
 
-**1999:**
+**1999:**<br>
 
 [https://www.youtube.com/embed/bMDI9tdyfbc?feature=oembed](https://www.youtube.com/embed/bMDI9tdyfbc?feature=oembed)
 
@@ -98,7 +98,7 @@ Bruce appears on the cover of the new issue of .
 
 Bruce brings the Working on a Dream Tour to Mansfield, Massachusetts, for the first of two shows. Jay Weinberg takes the drums for the encores.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/2SFTcZoypdw?feature=oembed](https://www.youtube.com/embed/2SFTcZoypdw?feature=oembed)
 

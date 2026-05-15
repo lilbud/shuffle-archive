@@ -100,9 +100,9 @@ Oh, and not just Bonnie, but also Bruce Hornsby, Mary Chapin Carpenter, Shawn Co
 
 [Watch on Youtube: Bruce Springsteen - Red Headed Woman [Washington September 3, 1999]](https://www.youtube.com/watch?v=34cYMiXkFOE)
 
-**Red Headed Woman**
+**Red Headed Woman**<br>
 **Recorded** Late 1990  
-**Never released**
+**Never released**<br>
 **Frist performed:** November 16, 1990 (Los Angeles, CA)
 **Last performed:** March 26, 2013 (Melbourne, Australia)
 

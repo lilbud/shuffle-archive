@@ -4,7 +4,7 @@
 
 Bruce and the E Street Band perform a free concert at Niagara University in Lewiston, New York.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -20,7 +20,7 @@ Bruce cancels a scheduled gig at Glassboro State College to make room for record
 
 When Southside Johnny takes ill and can't perform, Steve Van Zandt transforms their show in Red Bank into The Asbury Park All-Star Revue, featuring the Jukes, Bruce and the E Street Band, and Ronnie Spector. Steve performs lead vocals for most of the show, with Bruce on guitar and backing vocals. Bruce steps up to the mic when the band plays his own songs.
 
-**1977:**
+**1977:**<br>
 
 [https://www.youtube.com/embed/9lkVrhUwyAU?feature=oembed](https://www.youtube.com/embed/9lkVrhUwyAU?feature=oembed)
 
@@ -36,7 +36,7 @@ Bruce and the E Street Band are in the studio at the Power Station in New York C
 
 Bruce and the band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank, New Jersey.
 
-**1984:**
+**1984:**<br>
 
 The BBC premieres a new documentary on Bruce, entitled . It's well worth a watch–check it out below.
 
@@ -54,7 +54,7 @@ Also today, Little Steven releases his third solo album, . Bruce contributes voc
 
 Bruce plays his first-ever show in the Czech Republic, an acoustic show at Prague's Congress Center. After the show, he meets the Czech president backstage.
 
-**1997:**
+**1997:**<br>
 
 [https://www.youtube.com/embed/eMbKtLHR_9A?feature=oembed](https://www.youtube.com/embed/eMbKtLHR_9A?feature=oembed)
 
@@ -118,13 +118,13 @@ At the United Center in Chicago, fans witness the E Street Band premiere of "."
 
 Bruce and Patti attend Jessica's equestrian competition in Windsor, England.
 
-**2011:**
+**2011:**<br>
 
 [https://www.youtube.com/embed/Vf0CH2Bn6vU?feature=oembed](https://www.youtube.com/embed/Vf0CH2Bn6vU?feature=oembed)
 
 Bruce and the band play a short warm-up show/soundcheck in Seville before kicking off the European leg of the Wrecking Ball Tour.
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/Cc_f-UPwTgY?feature=oembed](https://www.youtube.com/embed/Cc_f-UPwTgY?feature=oembed)
 
@@ -140,6 +140,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 Bruce opens his show in Kilkenny with his first-ever performance of "A Rainy Night in Soho," a tribute to songwriter and original artist Shane MacGowan of The Pogues.
 
-**2024:**
+**2024:**<br>
 
 [https://www.youtube.com/embed/JRB1_f_NgME?feature=oembed](https://www.youtube.com/embed/JRB1_f_NgME?feature=oembed)

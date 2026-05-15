@@ -4,7 +4,7 @@
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -12,7 +12,7 @@ The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1973:**
+**1973:**<br>
 
 
 
@@ -38,13 +38,13 @@ Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena's 
 
 Night Two in Cincinnati on the Born in the U.S.A. Tour. Listen in on the soundcheck below, including a never-played "The Good, The Bad, and The Ugly."
 
-**1984:**
+**1984:**<br>
 
 [https://videopress.com/embed/mB3khd4m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mB3khd4m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Bruce and the E Street Band close out their Wembley Stadium stand with their third of three nights in London. Steve Van Zandt makes his third consecutive encore appearance. Also in attendance tonight: Phil Collins, Mark Knopfler, Roger Taylor, and John Entwhistle.
 
-**1985:**
+**1985:**<br>
 
 [https://www.youtube.com/embed/2Epn-TJSqIM?start=135&amp;feature=oembed](https://www.youtube.com/embed/2Epn-TJSqIM?start=135&amp;feature=oembed)
 

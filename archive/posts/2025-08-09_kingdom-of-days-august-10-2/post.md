@@ -4,7 +4,7 @@
 
 The Castiles play their final gig ever, one last show at Le Teendezvous in New Shrewsbury, New Jersey. Bruce has already assembled a new band, which will come to be known as Earth.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -48,7 +48,7 @@ Bruce and the E Street Band take the Darkness Tour to the Community War Memorial
 
 Bruce (along with most of the E Street Band and Asbury Jukes) attends and performs at the wedding of Southside Johnny Lyon and Jill Glasner.
 
-**1982:**
+**1982:**<br>
 
 Bruce wraps up the eleven-night World Tour 1992 stand at the Meadowlands in style, opening with an acoustic "" (with only Roy as accompaniment) and the only tour performance of "Rosalita (Come Out Tonight)." Steve Van Zandt joins the band for "" and ""
 
@@ -72,7 +72,7 @@ Entertainment Tonight airs a segment covering the end of the marathon run of sho
 
 Bruce makes a guest appearance at Cheers in Long Branch for the second time in a week, this time with Solar Circus at a Jerry Garcia tribute concert.
 
-**1995:**
+**1995:**<br>
 
 [https://www.youtube.com/embed/Cq5tE0a3m-M?feature=oembed](https://www.youtube.com/embed/Cq5tE0a3m-M?feature=oembed)
 

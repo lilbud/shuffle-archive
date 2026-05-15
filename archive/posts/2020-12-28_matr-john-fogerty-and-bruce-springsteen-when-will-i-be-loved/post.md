@@ -32,7 +32,7 @@ When it came time to film an official video for the new single, Bruce was tourin
 
 [Watch on Youtube: John Fogerty and Bruce Springsteen: "When Will I Be Loved"](https://www.youtube.com/watch?v=fpeaMoCWNNg)
 
-**When Will I Be Loved**
+**When Will I Be Loved**<br>
 **Recorded:** October 2008 – January 2009<br>
 **Released:** *The Blue Ridge Rangers Rides Again*<br>
-**Never performed**
+**Never performed**<br>

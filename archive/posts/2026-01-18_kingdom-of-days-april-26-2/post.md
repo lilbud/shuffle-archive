@@ -2,7 +2,7 @@
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-**1968:**
+**1968:**<br>
 
 
 
@@ -18,11 +18,11 @@ The new issue of features a profile of Bruce, their first of many to come. (Than
 
 Bruce and the E Street Band play at the Soldiers & Sailors Memorial Auditorium in Chattanooga, their first of three nights in Tennessee.
 
-**1976:**
+**1976:**<br>
 
 Bruce and his studio team complete the mixes for "Cadillac Ranch" and "Two Hearts" at Clover Studios in Los Angeles.
 
-**1980:**
+**1980:**<br>
 
 [https://www.youtube.com/embed/ODQgHmRCBHo?feature=oembed](https://www.youtube.com/embed/ODQgHmRCBHo?feature=oembed)
 
@@ -30,7 +30,7 @@ Bruce and his studio team complete the mixes for "Cadillac Ranch" and "Two Heart
 
 Bruce plays his first-ever show in Belgium (and the first ever "Stolen Car" in Europe) when the River Tour arrives in Brussels.
 
-**1981:**
+**1981:**<br>
 
 [https://videopress.com/embed/UyXUhTpJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UyXUhTpJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -40,13 +40,13 @@ Bruce in the studio at the Power Station in New York, recording for what will be
 
 "Streets of Philadelphia" is certified gold by the Recording Industry Association of America.
 
-**1994:**
+**1994:**<br>
 
 [https://www.youtube.com/embed/h6K0u5Z6JFM?feature=oembed](https://www.youtube.com/embed/h6K0u5Z6JFM?feature=oembed)
 
 Douglas Springsteen, Bruce's father, passes away at the age of 73.
 
-**1998:**
+**1998:**<br>
 
 
 
@@ -54,7 +54,7 @@ Douglas Springsteen, Bruce's father, passes away at the age of 73.
 
 Bruce and the E Street Band bring the Reunion Tour to Zurich.
 
-**1999:**
+**1999:**<br>
 
 [https://videopress.com/embed/5QWqHj9x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5QWqHj9x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -62,7 +62,7 @@ Bruce and the E Street Band bring the Reunion Tour to Zurich.
 
 At Night Two at the Mellon Arena in Pittsburgh, Bruce and the E Street Band perform a rare "Back in Your Arms," and Joe Grushecky guest-stars on "Hungry Heart."
 
-**2000:**
+**2000:**<br>
 
 [https://videopress.com/embed/zjtTvBOg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/zjtTvBOg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -84,7 +84,7 @@ Bruce releases his thirteenth studio album. (The album was released in Europe a 
 
 Bruce and the Sessions Band play their final rehearsal show at Asbury Park's Convention Hall, opening and closing with debuts of "Long Black Veil" and "The Daring Young Man on the Flying Trapeze" respectively.
 
-**2006:**
+**2006:**<br>
 
 [https://videopress.com/embed/KUutZZqM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KUutZZqM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -98,7 +98,7 @@ Bruce and the Sessions Band play their final rehearsal show at Asbury Park's Con
 
 The Working on a Dream Tour stops in Atlanta for a show at the Philips Arena. "Trapped," "Detroit Medley," and "96 Tears" make their tour debuts.
 
-**2009:**
+**2009:**<br>
 
 [https://www.youtube.com/embed/BaratxJFd_Q?feature=oembed](https://www.youtube.com/embed/BaratxJFd_Q?feature=oembed)
 
@@ -108,7 +108,7 @@ The Working on a Dream Tour stops in Atlanta for a show at the Philips Arena. "T
 
 Los Angeles gets a pair of Wrecking Ball shows at the Sports Arena. Night One sees the tour premieres of "Something in the Night," "California Sun," and the customary SoCal guest appearance by Tom Morello on "The Ghost of Tom Joad."
 
-**2012:**
+**2012:**<br>
 
 [https://www.youtube.com/embed/DIukXYvEQPc?feature=oembed](https://www.youtube.com/embed/DIukXYvEQPc?feature=oembed)
 
@@ -126,7 +126,7 @@ Los Angeles gets a pair of Wrecking Ball shows at the Sports Arena. Night One se
 
 Bruce plays a River-heavy set at Aaron's Amphitheater in Atlanta, featuring the tour premieres of "Independence Day" and "Drive All Night."
 
-**2014:**
+**2014:**<br>
 
 [https://www.youtube.com/embed/BAKDDBPWxzw?feature=oembed](https://www.youtube.com/embed/BAKDDBPWxzw?feature=oembed)
 
