@@ -8,7 +8,7 @@ Listening to the newly expanded, impressively tight E Street Band–complete wit
 
 “Does This Bus Stop on 82nd Street” used to be a runaway train, always a moment away from a complete wreck. Compare the performance above with this pulse-racing early version by the original E Street Band, from January 1974:
 
-[Watch Video Highlight](https://videopress.com/embed/Kou5zDLL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Kou5zDLL)
 
 I’ve listened to that clip dozens of times and I *still* keep expecting the train wreck that never comes. Vini Lopez in particular is *all over the freaking place*–he gives Animal a run for his money.
 
@@ -95,7 +95,7 @@ But the most important thing about it is: it’s just plain fun. Bruce has plent
 
 Heck, Bruce even played it once on the Seeger Sessions Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/YxzSDQZo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YxzSDQZo)
 
 So until we catch that bus again, here’s one more performance to enjoy–the last “Bus Stop” outing to date, from Perth on January 22, 2017.
 
@@ -103,8 +103,8 @@ So until we catch that bus again, here’s one more performance to enjoy–the l
 
 **Does This Bus Stop at 82nd Street?**
 **Recorded** June 27-July 12, 1972  
-**Released:** [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1972), *Tracks* (demo, 1998)  
-**First performed:** August 10, 1972 (New York City, NY)  
+**Released:** [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1972), *Tracks* (demo, 1998)
+**First performed:** August 10, 1972 (New York City, NY)
 **Last performed:** November 9, 2024 (Ottawa, Ontario)
 
 © March 30, 2020

@@ -8,7 +8,7 @@ If you listen to “Baby Doll” today, though, it holds up pretty well (except 
 
 Let’s take a listen:
 
-[Watch Video Highlight](https://videopress.com/embed/HYkpjTeZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HYkpjTeZ)
 
 Critics often dismiss “Baby Doll” as a *Tommy* rip-off, and they have a point.
 
@@ -70,7 +70,7 @@ But just like “[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/0
 **Baby Doll**
 **Recorded** April 1972  
 **Never released**
-**First performed:** November 4, 1971 (New York City, NY)  
+**First performed:** November 4, 1971 (New York City, NY)
 **Last performed:** November 4, 1971 (New York City, NY)
 
 © October 13 2019 by Ken Rosen

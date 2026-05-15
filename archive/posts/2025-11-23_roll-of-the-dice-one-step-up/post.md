@@ -132,8 +132,8 @@ None of us can know exactly what memories and emotions this song conjures for th
 
 **One Step Up**
 **Recorded:** May-August 1987  
-**Released:** *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*(1987), *The Essential Bruce Springsteen* (2015)  
-**First performed:** February 25, 1988 (Worcester, MA)  
+**Released:** *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*(1987), *The Essential Bruce Springsteen* (2015)
+**First performed:** February 25, 1988 (Worcester, MA)
 **Last performed:** May 14, 2014 (Houston, TX)
 
 (c) August 17, 2018

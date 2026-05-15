@@ -92,7 +92,7 @@ One more–this one solo, but remarkable for how heartfelt it is, and for how yo
 **Two Hearts**
 **Recorded** 1980  
 **Released:** *The River (1980), Live in New York City (2001)*
-**First performed:** October 6, 1980 (Richfield, OH)  
+**First performed:** October 6, 1980 (Richfield, OH)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

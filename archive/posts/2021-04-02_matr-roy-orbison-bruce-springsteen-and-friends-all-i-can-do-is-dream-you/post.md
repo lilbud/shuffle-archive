@@ -10,7 +10,7 @@ During his legendary *Black and White Night* all-star concert in 1987, “(All I
 
 Orbison was one of Bruce’s heroes, and throughout the show, Bruce was clearly in awe of Roy’s legendary voice.
 
-[Watch Video Highlight](https://videopress.com/embed/r1tQhqRs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/r1tQhqRs)
 
 Unfortunately, Bruce wasn’t center stage for this song, though–to spot him, you’ll have to keep your eyes to Roy’s left and wait for the camera to pan–but the camera gets a good close up of him at around the 2:25 mark, and his guitar is present throughout.
 
@@ -21,7 +21,7 @@ Unfortunately, Bruce wasn’t center stage for this song, though–to spot him, 
 [Watch on Youtube: Roy Orbison - (All I Can Do Is) Dream You (Black & White Night 30 - Alternate Version)](https://www.youtube.com/watch?v=4uBj5TwUsq0)
 
 **(All I Can Do Is) Dream You**
-**First performed:** September 30, 1987 (Los Angeles, CA)  
+**First performed:** September 30, 1987 (Los Angeles, CA)
 **Last performed:** September 30, 1987 (Los Angeles, CA)
 
 For more great performances from this legendary show, see more *Black and White Night* entries [here](https://estreetshuffle.com/?s=orbison+black+and+white+night).

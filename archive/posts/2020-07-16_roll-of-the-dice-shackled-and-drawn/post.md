@@ -140,8 +140,8 @@ Here’s that one-off performance, the last “Shackled and Drawn” to date.
 
 **Shackled and Drawn**
 **Recorded** 2011  
-**Released:** *Wrecking Ball* (2012)  
-**First performed:** March 9, 2012 (New York City, NY)  
+**Released:** *Wrecking Ball* (2012)
+**First performed:** March 9, 2012 (New York City, NY)
 Last performed: June 25, 2016 (Gothenburg, Sweden)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

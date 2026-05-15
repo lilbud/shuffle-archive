@@ -117,8 +117,8 @@ I’ll share one more unusual performance, this one from 2009. Bruce joined Elvi
 [Watch on Youtube: Bruce Springsteen performs "Wild Billy's Circus Story"](https://www.youtube.com/watch?v=JEQ9CtRlHnM)
 
 **Wild Billy’s Circus Story****Recorded:** June 25-28, 1973  
-**Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)  
-**First performed:** September 4, 1972 (New York City, NY)  
+**Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)
+**First performed:** September 4, 1972 (New York City, NY)
 **Last performed:** February 26, 2014 (Brisbane, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

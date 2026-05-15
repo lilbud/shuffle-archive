@@ -13,7 +13,7 @@ Although arguably eclipsed over the years by its B-side, the powerful civil righ
 Redding’s version was inducted into the Rock and Roll Hall of Fame’s *500 Songs that Shaped Rock and Roll*, ensuring its legacy in rock and soul history.
 
 **Shake**
-**First performed:** April 14, 1981 (Frankfurt, West Germany)  
+**First performed:** April 14, 1981 (Frankfurt, West Germany)
 **Last performed:** July 27, 2013 (Kilkenny, Ireland)
 
 (c) April 15, 2018

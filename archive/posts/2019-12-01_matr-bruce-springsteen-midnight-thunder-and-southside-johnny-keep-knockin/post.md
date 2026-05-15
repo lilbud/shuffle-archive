@@ -23,5 +23,5 @@ Five years later, Bruce took one final (to date) run at “Keep A-Knockin'” �
 [Watch on Youtube: Bruce Springsteen and Southside Johnny - "Keep A Knockin'" - San Francisco, 1988-11-26](https://www.youtube.com/watch?v=ZRShCBKt9Vs)
 
 **Keep A-Knockin’**
-**First performed:** July 10, 1983 (Asbury Park, NJ)  
+**First performed:** July 10, 1983 (Asbury Park, NJ)
 **Last performed:** November 26, 1988 (San Francisco, CA)

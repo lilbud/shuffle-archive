@@ -56,11 +56,11 @@ In concert, “With Every Wish” has only been performed a half-dozen times, al
 
 But when he tries to skip over the sad parts, his son makes him go back and read them. Because he knows they’re there for a reason.
 
-[Watch Video Highlight](https://videopress.com/embed/G9xPqO8U?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/G9xPqO8U)
 
 **With Every Wish**
 **Recorded** Late 1989**Released:** *Human Touch,* 1992  
-**First Performed:** June 15, 1992 (Stockholm)  
+**First Performed:** June 15, 1992 (Stockholm)
  **Last Performed:** July 23, 1992 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

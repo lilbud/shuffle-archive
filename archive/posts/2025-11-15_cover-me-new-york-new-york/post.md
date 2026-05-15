@@ -20,7 +20,7 @@ It didn’t take long for “New York, New York” to establish itself as an uno
 
 At the first two of a five-show stand, the E Street Band played Bruce off stage at the end of the night with a brief instrumental coda of “New York, New York.”
 
-[Watch Video Highlight](https://videopress.com/embed/28CoUbgM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/28CoUbgM)
 
 Okay, maybe that was too short to count as a true cover, but there was also the time that Bruce joined Sinatra himself at a tribute concert in 1995, in what may very well be Bruce’s stiffest, most awkward television appearance ever.
 
@@ -39,7 +39,7 @@ Stay tuned for my report from Re-Opening Night coming on Monday, though… prett
 I think.
 
 **New York, New York**
-**First performed:** May 16, 1988 (New York City, NY)  
+**First performed:** May 16, 1988 (New York City, NY)
 **Last performed:** November 19, 1995 (Los Angeles, CA)
 
 (c) June 26, 2021

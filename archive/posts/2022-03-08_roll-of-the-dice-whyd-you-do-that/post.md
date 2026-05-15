@@ -2,7 +2,7 @@ Today, Bruce Springsteen is known for his sophisticated, sensitive, and literary
 
 We’ve listened to dozens of original songs that Bruce wrote during that brief, barely-a-year era, and we’ll listen to many more before we bring this odyssey to an end. Some of these songs are more substantial than others, and today’s entry is definitely on the slighter side–lyrically speaking, at least.
 
-[Watch Video Highlight](https://videopress.com/embed/yN6OHFQl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yN6OHFQl)
 
 “Why’d You Do That” has all of nine unique lines, none of which provide any semblance of story or metaphor.
 
@@ -26,7 +26,7 @@ But let’s not hold that against him. Written and performed at the tender age o
 **Why’d You Do That?**
 Never recorded  
 Never released  
-**First performed:** July 17, 1970 (Asbury Park, NJ)  
+**First performed:** July 17, 1970 (Asbury Park, NJ)
 **Last performed:** October 11, 1970 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

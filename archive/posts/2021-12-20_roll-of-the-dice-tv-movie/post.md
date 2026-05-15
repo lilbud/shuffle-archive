@@ -79,8 +79,8 @@ Regardless, “TV Movie” needs at least one more outing to set things right. L
 
 **TV Movie**
 **Recorded** June 13, 1983  
-**Released:** *Tracks* (1998)  
-**First performed:** July 23, 2013 (Cardiff, Wales)  
+**Released:** *Tracks* (1998)
+**First performed:** July 23, 2013 (Cardiff, Wales)
 **Last performed:** July 23, 2013 (Cardiff, Wales)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

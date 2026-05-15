@@ -83,12 +83,12 @@ The definitive “State Trooper” performance came during Bruce’s 2005 Devils
 
 I’ll leave you with that masterful and nightmarish Vancouver performance, my all-time favorite version of “State Trooper.”
 
-[Watch Video Highlight](https://videopress.com/embed/6LD966KH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6LD966KH)
 
 **State Trooper**
 **Recorded:** December 17, 1981 – January 3, 1982  
-**Released:** *Nebraska* (1982)  
-**First performed:** September 8, 1984 (Hartford, CT)  
+**Released:** *Nebraska* (1982)
+**First performed:** September 8, 1984 (Hartford, CT)
 **Last performed:** November 15, 2012 (Omaha, NE)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -22,7 +22,7 @@
 
 **1981:** Bruce and the E Street Band wrap up a five-night stand at the Spectrum in Philadelphia on the original River Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/PEuZpNb0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PEuZpNb0)
 
 **1988:** Bruce and the band play a historic show in East Berlin, their first in East Germany. The show is broadcast across East Germany, but as many as 300,000 fans still flocked to the concert grounds for the show, where Bruce greets them in German, “It's nice to be in East Berlin. I want to tell you that I'm not here for or against any government. I have come to play rock and roll for the East Berliners in the hope that one day all barriers will be torn down." It’s believed that this show galvanized East Germany’s youth and contributed to the accelerated reunification of the country. The show also featured the tour premieres of “Out in the Street” and “The Promised Land.”
 
@@ -42,7 +42,7 @@
 
 **2002:** At his home in Colts Neck, Bruce performs and records “Empty Sky.” The edited footage will eventually air on ABC-TV’s *Nightline* after the album is released; the unedited reel below has not circulated widely until recently.
 
-[Watch Video Highlight](https://videopress.com/embed/1Uvx6IoY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1Uvx6IoY)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-pgzJ7Iyg6Q)
 

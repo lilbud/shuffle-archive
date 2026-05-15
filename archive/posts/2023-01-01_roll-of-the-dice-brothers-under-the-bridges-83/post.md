@@ -76,7 +76,7 @@ The last line of the song implies that our hero has finally joined the brotherho
 
 **Brothers Under the Bridges**
 **Recorded** September 14 – October 10, 1983  
-**Released:** *Tracks* (1998)  
+**Released:** *Tracks* (1998)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

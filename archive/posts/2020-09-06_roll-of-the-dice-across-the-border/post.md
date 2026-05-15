@@ -108,8 +108,8 @@ For what are we without hope in our hearts?
 
 **Across the Border**
 **Recorded** April -June 1995  
-**Released:** *The Ghost of Tom Joad* (1995)  
-**First performed:** November 21, 1995 (New Brunswick, NJ)  
+**Released:** *The Ghost of Tom Joad* (1995)
+**First performed:** November 21, 1995 (New Brunswick, NJ)
 **Last performed:** May 13, 2021 (Colts Neck, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

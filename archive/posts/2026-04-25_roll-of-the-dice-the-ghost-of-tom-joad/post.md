@@ -87,7 +87,7 @@ Now we just need to act.
 
 “The Ghost of Tom Joad” made its live debut almost a full month before it was released on album. Bruce debuted it without fanfare during his set at Neil Young’s Bridge School Benefit in 1995. Here’s that very first performance, and the first time anyone outside of Bruce’s inner circle heard the song:
 
-[Watch Video Highlight](https://videopress.com/embed/BBmCLuCm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BBmCLuCm)
 
 Once the album was released (two days before Thanksgiving), it seemed that “The Ghost of Tom Joad” was everywhere. In part, this was because the song heralded Bruce’s first new album of original work in almost four years. But the song itself struck a chord with almost everyone who heard it. Throughout that holiday season (as the marathon Ghost of Tom Joad acoustic tour began), all the way through 1996 and into ’97, “The Ghost of Tom Joad” was Bruce’s reliable opening number almost every night.
 
@@ -174,9 +174,9 @@ By now, it should be clear just how central “The Ghost of Tom Joad” has been
 “The Ghost of Tom Joad” may not have the sound or the tone that we’d attribute to an anthem, but there’s no doubting that for Bruce, it’s a song of solemn purpose that will likely never disappear from rotation.
 
 **The Ghost of Tom Joad**
-**Recorded** May 23, 1995 (1st version), August 2006 (2nd version), 2009 (3rd version), March 2013 (4th version)  
-**Released:** *The Ghost of Tom Joad* (1995), *The Essential Bruce Springsteen* (2003), *Sowing the Seeds* (2007), *The People Speak* (2009), *High Hopes* (2014), *Chapter and Verse* (2016)  
-**First performed:** October 28, 1995 (Mountain View, CA)  
+**Recorded** May 23, 1995 (1st version), August 2006 (2nd version), 2009 (3rd version), March 2013 (4th version)
+**Released:** *The Ghost of Tom Joad* (1995), *The Essential Bruce Springsteen* (2003), *Sowing the Seeds* (2007), *The People Speak* (2009), *High Hopes* (2014), *Chapter and Verse* (2016)
+**First performed:** October 28, 1995 (Mountain View, CA)
 **Last performed:** April 23, 2026 (Sunrise, FL)
 
 © October 17, 2019

@@ -8,11 +8,11 @@ Last month, we took a look at Bruce’s unreleased *Nebraska-*era home demo, “
 
 So let’s pick our story up where we left off, with the melody of “Vietnam” paired with prequel lyrics to “Born in the U.S.A.”–and the first appearance of what would eventually become an iconic chorus.
 
-[Watch Video Highlight](https://videopress.com/embed/ZZMFFtgu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZZMFFtgu)
 
 Bruce continued working on the song throughout the remainder of 1981, and the three takes in the combined clip below show his remarkable craft at work. Let’s eavesdrop as Bruce inches his way toward his vision. In this next version, we have a new but familiar melody. For the first time, we can hear the final song taking shape:
 
-[Watch Video Highlight](https://videopress.com/embed/ypaZ9d3b?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ypaZ9d3b)
 
 Bruce’s lyrics have progressed significantly, although the chorus sounds just a bit too jingoistic for the tone Bruce is trying to strike.
 
@@ -83,7 +83,7 @@ There’s one final verse here, and it almost sounds like an afterthought. It’
 
 You’d think that Bruce would instinctively realize he was venturing from the narrative. Instead, in the next take, he doubles down:
 
-[Watch Video Highlight](https://videopress.com/embed/tFEoOcRo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tFEoOcRo)
 
 Yes, you heard those lyrics right:
 
@@ -110,11 +110,11 @@ There’s also a final verse that’s hard to make out, and that’s too bad–b
 
 In Bruce’s next take, the classic introduction is now completely in place. In fact, the entire song is now *very* close to final–other than the masterful yet economical verse with the VA man (which Bruce is still struggling to find the right place for) and the still-missing “ten years burning down the road” closing, the song is essentially complete.
 
-[Watch Video Highlight](https://videopress.com/embed/xqUD3rof?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xqUD3rof)
 
 Finally, in this last version, we hear a much more comfortable and confident Bruce. He clearly feels that he’s close to completion, and indeed the final lyrics are all present.
 
-[Watch Video Highlight](https://videopress.com/embed/c1iuoKno?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/c1iuoKno)
 
 But we also have the return of the backstory verses from “Vietnam” along with some harrowing, you-are-there imagery that’s powerful enough to overpower the pain and neglect that await him upon his return home:
 
@@ -133,7 +133,7 @@ There’s also the first hint of an electrified “Born in the U.S.A.” near th
 
 As powerful as the acoustic version is, it’s hard to argue with Bruce. In late April 1982, Bruce assembled the E Street Band to take a crack at the song, and their eight-minute(!) unreleased take (only their second, and the one that would form the basis for the final version) immediately proves Bruce’s point. Roy’s synthesizer riff is a clarion call for the veteran’s countrymen to wake up and *see* him, and Bruce’s rock vocals convey the perfect mix of anger, anguish, loss, and betrayal.
 
-[Watch Video Highlight](https://videopress.com/embed/KAVddP0t?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KAVddP0t)
 
 Bruce and the boys would finally nail the song just a few days later, on May 3, 1982, with a much shorter jam but with Max’s famous-ever-after lightning-in-a-bottle drum solo that just barely holds the band together until Bruce counts them back in.
 
@@ -163,7 +163,7 @@ Still, the existence of these remixes–a relatively new phenomenon in general a
 
 “Born in the U.S.A.” made its live debut just days after its vinyl debut, at a tour warm-up at The Stone Pony on the evening of June 8, 1984. To this day, it remains one of the few opportunities fans have had to witness the song’s powerful rock arrangement in an intimate venue.
 
-[Watch Video Highlight](https://videopress.com/embed/PG3WCwBE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PG3WCwBE)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/09/1984-06-08.jpg)
 
@@ -199,8 +199,8 @@ But ten years, twenty years, thirty years, forty years burning down the road, it
 
 **Born in the U.S.A.**
 **Recorded** April 27-May 3, 1984  
-**Released:** *Born in the U.S.A.* (1984)  
-**First performed:** June 8, 1984 (Asbury Park, NJ)  
+**Released:** *Born in the U.S.A.* (1984)
+**First performed:** June 8, 1984 (Asbury Park, NJ)
 **Last performed:** July 6, 2023 (London, England)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

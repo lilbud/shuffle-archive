@@ -10,7 +10,7 @@ It was at Neil and Pegi Young’s first Bridge School benefit show in 1986, and 
 
 But Neil went first, and in the middle of his set he invited Bruce to the stage, along with Nils Lofgren, a member of both icons’ bands. Side by side for the first time, the three musical legends performed a beautiful acoustic rendition of “Helpless.”
 
-[Watch Video Highlight](https://videopress.com/embed/eQqMdMXN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eQqMdMXN)
 
 You won’t find that performance on Bruce’s archive release from that night, but that’s only because it’s already been officially released. You can find it on the *The Bridge Collection, Volume 2* on select streaming services.
 

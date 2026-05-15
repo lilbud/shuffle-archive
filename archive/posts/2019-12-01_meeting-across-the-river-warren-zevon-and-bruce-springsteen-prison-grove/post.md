@@ -10,5 +10,5 @@ Bruce supplies very recognizable backing vocals on this haunting track.
 
 **Prison Grove**
 **Recorded** December 2002  
-**Released:** *The Wind* (2003)  
+**Released:** *The Wind* (2003)
 **Never performed**

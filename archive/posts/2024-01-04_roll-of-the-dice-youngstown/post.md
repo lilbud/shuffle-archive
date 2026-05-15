@@ -96,7 +96,7 @@ The Ohio Works finally closed in 1980, and both Marshalls found themselves unemp
 *Yeah these mills they built the tanks and bombs that won this country’s wars*
 *We sent our sons to Korea and Vietnam, now we’re wondering what they were dying for*
 
-[Watch Video Highlight](https://videopress.com/embed/I1OlqUWC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/I1OlqUWC)
 
 Black Monday kicked off a five-year period of economic devastation, with approximately 50,000 jobs vanishing into thin air. At the peak of the steel industry, 150,000 people lived in Youngstown. Today, it’s barely 60,000.
 
@@ -157,8 +157,8 @@ Joe Marshall Jr. passed away a year later. Youngstown still waits for those jobs
 
 **Youngstown**
 **Recorded** June 16, 1995  
-**Released:** *The Ghost of Tom Joad* (1995)  
-**First performed:** November 21, 1995 (New Brunswick, NJ)  
+**Released:** *The Ghost of Tom Joad* (1995)
+**First performed:** November 21, 1995 (New Brunswick, NJ)
 **Last performed:** February 25, 2017 (Auckland, New Zealand)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

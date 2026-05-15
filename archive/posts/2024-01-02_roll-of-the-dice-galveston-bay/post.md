@@ -92,12 +92,12 @@ Most of the set list selections were either obvious or predictable candidates, b
 
 Here’s that rarely seen performance–to my knowledge, it’s the only professionally filmed, officially released clip of Bruce performing “Galveston Bay.” (That’s the Professor on keyboards, by the way.)
 
-[Watch Video Highlight](https://videopress.com/embed/5Cf6O411?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5Cf6O411)
 
 **Galveston Bay**
 **Recorded** March-August 1995  
-**Released:** *The Ghost of Tom Joad* (1995)  
-**First performed:** November 21, 1995 (New Brunswick, NJ)  
+**Released:** *The Ghost of Tom Joad* (1995)
+**First performed:** November 21, 1995 (New Brunswick, NJ)
 **Last performed:** September 25, 2009 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -72,7 +72,7 @@ In the end, it’s easy to see why “Arabian Nights” was voted off the island
 
 **Bonus #1:** I mentioned earlier that there are three circulating recordings of “Arabian Nights.” We heard the official studio recording above, but there are two earlier ones with slightly different lyrics. Here’s the earliest recording of “Arabian Nights,” recorded at Mike Appel’s office on Valentine’s Day, 1972.
 
-[Watch Video Highlight](https://videopress.com/embed/ClhigOsj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ClhigOsj)
 
 This recording doesn’t have the exchange between the narrator and his father; instead, we hear this equally mysterious passage:
 
@@ -90,7 +90,7 @@ This recording doesn’t have the exchange between the narrator and his father; 
 **Arabian Nights**
 **Recorded** April-June 1972  
 **Never released**  
-**First performed:** February 14, 1972 (New York City, NY)  
+**First performed:** February 14, 1972 (New York City, NY)
 **Last performed:** May 2, 1972 (New York City, NY)
 
 © March 23, 2021

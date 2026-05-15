@@ -12,12 +12,12 @@ None of the album’s singles charted in America, but “Hail Hail Rock ‘n’ 
 
 Garland played it each night of the run (except for one show he missed), and during his performance December 6th, Bruce joined him at the mic to take a verse. Take a listen below.
 
-[Watch Video Highlight](https://videopress.com/embed/IZBPjDQ4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IZBPjDQ4)
 
 Bruce and Garland would go on to perform together fifteen times over the next fifteen years, but never again (to date, at least) would they play “Welcome to the World.”
 
 **Welcome to the World**
-**First performed:** December 3, 2001 (Asbury Park, NJ)  
+**First performed:** December 3, 2001 (Asbury Park, NJ)
 **Last performed:** December 8, 2001 (Asbury Park, NJ)
 
 © January 24, 2022

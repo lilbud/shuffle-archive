@@ -28,7 +28,7 @@
 
 **1981:** Bruce kicks off a sixteen-show run in the U.K. with a show at City Hall in Newcastle.
 
-[Watch Video Highlight](https://videopress.com/embed/necGSKS1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/necGSKS1)
 
 [Watch on Youtube: Bruce Springsteen & E-Street Band at Newcastle City Hall 1981 - Hungry Heart](https://www.youtube.com/watch?v=53zoghl_Ztg)
 
@@ -50,7 +50,7 @@
 
 **1993:** Bruce concludes his tour of Spain with a show in Barcelona.
 
-[Watch Video Highlight](https://videopress.com/embed/KL2QHW6N?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KL2QHW6N)
 
 Meanwhile back at home, the *Asbury Park Press* reports that the E Street Band is auditioning new frontmen to replace Bruce for the band’s upcoming album and tour.
 
@@ -80,7 +80,7 @@ Meanwhile back at home, the *Asbury Park Press* reports that the E Street Band i
 
 **2013:** For their third and final night in Sweden, Bruce and the band play a third complete album–this time *Born in the U.S.A.*
 
-[Watch Video Highlight](https://videopress.com/embed/GbMIJjBD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GbMIJjBD)
 
 [Watch on Youtube: Bruce Springsteen 2013-05-11 Stockholm - Raise Your Hand](https://www.youtube.com/watch?v=CKIol-Kwu2A)
 

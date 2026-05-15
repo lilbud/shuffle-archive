@@ -30,7 +30,7 @@ Because believe it or not, Bruce’s debut performance of “The River”–film
 
 Let’s watch that powerful performance below, and remember: this was the very first time Bruce had ever performed “The River” in public.
 
-[Watch Video Highlight](https://videopress.com/embed/14LE1IUk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/14LE1IUk)
 
 Bruce had recorded the song not even one month before. He took the band into the studio to record “The River” immediately after he finished writing (and re-titling) it in August. It didn’t take long to settle on a completed take, and for a month or so, “The River” was almost the centerpiece of a single-disc album called *The Ties That Bind.*
 
@@ -180,8 +180,8 @@ But my favorite arrangement (right up there with the Reunion Tour) is Bruce’s 
 
 **The River**
 **Recorded** August 26, 1979 – April 1980  
-**Released:** *The River* (1980), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)  
-**First performed:** September 21, 1979 (New York City, NY)  
+**Released:** *The River* (1980), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
+**First performed:** September 21, 1979 (New York City, NY)
 **Last performed:** July 25, 2021 (Monza, Italy)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

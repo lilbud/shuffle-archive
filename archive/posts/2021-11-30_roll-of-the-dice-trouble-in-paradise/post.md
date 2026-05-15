@@ -100,7 +100,7 @@ And when we start doubting what we’re sure of, God have mercy.
 
 **Trouble in Paradise**
 **Recorded** December 1, 1989  
-**Released:** *Tracks* (1998)  
+**Released:** *Tracks* (1998)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -10,7 +10,7 @@ That novelty bass vocal didn’t hurt either–and amazingly, Cochran sings that
 
 Here’s his first-ever performance: the opening number for his Darkness Tour show in Miami in the summer of 1978, with The Big Man doing the honors on the bass vocal:
 
-[Watch Video Highlight](https://videopress.com/embed/Ve8PpVzx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ve8PpVzx)
 
 Okay, I admit that’s a terrible recording, but I presented it for historical purposes. Here’s a better one–caught on video just a couple of weeks later in Washington, DC.
 
@@ -30,10 +30,10 @@ Since then, “Summertime Blues” can be counted on to make a few cameo appeara
 
 **Bonus:** Although Bruce didn’t perform “Summertime Blues” with the E Street Band between the River and Magic Tours, he did play it once with Beaver Brown at Big Man’s West during Memorial Day Weekend in 1982. It’s an incredibly high-energy performance, and although the sound quality isn’t pristine, it’s still my all-time favorite performance of the song. It rarely circulates but deserves a listen–enjoy.
 
-[Watch Video Highlight](https://videopress.com/embed/CZbyGqLp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CZbyGqLp)
 
 **Summertime Blues**
-**First performed:** July 28, 1978 (Miami, FL)  
+**First performed:** July 28, 1978 (Miami, FL)
 **Last performed:** September 1, 2016 (Washington, DC)
 
 

@@ -12,7 +12,7 @@ Amazingly, their performance that night was captured on both audio and video, an
 
 In one of the set’s highlights, The Bruce Springsteen band kicks into a superbly cool rendition of Bruce’s original song, “The Band’s Just Boppin’ the Blues,” of which only two performances are known to exist on bootleg audio. (This one is by far the superior performance, thanks to the Southside’s guest appearance.)
 
-[Watch Video Highlight](https://videopress.com/embed/vioCata0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vioCata0)
 
 Bruce obviously intended his title as a hat-tip to Carl Perkins, who had an almost-hit with “Boppin’ the Blues” fifteen years earlier (and had recently re-recorded it with New Jersey based NRBQ).
 
@@ -41,7 +41,7 @@ And a showcase it was. The highlights of the performance are clearly the two ins
 Flash forward exactly a year later, and Bruce would be one month into touring for his upcoming debut album, with the band that would eventually become known as E Street fully in place. But in November 1971, the action was all at the Student Prince, where a pre-fame Bruce Springsteen and his eponymous band spent their weekend nights just boppin’ the blues.
 
 **The Band’s Just Boppin’ the Blues**
-**First performed:** November 13, 1971 (Asbury Park, NJ)  
+**First performed:** November 13, 1971 (Asbury Park, NJ)
 **Last performed:** February 4, 1972 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

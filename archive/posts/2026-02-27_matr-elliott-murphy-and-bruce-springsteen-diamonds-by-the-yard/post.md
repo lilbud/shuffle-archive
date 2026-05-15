@@ -10,7 +10,7 @@ Like they did five years earlier, they played one of Elliott’s songs–this ti
 
 “Diamonds by the Yard” was Elliott’s first “epic” song; at nearly seven minutes, it’s practically Springsteenian in length and grandeur. It was a natural pick for them to play together that night in Paris.
 
-[Watch Video Highlight](https://videopress.com/embed/2h3HrD0y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2h3HrD0y)
 
 With only two acoustic guitars between them, it wasn’t quite as majestic an arrangement as on the album, but it was a delightful surprise and lovely performance nonetheless and remains the only time Bruce has ever performed Elliott’s song.
 

@@ -22,11 +22,11 @@ The show was broadcast live on Philadelphia’s WMMR-FM radio station and syndic
 
 That last encore was a cover of Cooke’s traditional set-closer, and while Bruce respectfully remained on backing vocals, his appearance provided a final shot of adrenaline that put the show over the top and into the annals of history.
 
-[Watch Video Highlight](https://videopress.com/embed/1e4Pz1em?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1e4Pz1em)
 
 After that show, rock and roll fans from all over the east coast started making pilgrimages to the Pony to hear Southside and the Jukes, and “Having a Party” became Southside’s traditional closer as well. It became such a signature song for them, in fact, that within a year the band was performing it in full in a major motion picture, the 1977 drama *Between the Lines,* which featured some great close-ups of the Jukes in action.
 
-[Watch Video Highlight](https://videopress.com/embed/R8LjfjuT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/R8LjfjuT)
 
 As for Bruce, he would go on to reprise his guest appearance on “Having a Party” dozens of times over the years, at first with Southside, and then later–as the song became associated not just with Southside but with the Asbury Park scene itself–with other local and visiting bands.
 
@@ -48,10 +48,10 @@ Trust me and take a few minutes to watch the video below. You’ll see Bruce and
 
 Have a happy and safe New Year’s Eve, and if you’re having a party: mask up. See you in 2022!
 
-[Watch Video Highlight](https://videopress.com/embed/5or7QVbC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5or7QVbC)
 
 **Having a Party**
-**First performed:** May 30, 1976 (Asbury Park, NJ)  
+**First performed:** May 30, 1976 (Asbury Park, NJ)
 **Last performed:** August 7, 2019 (Asbury Park, NJ)
 
 (c) December 31, 2021

@@ -2,7 +2,7 @@ Bruce’s team-ups are always fun, but this one’s an absolute delight.
 
 It’s no secret that Sam Moore is one of Bruce’s longest and strongest influences. Bruce has spoken at length about it on many occasions, including in this clip from Elvis Costello’s too short-lived *Spectacle* series.
 
-[Watch Video Highlight](https://videopress.com/embed/ucFmhKLJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ucFmhKLJ)
 
 What’s surprising, though, is how long it took for Bruce and Sam to share a stage together, especially after Sam appeared on three of Bruce’s studio tracks (“[Man’s Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/),” “[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/),” and “Soul Driver”) in the early nineties.
 
@@ -24,14 +24,14 @@ When Bruce and Sam tackled “I Thank You” together, Bruce quickly and graciou
 
 In the wonderful clip below, keep your eye on Bruce during the close-ups–the mix of wonder, joy, excitement, and humility in performing with one of his idols is all right there on his face.
 
-[Watch Video Highlight](https://videopress.com/embed/9mXCbgla?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9mXCbgla)
 
 (The clip didn’t cut off before the end–they just segued at that point into “Soul Man.”)
 
 Sam appeared each night of the stand, and each appearance was a showstopper. It wouldn’t be the last time Bruce and Sam would perform together–they’d even record together before long–but in terms of sheer fun and spontaneity, it may endure as the best.
 
 **I Thank You**
-**First performed:** December 5, 2003 (Asbury Park, NJ)  
+**First performed:** December 5, 2003 (Asbury Park, NJ)
 **Last performed:** May 4, 2008 (Newark, NJ)
 
 

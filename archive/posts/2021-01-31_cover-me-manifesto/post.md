@@ -4,7 +4,7 @@ By all accounts, it was a joyous and raucous (if standard) main set, but when Br
 
 Reading from a carefully prepared script in Spanish, Bruce recalled the last time he was in the neighborhood, on the Human Rights Now! Tour in 1988.
 
-[Watch Video Highlight](https://videopress.com/embed/bxa38TBl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bxa38TBl)
 
 Here’s the English translation of Bruce’s words:
 
@@ -84,7 +84,7 @@ In the many years since his death, countless artists have paid tribute to Jara a
 
 On September 12, 2013, it was Bruce’s turn. Forty years to the day of Jara’s capture and detainment, Bruce introduced his encores with a moving rendition of Jara’s “Manifesto,” performed only with Nils and Curt Ramm as accompaniment.
 
-[Watch Video Highlight](https://videopress.com/embed/ydXD0fBP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ydXD0fBP)
 
 The crowd roared in recognition and appreciation and then listened raptly and respectfully while Bruce, Nils, and Curt kept Jara’s legacy alive.
 
@@ -93,7 +93,7 @@ When they finished, Bruce went directly into “[We Are Alive.](https://estreets
 He couldn’t have picked a more perfect segue.
 
 **Manifesto**
-**First performed:** September 12, 2013 (Santiago, Chile)  
+**First performed:** September 12, 2013 (Santiago, Chile)
 **Last performed:** September 12, 2013 (Santiago, Chile)
 
 

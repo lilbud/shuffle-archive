@@ -10,7 +10,7 @@ But to be completely honest, it’s also because I worried that if I featured th
 
 So this is for you, Donna! And for everyone else, if you haven’t seen this before: buckle up.
 
-[Watch Video Highlight](https://videopress.com/embed/vvjOkpSn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vvjOkpSn)
 
 Wow.
 

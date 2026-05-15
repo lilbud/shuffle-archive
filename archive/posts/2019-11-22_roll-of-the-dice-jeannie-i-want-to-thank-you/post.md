@@ -37,7 +37,7 @@ But oh, that break–it’s one of my favorite Springsteen moments from the Stee
 **Jeannie, I Want to Thank You**
 Never recorded**
 **Never released**
-**First performed:** January 13, 1970 (San Francisco, CA)  
+**First performed:** January 13, 1970 (San Francisco, CA)
 **Last performed:** June 13, 1970 (Bricktown, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

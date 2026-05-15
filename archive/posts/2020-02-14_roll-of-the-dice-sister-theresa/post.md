@@ -12,7 +12,7 @@ Switching to his acoustic guitar, accompanied primarily by Vini Lopez on (of all
 
 You can listen to that first performance by Child below, but I suggest skipping ahead –there’s a much, much better recording a little further down.
 
-[Watch Video Highlight](https://videopress.com/embed/ErLSO8GL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ErLSO8GL)
 
 As far as we know, the boys only played “Sister Theresa” twice–the debut performance with Child above, and a second with Steel Mill the following year. (Set lists are notoriously hard to come by from this era, however, so it’s very likely that “Sister Theresa” had other outings that were not recorded.)
 
@@ -58,7 +58,7 @@ Never recorded and rarely performed, “Sister Theresa” is too atypical of Bru
 **Sister Theresa**
 Never recorded**
 **Never released**
-**First performed:** September 20, 1969 (Richmond, VA)  
+**First performed:** September 20, 1969 (Richmond, VA)
 **Last performed:** 1970 (exact date uncertain)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

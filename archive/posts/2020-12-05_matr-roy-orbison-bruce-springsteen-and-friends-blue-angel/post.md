@@ -15,7 +15,7 @@ Orbison originally released “Blue Angel” in 1960. It peaked at #9 on the U.S
 Check out more Orbison/Springsteen highlights from *Black and White Night* [here](https://estreetshuffle.com/?s=orbison).
 
 **Blue Angel**
-**First performed:** September 30, 1987 (Los Angeles, CA)  
+**First performed:** September 30, 1987 (Los Angeles, CA)
 **Last performed:** September 30, 1987 (Los Angeles, CA)
 
 

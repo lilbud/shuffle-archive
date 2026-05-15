@@ -122,8 +122,8 @@ When Bruce and the band hit the road again next year, odds are very, very high t
 
 **Adam Raised a Cain**
 **Recorded** February 15-17, 1978  
-**Released:** *Darkness on the Edge of Town* (1978)  
-**First performed:** May 23, 1978 (Buffalo, NY)  
+**Released:** *Darkness on the Edge of Town* (1978)
+**First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** February 9, 2017 (Sydney, Australia)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

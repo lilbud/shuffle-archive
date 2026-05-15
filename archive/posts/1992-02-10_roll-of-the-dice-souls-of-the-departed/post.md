@@ -100,8 +100,8 @@ Here are two final clips, from the few performances with the E Street Band (ther
 
 **Souls of the Departed**  
 **Recorded:** July-December 1991  
-**Released:** *Lucky Town* (1992)  
-**First performed:** June 15, 1992 (Stockholm, Sweden)  
+**Released:** *Lucky Town* (1992)
+**First performed:** June 15, 1992 (Stockholm, Sweden)
 **Last performed:** April 27, 2008 (Charlotte, NC)
 
 © March 19, 2019

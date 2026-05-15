@@ -14,7 +14,7 @@ And then it began: “Roy and I are going to start with something., we used to s
 
 Bruce pulled out a harmonica, and opened with an absolutely gorgeous rendition of “Thunder Road,” accompanied only by Roy on piano. By the time Bruce finished conducting the crowd through the coda, I knew we were in for a very different Night Two.
 
-[Watch Video Highlight](https://videopress.com/embed/b3Y5W7XT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/b3Y5W7XT)
 
 “Good evening,” he said, “let’s bring up the band!” As the band took their positions, Bruce declared, “Let’s start with the hits! Let’s start with the *summertime* hits right now.”
 
@@ -26,7 +26,7 @@ The opening songs tend to set the tone for the night, and kicking things off wit
 
 At the end of “Hungry Heart,” Bruce looked pretty satisfied. He turned to the band and signaled “Keep going! Alright we’re going to keep that summertime theme going…” Bruce then called his first audible of the night–his first of *three in a row–*and launched into “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/).”
 
-[Watch Video Highlight](https://videopress.com/embed/2QpXB6MX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2QpXB6MX)
 
 Any hint of tiredness left in me was gone by this point, replaced by adrenaline. The crowd was alive tonight, and Bruce knew he had us all in the zone. So Bruce kept it going, audibling “[Summertime Blues.](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)”
 
@@ -48,21 +48,21 @@ And then Bruce collected signs. It hit me at that moment: he’d completely skip
 
 First up: “This one has never been played by the E Street Band! At least not that I remember… I don’t think it ever has.” (It had, but not for a *very* long time.) “Ladies and gentlemen, we want you to knock–right now–on wood!”
 
-[Watch Video Highlight](https://videopress.com/embed/FaVCWMDK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/FaVCWMDK)
 
 This was our first old-school tour premiere of the night, and it probably was my favorite moment of the night. The horn-fueled E Street Band absolutely owned [the Eddie Floyd classic](https://estreetshuffle.com/index.php/2021/04/02/cover-me-knock-on-wood/), and Bruce was having the of his life, or at least of ours.
 
 A remarkable run of vintage Springsteen originals followed “for our old, old, old, old, old fans out there!”
 
-[Watch Video Highlight](https://videopress.com/embed/EB90p5oe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EB90p5oe)
 
-[Watch Video Highlight](https://videopress.com/embed/HeDEsJRX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HeDEsJRX)
 
 “[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)” led to “[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/),” which had Bruce in a nostalgic mood, recounting all the bands they’d opened for where “Thundercrack” was their “first showstopper.”
 
 And then came another highlight of the night: my first full-band “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)” (I’d heard it only acoustically before), with an absolutely gorgeous new introductory guitar solo by Bruce, and a mid-song story. Bruce reminisced about the fireflies he used to watch as he wrote the song, and as he spoke, the crowd broke out their cel phones, and the park became filled with fireflies… “Light ’em up! That’s good…” Even if you skipped the other videos, watch this one.
 
-[Watch Video Highlight](https://videopress.com/embed/zkaKIjie?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zkaKIjie)
 
 And then… my heart skipped a beat, because I recognized the piano notes that signaled the next song. I knew them by heart but never expected to hear them live:
 

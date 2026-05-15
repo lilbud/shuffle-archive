@@ -125,12 +125,12 @@ I’m thinking this is a streak worth extending.
 
 **Bonus:** Here’s an alternate, unreleased mix of “Cover Me.” I present it here for the catharsis of hearing the E Street Band bring the song to a satisfying halt. You can almost hear the sigh of relief.
 
-[Watch Video Highlight](https://videopress.com/embed/e3V4yBk8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e3V4yBk8)
 
 **Cover Me**
 **Recorded** January 25, 1982  
-**Released:** *Born in the U.S.A.* (1984)  
-**First performed:** July 2, 1984 (St. Paul, MN)  
+**Released:** *Born in the U.S.A.* (1984)
+**First performed:** July 2, 1984 (St. Paul, MN)
 **Last performed:** February 4, 2017 (Melbourne, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

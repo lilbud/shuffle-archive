@@ -6,7 +6,7 @@
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to the New Orleans Municipal Auditorium, where the setlist features Bruce’s one and only cover of “Honky Tonk.”
 
-[Watch Video Highlight](https://videopress.com/embed/xE7qS26M?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xE7qS26M)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kJCwCcvLG9g)
 
@@ -18,13 +18,13 @@
 
 **1981:** Bruce’s five-night River stand at The Spectrum in Philly continues.
 
-[Watch Video Highlight](https://videopress.com/embed/8V1HMlo9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8V1HMlo9)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/07/1981-07-16.jpg)
 
 **1983:** Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptune, New Jersey, including “Lucille,” “Wooly Bully,” and “Keep-a-Knockin’.”
 
-[Watch Video Highlight](https://videopress.com/embed/rSVwCU6r?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rSVwCU6r)
 
 **1984:** On a night off in between Born in the U.S.A. shows in Chicago, Bruce is spotted playing pinball at a local bar.
 
@@ -46,7 +46,7 @@
 
 **2005:** The Devils & Dust Tour returns to the U.S., and the first show of the leg is at the Pepsi Arena in Albany. Bruce tour premieres “Does This Bus Stop at 82nd Street” for the occasion.
 
-[Watch Video Highlight](https://videopress.com/embed/bYjdK3w0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bYjdK3w0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/07/2005-07-16.jpg)
 

@@ -144,6 +144,6 @@ Bruce Springsteen stops by the Wonder Bar in Asbury Park today to thank manager 
 
 [pic.twitter.com/hJDHOk6tRL](https://t.co/hJDHOk6tRL)
 
-— Stan Goldstein (@Stan_Goldstein) 
+— Stan Goldstein (@Stan_Goldstein)
 
 [July 31, 2022](https://twitter.com/Stan_Goldstein/status/1553806532663558147?ref_src=twsrc%5Etfw)

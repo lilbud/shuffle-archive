@@ -24,7 +24,7 @@ The E Street Band didn’t revive “Walking the Dog” until the autumn of 1973
 
 No two performances sounded alike. Take, for example, these two early 1974 performances. First, let’s listen to their January 29th performance at Muther’s Music Emporium in Nashville. (Disregard the incorrect date and venue displayed in the video below.)
 
-[Watch Video Highlight](https://videopress.com/embed/yJb7k2NK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yJb7k2NK)
 
 In this clip, the E Street Band is light on its feet, despite drummer Vini Lopez’s charmingly sloppy propulsion. Bruce commands the band like a drill sergeant (right down to the whistle), even though the band just wans to “Party!”
 
@@ -42,12 +42,12 @@ The E Street Band played their last “Walking the Dog” on April 9, 1974, one 
 
 There was one other time, however–way back in 1982, with Sonny Kenn & The Wild Ideas at Big Man’s West in the spring of 1982.
 
-[Watch Video Highlight](https://videopress.com/embed/GNPWZPcD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GNPWZPcD)
 
 That performance was nowhere near as daring or expansive as any of the Bruce Springsteen Band or E Street Band versions, but it remains the last recorded document of Bruce performing a song that was a staple of his early set lists.
 
 **Walking the Dog**
-**First performed:** December 11, 1971 (Asbury Park, NJ)  
+**First performed:** December 11, 1971 (Asbury Park, NJ)
 **Last performed:** July 17, 2004 (Asbury Park, NJ)
 
 

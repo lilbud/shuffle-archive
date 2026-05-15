@@ -67,8 +67,8 @@ It’s too gentle a song to translate well to a full band, but I hold out hope f
 
 **Leah**
 **Recorded:** Mid-2004  
-**Released:** *Devils & Dust* (2005)  
-**First performed:** April 21. 2005 (Asbury Park, NJ)  
+**Released:** *Devils & Dust* (2005)
+**First performed:** April 21. 2005 (Asbury Park, NJ)
 **Last performed:** November 22, 2005 (Trenton, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

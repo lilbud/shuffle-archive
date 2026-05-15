@@ -10,7 +10,7 @@ He very well may have. His first couple of new songs, “[It’s the Little Thin
 
 But as the tour wore on, it seemed like Bruce grew bored: “[Sell It and They Will Come](https://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/)” is little more than the musings of a night owl with nothing to do other than watch television, and its follow-up sounds almost like a sequel. At least at first. Because if we listen closely, even these seemingly dashed-off ditties contain some surprisingly deep insights.
 
-[Watch Video Highlight](https://videopress.com/embed/SKmqxgge?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SKmqxgge)
 
 “There Will Never Be Any Other for Me But You” was a work-in-progress throughout its short life (34 performances across eight months); Bruce would often name check whatever celebrities were in the gossip columns that week, and his phrasing would vary from night to night–making it a bit challenging to analyze the lyrics.
 
@@ -57,7 +57,7 @@ Hearing the song for the first time in concert, did his fans understand the true
 **There Will Never Be Any Other for Me But You**
 Never recorded**
 **Never released**
-**First performed:** September 19, 1996 (Providence, RI)  
+**First performed:** September 19, 1996 (Providence, RI)
 **Last performed:** May 10, 1997 (Warsaw, Poland)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

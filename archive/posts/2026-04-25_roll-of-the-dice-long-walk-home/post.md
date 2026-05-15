@@ -139,7 +139,7 @@ He’s played it that way ever since–at pre-election rallies for Secretary Cli
 
 Unfortunately, by the time Bruce recorded and filmed his Broadway show for official release, “Long Walk Home” had been dropped from the set. Here it is below.
 
-[Watch Video Highlight](https://videopress.com/embed/nKNDHlSR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nKNDHlSR)
 
 On the Land of Hope and Dreams Tour (both European and American legs), “Long Walk Home” returned to its original full-band arrangement, but with an introduction that bears a more than a little resemblance to “Land of Hope and Dreams”–a resemblance that I am certain is intentional.
 
@@ -151,8 +151,8 @@ We’re much further away from the America he sings about than we were when he w
 
 **Long Walk Home**
 **Recorded** March-April 2007  
-**Released:** *Magic* (2007)  
-**First performed:** November 11, 2006 (London, England)  
+**Released:** *Magic* (2007)
+**First performed:** November 11, 2006 (London, England)
 **Last performed:** April 23, 2026 (Sunrise, FL)
 
 © March 21, 2020 / April 25, 2026

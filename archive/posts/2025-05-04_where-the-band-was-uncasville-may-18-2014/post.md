@@ -16,13 +16,13 @@ Not because I’m lazy, and not because I want to embarrass myself with how ridi
 
 *When he skipped the first wild-card encore number that precedes “Born to Run,” I chalked it up to saving room for some surprises at the end. And a surprise we got: After the first two of the standard three-pack (“[Dancing in the Dark,](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” “[Tenth Avenue Freeze-out,](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” and “[Shout](https://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/)“) that has formed the centerpiece of every encore set this year, Bruce called an audible for “Jungleland.” It was stunning, but he barely made it through.*
 
-[Watch Video Highlight](https://videopress.com/embed/6EmRzj4L?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6EmRzj4L)
 
 *At the end of the song, “Rosalita” came up on the teleprompter, which would have led back into the set-listed “Shout,” for the traditional closing number and band introductions (followed by an acoustic farewell).*
 
 *Except he couldn’t do it. Instead, he waved the band up front, turned to the crowd, and said weakly “You’ve just seen the legendary E Street Band.” Not his traditional preacher-like “hard-rocking, earth-shocking, etc.” chant, but just an exhausted acknowledgement. And with that–not even introducing the band members by name for perhaps the first time ever–Bruce waved the band off the stage and managed to get through an acoustic “[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/).”*
 
-[Watch Video Highlight](https://videopress.com/embed/2z1JZ7gw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2z1JZ7gw)
 
 *In the pit, we were stunned. The show was obviously and abruptly truncated, and even the band was shocked to find out that they were done. They actually stayed under the stage during the final acoustic number in case Bruce called them back for one more number. But it didn’t happen.*
 

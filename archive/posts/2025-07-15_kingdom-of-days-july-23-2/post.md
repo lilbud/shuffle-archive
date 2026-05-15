@@ -2,7 +2,7 @@
 
 **1971:** The Bruce Springsteen Band opens for The Richard Goldman Band in Damrosch Park in New York City, delivering a fantastic, jazzy, horn-fueled hour-long set. The show was recorded from the soundboard in absolutely *outstanding* quality, perhaps the best recording from this period. If you haven’t given it a listen before, trust me: do so now.
 
-[Watch Video Highlight](https://videopress.com/embed/NTSZmMxw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NTSZmMxw)
 
 **1973:** Bruce and the E Street Band wrap up their headlining stand at Max’s Kansas City in New York (with The Wailers opening). Listen to the earliest known recorded performance of a still unreleased “New York City Serenade.”
 
@@ -44,7 +44,7 @@
 
 **1984:** Bruce and the E Street Band kick off a three-night stand in Toronto. (Thanks to friend of the blog Jeff Kowalsky for the second review scan!)
 
-[Watch Video Highlight](https://videopress.com/embed/yR4BSPzL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yR4BSPzL)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-23.png)
 
@@ -56,7 +56,7 @@
 
 **1989:** Bruce joins Cats on a Smooth Surface on-stage at The Stone Pony for seven songs, including “[Old Time Rock and Roll](https://estreetshuffle.com/index.php/2020/02/01/matr-bob-seger-and-bruce-springsteen-old-time-rock-and-roll/)” and “[Sweet Little Sixteen](https://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/).”
 
-[Watch Video Highlight](https://videopress.com/embed/IU7PFhPU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IU7PFhPU)
 
 **1992:** The U.S. leg of World Tour 1992 kicks off, as does Bruce’s eleven-night stand at the Brendan Byrne Arena in East Rutherford. Bruce plays “[With Every Wish](https://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/)” for the only time in the United States and the last time to date.
 
@@ -74,43 +74,43 @@ Meanwhile, Mike Appel’s and Marc Eliot’s new tell-all *Down Thunder Road* ga
 
 **1997:** *Blood Brothers* (the documentary, not the EP) is certified gold by the Recording Industry Association of America.
 
-[Watch Video Highlight](https://videopress.com/embed/sH2YJBjg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/sH2YJBjg)
 
 **1999:** It’s a big day for Bruce at the Recording Industry Association of America: *The Wild, The Innocent, and The E Street Shuffle* is certified double-platinum, [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) is certified triple platinum, *Greatest Hits* is certified 4x platinum, and *Live 1975-85* is certified an astonishing 13x platinum. Oh, and “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” (the single, not the album) is certified gold. Not bad, Bruce!
 
 **2002:** Bruce and the E Street Band rehearse for the Upcoming Rising Tour at Convention Hall in Asbury Park. Their set is filmed by ABC-TV’s *Nightline* crew, and Bruce and the band members sit down for interviews. The segment will air following the album’s release.
 
-[Watch Video Highlight](https://videopress.com/embed/bmRVK54O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bmRVK54O)
 
-[Watch Video Highlight](https://videopress.com/embed/zojqChRd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zojqChRd)
 
-[Watch Video Highlight](https://videopress.com/embed/9oBHCAqZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9oBHCAqZ)
 
-[Watch Video Highlight](https://videopress.com/embed/5HH04Hf8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5HH04Hf8)
 
-[Watch Video Highlight](https://videopress.com/embed/bN0xwjsb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bN0xwjsb)
 
-[Watch Video Highlight](https://videopress.com/embed/lDPnR8DZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lDPnR8DZ)
 
-[Watch Video Highlight](https://videopress.com/embed/W9GvhwIF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/W9GvhwIF)
 
-[Watch Video Highlight](https://videopress.com/embed/08sWkG83?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/08sWkG83)
 
-[Watch Video Highlight](https://videopress.com/embed/otjsqJgc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/otjsqJgc)
 
-[Watch Video Highlight](https://videopress.com/embed/NNPLqfDe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NNPLqfDe)
 
-[Watch Video Highlight](https://videopress.com/embed/YKLONIU4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YKLONIU4)
 
-[Watch Video Highlight](https://videopress.com/embed/ppkevLVP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ppkevLVP)
 
-[Watch Video Highlight](https://videopress.com/embed/kEYEMqqh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kEYEMqqh)
 
-[Watch Video Highlight](https://videopress.com/embed/jc7WlGsQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jc7WlGsQ)
 
-[Watch Video Highlight](https://videopress.com/embed/humahdds?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/humahdds)
 
-[Watch Video Highlight](https://videopress.com/embed/Vs5YaOAh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Vs5YaOAh)
 
 **2005:** At his solo acoustic show at Philips Arena in Atlanta, Bruce stuns fans with back-to-back live debuts of “[Sad Eyes](https://estreetshuffle.com/index.php/2019/10/08/roll-of-the-dice-sad-eyes/)” and “[Valentine’s Day.](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)”
 

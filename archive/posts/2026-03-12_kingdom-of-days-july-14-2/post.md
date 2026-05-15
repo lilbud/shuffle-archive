@@ -6,7 +6,7 @@
 
 **1978:** Bruce and the E Street Band continue their Texas swing, as the Darkness Tour arrives for a night in San Antonio (Bruce’s one and only performance in that city). By request, Bruce tour premieres “The Fever.”
 
-[Watch Video Highlight](https://videopress.com/embed/lOl367T5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lOl367T5)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1978-7-14.jpg)
 
@@ -34,7 +34,7 @@
 
 **2002:** The *New York Times* publishes an article on Bruce’s upcoming album, *The Rising,* In his article, Jon Pareles quotes frequently from the interview he conducted with Bruce to inform it, but you can hear the interview itself below.
 
-[Watch Video Highlight](https://videopress.com/embed/yHujCIf5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yHujCIf5)
 
 **2005:** Bruce kicks off the encores at his solo acoustic show in Toronto with the tour premiere of “Darlington County.”
 

@@ -6,7 +6,7 @@ No kidding. The B-side to The Yardbirds’ 1996 hit single “Over Under Sideway
 
 In 2011, Bruce and Little Steven reminisced about unsuccessfully trying to learn how to play Jeff Beck’s ultimate challenge, only to settle for faking their way through it.
 
-[Watch Video Highlight](https://videopress.com/embed/zRYMsFHS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zRYMsFHS)
 
 What does it sound like when you fake your way through “Jeff’s Boogie?” We’re about to find out–because not only was Bruce Springsteen brave enough to try it in public, he did it *at the age of seventeen.*
 
@@ -27,7 +27,7 @@ Bruce would try “Jeff’s Boogie” again on at least one other occasion in 19
 But thankfully we have that 1967 recording of an aspiring rock star full of spit and fire and nothing at all to fear.
 
 **Jeff’s Boogie**
-**First performed:** September 16, 1967 (Freehold, NJ)  
+**First performed:** September 16, 1967 (Freehold, NJ)
 **Last performed:** November 23, 1971 (Linden, NJ)
 
 

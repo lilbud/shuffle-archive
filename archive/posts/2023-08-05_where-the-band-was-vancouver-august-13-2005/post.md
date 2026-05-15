@@ -12,7 +12,7 @@ Bruce opened the show with “[Living Proof](https://estreetshuffle.com/index.ph
 
 A few setlist staples followed: “[Reason to Believe,](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)” “[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/),” “[Lonesome Day,](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)” and “[Long Time Comin’.](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)” But it was clear from the performances that something was in the air–all three were different than we’d heard them at the previous two shows, and my friend Kris and I exchanged glances–we both noticed the heightened performance. Check out “[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)” below–it’s my favorite performance of that song from the tour, and you’ll hear exactly what I mean:
 
-[Watch Video Highlight](https://videopress.com/embed/IaSVvsd3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IaSVvsd3)
 
 And then came the wild cards: first up, the tour premiere of “Because the Night” (the chords of which proved just a touch challenging for Bruce):
 
@@ -22,19 +22,19 @@ Next up: gorgeous back-to-back piano songs: “The Promise” and “[The River,
 
 “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)” followed, Bruce’s falsetto perfectly conveying the desperation of the protagonist better than I’ve ever heard it before or since. This version was downright disturbing, and in my mind is the definitive performance of it (at least among the ones I’ve heard):
 
-[Watch Video Highlight](https://videopress.com/embed/b1S6eFO9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/b1S6eFO9)
 
 We needed a palate cleanser after that, so Bruce gave us rollicking renditions of “[Ain’t Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)” and “[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/),” before turning things serious again with “[The Line](https://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/)” and “[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/).”
 
 By this point, Kris and I had either forgotten about or given up on the request[she asked Bruce for in Portland](https://estreetshuffle.com/index.php/2018/08/10/where-the-band-was-portland-august-10-2005/), but Bruce surprised us by remembering and playing “[Janey, Don’t You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” for Kris (even if Bruce forgot her name). I’m surprised you can’t hear her delighted scream in the recording!
 
-[Watch Video Highlight](https://videopress.com/embed/mcsdNdn1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mcsdNdn1)
 
 That was my first and still my only “Janey, Don’t You Lose Heart,” and it was worth the wait.
 
 Back to the piano for “[Paradise](https://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/)” and “[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/),” and then the standard set closers. But there were more surprises in store for the encores, starting with the Canadian debut of “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)” (how is that even possible?) and a lovely “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” to mark the end of Bruce’s “summer extravaganza.”
 
-[Watch Video Highlight](https://videopress.com/embed/CZlO2PIW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CZlO2PIW)
 
 [Watch on Youtube: Bruce Springsteen - 4th of July Asbury Park (Sandy) Solo Piano](https://www.youtube.com/watch?v=vbEt0oKCm3o)
 

@@ -16,7 +16,7 @@ The 1955 original version by Richard Berry, however, was much easier to understa
 
 …as was Bruce’s cover during a surprise appearance with Midnight Thunder at The Headliner in Neptune, New Jersey (just outside Asbury Park) during the summer of 1983.
 
-[Watch Video Highlight](https://videopress.com/embed/yXVUUdSb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yXVUUdSb)
 
 Hm. Maybe that performance was *too* clear and understandable.
 
@@ -25,7 +25,7 @@ Luckily, we’ve got the one performance where Bruce absolutely nailed the balan
 [Watch on Youtube: Bruce Springsteen - Louie Louie Into Mustang Sally](https://www.youtube.com/watch?v=JWaQUBrs_sU)
 
 **Louie Louie**
-**First performed:** September 9, 1978 (South Bend, IN)  
+**First performed:** September 9, 1978 (South Bend, IN)
 **Last performed:** April 19, 2014 (Charlotte, NC)
 
 

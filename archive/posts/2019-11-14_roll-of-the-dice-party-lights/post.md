@@ -71,11 +71,11 @@ Before we leave, there’s something else worth pointing out about “Party Ligh
 
 **Bonus:** Here’s yet another work-in-progress arrangement (this time a rockabilly one) of “Party Lights,” from the spring of 1981, well after the release of *The River.* It seems Bruce didn’t give up on this one so easily.
 
-[Watch Video Highlight](https://videopress.com/embed/C66uAIaH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/C66uAIaH)
 
 **Party Lights**
 **Recorded** October 8, 1979  
-**Released:** *The Ties That Bind: The River Collection* (2015)  
+**Released:** *The Ties That Bind: The River Collection* (2015)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

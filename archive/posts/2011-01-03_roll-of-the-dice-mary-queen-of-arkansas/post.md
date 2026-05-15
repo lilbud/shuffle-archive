@@ -4,7 +4,7 @@ In the early days of 1972, Vanessa Redgrave’s latest film garnered a slew of A
 
 Nevertheless, Bruce was enamored of “Mary,” and it was the first song he recorded with Hammond at Columbia the following day. His first attempt was a warm-up; it’s never been released, but you can hear it below:
 
-[Watch Video Highlight](https://videopress.com/embed/vD9f3qkK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vD9f3qkK)
 
 The second take was a keeper, though, and Bruce would release it more than a quarter-century later on *Tracks.*
 
@@ -102,8 +102,8 @@ I suspect he still holds her in higher esteem than most of his listeners do.
 
 **Mary Queen of Arkansas**
 **Recorded** June 26-27, 1972  
-**Released:** *Greetings From Asbury Park, N.J.* (1973)  
-**First performed:** May 2, 1972 (New York City, NY)  
+**Released:** *Greetings From Asbury Park, N.J.* (1973)
+**First performed:** May 2, 1972 (New York City, NY)
 **Last performed:** May 22, 2014 (Pittsburgh, PA)
 
 © May 12, 2021

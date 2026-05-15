@@ -35,7 +35,7 @@ The twilight in the song represents years advancing, and as we go through life t
 
 The narrator of this song–and although I always to separate the writer from the character, it’s almost impossible to do so in this case–doesn’t try to promise otherwise. In fact, he pretty much predicts the bumps in the road ahead. He knows they’re coming, in fact, because he’s already done some walking down his that road alone: Bruce has revealed that the narrator “If I Should Fall Behind” may be the same man who sang “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/).”
 
-[Watch Video Highlight](https://videopress.com/embed/3NLub5G0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3NLub5G0)
 
 But he promises that when he realizes that they’ve drifted apart, he’ll stop and wait. And he asks his love to do the same for him.
 
@@ -92,7 +92,7 @@ Five years after the performance above, and five months after I originally publi
 **If I Should Fall Behind**
 **Recorded** September 1991 – January 1992  
 **Released:** *Lucky Town* (1992), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007).  
-**First performed:** June 8, 1991 (Beverly Hills, CA)  
+**First performed:** June 8, 1991 (Beverly Hills, CA)
 **Last performed:** November 5, 2018 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

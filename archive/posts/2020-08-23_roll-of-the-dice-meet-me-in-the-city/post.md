@@ -147,9 +147,9 @@ But when the band traveled to Europe and abandoned the full-album concept, “Me
 Will we hear from “Meet Me in the City” again? That remains to be seen–but if we do, I’m betting the album it represents will shortly follow.
 
 **Meet Me in the City**
-**Recorded** June 14, 1979 (backing track), 2015 (vocals)  
-**Released:** *The River: Outtakes* (2015)  
-**First performed:** December 19, 2015 (New York City, NY)  
+**Recorded** June 14, 1979 (backing track), 2015 (vocals)
+**Released:** *The River: Outtakes* (2015)
+**First performed:** December 19, 2015 (New York City, NY)
 **Last performed:** July 28, 2016 (Oslo, Norway)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -79,7 +79,7 @@ Bruce has never performed it , but shockingly it did turn up–once–in a War o
 
 **Unsatisfied Heart**
 **Recorded:** June 13, 1983  
-**Released:** *L.A. Garage Sessions ’83* (2025), *Lost and Found* (2025)  
+**Released:** *L.A. Garage Sessions ’83* (2025), *Lost and Found* (2025)
 **Never performed**
 
 © September 12, 2018 / December 21, 2025

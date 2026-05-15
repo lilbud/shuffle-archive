@@ -38,7 +38,7 @@ Despite the strong rehearsal tapes, there’s no record of Bruce ever having rec
 More likely than not, though, this is as close as we’re going to get.
 
 **Find It Where You Can**
-**Recorded** March 1979 (rehearsal)  
+**Recorded** March 1979 (rehearsal)
 **Never released**
 **Never performed**
 

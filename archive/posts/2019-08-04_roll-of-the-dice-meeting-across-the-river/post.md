@@ -78,13 +78,13 @@ Regardless of where the story originated, the lyrics are only half of what makes
 
 It certainly seems that the piano came first, as we’re fortunate to have an early work-in-progress version of “Meeting Across the River” with only the piano for accompaniment. This version is called “The Heist” (as the song would continue to be called almost right up until the album’s release), and while it’s close to final lyrical form, there are a few differences that make our characters just a little bit more loserish:
 
-[Watch Video Highlight](https://videopress.com/embed/Ax0zZAwy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ax0zZAwy)
 
 But the song didn’t fully come to life until two guest artists entered the studio: Richard Davis (who previously backed Bruce on “[The Angel](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)“) on the double bass, and Randy Brecker (making his second appearance on *Born to Run–*he can also be found on “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)“) on the trumpet. Suddenly “Meeting Across the River” sounded like absolutely nothing Bruce had ever written or recorded before, and although they compared a few takes before settling on the final form, each and every one of them were great. Take a listen to a couple of the alternative takes below.
 
-[Watch Video Highlight](https://videopress.com/embed/N5qa3969?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/N5qa3969)
 
-[Watch Video Highlight](https://videopress.com/embed/XDmxe9SU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XDmxe9SU)
 
 These days, “Meeting Across the River” is recognized as a Springsteen classic. There’s even a book of short stories inspired by the song (I haven’t read it and therefore can neither recommend nor warn you off it).
 
@@ -98,7 +98,7 @@ I am not one of those fans. Yes, the two songs are both “street” songs, but 
 
 Here’s the very first live performance of “Meeting Across the River,” the opening number at Bruce’s show in Iowa City on September 26, 1975. The beginning of the song wasn’t captured, unfortunately, so the recording starts mid-song. But the vocals are freshly inspired, and Roy’s conclusion is unusual and lovely, and both of these make it worth a listen.
 
-[Watch Video Highlight](https://videopress.com/embed/fFP4H4le?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fFP4H4le)
 
 When Bruce plays “Meeting Across the River,” it’s almost always in its original album arrangement. But there have been some exceptions, most notably in 1976, when the song was played in a full-band arrangement. Take a listen:
 
@@ -122,8 +122,8 @@ In 2008 (and again for an encore a year and a half later), Richard Davis reprise
 
 **Meeting Across the River**
 **Recorded:** May 28, 1975  
-**Released:** *Born to Run* (1975)  
-**First performed:** September 26, 1975 (Iowa City, IA)  
+**Released:** *Born to Run* (1975)
+**First performed:** September 26, 1975 (Iowa City, IA)
 **Last performed:** March 28, 2016 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

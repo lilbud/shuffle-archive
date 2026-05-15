@@ -67,7 +67,7 @@ There’s a world out there somewhere, and we’re not part of it.
 
 Bruce’s revealing video for “Radio Nowhere” shows a bustling city of anonymous strangers. Life happens in front of us, along with moments of intimacy, but they’re all viewed from a distance, intercut with photos of the singer being torn apart. (The implication is that the singer is doing it to himself.) This is one of Thom Zimny’s earliest works with Bruce, and its one of his best.
 
-[Watch Video Highlight](https://videopress.com/embed/qVYvGTu5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qVYvGTu5)
 
 In a contemporaneous interview, Bruce described “Radio Nowhere” as apocalyptic, “an end of the world scenario,” but that’s just its window dressing. Zimny’s video gives away the song’s true significance.
 
@@ -114,8 +114,8 @@ Is there anybody alive out there?
 
 **Radio Nowhere**
 **Recorded** March 2007  
-**Released:** *Magic* (2007), *The Essential Bruce Springsteen* (2015)  
-**First performed:** September 24, 2007 (Asbury Park, NJ)  
+**Released:** *Magic* (2007), *The Essential Bruce Springsteen* (2015)
+**First performed:** September 24, 2007 (Asbury Park, NJ)
 **Last performed:** February 21, 2017 (Christchurch, New Zealand)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

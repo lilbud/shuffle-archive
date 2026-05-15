@@ -63,8 +63,8 @@ In 2016, Bruce released his original 1972 demo on his *Chapter and Verse* album,
 
 **Henry Boy**
 **Recorded** June 1972  
-**Released:** *Chapter and Verse* (2016)  
-**First performed:** August 10, 1972 (New York City, NY)  
+**Released:** *Chapter and Verse* (2016)
+**First performed:** August 10, 1972 (New York City, NY)
 **Last performed:** August 10, 1972 (New York City, NY)
 
 © April 8, 2022

@@ -70,8 +70,8 @@ On vinyl and on stage, “Highway 29” is always a solo Bruce Springsteen perfo
 
 **Highway 29**  
 **Recorded:** 1995  
-**Released:** [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)(1995)  
-**First performed:** November 21, 1995 (New Brunswick, NJ)  
+**Released:** [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)(1995)
+**First performed:** November 21, 1995 (New Brunswick, NJ)
 **Last performed:** November 8, 2005 (Philadelphia, PA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

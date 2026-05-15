@@ -71,7 +71,7 @@ But it’s a song I’d love to hear included if we ever get that fabled *Tracks
 
 **She’s Leaving****Recorded:** May-June 1972  
 **Never released**
-**First performed:** December 3, 1971 (Asbury Park, NJ)  
+**First performed:** December 3, 1971 (Asbury Park, NJ)
 **Last performed:** December 3, 1971 (Asbury Park, NJ)
 
 © February 3, 2019

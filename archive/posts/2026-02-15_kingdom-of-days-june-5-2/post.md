@@ -4,7 +4,7 @@
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to the Sports Arena in Toledo, Ohio.
 
-[Watch Video Highlight](https://videopress.com/embed/Di00F0cx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Di00F0cx)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/1978-0605.jpg)
 
@@ -30,9 +30,9 @@
 
 **1985:** Night Two at St. James Park in Newcastle on the Born in the U.S.A. Tour features the European debuts of “Darlington County” and “Shut Out the Light.”
 
-[Watch Video Highlight](https://videopress.com/embed/KLnISPhf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KLnISPhf)
 
-[Watch Video Highlight](https://videopress.com/embed/VJSoqIAb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VJSoqIAb)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/1985-06-05.jpg)
 

@@ -4,7 +4,7 @@ Even though this recording is from a February 1972 gig, something about the Bruc
 
 “Make Up Your Mind” is an end-of-summer breakup song with a twist. Bruce’s narrator is the older, worldly suitor; the offscreen love interest is the younger-than-she-looks but older-than-her-years schoolgirl who calls the shots in their zero-sum relationship until she tires of him and moves on.
 
-[Watch Video Highlight](https://videopress.com/embed/nSmO6L6G?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nSmO6L6G)
 
 In the first verse, our narrator appears to hold the upper hand: he wants the girl, he gets the girl, and when the girl falls for him (or so he thinks) and demands a commitment, we feel his lone wolf spirit start to slip away.
 
@@ -73,7 +73,7 @@ Both musically and lyrically, it stands alone (except for that “talk so loud/w
 **Make Up Your Mind**
 Never recorded**
 **Never released**
-**First performed:** February 4, 1972 (Richmond, VA)  
+**First performed:** February 4, 1972 (Richmond, VA)
 **Last performed:** February 25, 1972 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

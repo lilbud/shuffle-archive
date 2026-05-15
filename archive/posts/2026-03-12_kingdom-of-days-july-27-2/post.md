@@ -18,7 +18,7 @@
 
 **1984:** The Born in the U.S.A. Tour returns to the U.S., starting with a show at the Saratoga Performing Arts Center on a very rainy night. Listen in on the soundcheck of “Who’ll Stop the Rain” below.
 
-[Watch Video Highlight](https://videopress.com/embed/GhQSDpeE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GhQSDpeE)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-27.png)
 
@@ -38,13 +38,13 @@
 
 **1999:** On Night Six of fifteen in the opening Meadowlands stand of the Reunion Tour’s U.S. leg, “Candy’s Room” makes its long-awaited return, absent from the set list for almost 15 years.
 
-[Watch Video Highlight](https://videopress.com/embed/VtdgqsqG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VtdgqsqG)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1999-07-27.png)
 
 **2003:** Night Seven of ten at Giants Stadium on the Rising Tour has an unusual opening number: “Downbound Train.” Check out the rare IEM recording of “Meeting Across the River” below.
 
-[Watch Video Highlight](https://videopress.com/embed/xKaPgDtU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xKaPgDtU)
 
 [https://estreetshuffle.com/wp-content/uploads/2021/07/bs2003-07-27-14-Meeting-Across-The-River-1.wav?_=3](https://estreetshuffle.com/wp-content/uploads/2021/07/bs2003-07-27-14-Meeting-Across-The-River-1.wav?_=3)
 

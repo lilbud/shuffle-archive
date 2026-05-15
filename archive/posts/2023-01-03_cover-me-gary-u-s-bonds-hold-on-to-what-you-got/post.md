@@ -60,7 +60,7 @@ Someone bring a sign for this one to the next tour, please.
 
 **Hold On (To What You Got)**
 **Recorded** Early 1982  
-**Released:** *On the Line* (1982)  
+**Released:** *On the Line* (1982)
 **Never performed live**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

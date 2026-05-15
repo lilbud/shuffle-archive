@@ -6,7 +6,7 @@
 
 **1975:** Bruce and the E Street Band play a show at the Painters Mill Music Fair in Owings Mills, Maryland.
 
-[Watch Video Highlight](https://videopress.com/embed/2aVBRLsq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2aVBRLsq)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/1975-03-07-e1583021787396.jpg)
 
@@ -20,7 +20,7 @@
 
 **2003:** Bruce and the band play their first show on the Atlantic City Boardwalk, opening with (of course) “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/),” closing with a scene-appropriate “[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)” and featuring a rare cover of the Beatles’ “[Tell Me Why](https://estreetshuffle.com/index.php/2020/08/01/cover-me-tell-me-why/)” and the tour premiere of “[Jersey Girl.](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” Listen to the soundcheck and highlights below.
 
-[Watch Video Highlight](https://videopress.com/embed/mqMlGDGF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mqMlGDGF)
 
 [Watch on Youtube: Atlantic City 07/03/2003](https://www.youtube.com/watch?v=videoseries)
 

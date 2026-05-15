@@ -42,94 +42,6 @@ def copy_media(cur: psycopg.Cursor):
                     print(f"{new_path} already exists")
 
 
-def get_posts(
-    slug: str,
-    cur: psycopg.Cursor,
-) -> list | None:
-    res = cur.execute(
-        """
-        with rows as (
-            select
-                p.id,
-                p.title,
-                p.excerpt,
-                'Ken' as author,
-                p.published::date || '-' || p.slug as filename,
-                string_agg(distinct t.slug, ' ') as tag_list,
-                c.name as category_name,
-                c.slug as category_slug,
-                m.url as header_img,
-                pc.category_id,
-                p.published,
-                p.post_id,
-                p.content,
-                p.url,
-                p.slug
-            from posts p
-                left join post_categories pc on pc.post_id = p.id
-                left join categories c on c.id = pc.category_id
-                left join post_tags pt on pt.post_id = p.id
-                left join tags t on t.id = pt.tag_id
-                left join media m on m.id = p.featured_media
-            -- WHERE p.published > '2025-01-01' and p.published <= '2025-02-01'
-            group by
-                1,7,8,9,10,11
-        )
-        select * from rows
-        where
-        id = %(slug)s
-        """,
-        {"slug": slug},
-    ).fetchall()
-
-    if res:
-        return res
-
-    return None
-
-
-def main(cur: psycopg.Cursor, slug: str) -> None:
-    res = get_posts(slug, cur)
-
-    if res:
-        for post in res:
-            print(post["filename"])
-
-            title = post["title"].strip('"').replace('"', "'")
-
-            post_file = Path(
-                rf"C:\Users\bvw20\Documents\Software\Programming\Website\shuffle\_posts\{post['filename']}.md",
-            )
-
-            if post_file.exists():
-                continue
-
-            with post_file.open("w", encoding="utf-8") as f:
-                f.write("---\n")
-
-                if post["header_img"]:
-                    f.write("layout: post\n")
-                else:
-                    f.write("layout: default-post\n")
-
-                f.write(f'title: "{title}"\n')
-                f.write(f'author: "{post["author"]}"\n')
-                f.write(f'excerpt: "{post["excerpt"].strip()}"\n')
-
-                if post["tag_list"]:
-                    f.write(f"tags: {post['tag_list']}\n")
-
-                f.write(f'category: "{post["category_slug"]}"\n')
-
-                if post["header_img"]:
-                    f.write(f"header_img: {post['header_img']}\n")
-
-                f.write(f"post_id: {post['post_id']}\n")
-
-                f.write("---\n")
-                f.write(post["content"])
-
-
 def originals_data(cur: psycopg.Cursor) -> None:
     data = json.load(Path("data.json").open("r", encoding="utf-8"))
 
@@ -258,16 +170,108 @@ def replace_with_internal(cur: psycopg.Cursor) -> None:
             f.write(text)
 
 
+def get_posts(
+    slug: int,
+    cur: psycopg.Cursor,
+) -> list | None:
+    res = cur.execute(
+        """
+        with ids as (
+            select max(id) as id, post_id from posts where last_modified < '2025-10-31' group by 2
+        ),
+        rows as (
+            select
+                p.version as version,
+                p.id as id,
+                p.post_id,
+                p.published as published,
+                p.last_modified,
+                p.title,
+                p.excerpt,
+                'Ken' as author,
+                p.published::date || '-' || slugify (p.title) as filename,
+                string_agg(distinct t.slug, ' ') as tag_list,
+                string_agg(distinct c.slug, ' ') FILTER (WHERE c.id < 3601) as category_list,
+                m.url as header_img,
+                p.post_id,
+                p.content,
+                p.url,
+                p.slug
+            from posts p
+                left join post_categories pc on pc.post_id = p.id
+                left join categories c on c.id = pc.category_id
+                left join post_tags pt on pt.post_id = p.id
+                left join tags t on t.id = pt.tag_id
+                left join media m on m.id = p.featured_media
+            --WHERE p.id in (select id from ids)
+            --and p.published > '2018-01-01'
+            -- and p.published <= '2025-10-31'
+            --and pc.category_id = 3
+            group by
+            2,3,12
+        )
+
+        select * from rows
+        where id = %(id)s
+        """,
+        {"id": slug},
+    ).fetchall()
+
+    if res:
+        return res
+
+    return None
+
+
+def main(cur: psycopg.Cursor, slug: int) -> None:
+    res = get_posts(slug, cur)
+
+    if res:
+        for post in res:
+            print(post["filename"])
+
+            title = post["title"].strip('"').replace('"', "'")
+
+            post_file = Path(
+                rf"C:\Users\bvw20\Documents\Software\Programming\Website\shuffle\_posts\{post['filename']}.md",
+            )
+
+            with post_file.open("w", encoding="utf-8") as f:
+                f.write("---\n")
+
+                if post["header_img"]:
+                    f.write("layout: post\n")
+                else:
+                    f.write("layout: default-post\n")
+
+                f.write(f'title: "{title}"\n')
+                f.write(f'author: "{post["author"]}"\n')
+                f.write(f'excerpt: "{post["excerpt"].strip()}"\n')
+
+                if post["tag_list"]:
+                    f.write(f"tags: {post['tag_list']}\n")
+                
+                if post["category_list"]:
+                    f.write(f'categories: {post["category_list"]}\n')
+
+                if post["header_img"]:
+                    f.write(f"header_img: {post['header_img']}\n")
+
+                f.write(f"post_id: {post['post_id']}\n")
+
+                f.write("---\n")
+                f.write(post["content"])
+
+
 if __name__ == "__main__":
     with load_db() as conn, conn.cursor() as cur:
         # replace_with_internal(cur)
+        count = 0
+        category = "3326"
 
-        links = (
-            Path(r"C:\Users\bvw20\Desktop\links.txt")
-            .read_text(encoding="utf-8")
-            .split("\n")
-        )
-
-        with load_db() as conn, conn.cursor() as cur:
-            for line in links:
-                main(slug=line, cur=cur)
+        with Path(r"C:\Users\bvw20\Documents\Personal\Projects\Bruce Stuff\Websites\e-street-shuffle\shuffle-archive\notes\sheets\master-post-list.csv").open("r", encoding="utf-8") as f:
+            for line in f:
+                main(slug=line.split(",")[1], cur=cur)
+                count += 1
+    
+    print(f"Posts Saved for Category: {category} - {count}")

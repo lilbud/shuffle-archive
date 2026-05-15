@@ -18,7 +18,7 @@ Now, it’s one thing to get Bruce Springsteen to appear on your album track. It
 
 There was only one problem, though, and Antonoff sheepishly confessed to it to Jimmy Fallon on *The Tonight Show*.
 
-[Watch Video Highlight](https://videopress.com/embed/SBGt1vfF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SBGt1vfF)
 
 So despite breaking the law to do so, Antonoff managed to get Bruce to appear on both the song and the video. Then he decided to go for the hat trick, assembling his band and guest vocalist for a live session on the roof of Electric Lady Studios in Greenwich Village.
 

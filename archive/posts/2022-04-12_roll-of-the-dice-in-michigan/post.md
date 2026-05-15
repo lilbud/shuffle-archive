@@ -18,7 +18,7 @@ So in the ten minutes before he took the stage that night (as his own legend wou
 
 And so without further ado, let’s take a listen to one of the greatest songs Bruce ever wrote.
 
-[Watch Video Highlight](https://videopress.com/embed/g3zHwJLi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/g3zHwJLi)
 
 “In Michigan” lives up to its promise, in that the name *Michigan* comes up a lot. Which is pretty much the sum total of analysis warranted by this song of indulgent resilience.
 
@@ -45,7 +45,7 @@ And so without further ado, let’s take a listen to one of the greatest songs B
 
 The song went over so well that he brought it back for an encore two nights later. He closed the show with it, in fact, in a performance greatly improved by the gusto that comes from knowing you’ve written a surefire hit.
 
-[Watch Video Highlight](https://videopress.com/embed/gbgaaWKC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gbgaaWKC)
 
 Bruce also made some minor lyrical adjustments that night. (It was Bob Dole who fell on his ass, and a seven-day Macarena marathon.)
 
@@ -54,7 +54,7 @@ Despite the roaring approval from the audience, Bruce never again brought out �
 **In Michigan**
 Never recorded**
 **Never released**
-**First performed:** September 24, 1996 (Kalamazoo, MI)  
+**First performed:** September 24, 1996 (Kalamazoo, MI)
 **Last performed:** September 26, 1996 (Ann Arbor, MI)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

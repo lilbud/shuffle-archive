@@ -2,7 +2,7 @@
 
 He had the title, and he had the riff (co-opted from a favorite song, as Bruce confesses below).
 
-[Watch Video Highlight](https://videopress.com/embed/HTQLrA2O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HTQLrA2O)
 
 And before long, he had the instrumental track in almost final form (the bridge would continue to evolve).
 

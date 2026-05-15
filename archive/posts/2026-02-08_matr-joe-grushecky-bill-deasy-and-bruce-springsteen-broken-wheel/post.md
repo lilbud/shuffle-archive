@@ -12,7 +12,7 @@ It’s a beautiful, powerful, and haunting song, with or without Bruce’s accom
 
 **Broken Wheel**
 **Recorded:** 2009  
-**Released:** *East Carson Street* (2009)  
+**Released:** *East Carson Street* (2009)
 **Never performed**
 
 © September 29, 2019

@@ -73,7 +73,7 @@ So maybe Bruce will someday remember about “The Big Payback” and give Bobby 
 
 **The Big Payback**
 **Recorded:** January-April 1982  
-**Released:** *The Essential Bruce Springsteen* (2003)  
+**Released:** *The Essential Bruce Springsteen* (2003)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

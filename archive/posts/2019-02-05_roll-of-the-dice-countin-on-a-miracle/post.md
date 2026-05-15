@@ -94,9 +94,9 @@ The country blues version of “Countin’ on a Miracle” remains the definitiv
 
 [Watch on Youtube: Bruce Springsteen- Countin on a miracle- Piano live 2005](https://www.youtube.com/watch?v=fIbgKRyipaU)
 
-**Countin’ on a Miracle****Recorded:** February-March 2002 (both versions)  
-**Released:** *The Rising* (2002, rock version), *The Essential Bruce Springsteen* (2003, country blues version)  
-**First performed:** July 26, 2002 (Asbury Park, NJ)  
+**Countin’ on a Miracle****Recorded:** February-March 2002 (both versions)
+**Released:** *The Rising* (2002, rock version), *The Essential Bruce Springsteen* (2003, country blues version)
+**First performed:** July 26, 2002 (Asbury Park, NJ)
 **Last performed:** June 19, 2005 (Rotterdam, The Netherlands)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

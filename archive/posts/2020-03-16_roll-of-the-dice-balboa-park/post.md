@@ -81,14 +81,14 @@ The vignette that closes the song, though, is Bruce’s–the boys of “Balboa 
 
 Bruce performed “Balboa Park” nightly throughout the Ghost of Tom Joad Tour, but never since. The tale is too intimate, too quiet to translate to any setting other than a small theater. And when he played it each night, Bruce always took care to explain the emotional inspiration for the song–the grace of childhood that a parent wants to protect for as long as possible.
 
-[Watch Video Highlight](https://videopress.com/embed/Qot7QYTM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Qot7QYTM)
 
 There were as many as fifty boys in Rotella’s original 1993 article. More than a quarter-century on, who knows where or who those boys are now? We don’t, and that’s just one more haunting aspect of “Balboa Park.”
 
 **Balboa Park**
 **Recorded** March-August 1995  
-**Released:** *The Ghost of Tom Joad* (1995)  
-**First performed:** November 21, 1995 (New Brunswick, NJ)  
+**Released:** *The Ghost of Tom Joad* (1995)
+**First performed:** November 21, 1995 (New Brunswick, NJ)
 **Last performed:** May 26, 1997 (Paris, France)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

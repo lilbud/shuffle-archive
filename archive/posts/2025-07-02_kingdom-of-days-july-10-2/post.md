@@ -76,7 +76,7 @@ Just got off a 10-minute call with . "I wanted to see if the number really worke
 
 [@Springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw)[pic.twitter.com/4hcA6201Ej](https://t.co/4hcA6201Ej)
 
-— SiriusXM (@SIRIUSXM) 
+— SiriusXM (@SIRIUSXM)
 
 [July 10, 2019](https://twitter.com/SIRIUSXM/status/1148976398666739718?ref_src=twsrc%5Etfw)
 

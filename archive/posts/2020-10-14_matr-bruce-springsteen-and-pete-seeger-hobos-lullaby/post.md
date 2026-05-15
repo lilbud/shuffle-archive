@@ -26,8 +26,8 @@ However, that lone live performance wasn’t a duet; Bruce and Pete were joined 
 
 **Hobo’s Lullaby**
 **Recorded** November 2, 1997 – July 4, 2008  
-**Released:** *Give US Your Poor* (2007)  
-**First performed:** September 29, 1996 (Cleveland, OH)  
+**Released:** *Give US Your Poor* (2007)
+**First performed:** September 29, 1996 (Cleveland, OH)
 **Last performed:** September 29, 1996 (Cleveland, OH)
 
 

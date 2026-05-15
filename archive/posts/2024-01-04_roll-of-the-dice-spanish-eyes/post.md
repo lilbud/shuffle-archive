@@ -77,8 +77,8 @@ If we’re only ever going to get one performance, at least it was a great one, 
 
 **Spanish Eyes**
 **Recorded** June 30, 1977; 2010  
-**Released:** *The Promise* (2010)  
-**First performed:** June 17, 2012 (Madrid, Spain)  
+**Released:** *The Promise* (2010)
+**First performed:** June 17, 2012 (Madrid, Spain)
 **Last performed:** June 17, 2012 (Madrid, Spain)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -32,7 +32,7 @@ This time, without the excess studio orchestration and production, Bruce and the
 
 The result is a much better version (IMO) of Ronnie Spector and the E Street Band covering Billy Joel’s “Say Goodbye to Hollywood.” Take a listen.
 
-[Watch Video Highlight](https://videopress.com/embed/O6eF1MI9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/O6eF1MI9)
 
 **Say Goodbye to Hollywood**
 **Recorded:** January 1977<br>

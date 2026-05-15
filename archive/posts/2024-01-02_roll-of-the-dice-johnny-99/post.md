@@ -65,7 +65,7 @@ In the outtake below, we learn that Ralph wasn’t even trying to rob the store 
 *He reached ‘neath the counter and I saw something shiny in his hand*
 *He spewed blood like a fountain and I dropped my gun and I ran*
 
-[Watch Video Highlight](https://videopress.com/embed/bTFvUGLu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bTFvUGLu)
 
 Although the excised verse would have made Ralph more sympathetic, it also would have been a cheat: in order for us to truly come to terms with the impact of economic inequality on American society, the crime needed to be unforgivable. In the final version of the song, Johnny owns his actions–there are no extenuating circumstances to be found.
 
@@ -99,7 +99,7 @@ This is another juncture at which Bruce tightened the song. In the outtake above
 *“Well I’m sorry Ma’am but the law must be satisfied*
 *At your son’s murdering hands an honest man died”*
 
-[Watch Video Highlight](https://videopress.com/embed/JTKl33Gu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JTKl33Gu)
 
 As the song enters into its third act, Ralph gets his climactic courtroom monologue, and here is where Bruce’s social commentary cuts most sharply.
 
@@ -132,7 +132,7 @@ As with many of Bruce’s songs, “Johnny 99” would grow in relevance–sadly
 
 Bruce released “Johnny 99” as a solo recording on his *Nebraska* album in 1982. But because Bruce didn’t tour behind *Nebraska*, “Johnny 99” didn’t make its concert debut until the first show of the Born in the U.S.A. Tour. Perhaps by way of apology for not touring to support his previous album, Bruce featured a *Nebraska* mini-set nightly, and the very first song he played from that album was “Johnny 99.”
 
-[Watch Video Highlight](https://videopress.com/embed/hLCZeSZX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hLCZeSZX)
 
 Bruce played “Johnny 99” regularly throughout the Born in the U.S.A. Tour, and Bruce thought highly enough of it to include a 1985 performance on *Live 1975-85* when that box set was issued in 1986.
 
@@ -148,11 +148,11 @@ But when “Johnny 99” made its next concert appearance, something changed.
 
 Bruce had already been inching his way toward more uptempo arrangements, as that Paris clip above illustrates. But when Bruce reintroduced it at the end of the Rising Tour, he did what he once dismissed as a bad idea: he transformed it into a rock arrangement, albeit a heavily country-tinged one.
 
-[Watch Video Highlight](https://videopress.com/embed/JDpuh9sa?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JDpuh9sa)
 
 The following year brought a brief tour under the Vote for Change banner, and “Johnny 99” was a natural choice for the set list. Once again, Bruce chose an uptempo arrangement, this time going all in on fiddle, accordion, and upright bass.
 
-[Watch Video Highlight](https://videopress.com/embed/u7Cs5qb3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/u7Cs5qb3)
 
 Bruce continued playing the rock version of “Johnny 99,” but it seemed like the song disappeared bit by bit with each increasingly raucous appearance.
 
@@ -182,8 +182,8 @@ But in the back of my mind, I’ll be thinking about poor Ralph, locked away and
 
 **Johnny 99**
 **Recorded** January 3, 1982  
-**Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)  
-**First performed:** June 29, 1984 (St. Paul, MN)  
+**Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)
+**First performed:** June 29, 1984 (St. Paul, MN)
 **Last performed:** August 30, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

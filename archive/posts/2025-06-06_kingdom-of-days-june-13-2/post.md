@@ -50,7 +50,7 @@
 
 **1985:** Night Two in Rotterdam on the Born in the U.S.A. Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/QjeJxsm9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QjeJxsm9)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/06/1985-0613.jpg)
 
@@ -66,7 +66,7 @@
 
 **2005:** Bruce’s solo acoustic mini-tour of Germany begins with a show at Olympiahalle in Munich. Bruce opens with the tour premiere of “Into the Fire” and tour premieres “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” and “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” as well.
 
-[Watch Video Highlight](https://videopress.com/embed/BUkie5gm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BUkie5gm)
 
 **2006:** Bruce and the Sessions Band play to a sparse crowd at the First Midwest Bank Amphitheater in Tinley Park, Illinois, where Bruce debuts a new arrangement and verse for “[Further On (Up the Road).](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)”
 
@@ -76,7 +76,7 @@
 
 **2009:** Bruce headlines Bonnaroo, Max returns to the band (for half the show), and Evan Springsteen plays guitar on “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/).” Watch the marvelously filmed “[Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/)” below.
 
-[Watch Video Highlight](https://videopress.com/embed/kLcd8kmd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kLcd8kmd)
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band live at Bonnaroo - Thunder Road](https://www.youtube.com/watch?v=1YCoyWb5uSA)
 

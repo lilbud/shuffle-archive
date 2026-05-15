@@ -34,7 +34,7 @@
 
 **1981:** Bruce and the E Street Band wrap their three-night stand at Chicago’s Rosemont Horizon, tour premiering “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” and playing “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” for the last time for fifteen years.
 
-[Watch Video Highlight](https://videopress.com/embed/QLurWoc7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QLurWoc7)
 
 **1984:** Bruce and the band kick off a six-shows-in-eight-nights stand at the Philadelphia Spectrum on the Born in the U.S.A. Tour. Check out the news coverage below, along with one of my favorite performance videos ever–if you like people-watching, that is.
 

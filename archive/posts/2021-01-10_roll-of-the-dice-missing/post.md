@@ -18,7 +18,7 @@ Towards the end of the year, Sean Penn invited Bruce to preview Penn’s upcomin
 
 Three days later, Sean Penn was in possession of a brand new Bruce Springsteen song, and when *The Crossing Guard* debuted in theaters in late 1995, “Missing” played over the opening credits. (It plays in full over the end credits as well.)
 
-[Watch Video Highlight](https://videopress.com/embed/h8ungRI5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/h8ungRI5)
 
 The film bombed, earning back less than a million of its $9 million budget, and without a soundtrack album, that meant that a brand new Springsteen song came and went with almost zero notice.
 
@@ -78,7 +78,7 @@ As for the rest of his abandoned 1994 album, rumor has it we may yet hear it som
 
 **Missing**
 **Recorded** March-April, 1994  
-**Released:** *Missing* (single, 1996), *The Essential Bruce Springsteen* (2003)  
+**Released:** *Missing* (single, 1996), *The Essential Bruce Springsteen* (2003)
 **Never performed**
 
 

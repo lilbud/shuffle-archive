@@ -53,7 +53,7 @@ In a sense, “Fugitive’s Dream” presaged the style of songwriting that woul
 “Unsatisfied Heart” would almost assuredly been included on a *Nebraska* sequel (which Bruce had in fact briefly considered as his next album, before choosing another path), but instead it remains in the vault. Bruce has never performed it or released it, but shockingly it did turn up–once–in a War on Drugs setlist earlier this year, proving that band’s boss bonafides and seriously impressing Bruce fans who caught [the bands’ performance](https://estreetshuffle.com/index.php/2018/05/06/cover-me-the-war-on-drugs-unsatisfied-heart/) in person or on youtube.
 
 **Unsatisfied Heart**
-**Recorded:** March-April 1983 (demo)  
+**Recorded:** March-April 1983 (demo)
 **Never released**
 **Never performed**
 

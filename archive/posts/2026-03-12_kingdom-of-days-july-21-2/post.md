@@ -8,7 +8,7 @@
 
 **1984:** The Born in the U.S.A. Tour starts its Canadian leg with a show at the Montreal Forum.
 
-[Watch Video Highlight](https://videopress.com/embed/mQ0tWBPe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mQ0tWBPe)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21c.png)
 
@@ -20,11 +20,11 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SE9VhyFLlCY)
 
-[Watch Video Highlight](https://videopress.com/embed/YhPvxRZh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YhPvxRZh)
 
 **2009:** A stunner of a Working on a Dream show at the Stadio Olimpico in Turin–Bruce opens with the tour premiere of “Loose Ends” and delights with additional tour premieres of “Drive All Night,” “Murder Incorporated,” “My Love Will Not Let You Down,” “Travelin’ Band,” and “My Hometown.”
 
-[Watch Video Highlight](https://videopress.com/embed/rh2cqQ7y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rh2cqQ7y)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PpuUmRgn8-Q)
 
@@ -46,7 +46,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/uyHtj0Yc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uyHtj0Yc)
 
 **2021:** Bruce releases episode 25 of *From My Home to Yours* on E Street Radio. This episode is entitled “Frat Party.”
 

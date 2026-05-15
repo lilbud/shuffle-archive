@@ -10,7 +10,7 @@
 
 **1981:** Clarence Clemons opens his new nightclub, Big Man’s West, in Red Bank. Bruce makes an appearance with Clarence and his band to mark the occasion, playing six songs, including a set-closing “You Can’t Sit Down” and “Cadillac Ranch.”
 
-[Watch Video Highlight](https://videopress.com/embed/MByTu4nD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MByTu4nD)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/07/1981-07-11-rotated-1.jpg)
 

@@ -75,8 +75,8 @@ It’s a theme carried over from *Nebraska,* explored throughout *L.A. Garage Se
 
 **Sugarland**
 **Recorded** January – February 1983  
-**Released:** *L.A. Garage Sessions ’83* (2025)  
-**First performed:** November 16, 1984 (Ames, IA)  
+**Released:** *L.A. Garage Sessions ’83* (2025)
+**First performed:** November 16, 1984 (Ames, IA)
 **Last performed:** November 18, 1984 (Lincoln, NE)
 
 © January 25, 2026

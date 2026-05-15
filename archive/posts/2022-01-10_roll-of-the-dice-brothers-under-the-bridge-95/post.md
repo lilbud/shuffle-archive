@@ -77,8 +77,8 @@ Bruce hasn’t performed it since, and he’s never performed its 1983 prequel e
 
 **Brothers Under the Bridge ’95**
 **Recorded** May 22, 1995  
-**Released:** *Tracks* (1998), *18 Tracks* (1999)  
-**First performed:** December 16, 1995 (Boston, MA)  
+**Released:** *Tracks* (1998), *18 Tracks* (1999)
+**First performed:** December 16, 1995 (Boston, MA)
 **Last performed:** May 1, 2014 (Tampa, FL)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -47,5 +47,5 @@ This one is perfect as is.
 
 **Night Closing In**
 **Recorded** 2014-2015  
-**Released:** *Introducing Darlene Love* (2015)  
+**Released:** *Introducing Darlene Love* (2015)
 **Never performed live by Bruce**

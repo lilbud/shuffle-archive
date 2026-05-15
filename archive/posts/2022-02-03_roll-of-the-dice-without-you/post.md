@@ -8,7 +8,7 @@ That’s because “Without You” is a perfect pop song. as light as air and as
 
 One listen to “Without You” is all it takes to realize how much fun the band must have had recording it, but if there’s any doubt, watch this video of an almost-final take and see for yourself.
 
-[Watch Video Highlight](https://videopress.com/embed/PvSWyzov?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PvSWyzov)
 
 It feels silly to analyze Bruce’s lyrics for “Without You.” First of all, there aren’t that many of them: two verses, a bridge, and a three-syllable chorus, all of which boil down to: *I miss you, baby.*
 
@@ -43,7 +43,7 @@ Perhaps one day we’ll get to crash this party, too.
 
 **Without You**
 **Recorded** January 1995  
-**Released:** *Blood Brothers* (1996)  
+**Released:** *Blood Brothers* (1996)
 **Never performed live**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

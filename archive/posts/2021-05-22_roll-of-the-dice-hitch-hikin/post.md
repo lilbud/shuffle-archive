@@ -66,8 +66,8 @@ The differences are subtle but significant, like the extended introduction that 
 
 **Hitch Hikin’**
 **Recorded** 2010-2018  
-**Released:** *Western Stars* (2019)  
-**First performed:** April 2019 (Colts Neck, NJ)  
+**Released:** *Western Stars* (2019)
+**First performed:** April 2019 (Colts Neck, NJ)
 **Last performed:** April 2019 (Colts Neck, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

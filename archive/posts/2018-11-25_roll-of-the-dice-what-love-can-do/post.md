@@ -80,11 +80,11 @@ For now, though, enjoy the one and only time Bruce performed the song live–in 
 
 **Bonus:** Here’s some brief footage of Bruce playing an acoustic “What Love Can Do” from the *Working on a Dream* recording sessions.
 
-[Watch Video Highlight](https://videopress.com/embed/peRsvJRB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/peRsvJRB)
 
 **What Love Can Do**
 **Recorded:** mid-2007  
-**Released:** *Working on a Dream* (2009)  
+**Released:** *Working on a Dream* (2009)
 **First performed:** October 14, 2009  
 **Last performed:** October 14, 2009
 

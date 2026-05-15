@@ -50,10 +50,10 @@ I wasn’t there that night, but I’m pretty sure I can guess why Bruce edited 
 
 **Bonus:** Bruce actually covered “Mony Mony” once prior to the Working on a Dream Tour, but you definitely can *not* hear the “get laid” chant during it. That’s because it was 1982, five years before the meme originated. The performance is notable anyway, though, because it was the very first song Bruce and Joe Grushecky ever performed together, at Big Man’s West way back in Joe’s Iron City Houserockers days. Take a listen below.
 
-[Watch Video Highlight](https://videopress.com/embed/kMw6mBVD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kMw6mBVD)
 
 **Mony Mony**
-**First performed:** July 17, 1982 (Red Bank, New Jersey)  
+**First performed:** July 17, 1982 (Red Bank, New Jersey)
 **Last performed:** July 8, 2009 (Herning, Denmark)
 
 

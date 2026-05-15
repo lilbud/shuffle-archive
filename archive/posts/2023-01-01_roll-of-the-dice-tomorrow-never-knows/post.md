@@ -59,7 +59,7 @@ Taken as a whole, it presents a snapshot of an artist truly coming to terms with
 
 **Tomorrow Never Knows**
 **Recorded:** 2007-2008  
-**Released:** *Working on a Dream* (2009)  
+**Released:** *Working on a Dream* (2009)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

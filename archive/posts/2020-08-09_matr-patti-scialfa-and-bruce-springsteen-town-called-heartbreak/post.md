@@ -58,8 +58,8 @@ That’s too bad, because the E Street version is gloriously gritty and features
 
 **Town Called Heartbreak**
 **Recorded:** Early 2007  
-**Released:** *Play It As It Lays* (2007)  
-**First performed:** September 25, 2007 (Asbury Park, NJ)  
+**Released:** *Play It As It Lays* (2007)
+**First performed:** September 25, 2007 (Asbury Park, NJ)
 **Last performed:** November 12, 2007 (Washington, DC)
 
 

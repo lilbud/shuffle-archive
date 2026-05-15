@@ -47,8 +47,8 @@ After the Reunion tour, the song pretty much disappeared, appearing only 5 times
 
 **I Wanna Be With You**
 **Recorded** May 31, 1979  
-**Released:** *Tracks* (1998); *18 Tracks* (1999)  
-**First Performed:** April 20, 1999 (Milan)  
+**Released:** *Tracks* (1998); *18 Tracks* (1999)
+**First Performed:** April 20, 1999 (Milan)
 **Last Performed:** May 14, 2016 (Barcelona)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -5,13 +5,13 @@ How much of an influence was Eddie Floyd on Bruce Springsteen?
 
 You tell me. First, watch Eddie’s incredible 1967 performance of “Raise Your Hand” and marvel at how he absolutely owns the initially reserved Norwegian crowd by the end of those seven minutes.
 
-[Watch Video Highlight](https://videopress.com/embed/nZccQVGR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nZccQVGR)
 
 Side note: if you haven’t seen that clip before, and if you’re a fan of the Stax sound, you owe it to yourself to seek out the *Stax/Volt Revue: Live in Norway* concert film. You’ll thank me later.
 
 Now, watch Bruce cover Floyd’s song eleven years later in Passaic, New Jersey.
 
-[Watch Video Highlight](https://videopress.com/embed/JpcueXtX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JpcueXtX)
 
 Those are some remarkably recognizable techniques on display, aren’t they?
 
@@ -29,7 +29,7 @@ But oh, how the song came alive when Eddie performed it in concert. And how coul
 
 Bruce must have seen Eddie perform it live at some point, because the influence of Eddie’s live arrangements is unmistakable from Bruce’s earliest performances. Here’s the E Street Band’s first-ever public performance of “Raise Your Hand,” live in Durham, North Carolina on March 28, 1976.
 
-[Watch Video Highlight](https://videopress.com/embed/BbbSpOJ5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BbbSpOJ5)
 
 “Raise Your Hand” has been a steady presence in Bruce’s live shows ever since, appearing in almost every E Street Band tour since its debut. (The Born in the U.S.A. and recent River tours are notable exceptions.)
 
@@ -43,10 +43,10 @@ And while it’s now been more than seven years since Bruce last uttered those i
 
 **Bonus:** Here’s that performance Eddie alluded to in that *American Songwriter* interview, from Eddie and Bruce’s only on-stage meeting–the night of April 29, 1976. Eddie sings lead vocals on his own; Bruce relegates himself to the background. But keep in mind as you listen: Eddie had never seen Bruce perform his song before. Bruce leads the E Street Band through their standard arrangement, so close to Eddie’s own live arrangement that Eddie wears it like a comfortable shoe.
 
-[Watch Video Highlight](https://videopress.com/embed/GFBm1mrR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GFBm1mrR)
 
 **Raise Your Hand**
-**First performed:** March 21, 1976 (Asbury Park, NJ)  
+**First performed:** March 21, 1976 (Asbury Park, NJ)
 **Last performed:** October 26, 2025 (Asbury Park, NJ)
 
 (c) May 21, 2021

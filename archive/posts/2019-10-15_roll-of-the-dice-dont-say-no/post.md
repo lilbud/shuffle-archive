@@ -4,7 +4,7 @@ But all three songs (“Don’t Say No” “[I Want to Be Wild](https://estreet
 
 But since Bruce tried so hard to make a go of it, let’s give “Don’t Say No” a listen anyway. I’ll warn you, though: Bruce’s vocals are very, *very* deep in the mix, so you may need the lyrics below (such as they are, and such as I can interpret) to follow along.
 
-[Watch Video Highlight](https://videopress.com/embed/WsXpllSZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WsXpllSZ)
 
 Barreling out of the gate on the back of Max’s “[Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)“-ish intro, “Don’t Say No” quickly settles into a hard rocking riff that really should have ended up somewhere in Bruce’s catalog. The E Street Band gets a workout here, which helps hide the fact that Bruce’s bluffed lyrics are barely intelligible.
 

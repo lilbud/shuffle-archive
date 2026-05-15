@@ -44,7 +44,7 @@ Self explanatory, once we realize “fishin’ pole” is a euphemism.
 
 Side note: when performing “All I’m Thinkin’ About” in concert, Bruce was pretty good at playing it straight. Once in a while, though, his giggling inner twelve-year-old got the better of him, like at this show in Milan.
 
-[Watch Video Highlight](https://videopress.com/embed/uycqhyAX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uycqhyAX)
 
 But I digress. Moving on:
 
@@ -119,7 +119,7 @@ That was the debut of backing vocalists Evan Springsteen, Jessica Springsteen, a
 
 Bruce played “All I’m Thinkin’ About” semi-regularly (at about one out of every three shows) on his 2005 solo acoustic tour. He also performed it once on television, at a *Today* appearance on NBC in April to promote his new album.
 
-[Watch Video Highlight](https://videopress.com/embed/1XyTRHmH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1XyTRHmH)
 
 It’s been fifteen years since Bruce played it last, however; he seems to be thinkin’ about other things these days.
 
@@ -127,8 +127,8 @@ I guess he’s worked “All I’m Thinkin’ About” out of his system.
 
 **All I’m Thinkin’ About**
 **Recorded** 1997-2004  
-**Released:** *Devils & Dust* (2005)  
-**First performed:** April 30, 2005 (Glendale, AZ)  
+**Released:** *Devils & Dust* (2005)
+**First performed:** April 30, 2005 (Glendale, AZ)
 **Last performed:** November 19, 2005 (Hollywood, FL)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

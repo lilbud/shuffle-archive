@@ -10,7 +10,7 @@ Tommaso recognized the anguish, anger, and fear at the core of Bruce’s 2005 ti
 
 Tommaso recorded that performance in May. The final live competition was in late August, and in the three months in between Tommaso polished and sharpened his performance to powerful effect, captivating the audience and panel of judges and earning himself a third place finish (from a field of almost 60 entrants and 15 finalists) once again.
 
-[Watch Video Highlight](https://videopress.com/embed/eBLCrkyA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eBLCrkyA)
 
 With consecutive third-place finishes to his credit, Tommaso is clearly an artist to watch. I’m looking forward to seeing if he can capture top honors next year!
 

@@ -31,7 +31,7 @@ Just rolled the dice again and got something from the HT/LT era that’s much ea
 **Black Sun Rising**
 **Recorded** N/A  
 **Released:** N/A  
-**First Performed:** April 18, 1970 (Toms River, NJ)  
+**First Performed:** April 18, 1970 (Toms River, NJ)
 **Last Performed:** June 13, 1970 (Bricktown, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -40,11 +40,11 @@
 
 **2000:** Night Two in Denver along the Reunion Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/iEHmZAcg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iEHmZAcg)
 
 If you aren’t in Denver tonight, you still have a chance to see The Boss: the movie *High Fidelity* premieres today, and Bruce has a pivotal cameo.
 
-[Watch Video Highlight](https://videopress.com/embed/e9i42Z2L?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e9i42Z2L)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/2000-03-31.png)
 

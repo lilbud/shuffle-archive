@@ -59,7 +59,7 @@ There’s a whole sub-genre in Bruce’s catalog of fun pop trifles, and “Hurr
 
 **Hurry Up Sundown**
 **Recorded** March 2013  
-**Released:** *American Beauty* (2014)  
+**Released:** *American Beauty* (2014)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

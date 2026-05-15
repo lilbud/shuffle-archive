@@ -108,8 +108,8 @@ Still, “Fire” remains a fan favorite for those able to look past its content
 
 **Fire**
 **Recorded** 1977 and 2010  
-**Released:** *The Promise* (2010)  
-**First performed:** May 23, 1978 (Buffalo, NY)  
+**Released:** *The Promise* (2010)
+**First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** September 4, 2021 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

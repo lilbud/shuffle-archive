@@ -6,7 +6,7 @@ The MRC houses millions of artifacts collected throughout American history and a
 
 The Floor is the eventual home for items left in tribute and remembrance by visitors to the Vietnam Veterans Memorial, or as most call it, “The Wall.” If it was open to the public, you’d see aisle after aisle of blue boxes stacked floor to ceiling, although some items (like the motorcycle in the video below) are too large to be contained.
 
-[Watch Video Highlight](https://videopress.com/embed/dlsQz1Oq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dlsQz1Oq)
 
 The Vietnam Veterans Memorial collection is the only one of its kind, comprised entirely of donated items. It started organically almost as soon as the memorial opened in 1982. Long before Internet memes and social media, visitors from around the world were somehow moved en masse to leave items at the wall below the names of their loved ones.
 
@@ -128,8 +128,8 @@ In a town where life-altering decisions are made by those far removed from conse
 
 **The Wall**
 **Recorded** Late 1990s  
-**Released:** *High Hopes* (2014)  
-**First performed:** February 19, 2003 (Somerville, MA)  
+**Released:** *High Hopes* (2014)
+**First performed:** February 19, 2003 (Somerville, MA)
 **Last performed:** May 22, 2014 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries coming soon!

@@ -12,7 +12,7 @@ In “You Can’t Go Back,” Patti revisits the New York City streets she once 
 
 And while Bruce and Patti have never performed it together in concert, we fortunately have documents of Patti performing it herself. Well, not exactly by herself, but with her own backing band–one that features a few familiar faces.
 
-[Watch Video Highlight](https://videopress.com/embed/VKJ2hyKD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VKJ2hyKD)
 
 **You Can’t Go Back**
 **Recorded:** January 200<br>

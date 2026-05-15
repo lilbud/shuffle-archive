@@ -39,7 +39,7 @@ But that’s a picked nit. The lyrics above are still a great set-up for a song 
 **Sometimes at Night**
 **Never Recorded**
 **Never Released**
-**First performed:** July 22, 1971 (South Amboy, NJ)  
+**First performed:** July 22, 1971 (South Amboy, NJ)
 **Last performed:** July 22, 1971 (South Amboy, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

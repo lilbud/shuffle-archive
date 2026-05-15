@@ -33,7 +33,7 @@ It was the last of the eleven-song set, in fact, and the last song Clarence “B
 Ten years on, “Blue Christmas” performance remains a poignant annual reminder of both his absence and presence.
 
 **Blue Christmas**
-**First performed:** December 17, 2000 (Asbury Park, NJ)  
+**First performed:** December 17, 2000 (Asbury Park, NJ)
 **Last performed:** December 7, 2010 (Asbury Park, NJ)
 
 (c) November 29, 2020 by Ken Rosen

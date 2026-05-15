@@ -8,7 +8,7 @@ After the thesis-worthy “[Moonlight Motel](https://estreetshuffle.com/index.ph
 
 “The Fever” is a song out of time, even *at* the time. A throwback to late-night R&B soul ballads, “The Fever” sounds completely unlike anything we’ve come to associate as the E Street sound. (That’s probably at least in part due to the song’s pre-E Street origins–a copy of the original lyrics dated 1971 resides at the Hard Rock Cafe in Sydney.) “The Fever” is sultry, languorous, and somehow simultaneously loose and taut. It sounds like the kind of song you’d hear in a movie soundtrack, at a smoky club or a seamy casino (like in the 2007 film, *Lucky You*.)
 
-[Watch Video Highlight](https://videopress.com/embed/oAEv8Epy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oAEv8Epy)
 
 “The Fever” swings. It struts. It seduces. Read any review of “The Fever” from its debut in select markets as an “official bootleg” (more on that later) to the present, and you’ll see the phrase “slow burn.” There’s no better descriptor.
 
@@ -134,12 +134,12 @@ Bruce can’t seem to shake “The Fever,” despite how much and how often he p
 
 I’ll leave you with a rare solo electric piano performance of “The Fever” from Bruce’s 2005 tour, played by request in Boston. It’s a great performance, but true to fashion, Bruce can’t resist getting a dig in first. Enjoy this seldom-heard performance of what Bruce called “an annoying fan favorite.”
 
-[Watch Video Highlight](https://videopress.com/embed/iEdaryZ4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iEdaryZ4)
 
 **The Fever**
 **Recorded** May 16, 1973  
-**Released:** *18 Tracks* (1999)  
-**First performed:** March 15, 1973 (Boston, MA)  
+**Released:** *18 Tracks* (1999)
+**First performed:** March 15, 1973 (Boston, MA)
 **Last performed:** July 6, 2019 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -81,13 +81,13 @@ Janey made her stage debut during the final stand of the Born in the USA Tour, i
 
 Janey’s only other pre-*Tracks* appearance was at a 1993 benefit/tour warm-up–this time in an acoustic guitar/harmonica arrangement but once again as an encore (and this time the final one).
 
-[Watch Video Highlight](https://videopress.com/embed/0JJYW3Tx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0JJYW3Tx)
 
 Janey’s inclusion in a 1993 setlist isn’t a surprise–Bruce’s shows that year were filled with lighter, more optimistic songs. The only mystery here is why it was a one-off–because Janey wouldn’t be heard from again until summer of ’99, when she made a few appearances with the reunited E Street Band.
 
 She returned for the tail end of the Rising Tour, too–and we’re fortunate to have a soundboard recording from the Giants Stadium soundcheck the night she came back. It’s a rehearsal, to be sure, but it’s a joy to hear Janey’s eighties-synth replaced by Roy’s uplifting piano, along with a gorgeous ending:
 
-[Watch Video Highlight](https://videopress.com/embed/LDQPFzFz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LDQPFzFz)
 
 In fact, one of the most delightful things about a Janey appearance at a Bruce show is that she almost always seems to be wearing a different arrangement. She might be played on electric piano…
 
@@ -112,8 +112,8 @@ Whatever form she takes, a setlist appearance by “Janey, Don’t You Lose Hear
 
 **Janey, Don’t You Lose Heart**
 **Recorded:** June 16, 1983  
-**Released:** *I’m Goin’ Down* (single, 1985),*Tracks* (1998), *18 Tracks* (1999)  
-**First performed:** September 27, 1985 (Los Angeles, CA)  
+**Released:** *I’m Goin’ Down* (single, 1985),*Tracks* (1998), *18 Tracks* (1999)
+**First performed:** September 27, 1985 (Los Angeles, CA)
 **Last performed:** February 14, 2017 (Brisbane, Australia)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

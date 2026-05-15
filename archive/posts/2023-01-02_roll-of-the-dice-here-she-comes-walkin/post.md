@@ -48,7 +48,7 @@ Let’s hope.
 **Here She Comes Walkin’**
 Never recorded**
 **Never released**
-**First performed:** October 11, 1980 (Chicago, IL)  
+**First performed:** October 11, 1980 (Chicago, IL)
 **Last performed:** July 28, 2016 (Oslo, Norway)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

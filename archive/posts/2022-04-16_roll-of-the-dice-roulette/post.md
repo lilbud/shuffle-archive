@@ -36,7 +36,7 @@ The final version of “Roulette” became the first song recorded for the album
 
 With such urgency, relevance, power, and detail, it’s surprising that it took almost a decade before fans heard “Roulette” either on disc or on stage. (It was released on vinyl and debuted in concert during the same week in February 1988.)
 
-[Watch Video Highlight](https://videopress.com/embed/t4ks0AI4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/t4ks0AI4)
 
 That’s likely because Bruce was never fully comfortable with the visceral paranoia that informed its creation. “I may just have gotten afraid,” he told Mark Hagen in a 1999 interview for *Mojo.* “It went a little over the top, which is what’s good about it. In truth it probably should have gotten put on. It would have been one of the best things on the record and it was just a mistake at the time.”
 
@@ -134,8 +134,8 @@ Bruce headlined two of those concerts, but despite his continued concern for the
 
 **Roulette**
 **Recorded** April 1979  
-**Released:** *One Step Up* (B-side, 1988),*Tracks* (1998), *The River: Outtakes* (2015)  
-**First performed:** February 25, 1988 (Worcester, MA)  
+**Released:** *One Step Up* (B-side, 1988),*Tracks* (1998), *The River: Outtakes* (2015)
+**First performed:** February 25, 1988 (Worcester, MA)
 **Last performed:** July 5, 2016 (Milan, Italy)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -93,8 +93,8 @@ Here’s Bruce’s last performance of “Cautious Man” to date, in East Ruthe
 
 **Cautious Man**
 **Recorded** January-April 1987  
-**Released:** *Tunnel of Love* (1987)  
-**First performed:** May 10, 1988 (Bloomington, MN)  
+**Released:** *Tunnel of Love* (1987)
+**First performed:** May 10, 1988 (Bloomington, MN)
 **Last performed:** November 17, 2005 (East Rutherford, NJ)
 
 (c) June 9, 2020

@@ -105,8 +105,8 @@ What most fans don’t realize, however, is that the version of “I Wanna Marry
 
 **I Wanna Marry You**
 **Recorded** July 1979 – May 1980  
-**Released:** *The River* (1980), *The River: Single Album* (2015)  
-**First performed:** October 3, 1980 (Ann Arbor, MI)  
+**Released:** *The River* (1980), *The River: Single Album* (2015)
+**First performed:** October 3, 1980 (Ann Arbor, MI)
 **Last performed:** July, 28, 2016 (Oslo, Norway)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

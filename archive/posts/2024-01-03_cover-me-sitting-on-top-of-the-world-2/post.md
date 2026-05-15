@@ -26,7 +26,7 @@ And as sacrilegious as it may be to say: I think Bruce’s version smokes all th
 
 But oh, that wailing guitar solo finish by 22-year-old Bruce… those final two minutes rank among my favorite “Pre-Street” moments on record.
 
-[Watch Video Highlight](https://videopress.com/embed/iKPVOvfb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iKPVOvfb)
 
 If you’re not already duly impressed by that performance, then consider this: just two months later, Bruce was already writing and recording the songs that would appear not long after on [*Greetings From Asbury Park, N.J*.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)
 

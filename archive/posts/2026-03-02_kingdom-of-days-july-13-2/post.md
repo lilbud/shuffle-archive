@@ -16,7 +16,7 @@
 
 **1981:** Bruce and the E Street Band kick off a five-night stand at The Spectrum in Philadelphia.
 
-[Watch Video Highlight](https://videopress.com/embed/FHiJ0uH9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/FHiJ0uH9)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/07/1981-0713.jpg)
 
@@ -24,7 +24,7 @@
 
 **1984:** Bruce and the band play their second of two nights in East Troy, Wisconsin.
 
-[Watch Video Highlight](https://videopress.com/embed/gnhXXMxQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gnhXXMxQ)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=P3JL1L83yGA)
 
@@ -32,7 +32,7 @@
 
 **1992:** Bruce and his new band wrap up the European leg of World Tour 1992 with a fifth and final show at Wembley Arena. “Prove It All Night” makes its tour debut, and “Born in the U.S.A.” is dropped from the set list for the first time since its debut in 1984.
 
-[Watch Video Highlight](https://videopress.com/embed/pbxCty6f?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pbxCty6f)
 
 **1993:** Patti Scialfa releases her first solo album, *Rumble Doll,* along with “Lucky Girl,” the lead-off single and video. Listen to Patti’s promotional radio interview and performance below.
 
@@ -46,7 +46,7 @@
 
 **2005:** Bruce brings his Devils & Dust acoustic tour back to North America, kicking off with a show at Corel Center in Ottawa. Bruce plays a fairly standard set, but a lightning strike-induced power outage at the end of “Reno” provides some unplanned excitement.
 
-[Watch Video Highlight](https://videopress.com/embed/LRnkEQ4z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LRnkEQ4z)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/07/2005-07-13.jpg)
 

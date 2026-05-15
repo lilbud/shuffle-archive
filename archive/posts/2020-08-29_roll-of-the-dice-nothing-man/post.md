@@ -88,8 +88,8 @@ It’s been a long fifteen years since we’ve heard Bruce play “Nothing Man�
 
 **Nothing Man**
 **Recorded** Early 2002  
-**Released:** *The Rising* (2002)  
-**First performed:** September 30, 2002 (St. Paul, MN)  
+**Released:** *The Rising* (2002)
+**First performed:** September 30, 2002 (St. Paul, MN)
 **Last performed:** October 28, 2005 (Boston, MA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

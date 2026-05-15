@@ -35,11 +35,11 @@ Now it’s clear why there were so many extras behind the stage yesterday–it�
 
 We spent most of the first set in our seats (and will spend most of the second set at the soundboard), but toward the end of the set we made our way into the same positions we held last night, and Bruce closes the set with “Dancing in the Dark” while the cameras film.
 
-[Watch Video Highlight](https://videopress.com/embed/mXcSi5Cs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mXcSi5Cs)
 
 When the band comes back for the second set, they start with one more run-through of “Dancing in the Dark,” just to make sure they have enough footage.
 
-[Watch Video Highlight](https://videopress.com/embed/zlSSR1GM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zlSSR1GM)
 
 You’ll see the final video, of course. Everyone will! It will become Bruce’s greatest hit, and one of the most memorable videos of the 1980s.
 
@@ -80,7 +80,7 @@ Before I can figure out what he’s talking about, he falls backward onto the st
 
 And I do!
 
-[Watch Video Highlight](https://videopress.com/embed/0z2W0RJN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0z2W0RJN)
 
 After the show, I get to go backstage and Bruce signs his autograph for me. I see Max, too, and he remembers me from his book signing a couple of days before. (He drew a drumkit on everyone’s book when he signed it, but I told him I was special and needed him to also draw himself. So my book has a a stick figure Max behind his drumkit!) Max tells me, “Great dancing out there kiddo!”
 

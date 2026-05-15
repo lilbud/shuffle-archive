@@ -50,29 +50,29 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ycetI2UqaIQ)
 
-[Watch Video Highlight](https://videopress.com/embed/UmQMQHKN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UmQMQHKN)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/1992-06-15.jpg)
 
 **1999:** “Take ’em as They Come” makes its live debut when Bruce and the E Street Band bring the Reunion Tour to Offenbach, Germany.
 
-[Watch Video Highlight](https://videopress.com/embed/wGZfQBl3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wGZfQBl3)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s9Afum2mp5E)
 
 **2000:** Night Two of the final ten-night stand of the Reunion Tour opens with “Further On (Up the Road)” at Madison Square Garden and features another powerful “American Skin (41 Shots).”
 
-[Watch Video Highlight](https://videopress.com/embed/Jwv1hB7x?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Jwv1hB7x)
 
-[Watch Video Highlight](https://videopress.com/embed/EOBmU7ZO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EOBmU7ZO)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Mn4-NPZtctc)
 
 **2004:** Patti Scialfa releases her long-awaited second album, *23rd Street Lullaby* and plays a promotional free mini-concert in New York City for NBC’s *Today*. Watch her full performance below.
 
-[Watch Video Highlight](https://videopress.com/embed/lX9FEdbt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lX9FEdbt)
 
-[Watch Video Highlight](https://videopress.com/embed/PPu63YUC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PPu63YUC)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/2004-06-15a.jpg)
 

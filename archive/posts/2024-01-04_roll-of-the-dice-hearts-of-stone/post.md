@@ -102,8 +102,8 @@ Since then, “Hearts of Stone” has made a few more appearances at benefit per
 
 **Hearts of Stone**
 **Recorded** October 14, 1977, 1998  
-**Released:** *Hearts of Stone* (1978) (Southside Johnny vocal); *Tracks* (1998) (Bruce Springsteen vocal)  
-**First performed:** November 26, 1988 (San Francisco, CA)  
+**Released:** *Hearts of Stone* (1978) (Southside Johnny vocal); *Tracks* (1998) (Bruce Springsteen vocal)
+**First performed:** November 26, 1988 (San Francisco, CA)
 **Last performed:** January 17, 2015 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -21,7 +21,7 @@ Because shortly after the River Tour ended later that year, Bruce started workin
 
 Bruce called his song “Bells of San Salvador,” and the only traces of it that circulate widely are his (very) early home acoustic demos where he works on the song.
 
-[Watch Video Highlight](https://videopress.com/embed/YMJABFlc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YMJABFlc)
 
 Now the interesting thing about those nine minutes of tinkering in the clip above is that Bruce has his title (he says it at one point), and he has a melody (clearly intended as a full-band track, as he vocalizes the percussion).
 
@@ -59,7 +59,7 @@ At least one verse (or more likely the chorus) seems to be clear and distinct, t
 Whether Bruce ever finished the song and recorded it has yet to be revealed, but for hardcore Springsteen fans who enjoy tracing the development of Bruce’s songwriting, these early demos of “Bells of San Salvador” provide a fascinating glimpse in to the days immediately following the River Tour.
 
 **Bells of San Salvador**
-**Recorded** September – December 1981 (demos/rehearsals only)  
+**Recorded** September – December 1981 (demos/rehearsals only)
 **Never released**
 **Never performed**
 

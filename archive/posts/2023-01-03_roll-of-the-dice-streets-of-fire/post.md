@@ -77,8 +77,8 @@ Don’t listen. Just feel.
 
 **Streets of Fire**
 **Recorded** June 24 – December 29, 1977  
-**Released:** *Darkness on the Edge of Town* (1978)  
-**First performed:** May 23, 1978 (Buffalo, NY)  
+**Released:** *Darkness on the Edge of Town* (1978)
+**First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** September 11, 2016 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

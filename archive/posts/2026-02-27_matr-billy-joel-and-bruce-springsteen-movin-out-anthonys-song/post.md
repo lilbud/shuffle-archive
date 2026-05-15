@@ -8,7 +8,7 @@ So it’s a little surprising that Billy and Bruce never got around to performin
 
 At the *Change Rocks* fundraiser for the Obama campaign, Bruce joined Billy on stage for most of Billy’s set. The very first Billy Joel song they played together? “Movin’ Out (Anthony’s Song),” with Bruce taking the lead vocal on the second verse.
 
-[Watch Video Highlight](https://videopress.com/embed/HttEHXsi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HttEHXsi)
 
 That was the first time Billy and Bruce had ever played the song together, but you wouldn’t know it from their tight performance.
 

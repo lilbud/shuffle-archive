@@ -32,7 +32,7 @@ By January 1974, “You Mean So Much to Me” had evolved into a showcase for Br
 
 It’s easy to forget how much the E Street Band’s sound has changed since their early days, but this track is a fantastic reminder: every band member gets a spotlight, but Danny Federici and David Sancious own most of the song–their loose, jazzy interplay anchors Bruce and the band throughout. And as for Bruce, seldom are we fortunate enough to have an arrangement sparse enough to let his guitar skills shine through as well as they do here. At the time, Bruce had a reputation as a smoking hot guitar player, and it’s easy to hear why.
 
-[Watch Video Highlight](https://videopress.com/embed/NSnllzdN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NSnllzdN)
 
 By this point, you might have noticed that I’ve been focusing on the musicality of “You Mean So Much to Me,” rather than its poetry. That’s not an accident. Lyrically, there’s not a lot here to either admire or dismiss–only two verses and a chorus for a song that approached ten minutes when performed live.
 
@@ -60,7 +60,7 @@ Look for that story coming soon.
 **You Mean So Much to Me**
 Never recorded**
 **Never released**
-**First performed:** July 10, 1971 (Lincroft, NJ)  
+**First performed:** July 10, 1971 (Lincroft, NJ)
 **Last performed:** May 13, 1977 (Red Bank, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -109,7 +109,7 @@ In later years, the arrangement would become more elaborate, and Bruce’s vocal
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Mansion On the Hill (Live in New York City)](https://www.youtube.com/watch?v=nccjJ3GUI5U)
 
-[Watch Video Highlight](https://videopress.com/embed/AwPjfTip?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AwPjfTip)
 
 After four decades of living in the mansion, Bruce’s song has become a rarity, with only seven 21st-century set list appearances compared to 130 in the twenty years before. It’s always a special moment when it appears, though, and a signal that perhaps Bruce is feeling a bit nostalgic that night.
 
@@ -119,8 +119,8 @@ And as for the original Mansion on the Hill, it still stands in its original loc
 
 **Mansion on the Hill**
 **Recorded** December 1981-January 1982  
-**Released:** *Nebraska* (1982)  
-**First performed:** June 29, 1984 (St. Paul, MN)  
+**Released:** *Nebraska* (1982)
+**First performed:** June 29, 1984 (St. Paul, MN)
 **Last performed:** February 7, 2016 (Hollywood, FL)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

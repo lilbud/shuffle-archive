@@ -46,7 +46,7 @@ It was the first time Bruce and Bono had ever shared a stage together, and amazi
 
 If Bruce seemed particularly comfortable with the song that night, that’s probably because he’d been playing it that summer with a variety of bands in Jersey shore clubs–including an E Street Band performance at The Stone Pony in August.
 
-[Watch Video Highlight](https://videopress.com/embed/DEXYK9vd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DEXYK9vd)
 
 In all, Bruce would play “Stand By Me” more than a dozen times in the few years following the song’s re-emergence, almost always at surprise club appearances or special events. After a final club performance in 1991, “Stand By Me” disappeared from Bruce’s setlists for a decade, before returning during the *Alliance of Neighbors* pair of 9/11 benefit concerts in October 2001.
 
@@ -58,8 +58,8 @@ This time the venue was Madison Square Garden. Once again Bruce was a surprise e
 
 And the crowd… the crowd was just as electric. Let’s watch that moment–Bruce’s last performance of “Stand By Me” to date, with echoes of one of his very first.
 
-[Watch Video Highlight](https://videopress.com/embed/BRBXz4w6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BRBXz4w6)
 
 **Stand By Me**
-**First performed:** January 17, 1985 (Greensboro, NC)  
+**First performed:** January 17, 1985 (Greensboro, NC)
 **Last performed:** July 31, 2015 (New York City, NY)

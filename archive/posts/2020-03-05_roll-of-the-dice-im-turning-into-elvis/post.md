@@ -12,7 +12,7 @@ Also fun.
 
 “I’m Turning Into Elvis” unreels like a shaggy dog story, each verse its own I-can-top-that vignette. It needs no analysis, because there’s zero subtext. So just enjoy:
 
-[Watch Video Highlight](https://videopress.com/embed/ZEiX8nVY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZEiX8nVY)
 
 *I woke up in the morning, and I had on blue suede shoes*
 *The pillow crushed my hair into a shiny black pompadour and on my arm was one blue tattoo*
@@ -60,7 +60,7 @@ But “I’m Turning Into Elvis” was where it started. One wonders just how ma
 **I’m Turning Into Elvis**
 Never recorded**
 **Never released**
-**First performed:** April 5, 1995 (New York City, NY)  
+**First performed:** April 5, 1995 (New York City, NY)
 **Last performed:** November 19, 1996 (Memphis, TN)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

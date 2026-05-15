@@ -24,8 +24,8 @@ It was never much more than a lark, though, destined for one-off status from the
 
 Or two-off, I suppose, to be accurate. That clip above is the one most fans have heard, from Bruce’s Meadowlands show in the summer of 1992. Bruce covered it one additional time, though, just seven weeks earlier. That performance is harder to come by (and a lot harder to make out), but you can listen to it here.
 
-[Watch Video Highlight](https://videopress.com/embed/ApN9htUF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ApN9htUF)
 
 **Ninety-Nine and a Half (Won’t Do)**
-**First performed:** June 5, 1992 (Los Angeles, CA)  
+**First performed:** June 5, 1992 (Los Angeles, CA)
 **Last performed:** July 25, 1992 (East Rutherford, NJ)

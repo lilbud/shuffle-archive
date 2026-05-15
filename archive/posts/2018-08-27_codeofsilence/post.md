@@ -10,7 +10,7 @@ In February 2005, the Grammy for Best Solo Rock Vocal Performance went to “Cod
 
 When Bruce and the E Street Band were wrapping up their Reunion Tour in June of 2000, Bruce start to premiere some brand new songs, telegraphing to fans that he wasn’t done releasing new music. First came “[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)” and “American Skin (41 Shots)” in Atlanta, and then at the very next show–the opening show of a ten-night closing stand at Madison Square Garden–Bruce opened the show with the debut of “Code of Silence.” (Bruce would debut one more Bruce/Joe collaboration before the tour was done.)
 
-[Watch Video Highlight](https://videopress.com/embed/HOWgJ2Ki?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HOWgJ2Ki)
 
 The song was received by fans enthusiastically, and Bruce ended up playing it in eight shows of that final ten-night stand.
 
@@ -46,9 +46,9 @@ The arrangement is identical, the vocals are clearer, and the song is just as fe
 [Watch on Youtube: Code of Silence](https://www.youtube.com/watch?v=yi4UJ5_Fd6E)
 
 **Code of Silence**  
-**Recorded:** June 29, 2000 (live version)  
-**Released:** *The Essential Bruce Springsteen* (2003, live version), *A Good Life* (2006, studio version)  
-**First performed:** June 12, 2000 (New York City, NY)  
+**Recorded:** June 29, 2000 (live version)
+**Released:** *The Essential Bruce Springsteen* (2003, live version), *A Good Life* (2006, studio version)
+**First performed:** June 12, 2000 (New York City, NY)
 **Last performed:** July 18, 2015 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

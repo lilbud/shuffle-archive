@@ -46,7 +46,7 @@ So color me surprised. And delighted: Bruce turned “Whitetown” into a wonder
 
 **Whitetown**
 **Recorded** ?  
-**Released:** *The Ties That Bind: The River Collection* (2015)  
+**Released:** *The Ties That Bind: The River Collection* (2015)
 **Never Performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

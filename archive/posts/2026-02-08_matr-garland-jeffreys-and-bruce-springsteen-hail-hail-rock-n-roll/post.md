@@ -14,12 +14,12 @@ On November 1, 2003, Garland Jeffreys played his own set at Light of Day after m
 
 But when Garland did his artist salutes during the song’s coda, he couldn’t help but out his friend, entreating Bruce to take to the stage… which of course, he did.
 
-[Watch Video Highlight](https://videopress.com/embed/tJiuFXGC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tJiuFXGC)
 
 In the recording above, you can hear the moment when the crowd realizes that Bruce is actually on stage, and although his contributions are limited to a lead guitar lead-out, it’s one of the many great Light of Day moments Bruce has given us over the years.
 
 **Hail Hail Rock ‘n’ Roll**
-**First performed:** November 1, 2003 (Asbury Park, NJ)  
+**First performed:** November 1, 2003 (Asbury Park, NJ)
 **Last performed:** November 1, 2003 (Asbury Park, NJ)
 
 © March 13, 2020

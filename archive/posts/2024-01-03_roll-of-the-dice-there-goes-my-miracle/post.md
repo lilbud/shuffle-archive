@@ -18,7 +18,7 @@ As for when studio work started in earnest, there’s a clue in the involvement 
 
 Koma actually has one other Springsteen-related credit on his resume: the “Modern Mix” version of “Rocky Ground,” released in mid-2012. Judging from Koma’s recollection of the experience, that was their first collaboration.
 
-[Watch Video Highlight](https://videopress.com/embed/9AcAtTIz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9AcAtTIz)
 
 My guess is that Koma’s vocal contribution hails from sometime shortly after that connection–and since Ron Aniello is on record as having finished *Western Stars* twice (first in 2014, and again in 2018), that also supports the notion that “There Goes My Miracle” was largely in the can pretty early on.
 
@@ -98,7 +98,7 @@ As much as I adore the entire album, I’m perfectly content for Bruce to omit t
 
 **There Goes My Miracle**
 **Recorded** 2010-2019  
-**Released:** *Western Stars* (2019)  
+**Released:** *Western Stars* (2019)
 **First performed:** April 2019  
 **Last performed:** April 2019
 

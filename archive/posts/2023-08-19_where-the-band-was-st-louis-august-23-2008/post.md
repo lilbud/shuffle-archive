@@ -90,7 +90,7 @@ Then–just when it seemed the band had taken their final bows, Bruce caught a s
 
 [Watch on Youtube: Bruce Springsteen -- LITTLE QUEENIE --- St. Louis 2008](https://www.youtube.com/watch?v=oncRaQa76qA)
 
-Surely *that* was the end–but no, Bruce had one last dedication to make, this time for Sophie Satanovsky, who was in the stands and caught Bruce’s eye throughout the show. (See the video below for Sophie’s story–one of the classic “Legends of Springsteen” installments.) 
+Surely *that* was the end–but no, Bruce had one last dedication to make, this time for Sophie Satanovsky, who was in the stands and caught Bruce’s eye throughout the show. (See the video below for Sophie’s story–one of the classic “Legends of Springsteen” installments.)
 
 [Watch on Youtube: Springsteen - The Satanovskys & St. Louis Movie - 1/27/81](https://www.youtube.com/watch?v=ezPRW1wt0NE)
 

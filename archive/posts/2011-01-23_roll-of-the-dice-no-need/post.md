@@ -78,7 +78,7 @@ I consider “No Need” to be a stepping stone on Bruce’s songwriting journey
 **No Need**
 **Recorded** April-July 1972  
 **Never released**
-**First performed:** February 17, 1972 (Freehold, NJ)  
+**First performed:** February 17, 1972 (Freehold, NJ)
 **Last performed:** February 17, 1972 (Freehold, NJ)
 
 © September 8, 2018

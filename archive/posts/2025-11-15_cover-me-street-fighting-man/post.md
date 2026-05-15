@@ -12,7 +12,7 @@ When Bruce Springsteen launched what would prove to be his most popular, iconic 
 
 Here’s that debut performance, from the opening show of the Born in the U.S.A. Tour in St. Paul, June 29, 1984.
 
-[Watch Video Highlight](https://videopress.com/embed/7LyG3v5v?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7LyG3v5v)
 
 Bruce and the E Street Band continued to cover “Street Fighting Man” regularly throughout the summer and well into the fall, finally dropping it from the setlist just before Halloween after more than two dozen performances.
 
@@ -20,12 +20,12 @@ Bruce and the E Street Band continued to cover “Street Fighting Man” regular
 
 Bruce brought “Street Fighting Man” back for one final encore the following summer as a tribute to the original artists when the E Street Band played their first stand at Wembley Stadium. And this time, Steve Van Zandt was on hand to join his old bandmates, and the additional guitar power (and the slightly slower tempo) made this version the E Street Band’s definitive one.
 
-[Watch Video Highlight](https://videopress.com/embed/oIHFw54S?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oIHFw54S)
 
 It’s been almost 35 years since that last E Street Band cover of “Street Fighting Man,” but we can hope it won’t prove to be the final one. It may be more resonant now than ever.
 
 **Street Fighting Man**
-**First performed:** June 29, 1984 (St. Paul, MN)  
+**First performed:** June 29, 1984 (St. Paul, MN)
 **Last performed:** July 6, 1985 (London, England)
 
 (c) August 19, 2019

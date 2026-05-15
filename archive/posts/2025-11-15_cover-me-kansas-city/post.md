@@ -20,7 +20,7 @@ Bruce’s first known performance of “Kansas City” came surprisingly far int
 
 Two years later, however, Bruce broke out Leiber and Stoller’s oft-covered hit on the River Tour in… well, where else but Kansas City?
 
-[Watch Video Highlight](https://videopress.com/embed/AAvL4f8E?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AAvL4f8E)
 
 Bruce’s first public performance of “Kansas City” featured the mash-up with Little Richard’s “Hey Hey Hey Hey” from The Beatles’ arrangement, as would most of his subsequent performances over the years. Most of those performances would be at club appearances, however, rather than “proper” tour concerts.
 
@@ -51,7 +51,7 @@ But one night in 1987, Bruce (and most of the E Street Band) joined Cats on a Sm
 [Watch on Youtube: Springsteen w/ Jon Bon Jovi - Kansas City (New Jersey 1987)](https://www.youtube.com/watch?v=idDI0dCmH_k)
 
 **Kansas City**
-**First performed:** January 11, 1979 (Fair Haven, NJ)  
+**First performed:** January 11, 1979 (Fair Haven, NJ)
 **Last performed:** June 7, 2025 (Liverpool, England)
 
 (c) January 11, 2021

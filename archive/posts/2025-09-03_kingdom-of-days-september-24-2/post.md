@@ -16,13 +16,13 @@
 
 [Watch on Youtube: Bruce Springsteen - Hungry Heart (Buffalo, September 24th, 1984)](https://www.youtube.com/watch?v=6LKR387796M)
 
-[Watch Video Highlight](https://videopress.com/embed/JD0yostX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JD0yostX)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1984-0924.jpg)
 
 **1985:** What was supposed to be the opening show of a two-night Born in the U.S.A. Tour stop in Denver is now the closer, as the perhaps-too-hastily-postponed show from two days prior is finally delivered at Mile High Stadium.
 
-[Watch Video Highlight](https://videopress.com/embed/7SFsILn3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7SFsILn3)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/09/The_Herald_News_1985_09_26_2-scaled.jpg)
 
@@ -36,7 +36,7 @@ On television, NBC’s youth-oriented *Main Street* series profiles Bruce.
 
 **1992:** Bruce kicks off a three-night stand with his new touring band at the Los Angeles Sports Arena, featuring one of only three performances of “[The Long Goodbye](https://estreetshuffle.com/index.php/2021/12/05/roll-of-the-dice-the-long-goodbye/)” to date.
 
-[Watch Video Highlight](https://videopress.com/embed/A5PZi0g9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/A5PZi0g9)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1992-09-24a.jpg)
 
@@ -44,7 +44,7 @@ On television, NBC’s youth-oriented *Main Street* series profiles Bruce.
 
 **1996:** Bruce debuts a new song at his solo acoustic show in Kalamazoo… sort of. Before the show, a fan had requested “Highway Patrolman” and while Bruce planned to grant it, he knew he’d be blowing the STFU theme of his tour by playing it in Michigan, because audiences can’t help but cheer when their own state is mentioned. So instead of declining the request, he doubled down and wrote a song called “[In Michigan](https://estreetshuffle.com/index.php/2022/04/12/roll-of-the-dice-in-michigan/)” backstage in the minutes leading up to the show. It shows.
 
-[Watch Video Highlight](https://videopress.com/embed/YZMQo4ib?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YZMQo4ib)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1996-09-24.jpg)
 

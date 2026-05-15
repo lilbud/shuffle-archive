@@ -18,9 +18,9 @@ By the spring, Bruce abandoned the reggae arrangement and cast about for somethi
 
 Although “Held Up Without a Gun” is clearly a strong track (and was at one point shortlisted for *The River*), Bruce thought its melody might be just what he needed for his “You Can Look” lyrics. With a bit of modification, he grafted the two together. Take a listen to these home demos from May 1979.
 
-[Watch Video Highlight](https://videopress.com/embed/Y9OcQSQs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Y9OcQSQs)
 
-[Watch Video Highlight](https://videopress.com/embed/M0hLYHaw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/M0hLYHaw)
 
 Clearly, Bruce was on to something. Well, maybe it wasn’t so clear–because while Bruce felt confident enough about “You Can Look” to take it into the studio with the band, what came out of that August 1979 recording session was not the familiar arrangement we know from the album and that Bruce had been working on at home.
 
@@ -77,7 +77,7 @@ I’ve always felt the album version moves at too breakneck a pace. “You Can L
 
 Bruce seemed to realize that early on. Here’s the first-ever live performance of “You Can Look (But You Better Not Touch)” early in the River Tour at Richfield, Ohio. The band has a little trouble getting started, but once they do, they tear right through.
 
-[Watch Video Highlight](https://videopress.com/embed/Jul7zcdg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Jul7zcdg)
 
 But less than a month later, Bruce had already expanded the arrangement, allowing the song to breathe a bit in an improv-friendly coda that would feature much mugging over the years to come.
 
@@ -93,7 +93,7 @@ It works when played solo on acoustic guitar and harmonica, as in this 1997 perf
 
 …and it works as a solo piano number–or even dueling pianos, when Bruce threw down with Bruce Hornsby in 2005. (Hornsby won.)
 
-[Watch Video Highlight](https://videopress.com/embed/S26I1Zo8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/S26I1Zo8)
 
 But my favorite arrangement was the most unexpected one of all: on the Seeger Sessions Tour in 2006, Bruce unveiled a zydeco version that’s completely irresistible.
 
@@ -106,9 +106,9 @@ But my favorite arrangement was the most unexpected one of all: on the Seeger Se
 You can bet “You Can Look” will be around for a long time to come.
 
 **You Can Look (But You Better Not Touch)**
-**Recorded** August 24-25 1979 (rockabilly version), February 17-23, 1980 (album version)  
-**Released:** *The River* (1980, album version), *The River: Single Album* (2015, rockabilly version)  
-**First performed:** October 7, 1980 (Richfield, OH)  
+**Recorded** August 24-25 1979 (rockabilly version), February 17-23, 1980 (album version)
+**Released:** *The River* (1980, album version), *The River: Single Album* (2015, rockabilly version)
+**First performed:** October 7, 1980 (Richfield, OH)
 **Last performed:** February 18, 2017 (Hunter Valley, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

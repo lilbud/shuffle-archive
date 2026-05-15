@@ -6,7 +6,7 @@ But those recordings are sub-par, to say the least. One of them is completely un
 
 Take a listen below to (as far as we know) the debut performance of “Something’s Gotta Break,” (taking the time to appreciate 20-year-old Bruce’s guitar chops), and then we’ll do our best to break it down.
 
-[Watch Video Highlight](https://videopress.com/embed/vNV9BhEG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vNV9BhEG)
 
 See what I mean? The first half is actually pretty easy to track, but when the tempo shifts, all hell breaks loose and I lose the lyrical thread completely. (Let me know if you can make any more of it out, please.)
 
@@ -66,5 +66,5 @@ Any takers?
 **Something’s Gotta Break**
 Never recorded**
 **Never released**
-**First performed:** May 23, 1970 (Richmond, VA)  
+**First performed:** May 23, 1970 (Richmond, VA)
 **Last performed:** June 13, 1970 (Bricktown, NJ)

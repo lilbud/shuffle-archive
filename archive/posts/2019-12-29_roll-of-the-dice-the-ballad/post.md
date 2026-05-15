@@ -4,7 +4,7 @@ Many of the lyrics from this [*Darkness on the Edge of Town*](https://estreetshu
 
 If only the instrumental track wasn’t so darn gorgeous, I’d ignore the track altogether–but just give it a listen and marvel at what might have been had Bruce finished the song.
 
-[Watch Video Highlight](https://videopress.com/embed/HquSw7d2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HquSw7d2)
 
 “The Ballad” begins with a church organ introduction that immediately establishes a devout, almost holy tone, but the lyrics immediately establish a more secular song. (A note here: while I greatly appreciate the folks who contribute transcriptions of unreleased outtakes to springsteenlyrics.com, in this case, I think their interpretation is wide of the mark. I’ve relied on my own ears below.)
 

@@ -15,5 +15,5 @@ In the spring of 2022, Bruce performed “Come Together” in public–this time
 [Watch on Youtube: Bruce Springsteen & Gary Clark, Jr. -Come Together (23rd annual Mark Twain Prize for American Humor)](https://www.youtube.com/watch?v=NUrGpdLjICo)
 
 **Come Together**
-**First performed:** January 20, 1994 (New York City, NY)  
+**First performed:** January 20, 1994 (New York City, NY)
 **Last performed:** April 24, 2022 (New York City, NY)

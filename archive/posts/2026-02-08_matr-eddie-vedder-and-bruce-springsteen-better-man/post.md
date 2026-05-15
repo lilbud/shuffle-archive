@@ -24,14 +24,14 @@ And yet, for many, the fear of changing leaders at such a volatile time was reas
 
 As a political cause, Vote For Change was a failed endeavor, but it produced some memorable moments along the way. Bruce and Eddie’s “Better Man” performance was chief among them.
 
-[Watch Video Highlight](https://videopress.com/embed/IvxI47QM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IvxI47QM)
 
 Who would have thought the E Street Band was so perfectly suited for a song so strongly identified with the harder, edgier Pearl Jam? Yet they were, right down to Clarence’s smoking sax solo, one of his best post-Reunion on-stage moments. Bruce brought his A game, too, especially on a guitar solo of epic length and power we rarely saw from Bruce at that point of his career.
 
 Bruce and Eddie would go on to perform together several more times over the years, but never again would they play one of Vedder’s own songs. Their one-time-only “Better Man” team-up remains one of the most exciting on-stage team-ups of Bruce’s career.
 
 **Better Man**
-**First performed:** October 13, 2004 (East Rutherford, NJ)  
+**First performed:** October 13, 2004 (East Rutherford, NJ)
 **Last performed:** October 13, 2004 (East Rutherford, NJ)
 
 © November 10, 2022

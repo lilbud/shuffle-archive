@@ -96,7 +96,7 @@ I'm in.
 
 [pic.twitter.com/oU344pnYsH](https://t.co/oU344pnYsH)
 
-— The Ellen Show (@TheEllenShow) 
+— The Ellen Show (@TheEllenShow)
 
 [November 22, 2016](https://twitter.com/TheEllenShow/status/801127734952853504?ref_src=twsrc%5Etfw)
 

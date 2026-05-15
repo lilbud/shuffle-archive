@@ -12,12 +12,12 @@ The run culminated in a star-studded final show that featured appearances by Bru
 
 Elvis only joined Bruce for two brief numbers, one of which was a cover. The other one, however, was “Alison,” and Costello’s lovely acoustic rendition–with Bruce on backing vocals–was one of the highlights of the night.
 
-[Watch Video Highlight](https://videopress.com/embed/yWeJgOPo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yWeJgOPo)
 
 (Apologies for the abrupt ending; Elvis segued into “[The Tracks of My Tears](https://estreetshuffle.com/index.php/2019/10/16/matr-soul-asylum-and-bruce-springsteen-the-tracks-of-my-tears/)” from there.)
 
 Despite a few additional appearances together (most notably on Elvis’ late, lamented *Spectacle* series), this was the only time Bruce has ever performed “Alison” live.
 
 **Alison**
-**First performed:** December 8, 2001 (Asbury Park, NJ)  
+**First performed:** December 8, 2001 (Asbury Park, NJ)
 **Last performed:** December 8, 2001 (Asbury Park, NJ)

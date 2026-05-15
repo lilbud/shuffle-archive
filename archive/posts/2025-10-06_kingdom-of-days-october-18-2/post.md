@@ -32,7 +32,7 @@
 
 **1980:** At Night Two in St. Louis on the River Tour, Bruce plays “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/),” “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/),” and “[I’m a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)“– all for the very first time. Take a listen to “Hungry Heart” played without the audience sing-along–that tradition won’t start for another month.
 
-[Watch Video Highlight](https://videopress.com/embed/yAVvxMMV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yAVvxMMV)
 
 **1984:** Bruce postpones a scheduled Born in the U.S.A. show in Tacoma by a day due to illness. Local elementary school students send Bruce a care package with hand-drawn pictures and a get-well tape of them singing “Hungry Heart,” and Bruce responds in kind with a recording of him (accompanied by Roy) singing the song back to them.
 
@@ -50,7 +50,7 @@
 
 **1992:** Bruce concludes the Canadian leg of World Tour 1992 with a show at the Northlands Coliseum in Edmonton.
 
-[Watch Video Highlight](https://videopress.com/embed/Fa3wCkKQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Fa3wCkKQ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1992-10-18.png)
 
@@ -64,13 +64,13 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 
 **1995:** On the second night of the *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*Tour, Bruce joins Joe Grushecky and The Houserockers at Tramps in New York City, and Dion DiMucci and Scott Kempner make a guest encore appearance on “[The Wanderer](https://estreetshuffle.com/index.php/2019/05/08/cover-me-the-wanderer/).”
 
-[Watch Video Highlight](https://videopress.com/embed/WoQylHbz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WoQylHbz)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1995-10-18.png)
 
 **1999:** Bruce and the reunited E Street Band play their second of two shows at the new Staples Center in Los Angeles.
 
-[Watch Video Highlight](https://videopress.com/embed/Qp7woJbp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Qp7woJbp)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-10-18a.png)
 

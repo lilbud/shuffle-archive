@@ -54,8 +54,8 @@ Bruce doesn’t need to (and almost certainly won’t) bring this one back in co
 
 **Paradise by the “C”**
 Never recorded**
-**Released:** *The River: Outtakes* (2015)  
-**First performed:** May 23, 1978 (Buffalo, NY)  
+**Released:** *The River: Outtakes* (2015)
+**First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** August 2, 1988 (Madrid, Spain)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

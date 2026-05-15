@@ -14,7 +14,7 @@ So Hubert drove Ilona, Rena and I the 200km to Munich that evening! We got to th
 
 There was quite a different feel from the Frankfurt atmosphere – moody. Early into the show the crowd surged into a space near the front and Bruce had to stop before introducing “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” and ask people to go back to their seats. Rena and I moved from our places in the guest rows on the side down into the stalls where there was room to stand and dance.
 
-[Watch Video Highlight](https://videopress.com/embed/IahVMWyt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IahVMWyt)
 
 As it was the last night in Germany, there was a big reception laid on backstage, and as guests we took the chance to eat and spot Roy, Max, Danny, Garry and Clarence mingling. Bruce and Steve didn't show up this time: we spent a while hunting for the dressing-rooms in the large backstage area, but no luck.
 

@@ -86,7 +86,7 @@ That particular super power was still years away.
 **Change It**
 Never recorded**
 **Never released**
-**First performed:** October 17, 1970 (West Long Branch, NJ)  
+**First performed:** October 17, 1970 (West Long Branch, NJ)
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

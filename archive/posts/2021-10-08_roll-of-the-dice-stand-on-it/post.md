@@ -88,8 +88,8 @@ Although it’s become pretty rare these days, “Stand On It” still makes app
 
 **Stand On It**
 **Recorded** June 16, 1983  
-**Released:** *Tracks* (1998)  
-**First performed:** August 31, 1985 (East Rutherford, NJ)  
+**Released:** *Tracks* (1998)
+**First performed:** August 31, 1985 (East Rutherford, NJ)
 **Last performed:** April 22, 2014 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

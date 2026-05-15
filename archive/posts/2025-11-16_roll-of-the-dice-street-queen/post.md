@@ -6,13 +6,13 @@ And yet here he is in 1972, so obsessed with cars with that he actually fetishiz
 
 From Bruce’s very first demo recording session with John Hammond on May 3, 1972, take a listen to “Street Queen,” performed by Bruce solo on piano:
 
-[Watch Video Highlight](https://videopress.com/embed/IvoYACpv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IvoYACpv)
 
 “Street Queen” wasn’t an idle throwaway. Surviving documents suggest that Bruce actively considered it for inclusion on his first album during the summer of 1972, and indeed he continued to work on the song, refining its lyrics.
 
 On June 7, 1972–the very first day of recording sessions for [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)–“Street Queen” was one of the first four songs Bruce recorded in the studio after signing with Columbia. This time he performed it on electric piano. Take a listen to it below–it’s the first and last recording we have of Bruce playing the electric piano until 33 years later.
 
-[Watch Video Highlight](https://videopress.com/embed/YSKs9HY3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YSKs9HY3)
 
 There’s not a lot going on in “Street Queen.” As I wrote at the top, this is a fetish song plain and simple, and if there’s not a lot to parse and analyze, we can at least admire Bruce’s talent for riding a metaphor off into the horizon:
 

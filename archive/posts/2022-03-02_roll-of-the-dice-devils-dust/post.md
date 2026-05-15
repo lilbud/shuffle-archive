@@ -10,7 +10,7 @@ The notable exception in the early years of the Iraq War was the title track to 
 
 We know this not just because of its timely theme, but because Bruce sound checked an early work-in-progress version in the spring of 2003. One of those rehearsal performances was captured in amazing quality, and we can clearly hear the lyrical differences and partially bluffed sections in the clip below.
 
-[Watch Video Highlight](https://videopress.com/embed/XaZLBMi8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XaZLBMi8)
 
 “Devils & Dust” is a powerful meditation on the human cost of war–not in terms of lost lives but in lost humanity. In times of war, a country calls upon its citizens to make moral decisions they would never otherwise make, and they do so in full faith and trust that their nation is acting in keeping with their shared ideals and values.
 
@@ -135,8 +135,8 @@ We like to think that faith will be rewarded, but sometimes faith just ain’t e
 
 **Devils & Dust**
 **Recorded** 2004  
-**Released:** *Devils & Dust* (2005)  
-**First performed:** April 4, 2005 (Red Bank, NJ)  
+**Released:** *Devils & Dust* (2005)
+**First performed:** April 4, 2005 (Red Bank, NJ)
 **Last performed:** January 12, 2017 (Washington, DC)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

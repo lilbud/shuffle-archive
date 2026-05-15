@@ -69,8 +69,8 @@ But other than a one-off in the UK a month later, we haven’t heard from “Vig
 
 **Vigilante Man**
 **Recorded** Late 1987 – Early 1988  
-**Released:** *Folkways: A Vision Shared: A Tribute To Woody Guthrie And Leadbelly* (1988)  
-**First performed:** May 19, 1988 (New York, NY)  
+**Released:** *Folkways: A Vision Shared: A Tribute To Woody Guthrie And Leadbelly* (1988)
+**First performed:** May 19, 1988 (New York, NY)
 **Last performed:** June 21, 1988 (Birmingham, England)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

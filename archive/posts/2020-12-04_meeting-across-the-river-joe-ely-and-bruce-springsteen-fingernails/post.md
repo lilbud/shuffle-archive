@@ -13,5 +13,5 @@ The pair performed “Fingernails” once more together, and once again it was o
 [Watch on Youtube: Joe Ely and Bruce Springsteen - "Fingernails" Dublin, 1996-03-17](https://www.youtube.com/watch?v=Uv4lYpa6tzI)
 
 **Fingernails**
-**First performance:** May 19, 1993 (Dublin, Ireland)  
+**First performance:** May 19, 1993 (Dublin, Ireland)
 **Last performance:** March 13, 1996 (Dublin, Ireland)

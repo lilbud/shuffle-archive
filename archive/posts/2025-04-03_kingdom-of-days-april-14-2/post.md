@@ -6,7 +6,7 @@
 
 This show features the first-ever performance of “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” in Europe.
 
-[Watch Video Highlight](https://videopress.com/embed/hnaPWkuW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hnaPWkuW)
 
 **1990:** Bruce performs with Tom Waits, Jimmie Wood, Karla Bonoff, Patti Scialfa, and Andrew Gold at Chuck Plotkin’s wedding reception.
 
@@ -18,7 +18,7 @@ This show features the first-ever performance of “[Point Blank](https://estree
 
 **2003:** Bruce continues his trek across Canada with a show at Skyreach Centre in Edmonton.
 
-[Watch Video Highlight](https://videopress.com/embed/TsxlJIFq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TsxlJIFq)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2003-04-14.jpg)
 

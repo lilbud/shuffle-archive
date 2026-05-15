@@ -25,7 +25,7 @@ Take a listen to Bruce’s own version of “[Party Lights](https://estreetshuff
 [Watch on Youtube: Bruce Springsteen - Party Lights (The River: Outtakes) [Lyric]](https://www.youtube.com/watch?v=S2WWQAvS_6I)
 
 **Party Lights**
-**First performed:** December 2, 1975 (Boston, MA)  
+**First performed:** December 2, 1975 (Boston, MA)
 **Last performed:** December 11, 1975 (South Orange, NJ)
 
 (c) June 1, 2022

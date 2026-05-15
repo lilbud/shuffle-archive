@@ -34,7 +34,7 @@
 
 **1981:** Southside Johnny guest-stars on “I Don’t Want to Go Home” when Bruce and the E Street Band bring the River Tour to Richfield for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/NOq3rVa8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NOq3rVa8)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/07/1981-0729.jpg)
 
@@ -46,7 +46,7 @@
 
 **1999:** At Night Seven of the opening fifteen-night stand of the U.S. Reunion Tour in the Meadowlands, Bruce opens with the first “The Ties That Bind” in 18 years and tour debuts (officially) a corny and charming “Give the Girl a Kiss” for Patti’s birthday. Bobby Bandiera makes an encore guest appearance on “Hungry Heart.”
 
-[Watch Video Highlight](https://videopress.com/embed/DMYBEQCE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DMYBEQCE)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBj_Sk6Ezsy7cxeo2jnkjqY)
 

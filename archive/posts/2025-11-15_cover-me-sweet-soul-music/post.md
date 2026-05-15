@@ -1,6 +1,6 @@
 “Sweet Soul Music” was one of Bruce’s set list staples during the 1980s. He first performed it way back on the River Tour, debuting it in Paris on the evening of April 19, 1981.
 
-[Watch Video Highlight](https://videopress.com/embed/RRqPEpjz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RRqPEpjz)
 
 Following that first performance, Bruce absorbed the song into “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/),” where it became a standard nightly encore throughout the remainder of the River Tour.
 
@@ -45,7 +45,7 @@ Alas, unlike the full album performance of *The River*, “Sweet Soul Music” w
 We likely haven’t heard the last of “Sweet Soul Music.” With another E Street Band tour on the horizon, odds are good for at least one more outing for this fan and artist favorite.
 
 **Sweet Soul Music**
-First played:** April 19, 1981 (Paris, France)  
+First played:** April 19, 1981 (Paris, France)
 **Last played:** July 27, 2013 (Kilkenny, Ireland)
 
 (c) November 1, 2019

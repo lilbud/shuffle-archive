@@ -110,8 +110,8 @@ Bruce performed “Your Own Worst Enemy” twice since, each time acoustic. I su
 
 **Your Own Worst Enemy**
 **Recorded** March-May 2007  
-**Released:** *Magic* (2007)  
-**First performed:** October 10, 2007 (East Rutherford, NJ)  
+**Released:** *Magic* (2007)
+**First performed:** October 10, 2007 (East Rutherford, NJ)
 **Last performed:** November 4, 2011 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

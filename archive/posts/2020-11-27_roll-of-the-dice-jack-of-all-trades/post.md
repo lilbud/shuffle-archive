@@ -80,7 +80,7 @@ The first time was the song’s live debut–not at the tour opener, or even at 
 
 “Jack of All Trades” was a surprising choice for such a prime platform, but thanks to the intimacy created by the camera that brought Bruce and the band close up into our own homes, it came across as mesmerizing.
 
-[Watch Video Highlight](https://videopress.com/embed/DB01Ux8Z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DB01Ux8Z)
 
 The next times Bruce surprised with a potent “Jack of All Trades” were the last times (to date) that he performed it: in a brand new arrangement at the tail end of his 2016 tour.
 
@@ -96,8 +96,8 @@ After all: It’s all happened before. It’ll happen again.
 
 **Jack of All Trades**
 **Recorded** 2011  
-**Released:** *Wrecking Ball* (2012)  
-**First performed:** March 2, 2012 (New York City, NY)  
+**Released:** *Wrecking Ball* (2012)
+**First performed:** March 2, 2012 (New York City, NY)
 **Last performed:** September 7, 2016 (Philadelphia, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

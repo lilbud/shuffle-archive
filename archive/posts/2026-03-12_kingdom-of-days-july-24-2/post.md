@@ -12,7 +12,7 @@
 
 **1984:** At Night Two in Toronto on the Born in the U.S.A. Tour, Bruce tour premieres “Trapped.”
 
-[Watch Video Highlight](https://videopress.com/embed/ul3sptBK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ul3sptBK)
 
 **1999:** Night Four of fifteen at the Meadowlands at the opening stand of the U.S. Reunion Tour features the tour premiere of “Point Blank,” its first performance in 14 years, recast in a new contemplative arrangement.
 
@@ -26,13 +26,13 @@
 
 **2003:** Night Four of the ten-night Giants Stadium stand on the Rising Tour features a rare “Streets of Fire” in the opening pack.
 
-[Watch Video Highlight](https://videopress.com/embed/2Mij3jw4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2Mij3jw4)
 
-[Watch Video Highlight](https://videopress.com/embed/oHoE4Uus?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oHoE4Uus)
 
 **2005:** Bruce plays a solo acoustic show at the Charlotte Coliseum, one of only two shows on the entire summer leg without at least one tour premiere.
 
-[Watch Video Highlight](https://videopress.com/embed/1YABZAFn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1YABZAFn)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/2005-07-24.png)
 

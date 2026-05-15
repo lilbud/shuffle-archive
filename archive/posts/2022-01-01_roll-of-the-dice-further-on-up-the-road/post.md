@@ -92,8 +92,8 @@ But you never know… the road is long.
 
 **Further On (Up the Road)**
 **Recorded** Early 2002  
-**Released:** *The Rising* (2002)  
-**First performed:** June 4, 2000 (Atlanta, GA)  
+**Released:** *The Rising* (2002)
+**First performed:** June 4, 2000 (Atlanta, GA)
 **Last performed:** May 23, 2014 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

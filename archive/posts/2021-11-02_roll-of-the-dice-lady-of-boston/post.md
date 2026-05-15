@@ -6,7 +6,7 @@ Their sound would eventually gel in a jazzier vein when they morphed into the Br
 
 Take “Lady of Boston” for instance–a song that Bruce only performed at these Dr. Zoom shows. Listening to this remarkably clear fifty-year-old recording, it’s easy to understand why.
 
-[Watch Video Highlight](https://videopress.com/embed/9foQlpoG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9foQlpoG)
 
 Once we get past the jarring freestyle wind-up, the band quickly settles into a familiar Steel Mill-ish groove. (Bruce hadn’t fully left that sound behind yet despite his efforts.) In fact, the body of “Lady of Boston” has such a strong Steel Mill sound to it that it’s almost startling when we hear Albee Tellone’s tenor sax decorating key lines.
 
@@ -51,7 +51,7 @@ In the end both Dr. Zoom and the Sonic Boom and “Lady of Boston” are histori
 **Lady of Boston**
 Never recorded**
 **Never released**
-**First performed:** May 15, 1971 (Union, NJ)  
+**First performed:** May 15, 1971 (Union, NJ)
 **Last performed:** May 15, 1971 (Union, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

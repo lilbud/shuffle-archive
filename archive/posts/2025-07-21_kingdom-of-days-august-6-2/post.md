@@ -12,15 +12,15 @@
 
 **1976:** Bruce and the E Street Band play their fifth of a six-night stand at the Monmouth Arts Center in Red Bank.
 
-[Watch Video Highlight](https://videopress.com/embed/bk2bc9sJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bk2bc9sJ)
 
 **1981:** On their day off during their three-night stand in Washington, DC, Bruce, Garry, and Clarence join former Steel Mill bandmate Robbin Thompson’s band on stage at the Bayou Club, where they play “[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/).”
 
-[Watch Video Highlight](https://videopress.com/embed/FLDOBpP5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/FLDOBpP5)
 
 **1982:** Bruce joins Beaver Brown on stage at Big Man’s West in Red Bank for four songs, including “[Jersey Girl.](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)”
 
-[Watch Video Highlight](https://videopress.com/embed/xSF5lJF0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xSF5lJF0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1982-08-06a.png)
 
@@ -60,11 +60,11 @@ Also on this day, Entertainment Tonight airs a segment on Bruce’s new *Rolling
 
 **1999:** Bruce opens Night Eleven of the fifteen-night opening stand of the U.S. Reunion Tour in East Rutherford with the first full-band “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)” in eleven years. Bruce also tour premieres “[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)” and ends the show with “Thunder Road” — the first time Bruce has played an additional song after “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)” on this tour.
 
-[Watch Video Highlight](https://videopress.com/embed/iaNIgJvr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iaNIgJvr)
 
 **2003:** The Rising Stadium Tour heads to Pennsylvania for four shows, starting with a single night at PNC Park in Pittsburgh, where Joe and Johnny Grushecky make their (by now) customary appearance.
 
-[Watch Video Highlight](https://videopress.com/embed/kHydzsi1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kHydzsi1)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/2003-08-06.png)
 

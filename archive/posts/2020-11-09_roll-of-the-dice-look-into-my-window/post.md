@@ -18,7 +18,7 @@ Two weeks later, The Castiles returned to The Left Foot, and once again Father C
 
 Actually, “Look Into My Window” was co-written by Bruce and George Theiss, as several of the band’s earliest original songs were. It’s incomplete (there were several cuts on the tape), but there’s enough for us to get a solid sense of what Bruce and George were reaching for.
 
-[Watch Video Highlight](https://videopress.com/embed/LLFCEstp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LLFCEstp)
 
 The lyrics are elementary–only a day after his seventeenth birthday, Bruce hadn’t yet begun to stretch himself.
 
@@ -39,7 +39,7 @@ Although Bruce would quickly grow by leaps and bounds in both his lyrical skill 
 **Look Into My Window**
 Never recorded**
 **Never released**
-**First performed:** September 30, 1967 (Freehold, NJ)  
+**First performed:** September 30, 1967 (Freehold, NJ)
 **Last performed:** September 30, 1967 (Freehold, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -39,7 +39,7 @@ Although most Springsteen fans are familiar with “Boom Boom” from its freque
 
 Here’s the earliest recorded Springsteen performance of “Boom Boom,” performed with John Eddie and the Frontstreet Runners at Patrix in New Brunswick in January 1984. Bruce is clearly influenced primarily by The Animals’ version, liberally lifting and playing it in an arrangement very close to the one he’d use on tour four years later.
 
-[Watch Video Highlight](https://videopress.com/embed/jDpsrq4O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jDpsrq4O)
 
 Now, about that Tunnel of Love Tour version: if the 1984 version smokes, the 1988 version absolutely sizzles… particularly when Bruce and Patti enter each other’s field of gravity. Watch the clip below, and you’ll see what I mean.
 
@@ -51,7 +51,7 @@ But by late May, rumors abounded in the New York press about marital strife in t
 
 And right in the middle, on May 10th in Bloomington, Minnesota, Bruce replaced his reliable nightly “Be True” with “Boom Boom” as the second song of the evening, immediately establishing and escalating the chemistry between Bruce and his back-up singer.
 
-[Watch Video Highlight](https://videopress.com/embed/NKEsi6O4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NKEsi6O4)
 
 Although it quickly returned to the set list as the third song (following “Boom Boom”), “Be True” made its final tour appearance on June 15, 1988–the night before Italian newspapers published photos of Bruce and Patti in their skivvies on their hotel room balcony, essentially outing their affair to the world. Coincidence? Decide for yourself.
 
@@ -70,7 +70,7 @@ None of the post-1988 performances have matched the remarkable passion on displa
 Still, “Boom Boom” remains a reliable adrenaline booster for any show it appears in, and odds are strong that we’ll hear it again at least once on the next E Street Band Tour.
 
 **Boom Boom**
-**First performed:** April 26, 1974 (Providence, RI)  
+**First performed:** April 26, 1974 (Providence, RI)
 **Last performed:** September 14, 2016 (Foxborough, MA)
 
 

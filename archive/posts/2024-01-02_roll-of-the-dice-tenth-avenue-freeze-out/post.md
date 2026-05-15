@@ -1,6 +1,6 @@
 Let’s get one thing out of the way right off the bat: I’m not even going to *try* to analyze and explain what the phrase “Tenth Avenue freeze-out” means. After all, if you ask Bruce, even he’ll admit:
 
-[Watch Video Highlight](https://videopress.com/embed/0IwH2mV0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0IwH2mV0)
 
 But “Tenth Avenue Freeze-Out” the song… now *that* we can discuss.
 
@@ -131,8 +131,8 @@ The break in the song eventually healed, just like a broken heart does, but “T
 
 **Tenth Avenue Freeze-Out**
 **Recorded:** May 5-16, 1975  
-**Released:** *Born to Run* (1975), *The Essential Bruce Springsteen* (2003)  
-**First performed:** July 20, 1975 (Providence, RI)  
+**Released:** *Born to Run* (1975), *The Essential Bruce Springsteen* (2003)
+**First performed:** July 20, 1975 (Providence, RI)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

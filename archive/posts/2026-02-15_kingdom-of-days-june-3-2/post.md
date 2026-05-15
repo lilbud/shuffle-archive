@@ -8,7 +8,7 @@
 
 **1978:** The Darkness Tour stops at the Nassau Coliseum in Uniondale, New York. Bruce tour premieres “4th of July, Asbury Park (Sandy)” in the encore.
 
-[Watch Video Highlight](https://videopress.com/embed/hOUDtFAd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hOUDtFAd)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/1978-0603.jpg)
 
@@ -26,21 +26,21 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8CgiUjpqmQY)
 
-[Watch Video Highlight](https://videopress.com/embed/KajRzjKw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KajRzjKw)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zDmiDy9PJp1SFjbNX61zqmq)
 
 **2000:** The Reunion Tour enters its final month with the first of two nights at Philips Arena in Atlanta, where Clarence ad libs his usual line in “Tenth Avenue Freeze-Out” with a pretty funny replacement.
 
-[Watch Video Highlight](https://videopress.com/embed/jyjJsCaU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jyjJsCaU)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2000-06-02.jpg)
 
 **2006:** Nils guest-stars on “Pay Me My Money Down” (and enjoys the show from the pit!) when the Seeger Sessions Tour stops in Glendale, Arizona. For more on this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/06/03/where-the-band-was-glendale-june-3-2006/) from this show.
 
-[Watch Video Highlight](https://videopress.com/embed/4kABHXOv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4kABHXOv)
 
-[Watch Video Highlight](https://videopress.com/embed/1qRVUZKR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1qRVUZKR)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rV8Coai6W0k)
 
@@ -48,15 +48,15 @@
 
 **2012:** In Lisbon’s Bela Vista Park, Bruce and the E Street Band headline Rock in Rio. (Technically this show is performed on June 4th, as Bruce starts the show after midnight.) Bruce closes the show with the tour premiere of “Twist and Shout.”
 
-[Watch Video Highlight](https://videopress.com/embed/KbsRPLnm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KbsRPLnm)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4xz4QdYeTDM)
 
 **2013:** Bruce plays San Siro in Milan, always the site of amazing shows. Bruce delivers a full album performance of *Born in the U.S.A.,* along with the tour premiere of “Long Tall Sally.”
 
-[Watch Video Highlight](https://videopress.com/embed/AMvoPOh4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AMvoPOh4)
 
-[Watch Video Highlight](https://videopress.com/embed/Xbgy7LJ6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Xbgy7LJ6)
 
 **2016:** A stunning River show in Coventry, England: Bruce opens with the tour premieres of “For You” and “Something in the Night,” and tour premieres “Save My Love,” “Travelin’ Band,” and “Seven Nights to Rock” as well.
 

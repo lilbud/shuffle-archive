@@ -47,7 +47,7 @@ This guy’s either a real loser or a real jerk. Or maybe both, we can’t tell.
 
 And here’s where Bruce’s ad-libbed in-joke actually rescues the song from throwaway status, because the earlier circulating bootleg versions that floated around for years don’t include the song’s final verse. Take a listen and hear for yourself:
 
-[Watch Video Highlight](https://videopress.com/embed/Vw9aPqMD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Vw9aPqMD)
 
 We don’t know whether Bruce ever intended to add a third verse. We only know that on that day in January 1978, Jimmy Iovine reported for engineer duty wearing a new shirt and with a Bloomingdale’s bag in his hand. Bruce had never heard of the store and was amused by Iovine’s fascination with it.
 
@@ -90,8 +90,8 @@ European fans have been a bit more fortunate: Bruce played the song three times 
 
 **Ain’t Good Enough For You**
 **Recorded:** January 1978  
-**Released:** *The Promise* (2010)  
-**First performed:** December 7, 2010 (Asbury Park, NJ)  
+**Released:** *The Promise* (2010)
+**First performed:** December 7, 2010 (Asbury Park, NJ)
 **Last performed:** June 26, 2013 (Gijon, Spain)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

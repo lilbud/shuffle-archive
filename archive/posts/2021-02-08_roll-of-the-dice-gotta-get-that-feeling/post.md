@@ -16,7 +16,7 @@ But that’s also the problem, because Bruce’s modern vocals are just a bit st
 
 But from its title through its lyrics, “Gotta Get That Feeling” demands a desperation and yearning that’s missing from Bruce’s 2010 vocals but very, very present in his original 1977 version. Even in the very early work-in-progress below from early August, we can hear a passion that’s absent from the officially released track. The difference is most pronounced, though, in the final verse of the official track and the outtake version above.
 
-[Watch Video Highlight](https://videopress.com/embed/sQG6YdXe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/sQG6YdXe)
 
 Bruce may have re-recorded his vocal for the official release, but his lyrics closely match the 1977 outtake. He tightened some lines and softened some others (the original version has too much “I” and not enough “we”), but substantively the song is unchanged.
 
@@ -59,9 +59,9 @@ The next and last time Bruce played “Gotta Get That Feeling” in public to da
 If Bruce and the band never play “Gotta Get That Feeling” again, at least they finally nailed a perfect performance, summoning both the passion of youth and the artistry of age.
 
 **Gotta Get That Feeling**
-**Recorded** August 1977 (backing track), 2010 (vocals and horns)  
-**Released:** *The Promise* (2010)  
-**First performed:** December 7, 2010 (Asbury Park, NJ)  
+**Recorded** August 1977 (backing track), 2010 (vocals and horns)
+**Released:** *The Promise* (2010)
+**First performed:** December 7, 2010 (Asbury Park, NJ)
 **Last performed:** July 24, 2013 (Leeds, England)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

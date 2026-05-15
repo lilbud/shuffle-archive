@@ -24,7 +24,7 @@ Unlike “All Just to Get to You,” which Bruce has performed with Ely seven ti
 
 **I’m a Thousand Miles From Home**
 **Recorded** April 1995  
-**Released:** *Letter to Laredo* (1995)  
+**Released:** *Letter to Laredo* (1995)
 **Never performed**
 
 

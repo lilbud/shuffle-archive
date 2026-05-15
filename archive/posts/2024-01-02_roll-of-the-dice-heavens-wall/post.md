@@ -62,8 +62,8 @@ But “Heaven’s Wall” is a fascinating song that explores dominant themes in
 
 **Heaven’s Wall**
 **Recorded** 2007-2013  
-**Released:** *High Hopes* (2014)  
-**First performed:** January 14, 2014 (New York City, NY)  
+**Released:** *High Hopes* (2014)
+**First performed:** January 14, 2014 (New York City, NY)
 **Last performed:** April 26, 2014 (Atlanta, GA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

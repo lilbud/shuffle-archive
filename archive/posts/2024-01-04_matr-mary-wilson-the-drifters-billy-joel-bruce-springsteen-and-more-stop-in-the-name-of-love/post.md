@@ -12,14 +12,14 @@ And what a jam session that was: Mary Wilson of The Supremes was there to be ind
 
 Oh, and Bruce Springsteen on the… tambourine?
 
-[Watch Video Highlight](https://videopress.com/embed/SxWA7ZnT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SxWA7ZnT)
 
 Yeah, I admit: it’s probably a stretch to label this a Springsteen performance, but he did play an instrument, and he even did the hand choreography (albeit at the wrong time). So I’m counting it.
 
 And yes: that’s Patti you see providing backing vocals surrounded by Jagger, Dylan, and Harrison, while Bruce looks on from far stage right. That may be in part because Bruce was accompanied that evening by his wife, Julianne, providing an ironic subtext in retrospect.
 
 **Stop! In the Name of Love**
-**First performed:** January 20, 1988 (New York City, NY)  
+**First performed:** January 20, 1988 (New York City, NY)
 **Last performed:** January 20, 1988 (New York City, NY)
 
 

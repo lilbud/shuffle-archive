@@ -44,7 +44,7 @@ Still, “You Gotta Fight (For What You Want)” provides insight into the influ
 
 
 **You Gotta Fight (For What You Want)**
-**Recorded** Late 1979 (demo)  
+**Recorded** Late 1979 (demo)
 **Never released**
 **Never performed**
 

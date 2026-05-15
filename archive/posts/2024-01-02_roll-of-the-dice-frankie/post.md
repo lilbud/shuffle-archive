@@ -6,7 +6,7 @@ Bruce brought her out on stage for the first time on March 26, 1976 at the Fox T
 
 Unfortunately, no audio circulates from that first performance, but we have a very nice recording from almost two weeks later. Take a listen to that performance below, and pay attention to the lyrics: this younger version of Frankie is harder, faster, and more cynical than the lush, romantic version we’d come to know later. That gorgeous riff is instantly recognizable, though, as is that lush, sudden sax-laden coda–Frankie’s signature would never change.
 
-[Watch Video Highlight](https://videopress.com/embed/LmknH3DW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LmknH3DW)
 
 It’s remarkable, isn’t it, how recognizable this version of “Frankie” is, yet at the same time so very different. Let’s take a deeper look:
 
@@ -146,8 +146,8 @@ Bonus #2: Here’s another “Frankie” studio outtake, this one from the 1982 
 
 **Frankie**
 **Recorded** May 14,1982  
-**Released:** *Tracks* (1998)  
-**First performed:** March 26, 1976 (Atlanta, GA)  
+**Released:** *Tracks* (1998)
+**First performed:** March 26, 1976 (Atlanta, GA)
 **Last performed:** July 20, 2016 (Horsens, Denmark)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

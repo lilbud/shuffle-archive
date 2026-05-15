@@ -68,8 +68,8 @@ Just make sure you turn to the solo version.
 
 **I Wish I Were Blind**
 **Recorded** September 1989 – March 1991  
-**Released:** *Human Touch* (1992)  
-**First performed:** May 6, 1992 (New York City, NY)  
+**Released:** *Human Touch* (1992)
+**First performed:** May 6, 1992 (New York City, NY)
 **Last performed:** February 23, 2014 (Hunter Valley, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

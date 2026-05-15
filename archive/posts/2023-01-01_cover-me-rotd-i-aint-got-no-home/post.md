@@ -18,7 +18,7 @@ Bruce recorded “I Ain’t Got No Home” in his home studio, in a quiet, vulne
 
 Bruce didn’t stop there, however–he also contributed a live performance to the album’s companion documentary film. That performance (recorded at a Madison Square Garden soundcheck on May 19, 1988) has a bit more simmering anger seeping through. It’s seldom seen, and rarely available on-line–but you can watch it here:
 
-[Watch Video Highlight](https://videopress.com/embed/lghEHeHY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lghEHeHY)
 
 In concert, “I Ain’t Got No Home” is a bona fide rarity, appearing just often enough (at least once but no more then three times in each decade since its release) to assure us that Bruce hasn’t forgotten about it. If you’re lucky enough to catch it, you’ll almost certainly witness a showcase for E Street harmony–Bruce always brings the singers to the forefront and keeps the accompaniment to a minimum.
 

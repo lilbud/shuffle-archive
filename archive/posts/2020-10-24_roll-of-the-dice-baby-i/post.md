@@ -37,12 +37,12 @@ Although it’s believed that The Castiles performed the song often over the nex
 
 **Updated 10/23/20:** Well, knock me down with a feather: we finally have a document of Bruce playing “Baby I” live, and it’s a video to boot. It’s not vintage, though–in fact, it’s about as modern as it gets. From the documentary film *Letter to You*, here’s Bruce and his cousin Frank playing the very first song Bruce ever wrote.
 
-[Watch Video Highlight](https://videopress.com/embed/UmOLrDkm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UmOLrDkm)
 
 **Baby I**
 **Recorded:** May 18, 1966  
-**Released:** *Chapter & Verse* (2016)  
-**First performed:** November 2019 (Colts Neck, NJ)  
+**Released:** *Chapter & Verse* (2016)
+**First performed:** November 2019 (Colts Neck, NJ)
 **Last performed:** November 2019 (Colts Neck, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -88,7 +88,7 @@ Like much of Bruce’s early nineties material, “Man’s Job” disappeared fr
 
 For a decade, though, that was it. Other than a few private benefit outings, it would be ten years before “Man’s Job” would make one of Bruce’s set lists again. That finally happened late in the Wrecking Ball Tour, in Mönchengladbach, Germany.
 
-[Watch Video Highlight](https://videopress.com/embed/2hE7Rb6p?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2hE7Rb6p)
 
 With the benefit of the E Street Horns (an essential Stax element) and a fully prepared band (they’d sound-checked it earlier), that performance of “Man’s Job” may be the definitive one.
 
@@ -96,8 +96,8 @@ With the benefit of the E Street Horns (an essential Stax element) and a fully p
 
 **Man’s Job**
 **Recorded** December 1989-January 1990  
-**Released:** *Human Touch* (1992)  
-**First performed:** May 6, 1992 (New York City, NY)  
+**Released:** *Human Touch* (1992)
+**First performed:** May 6, 1992 (New York City, NY)
 **Last performed:** July 13, 1992 (Werchter, Belgium)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

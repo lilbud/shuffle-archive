@@ -103,7 +103,7 @@ Oh, and not just Bonnie, but also Bruce Hornsby, Mary Chapin Carpenter, Shawn Co
 **Red Headed Woman**
 **Recorded** Late 1990  
 **Never released**
-**Frist performed:** November 16, 1990 (Los Angeles, CA)  
+**Frist performed:** November 16, 1990 (Los Angeles, CA)
 **Last performed:** March 26, 2013 (Melbourne, Australia)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

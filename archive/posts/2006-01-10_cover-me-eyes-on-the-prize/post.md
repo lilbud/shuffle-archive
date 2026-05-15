@@ -47,7 +47,7 @@ Their voices blended so well together that Bruce quickly decided to share the ce
 
 In a rare interview, Thompson discussed the experience of touring with Bruce.
 
-[Watch Video Highlight](https://videopress.com/embed/y1N1q6RO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/y1N1q6RO)
 
 Their performances grew in power and potency throughout the tour, and by the end of it Bruce was giving Marc the last word.
 
@@ -57,8 +57,8 @@ Other than a Magic Tour cameo, Thompson hasn’t performed with Bruce since the 
 
 **Eyes on the Prize**
 **Recorded** January 21, 2006  
-**Released:** *We Shall Overcome: The Seeger Sessions* (2006)  
-**First performed:** April 20, 2006 (Asbury Park, NJ)  
+**Released:** *We Shall Overcome: The Seeger Sessions* (2006)
+**First performed:** April 20, 2006 (Asbury Park, NJ)
 **Last performed:** November 21, 2006 (Belfast, Northern Ireland)
 
 © November 1, 2021

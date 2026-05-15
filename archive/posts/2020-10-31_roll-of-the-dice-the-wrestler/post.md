@@ -16,7 +16,7 @@ Whatever the reason, “The Wrestler” is one of the most beautiful songs in Br
 
 There’s no story to “The Wrestler;” it’s simply a character sketch. To the degree that it’s “about” anything, “The Wrestler” is about resilience in the face of hopelessness.
 
-[Watch Video Highlight](https://videopress.com/embed/mOPjCZv9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mOPjCZv9)
 
 Bruce introduces us to a character who knows his place in the world, aches to transcend it, but can’t let it go. He’s an aging wrestler, which means he’s an entertainer, and the way he entertains is through his physical pain. Pain is all he knows, and it infects and infuses his emotional life as well.
 
@@ -76,7 +76,7 @@ As for the video, which Bruce made with Thom Zimny and Noah Hunter, it’s one o
 
 Here’s a behind-the-scenes look at the making of the video:
 
-[Watch Video Highlight](https://videopress.com/embed/Q4FkgSKL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Q4FkgSKL)
 
 The accolades and awards for “The Wrestler” were still fresh when Bruce kicked off his Working on a Dream Tour two months later, and he understandably tried to find a home for the song in his set lists.
 
@@ -92,8 +92,8 @@ It’s too great a song to remain missing forever, though. “The Wrestler” fi
 
 **The Wrestler**
 **Recorded** 2008  
-**Released:** *Working on a Dream* (2009), *The Essential Bruce Springsteen* (2015)  
-**First performed:** March 23, 2009 (Asbury Park, NJ)  
+**Released:** *Working on a Dream* (2009), *The Essential Bruce Springsteen* (2015)
+**First performed:** March 23, 2009 (Asbury Park, NJ)
 **Last performed:** June 4, 2009 (Stockholm, Sweden)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

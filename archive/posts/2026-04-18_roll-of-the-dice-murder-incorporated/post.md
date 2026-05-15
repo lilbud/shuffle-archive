@@ -10,7 +10,7 @@ Bruce felt he needed a modern video to draw attention to the 1982 studio outcast
 
 While the crowd’s anticipation built to a fever pitch, Bruce and the band rehearsed backstage, so calm and assured that you’d think they’d never skipped a day.
 
-[Watch Video Highlight](https://videopress.com/embed/4sXLc0yQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4sXLc0yQ)
 
 And with that, Bruce Springsteen and the E Street Band launched into their first song, ushering in the Reunion era with the world debut of a song that would someday serve as a centerpiece for every single show of their comeback tour: “Murder Incorporated.”
 
@@ -107,7 +107,7 @@ Bruce would continue to perform “Murder Incorporated” many times with the Ho
 
 **Bonus #3:** Here’s an alternate unreleased mix of the same recording used for the official release. It’s most notable for its very different introduction and much more prominent piano and organ. Bruce made the right choice for the album.
 
-[Watch Video Highlight](https://videopress.com/embed/uBzzfUQ5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uBzzfUQ5)
 
 **Bonus #4:** Here’s three minutes of Patti and Nils rehearsing their backing vocals in 1995. Just because.
 
@@ -115,8 +115,8 @@ Bruce would continue to perform “Murder Incorporated” many times with the Ho
 
 **Murder Incorporated**
 **Recorded** May 3-4, 1982  
-**Released:** *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)  
-**First performed:** February 21, 1995 (New York City, NY)  
+**Released:** *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
+**First performed:** February 21, 1995 (New York City, NY)
 **Last performed:** April 16, 2026 (Phoenix, AZ)
 
 © April 19, 2020

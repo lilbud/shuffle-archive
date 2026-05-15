@@ -206,7 +206,7 @@ Here's a special performance from as he sings “The River” on The Late Show!
 
 [@springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw)[#LSSC](https://twitter.com/hashtag/LSSC?src=hash&ref_src=twsrc%5Etfw)[pic.twitter.com/aj2mhJVh0g](https://t.co/aj2mhJVh0g)
 
-— The Late Show (@colbertlateshow) 
+— The Late Show (@colbertlateshow)
 
 [October 26, 2021](https://twitter.com/colbertlateshow/status/1452857149961367560?ref_src=twsrc%5Etfw)
 

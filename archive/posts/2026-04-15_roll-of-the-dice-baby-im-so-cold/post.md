@@ -63,7 +63,7 @@ Listen again, and marvel at how Bruce is able to craft an entirely difference so
 
 That recording resides in the vault, if it still exists at all. However, we do have a recording of Bruce and the boys rehearsing the song on April 15, 1982.
 
-[Watch Video Highlight](https://videopress.com/embed/ovWOrH1Y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ovWOrH1Y)
 
 The vocals are muddy (Bruce recorded it on a boombox), but we can hear the new second verse and the improved final verse:
 
@@ -77,7 +77,7 @@ Bruce would like us to believe that the vault is now empty, at least with regard
 But we can hope.
 
 **Baby, I’m So Cold**
-**Recorded:** Early 1982 (acoustic demo, band rehearsal), May 11, 1982 (studio)  
+**Recorded:** Early 1982 (acoustic demo, band rehearsal), May 11, 1982 (studio)
 **Never released**
 **Never performed**
 

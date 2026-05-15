@@ -117,7 +117,7 @@ Most importantly, though, the arrangement is more aggressive and Bruce’s vocal
 
 Bruce seems to have realized this, because “Point Blank” didn’t surface again for more than two months. When it did, the arrangement was in its more familiar and restrained incarnation. The bridge was still present, however (it would remain throughout the tour), and while the lyrics had shaped up a bit, they were still far from their final form.
 
-[Watch Video Highlight](https://videopress.com/embed/lKFkFzq1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lKFkFzq1)
 
 By the end of the tour, Bruce and the band had settled into the song, playing it regularly and evolving it subtly each night, as in this beautifully captured performance in Houston.
 
@@ -177,8 +177,8 @@ I consider that to be the definitive arrangement, but does Bruce? Time will tell
 
 **Point Blank**
 **Recorded** Late 1979 – Early 1980  
-**Released:** *The River* (1980)  
-**First performed:** July 7, 1978 (West Hollywood, CA)  
+**Released:** *The River* (1980)
+**First performed:** July 7, 1978 (West Hollywood, CA)
 **Last performed:** July 28, 2016 (Oslo, Norway)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

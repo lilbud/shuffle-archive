@@ -108,8 +108,8 @@ It’s very different from Bruce’s nightly performance on tour, and the only l
 
 **Reno**
 **Recorded** 1997-2004  
-**Released:** *Devils & Dust* (2005)  
-**First performed:** April 22, 2005 (Asbury Park, NJ)  
+**Released:** *Devils & Dust* (2005)
+**First performed:** April 22, 2005 (Asbury Park, NJ)
 **Last performed:** November 22, 2005 (Trenton, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

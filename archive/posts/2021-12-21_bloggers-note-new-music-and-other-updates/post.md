@@ -26,7 +26,7 @@ While the lead story yesterday was certainly the new music, Bruce also made a no
 
 Bruce delivered the convocation address to the Boston College incoming class of 2024 and took Q&A from the students. Bruce was as inspiring, thoughtful, honest, funny, and wise in his comments as you’d expect, and the entire program is well worth watching. The college was kind enough to livestream it for all to enjoy, and since I’m not certain how long it will remain on YouTube, here’s Bruce’s segment of the evening for your viewing pleasure and preservation.
 
-[Watch Video Highlight](https://videopress.com/embed/TxWwKslX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TxWwKslX)
 
 Finally, no discussion of recent Springsteen events would be complete without noting Bruce’s wonderful under-the-radar bi-weekly Sirius XM radio show, *From My Home to Yours.*
 

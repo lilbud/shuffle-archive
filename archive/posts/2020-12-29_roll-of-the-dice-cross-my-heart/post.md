@@ -85,7 +85,7 @@ Of all the songs on *Human Touch*, “Cross My Heart” is the song Bruce has pl
 
 Bruce debuted “Cross My Heart” at a homecoming show in East Rutherford on July 31, 1992, in an arrangement very close to the one on the album.
 
-[Watch Video Highlight](https://videopress.com/embed/qHcQSaYj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qHcQSaYj)
 
 Bruce’s second and final performance to date was the special one, however. At Nassau Coliseum that fall, Bruce performed “Cross My Heart” in a moody and acoustic arrangement.
 
@@ -97,8 +97,8 @@ With just Roy on keyboards and Bruce on guitar and harmonica (with a solo that B
 
 **Cross My Heart**
 **Recorded** September 1989 – March 1991  
-**Released:** *Human Touch* (1992)  
-**First performed:** July 31, 1992 (East Rutherford, NJ)  
+**Released:** *Human Touch* (1992)
+**First performed:** July 31, 1992 (East Rutherford, NJ)
 **Last performed:** November 10, 1992 (Uniondale, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

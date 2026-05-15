@@ -147,8 +147,8 @@ But apart from an odd arrangement on the Reunion Tour (which thankfully never su
 
 **No Surrender**
 **Recorded** October 27, 1983  
-**Released:** *Born in the U.S.A.* (1984)  
-**First performed:** June 29, 1984 (St. Paul, MN)  
+**Released:** *Born in the U.S.A.* (1984)
+**First performed:** June 29, 1984 (St. Paul, MN)
 **Last performed:** April 26, 2026 (Austin, TX)
 
 © November 18, 2021

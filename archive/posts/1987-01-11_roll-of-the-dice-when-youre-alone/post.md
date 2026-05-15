@@ -1,6 +1,6 @@
 When Bruce gathered the E Street Band at the Expo Theater in Fort Monmouth to rehearse for their upcoming Tunnel of Love Express Tour, “When You’re Alone” was among the first songs they tackled.
 
-[Watch Video Highlight](https://videopress.com/embed/6TPI8gbd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6TPI8gbd)
 
 But when the Express left the station, “When You’re Alone” was left… well, not quite alone (since “[Valentine’s Day](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)” didn’t make the final set list either), but pretty close to it.
 
@@ -71,7 +71,7 @@ Still, I can’t help but suspect that Bruce’s last line was an exercise in se
 
 Perhaps that’s why Bruce waited so long to perform “When You’re Alone” live. Or perhaps he’s just not fond of the way it translates to the stage. (His attempts in 1993 and 2005 were somewhat underwhelming.)
 
-[Watch Video Highlight](https://videopress.com/embed/xZGdW7M7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xZGdW7M7)
 
 [Watch on Youtube: Bruce Springsteen - When You're Alone](https://www.youtube.com/watch?v=EpF2lky400s)
 
@@ -83,8 +83,8 @@ Even then, though, it’s only the music that’s warm–the lyrics are still ic
 
 **When You’re Alone**
 **Recorded** January-April 1987  
-**Released:** *Tunnel of Love* (1987)  
-**First performed:** March 23, 1993 (Red Bank, NJ)  
+**Released:** *Tunnel of Love* (1987)
+**First performed:** March 23, 1993 (Red Bank, NJ)
 **Last performed:** October 20, 2005 (Worcester, MA)
 
 (c) November 15, 2020

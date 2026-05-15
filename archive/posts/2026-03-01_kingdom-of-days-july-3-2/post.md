@@ -8,13 +8,13 @@
 
 **1981:** Night Two of six at the Brendan Byrne Arena’s opening stand in East Rutherford features the tour premiere of “Summertime Blues” and a guest appearance by Gary U.S. Bonds on “Jole Blon” and “This Little Girl.”
 
-[Watch Video Highlight](https://videopress.com/embed/cTInek5e?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cTInek5e)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3T9Hdvi5YsA)
 
 **1985:** Bruce plays “[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)” for the first time ever at the first of three shows at Wembley Stadium in London, and Steve Van Zandt briefly reunites with the band during the encore for “Two Hearts,” “Ramrod,” and “Twist and Shout.”
 
-[Watch Video Highlight](https://videopress.com/embed/8rio31IG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8rio31IG)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ghqJVDaasKM)
 
@@ -42,11 +42,11 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EA_faGbmdoY)
 
-[Watch Video Highlight](https://videopress.com/embed/oYaKtVCC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oYaKtVCC)
 
-[Watch Video Highlight](https://videopress.com/embed/9vNTFBBS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9vNTFBBS)
 
-[Watch Video Highlight](https://videopress.com/embed/2PyrKknl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2PyrKknl)
 
 **2009:** In Frankfurt, Bruce and the E Street Band pull out the Working on a Dream tour premieres of “Factory” and “Point Blank.”
 

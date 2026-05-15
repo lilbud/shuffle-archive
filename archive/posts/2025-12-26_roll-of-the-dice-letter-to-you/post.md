@@ -40,7 +40,7 @@ Please humor me.
 
 Let’s take a listen (acoustic version!) so we can appreciate Bruce’s heartfelt lyrics together. (Skip to 1:38 to bypass the dirty joke.)
 
-[Watch Video Highlight](https://videopress.com/embed/Cor6CHI8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Cor6CHI8)
 
 It’s actually a challenge to analyze most of the new songs on *[Letter to You](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)—*not because they’re laden with metaphor and symbolism, but for the exact opposite reason: Bruce writes so straightforwardly on this album and draws so much from his personal history that the songs call more for annotation than analysis.
 
@@ -109,8 +109,8 @@ Please play “Letter to You,” Bruce. Just play it solo acoustic.
 
 **Letter to You**
 **Recorded** November 18-22, 2019  
-**Released:** *Letter to You* (2020)  
-**First performed:** December 21, 2020 (Colts Neck, NJ)  
+**Released:** *Letter to You* (2020)
+**First performed:** December 21, 2020 (Colts Neck, NJ)
 **Last performed:** May 14, 2025 (Manchester, England)
 
 © January 5, 2021

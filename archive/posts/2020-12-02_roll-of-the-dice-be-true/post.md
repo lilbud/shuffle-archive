@@ -92,7 +92,7 @@ That’s pretty prime set list real estate for an outtake, but it’s not as if 
 
 Bruce even played it live once–and only once–by request on the Born in the U.S.A. Tour. Here’s Bruce very first live performance of “Be True.”
 
-[Watch Video Highlight](https://videopress.com/embed/HrcLfxQi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HrcLfxQi)
 
 Still, “Be True” was new to a lot of fans who joined E Street Nation during the *Born in the U.S.A.* era, which (combined with the reception it received in concert) may be why Bruce decided to release a live version of it on his *Chimes of Freedom* EP in 1988.
 
@@ -108,8 +108,8 @@ It remains on many fans’ chase list, but like I said: “Be True” hasn’t m
 
 **Be True**
 **Recorded** July 18, 1979  
-**Released:** *Tracks* (1998), *The River: Single Album* (2015)  
-**First performed:** August 26, 1984 (Largo, MD)  
+**Released:** *Tracks* (1998), *The River: Single Album* (2015)
+**First performed:** August 26, 1984 (Largo, MD)
 **Last performed:** February 14, 2017 (Brisbane, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

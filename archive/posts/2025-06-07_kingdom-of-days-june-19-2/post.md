@@ -34,9 +34,9 @@
 
 **1999:** At Night One in Arnhem on the Reunion Tour, Bruce and the E Street Band tour premiere “[Stand On It.](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)”
 
-[Watch Video Highlight](https://videopress.com/embed/EHBMBZae?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EHBMBZae)
 
-[Watch Video Highlight](https://videopress.com/embed/oiYswN6O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oiYswN6O)
 
 **2003:** The Rising Tour stops in Oslo for a night, where “[Where the Bands Are](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)” gets a rare outing. Word gets out about where Bruce and the band are staying, and crowds form to greet him as he leaves for the show.
 
@@ -48,7 +48,7 @@
 
 **2004:** In support of her new album, *23rd Street Lullaby*, Patti Scialfa drops by *Weekend Today* for an interview.
 
-[Watch Video Highlight](https://videopress.com/embed/14y2ksQZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/14y2ksQZ)
 
 **2005:** Bruce plays “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)” for the first time on the Devils & Dust Tour, opening with it at his solo acoustic show in Rotterdam. Before the show, Bruce sits down for an interview with a local reporter.
 
@@ -58,7 +58,7 @@
 
 [Watch on Youtube: Interview Springsteen Netherlands 2005 (part 3 of 3)](https://www.youtube.com/watch?v=4xqmjXSJwVA)
 
-[Watch Video Highlight](https://videopress.com/embed/Lbp25ccs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Lbp25ccs)
 
 [Watch on Youtube: Two Faces (solo piano) Bruce Springsteen June 19, 2005 Rotterdam, NED](https://www.youtube.com/watch?v=zO9akJo53-8)
 

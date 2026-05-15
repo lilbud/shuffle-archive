@@ -127,7 +127,7 @@ Bruce wouldn’t play “Atlantic City’ acoustically in public until 1990, whe
 
 “Atlantic City” has been a staple of almost every tour setlist since its debut–the Tunnel of Love tour remains the only tour without a single outing. The arrangements typically vary between full band and solo acoustic guitar, but there have been a few notable exceptions, including solo piano renditions in 2005:
 
-[Watch Video Highlight](https://videopress.com/embed/BjucTnAN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BjucTnAN)
 
 …and a dramatic new arrangement for the Seeger Sessions Tour 2006 that transforms the song’s protagonist from fatalist to optimist:
 
@@ -137,8 +137,8 @@ In any arrangement, in any setting, “Atlantic City” remains one of Bruce’s
 
 **Atlantic City**
 **Recorded:** December 1981 – January 1982  
-**Released:** *Nebraska* (1982), *In Concert/MTV Plugged* (1993), *Greatest Hits* (1995), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007)  
-**First performed:** June 29, 1984 (St. Louis, MO)  
+**Released:** *Nebraska* (1982), *In Concert/MTV Plugged* (1993), *Greatest Hits* (1995), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007)
+**First performed:** June 29, 1984 (St. Louis, MO)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

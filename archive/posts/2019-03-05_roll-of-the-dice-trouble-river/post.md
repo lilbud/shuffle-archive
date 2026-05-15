@@ -44,8 +44,8 @@ Whatever the reason, the song didn’t seem to translate well to the E Street st
 
 **Trouble River**
 **Recorded** April 6, 1990  
-**Released:** *18 Tracks* (1999)  
-**First performed:** August 1, 1999 (East Rutherford, NJ)  
+**Released:** *18 Tracks* (1999)
+**First performed:** August 1, 1999 (East Rutherford, NJ)
 **Last performed:** August 1, 1999 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

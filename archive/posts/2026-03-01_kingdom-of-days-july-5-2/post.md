@@ -18,7 +18,7 @@
 
 After the show, Bruce sits down for an interview with local TV reporter J. J. Jackson. When the interview airs two days later, it will be his first-ever television appearance.
 
-[Watch Video Highlight](https://videopress.com/embed/AGs1wjb4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AGs1wjb4)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLsxNBNx2akeXLxXErlUAz5L0HrcE8Ahab)
 
@@ -30,11 +30,11 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/07/1981-0705.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/g1ylNep8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/g1ylNep8)
 
 **1984:** The Born in the U.S.A. Tour moves on to its second stop: the Riverfront Coliseum in Cincinnati, for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/C92hW6tT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/C92hW6tT)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-07-05a.jpg)
 
@@ -42,13 +42,13 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 **2008:** Bruce and the E Street Band play a stunner of a show–their second in Gothenburg on the Magic Tour–with their first full-band “Drive All Night"  in 27 years as the centerpiece (check out the sound check below), and a rare “Roulette” and “Janey, Don’t You Lose Heart” in the set as well.
 
-[Watch Video Highlight](https://videopress.com/embed/Mty4EdEG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Mty4EdEG)
 
-[Watch Video Highlight](https://videopress.com/embed/e0VliUYN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e0VliUYN)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LIIzwf4hFjI)
 
-[Watch Video Highlight](https://videopress.com/embed/fPWIgIg3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fPWIgIg3)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=15TaIa02qc0)
 

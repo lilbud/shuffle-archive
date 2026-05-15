@@ -53,7 +53,7 @@ What became known as the Lawsuit Tour started just eleven days later, and at the
 *Said she was born with nothing, said she was better off that way*
 *As soon as you got something, somebody comes along and they try to take it away*
 
-[Watch Video Highlight](https://videopress.com/embed/qFe8KwC4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qFe8KwC4)
 
 Although Bruce would demur when asked, it requires credulity to suggest that those lines weren’t informed by Bruce’s anger at the time.
 
@@ -71,7 +71,7 @@ The 1976 leg of the tour ended shortly after that, and when it resumed in Februa
 *But the street’s a living soul, there’s nothing here in sight*
 *Just mutations that gone wrong something in the night*
 
-[Watch Video Highlight](https://videopress.com/embed/6hwGAQgh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6hwGAQgh)
 
 We have a new bridge and final verse, too (although Bruce had added them in late ’76), and these would survive to the final version:
 
@@ -114,8 +114,8 @@ There’s something about the darkness, the emptiness, and of course that album-
 
 **Something in the Night**
 **Recorded** June 1, 1977  
-**Released:** *Darkness on the Edge of Town* (1978)  
-**First performed:** August 1, 1976 (Red Bank, NJ)  
+**Released:** *Darkness on the Edge of Town* (1978)
+**First performed:** August 1, 1976 (Red Bank, NJ)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

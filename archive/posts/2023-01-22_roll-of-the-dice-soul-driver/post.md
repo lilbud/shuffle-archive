@@ -72,8 +72,8 @@ If only he’d realized that when recording the album.
 
 **Soul Driver**
 **Recorded** January 1990  
-**Released:** *Human Touch* (1992)  
-**First performed:** November 17, 1990 (Los Angeles, CA)  
+**Released:** *Human Touch* (1992)
+**First performed:** November 17, 1990 (Los Angeles, CA)
 **Last performed:** August 10, 2005 (Portland, OR)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

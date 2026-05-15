@@ -26,7 +26,7 @@ Bruce wrote all those songs around the same time, but unlike the others, Bruce d
 
 On July 2, 1977, Bruce recorded the earliest known version of “Racing in the Street” at Atlantic Studios. It’s incomplete–missing the final verse and featuring several early lyrical phrases that would ultimately be changed–but his breathtaking solo piano performance is laden with empathy for his characters. If you haven’t heard it before, you really should take a few minutes to do so now.
 
-[Watch Video Highlight](https://videopress.com/embed/TkMyNoop?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TkMyNoop)
 
 Bruce’s final lyrics for “Racing in the Street” (completed and recorded only a month after the solo recording above–that’s how quickly Bruce gelled the song) are among the subtlest he’d yet written, so much so that listeners and critics have often too confidently and completely characterized it as depressive and fatalistic. It *is* those things, but it’s also defiant and hopeful and even a bit sweet.
 
@@ -170,9 +170,9 @@ That version of “Racing in the Street” is likely to stay a curiosity, but th
 [Watch on Youtube: Bruce Springsteen- Racing in the Street Asbury Park 1996](https://www.youtube.com/watch?v=PiCrYEChi9Q)
 
 **Racing in the Street**
-**Recorded** August 1977 (both versions)  
-**Released:** *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*(1978), *The Promise* (2010, ’78 version)  
-**First performed:** May 23, 1978 (Buffalo, NY)  
+**Recorded** August 1977 (both versions)
+**Released:** *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*(1978), *The Promise* (2010, ’78 version)
+**First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** June 26, 2023 (Gothenburg, Sweden)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

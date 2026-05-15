@@ -78,7 +78,7 @@ So when Bruce debuted it at the second show of the Born in the U.S.A. tour, the 
 
 Take a listen to that very first live performance below. Once the song begins in proper, “Pink Cadillac” struts and sashays, with the Professor going to town on the piano and the Big Man debuting what his perhaps his raunchiest sax solo.
 
-[Watch Video Highlight](https://videopress.com/embed/NqB6kNCG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NqB6kNCG)
 
 As the tour progressed, “Pink Cadillac” grew and evolved into a comedic centerpiece, with Bruce’s shaggy dog story quickly becoming a favorite nightly highlight for both performer and audience.
 
@@ -153,7 +153,7 @@ And here we leave it, with one of the slyest references to doing it doggy style 
 
 But despite a handful of terrific E Street Band concert performances, it’s at the small club gigs where “Pink Cadillac” comes alive. “Pink Cadillac” is at its lewdest best when it’s played that way, and it doesn’t get dirtier than this searingly raw performance with Clarence Clemons and the Temple of Soul from September 1, 2001. It’s my favorite performance of the song, and it’s a rarely heard one. Turn the volume up loud and enjoy.
 
-[Watch Video Highlight](https://videopress.com/embed/bqHUn1hv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bqHUn1hv)
 
 **Bonus #1:** Although Bruce has occasionally recorded and released multiple studio versions of a song over time (“This Hard Land” and “The Promise” come immediately to mind), “Pink Cadillac” carries an additional distinction in that small club: Bruce recorded a new version of it in 2003, providing backing vocals and encouragement (“Come on, Killer!”) for Jerry Lee Lewis. Jerry Lee released his version of “Pink Cadillac” a few years later on his 2006 album, *Last Man Standing*, and I wouldn’t be the obsessive completist that I am if I ended this essay without drawing your attention to it.
 
@@ -161,12 +161,12 @@ But despite a handful of terrific E Street Band concert performances, it’s at 
 
 **Bonus #2:** The officially released version of “Pink Cadillac” includes a fade-out ending, but the unfaded original track escaped into the wild some time ago. Here it is, with about ten extra seconds, so you can hear how the song actually ends. It’s not likely to add to or detract from your enjoyment of the song, but see my Bonus #1 note above.
 
-[Watch Video Highlight](https://videopress.com/embed/bL4Mc0Lt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bL4Mc0Lt)
 
 **Pink Cadillac**
 **Recorded** May 31, 1983 – original, November 2003 – Jerry Lee Lewis cover  
 **Released:** *Dancing in the Dark* (1984)*, Tracks* (1998), *18 Tracks* (1999) – original, *Last Man Standing* (2006) – Jerry Lee Lewis cover  
-**First performed:** July 1, 1984 (St. Paul, MN)  
+**First performed:** July 1, 1984 (St. Paul, MN)
 **Last performed:** December 13, 2021 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

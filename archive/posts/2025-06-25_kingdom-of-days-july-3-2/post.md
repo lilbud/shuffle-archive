@@ -102,7 +102,7 @@ A short video clip of the audience at San Siro stadium tonight
 
 [pic.twitter.com/ykRECLtKn2](https://t.co/ykRECLtKn2)
 
-— Lef_iv Ⓥ (@Lef_iv) 
+— Lef_iv Ⓥ (@Lef_iv)
 
 [July 3, 2016](https://twitter.com/Lef_iv/status/749673280341245956?ref_src=twsrc%5Etfw)
 

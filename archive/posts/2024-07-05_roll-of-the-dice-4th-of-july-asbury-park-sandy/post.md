@@ -40,13 +40,13 @@ Perhaps it’s in part due to the quiet acoustic nature of the performance, but 
 
 The original instrumental track–while livelier than the Max’s performance above–is still somewhat muted. The track below was recorded in early August 1973, and although Bruce would layer vocals and electric guitar (along with David Sancious’ piano) on top of it, this is the recording that’s at the core of the finished product:
 
-[Watch Video Highlight](https://videopress.com/embed/5WM3xzWL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5WM3xzWL)
 
 If you’re thinking that something’s missing (other than the vocals) from the track above, you’re right–for my money, the key element, the secret sauce in the backing track of “4th of July, Asbury Park (Sandy)” at least as much as Danny’s accordion is Bruce’s electric guitar. From the opening notes, Bruce conjures the sound of the shore, his bent guitar notes sounding for all the world like seagulls flying above us.
 
 Listen to this early-but-getting-late version–it’s the same backing track that Bruce would release on *The Wild, The Innocent & The E Street Shuffle*, but the lyrics are slightly different. (You’ll hear the difference in the second line.) Still, notice the difference Bruce’s electric guitar makes–there’s a pronounced nostalgia now that was missing from the earlier version.
 
-[Watch Video Highlight](https://videopress.com/embed/B2GWw56p?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/B2GWw56p)
 
 Here’s the final version that appears on the album. The production is still uneven and somewhat muddy (as is the case with most of Bruce’s first two albums), but in this case, it’s part of the charm. If it were any more polished, it would be a lot less effective.
 
@@ -157,8 +157,8 @@ And we’ll love you forever.
 
 **4th of July, Asbury Park (Sandy)**
 **Recorded** August 9 – September 23, 1973  
-**Released:** *The Wild, The Innocent & The E Street Shuffle* (1973), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)  
-**First performed:** April 23, 1973 (Hartford, CT)  
+**Released:** *The Wild, The Innocent & The E Street Shuffle* (1973), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
+**First performed:** April 23, 1973 (Hartford, CT)
 **Last performed:** November 16, 2019 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

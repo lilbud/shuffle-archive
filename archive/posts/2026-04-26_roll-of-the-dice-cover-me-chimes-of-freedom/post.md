@@ -18,7 +18,7 @@ Bruce continued to perform “Chimes of Freedom” for the duration of the Tunne
 
 Bruce wouldn’t perform “Chimes of Freedom” again until long after 1988, but he actually did perform it once long *before*–on the Darkness Tour, way back in 1978. Take a listen–it’s not anywhere near as strong or as confident as Bruce’s later arrangement, but it’s notable for Bruce’s comments (he cites this as one of his favorite songs from high school), his embarrassment and unease in performing such an idealistic song in such a setting (my, how he’d change in a decade!), and the more classic E Street-sounding arrangement.
 
-[Watch Video Highlight](https://videopress.com/embed/6l3WlkHI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6l3WlkHI)
 
 In 2025, Springsteen re-introduced “Chimes of Freedom” to his set list, this time as the final song every night on the Land of Hope and Dreams Tour (both legs).
 
@@ -42,8 +42,8 @@ This time, Bruce didn’t let the music speak for itself. On opening night in Mi
 
 **Chimes of Freedom**
 **Recorded** July 3, 1988  
-**Released:** *Chimes of Freedom* (1988)  
-**First performed:** September 1, 1978 (Detroit, MI)  
+**Released:** *Chimes of Freedom* (1988)
+**First performed:** September 1, 1978 (Detroit, MI)
 **Last performed:** April 23, 2026 (Sunrise, FL)
 
 © July 18, 2018 / April 26, 2026

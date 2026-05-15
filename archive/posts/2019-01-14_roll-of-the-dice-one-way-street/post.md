@@ -118,9 +118,9 @@ Your only E Street Band performance (other than the private carousel concert whe
 But if you’re ever in the mood to play it in concert again, maybe give the original lyrics a try? Or maybe just play “Hearts of Stone” instead… that song gets me every time.
 
 **One Way Street**
-**Recorded** June 17, 1977 (backing track), 2010 (vocals)  
-**Released:** *The Promise* (2010)  
-**First performed:** December 7, 2010 (Asbury Park, NJ)  
+**Recorded** June 17, 1977 (backing track), 2010 (vocals)
+**Released:** *The Promise* (2010)
+**First performed:** December 7, 2010 (Asbury Park, NJ)
 **Last performed:** July 5, 2013 (Monchengladbach, Germany)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

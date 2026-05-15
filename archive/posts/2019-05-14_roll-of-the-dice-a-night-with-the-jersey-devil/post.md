@@ -79,8 +79,8 @@ Pretty clever, all in all, but it’s hard to imagine an album that it would fit
 [Watch on Youtube: Bruce Springsteen - Night with the Jersey Devil - Rochester, NY 10-31-12](https://www.youtube.com/watch?v=I-cRhE4diyk)
 
 **A Night With the Jersey Devil****Recorded:** 2007-2008  
-**Released:** Digital Download (2008), *What Love Can Do* (b-side, 2009)  
-**First performed:** October 31, 2012 (Rochester, NY)  
+**Released:** Digital Download (2008), *What Love Can Do* (b-side, 2009)
+**First performed:** October 31, 2012 (Rochester, NY)
 **Last performed:** October 31, 2012 (Rochester, NY)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

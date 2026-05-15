@@ -4,7 +4,7 @@ Case in point: “Used Cars,” buried deep in Bruce’s *Nebraska* album.
 
 At first listen, it’s a vignette, a reminiscence of a vivid childhood memory. Bruce has often spoken of his father’s uncanny knack for finding troublesome vehicles. In fact, here’s how he introduced the song the very first time he performed it:
 
-[Watch Video Highlight](https://videopress.com/embed/FgjNk815?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/FgjNk815)
 
 But on closer listen, and especially with contextual knowledge of Bruce’s upbringing and family relationships, “Used Cars” reveals itself to be about shame, and about the dawning, inevitable distancing of parent and child.
 
@@ -79,7 +79,7 @@ We realize now, at the end, that Bruce isn’t just shunning the symbol of his s
 
 “Used Cars” made its live debut at the opening night of the Born in the U.S.A. Tour, and Bruce performed it regularly (if not continually) throughout the entire 1984-1985 tour. Here’s his very first performance from that tour-opening night in St. Paul, on June 29, 1984.
 
-[Watch Video Highlight](https://videopress.com/embed/BSKhRW5l?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BSKhRW5l)
 
 After the tour ended, however, “Used Cars” disappeared for a decade. Perhaps Bruce’s reconciliation with his father made the song less necessary for him to sing; perhaps it was merely the lack of a quiet space to perform it.
 
@@ -101,8 +101,8 @@ As I wrote at the top, there’s a lot of information conveyed in “Used Cars,�
 
 **Used Cars**
 **Recorded:** December 1981 – January 1982  
-**Released:** *Nebraska* (1982)  
-**First performed:** June 29, 1984 (St. Paul, MN)  
+**Released:** *Nebraska* (1982)
+**First performed:** June 29, 1984 (St. Paul, MN)
 **Last performed:** October 6, 2008 (Ypsilanti, MI)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

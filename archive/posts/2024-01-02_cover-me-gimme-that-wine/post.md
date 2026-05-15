@@ -23,5 +23,5 @@ By that time, of course, Clarence was always at the ready for his moment in the 
 Clarence had one last star turn the following year in Lenox, MA, shortly before the release of *Born to Run*. After that, “Gimme That Wine” became just another piece of E Street Band history.
 
 **Gimme That Wine**
-**First performed:** March 10, 1974 (Houston, TX)  
+**First performed:** March 10, 1974 (Houston, TX)
 **Last performed:** July 23, 1975 (Lenox, MA)

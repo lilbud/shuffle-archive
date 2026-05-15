@@ -136,7 +136,7 @@ It also provides the first glimpse at what would eventually evolve into the E St
 
 “Spirit in the Night” made its live debut mere weeks after its vinyl debut. Here’s the earliest known performance, from January 31, 1973.
 
-[Watch Video Highlight](https://videopress.com/embed/fJbgXAjP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fJbgXAjP)
 
 Even in that earliest performance, we can hear Bruce reaching for the drama, milking the late-song pause for effect. Over the years, the song would grow in length and passion, and we are fortunate to have so many professionally filmed, officially released performances from different eras to trace its arc. From the earliest days in 1973…
 
@@ -164,7 +164,7 @@ Other than its notable absence during the Tunnel of Love Tour, “Spirit in the 
 
 …the Ghost of Tom Joad era (in an almost-E Street Band reunion):
 
-[Watch Video Highlight](https://videopress.com/embed/uFZCRCRS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uFZCRCRS)
 
 …and the Devils & Dust Tour:
 
@@ -180,8 +180,8 @@ Regardless of whether it was inspired by The Bard, The Band, the poet, or the gi
 
 **Spirit in the Night**
 **Recorded** September 11, 1972 – October 26, 1972  
-**Released:** *Greetings from Asbury Park, N.J.* (1973), *The Essential Bruce Springsteen* (2003)  
-**First performed:** January 31, 1973 (New York City, NY)  
+**Released:** *Greetings from Asbury Park, N.J.* (1973), *The Essential Bruce Springsteen* (2003)
+**First performed:** January 31, 1973 (New York City, NY)
 **Last performed:** November 22, 2024 (Vancouver, BC)
 
 © March 1, 2020

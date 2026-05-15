@@ -4,7 +4,7 @@ I’m not talking about a mainstream pop hit, mind you. Bruce left those days be
 
 “My Lucky Day” also sounds like the band was playing it for the first time when they laid it down in the studio, and that’s very much by design. Watch Bruce instruct his team on the exact sound (in a very inexact way) that he’s searching for:
 
-[Watch Video Highlight](https://videopress.com/embed/vWtXTtGv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vWtXTtGv)
 
 Bruce eventually got the sound he was searching for, and the result isn’t just the best modern snapshot of the E Street Band in the studio, it’s also the last. Featuring in-studio contributions from both Clarence and Danny (who would pass away very shortly after “My Lucky Day” was recorded), “My Lucky Day” is a time capsule for Springsteen fans to treasure.
 
@@ -80,8 +80,8 @@ Bring this one back on the next tour, Bruce. Please bring it back.
 
 **My Lucky Day**
 **Recorded** early 2008  
-**Released:** *My Lucky Day* (single, 2008), *Working on a Dream* (2009), *The Essential Bruce Springsteen, 2nd Edition* (2015)  
-**First performed:** March 23, 2009 (Asbury Park, NJ)  
+**Released:** *My Lucky Day* (single, 2008), *Working on a Dream* (2009), *The Essential Bruce Springsteen, 2nd Edition* (2015)
+**First performed:** March 23, 2009 (Asbury Park, NJ)
 **Last performed:** June 25, 2016 (Gothenburg, Sweden)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -37,7 +37,7 @@ It deserves its official release on *L.A. Garage Sessions ’83.*
 
 **Seven Tears**
 **Recorded** February 15, 1983  
-***Released:** L.A. Garage Sessions ’83* (2025), *Lost and Found* (2025)  
+***Released:** L.A. Garage Sessions ’83* (2025), *Lost and Found* (2025)
 **Never performed**
 
 © March 17, 2019 / December 12, 2025

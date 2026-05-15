@@ -134,8 +134,8 @@ Still, these are fine and unusual performances and worth watching (even if Bruce
 
 **Downbound Train**
 **Recorded:** April 27 – May 6, 1982  
-**Released:** Born in the USA (1984)  
-**First performed:** July 2, 1984 (St. Paul, MN)  
+**Released:** Born in the USA (1984)
+**First performed:** July 2, 1984 (St. Paul, MN)
 **Last performed:** June 29, 2024 (Nijmegen, The Netherlands)
 
 © January 22, 2019

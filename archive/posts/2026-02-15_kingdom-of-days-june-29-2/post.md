@@ -16,7 +16,7 @@
 
 **1978:** Bruce and the E Street Band make a Darkness Tour stop at San Jose’s Center for the Performing Arts.
 
-[Watch Video Highlight](https://videopress.com/embed/e0eKZI7h?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e0eKZI7h)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/1978-0629.jpg)
 
@@ -30,7 +30,7 @@ Watch footage from the video premiere below, and then listen to a never-before-c
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MKXlK0fmnTg)
 
-[Watch Video Highlight](https://videopress.com/embed/NV0vpTz3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NV0vpTz3)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=129kuDCQtHs)
 
@@ -48,11 +48,11 @@ In the setlist, a couple of notable moments: Bruce covers “Street Fighting Man
 
 **1985:** The Born in the U.S.A. Tour arrives in Paris for the first of two nights at Parc de la Courneuve. The show was captured in stunning (for the time) video and audio quality.
 
-[Watch Video Highlight](https://videopress.com/embed/kmI7T1QT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kmI7T1QT)
 
-[Watch Video Highlight](https://videopress.com/embed/SgbjgGCB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SgbjgGCB)
 
-[Watch Video Highlight](https://videopress.com/embed/74jBxyo8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/74jBxyo8)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1CoG7ABoOG_ENRC4fVWaMDj)
 
@@ -60,11 +60,11 @@ In the setlist, a couple of notable moments: Bruce covers “Street Fighting Man
 
 Meanwhile, “Glory Days,” Bruce’s latest single, climbs the charts and is profiled on *American Top 40*.
 
-[Watch Video Highlight](https://videopress.com/embed/bjCt8eEl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bjCt8eEl)
 
 **1988:** Night Two in Rotterdam on the Tunnel of Love Tour features the first performances of “Chimes of Freedom” and “Paradise by the ‘C'” in a decade.
 
-[Watch Video Highlight](https://videopress.com/embed/ewosTtgL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ewosTtgL)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s3oWgq4VYCQ)
 
@@ -78,7 +78,7 @@ Meanwhile, “Glory Days,” Bruce’s latest single, climbs the charts and is p
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to Paris for the first of two nights at Palais Omnisports de Paris-Bercy, where Bruce reveals that “Darkness on the Edge of Town” and “If I Should Fall Behind” share a common character.
 
-[Watch Video Highlight](https://videopress.com/embed/3NLub5G0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3NLub5G0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/The_Jersey_Journal_1992_07_01_24-scaled.jpg)
 
@@ -118,7 +118,7 @@ Meanwhile, “Glory Days,” Bruce’s latest single, climbs the charts and is p
 
 **2016:** The River Tour (2016 edition) *almost* returns to its original form in Oslo, with at least 13 songs from the album making the setlist.
 
-[Watch Video Highlight](https://videopress.com/embed/5RghO2RM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5RghO2RM)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cH73sVMiH4A)
 

@@ -47,7 +47,7 @@ Let’s continue, as Bruce places our troubled focal character deep enough withi
 
 (Interestingly, in a solo demo of the song from a month earlier, Bruce sings that last line a bit differently–she’s still another Orphan Annie, but also a Raquel Welch. In the month between solo demo and studio recordings, Bruce seems to have opted for a more artfully extended Annie comparison at the expense of the rhyme.)
 
-[Watch Video Highlight](https://videopress.com/embed/54i5lVp4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/54i5lVp4)
 
 In the third verse, the police finally catch up to our Orphan Annie–or at least one officer does, and their encounter is primal and carnal. I’ll let these lyrics speak for themselves–your imagination can provide all the interpretation required:
 

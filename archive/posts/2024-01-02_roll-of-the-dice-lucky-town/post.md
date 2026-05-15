@@ -71,8 +71,8 @@ But the full-on E Street Band version shines too. I’ll leave you with a great 
 
 **Lucky Town**
 **Recorded:** September 1992-January 1992  
-**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003)  
-**First performed:** May 6, 1992 (New York City, NY)  
+**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003)
+**First performed:** May 6, 1992 (New York City, NY)
 **Last performed:** June 24, 2023 (Gothenburg, Sweden)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

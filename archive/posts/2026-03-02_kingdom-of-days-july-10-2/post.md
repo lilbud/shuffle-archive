@@ -20,7 +20,7 @@
 
 **1988:** Bruce and the E Street Band play their second of two Tunnel of Love shows at Bramall Lane in Sheffield.
 
-[Watch Video Highlight](https://videopress.com/embed/EZbUAKue?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EZbUAKue)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zATGqy6HjddIRTztJhrdWsH)
 
@@ -38,7 +38,7 @@
 
 **2018:** *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater in New York City after a nine-day break. Patti is absent tonight, so Bruce drops their duets and instead substitutes “Long Time Comin'” in their place. To make up for playing one fewer song than usual, Bruce adds an encore of sorts: “This Hard Land.”
 
-[Watch Video Highlight](https://videopress.com/embed/Rt2JA6ng?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Rt2JA6ng)
 
 **2019:** Bruce breaks news when he calls in to E Street Radio: a new film is on the way, a concert film based on *Western Stars,* directed by Thom Zimny. When it’s released later in the year, Bruce will take a co-director credit.
 

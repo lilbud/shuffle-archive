@@ -86,7 +86,7 @@ And as the song trails the final chorus, we’re deeply unsettled by the realiza
 
 **Hey Blue Eyes**
 **Recorded:** Unknown, but likely 2007-ish  
-**Released:** *American Beauty* (2014)  
+**Released:** *American Beauty* (2014)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

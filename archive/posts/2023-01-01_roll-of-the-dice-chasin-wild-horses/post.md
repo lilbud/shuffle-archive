@@ -108,8 +108,8 @@ Bruce has been coy when asked whether we’ll ever hear any of the *Western Star
 
 **Chasin’ Wild Horses**
 **Recorded** Unknown  
-**Released:** *Western Stars* (2019)  
-**First performed:** April 2019 (exact date unknown) (Colts Neck, NJ)  
+**Released:** *Western Stars* (2019)
+**First performed:** April 2019 (exact date unknown) (Colts Neck, NJ)
 **Last performed:** April 2019 (exact date unknown) (Colts Neck, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

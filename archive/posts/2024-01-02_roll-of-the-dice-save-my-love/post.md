@@ -72,7 +72,7 @@ Ironically, “Save My Love” made its live debut not with the E Street Band bu
 
 The rest of us only had to wait twelve days to hear it, but even then it was yet *another* band. On November 16, 2010, Bruce, Steve and Roy dropped by *Late Night with Jimmy Fallon* to play their new single with The Roots (complete with tuba):
 
-[Watch Video Highlight](https://videopress.com/embed/gVoKnvGR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gVoKnvGR)
 
 (I think my favorite part of that video is Steve supplying his own “Brooooces” at the end, just in case the mics couldn’t pick up the audience doing it.)
 
@@ -88,8 +88,8 @@ So while it may never be a staple of any tour’s setlist, I doubt it’s ever g
 
 **Save My Love**
 **Recorded:** July 22, 2010  
-**Released:** *The Promise* (2010)  
-**First performed:** November 4, 2010 (Pittsburgh, PA)  
+**Released:** *The Promise* (2010)
+**First performed:** November 4, 2010 (Pittsburgh, PA)
 **Last performed:** September 5, 2016 (Virginia Beach, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

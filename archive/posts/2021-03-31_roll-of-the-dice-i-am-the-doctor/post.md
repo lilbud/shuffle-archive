@@ -4,7 +4,7 @@ But there were exceptions.
 
 Case in point: “I Am the Doctor,” an original Springsteen composition that Steel Mill played during the first half of 1970.
 
-[Watch Video Highlight](https://videopress.com/embed/iPprCrUj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iPprCrUj)
 
 “I Am the Doctor” is as light as Steel Mill gets; it certainly won’t make anyone’s list of best Springsteen lyrics. But then, it doesn’t need to. “I Am the Doctor” was a mid-set palate cleanser for the band.
 
@@ -55,7 +55,7 @@ In the mid-song passage below, we can hear early evidence of Bruce’s sense of 
 **I Am The Doctor**
 Never recorded**
 **Never released**
-**First performed:** February 28, 1970 (Richmond, VA)  
+**First performed:** February 28, 1970 (Richmond, VA)
 **Last performed:** June 14, 1970 (Bricktown, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -96,8 +96,8 @@ The Sinaloa Cartel remains the most dominant drug cartel in Mexico to this day.
 
 **Sinaloa Cowboys**
 **Recorded** March-August, 1995  
-**Released:** *The Ghost of Tom Joad* (1995)  
-**First performed:** October 28, 1995 (Mountain View, CA)  
+**Released:** *The Ghost of Tom Joad* (1995)
+**First performed:** October 28, 1995 (Mountain View, CA)
 **Last performed:** October 20, 2005 (Worcester, MA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

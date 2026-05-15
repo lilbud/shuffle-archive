@@ -81,8 +81,8 @@ We’ve been living through a blackout in recent years, but the lights are comin
 
 **When the Lights Go Out**
 **Recorded** December 6, 1990  
-**Released:** *Tracks* (1998)  
-**First performed:** November 16, 1990 (Los Angeles, CA)  
+**Released:** *Tracks* (1998)
+**First performed:** November 16, 1990 (Los Angeles, CA)
 **Last performed:** November 17, 1990 (Los Angeles, CA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

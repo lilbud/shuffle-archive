@@ -29,7 +29,7 @@ Not surprisingly, that was the one and only time Bruce has ever covered “Angel
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/sinatra.png)
 
 **Angel Eyes**
-**First performed:** November 19, 1995 (Los Angeles, CA)  
+**First performed:** November 19, 1995 (Los Angeles, CA)
 **Last performed:** November 19, 1995 (Los Angeles, CA)
 
 

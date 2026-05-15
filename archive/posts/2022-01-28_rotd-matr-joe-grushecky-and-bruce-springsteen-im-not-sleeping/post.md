@@ -52,13 +52,13 @@ But while Bruce doesn’t appear on Joe’s studio track and hasn’t released h
 
 Joe and Bruce’s performances of “I’m Not Sleeping” are so great, in fact, that I can’t bring myself to choose just one to feature here. So let’s enjoy this pair of clips from 2010 and 2011 and appreciate the artistry and chemistry of the Grushecky/Springsteen songwriting team.
 
-[Watch Video Highlight](https://videopress.com/embed/S42c7wmq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/S42c7wmq)
 
-[Watch Video Highlight](https://videopress.com/embed/bNmTsDJo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bNmTsDJo)
 
 **I’m Not Sleeping**
-**Released:** *Coming Home* (1998)  
-**First performed:** November 4, 2010 (Pittsburgh, PA)  
+**Released:** *Coming Home* (1998)
+**First performed:** November 4, 2010 (Pittsburgh, PA)
 **Last performed:** May 23, 2014 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -86,12 +86,12 @@ I don’t expect Bruce to break that streak. As oxymoronic as it sounds, “Rend
 
 But he also tried giving “Rendezvous” to The Knack in 1978, offering the band a choice between that song and “[Don’t Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/).” They chose the latter, so we never got to hear what The Knack might have done with “Rendezvous.” However: someone actually recorded Bruce *teaching* The Knack how to play “Rendezvous” before the band ultimately decided to pass on it, and that recording escaped as well. It’s a fun listen and a glimpse at what an acoustic arrangement of “Rendezvous” might have sounded like.
 
-[Watch Video Highlight](https://videopress.com/embed/d4wU6cXH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/d4wU6cXH)
 
 **Rendezvous**
 **Recorded** September 29, 1977  
-**Released:** *The Promise* (2010)  
-**First performed:** August 1, 1976 (Red Bank, NJ)  
+**Released:** *The Promise* (2010)
+**First performed:** August 1, 1976 (Red Bank, NJ)
 **Last performed:** November 16, 2019 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

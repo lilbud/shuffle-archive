@@ -83,8 +83,8 @@ So why hasn’t Bruce performed “Sad Eyes” more often? That’s one for the 
 
 **Sad Eyes**
 **Recorded** January 25, 1990  
-**Released:** *Tracks* (1998), *18 Tracks* (1999)  
-**First performed:** July 23, 2005 (Atlanta, GA)  
+**Released:** *Tracks* (1998), *18 Tracks* (1999)
+**First performed:** July 23, 2005 (Atlanta, GA)
 **Last performed:** July 23, 2005 (Atlanta, GA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

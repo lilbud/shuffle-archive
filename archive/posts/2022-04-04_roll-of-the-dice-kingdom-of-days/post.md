@@ -87,12 +87,12 @@ Watch this performance all the way through to hear Bruce channel his inner Orbis
 
 **Bonus:** the DVD that accompanied *Working on a Dream* contained some behind-the-scenes footage from the recording sessions. Here’s a look at the creation of “Kingdom of Days.”
 
-[Watch Video Highlight](https://videopress.com/embed/6UU4PT3e?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6UU4PT3e)
 
 **Kingdom of Days**
 **Recorded** Early 2008  
-**Released:** *Working on a Dream* (2009)  
-**First performed:** March 24, 2009 (Asbury Park, NJ)  
+**Released:** *Working on a Dream* (2009)
+**First performed:** March 24, 2009 (Asbury Park, NJ)
 **Last performed:** May 22, 2014 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -98,7 +98,7 @@ Listen carefully to the performance, especially around the 3:40 mark, and you’
 
 **Living on the Edge of the** World  
 **Recorded:** December 7, 1979  
-**Released:** *Tracks* (1998), *The Ties That Bind: The River Collection* (2015)  
+**Released:** *Tracks* (1998), *The Ties That Bind: The River Collection* (2015)
 **First performed:** September 21, 2012  
 **Last performed:** September 21, 2012
 

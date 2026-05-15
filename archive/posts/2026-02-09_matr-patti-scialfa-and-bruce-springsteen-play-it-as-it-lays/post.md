@@ -17,7 +17,7 @@ The way Patti and Ron deploy Bruce throughout the song is something very close t
 To date, Bruce and Patti have never performed “Play It As It Lays” live, but they don’t need to–it’s perfect as is.
 
 **Play It As It Lays**
-**Released:** *Play It As It Lays* (2007)  
+**Released:** *Play It As It Lays* (2007)
 **Never performed**
 
 © October 12, 2020

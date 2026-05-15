@@ -28,7 +28,7 @@ Although it became a perennial holiday favorite on the radio each holiday season
 
 When Bruce kicked off his Asbury Park holiday show tradition after the Reunion Tour ended, “Merry Christmas Baby” was immediately established as an essential set list staple…
 
-[Watch Video Highlight](https://videopress.com/embed/IelUEzSa?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IelUEzSa)
 
 …and Bruce performed it with the E Street Band on Conan O’Brien’s show in 2002.
 

@@ -31,7 +31,7 @@ Bruce may have been a late convert to including “Shout” in his set, but he�
 I’d bet on that number getting a lot higher.
 
 **Shout**
-**First performed:** December 31, 1982 (New York City, NY)  
+**First performed:** December 31, 1982 (New York City, NY)
 **Last performed:** February 25, 2017 (Auckland, New Zealand)
 
 (c) September 12, 2019

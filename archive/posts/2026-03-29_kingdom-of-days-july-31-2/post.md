@@ -14,7 +14,7 @@
 
 **1982:** Bruce makes a guest appearance with Sonny Kenn and the Wild Ideas at Big Man’s West in Red Bank.
 
-[Watch Video Highlight](https://videopress.com/embed/lzcXNflW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lzcXNflW)
 
 **1984:** “Cover Me” is released as the second single off of the red-hot *Born in the U.S.A.* album. It will peak at #7 on the charts.
 
@@ -22,13 +22,13 @@
 
 That evening, Bruce tour premieres “Growin’ Up” at Night Two in Detroit on the Born in the U.S.A. Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/1IZ822FI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1IZ822FI)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-31.png)
 
 **1987:** Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for “You Can’t Sit Down,” “La Bamba,” and “Twist and Shout.”
 
-[Watch Video Highlight](https://videopress.com/embed/91vNP1rr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/91vNP1rr)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1987-07-31a.png)
 
@@ -42,7 +42,7 @@ That evening, Bruce tour premieres “Growin’ Up” at Night Two in Detroit on
 
 **2001:** Bruce makes a surprise guest appearance at the Count Basie Theater in Red Bank, joining Bruce Hornsby for the final encore of “Cadillac Ranch.”
 
-[Watch Video Highlight](https://videopress.com/embed/EQ77Afpd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EQ77Afpd)
 
 **2005:** Bruce plays a stunning acoustic show in Columbus, playing “Lift Me Up” for the first time ever, and tour premiering “Cynthia” and “Back in Your Arms.” This show is available as part of Bruce’s official archive series, and it’s a wonderful listen.
 
@@ -98,4 +98,4 @@ That evening, Bruce tour premieres “Growin’ Up” at Night Two in Detroit on
 
 ![](https://estreetshuffle.com/wp-content/uploads/2023/07/e4aac969-2276-4cd0-a652-cd3fbd55f91b.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/7vTU17RN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7vTU17RN)

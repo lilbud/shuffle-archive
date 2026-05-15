@@ -24,4 +24,4 @@ This show was pretty early on the first leg of the Working on a Dream tour, so I
 
 When Max returned for the encores, Bruce kicked off with “[Hard Times (Come Again No More)](https://estreetshuffle.com/index.php/2022/01/21/cover-me-hard-times-come-again-no-more/)” and then pulled out another gem for Philly: a cover of a 1963 hit by local legends The Dovells, “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)” that lengthened the encore set, but Bruce still wasn’t done. He sent us home with a raucous “Rosalita (Come Out Tonight)” that left us exhausted but exhilarated for [Night Two](https://estreetshuffle.com/index.php/2018/04/29/where-the-band-was-philadelphia-april-29-2009/).
 
-[Watch Video Highlight](https://videopress.com/embed/iakJ5plh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iakJ5plh)

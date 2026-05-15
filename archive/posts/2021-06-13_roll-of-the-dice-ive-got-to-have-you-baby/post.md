@@ -6,7 +6,7 @@ This is also from the last known recording of the Bruce Springsteen Band, which 
 
 But here at Tinker’s place in the spring of 1972, we’re eavesdropping on a small band seemingly without a care in the world. Their performance of Bruce’s original song, “I Got to Have You, Baby,” is loose but confident with some delightful interplay between the band members, who oblige their boss with party noises from the get-go.
 
-[Watch Video Highlight](https://videopress.com/embed/CH2ssoop?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CH2ssoop)
 
 (Yeah, I hear the theme from *Sesame Street,* too. I have no idea if that was intentional, although the show was certainly on the air by then.)
 
@@ -55,7 +55,7 @@ But like much of the material from the too-short-lived BSB, “I Got to Have You
 ***Note:** Some Springsteen resource sites refer to “I Got to Have You, Baby” as a cover of the Jimmy Jones and The Pretenders song, “I’ve Got to Have You, Baby.” It’s not. Other than sharing a title, the two songs have nothing in common. This is clearly a Springsteen original.*
 
 **I’ve Got Have You, Baby**
-**First performed:** September 1, 1971 (Long Branch, NJ)  
+**First performed:** September 1, 1971 (Long Branch, NJ)
 **Last performed:** March 14, 1972 (Highlands, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -85,7 +85,7 @@ Especially at that moment, Bruce probably very much needed to believe that.
 
 **Lucky Man**
 **Recorded** April 4, 1987  
-**Released:** *Brilliant Disguise* (single B-side, 1987), *Tracks* (1998)  
+**Released:** *Brilliant Disguise* (single B-side, 1987), *Tracks* (1998)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

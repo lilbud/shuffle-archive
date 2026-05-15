@@ -91,7 +91,7 @@ Bruce reunited the E Street Band shortly after releasing his *Tracks* box set, a
 
 “Take ’em as They Come” was one of the earlier tracks to debut, coming out to play for the first time on June 15, 1999 in Offenbach. That first performance was just a bit too plodding, though.
 
-[Watch Video Highlight](https://videopress.com/embed/wGZfQBl3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wGZfQBl3)
 
 The band would get better as time went by, but for reasons I can’t guess, Bruce all but retired the song after the Reunion Tour. He’s only played it twice since, once on the Rising Tour, and once almost a decade later on the Wrecking Ball Tour–thanks to a diligent, persistent, fan who absolutely refused to give up asking for it.
 
@@ -106,9 +106,9 @@ And that last time, at Hyde Park–they *nailed* it (even if Bruce truncated the
 <https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3>
 
 **Take ’em as They Come**
-**Recorded:** December 5, 1979 (backing track), April 10, 1980 (vocals)  
-**Released:** *Tracks* (1998)  
-**First performed:** June 15, 1999 (Offenbach, Germany)  
+**Recorded:** December 5, 1979 (backing track), April 10, 1980 (vocals)
+**Released:** *Tracks* (1998)
+**First performed:** June 15, 1999 (Offenbach, Germany)
 **Last performed:** July 14, 2012 (London, England)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

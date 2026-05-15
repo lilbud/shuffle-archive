@@ -38,7 +38,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s latest hit s
 
 [Watch on Youtube: Bruce Springsteen - Fire (Live) Giants Stadium New Jersey - September 1st 1985](https://www.youtube.com/watch?v=Emg8kiqwMmg)
 
-[Watch Video Highlight](https://videopress.com/embed/vQFwNj9F?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vQFwNj9F)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-09-01.jpg)
 
@@ -56,7 +56,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s latest hit s
 
 **2001:** Bruce joins Clarence Clemons and the Temple of Soul on stage at The Stone Pony in Asbury Park. Their performance of “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” will be released three years later on Clarence’s *Live in Asbury Park Vol. II* album.
 
-[Watch Video Highlight](https://videopress.com/embed/fH8ltr8g?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fH8ltr8g)
 
 [Watch on Youtube: Raise Your Hand (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=3NHIzOVOswc)
 

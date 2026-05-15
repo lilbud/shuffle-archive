@@ -199,8 +199,8 @@ There’s a reason why “She’s the One” is one of Bruce’s most performed 
 
 **She’s the One**
 **Recorded:** April-July 1975  
-**Released:** *Born to Run* (1975)  
-**First performed:** October 4, 1974 (New York City, NY)  
+**Released:** *Born to Run* (1975)
+**First performed:** October 4, 1974 (New York City, NY)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

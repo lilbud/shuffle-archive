@@ -10,7 +10,7 @@ Let’s take a listen, but first an important note: because the song is so long,
 
 If you have the time, start by listening to the entire song and see how many other songs you hear echoes of.
 
-[Watch Video Highlight](https://videopress.com/embed/K8rRLDke?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/K8rRLDke)
 
 We start with a casual riff, before Vini’s powerful drums kick in around 0:45, and the rest of the band shortly after. Bruce enters with his vocals…
 
@@ -268,7 +268,7 @@ What are we to make of “Garden State Parkway Blues” looking back? It’s mot
 
 **Garden State Parkway Blues**
 **Never recorded or released**
-**First performed:** September 20, 1969 (Richmond, VA)  
+**First performed:** September 20, 1969 (Richmond, VA)
 **Last performed:** October 17, 1970 (Long Branch, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

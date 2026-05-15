@@ -18,7 +18,7 @@ Also: I’m going to focus on the “winter mix” for this essay, not the album
 
 Okay, let’s go:
 
-[Watch Video Highlight](https://videopress.com/embed/NX1uEPta?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NX1uEPta)
 > You know that song Bruce wrote, “Girls in Their Summer Clothes?” I heard that song and said, “This song should be on the radio, why is that not all over the radio?” I spoke to somebody recently, a Bruce fan, and I said, “Do you know this song? It is the most insightful song about aging. It is a song of experience, actually.” And they said, “No, I don’t know that.” So these songs, they can slip through the cracks of culture. *— Bono, Rolling Stone Magazine, January 2018*
 
 “Girls in Their Summer Clothes” was recorded during the *Magic* sessions, but both in sound and theme, it was really the first track recorded for *Working on a Dream,* an album that’s lyrically all about growing old while musically celebrating the romance of youth. Had Bruce held the song back from *Magic* and featured it as the lead single from his next album instead, I have no doubt that both the single and the album would have received the attention and esteem they deserve.
@@ -139,8 +139,8 @@ If we’re fortunate enough to get at least one more solo acoustic tour, this is
 
 **Girls in Their Summer Clothes**
 **Recorded** March-May 2007  
-**Released:** *Magic* (2007), *Girls in Their Summer Clothes* (2008, winter mix)  
-**First performed:** September 24, 2007 (Asbury Park, NJ)  
+**Released:** *Magic* (2007), *Girls in Their Summer Clothes* (2008, winter mix)
+**First performed:** September 24, 2007 (Asbury Park, NJ)
 **Last performed:** February 7, 2014 (Perth, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

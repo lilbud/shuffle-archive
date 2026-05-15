@@ -16,7 +16,7 @@ We just examined a few from this session: “Baby I’m So Cold,” “Bells of 
 
 “Stop the War” is different.
 
-[Watch Video Highlight](https://videopress.com/embed/m3IXnde1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/m3IXnde1)
 
 “Stop the War” is a rehearsal take for which there’s no known home demo and no or circulating studio track (official or otherwsie), so this is all we have to work with.
 

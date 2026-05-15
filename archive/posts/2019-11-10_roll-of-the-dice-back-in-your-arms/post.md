@@ -38,7 +38,7 @@ Don’t get me wrong: Bruce’s vocals are great on “Back in Your Arms,” but
 
 I may be biased, however, because for a few years prior to the release of *Tracks,* the only version of “Back in Your Arms” that we knew was a rehearsal take from the *Blood Brothers* documentary. Watch it, and compare Bruce’s vocals with the official take. There’s no doubt in my mind that were it not for the absence of Danny’s organ in the mix, this would be a clearly superior version. (It still may be.)
 
-[Watch Video Highlight](https://videopress.com/embed/9gTfTB0q?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9gTfTB0q)
 
 If you’ve watched all of the above clips, then by now at least one thing should be clear: “Back in Your Arms” is a torch song where both the lyrics and music take a back seat to the passion of the performer.
 
@@ -107,8 +107,8 @@ For a song about an ex-lover carrying a torch he refuses to put down, I can’t 
 
 **Back in Your Arms**
 **Recorded** January 12, 1995  
-**Released:** *Tracks* (1998)  
-**First performed:** August 4, 1999 (East Rutherford, NJ)  
+**Released:** *Tracks* (1998)
+**First performed:** August 4, 1999 (East Rutherford, NJ)
 **Last performed:** February 14, 2017 (Brisbane, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

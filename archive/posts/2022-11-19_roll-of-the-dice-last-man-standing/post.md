@@ -60,7 +60,7 @@ In the summer of 2018, Bruce flew to his bedside to say goodbye to his old frien
 
 Fifty-three years after joining his very first band, Bruce Springsteen found himself the last man standing.
 
-[Watch Video Highlight](https://videopress.com/embed/yTlxwBCj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yTlxwBCj)
 
 The last surviving member of The Castiles found himself profoundly affected by that realization and keenly aware that his tomorrows were considerably fewer in number than his yesterdays.
 
@@ -152,8 +152,8 @@ As the genesis for *Letter to You*, “Last Man Standing” seems like a pretty 
 
 **Last Man Standing**
 **Recorded** November 18-22, 2019  
-**Released:** *Letter to You* (2020)  
-**First performed:** October 27, 2020 (Colts Neck, NJ)  
+**Released:** *Letter to You* (2020)
+**First performed:** October 27, 2020 (Colts Neck, NJ)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -24,7 +24,7 @@ When Bruce was himself drafted in 1969, he was understandably terrified, convinc
 
 But as Bruce realized–probably not at the moment, but certainly later–there was a price to be paid for his safety: living with the knowledge that someone else went in his place.
 
-[Watch Video Highlight](https://videopress.com/embed/tUAdpU2d?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tUAdpU2d)
 
 So it’s no wonder that Kovic’s book touched a raw nerve when Bruce read it. By the end of the Darkness Tour, Kovic and his experience were still very top of mind for Bruce–at the famed Winterland show in December 1978, Bruce dedicated “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” to Kovic, mentioning both author and book by name.
 
@@ -137,11 +137,11 @@ Perhaps he still wasn’t ready to confront his survivor’s guilt (although if 
 
 We may never know. But whatever prompted Bruce to make the switch, it didn’t take him long to have second thoughts about it. “The Price You Pay” was the second-to-last song from *The River* to receive a concert outing. Bruce finally played it in Los Angeles on Halloween night in 1980, in the beautiful acoustic arrangement below.
 
-[Watch Video Highlight](https://videopress.com/embed/uLkF4Ijg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uLkF4Ijg)
 
 That first performance turned out to be the *only* performance of the album version for almost three decades. On the very next night, Bruce inexplicably (but wisely) substituted the original third verse for the album version, no doubt confusing fans who for years afterward assumed he’d written new lyrics for the occasion.
 
-[Watch Video Highlight](https://videopress.com/embed/9KE6s8Cy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9KE6s8Cy)
 
 The original lyrics stayed in the song for the remainder of the River Tour.
 
@@ -179,8 +179,8 @@ But “The Price You Pay” remains one of Bruce’s most powerful, poignant, an
 
 **The Price You Pay**
 **Recorded:** June 1979  
-**Released:** *The River* (1980), *The Ties That Bind* (2015)  
-**First performed:** October 31, 1980 (Los Angeles, CA)  
+**Released:** *The River* (1980), *The Ties That Bind* (2015)
+**First performed:** October 31, 1980 (Los Angeles, CA)
 **Last performed:** July 28, 2016 (Oslo, Norway)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

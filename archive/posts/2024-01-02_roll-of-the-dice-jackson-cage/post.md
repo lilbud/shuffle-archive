@@ -156,8 +156,8 @@ Will we see “Jackson Cage” again? If history is any indication, probably. Al
 
 **Jackson Cage**
 **Recorded** February-March, 1980  
-**Released:** *The River* (1980)  
-**First performed:** October 3, 1980 (Ann Arbor, MI)  
+**Released:** *The River* (1980)
+**First performed:** October 3, 1980 (Ann Arbor, MI)
 **Last performed:** July 28, 1980 (Oslo, Norway)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

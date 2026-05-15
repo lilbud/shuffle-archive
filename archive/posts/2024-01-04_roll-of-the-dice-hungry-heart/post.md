@@ -6,7 +6,7 @@ It became, of course, one of Bruce Springsteen’s biggest hits. Even today, it 
 
 As legend has it, the origin of “Hungry Heart” dates back to March 23rd 1979, when Bruce met The Ramones backstage at The Fast Lane in Asbury Park. Bruce had already donated two Top 20 singles (“Because the Night” and “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)“) within the past year, so Joey Ramone may have only been half-kidding when he asked Bruce to write them a song.
 
-[Watch Video Highlight](https://videopress.com/embed/evxQu4FX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/evxQu4FX)
 
 Bruce took Joey seriously, though, and it didn’t take him long to fulfill the request. He told Dave Marsh that he wrote “Hungry Heart” in “a half hour, or ten minutes, real fast.”
 
@@ -145,14 +145,14 @@ Ironically, a song about the inability to sustain a relationship became a song g
 
 For as long as Bruce continues to tour, his audiences will keep singing that first verse to him. If anyone had any reason to dislike “Hungry Heart,” perhaps it was the band for whom the song was originally promised–but even the late Joey Ramone couldn’t hold a grudge.
 
-[Watch Video Highlight](https://videopress.com/embed/hWQTcrD4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hWQTcrD4)
 
 ---
 
 
 **Bonus #1:** Springsteen has performed “Hungry Heart” well over 700 times over the years, but only three of those were acoustic–and two of those were team-ups. The first was in 1986, when Bruce was joined by Crosby, Stills, Nash & Young at Neil Young’s Bridge School Benefit.
 
-[Watch Video Highlight](https://videopress.com/embed/FEcnI0nj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/FEcnI0nj)
 
 …and the second was with Wolfgang Niedecken in Berlin in 2005.
 
@@ -176,8 +176,8 @@ Bruce released that version as an official single that year, too. What made him 
 
 **Hungry Heart**
 **Recorded** June 14-21, 1979  
-**Released:** *The River* (1980), *Greatest Hits* (1995), *The Ties That Bind: The River Collection* (2015)  
-**First performed:** October 18, 1980 (St. Louis, MO)  
+**Released:** *The River* (1980), *Greatest Hits* (1995), *The Ties That Bind: The River Collection* (2015)
+**First performed:** October 18, 1980 (St. Louis, MO)
 **Last performed:** April 7, 2023 (Baltimore, MD)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -14,12 +14,12 @@ If you listened closely to both versions, you probably noticed that Emmylou inve
 
 “Satan’s Jeweled Crown” is beautiful in any of its versions, but Bruce’s (mostly) acoustic choral arrangement is particularly stunning, a standout in its five European tour appearances in the spring of 1993. Here’s a gorgeously-captured version from Milton Keynes on May 22, 1993.
 
-[Watch Video Highlight](https://videopress.com/embed/6qxPHBSK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6qxPHBSK)
 
 Bruce would only play “Satan’s Jeweled Crown” once more after returning home, at a benefit show that served as an epilogue to the 1993 tour. You can purchase that pristine performance as part of Bruce’s official live archive series [here](https://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html).
 
 **Satan’s Jeweled Crown**
-**First performed:** May 14, 1993 (Berlin, Germany)  
+**First performed:** May 14, 1993 (Berlin, Germany)
 **Last performed:** June 24, 1993 (East Rutherford, New Jersey)
 
 

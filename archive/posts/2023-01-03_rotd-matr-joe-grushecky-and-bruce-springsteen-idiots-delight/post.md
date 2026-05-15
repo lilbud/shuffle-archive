@@ -20,13 +20,13 @@ Bruce’s version with the E Street Band is still unreleased, but he debuted it 
 
 I’m not sure when Bruce recorded his version of “Idiot’s Delight,” but given its very close similarity to his one and only live performance of it with the E Street Band (with Joe Grushecky on guest vocals) during the Reunion Tour, I wouldn’t be surprised if it dates back to that era.
 
-[Watch Video Highlight](https://videopress.com/embed/qWqZaBjm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qWqZaBjm)
 
 There’s also a third arrangement of “Idiot’s Delight” floating around out there, and it’s quite a departure from the other two.
 
 Lucky fans who attended the closing leg of Bruce’s 2005 solo acoustic tour got a chance to hear a new, sinister arrangement of “Idiot’s Delight” complete with bullet-mic’ed vocals when Bruce played it an astonishing ten times that October.
 
-[Watch Video Highlight](https://videopress.com/embed/XTbqd9DV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XTbqd9DV)
 
 For an under-the-radar song. “Idiot’s Delight” has enjoyed a few different incarnations, all of them great.
 

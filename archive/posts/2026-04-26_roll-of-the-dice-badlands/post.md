@@ -2,7 +2,7 @@
 
 He had the title, and he had the riff (co-opted from a favorite song, as Bruce confesses below).
 
-[Watch Video Highlight](https://videopress.com/embed/HTQLrA2O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HTQLrA2O)
 
 And before long, he had the instrumental track in almost final form (the bridge would continue to evolve).
 
@@ -133,8 +133,8 @@ All of this, of course, is just to serve as a build-up for the song’s climax. 
 
 **Badlands**
 **Recorded** Late 1977  
-**Released:** *Darkness on the Edge of Town* (1978), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)  
-**First performed:** May 19, 1978 (Asbury Park, NJ)  
+**Released:** *Darkness on the Edge of Town* (1978), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
+**First performed:** May 19, 1978 (Asbury Park, NJ)
 **Last performed:** April 23, 2026 (Sunrise, FL)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-LL_VBOy7r8)

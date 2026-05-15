@@ -118,8 +118,8 @@ In the years since *Devils & Dust,* “Spare Parts” has been completely absent
 
 **Spare Parts**
 **Recorded:** January 20, 1987  
-**Released:** *Tunnel of Love* (1988)  
-**First performed:** February 25, 1988 (Worcester, MA)  
+**Released:** *Tunnel of Love* (1988)
+**First performed:** February 25, 1988 (Worcester, MA)
 **Last performed:** November 21, 2005 (Trenton, NJ)
 
 (c) January 8, 2019

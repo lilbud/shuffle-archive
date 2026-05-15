@@ -104,7 +104,7 @@ By the time Bruce’s mammoth, marathon Born in the U.S.A. Tour got underway a f
 
 …and by the end of the tour, tightly choreographed yet increasingly goofy.
 
-[Watch Video Highlight](https://videopress.com/embed/uM0lFori?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uM0lFori)
 
 Forty years on, “Cadillac Ranch” is still a mainstay of Bruce’s set lists. Other than the brief, thematic Vote for Change Tour, “Cadillac Ranch” hasn’t missed an E Street Band tour yet, and it’s been featured on the Seeger Sessions and Devils & Dust solo tours as well.
 
@@ -114,12 +114,12 @@ Because the closer we all get to the end of the drive, the more we need to enjoy
 
 **Bonus:** Here’s an unreleased studio outtake featuring a different mix, but the thing you’ll notice most is the siren and peelout that introduces the song. It makes “Cadillac Ranch” sound like the perfect candidate for the opening credits of a Burt Reynolds movie.
 
-[Watch Video Highlight](https://videopress.com/embed/RcbkHi9g?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RcbkHi9g)
 
 **Cadillac Ranch**
 **Recorded** February 16-April 26, 1980  
-**Released:** *The River* (1980)  
-**First performed:** October 3, 1980 (Ann Arbor, MI)  
+**Released:** *The River* (1980)
+**First performed:** October 3, 1980 (Ann Arbor, MI)
 **Last performed:** November 16, 2019 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

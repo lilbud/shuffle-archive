@@ -12,7 +12,7 @@
 
 That evening, Bruce and the E Street Band perform “The Promise” during their show. It won’t be performed again for more than two decades.
 
-[Watch Video Highlight](https://videopress.com/embed/48WRw6pC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/48WRw6pC)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/07/The_Lexington_Herald_1978_07_30_73-scaled.jpg)
 
@@ -34,7 +34,7 @@ That evening, Bruce and the E Street Band perform “The Promise” during their
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MtoJDzSPpyE)
 
-[Watch Video Highlight](https://videopress.com/embed/lVjPwEeE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lVjPwEeE)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-L6c3RKKVXk)
 

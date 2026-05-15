@@ -123,8 +123,8 @@ Looking back from today, we can clearly see the breadcrumbs. But back then…. w
 
 **Livin’ in the Future**
 **Recorded:** March 2007  
-**Released:** *Magic* (2007)  
-**First performed:** September 24, 2007 (Asbury Park, NJ)  
+**Released:** *Magic* (2007)
+**First performed:** September 24, 2007 (Asbury Park, NJ)
 **Last performed:** August 30, 2008 (Milwaukee, WI)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every month!

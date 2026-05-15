@@ -16,7 +16,7 @@ Bruce referenced that speech when he honored that request in Tampere, pausing mi
 
 Bruce acknowledged the song’s theme as one he was personally very familiar with… but not for many, many, *many* years. Take a listen below.
 
-[Watch Video Highlight](https://videopress.com/embed/76xBJLMt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/76xBJLMt)
 
 Bruce’s soulful performance that day was perfectly suited for both his vocal and patter style; serious kudos to the fan who requested it.
 
@@ -25,5 +25,5 @@ Bruce’s soulful performance that day was perfectly suited for both his vocal a
 [Watch on Youtube: Bruce Springsteen & ESB Tampere 09 Dark End Of The Street complete video](https://www.youtube.com/watch?v=aUqh2qJrraY)
 
 **The Dark End of the Street**
-**First performed:** June 2, 2009 (Tampere, Finland)  
+**First performed:** June 2, 2009 (Tampere, Finland)
 **Last performed:** June 2, 2009 (Tampere, Finland)

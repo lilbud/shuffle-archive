@@ -60,8 +60,8 @@ I’d consider the odds to be pretty long against us hearing it again. Then agai
 
 **Two For the Road**
 **Recorded** February 1987  
-**Released:** *Tunnel of Love* (B-side, 1987), *Tracks* (1998)  
-**First performed:** August 1, 2005 (Cincinnati, OH)  
+**Released:** *Tunnel of Love* (B-side, 1987), *Tracks* (1998)
+**First performed:** August 1, 2005 (Cincinnati, OH)
 **Last performed:** May 22, 2014 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

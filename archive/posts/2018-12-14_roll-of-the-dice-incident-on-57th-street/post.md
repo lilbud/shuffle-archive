@@ -168,7 +168,7 @@ But then it disappeared. Between 1978 and 1999, “Incident” came out only onc
 
 For almost twenty years, “Incident” went missing in action. Fans began to wonder if they’d *ever* hear it again. So imagine the delight of the fans in attendance when Bruce and the E Street Band opened their final Reunion Tour show in Philadelphia with it, as powerful and majestic as ever:
 
-[Watch Video Highlight](https://videopress.com/embed/S2mzhjFW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/S2mzhjFW)
 
 (It’s amazing that we have so many well-preserved documents of such a rare song, let alone historically significant ones.)
 
@@ -184,8 +184,8 @@ I’ll leave you with one of Bruce’s most recent performances, from the show w
 
 **Incident on 57th Street**
 **Recorded** September 23, 1973  
-**Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)  
-**First performed:** October 13, 1973 (Washington, DC)  
+**Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)
+**First performed:** October 13, 1973 (Washington, DC)
 **Last performed:** January 22, 2017 (Perth, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

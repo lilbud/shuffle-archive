@@ -8,7 +8,7 @@
 
 **1978:** Bruce and the E Street Band play their second of two nights at Berkeley Community Theater on the Darkness Tour, with Bruce’s parents and sister Pam in attendance. This show is available as part of Bruce’s official archive series. Listen in on the soundcheck below to hear the band working out “New York City Serenade.” Had they played it, it would have been the only performance of the song between the Born to Run Tour and the Reunion Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/PDRS9yN0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PDRS9yN0)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=62WAhkKMMr0)
 
@@ -18,7 +18,7 @@
 
 **1984:** It’s Night Two on the Born in the U.S.A. Tour in St. Paul, and Bruce is still a bit rusty, forgetting the lyrics to both “Jungleland” and “Open All Night.” The latter is understandable, as it’s the very first E Street Band performance of the song, along with the live premiere of “Reason to Believe,” “Nebraska,” and “Pink Cadillac.”
 
-[Watch Video Highlight](https://videopress.com/embed/lPrBqD0H?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lPrBqD0H)
 
 [Watch Video Highlight](https://videopress.com/embed/NqB6kNCG?hd=0&cover=1)
 

@@ -40,7 +40,7 @@ Bruce debuted “Quarter to Three” as his final encore at New York’s Avery F
 
 You can hear that abrupt ending in the bootleg recording below.
 
-[Watch Video Highlight](https://videopress.com/embed/79joqG9f?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/79joqG9f)
 
 Fast forward to the Born to Run Tour a year later at Hammersmith Odeon (after Bruce and the band had performed the song dozens of times), and “Quarter to Three” was honed to a tight, frenetic showpiece, with The Big Man proving a suitable Daddy G stand-in.
 
@@ -52,7 +52,7 @@ Bruce and the E Street Band performed “Quarter to Three” more than 75 times 
 
 One of the songs Bruce and Bonds performed that night was the song Bruce used to wake his family with in the middle of the night, and the following week Bruce asked Gary to reciprocate at the E Street Band’s Palladium show. Their duet on “Quarter to Three”–captured below on a bootleg tape–marked their very first performance together on an E Street stage.
 
-[Watch Video Highlight](https://videopress.com/embed/OMKZJIxG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OMKZJIxG)
 
 Bruce continued performing “Quarter to Three” throughout the Darkness Tour, accompanied by stage antics that went increasingly over the top. Proclaiming himself “a prisoner of rock and roll,” he was more possessed than imprisoned by it.
 
@@ -75,7 +75,7 @@ Now 95 years old, Daddy G still performs from time to time, and when he does, he
 [Watch on Youtube: Daddy G 8/31/2014 Church Street Celebration](https://www.youtube.com/watch?v=H3jWn4e60ZE)
 
 **Quarter to Three**
-**First performed:** October 4, 1974 (New York City, NY)  
+**First performed:** October 4, 1974 (New York City, NY)
 **Last performed:** May 17, 2014 (Uncasville, CT)
 
 (c) August 21, 2021

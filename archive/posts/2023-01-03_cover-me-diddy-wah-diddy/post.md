@@ -18,7 +18,7 @@ Despite never becoming a big hit, “Diddy Wah Diddy” remained a favorite cove
 
 Bruce started making frequent on-stage appearances with Joe and The Houserockers in the mid-nineties [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) era, and “Diddy Wah Diddy” was a fun and frequent cover in their set lists. And given the two rockers’ East Coast upbringing, it’s not surprising that their version owed a lot to The Remains.
 
-[Watch Video Highlight](https://videopress.com/embed/ONTjWGNN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ONTjWGNN)
 
 But Bruce’s definitive “Diddy Wah Diddy” performances came in a pair of show-opening crowd-pleasers at the first-ever concerts (by *anyone*) at Fenway Park, in September 2003.
 
@@ -35,7 +35,7 @@ It was an inspired choice–for fans anxious for release in that freshly post-9/
 Here’s hoping we all get to make a return visit soon.
 
 **Diddy Wah Diddy**
-**First performed:** August 20, 1994 (Long Branch, NJ)  
+**First performed:** August 20, 1994 (Long Branch, NJ)
 **Last performed:** September 7, 2003 (Boston, MA)
 
 

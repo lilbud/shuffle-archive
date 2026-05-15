@@ -8,7 +8,7 @@ Although Bruce sings and/or plays on every other track on the album, Bruce convi
 
 But that didn’t stop Joe and Bruce from performing it live together, which they did when Joe debuted several tracks from his upcoming album at Tradewinds in the summer of ’95…
 
-[Watch Video Highlight](https://videopress.com/embed/SKrUmcO2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SKrUmcO2)
 
 …and for all six nights of Joe’s “October Assault” mini-tour following the album’s release. Bruce was an honorary Houserocker for the entire tour, and “American Babylon” featured prominently at the heart of the set every night.
 
@@ -19,7 +19,7 @@ Opening night at The Stone Pony was captured for posterity on *American Babylon:
 Bruce and Joe have shared a stage together many times since, but after a one-off appearance in Pittsburgh in 1998, “American Babylon” dropped out of rotation as one of their go-to on-stage collaborations.
 
 **American Babylon**
-**First performed:** July 22, 1995 (Sea Bright, NJ)  
+**First performed:** July 22, 1995 (Sea Bright, NJ)
 **Last Performed:** March 2, 1998 (Pittsburgh, PA)
 
 

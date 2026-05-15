@@ -10,7 +10,7 @@ Just a few months later, Bruce’s songwriting would turn dark, leading him to h
 
 Perhaps the most charming song-that-never-was from this period is a confection known as “My Heart Is an Open Book.”
 
-[Watch Video Highlight](https://videopress.com/embed/tOMgmcPc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tOMgmcPc)
 
 Employing a similar conceit to Bruce’s much-much-later composition “[Seven Angels,](https://estreetshuffle.com/index.php/2018/06/07/roll-of-the-dice-seven-angels/)” “My Heart Is an Open Book” contrasts a transparently steadfast lover with the inscrutable object of his affection.
 
@@ -48,7 +48,7 @@ Bruce’s lyrics are unclear here at times–perhaps bluffed, even–but this is
 *My heart is an open book to you*
 
 **My Heart Is an Open Book**
-**Recorded** March-April 1981 (home demo)  
+**Recorded** March-April 1981 (home demo)
 **Never released**
 **Never performed**
 

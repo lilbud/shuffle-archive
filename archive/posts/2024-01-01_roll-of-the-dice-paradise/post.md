@@ -87,8 +87,8 @@ Have a different or personal take on “Paradise?” Share your thoughts below!
 
 **Paradise**
 **Recorded** February-March, 2002  
-**Released:** *The Rising* (2002)  
-**First performed:** July 30, 2002 (Asbury Park, NJ)  
+**Released:** *The Rising* (2002)
+**First performed:** July 30, 2002 (Asbury Park, NJ)
 **Last performed:** August 13, 2005 (Vancouver, BC)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

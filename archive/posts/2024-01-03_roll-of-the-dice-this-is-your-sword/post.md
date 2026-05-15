@@ -65,8 +65,8 @@ But context is king, and if we’re lucky enough to get at least one more Sessio
 
 **This Is Your Sword**
 **Recorded** 2013  
-**Released:** *High Hopes* (2014)  
-**First performed:** January 29, 2014 (Cape Town, South Africa)  
+**Released:** *High Hopes* (2014)
+**First performed:** January 29, 2014 (Cape Town, South Africa)
 **Last performed:** May 13, 2014 (Albany, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

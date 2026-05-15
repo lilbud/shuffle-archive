@@ -63,7 +63,7 @@ So, yeah: this is a lost track that probably should have stayed lost.
 
 **Little Girl Like You**
 **Recorded:** January 20, 1983  
-**Released:** *L.A. Garage Sessions ’83* (2025)  
+**Released:** *L.A. Garage Sessions ’83* (2025)
 **Never performed**
 
 © June 15, 2018 / December 12, 2025

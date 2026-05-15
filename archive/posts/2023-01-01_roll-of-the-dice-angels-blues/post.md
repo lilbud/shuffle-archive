@@ -8,7 +8,7 @@ All I know is it’s one hell of a rave-up. Combining the swing of “[Kitty’s
 
 Take a listen to Bruce’s only known performance of “Angel’s Blues.”
 
-[Watch Video Highlight](https://videopress.com/embed/115MvWxX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/115MvWxX)
 
 Bruce’s lyrics seem very unfinished–he hadn’t quite mastered the car-as-sexual-metaphor thing yet, and his comparisons sound forced, almost bolted on:
 
@@ -77,7 +77,7 @@ The rest is pre-history.
 
 **Angel’s Blues**
 Never recorded**
-**First performed:** March 10, 1974 (Houston, TX)  
+**First performed:** March 10, 1974 (Houston, TX)
 **Last performed:** March 10, 1974 (Houston, TX)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

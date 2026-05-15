@@ -30,21 +30,21 @@
 
 **2012:** Bruce brings the Wrecking Ball Tour to Madison Square Garden for the first of two nights. The setlist features the tour premiere of “[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)” and a very rare “[Lion’s Den](https://estreetshuffle.com/index.php/2019/06/21/roll-of-the-dice-lions-den/),” only its fourth performance and its first in over a decade.
 
-[Watch Video Highlight](https://videopress.com/embed/QvFl1u7J?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QvFl1u7J)
 
-[Watch Video Highlight](https://videopress.com/embed/jwZqaeuM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jwZqaeuM)
 
-[Watch Video Highlight](https://videopress.com/embed/89ZQmld7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/89ZQmld7)
 
-[Watch Video Highlight](https://videopress.com/embed/IS8g7Ld8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IS8g7Ld8)
 
 [Watch on Youtube: Bruce Springsteen concert at Madison Square Garden 04/06/12](https://www.youtube.com/watch?v=F9SuCBFcZlo)
 
 **2014:** Back in the U.S. after their Australia/New Zealand tour, Bruce and the E Street Band play a free concert at the NCAA March Madness Music Festival in Dallas. Bruce continues his streak of creative opening covers with Van Halen’s “[Jump](https://estreetshuffle.com/index.php/2019/04/02/cover-me-jump/).”
 
-[Watch Video Highlight](https://videopress.com/embed/AclwSTf7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AclwSTf7)
 
-[Watch Video Highlight](https://videopress.com/embed/Bel2SeJM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Bel2SeJM)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring ["Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" in place of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)." In attendance tonight: actress Gina Gershon.
 

@@ -12,7 +12,7 @@
 
 **1978:** The Darkness Tour stops at Omaha’s Civic Auditorium Music Hall. Bruce won’t play in Omaha again for thirty years.
 
-[Watch Video Highlight](https://videopress.com/embed/KoQxwEIi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KoQxwEIi)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/06/Omaha_World_Herald_1978_06_15_35.jpg)
 
@@ -32,7 +32,7 @@
 
 **2003:** The Rising Tour reaches Copenhagen, where Bruce tour premieres “Take ‘Em as They Come” and “Point Blank.”
 
-[Watch Video Highlight](https://videopress.com/embed/CzZvRLOA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CzZvRLOA)
 
 **2004:** Volunteers remove and rescue the famous mural of Tillie from the condemned Palace Amusements in Asbury Park. Local news covers the event and plays up the Bruce connection.
 
@@ -40,7 +40,7 @@
 
 Meanwhile, Patti films a performance and interview for *The Late Show With David Letterman* to promote her new album, *23rd Street Lullaby.*
 
-[Watch Video Highlight](https://videopress.com/embed/EWSATSzj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EWSATSzj)
 
 **2006:** Bruce and the Sessions Band make a tour stop at the Bradley Center in Milwaukee.
 
@@ -50,7 +50,7 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 **2008:** Bruce plays Wales for the first time when the Magic Tour makes a stop at Millennium Stadium in Cardiff. Bruce opens with the tour premiere of “From Small Things (Big Things One Day Come)” for the occasion.
 
-[Watch Video Highlight](https://videopress.com/embed/SnvCfI37?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SnvCfI37)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/The_Buffalo_News_Sat__Jun_21__2008_-scaled.jpg)
 

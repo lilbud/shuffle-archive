@@ -12,7 +12,7 @@ Don’t give me any of that “You had me at hello” nonsense. The message of t
 
 Let’s take a careful listen, and then we’ll dig in. In fact, let’s start with the beautiful but rarely seen official video–it’s one of Bruce’s very best, and it gets the point across better than any movie montage could.
 
-[Watch Video Highlight](https://videopress.com/embed/1Z00tuHY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1Z00tuHY)
 
 (Yes, that video bears remarkable structural and stylistic similarity to the video for “[Girls in Their Summer Clothes”](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/) (right down to the color palette), and watching them back-to-back highlights the toll that time and age exact. The narrator of “Girls in Their Summer Clothes” has long since dropped his hammer and his vise, and he knows that garden is going to stay far out of reach.)
 
@@ -76,15 +76,15 @@ And that’s the message of *Jerry Maguire* as well. Those who swoon at “You c
 
 But before we go, we must discuss the coda, because it’s one of the Big Man’s most sublime performances on record. I’ll rank it right up there with “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” and “Jungleland” in emotional power, and Clarence knew it before he even played it:
 
-[Watch Video Highlight](https://videopress.com/embed/yHSMTjnM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yHSMTjnM)
 
 He wasn’t kidding. Watch Clarence’s actual performance below–you can feel him conjuring the song’s tenderness out of thin air.
 
-[Watch Video Highlight](https://videopress.com/embed/ubLqo5Ic?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ubLqo5Ic)
 
 Clarence’s solo notwithstanding, “Secret Garden” wasn’t perfection from the outset. An early version reveals that the essential elements are present, but the drums are too pronounced, the synth a bit too harsh, Bruce’s vocals a tad detached, and Clarence all but absent.
 
-[Watch Video Highlight](https://videopress.com/embed/9skcQNaK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9skcQNaK)
 
 Even once Bruce had the final take in the can, he didn’t stop tinkering just yet: he had David Kahne layer a string arrangement on top of the song, to distracting effect. Fans argue about which version is stronger, but in my mind there’s no question: bigfooting Clarence’s solo is unforgivable. You can find this version on the *Blood Brothers* EP if you want to decide for yourself, or listen below.
 
@@ -92,7 +92,7 @@ Even once Bruce had the final take in the can, he didn’t stop tinkering just y
 
 Thankfully Bruce recognized that the strings were too much and opted for the stringless version for the song’s original *Greatest Hits* release–and his explanation below nails it perfectly.
 
-[Watch Video Highlight](https://videopress.com/embed/RlqJlSpB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RlqJlSpB)
 
 In concert, Bruce has played “Secret Garden” a mere seven times ever, and it remains high on my chase list. (He had it on the setlist at his last concert in Philadelphia but opted for a repeat of “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” instead. Sigh.)
 
@@ -112,8 +112,8 @@ Now I’m going to Tony Roma’s.
 
 **Secret Garden**
 **Recorded** January 1995  
-**Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)  
-**First performed:** April 5, 1995 (New York City, NY)  
+**Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)
+**First performed:** April 5, 1995 (New York City, NY)
 **Last performed:** February 14, 2017 (Brisbane, Australia)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

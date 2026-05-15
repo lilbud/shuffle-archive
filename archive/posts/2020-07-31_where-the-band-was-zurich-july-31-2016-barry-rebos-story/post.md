@@ -38,15 +38,15 @@ To me, especially that evening, it’s about the fans. There's little hope to ca
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/sa-rotated.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2020/07/tattoo-rotated.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/H6u1ZD5c?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/H6u1ZD5c)
 
-[Watch Video Highlight](https://videopress.com/embed/WXiL7pYv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WXiL7pYv)
 
-[Watch Video Highlight](https://videopress.com/embed/vAiWeEsE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vAiWeEsE)
 
-[Watch Video Highlight](https://videopress.com/embed/PxmnjiFP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PxmnjiFP)
 
-[Watch Video Highlight](https://videopress.com/embed/PrheryUV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PrheryUV)
 
 What's your story?
 

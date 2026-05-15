@@ -52,7 +52,7 @@ Over the years, Joe’s been an active school and community fundraiser, helping 
 
 One of the songs Bruce and Joe played that night was “[Pumping Iron](https://estreetshuffle.com/index.php/2018/11/03/meeting-across-the-river-bruce-springsteen-and-joe-grushecky-pumping-iron/),” the most enduring and Pittsburghian track from *Have a Good Time*.
 
-[Watch Video Highlight](https://videopress.com/embed/gYVg7t5Y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gYVg7t5Y)
 
 “Pumping Iron” has become Joe’s anthem, and over the years, he and Bruce have played it together 25 times. To put that in perspective, until Bruce started playing *The River* in full in 2016, that’s about the same number of times he played “[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)” along with about an album-side worth of tracks from Bruce’s own 1980 LP.
 

@@ -29,18 +29,18 @@ Both are great songs, but “Looking For Elvis” fit the Magic Tour’s theme f
 
 Now, if you listened to Bruce’s radio show last summer you might have caught him and Patti discussing “Looking For Elvis” in Episode 9–and Bruce made a curious recollection:
 
-[Watch Video Highlight](https://videopress.com/embed/8pX05LTC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8pX05LTC)
 
 Bruce was wrong, though. They didn’t cut the track at Convention Hall. But as Patti correctly recalled, they *did* perform it live there (on a closed set) for an Elvis documentary called *Viva Las Vegas* (which you can find on DVD if you’re so inclined).
 
 And that live performance is very worth watching–it’s even stronger than the studio track. Bruce whoops up a storm in his extended solo, and Patti’s vocals are so angry that she uncharacteristically growls at times. Capping off with a “[Mystery Train](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)” tag, this is an outstanding performance that deserves more views than it’s received.
 
-[Watch Video Highlight](https://videopress.com/embed/l9Jujnvp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/l9Jujnvp)
 
 **Play It As It Lays**
 **Recorded** Unknown  
-**Released:** *Play It As It Lays* (2007)  
-**First performed:** August 2007 (exact date unknown)  
+**Released:** *Play It As It Lays* (2007)
+**First performed:** August 2007 (exact date unknown)
 **Last performed:** August 2007 (exact date unknown)
 
 

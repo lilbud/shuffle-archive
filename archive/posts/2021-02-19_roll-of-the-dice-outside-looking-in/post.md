@@ -63,8 +63,8 @@ Bruce was wise to leave it off of *Darkness* but equally wise to dust it off thr
 
 **Outside Looking In**
 **Recorded** September 27, 1977  
-**Released:** *The Promise* (2010)  
-**First performed:** December 7, 2010 (Asbury Park, NJ)  
+**Released:** *The Promise* (2010)
+**First performed:** December 7, 2010 (Asbury Park, NJ)
 **Last performed:** December 7, 2010 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

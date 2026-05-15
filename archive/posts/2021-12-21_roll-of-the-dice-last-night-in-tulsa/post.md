@@ -4,7 +4,7 @@ Every once in a while, Bruce writes a pure pop song like “[Surprise, Surprise]
 
 That was as true at the beginning as it is now. Take “Last Night in Tulsa,” for example.
 
-[Watch Video Highlight](https://videopress.com/embed/9Hc9f0XV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9Hc9f0XV)
 
 Bruce wrote and performed “Last Night in Tulsa” during his Bruce Springsteen Band period, and although there are at least three known performances of it, this is the only one that widely circulates.
 
@@ -55,7 +55,7 @@ See what I mean? “Last Night in Tulsa” is pleasant enough, and I suspect tha
 But it’s not likely to make any fan’s favorite list, and even if Bruce seems to be rediscovering his pre-label music of late, I wouldn’t count on Bruce acknowledging “Last Night in Tulsa” any time soon (if ever).
 
 **Last Night in Tulsa**
-**First performed:** July 10, 1971 (Lincroft, NJ)  
+**First performed:** July 10, 1971 (Lincroft, NJ)
 **Last performed:** July 29, 1971 (South Amboy, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

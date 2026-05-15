@@ -8,7 +8,7 @@ Dear Bruce , just been blown away by your Stayin Alive. You brought it back to l
 
 [@springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw)
 
-— Barry Gibb (@GibbBarry) 
+— Barry Gibb (@GibbBarry)
 
 [February 26, 2014](https://twitter.com/GibbBarry/status/438814997020692480?ref_src=twsrc%5Etfw)
 

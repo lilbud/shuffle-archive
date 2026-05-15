@@ -34,9 +34,9 @@
 
 **1995:** Bruce makes a surprise appearance at Tradewinds in Sea Bright with Joe Grushecky and the Houserockers for an *American Babylon*-heavy set, with a few Springsteen originals added for good measure. Stevie and Max join for four songs as well.
 
-[Watch Video Highlight](https://videopress.com/embed/0qtUKoWP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0qtUKoWP)
 
-[Watch Video Highlight](https://videopress.com/embed/ajyjMPPt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ajyjMPPt)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/07/1995-0722.jpg)
 

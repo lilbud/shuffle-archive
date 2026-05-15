@@ -68,13 +68,13 @@ Donna released “Protection” as the second single from her self-titled album 
 
 As for Bruce’s own version, it remains complete but unreleased in his vault. To this day, he’s never performed it in concert, although he may have come close in 1988, when he rehearsed it for the Tunnel of Love Express Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/QGAplFJi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QGAplFJi)
 
 Despite Summer’s inclusion of it on her own album, “Protection” was at one point a contender for *Born in the U.S.A.* as well, with Landau in particular lobbying for its inclusion. If the long-rumored *Born in the U.S.A.* anniversary box set ever sees the light of day, there’s a good chance we may finally see an official release of Bruce’s version of “Protection.”
 
 **Protection**
-**Recorded** February 23, 1982 (E Street Band version); March 1982 (Donna Summer version)  
-**Released:** *Donna Summer* (1982)  
+**Recorded** February 23, 1982 (E Street Band version); March 1982 (Donna Summer version)
+**Released:** *Donna Summer* (1982)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

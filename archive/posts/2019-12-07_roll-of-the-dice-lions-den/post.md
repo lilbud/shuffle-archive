@@ -91,12 +91,12 @@ Only once in the post-Reunion era did “Lion’s Den” get an outing beyond th
 
 **Bonus:** Here’s an early work-in-progress outtake of “Lion’s Den.” It’s unrecognizable except for the central conceit and a wordless chorus, but it’s a good example of how Bruce sometimes fixes his sights on an idea and sets out in search of the right song to give it a home.
 
-[Watch Video Highlight](https://videopress.com/embed/NISWyTEK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NISWyTEK)
 
 **Lion’s Den**
-**Recorded** January 25, 1982 (core recording), 1998 (horns)  
-**Released:** *Tracks* (1998), *18 Tracks* (1999)  
-**First performed:** June 3, 1999 (Paris, France)  
+**Recorded** January 25, 1982 (core recording), 1998 (horns)
+**Released:** *Tracks* (1998), *18 Tracks* (1999)
+**First performed:** June 3, 1999 (Paris, France)
 **Last performed:** November 1, 2012 (University Park, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

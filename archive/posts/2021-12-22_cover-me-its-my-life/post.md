@@ -4,7 +4,7 @@ For much of the Born to Run Tour, Bruce had been in full-on romantic mode, barre
 
 And then out of nowhere, on the night of December 12, 1975, Bruce pulled “It’s My Life” out of his hat. It was a complete audible–Max Weinberg recalled that the band had never even rehearsed it.
 
-[Watch Video Highlight](https://videopress.com/embed/ifW9xsdw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ifW9xsdw)
 
 I’m not entirely certain how much I trust Max’s recollection, though. Listening to the muddy recording of that debut performance, while we can certainly hear the band’s tentativeness and it was clearly an audible, it’s hard for me to imagine that the arrangement itself was spontaneous.
 
@@ -41,7 +41,7 @@ After a final outing on October 1, 1978 that capped 88 performances of the song,
 [Watch on Youtube: It's My Life - Bruce Springsteen circa 1975](https://www.youtube.com/watch?v=uU99NVwlKRo)
 
 **It’s My Life**
-**First performed:** December 12, 1975 (Greenvale, NY)  
+**First performed:** December 12, 1975 (Greenvale, NY)
 **Last performed:** October 1, 1978 (Atlanta, GA)
 
 

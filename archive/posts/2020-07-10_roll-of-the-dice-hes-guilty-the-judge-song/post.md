@@ -18,7 +18,7 @@ See what I mean? Bruce’s Steel Mill material is typically more jam than song�
 
 But it’s only a suggestion, because their actual studio performance stretched out much longer–Bruce edited the track, presumably for time and modern sensibilities. Here’s the original version of “He’s Guilty (The Judge Song)” in all its glory:
 
-[Watch Video Highlight](https://videopress.com/embed/ruLW1gSF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ruLW1gSF)
 
 Lyrically, “He’s Guilty (The Judge Song)” is slight–there’s very little to analyze or dissect. That said, there are a few lines worth at least annotating:
 
@@ -66,8 +66,8 @@ https://www.youtube.com/watch?v=ElFaxyfclRc
 
 **He’s Guilty (The Judge Song)**
 **Recorded:** February 22, 1970  
-**Released:** *Chapter and Verse* (2016)  
-**First performed:** January 13, 1970 (San Francisco, CA)  
+**Released:** *Chapter and Verse* (2016)
+**First performed:** January 13, 1970 (San Francisco, CA)
 **Last performed:** January 23, 1971 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

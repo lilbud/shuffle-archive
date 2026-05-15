@@ -16,7 +16,7 @@ That’s understandable for his debut performance, because it was at a London ka
 
 His second performance came barely a month later–and while it was at a true Springsteen concert at Madison Square Garden, it featured guest artist Terence Trent D’Arby on lead vocals, with Bruce and his new band in support.
 
-[Watch Video Highlight](https://videopress.com/embed/xUT7OVLo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xUT7OVLo)
 
 Bruce’s third and final “Jumpin’ Jack Flash” performance was also a team-up, in a Berlin club called Cafe Eckstein in the summer of 1995.
 
@@ -31,7 +31,7 @@ We can tell, because the performance was captured on video.
 It’s been more than a quarter-century since that Cafe Eckstein performance, and “Jumpin’ Jack Flash” has yet to re-surface at a Springsteen concert. Don’t count it out for good though… given Bruce’s fondness for the Stones and the song’s immense popularity, we might hear this one again sometime soon.
 
 **Jumpin’ Jack Flash**
-**First performed:** May 24, 1993 (London, England)  
+**First performed:** May 24, 1993 (London, England)
 **Last performed:** July 9, 1995 (Berlin, Germany)
 
 

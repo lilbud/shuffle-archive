@@ -25,7 +25,7 @@ There’s a lot that I love about their performance that night, but I think my f
 [Watch on Youtube: Patti Smith Bruce Springsteen Michael Stipe 2018-04-23 PEOPLE HAVE THE POWER Beacon Th NYC](https://www.youtube.com/watch?v=FDu8kQOEDa4)
 
 **People Have the Power**
-**First performed:** October 1, 2004 (Philadelphia, PA)  
+**First performed:** October 1, 2004 (Philadelphia, PA)
 **Last performed:** April 23, 2008 (New York City, NY)
 
 (c) January 9, 2020

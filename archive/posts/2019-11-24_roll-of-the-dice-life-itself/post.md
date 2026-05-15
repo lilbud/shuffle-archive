@@ -45,7 +45,7 @@ We’re still waiting to hear “Life Itself” performed live; Bruce has yet to
 
 **Life Itself**
 **Recorded** 2007-2008  
-**Released:** “Life Itself” (single) (2008); *Working on a Dream* (2009)  
+**Released:** “Life Itself” (single) (2008); *Working on a Dream* (2009)
 **Never Performed**
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

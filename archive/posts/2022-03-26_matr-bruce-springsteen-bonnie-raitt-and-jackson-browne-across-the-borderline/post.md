@@ -2,7 +2,7 @@ In 1982, Jack Nicholson and Harvey Keitel starred in a film about a corrupt U.S.
 
 One of Cooder’s songs played over both the opening and end credits: a bittersweet ballad called “Across the Borderline,” performed by Freddy Fender.
 
-[Watch Video Highlight](https://videopress.com/embed/9R60aGa2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9R60aGa2)
 
 “Across the Borderline” features such a lovely melody and such uplifting verses (they inspired two of Bruce’s own songs, “[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)” and “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)“) that it’s easy to miss the fact that the choruses offer a hard dose of reality.
 
@@ -45,7 +45,7 @@ All three icons were in peak form that night, their voices and instruments blend
 [Watch on Youtube: Bruce Springsteen | Across The Borderline - Denver - 19/11/2012](https://www.youtube.com/watch?v=3WqKKf0jfoE)
 
 **Across the Borderline**
-**First performed:** April 27, 1988 (Los Angeles, CA)  
+**First performed:** April 27, 1988 (Los Angeles, CA)
 **Last performed:** November 19, 2012 (Denver, CA)
 
 

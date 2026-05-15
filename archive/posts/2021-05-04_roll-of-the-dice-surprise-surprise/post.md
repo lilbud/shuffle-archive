@@ -61,8 +61,8 @@ So let’s hope Bruce can turn his brain off at night and sleep peacefully. He d
 
 **Surprise, Surprise**
 **Recorded:** 2007-2008  
-**Released:** *Working on a Dream* (2009)  
-**First performed:** March 23, 2009 (Asbury Park, NJ)  
+**Released:** *Working on a Dream* (2009)
+**First performed:** March 23, 2009 (Asbury Park, NJ)
 **Last performed:** May 14, 2014 (Hershey, PA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

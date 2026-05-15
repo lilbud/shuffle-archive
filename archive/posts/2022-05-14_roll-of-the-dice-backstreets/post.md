@@ -184,8 +184,8 @@ To date, Bruce has performed “Backstreets” an even 500 times. Let’s hope w
 
 **Backstreets**
 **Recorded** July 18, 1975  
-**Released:** *Born to Run* (1975)  
-**First performed:** August 8, 1975 (Akron, OH)  
+**Released:** *Born to Run* (1975)
+**First performed:** August 8, 1975 (Akron, OH)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

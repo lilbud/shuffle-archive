@@ -8,7 +8,7 @@ If our spotlight on “[You Better Be Nice to Me](https://estreetshuffle.com/ind
 
 On stage with Bruce are Steve Van Zandt (on bass), Vini Lopez, and Danny Federici, and all four players are clear and prominent in this astonishingly clear mix–so clear that you’ll have to keep reminding yourself that this recording is *fifty-one years old*.
 
-[Watch Video Highlight](https://videopress.com/embed/cntd6XuR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cntd6XuR)
 
 Bruce fashioned “Girlfriend Blues” in the classic blues mold and “my girl done left me” theme, and his lyrics clearly drew inspiration from Richard Fariña’s *Been Down So Long It Looks Like Up to Me,* which captivated the countercultural imagination upon its publication four years earlier. Bruce had undoubtedly read it by this time, as he acknowledges it post-song when an audience member catches the lyrical reference.
 
@@ -104,7 +104,7 @@ Sigh. Oh, Bruce…
 **Girlfriend Blues**
 Never recorded**
 **Never released**
-**First performed:** July 17, 1970 (Asbury Park, NJ)  
+**First performed:** July 17, 1970 (Asbury Park, NJ)
 **Last performed:** July 17, 1970 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

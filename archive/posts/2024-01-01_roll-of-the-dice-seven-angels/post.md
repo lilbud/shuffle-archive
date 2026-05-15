@@ -35,8 +35,8 @@ Here’s hoping we see an encore performance soon!
 
 **Seven Angels**
 **Recorded:** June 29, 1990  
-**Released:** *Tracks* (1998)  
-**First performed:** May 18, 2014 (Uncasville, CT)  
+**Released:** *Tracks* (1998)
+**First performed:** May 18, 2014 (Uncasville, CT)
 **Last performed:** May 18, 2014 (Uncasville, CT)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

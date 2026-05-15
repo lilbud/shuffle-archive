@@ -75,12 +75,12 @@ I was genuinely surprised that “Ricky” didn’t get an encore during the 201
 *Well daddy’s pullin’ out his hair, he says, “The girl ain’t got no direction”*
 *She don’t care to bring her boyfriends home to pass daddy’s inspection*
 
-[Watch Video Highlight](https://videopress.com/embed/Zef83eCx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Zef83eCx)
 
 **Ricky Wants a Man of Her Own**
 **Recorded:** July 16, 1979  
-**Released:** *Tracks* (1998), *The Ties That Bind: The River Collection* (2015)  
-**First performed:** August 24, 2008 (Kansas City, MO)  
+**Released:** *Tracks* (1998), *The Ties That Bind: The River Collection* (2015)
+**First performed:** August 24, 2008 (Kansas City, MO)
 **Last performed:** August 24, 2008 (Kansas City, MO)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

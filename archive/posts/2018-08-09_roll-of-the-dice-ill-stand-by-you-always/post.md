@@ -27,7 +27,7 @@ But is it good? Bruce sure seems to think so. And Chris Columbus, the director f
 
 But because I’m an obsessive completist, let’s break it down:
 
-[Watch Video Highlight](https://videopress.com/embed/DfGqCrxF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DfGqCrxF)
 
 Musically, “I’ll Stand By You” has a soft, easy-listening vibe–kind of like “[Let’s Be Friends (Skin to Skin)](https://estreetshuffle.com/index.php/2018/03/02/roll-of-the-dice-lets-be-friends-skin-to-skin/)” but without the soul groove. To my ears, it’s flat and lifeless–almost the audio equivalent of stock photography.
 
@@ -71,7 +71,7 @@ Please, for the love of Clarence: nobody bring a sign.
 
 **I’ll Stand By You**  
 **Recorded:** 2001  
-**Released:** *Blinded by the Light (Original Motion Picture Soundtrack)* (2019)  
+**Released:** *Blinded by the Light (Original Motion Picture Soundtrack)* (2019)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

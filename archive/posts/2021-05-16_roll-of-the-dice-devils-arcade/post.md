@@ -113,8 +113,8 @@ Watch this complete performance of “Devil’s Arcade” from early in the tour
 
 **Devil’s Arcade**
 **Recorded** March-April 2007  
-**Released:** *Magic* (2007)  
-**First performed:** September 24, 2007 (Asbury Park, NJ)  
+**Released:** *Magic* (2007)
+**First performed:** September 24, 2007 (Asbury Park, NJ)
 **Last performed:** June 16, 2008 (Dusseldorf, Germany)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

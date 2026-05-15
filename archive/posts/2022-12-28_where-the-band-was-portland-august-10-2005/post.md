@@ -8,15 +8,15 @@ The setlist on this night was the second and my favorite of the four shows I saw
 
 From the one-off “Soul Driver” opener (my first time hearing it live, and to this day the only performance of it since the 1992-93 tour), to my very first “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/),” “[I Wish I Were Blind](https://estreetshuffle.com/index.php/2021/10/17/roll-of-the-dice-i-wish-i-were-blind/),” “[Nothing Man](https://estreetshuffle.com/index.php/2020/08/29/roll-of-the-dice-nothing-man/),” and “[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)” (my Oakland show was too early in the tour–Bruce hadn’t yet debuted that Suicide cover), to revelatory new arrangements for “[Ain’t Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/),” “[Part Man, Part Monkey](https://estreetshuffle.com/index.php/2022/02/19/roll-of-the-dice-part-man-part-monkey/)” and “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)” — not to mention an unexpected solo piano “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” and encore of “[Wild Billy’s Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)” — this show was a cascade of jaw-dropping surprises.
 
-[Watch Video Highlight](https://videopress.com/embed/h1KRiX86?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/h1KRiX86)
 
-[Watch Video Highlight](https://videopress.com/embed/RqIhKyTP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RqIhKyTP)
 
 But for my money, the highlight of highlights were the absolutely stunning and achingly beautiful performances of two of my [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) favorites: “[Valentine’s Day,](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)” and “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/).” Neither were tour premieres, but both were rarely played, and Bruce’s performance on each was sublime. I would have paid full price just to hear those two songs. Take a listen and see what I mean:
 
 [Watch on Youtube: Bruce Springsteen- One Step Up (Acoustic)](https://www.youtube.com/watch?v=uGhd7GBkLgI)
 
-[Watch Video Highlight](https://videopress.com/embed/xqCrH39h?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xqCrH39h)
 
 When the show inevitably drew to a close (those sets flew by), I was unprepared for the power of “Dream Baby Dream” performed live. I’d heard it on a few bootlegs, but bootlegs can’t capture the rapture and trance-like state in which Bruce performed the song–he truly seemed to lose himself in it, and when he finally stood up from the organ (which continued to play, in a bit of a magic trick) and waved goodbye, it felt like he’d left us with a benediction rather than an encore.
 

@@ -64,7 +64,7 @@ Interesting choice of words, there: “my *lonely* valentine.” Perhaps these a
 
 It’s something of a mystery why Bruce didn’t play “Valentine’s Day” on the Tunnel of Love tour, or any of the tours that came after. He rehearsed it before the tour, though, and you can hear the only known E Street Band take below. Admirably restrained at first, the horns overpower it as the song progresses, and maybe that’s why Bruce dropped it from the set.
 
-[Watch Video Highlight](https://videopress.com/embed/v4mjGEvF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/v4mjGEvF)
 
 For years, “Valentine’s Day” went unperformed, but then in the summer of 2005, Bruce rediscovered the song and premiered it on his solo acoustic tour.
 
@@ -77,8 +77,8 @@ When Bruce performed “Valentine’s Day” in Portland, he received a mid-set 
 “Valentine’s Day” has gone missing since that tour, however–it’s been absent now for almost as long as it went unperformed originally. But if the cards hold another acoustic tour in Bruce’s future, I suspect we haven’t heard the last of it.
 
 **Valentine’s Day****Recorded:** early 1987  
-**Released:** *Tunnel of Love* (1987)  
-**First performed:** July 23, 2005 (Atlanta, GA)  
+**Released:** *Tunnel of Love* (1987)
+**First performed:** July 23, 2005 (Atlanta, GA)
 **Last performed:** October 21, 2005 (Providence, RI)
 
 (c) June 12, 2018

@@ -6,7 +6,7 @@ But this one’s an exception.
 
 Written and recorded during the Nebraska era, “Danger Zone” is tender, warm, and unlike anything else Bruce recorded during those years. Let’s take a listen:
 
-[Watch Video Highlight](https://videopress.com/embed/ovwt7ZtQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ovwt7ZtQ)
 
 If there’s a through line to be drawn from “Danger Zone,” it might be one that threads through “Child Bride” on the way to “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).”
 
@@ -45,7 +45,7 @@ But the thing I find most fascinating about “Danger Zone” is that it’s so 
 We’ll very likely never know how “Danger Zone” might have turned out, and that’s too bad. I suspect it would have been a beautiful and unique addition to his catalog.
 
 **Danger Zone**
-**Recorded** March-April 1981 (demo)  
+**Recorded** March-April 1981 (demo)
 **Never released**
 **Never performed**
 

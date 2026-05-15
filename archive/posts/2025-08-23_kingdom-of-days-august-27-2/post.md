@@ -6,7 +6,7 @@
 
 **1981:** Bruce and the E Street Band play their fifth show of a six-night stand at the Los Angeles Memorial Sports Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/OUrIQLcR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OUrIQLcR)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/08/Simi_Valley_Star_1981_08_30_4-scaled.jpg)
 
@@ -14,7 +14,7 @@
 
 **1985:** Bruce and the band play their second of two Born in the U.S.A. shows at CNE Stadium in Toronto.
 
-[Watch Video Highlight](https://videopress.com/embed/LRMoo2CB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LRMoo2CB)
 
 **1987:** Bruce joins Cats on a Smooth Surface at their gig at Tradewinds in Sea Bright, playing “[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)” and a selection of covers including “Proud Mary,” “[Fortunate Son](https://estreetshuffle.com/index.php/2019/11/09/matr-john-fogerty-and-bruce-springsteen-fortunate-son/),” “If You Need Me,” “[Around and Around](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/),” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”
 

@@ -74,7 +74,7 @@ I suspect Bruce wrote “Happy” more for himself and his family than for his a
 
 **Happy**
 **Recorded:** January 18, 1992  
-**Released:** *Tracks* (1998)  
+**Released:** *Tracks* (1998)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

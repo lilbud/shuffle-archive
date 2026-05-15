@@ -43,7 +43,7 @@ But what if they did?
 [Watch on Youtube: Bruce Springsteen Pretty Flamingo with story 8/30/16 MetLife Stadium, NJ](https://www.youtube.com/watch?v=kPcul80-FMc)
 
 **Pretty Flamingo**
-**First performed:** September 13, 1975 (Houston, TX)  
+**First performed:** September 13, 1975 (Houston, TX)
 **Last performed:** August 30, 2016 (East Rutherford, NJ)
 
 

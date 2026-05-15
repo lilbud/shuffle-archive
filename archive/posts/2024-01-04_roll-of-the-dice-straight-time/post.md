@@ -83,8 +83,8 @@ Bruce hasn’t played “Straight Time” in public since, and perhaps that’s 
 
 **Straight Time**
 **Recorded** April-June 1995  
-**Released:** *The Ghost of Tom Joad* (1995)  
-**First performed:** November 21, 1995 (New Brunswick, NJ)  
+**Released:** *The Ghost of Tom Joad* (1995)
+**First performed:** November 21, 1995 (New Brunswick, NJ)
 **Last performed:** June 22, 2005 (Copenhagen, Denmark)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

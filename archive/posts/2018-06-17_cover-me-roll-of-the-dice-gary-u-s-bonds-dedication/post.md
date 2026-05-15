@@ -71,12 +71,12 @@ They’re not Bruce’s deepest lyrics, but they would have been right at home o
 
 “Dedication” would surely be a highlight any time Bruce chooses to play it, but in all these years, he’s only played it once–with Bonds at the Cafe Bar in Long Branch, NJ, in the summer of 1989. No audio is known to exist of it, but here’s a pro-shot recording of Bonds performing it live in 1981:
 
-[Watch Video Highlight](https://videopress.com/embed/SsZa33Wh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SsZa33Wh)
 
 **Dedication**
-**Recorded** June-August 1980 (vocals–possibly using a December 1979 instrumental track)  
-**Released:** Dedication (1981)  
-**First performed** (by Bruce): July 2, 1989 (Long Branch, NJ)  
+**Recorded** June-August 1980 (vocals–possibly using a December 1979 instrumental track)
+**Released:** Dedication (1981)
+**First performed** (by Bruce): July 2, 1989 (Long Branch, NJ)
 **Last performed** (by Bruce): July 2, 1989 (Long Branch, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

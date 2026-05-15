@@ -37,7 +37,7 @@ And yet, despite wearing its influences on its sleeve, “Natural Magic” is sw
 **Natural Magic**
 Never recorded**
 **Never released**
-**First performed:** July 10, 1971 (Lincroft, NJ)  
+**First performed:** July 10, 1971 (Lincroft, NJ)
 **Last performed:** July 29, 1971 (South Amboy, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -66,7 +66,7 @@ Like much of Springsteen’s catalog, “My City of Ruins” was originally writ
 
 Fourteen years earlier, the metaphorical city was far more personal than political.
 
-[Watch Video Highlight](https://videopress.com/embed/jduXKftE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jduXKftE)
 
 It was 2012, and Bruce was on tour with a very different E Street Band than the one fans were used to seeing. There were some new faces, but there were also a couple of very big absences.
 
@@ -158,7 +158,7 @@ Rise up.
 
 **My City of Ruins**
 **Recorded** February-March 2002  
-**Released:** *The Rising* (2002)  
+**Released:** *The Rising* (2002)
 **First performed:** December 17, 2000  
 **Last performed:** May 2, 2026 (Atlanta, GA)
 

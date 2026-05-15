@@ -67,7 +67,7 @@ Those lines join “Is a dream a lie if it don’t come true, or is it something
 
 In the clip below, only days after Danny’s passing, you can see and hear the intensity and emotion in Bruce’s delivery. Are those tears or is it sweat the Bruce wipes from his eyes at around the 4:40 mark? Given that performance, it could easily be both.
 
-[Watch Video Highlight](https://videopress.com/embed/K0JeVPWW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/K0JeVPWW)
 
 “Gypsy Biker” was all but retired after the Magic Tour. Since then, it’s made but one appearance (thanks to a sign request), the following year in Charlottesville on the Working on a Dream Tour. It took a while for Bruce to remember how the song goes, but once it clicked, the performance was as intense as ever.
 
@@ -75,8 +75,8 @@ In the clip below, only days after Danny’s passing, you can see and hear the i
 
 **Gypsy Biker**
 **Recorded** March-May 2007  
-**Released:** *Magic* (2007)  
-**First performed:** September 27, 2007 (Asbury Park, NJ)  
+**Released:** *Magic* (2007)
+**First performed:** September 27, 2007 (Asbury Park, NJ)
 **Last performed:** May 5, 2009 (Charlottesville, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

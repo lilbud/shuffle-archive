@@ -4,7 +4,7 @@ Sometimes he’d introduce it with a story about a girl who did a body shot of t
 
 Whatever the night’s story, Bruce told it with the barest hint of discretion, a twinkle in his eye, and a disclaimer that all of the events happened “a very, very long time ago”… if they happened at all.
 
-[Watch Video Highlight](https://videopress.com/embed/DDiHI0Mz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DDiHI0Mz)
 
 Our tale starts innocently enough, although our narrator’s inner voice knows better from the outset.
 
@@ -52,7 +52,7 @@ It may be little known, but it counts.
 **It’s the Little Things That Count**
 **Recorded:** 1995, 2004  
 **Never released**
-**First performed:** November 27, 1995 (Los Angeles, CA)  
+**First performed:** November 27, 1995 (Los Angeles, CA)
 **Last performed:** February 20, 2003 (Somerville, MA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

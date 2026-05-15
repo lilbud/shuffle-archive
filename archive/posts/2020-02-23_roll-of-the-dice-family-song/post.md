@@ -85,7 +85,7 @@ I’m not ashamed to admit that I tear up when I listen to “Family Song.” Br
 
 **Bonus:** Here’s a second, earlier version of “Family Song,” considerably slower and less poignant than the later version above. Both were recorded in March 1972 (after Bruce had returned home from California) at Mike Appel’s office in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/fxxfruGh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fxxfruGh)
 
 **Family Song**
 **Recorded** March 1972  

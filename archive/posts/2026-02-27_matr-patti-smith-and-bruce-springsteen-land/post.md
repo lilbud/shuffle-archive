@@ -16,7 +16,7 @@ At the late show, their first song was Patti’s nine-and-a-half-minute opus, �
 
 “Land” was already one of Patti’s most popular live numbers, but you can hear the crowd react in astonished excitement when Patti introduces Bruce at about the 1:30 mark below. Take a listen to The Patti Smith Group, featuring Bruce Springsteen on guitar.
 
-[Watch Video Highlight](https://videopress.com/embed/I8cTWoUB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/I8cTWoUB)
 
 Bruce had a lot of one-time-only performances that night, but none more electrifying than “Land.”
 

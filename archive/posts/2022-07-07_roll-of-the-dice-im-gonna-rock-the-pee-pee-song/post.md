@@ -14,7 +14,7 @@ That’s what happened to Bruce Springsteen on December 8, 1992, when he just co
 
 While he was gone, Roy Bittan vamped with some New Orleans-style honky-tonk.
 
-[Watch Video Highlight](https://videopress.com/embed/5QY6ZeFJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5QY6ZeFJ)
 
 When he returned to the stage (with an audible sigh of relief), a much happier Springsteen improvised some lyrics on the spot:
 
@@ -31,7 +31,7 @@ He hasn’t performed it since, but I bet he’s glad he hasn’t had to.
 **I’m Gonna Rock (The Pee Pee Song)**
 Never recorded**
 **Never released**
-**First performed:** December 8, 1992 (Philadelphia, PA)  
+**First performed:** December 8, 1992 (Philadelphia, PA)
 **Last performed:** December 8, 1992 (Philadelphia, PA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

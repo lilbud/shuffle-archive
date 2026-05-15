@@ -32,7 +32,7 @@
 
 **1984:** The Born in the U.S.A. Tour treks across Ohio for the first of two nights in Richfield.
 
-[Watch Video Highlight](https://videopress.com/embed/CKvko768?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CKvko768)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-07-09a.jpg)
 
@@ -46,7 +46,7 @@
 
 **2008:** At Magic Night Two in Oslo, Bruce tour premieres “If I Should Fall Behind” (in its only tour appearance) and plays a rare “From Small Things (Big Things One Day Come).”
 
-[Watch Video Highlight](https://videopress.com/embed/jglWnfIg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jglWnfIg)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAhg1pDC7ytrIdtUd3PfUFf)
 

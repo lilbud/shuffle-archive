@@ -74,7 +74,7 @@ So perhaps it’s his delivery. We’re talking about a mega-star (at the time, 
 
 (In an unused take, the coda extends for a good thirty seconds longer than the official version. It’s a little *too* much release, in my opinion, but you can judge for yourself here.
 
-[Watch Video Highlight](https://videopress.com/embed/hOFeH9l2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hOFeH9l2)
 
 Jackson Browne said it best in *Rolling Stone:* “[Bruce] lets all this muscular playing fall away. The performance has its own power. It's something that exists in him. It's just there. And it's astonishing to see somebody who relied that much on physical power to let the music and his voice be understated like this. It's a great moment.”
 
@@ -102,8 +102,8 @@ But in a nice bit of circle closure, shortly before his death Johnny Cash record
 
 **I’m on Fire**
 **Recorded** May 11, 1982  
-**Released:** *Born in the U.S.A.* (1984)  
-**First performed:** June 29, 1984 (Saint Paul, MN)  
+**Released:** *Born in the U.S.A.* (1984)
+**First performed:** June 29, 1984 (Saint Paul, MN)
 **Last performed:** July 2, 2023 (Oslo, Norway)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

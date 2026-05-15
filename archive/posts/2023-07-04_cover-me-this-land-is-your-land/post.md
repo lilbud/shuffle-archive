@@ -83,7 +83,7 @@ Bruce Springsteen, for all his professed hesitancy in the pull-quote at the top 
 
 Springsteen was captivated with the beauty and poetry of Guthrie’s words, along with Guthrie’s ability to simultaneously hold his country accountable. He continued performing “This Land Is Your Land” throughout the remainder of the River Tour (even in Europe), and he reprised it in the summer of 1985 on the Born in the USA Tour. The version below (from Bruce’s tour-closing stand in Los Angeles) remains his definitive performance.
 
-[Watch Video Highlight](https://videopress.com/embed/G2VDe202?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/G2VDe202)
 
 When Bruce next toured in 1988, “This Land Is Your Land” didn’t fit his relationship-themed setlist, so he retired it from rotation. Other than a brief ensemble encore at a 1996 Woody Guthrie tribute concert, it would be decades before Bruce performed Guthrie’s signature song again in public.
 
@@ -110,7 +110,7 @@ Looking back on that day years later, Bruce marveled:
 *So on that day, Pete and myself and generations of young and old Americans – all colors, religious beliefs – I realized that sometimes things that come from the outside, they make their way in, to become a part of the beating heart of the nation. And on that day, when we sung that song, Americans – young and old, black and white, of all religious and political beliefs – were united, for a brief moment, by Woody's poetry.*
 
 **This Land Is Your Land**
-**Recorded** December 28, 1980 (live)**Released:** *Live 1975-85* (1986)**First performed:** December 28, 1980 (Uniondale, NY)  
+**Recorded** December 28, 1980 (live)**Released:** *Live 1975-85* (1986)**First performed:** December 28, 1980 (Uniondale, NY)
 **Last performed:** June 3, 2013 (Milan, Italy)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every month!

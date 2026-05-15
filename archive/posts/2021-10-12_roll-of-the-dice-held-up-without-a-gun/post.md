@@ -51,8 +51,8 @@ It would be more than 27 years before Bruce performed it again in concert, but w
 
 **Held Up Without a Gun**
 **Recorded** February 23 – April 1, 1980  
-**Released:** *The River: Outtakes* (2015)  
-**First performed:** December 31, 1980 (Uniondale, NY)  
+**Released:** *The River: Outtakes* (2015)
+**First performed:** December 31, 1980 (Uniondale, NY)
 **Last performed:** October 25, 2012 (Hartford, CT)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,6 +1,6 @@
 Let’s take a listen to a never-released outtake from Bruce Springsteen’s *Nebraska* sessions that’s especially, um, high concept.
 
-[Watch Video Highlight](https://videopress.com/embed/hOL4EwHY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hOL4EwHY)
 
 (Side note: Good luck trying to find this song on youtube. Thanks to another well-known Springsteen who’s an equestrian star, searching for “Bruce Springsteen Riding Horse” does *not* yield desired results. So feel free to bookmark this for your repeat listening pleasure.)
 

@@ -46,7 +46,7 @@ Fans by and large didn’t respond to the Scialfa spotlight, however, and within
 
 That’s too bad, because the E Street version is gloriously gritty and features some terrific guitar work from Nils and a rare true duet between Patti and Bruce.
 
-[Watch Video Highlight](https://videopress.com/embed/KsoFxqp5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KsoFxqp5)
 
 “Town Called Heartbreak” is one of Patti’s strongest tracks, and her live performances with Bruce were highlights of the early Magic Tour. This one deserves to be heard from again soon.
 
@@ -58,8 +58,8 @@ That’s too bad, because the E Street version is gloriously gritty and features
 
 **Town Called Heartbreak**
 **Recorded:** Early 2007  
-**Released:** *Play It As It Lays* (2007)  
-**First performed:** September 25, 2007 (Asbury Park, NJ)  
+**Released:** *Play It As It Lays* (2007)
+**First performed:** September 25, 2007 (Asbury Park, NJ)
 **Last performed:** November 12, 2007 (Washington, DC)
 
 © August 9, 2020

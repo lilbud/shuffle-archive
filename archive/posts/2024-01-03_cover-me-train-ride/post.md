@@ -39,7 +39,7 @@ When Vini Lopez ran into some legal trouble and had to miss a few shows, Bruce t
 Hazy Dave is still active today, along with his group called (I kid you not) The Mission Band.
 
 **Train Ride**
-**First performed:** October 17, 1970 (West Long Branch, NJ)  
+**First performed:** October 17, 1970 (West Long Branch, NJ)
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
 
 

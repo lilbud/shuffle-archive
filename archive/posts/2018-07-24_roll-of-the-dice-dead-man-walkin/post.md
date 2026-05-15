@@ -57,12 +57,12 @@ Although it lost to “Colors of the Wind” from *Pocahontas* (don’t get me s
 
 The film debuted in December 1995, and Bruce was already in the middle of his solo acoustic tour supporting [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/). Bruce played “Dead Man Walkin” sporadically throughout the first six months of the tour, resurrecting it late in the Reunion Tour for a handful of performances. You can hear the rare, restrained, full-band arrangement here.
 
-[Watch Video Highlight](https://videopress.com/embed/0yw1bB0y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0yw1bB0y)
 
 **Dead Man Walkin’**  
 **Recorded:** April-May 1995  
-**Released:** *Dead Man Walking* (1996), *The Essential Bruce Springsteen* (2003)  
-**First performed:** November 21, 1995 (New Brunswick, NJ)  
+**Released:** *Dead Man Walking* (1996), *The Essential Bruce Springsteen* (2003)
+**First performed:** November 21, 1995 (New Brunswick, NJ)
 **Last performed:** June 23, 2000 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

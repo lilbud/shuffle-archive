@@ -95,7 +95,7 @@ In town a day early for his St. Louis show on the original River Tour, Bruce wen
 
 Bruce’s post-movie evening with the Satanovskys is well-known among his fans, but less so the impression the film made on Springsteen and (possibly) one of his greatest hits. Midway through the film, Woody Allen’s character, a famous film director, has a chance encounter with an old childhood friend. Only one of them had found success in life, and Allen is awkwardly apologetic for his good fortune.
 
-[Watch Video Highlight](https://videopress.com/embed/RIyIeVxo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RIyIeVxo)
 
 I wouldn’t be at all surprised if that scene jogged Bruce’s memory of his run-in with DePugh seven years earlier, because he recorded that acoustic home demo of “Glory Days” about six months later.
 
@@ -159,8 +159,8 @@ Glory days.
 
 **Glory Days**
 **Recorded** May 5, 1982  
-**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)  
-**First performed:** June 8, 1984 (Asbury Park, NJ)  
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
+**First performed:** June 8, 1984 (Asbury Park, NJ)
 **Last performed:** May 22, 2024 (Sunderland, England)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries coming soon!

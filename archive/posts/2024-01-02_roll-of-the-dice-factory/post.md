@@ -80,8 +80,8 @@ The first is Bruce’s opening number from a Labor Day concert in Philadelphia i
 
 **Factory**
 **Recorded** October-November, 1977  
-**Released:** *Darkness on the Edge of Town* (1978)  
-**First performed:** July 21, 1978 (Nashville, TN)  
+**Released:** *Darkness on the Edge of Town* (1978)
+**First performed:** July 21, 1978 (Nashville, TN)
 **Last performed:** September 5, 2016 (Virginia Beach, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

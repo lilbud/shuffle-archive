@@ -80,8 +80,8 @@ On his 2005 solo tour stop in Grand Rapids, Bruce performed “Sherry Darling”
 
 **Sherry Darling**
 **Recorded:** May 1979 – April 1980  
-**Released:** *The River* (1980)  
-**First performed:** August 4, 1978 (Charleston, WV)  
+**Released:** *The River* (1980)
+**First performed:** August 4, 1978 (Charleston, WV)
 **Last performed:** August 30, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

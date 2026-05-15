@@ -147,8 +147,8 @@ But regardless of whether it takes its ’77 form or ’78 one, “Prove It All 
 
 **Prove It All Night**
 **Recorded** September 12-16, 1977  
-**Released:** *Darkness on the Edge of Town* (1977), *The Essential Bruce Springsteen* (2003)  
-**First performed:** May 23, 1978 (Buffalo, NY)  
+**Released:** *Darkness on the Edge of Town* (1977), *The Essential Bruce Springsteen* (2003)
+**First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

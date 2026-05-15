@@ -34,15 +34,15 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he’ll 
 
 **1992:** Bruce and his new touring band play their second night at Plaza Monumental in Barcelona.
 
-[Watch Video Highlight](https://videopress.com/embed/3ZRVC8EG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3ZRVC8EG)
 
-[Watch Video Highlight](https://videopress.com/embed/bLdOUBZb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bLdOUBZb)
 
-[Watch Video Highlight](https://videopress.com/embed/QSb0VzF1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QSb0VzF1)
 
 **2008:** Bruce and the E Street Band play their first of two nights at Ullevi in Gothenburg on the Magic Tour. Bruce acknowledges the date by opening the show with the tour premiere of “Born in the U.S.A.”
 
-[Watch Video Highlight](https://videopress.com/embed/dkSKEfXZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dkSKEfXZ)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VtTZ8V7czFg)
 

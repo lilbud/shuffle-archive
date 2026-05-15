@@ -8,8 +8,8 @@ But come on: how is it possible that “Jersey Girl” isn’t a Bruce Springste
 
 Its lyrics absolutely reek of Bruce:
 
-✔ [Name-checks a numbered New York City avenue](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)  
-✔ [Narrator who takes a trip across the river for a meeting](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)  
+✔ [Name-checks a numbered New York City avenue](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
+✔ [Narrator who takes a trip across the river for a meeting](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)
 ✔ [Romantic Jersey Shore setting](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
 Heck, if it wasn’t for the fact that *Heartattack and Vine* beat *The River* to record stores by two months, I’d swear there are “[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)” and “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” references as well.
@@ -20,7 +20,7 @@ In any event, Bruce first performed “Jersey Girl” at Max Weinberg’s weddin
 
 Bruce teed it up with the hometown crowd by sharing his observations that Europeans are different than New Jerseyans. (Glad he cleared that up.) Europeans are great, he said, but there’s “nobody better” than a New Jersey crowd. (I’ll let you decide whether or not that was a pander.) And then, Bruce debuted his own version of Tom Waits’ “Jersey Girl.”
 
-[Watch Video Highlight](https://videopress.com/embed/Gx4aArIV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Gx4aArIV)
 
 Fans familiar with Waits’ version probably noticed that Bruce cleaned up the lyrics a bit, but the shocker was the completely new final verse:
 
@@ -89,9 +89,9 @@ This video was too close to capture the fireworks at the end of the song. But I 
 [Watch on Youtube: Jersey Girl - Bruce Springsteen and Patti Scialfa (Jersey 4 Jersey COVID-19 Benefit Relief 2020)](https://www.youtube.com/watch?v=1thNca2rZW4)
 
 **Jersey Girl**
-**Recorded:** July 9, 1981 (live)  
-**Released:** *Live 1975-85* (1986)  
-**First performed:** June 22, 1981 (East Orange, NJ)  
+**Recorded:** July 9, 1981 (live)
+**Released:** *Live 1975-85* (1986)
+**First performed:** June 22, 1981 (East Orange, NJ)
 **Last performed:** September 15, 2024 (Asbury Park, NJ)
 
 (c) July 24, 2019

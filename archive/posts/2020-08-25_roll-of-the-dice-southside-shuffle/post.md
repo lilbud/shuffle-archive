@@ -37,7 +37,7 @@ Don’t dismiss “Southside Shuffle” based on its fluffy lyrical substance, t
 **Southside Shuffle**
 Never recorded**
 **Never released**
-**First performed:** May 15, 1971 (Union, NJ)  
+**First performed:** May 15, 1971 (Union, NJ)
 **Last performed:** May 15, 1971 (Union, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

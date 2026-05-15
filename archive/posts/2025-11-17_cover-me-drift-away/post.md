@@ -18,7 +18,7 @@ Following an almost mournful introduction by The Miami Horns, Bruce sang Mentor 
 
 The rest of the performance… well, it’s better to just listen. You’ll feel the strength of their bond as if you were there.
 
-[Watch Video Highlight](https://videopress.com/embed/vobRmus7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vobRmus7)
 
 Bruce and Steve reprised their duet toward the end of the year in Memphis (without the Miami Horns, though), but after that the song disappeared from Bruce’s repertoire.
 
@@ -35,7 +35,7 @@ It’s a tender reading, and it’s one of my favorite moments of the 2013 tour.
 [Watch on Youtube: Bruce Springsteen - Drift away -MULTICAM HD - Hannover (28-05-2013)](https://www.youtube.com/watch?v=u9U8Le7hz5Q)
 
 **Drift Away**
-**First performed:** August 20, 1984 (East Rutherford, NJ)  
+**First performed:** August 20, 1984 (East Rutherford, NJ)
 **Last performed:** May 28, 2013 (Hannover, Germany)
 
 (c) June 14, 2019

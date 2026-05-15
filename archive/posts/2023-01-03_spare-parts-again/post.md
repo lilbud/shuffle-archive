@@ -10,13 +10,13 @@ This past Monday night, I attended Stand Up For Heroes in New York City, my thir
 
 Bruce performed four songs (all with dirty jokes serving as introductions), including the public debut of “[Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)” and an ultra-rare acoustic “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).” I captured his entire set on video, and I think they came out great. Enjoy them below:
 
-[Watch Video Highlight](https://videopress.com/embed/4jab0Nll?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4jab0Nll)
 
-[Watch Video Highlight](https://videopress.com/embed/Cor6CHI8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Cor6CHI8)
 
-[Watch Video Highlight](https://videopress.com/embed/md0CXS3t?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/md0CXS3t)
 
-[Watch Video Highlight](https://videopress.com/embed/OpcWI8O4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OpcWI8O4)
 
 You can check out my event recap [here](https://www.backstreets.com/news.html#SUFH)if you like, too.
 

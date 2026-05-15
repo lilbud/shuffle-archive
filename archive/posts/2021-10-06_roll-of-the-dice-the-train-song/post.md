@@ -8,7 +8,7 @@ We’ve listened to two of them together before: “[He’s Guilty](https://estr
 
 Let’s take a listen to “The Train Song.”
 
-[Watch Video Highlight](https://videopress.com/embed/FxO6jjnA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/FxO6jjnA)
 
 See what I mean? That’s one heck of a curve ball.
 
@@ -68,7 +68,7 @@ The problem’s in the execution.
 **The Train Song**
 **Recorded** February 22, 1970  
 **Never released**
-**First performed:** January 13, 1970 (San Francisco, CA)  
+**First performed:** January 13, 1970 (San Francisco, CA)
 **Last performed:** January 13, 1970 (San Francisco, CA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

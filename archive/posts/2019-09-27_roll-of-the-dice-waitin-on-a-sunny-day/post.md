@@ -20,7 +20,7 @@ Many fans know that Bruce wrote and recorded an early version of “Waitin’ on
 
 Here it is, recorded in Bremen, Germany on June 17, 1999. It’s windy, and the sound is distant, but the song and lyrics are easily recognizable. Unlike the guitar and violin-centric arrangement of the released version, this early version of “Waitin’ on a Sunny Day” is carried primarily by piano and saxophone–and it’s absolutely majestic.
 
-[Watch Video Highlight](https://videopress.com/embed/R6aGJNdF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/R6aGJNdF)
 
 I can’t help but wonder if more fans would have embraced the song in its original incarnation.
 
@@ -118,8 +118,8 @@ There may come a day when the name and music of Bruce Springsteen are all but fo
 
 **Waitin’ on a Sunny Day**
 **Recorded** Early 2002  
-**Released:** *The Rising* (2002)  
-**First performed:** July 25,2002 (Asbury Park, NJ)  
+**Released:** *The Rising* (2002)
+**First performed:** July 25,2002 (Asbury Park, NJ)
 **Last performed:** November 16, 2019 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

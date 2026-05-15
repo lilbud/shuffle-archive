@@ -39,10 +39,10 @@ But we’ll always have 2006. And when we need a little hope and solace, we coul
 
 **Bonus:** Here’s a clip of Bruce strumming a little bit of “When The Saints Go Marching In” on Italian television, just because.
 
-[Watch Video Highlight](https://videopress.com/embed/iCn8QoAN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iCn8QoAN)
 
 **When the Saints Go Marching In**
-**First performed:** April 20, 2006 (Asbury Park, NJ)  
+**First performed:** April 20, 2006 (Asbury Park, NJ)
 **Last performed:** May 3, 2014 (New Orleans, LA)
 
 (c) March 28, 2021

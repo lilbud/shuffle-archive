@@ -77,7 +77,7 @@ That’s some pretty great art.
 
 **Swallowed Up (In the Belly of the Whale)**
 **Recorded** 2011  
-**Released:** *Wrecking Ball* (2012)  
+**Released:** *Wrecking Ball* (2012)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

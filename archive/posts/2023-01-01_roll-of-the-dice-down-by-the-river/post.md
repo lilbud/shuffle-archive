@@ -4,7 +4,7 @@ One of my favorite still-missing-in-action tracks is “Sax Song” (also known 
 
 Take a listen to this rehearsal recording of the E Street Band in all their glory:
 
-[Watch Video Highlight](https://videopress.com/embed/o0y26gwE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/o0y26gwE)
 
 “Sax Song” wasn’t finished yet when the band made this recording at The Record Plant, but it was already musically tight enough for us to easily imagine it fitting seamlessly into Bruce’s live set.
 

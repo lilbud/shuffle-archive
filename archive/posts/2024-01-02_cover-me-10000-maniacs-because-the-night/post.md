@@ -6,7 +6,7 @@ The honor goes to 10,000 Maniacs, who took the song to #11 in 1994, two notches 
 
 10,000 Maniacs recorded the song live during their *MTV Unplugged* performance in 1993, just before Natalie Merchant left the band to go solo. To this day, it remains their greatest hit.
 
-[Watch Video Highlight](https://videopress.com/embed/uQIQAQCA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uQIQAQCA)
 
 But what do you do when your greatest hit comes right at the moment when your lead singer quits?
 

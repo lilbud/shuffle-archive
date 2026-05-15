@@ -93,8 +93,8 @@ Bruce would continue to reach far back into his catalog (and even earlier) in th
 
 **The Angel**
 **Recorded** June 27 – October 26, 1972  
-**Released:** [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1973)  
-**First performed:** February 14, 1972 (New York City, NY)  
+**Released:** [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1973)
+**First performed:** February 14, 1972 (New York City, NY)
 **Last performed:** November 22, 2009 (Buffalo, NY)
 
 © September 26, 2020

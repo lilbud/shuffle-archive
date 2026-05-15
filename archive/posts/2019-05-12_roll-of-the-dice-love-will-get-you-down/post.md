@@ -28,7 +28,7 @@ What happened to “Love Will Get You Down” after these home recordings is mur
 In any event, that later recording does not circulate broadly, so for now, the trail ends here.
 
 **Love Will Get You Down**
-**Recorded:** Early 1979 (work in progress demo only)  
+**Recorded:** Early 1979 (work in progress demo only)
 **Never released**
 **Never performed**
 

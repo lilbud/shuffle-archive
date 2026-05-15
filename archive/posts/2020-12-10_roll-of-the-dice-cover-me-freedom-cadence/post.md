@@ -43,7 +43,7 @@ The reference to a brother who didn’t come back, to a father who was killed at
 
 **Freedom Cadence**
 **Recorded:** 2017  
-**Released:** *Thank You For Your Service* (2017)  
+**Released:** *Thank You For Your Service* (2017)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

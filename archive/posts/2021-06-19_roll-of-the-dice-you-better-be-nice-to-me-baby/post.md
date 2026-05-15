@@ -8,7 +8,7 @@ If you thought “I’ve Got to Have You, Baby” was a fun listen, though, you�
 
 Both songs delight, but if the former song is a bluesy jam, “You Better Be Nice to Me, Baby” is light on its feet, carried by a terrific David Sancious performance that would have been right at home in a late-night jazz club. In fact, with the possible exception of “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/),” this is as close to jazz as you’ll ever hear Bruce get.
 
-[Watch Video Highlight](https://videopress.com/embed/RB65kVa8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RB65kVa8)
 
 As we can hear, both songs feature rare spotlight solos for Steve Van Zandt as well.
 
@@ -74,7 +74,7 @@ Like much of The Bruce Springsteen Band’s repertoire, “You Better Be Nice to
 If you enjoyed this little road trip in the wayback machine, you’ll be happy to know we’ve got at least one more return visit ahead of us later this summer. And if not, never fear–we’ll be back in Bruce’s officially released catalog in just a few days.
 
 **You Better Be Nice to Me, Baby**
-**First performed:** September 1, 1971 (Long Branch, NJ)  
+**First performed:** September 1, 1971 (Long Branch, NJ)
 **Last performed:** September 1, 1971 (Long Branch, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

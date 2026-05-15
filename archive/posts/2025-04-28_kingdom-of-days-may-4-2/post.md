@@ -132,7 +132,7 @@ What an amazing honour and a beautiful experience to get a visit from The Boss!!
 
 [@springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw)[@ShaneMacGowan](https://twitter.com/ShaneMacGowan?ref_src=twsrc%5Etfw)[pic.twitter.com/waXwmWOHTZ](https://t.co/waXwmWOHTZ)
 
-— @victoriamary (@Victoriamary) 
+— @victoriamary (@Victoriamary)
 
 [May 3, 2023](https://twitter.com/Victoriamary/status/1653805156641779718?ref_src=twsrc%5Etfw)
 

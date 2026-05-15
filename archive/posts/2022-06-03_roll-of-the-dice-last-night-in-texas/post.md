@@ -12,7 +12,7 @@ The set list that day included Bruce’s only known performance of an original s
 
 “One Way Out” was a comic blues tale, the dilemma of a cheating lover trying desperately to escape out the bedroom window before getting caught. Bruce lifted the music from “One Way Out” but completely rewrote the lyrics, turning it into an itinerant musician’s travelogue as he prepares to move on to the next town.
 
-[Watch Video Highlight](https://videopress.com/embed/rXhuhsZF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rXhuhsZF)
 
 The fifty-plus-year-old soundboard recording above is astoundingly clear, allowing us to fully appreciate the technical proficiency of the players–particularly some scorching Springsteen guitar solos (starting around the 2:30 mark) competing against David Sancious’ organ solos (starting at the four-minute mark), and an all-out jam (featuring Southside Johnny on harmonica) that breaks out a minute later.
 
@@ -51,7 +51,7 @@ Summer’s only just beginning, though, and we’ll have some stronger Bruce Spr
 **Last Night in Texas**
 Never recorded**
 **Never released**
-**First performed:** May 15, 1971 (Union, NJ)  
+**First performed:** May 15, 1971 (Union, NJ)
 **Last performed:** May 15, 1971 (Union, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

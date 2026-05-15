@@ -28,7 +28,7 @@ Although he gave no specifics, I’m betting we’ll hear Butler’s “Never Gi
 
 **Hey, Western Union Man**
 **Recorded: 2021**
-Released: *Only the Strong Survive* (2022)  
+Released: *Only the Strong Survive* (2022)
 Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

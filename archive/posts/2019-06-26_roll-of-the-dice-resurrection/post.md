@@ -60,7 +60,7 @@ The song opens up here, as Bruce leads us away from the church and toward more p
 **Resurrection**
 **Never recorded**
 **Never released**
-**First performed:** September 20, 1969 (Richmond, VA)  
+**First performed:** September 20, 1969 (Richmond, VA)
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -47,7 +47,7 @@ The song itself, however, is a fairly pedestrian call-to-action for young people
 **Come On**
 **Never recorded**
 **Never released**
-**First performed:** May 23, 1970 (Richmond, VA)  
+**First performed:** May 23, 1970 (Richmond, VA)
 **Last performed:** August 14, 1970 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

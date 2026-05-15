@@ -1,6 +1,6 @@
 My goodness, where did *this* come from? And where did it go?
 
-[Watch Video Highlight](https://videopress.com/embed/WBsxIZZu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WBsxIZZu)
 
 Other than this maddeningly unclear tape of a Darkness Tour rehearsal from late 1978, we have no record of “I’m Gonna Treat You Right” (also known by bootleggers as “Wild Kisses”).
 
@@ -31,7 +31,7 @@ It sure would be a nice surprise for *Tracks II*, though.
 
 **I’m Gonna Treat You Right (Wild Kisses)**
 Never recorded**
-**First performed:** October 26, 1978 (Holmdel, NJ) (soundcheck only)  
+**First performed:** October 26, 1978 (Holmdel, NJ) (soundcheck only)
 **Last performed:** October 26, 1978 (Holmdel, NJ) (soundcheck only)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -99,7 +99,7 @@ Strangely, though, while a fan of the song, Lee apparently wasn’t satisfied wi
 
 Terence is multiple-Grammy-winning composer and musician Terence Blanchard, who composed the score for *25th Hour.* He also composed and arranged the “Sgt. Pepper-eseque” overlay, and it’s not particularly subtle.
 
-[Watch Video Highlight](https://videopress.com/embed/1CZPWA50?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1CZPWA50)
 
 At best, the overdubs are a curiosity, but as the song builds to its climax the additions mask the careful discordance of the original track and commit the unforgivable sin of undermining its final moments.
 
@@ -109,8 +109,8 @@ Perhaps Bruce thought better of it once he heard it in the film, because “The 
 
 **The Fuse**
 **Recorded** February-March 2002  
-**Released:** *The Rising* (2002)  
-**First performed:** July 25, 2002 (Asbury Park, NJ)  
+**Released:** *The Rising* (2002)
+**First performed:** July 25, 2002 (Asbury Park, NJ)
 **Last performed:** October 1, 2003 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

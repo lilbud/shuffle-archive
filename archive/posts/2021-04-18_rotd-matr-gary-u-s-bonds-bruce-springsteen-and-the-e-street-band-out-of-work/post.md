@@ -69,7 +69,7 @@ Fans who caught it no doubt had the same laughing-through-tears reaction as radi
 
 **Out of Work**
 **Recorded:** Early 1982  
-**Released:** *On the Line* (1982)  
+**Released:** *On the Line* (1982)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

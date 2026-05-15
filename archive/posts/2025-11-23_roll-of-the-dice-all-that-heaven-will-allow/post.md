@@ -66,8 +66,8 @@ Musically, “All That Heaven Will Allow” is a solo number. With the exception
 
 **All That Heaven Will Allow**
 **Recorded** January – April 1987  
-**Released:** *Tunnel of Love* (1987)  
-**First performed:** February 25, 1988 (Worcester, MA)  
+**Released:** *Tunnel of Love* (1987)
+**First performed:** February 25, 1988 (Worcester, MA)
 **Last performed:** April 29, 2013 (Oslo, Norway)
 
 (c) August 5, 2022

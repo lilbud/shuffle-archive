@@ -79,8 +79,8 @@ Unfortunately, like most of the *Working on a Dream* album, the title track has 
 
 **Working on a Dream**
 **Recorded** 2007-2008  
-**Released:** *Working on a Dream* (2009), *The Essential Bruce Springsteen* (2015)  
-**First performed:** November 2, 2008 (Cleveland, OH)  
+**Released:** *Working on a Dream* (2009), *The Essential Bruce Springsteen* (2015)
+**First performed:** November 2, 2008 (Cleveland, OH)
 **Last performed:** June 5, 2022 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

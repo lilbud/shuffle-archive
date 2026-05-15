@@ -36,7 +36,7 @@ In fact, one of the more curious facets of “Don’t Look Back” is how it ser
 
 Even in June, just weeks before Bruce recorded the final version that would appear two decades later on *Tracks,* Bruce was still tinkering with the lyrics. Here’s an early take:
 
-[Watch Video Highlight](https://videopress.com/embed/e533kuJ1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e533kuJ1)
 
 Truthfully, even the recorded version still sounds like a work in progress. The lyrics read like they’re finished, but when we listen to the song, they seem at times like they don’t quite fit the music and the meter.
 
@@ -83,18 +83,18 @@ But in the past twenty years, “Don’t Look Back” has made only four appeara
 
 I’ll leave you with a terrific video of that performance of “Don’t Look Back” — my personal favorite (and the only one I’ve seen live).
 
-[Watch Video Highlight](https://videopress.com/embed/7N8Z2fdo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7N8Z2fdo)
 
 **Bonus:** The lyrics for “Don’t Look Back” may have been constantly evolving, but the backing track was pretty well set from the get-go. Here are two early instrumental takes that offer fascinating glimpses into fuller, more lush arrangements that might have breathed a bit more had Bruce pursued them.
 
 [Watch on Youtube: Bruce Springsteen Don´t Look Back Instrumental](https://www.youtube.com/watch?v=y4X6BeO0d9M)
 
-[Watch Video Highlight](https://videopress.com/embed/L5e9SzQt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/L5e9SzQt)
 
 **Don’t Look Back**
 **Recorded** July 2, 1977 – March 2, 1978  
-**Released:** *Tracks* (1998)  
-**First performed:** March 10, 1977 (Toledo, OH)  
+**Released:** *Tracks* (1998)
+**First performed:** March 10, 1977 (Toledo, OH)
 **Last performed:** May 18, 2014 (Uncasville, CT)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

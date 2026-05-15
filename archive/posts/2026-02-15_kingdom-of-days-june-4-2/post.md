@@ -14,17 +14,17 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yluGYwh_Ceo)
 
-[Watch Video Highlight](https://videopress.com/embed/f6IjxMxG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/f6IjxMxG)
 
-[Watch Video Highlight](https://videopress.com/embed/cpa0ELFo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cpa0ELFo)
 
-[Watch Video Highlight](https://videopress.com/embed/e5UqTSP0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e5UqTSP0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Daily_Post__Merseyside_ed___Wed__Jun_5__1985_.jpg)
 
 **2000:** A momentous Reunion show in Atlanta, featuring the world premieres of “Further On (Up the Road),” which opens the show, and “American Skin (41 Shots)” which sparks a controversy with law enforcement that will heighten as the tour rolls into its final, legendary, New York City stand next week. Take a listen to that debut performance of “American Skin (41 Shots)” below, in a crystal clear IEM recording that has not circulated until now.
 
-[Watch Video Highlight](https://videopress.com/embed/Wx7WRyqt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Wx7WRyqt)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KSGwtfg9nd8)
 

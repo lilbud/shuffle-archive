@@ -111,8 +111,8 @@ Given the state of the economy, however, and its likely prolonged recovery, I su
 
 **Seeds**
 **Recorded** May 25, 1983  
-**Never released** (Live version released on *Live 1975-85*)  
-**First performed:** July 3, 1985 (London, England)  
+**Never released** (Live version released on *Live 1975-85*)
+**First performed:** July 3, 1985 (London, England)
 **Last performed:** June 5, 2016 (London, England)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

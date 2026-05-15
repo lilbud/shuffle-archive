@@ -14,7 +14,7 @@ Listen to Jimmy tell the story:
 
 And yes, when Bruce walked out on stage for the cold open that night, the crowd (and almost certainly, the entirety of E Street Nation) did indeed go nuts. The result… well, it may not be one of Bruce’s best covers, but it’s certainly one of his most viral.
 
-[Watch Video Highlight](https://videopress.com/embed/ETduz4Hn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ETduz4Hn)
 
 What did Bruce think of the performance? Let’s follow him backstage and find out:
 
@@ -27,7 +27,7 @@ Bruce and “Neil” would also reprise their performance two years (and ten fas
 Even so, I wouldn’t bet on Bruce picking a sign for “Whip My Hair” anytime soon. That was almost certainly a one-time-only experience.
 
 **Whip My Hair**
-**Recorded** November 16, 2010**Released:** *Blow Your Pants Off* (2012)**First performed:** November 16, 2010 (New York City, NY)  
+**Recorded** November 16, 2010**Released:** *Blow Your Pants Off* (2012)**First performed:** November 16, 2010 (New York City, NY)
 **Last performed:** November 16, 2010 (New York City, NY)
 
 

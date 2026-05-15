@@ -16,10 +16,10 @@ Since then, many artists have covered the inspirational track, from Diana Ross a
 
 But in 1995, Bruce had a chance to cover it with the songwriter himself when Dylan asked Bruce to join him on stage at the inaugural concert for the Rock and Roll Hall of Fame Museum. Bruce and Dylan have had a few chances to perform on stage together, but this one will always be my favorite.
 
-[Watch Video Highlight](https://videopress.com/embed/hQaejU37?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hQaejU37)
 
 **Forever Young**
-**First performed:** October 23, 1987 (New York City, NY)  
+**First performed:** October 23, 1987 (New York City, NY)
 **Last performed:** September 2, 1995 (Cleveland, OH)
 
 © September 1, 2019

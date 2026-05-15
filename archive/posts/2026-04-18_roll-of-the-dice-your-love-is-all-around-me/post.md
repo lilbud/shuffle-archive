@@ -65,7 +65,7 @@ Well, perhaps it will: We can tell from the demo recording that the song was alm
 
 How do we know? Because that take circulates among collectors. You can hear it below.
 
-[Watch Video Highlight](https://videopress.com/embed/e7INlA8r?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e7INlA8r)
 
 Bruce’s vocals are too muddy to hear the lyrics clearly, but we can hear enough to recognize they’ve evolved a bit.
 
@@ -76,7 +76,7 @@ Reportedly, Bruce and the band recorded a studio take of the completed song thre
 Let’s hope we get one, though. It’s a clever song, a nice companion piece to “I’m Goin’ Down,” and it would be great to hear a finished version someday.
 
 **Your Love Is All Around Me**
-**Recorded** Early 1982 (rehearsals); May 10, 1982 (studio)  
+**Recorded** Early 1982 (rehearsals); May 10, 1982 (studio)
 **Never released**
 **Never performed**
 

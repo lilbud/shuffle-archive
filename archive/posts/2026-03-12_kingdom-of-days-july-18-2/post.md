@@ -26,7 +26,7 @@
 
 **1978:** The Darkness Tour continues its southern swing with a show at the Municipal Auditorium in Jackson, Mississippi.
 
-[Watch Video Highlight](https://videopress.com/embed/cBZLC6qs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cBZLC6qs)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/07/1978-07-18.png)
 
@@ -38,11 +38,11 @@
 
 **1981:** Bruce and the band play their fourth of five nights at The Spectrum in Philadelphia on the River Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/XehyRDDQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XehyRDDQ)
 
 **1984:** Bruce wraps up a three-night Born in the U.S.A. stand at the Rosemont Horizon with his live debut of “Do You Love Me?”
 
-[Watch Video Highlight](https://videopress.com/embed/kHVTjhMH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kHVTjhMH)
 
 **1999:** Night Two on the U.S. leg of the Reunion Tour in East Rutherford brings out rare performances of “I Wanna Be With You” (the show opener), “Loose Ends,” “Stand On It,” and “Freehold.” This show is available as part of Bruce’s official archive series.
 
@@ -64,7 +64,7 @@
 
 **2003:** It’s a rainy Night Three of ten at the Giants Stadium stand of the Rising Tour, and Bruce opens with an audibled “Who’ll Stop the Rain.” Garland Jeffreys guests during the encores for “96 Tears.”
 
-[Watch Video Highlight](https://videopress.com/embed/NPLvxg3D?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NPLvxg3D)
 
 **2005:** Bruce busts open his Devils & Dust setlist in Buffalo with six tour premieres, including “4th of July, Asbury Park (Sandy),” a solo piano “Leap of Faith,” “You’re Missing,” “Darkness on the Edge of Town,” “When You’re Alone,” and a show-opening new acoustic arrangement of “Prove It All Night” on guitar and harmonica.
 

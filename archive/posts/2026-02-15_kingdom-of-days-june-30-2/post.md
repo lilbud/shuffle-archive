@@ -6,13 +6,13 @@
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to Berkeley.
 
-[Watch Video Highlight](https://videopress.com/embed/yj24Luyp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yj24Luyp)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/06/1978-0630.jpg)
 
 **1985:** Night Two in Paris on the Born in the U.S.A. Tour features the last performance of “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” in its original arrangement for 23 years.
 
-[Watch Video Highlight](https://videopress.com/embed/HCJT03pP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HCJT03pP)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Press_of_Atlantic_City_1985_07_07_55.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Press_of_Atlantic_City_1985_07_07_57.jpg)
 

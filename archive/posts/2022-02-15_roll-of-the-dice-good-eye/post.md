@@ -42,8 +42,8 @@ In the clip below, you’ll hear a distorted Bruce reference the love and fear t
 
 **Good Eye**
 **Recorded** 2008  
-**Released:** *Working on Dream* (2009)  
-**First performed:** March 23, 2009 (Asbury Park, NJ)  
+**Released:** *Working on Dream* (2009)
+**First performed:** March 23, 2009 (Asbury Park, NJ)
 **Last performed:** April 1, 2009 (San Jose, CA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

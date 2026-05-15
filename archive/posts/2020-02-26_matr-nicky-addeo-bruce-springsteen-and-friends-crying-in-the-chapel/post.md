@@ -25,5 +25,5 @@ Oh, and one more local legend: In the background for the first set, at the fore 
 So yeah, from a Springsteen perspective, this is one for the completists. But aren’t you glad you watched anyway?
 
 **Crying in the Chapel**
-**First performed:** April 2, 2011 (Asbury Park, NJ)  
+**First performed:** April 2, 2011 (Asbury Park, NJ)
 **Last performed:** April 2, 2011 (Asbury Park, NJ)

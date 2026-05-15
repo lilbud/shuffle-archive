@@ -18,7 +18,7 @@ So why am I featuring it on a Bruce-focused blog? Because one time only, back in
 
 You won’t hear his voice, but you can hear Bruce on backing guitar in the live recording below. But trust me, don’t pay attention to Bruce on this one. He’s superfluous here–this is Patti’s star turn.
 
-[Watch Video Highlight](https://videopress.com/embed/QYGFvk0x?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QYGFvk0x)
 
 It’s been more than a dozen years since Patti’s last album; I think we’re more than due for a new one.
 

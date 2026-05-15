@@ -8,8 +8,8 @@ In 2009, when Bruce needed some backing music while collecting mid-show sign req
 
 How’d they do? You can listen for yourself below, but just remember: you may not be able to stump the E Street Band, but it’s also pretty dang tough to beat Booker T. and the M.G.’s.
 
-[Watch Video Highlight](https://videopress.com/embed/oaPS4mj6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oaPS4mj6)
 
 **Green Onions**
-**First performed:** November 20, 2009 (Baltimore, MD)  
+**First performed:** November 20, 2009 (Baltimore, MD)
 **Last performed:** September 2, 2012 (Philadelphia, PA)

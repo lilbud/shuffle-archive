@@ -2,7 +2,7 @@ You’d think the guy with one of the best-selling Christmas singles of all time
 
 As it turns out, there’s a reason for that. Bruce was refreshingly candid about it when he spoke with Jimmy Fallon on *The Tonight Show* in 2020:
 
-[Watch Video Highlight](https://videopress.com/embed/EDabM958?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EDabM958)
 
 But if we have to keep waiting and wishing for a Springsteen holiday album, at least there’s no shortage of live Springsteen performances of holiday classics… if you know where to look for them.
 

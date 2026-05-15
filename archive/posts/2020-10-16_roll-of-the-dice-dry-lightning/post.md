@@ -71,7 +71,7 @@ At this sad moment of realization, we take our leave. But we’ll meet our narra
 
 Bruce only performed “Dry Lightning” once more after the Ghost of Tom Joad Tour ended, as an audible (in place of the set-listed “[Dead Man Walkin’](https://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/)“) on his 2005 solo acoustic tour.
 
-[Watch Video Highlight](https://videopress.com/embed/MDAGxEku?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MDAGxEku)
 
 That performance, too, pales beside the original album version. “Dry Lightning” is one of the few songs from *The Ghost of Tom Joad* that cry out for a full-band (or better yet, orchestral) arrangement.
 
@@ -79,8 +79,8 @@ I haven’t given up hope of hearing one someday.
 
 **Dry Lightning**
 **Recorded** April-June 1995  
-**Released:** *The Ghost of Tom Joad* (1995)  
-**First performed:** November 21, 1995 (New Brunswick, NJ)  
+**Released:** *The Ghost of Tom Joad* (1995)
+**First performed:** November 21, 1995 (New Brunswick, NJ)
 **Last performed:** May 14, 2005 (Fairfax, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

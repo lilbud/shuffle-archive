@@ -8,7 +8,7 @@ That entire first album is wonderful. As Emmylou Harris once put it in a 2013 NP
 
 While Bruce didn’t play on that particular studio track, he did support his wife on guitar when she performed the song live at Bruce’s Asbury Park holiday shows in December 2001.
 
-[Watch Video Highlight](https://videopress.com/embed/VvbHTDM0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VvbHTDM0)
 
 Their live arrangement is even lovelier and more intimate than the album track, thanks to Soozie Tyrell’s lonely violin.
 

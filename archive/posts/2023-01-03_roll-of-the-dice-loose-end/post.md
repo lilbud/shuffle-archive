@@ -67,8 +67,8 @@ Since then, “Loose End” has remained elusive, never missing an E Street Band
 
 **Loose End**
 **Recorded** July 18, 1979  
-**Released:** *Tracks* (1998), *The River: Single Album* (2015)  
-**First performed:** June 3, 1999 (Paris, France)  
+**Released:** *Tracks* (1998), *The River: Single Album* (2015)
+**First performed:** June 3, 1999 (Paris, France)
 **Last performed:** September 9, 2016 (Philadelphia, PA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

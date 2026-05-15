@@ -4,7 +4,7 @@ As Steel Mill songs go, “Temporarily Out of Order” is a pretty tight, light,
 
 But like I said, this is still a fun song, so let’s take a listen.
 
-[Watch Video Highlight](https://videopress.com/embed/iseNgxgd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iseNgxgd)
 
 “Temporarily Out of Order” takes the once-ubiquitous but dreaded sign that used to adorn malfunctioning payphones, laundry machines and the like, and it applies it to the narrator’s doomed relationship.
 
@@ -42,7 +42,7 @@ So let’s keep our fingers crossed for a cleaner, clearer recording someday–i
 **Temporarily Out of Order**
 Never recorded**
 **Never released**
-**First performed:** May 23, 1970 (Richmond, VA)  
+**First performed:** May 23, 1970 (Richmond, VA)
 **Last performed:** May 23, 1970 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

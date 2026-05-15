@@ -92,7 +92,7 @@ Bruce gave no explanation for the one-off arrangement, and he never played the s
 
 **Rockaway the Days**
 **Recorded** January 12, 1984  
-**Released:** *Tracks* (1998)  
+**Released:** *Tracks* (1998)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

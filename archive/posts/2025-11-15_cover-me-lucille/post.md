@@ -2,7 +2,7 @@ Bruce has been covering Little Richard’s “Lucille” in concert for decades,
 
 Here’s one of the earliest times: Bruce with Beaver Brown on stage at Big Man’s West in Red Bank in the summer of 1982.
 
-[Watch Video Highlight](https://videopress.com/embed/hmhLdie1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hmhLdie1)
 
 …and video of Bruce with Cats on a Smooth Surface from 1987:
 
@@ -25,7 +25,7 @@ So it’s no surprise to learn that Bruce covers it frequently during cover sets
 <https://estreetshuffle.com/wp-content/uploads/2018/11/Bruce-Springsteen-16-Carol-Lucille-online-audio-converter.com_.mp3>
 
 **Lucille**
-**First performed:** August 2, 1978 (Charlotte, NC)  
+**First performed:** August 2, 1978 (Charlotte, NC)
 **Last performed:** September 14, 2024 (Asbury Park, NJ)
 
 (c) November 29, 2018

@@ -12,7 +12,7 @@ Elvis recorded and released his own version the following year, and while it did
 
 Bruce may not have covered “Blue Suede Shoes” in one of his “official” concerts, but he did play it once–at a drop-in appearance with John Eddie at the Brighton Bar in Long Branch, New Jersey, in the summer of 1983. And as with most modern covers of “Blue Suede Shoes,” Bruce went with the Elvis intro.
 
-[Watch Video Highlight](https://videopress.com/embed/7X6UZAZU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7X6UZAZU)
 
 Although this club performance is the only time Bruce is known to have covered “Blue Suede Shoes” in concert, I’d be remiss if I didn’t also acknowledge the one other time he *almost* did–and not by his plan.
 
@@ -25,7 +25,7 @@ Toward the end of “All Shook Up,” Nick deftly (and gutsily) segues the band 
 [Watch on Youtube: Springsteen - All Shook Up - The Spectrum October 19, 2009](https://www.youtube.com/watch?v=XyJgPQRw4JA)
 
 **Blue Suede Shoes**
-**First performed:** August 19, 1983 (Long Branch, NJ)  
+**First performed:** August 19, 1983 (Long Branch, NJ)
 **Last performed:** August 19, 1983 (Long Branch, NJ)
 
 

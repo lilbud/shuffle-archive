@@ -8,7 +8,7 @@ Because when you can’t stand the weekdays, you live for the weekends. And nowh
 
 Even if we only listened to the backing track, we’d feel the freedom of “Out in the Street,” because this is one of the tracks where the music came first. Bruce recorded his first take with the E Street Band in January 1980, and even with its almost entirely bluffed lyrics, we still can sense what he was trying to communicate.
 
-[Watch Video Highlight](https://videopress.com/embed/5bCr0NOz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5bCr0NOz)
 
 There are two interesting side notes regarding that instrumental work in progress: first, it goes by the name “I’m Gonna Be There Tonight,” although I’m pretty sure Bruce never actually utters those words. (I’ve listened pretty intently.)
 
@@ -101,8 +101,8 @@ We’ll be meeting out in the street for a long time to come.
 
 **Out in the Street**
 **Recorded** March 21, 1980  
-**Released:** *The River* (1980), *The Essential Bruce Springsteen* (2015)  
-**First performed:** October 3, 1980 (Ann Arbor, MI)  
+**Released:** *The River* (1980), *The Essential Bruce Springsteen* (2015)
+**First performed:** October 3, 1980 (Ann Arbor, MI)
 **Last performed:** April 7, 2026 (Los Angeles, CA)
 
 © October 28, 2021 / April 16, 2026

@@ -1,6 +1,6 @@
 Ah, “Mystery Train.” It’s so easy to find snippets of it in Bruce’s performances over the years. It shows up scores of times, from “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)…”
 
-[Watch Video Highlight](https://videopress.com/embed/Ml73wUVB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ml73wUVB)
 
 …to “[Johnny Bye Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)…”
 
@@ -22,7 +22,7 @@ You’d think that after quoting it dozens of times in concert, Bruce would have
 
 But Bruce’s first performance of “Mystery Train” in its entirety didn’t come until 1995, and even then it was “only” an ensemble performance with Sting, James Taylor, Elton John, Billy Joel, Jon Bon Jovi, Paul Simon, and others, and essentially one long extended chorus.
 
-[Watch Video Highlight](https://videopress.com/embed/KtXoNJHq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KtXoNJHq)
 
 He reportedly played it a second time three years later at his birthday party with musicians who would eventually become the Seeger Sessions Band, but no recording of that performance has surfaced. Ditto for a third performance at a charity benefit in October 2000.
 
@@ -32,12 +32,12 @@ On December 18, 2000, Bruce played it for a fourth time–this time with the Max
 
 But it wasn’t until 2003 that fans got to hear Bruce sing “Mystery Train” with the E Street Band. On the evening of August 1, two days after the passing of Sam Phillips (who produced both the Junior Parker and Elvis versions of the song), Bruce opened his encores with his first “proper” tour performance of “Mystery Train,” dedicated to Phillips.
 
-[Watch Video Highlight](https://videopress.com/embed/a0fJ1kW8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/a0fJ1kW8)
 
 Why did it take so long for Bruce to cover a song he’d quoted, excerpted, and mashed up so many times? And why hasn’t he played it since? It’s a… well, you know.
 
 **Mystery Train**
-**First performed:** April 12, 1995 (New York City, NY)  
+**First performed:** April 12, 1995 (New York City, NY)
 **Last performed:** August 1, 2003 (Foxborough, MA)
 
 

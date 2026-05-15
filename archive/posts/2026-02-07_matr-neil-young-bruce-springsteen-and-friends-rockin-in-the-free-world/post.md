@@ -14,10 +14,10 @@ But while that was the first time Bruce and Neil played the song together at a �
 
 From Neil and Pegi’s Bridge School Benefit concert on October 28, 1995, listen to the first time Bruce joined Neil on “Rockin’ in the Free World”–this time on guitar with backing vocalists Emmylou Harris, Chrissie Hynde, and Steven Tyler.
 
-[Watch Video Highlight](https://videopress.com/embed/2TjNMtEs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2TjNMtEs)
 
 **Rockin’ in the Free World**
-**First performed:** October 28, 1995 (Mountain View, CA)  
+**First performed:** October 28, 1995 (Mountain View, CA)
 **Last performed:** October 5, 2004 (St. Paul, MN)
 
 © April 16, 2019

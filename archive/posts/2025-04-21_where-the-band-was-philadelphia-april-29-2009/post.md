@@ -8,7 +8,7 @@ What did Bruce deal Philly in the wild card pack on this night? First up, the E 
 
 You can watch all three wildcards below.
 
-[Watch Video Highlight](https://videopress.com/embed/vc8ejZl4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vc8ejZl4)
 
 Next up: “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)” gets a night off, with “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” a welcome substitute. Bruce’s mom even contributed some guest vocals:
 
@@ -26,14 +26,14 @@ Then came the encores, and once again, Bruce pitched Philly a bonus: “Thunder 
 
 But it wasn’t any of them. On this night, Bruce pulled out a tour debut–and unbelievably, I got my #1 most-chased song only 24 hours after getting my previous one: Bruce sent us off into the night dancing to the strains of an epic 13-minute “Kitty’s Back.” It didn’t seem like Bruce ever wanted to stop–there was even a reprise–and those last three minutes were among the most joyous I’ve ever experienced at a Springsteen show.
 
-[Watch Video Highlight](https://videopress.com/embed/heYFr8RS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/heYFr8RS)
 
 Relive the entire show with me here:
 
-[Watch Video Highlight](https://videopress.com/embed/PrRDgKjw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PrRDgKjw)
 
-[Watch Video Highlight](https://videopress.com/embed/PAT6I6NT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PAT6I6NT)
 
-[Watch Video Highlight](https://videopress.com/embed/x7PFpbRt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/x7PFpbRt)
 
-[Watch Video Highlight](https://videopress.com/embed/1ospUpnN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1ospUpnN)

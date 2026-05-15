@@ -28,7 +28,7 @@ Anyway, Jackie Wilson was one of the most dynamic performers to grace a stage, w
 
 It’s not surprising in the least that “Higher and Higher” turned up in Bruce’s setlists in 1977. It’s only surprising that he seemed to forget about it for more than two decades afterward. Here’s Bruce’s first ever performance of “Higher and Higher,” from the closing stand of his 1977 tour in Boston, complete with the Miami Horns. It’s a joyous rave-up that never loses its power.
 
-[Watch Video Highlight](https://videopress.com/embed/5budtv00?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5budtv00)
 
 Bruce played “Higher and Higher” a couple of times at one-off ’77 shows after the tour ended (along with a [1981 guest appearance with The Pretenders](https://estreetshuffle.com/index.php/2018/09/05/kingdom-of-days-september-5/)), but after that the song was MIA for more than twenty years.
 
@@ -45,7 +45,7 @@ That was an inspired request, and an inspired performance–and Bruce knew it, b
 “Higher and Higher” was a standard encore for the remainder of the Working on a Dream Tour, and it’s popped up a couple of times since, the last time in 2015. But even though Bruce gave it a rest for his last tour, something tells this time he hasn’t forgotten about it. We’ll see it again.
 
 **(Your Love Keeps Lifting Me) Higher and Higher**
-**First performed:** March 24, 1977 (Boston, MA)  
+**First performed:** March 24, 1977 (Boston, MA)
 **Last performed:** January 17, 2015 (Asbury Park, NJ)
 
 (c) September 23, 2018

@@ -4,7 +4,7 @@ I didn’t know the world needed a Springsteen-themed board game, but Søren Kit
 
 These two lifelong friends from Denmark envisioned, designed, developed, and published *[Becoming The Boss](https://becomingtheboss.dk/),* an incredibly detailed–and **free** to all–board game experience sure to intrigue even casual Springsteen fans and absolutely delight hardcore ones.
 
-[Watch Video Highlight](https://videopress.com/embed/GSg17dc4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GSg17dc4)
 
 In *Becoming The Boss,* players get to live (or relive) the early days of the Asbury Park music scene. To win the game, all you have to do is form a band, claw your way to the top, score a record deal, and make the covers of *Time* and *Newsweek.* You know: just like Bruce did.
 

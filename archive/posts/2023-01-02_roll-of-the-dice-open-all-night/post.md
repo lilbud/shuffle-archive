@@ -28,7 +28,7 @@ And since tracing the origins of “Open All Night” can get seriously messy, I
 
 In the early spring of 1981, Bruce picked his cast-off song back up and recorded a home demo entitled “Wanda.”
 
-[Watch Video Highlight](https://videopress.com/embed/0BB7uLl3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0BB7uLl3)
 
 Both melodically and lyrically, “Wanda” is obviously an attempt by Bruce to rework “Living on the Edge of the World,” and we can also hear the early seeds of “This Hard Land” and “[State Trooper.](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)” (I told you the lineage of “Open All Night” is complicated.)
 
@@ -110,8 +110,8 @@ Bruce brought “Open All Night” (in its new arrangement) back for nineteen ou
 
 **Open All Night**
 **Recorded** January 3, 1982  
-**Released:** *Nebraska* (1982)  
-**First performed:** October 3, 1982 (Asbury Park, NJ)  
+**Released:** *Nebraska* (1982)
+**First performed:** October 3, 1982 (Asbury Park, NJ)
 **Last performed:** February 8, 2014 (Perth, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

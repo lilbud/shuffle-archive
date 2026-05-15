@@ -14,13 +14,13 @@
 
 **1985:** The French leg of the Born in the U.S.A. Tour continues with a show in Saint-Etienne, where Bruce plays “No Surrender” for the very first time in Europe.
 
-[Watch Video Highlight](https://videopress.com/embed/oaIjWOlU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oaIjWOlU)
 
 **1988:** The Tunnel of Love Tour stops in London for one show at Wembley Stadium, where Bruce plays “Love Me Tender” for the last time to date. Meanwhile, rumors continue to swirl around Bruce and Patti.
 
-[Watch Video Highlight](https://videopress.com/embed/GQWCsmkf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GQWCsmkf)
 
-[Watch Video Highlight](https://videopress.com/embed/LMzK4o2Z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LMzK4o2Z)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bvWITRQO8oY)
 
@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=93wIOnN-U-s)
 
-[Watch Video Highlight](https://videopress.com/embed/BVjxn8FM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BVjxn8FM)
 
 **1993:** David Letterman films his final episode on NBC before moving to CBS and turning his NBC show over to Conan O’Brien. To mark the occasion, Bruce drops by as a surprise guest and performs “Glory Days,” momentarily taking over leadership of the house band. Watch the band have the time of their lives below.
 
@@ -42,7 +42,7 @@
 
 **2003:** The European leg of the Rising Tour hits the home stretch with this show in Vienna, featuring a full-band “Incident on 57th Street.”
 
-[Watch Video Highlight](https://videopress.com/embed/fpJ31k53?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fpJ31k53)
 
 **2005:** Four tour premieres when the Devils & Dust Tour stops in Stockholm, including “Downbound Train,” “Across the Border,” “Blinded by the Light,” and the first “Walk Like a Man” in 17 years. This show is available for purchase as part of Bruce’s official archive series.
 

@@ -4,7 +4,7 @@ It was only their second show since Danny’s funeral, and the set list was stil
 
 After a heartfelt introduction (it was that kind of night), Bruce and Roger played a consoling “Turn! Turn! Turn!” that would eventually be officially released on the *Magic Tour Highlights* EP. But that wasn’t the only number the two men played that night–they followed “Turn! Turn! Turn!” with The Byrds’ other number one hit, “Mr. Tambourine Man.”
 
-[Watch Video Highlight](https://videopress.com/embed/Ifqqc6cS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ifqqc6cS)
 
 Although this was the first time Bruce and Roger performed the song together in public, they’d actually performed it once before, almost two decades earlier in a most private setting: at Tom Petty’s birthday party in 1990.
 
@@ -19,7 +19,7 @@ That’s because the “Mr. Tambourine Man” was more than twice as long when B
 It was the abridged Byrds’ version that became a smash hit, though. In a way, Bruce was covering both Dylan and The Byrds that night, using Dylan’s original lyrics and The Byrds’ arrangement for a one-time-only special performance.
 
 **Mr. Tambourine Man**
-**First performed:** October 29, 1990 (Encino, CA)  
+**First performed:** October 29, 1990 (Encino, CA)
 **Last performed:** April 23, 2008 (Orlando, FL)
 
 © December 28, 2019

@@ -170,7 +170,7 @@ WE LOVE NYC – The Homecoming Concert starts at 5 p.m. ET. Presented by
 
 [@Expedia](https://twitter.com/Expedia?ref_src=twsrc%5Etfw)[pic.twitter.com/A5RXHG3fHs](https://t.co/A5RXHG3fHs)
 
-— CNN (@CNN) 
+— CNN (@CNN)
 
 [August 14, 2021](https://twitter.com/CNN/status/1426355433028136960?ref_src=twsrc%5Etfw)
 

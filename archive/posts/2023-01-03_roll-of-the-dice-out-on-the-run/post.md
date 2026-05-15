@@ -20,7 +20,7 @@ Even Bruce’s abandoned experiments often point the way to something better.
 
 **Bonus:** Here’s an early 1979 recording of Bruce working on the riff alone at home, prior to the rehearsal sessions above.
 
-[Watch Video Highlight](https://videopress.com/embed/TnSI3PrI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TnSI3PrI)
 
 **Out on the Run**
 **Recorded:** March 30, 1979 (rehearsals only)<br>

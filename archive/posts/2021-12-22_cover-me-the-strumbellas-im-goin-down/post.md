@@ -8,7 +8,7 @@ Please enjoy this picture of Bruce Springsteen with a puppy in his shirt thank y
 
 [pic.twitter.com/tjYWRVxCUC](https://t.co/tjYWRVxCUC)
 
-— The Strumbellas (@thestrumbellas) 
+— The Strumbellas (@thestrumbellas)
 
 [March 25, 2016](https://twitter.com/thestrumbellas/status/713515659020337153?ref_src=twsrc%5Etfw)
 

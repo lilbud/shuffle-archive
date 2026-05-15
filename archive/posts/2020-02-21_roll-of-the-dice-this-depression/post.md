@@ -85,8 +85,8 @@ Despite a momentary lyrical lapse and some audio difficulties during Nils’ sol
 
 **This Depression**
 **Recorded:** Unknown  
-**Released:** *Wrecking Ball* (2012)  
-**First performed:** July 23, 2012 (Bergen, Norway)  
+**Released:** *Wrecking Ball* (2012)
+**First performed:** July 23, 2012 (Bergen, Norway)
 **Last performed:** July 24, 2013 (Leeds, England)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

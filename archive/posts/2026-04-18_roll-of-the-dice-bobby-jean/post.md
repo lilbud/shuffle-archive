@@ -71,8 +71,8 @@ He also gave it the Seeger Sessions treatment on the *Bruce Springsteen with the
 
 **Bobby Jean**
 **Recorded:** January 1982-February 1984  
-**Released:** *Born in the U.S.A.* (1984)  
-**First performed:** June 29, 1984 (St. Paul, MN)  
+**Released:** *Born in the U.S.A.* (1984)
+**First performed:** June 29, 1984 (St. Paul, MN)
 **Last performed:** April 7, 2026 (Los Angeles, CA)
 
 © June 19, 2018

@@ -20,7 +20,7 @@ It’s a sex song.
 
 And come on: even if you didn’t know Bruce is singing about his character’s penis, you *kind of* knew, didn’t you? Especially if you’ve seen him perform it live:
 
-[Watch Video Highlight](https://videopress.com/embed/8ps8Tagv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8ps8Tagv)
 
 “Ramrod” is as big a celebration of life as anything Bruce has ever written, and if there’s anything about the narrator to be pitied, perhaps its his somewhat naïve notion that marriage is the key to everlasting sex.
 
@@ -94,8 +94,8 @@ But no matter what the form, “Ramrod” is an opportunity for Bruce to cut loo
 
 **Ramrod**
 **Recorded** June 1979 – April 1980  
-**Released:** *The River* (1980)  
-**First performed:** December 28, 1978 (Pittsburgh, PA)  
+**Released:** *The River* (1980)
+**First performed:** December 28, 1978 (Pittsburgh, PA)
 **Last performed:** May 27, 2023 (Amsterdam, The Netherlands)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

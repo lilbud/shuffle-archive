@@ -18,7 +18,7 @@ Casual listeners might misinterpret “We Take Care of Our Own” as boastful ra
 
 That’s why this particular moment from November 7, 2020 worked instead of baffled:
 
-[Watch Video Highlight](https://videopress.com/embed/uNdft2RJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uNdft2RJ)
 
 It worked because “We Take Care of Our Own” is more than just scolding disillusionment. It’s also a reminder: *We are better than this*.
 
@@ -109,8 +109,8 @@ In a stripped-down arrangement with warm vocals, the full plaintive power of the
 
 **We Take Care of Our Own**
 **Recorded** 2011  
-**Released:** *Wrecking Ball* (2012)  
-**First performed:** February 10, 2012 (Los Angeles, CA)  
+**Released:** *Wrecking Ball* (2012)
+**First performed:** February 10, 2012 (Los Angeles, CA)
 **Last performed:** June 22, 2016 (Copenhagen, Denmark)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

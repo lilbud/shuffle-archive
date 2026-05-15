@@ -71,8 +71,8 @@ May you live long and prosper.
 
 **Burnin’ Train**
 **Recorded** ? – 2019  
-**Released:** *Letter to You* (2020)  
-**First performed:** February 1, 2023 (Tampa, FL)  
+**Released:** *Letter to You* (2020)
+**First performed:** February 1, 2023 (Tampa, FL)
 **Last performed:** March 7, 2023 (Milwaukee, WI)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

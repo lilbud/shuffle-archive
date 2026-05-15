@@ -6,7 +6,7 @@ Well, it all comes down to a flat-bed truck, a load of chickens, and [Bobby Jean
 
 Buckle up, and we’ll listen to “Delivery Man,” Bruce Springsteen’s unreleased prequel to “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/).”
 
-[Watch Video Highlight](https://videopress.com/embed/NfMckKM4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NfMckKM4)
 
 Bruce recorded “Delivery Man” in early 1983, sometime after he recorded “Darlington County.” Whether he’d written “Delivery Man” earlier than that, we don’t know–but we do know that the unreleased song foreshadows and explains much of Darlington’s road-trip action.
 

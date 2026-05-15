@@ -86,8 +86,8 @@ https://youtu.be/C-dhZR5uTgY
 
 **We Are Alive**
 **Recorded** 2011  
-**Released:** *Wrecking Ball* (2012)  
-**First performed:** March 9, 2012 (New York City, NY)  
+**Released:** *Wrecking Ball* (2012)
+**First performed:** March 9, 2012 (New York City, NY)
 **Last performed:** May 1, 2014 (Tampa, FL)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

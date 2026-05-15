@@ -149,8 +149,8 @@ You can listen to the live recording below, but I honestly think you’re better
 
 **Western Stars**
 **Recorded** Unknown  
-**Released:** *Western Stars* (2019)  
-**First performed:** April 2019 (Colts Neck, NJ)  
+**Released:** *Western Stars* (2019)
+**First performed:** April 2019 (Colts Neck, NJ)
 **Last performed:** April 2019 (Colts Neck, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

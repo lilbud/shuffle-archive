@@ -34,7 +34,7 @@ The 2016 River Tour was a missed opportunity to give “The Time That Never Was�
 
 **The Time That Never Was**
 **Recorded** June 27, 1979 – March 16, 1980  
-**Released:** *The River: Outtakes* (2015)  
+**Released:** *The River: Outtakes* (2015)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

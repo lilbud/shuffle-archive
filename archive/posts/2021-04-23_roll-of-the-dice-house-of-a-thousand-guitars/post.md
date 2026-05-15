@@ -15,7 +15,7 @@ And we should have seen it coming.
 
 He may have finished it in 2019, but Bruce started writing “House of a Thousand Guitars” at least a decade prior. The phrase “a thousand guitars” appears in “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)” on his 2007 *Magic* album, and it means there what it means here. And as for the house metaphor, he embraced that nightly on the Working on a Dream Tour in 2009.
 
-[Watch Video Highlight](https://videopress.com/embed/SYlzK66k?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SYlzK66k)
 
 The house metaphor didn’t originate with Bruce; he’s cited the gospel standard “I’m Working on a Building” as his inspiration for the idea.
 
@@ -109,8 +109,8 @@ A deep cut in every sense, “House of a Thousand Guitars” is the letter in *L
 
 **House of a Thousand Guitars**
 **Recorded** November 2019  
-**Released:** *Letter to You* (2020)  
-**First performed:** November 18, 2020 (Colts Neck, NJ)  
+**Released:** *Letter to You* (2020)
+**First performed:** November 18, 2020 (Colts Neck, NJ)
 **Last performed:** February 3, 2023 (Atlanta, GA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

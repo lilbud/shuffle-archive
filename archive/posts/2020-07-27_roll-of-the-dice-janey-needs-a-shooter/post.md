@@ -15,7 +15,7 @@ In the autumn of 1971, The Bruce Springsteen Band performed a song called “[Ta
 
 “Talking About My Baby” is a beautiful song that we’ll delve into in greater detail someday, but for now just take a listen, enjoy, and note the melody for comparison purposes.
 
-[Watch Video Highlight](https://videopress.com/embed/Ce3a1tdd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ce3a1tdd)
 
 We have no records to indicate if Bruce ever played “Talking About My Baby” other than that one time, but at least we know he didn’t forget about the song entirely. Bruce wrote a new song called “Janey Needs a Shooter” the following year and recorded it at 914 Sound Studios just weeks after the release of *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*in January 1973.
 
@@ -154,8 +154,8 @@ Janey has waited in the wings for far too long to be denied some time in the sun
 [Watch on Youtube: Bruce Springsteen Jeannie Needs A Shooter #2](https://www.youtube.com/watch?v=eWb7tjESLzY)
 
 **Janey Needs a Shooter**
-**Recorded** January 29, 1973 (solo), November 2019 (band)  
-**Released:** *Letter to You* (2020)  
+**Recorded** January 29, 1973 (solo), November 2019 (band)
+**Released:** *Letter to You* (2020)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

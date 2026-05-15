@@ -19,7 +19,7 @@ https://www.youtube.com/watch?v=IC6uXVGVnq0
 
 Still, it was enough to capture the imagination of Bruce Springsteen, a long-avowed Animals fan. A decade ago, Bruce and Little Steven shared their mutual appreciation of The Animals on an episode of *Little Steven’s Underground Garage*, and it was then that Bruce spilled the beans about “Badlands.” Take a listen:
 
-[Watch Video Highlight](https://videopress.com/embed/Vi2qMA7f?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Vi2qMA7f)
 
 And yet even though he’d covered The Animals many times in concert, and even though “Don’t Let Me Be Misunderstood” inspired one of his most-performed songs, Bruce has never covered it in concert.
 

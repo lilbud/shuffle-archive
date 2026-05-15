@@ -77,8 +77,8 @@ So come on, Bruce: Bring “American Beauty” to the stage on your next tour. Y
 
 **American Beauty**
 **Recorded:** early 2013  
-**Released:** *American Beauty* (2014)  
-**First performed:** April 19, 2014 (soundcheck only)  
+**Released:** *American Beauty* (2014)
+**First performed:** April 19, 2014 (soundcheck only)
 **Last performed:** April 19, 2014 (soundcheck only)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

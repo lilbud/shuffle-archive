@@ -80,7 +80,7 @@ So don’t ask me which is the stronger song–at least not yet. We’ll pick up
 
 **Candy’s Boy**
 **Recorded** June 1977  
-**Released:** *The Promise* (2010)  
+**Released:** *The Promise* (2010)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -10,7 +10,7 @@ Elvis was invited back a week later, but again he was barred from playing his ne
 
 Only on February 11, his third consecutive weekly appearance, did the Dorsey Brothers relent. Elvis drove up to New York City during a snowstorm to perform his new song (along with “[Blue Suede Shoes](https://estreetshuffle.com/index.php/2020/10/19/matr-bruce-springsteen-and-john-eddie-blue-suede-shoes/)“) backed by the house orchestra. With little time to rehearse, it wasn’t the tightest performance, but it did the trick.
 
-[Watch Video Highlight](https://videopress.com/embed/Jwg7YAQB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Jwg7YAQB)
 
 “Heartbreak Hotel” entered the Billboard Pop and Country & Western charts eleven days later; within two months, it would be sitting on top of both.
 
@@ -39,7 +39,7 @@ Bruce continued to perform “Heartbreak Hotel” throughout the Darkness Tour, 
 Almost forty years down the road, Bruce has yet to revisit “Heartbreak Hotel.”
 
 **Heartbreak Hotel**
-**First performed:** December 2, 1977 (New York City, NY)  
+**First performed:** December 2, 1977 (New York City, NY)
 **Last performed:** June 13, 1982 (Asbury Park, NJ)
 
 

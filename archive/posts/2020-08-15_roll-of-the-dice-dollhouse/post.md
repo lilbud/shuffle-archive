@@ -108,8 +108,8 @@ Not only did that excised verse break the song’s spell by abandoning the metap
 
 **Dollhouse**
 **Recorded** August 20-21, 1979  
-**Released:** *Tracks* (1998); *The Ties That Bind* (2015)  
-**First performed:** April 24, 1999 (Vienna, Austria)  
+**Released:** *Tracks* (1998); *The Ties That Bind* (2015)
+**First performed:** April 24, 1999 (Vienna, Austria)
 **Last performed:** April 25, 1999 (Vienna, Austria)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -52,12 +52,12 @@ In Patti, Bruce found someone who understood him, who he could open up to, who v
 
 In concert, “Better Days” was a staple of the 1992 and 1993 tours, but it’s only been seen fourteen times since. One of those times was acoustic–a lovely guitar-and-harmonica arrangement, and a duet with Elliot Murphy in Paris from 2005:
 
-[Watch Video Highlight](https://videopress.com/embed/OBaFOsgK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OBaFOsgK)
 
 **Better Days**
 **Recorded** 1991-1992  
-**Released:** *Lucky Town* (1992), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)  
-**First performed:** May 6, 1992 (New York City, NY)  
+**Released:** *Lucky Town* (1992), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
+**First performed:** May 6, 1992 (New York City, NY)
 **Last performed:** February 14, 2017 (Brisbane, Australia)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

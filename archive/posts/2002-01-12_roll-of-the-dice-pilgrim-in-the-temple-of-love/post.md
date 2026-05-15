@@ -34,7 +34,7 @@ The notion that we have different identities depending on who we’re with and w
 
 “Pilgrim in the Temple of Love” shocks with its graphicness and amuses with its ribald humor, but if we listen closely, it actually has a lot to say about the nature of celebrity. Let’s take a listen.
 
-[Watch Video Highlight](https://videopress.com/embed/l23UMDwN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/l23UMDwN)
 
 Now you might be thinking: perhaps this is a song that doesn’t warrant deep analysis, but bear with me. Our story begins on Christmas Eve, as our hero pulls up to a favorite local haunt:
 
@@ -154,7 +154,7 @@ I imagine that for Bruce Springsteen, that momentary freedom from his public fac
 **Pilgrim in the Temple of Love**
 Never recorded**  
 **Never released**  
-**First performed:** April 16, 1996 (London, England)  
+**First performed:** April 16, 1996 (London, England)
 **Last performed:** February 8, 1997 (Sydney, Australia)
 
 (c) December 8, 2020 by Ken Rosen

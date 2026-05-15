@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qYS6FRjrkU8)
 
-[Watch Video Highlight](https://videopress.com/embed/OBkPeYRa?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OBkPeYRa)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/06/madison78.jpg)
 
@@ -18,7 +18,7 @@
 
 **1981:** The European leg of the River Tour wraps up with a second show in Birmingham, England.
 
-[Watch Video Highlight](https://videopress.com/embed/dAro3Txt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dAro3Txt)
 
 **1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. “Glory Days,” “Darlington County,” “My Hometown,” and “Born in the U.S.A.” all make their live debuts. Listen to this historic bar gig below.
 
@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hfIsMDrMlSY)
 
-[Watch Video Highlight](https://videopress.com/embed/tmFvbnx2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tmFvbnx2)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Bristol_Herald_Courier__Bristol_Virginia_Tennessean_Mon__Jun_10__1985_-scaled.jpg)
 
@@ -56,4 +56,4 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/oSPCqjbM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oSPCqjbM)

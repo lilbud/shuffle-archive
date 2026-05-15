@@ -2,7 +2,7 @@
 
 With those eerily prescient words, Bruce introduced “Man at the Top,” one of the very last songs he’d recorded during the *Born in the U.S.A.* sessions but that never made it on the album.
 
-[Watch Video Highlight](https://videopress.com/embed/Fc7MUod3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Fc7MUod3)
 
 Played solo and acoustically, sung introspectively, and backed by what is very possibly the E Street Band’s finest harmony, Bruce’s rendition of “Man at the Top” that night–the second of only three performances ever–still ranks (in my opinion, at least) among Bruce’s finest yet underrated on-stage moments.
 
@@ -59,8 +59,8 @@ Performed in the same arrangement he used for the Born in the U.S.A. Tour, Bruce
 
 **Man at the Top**
 **Recorded** January 12, 1984  
-**Released:** *Tracks* (1988)  
-**First performed:** July 12, 1984 (East Troy, WI)  
+**Released:** *Tracks* (1988)
+**First performed:** July 12, 1984 (East Troy, WI)
 **Last performed:** July 28, 2013 (Kilkenny, Ireland)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

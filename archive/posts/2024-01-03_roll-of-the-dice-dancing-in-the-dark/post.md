@@ -178,7 +178,7 @@ They inspired another. And then another.
 
 To this day, when Bruce hits the road with the E Street Band, there’s guaranteed to be a fan or two (or a dozen) on stage with them at the end of the night, dancing with abandon. And as the artist gets older, the dancers get younger–a fact that must certainly delight a songwriter and performer thinking hard about his legacy.
 
-[Watch Video Highlight](https://videopress.com/embed/v4n1R752?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/v4n1R752)
 
 (Thanks, Sandy, for that video!)
 
@@ -188,8 +188,8 @@ With luck, Bruce and the E Street Band will be back out on the road next year, a
 
 **Dancing in the Dark**
 **Recorded** February 14 – March 8, 1984  
-**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)  
-**First performed:** May 26, 1984 (Asbury Park, NJ)  
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
+**First performed:** May 26, 1984 (Asbury Park, NJ)
 **Last performed:** November 6, 2023 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

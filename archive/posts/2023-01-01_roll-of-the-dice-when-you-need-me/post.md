@@ -64,7 +64,7 @@ Which is exactly how Bruce seems to have treated it: “When You Need Me” has 
 
 **When You Need Me**
 **Recorded** January 10, 1987  
-**Released:** *Tracks* (1998)  
+**Released:** *Tracks* (1998)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

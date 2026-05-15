@@ -48,7 +48,7 @@
 
 **1985:** Night Two in Rotterdam on the Born in the U.S.A. Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/QjeJxsm9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QjeJxsm9)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/06/1985-0613.jpg)
 
@@ -64,7 +64,7 @@
 
 **2005:** Bruce’s solo acoustic mini-tour of Germany begins with a show at Olympiahalle in Munich. Bruce opens with the tour premiere of “Into the Fire” and tour premieres “Point Blank” and “Bobby Jean” as well.
 
-[Watch Video Highlight](https://videopress.com/embed/BUkie5gm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BUkie5gm)
 
 **2006:** Bruce and the Sessions Band play to a sparse crowd at the First Midwest Bank Amphitheater in Tinley Park, Illinois, where Bruce debuts a new arrangement and verse for “Further On (Up the Road).”
 
@@ -74,7 +74,7 @@
 
 **2009:** Bruce headlines Bonnaroo, Max returns to the band (for half the show), and Evan Springsteen plays guitar on “American Land.” Watch the marvelously filmed “Outlaw Pete” below.
 
-[Watch Video Highlight](https://videopress.com/embed/kLcd8kmd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kLcd8kmd)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1YCoyWb5uSA)
 

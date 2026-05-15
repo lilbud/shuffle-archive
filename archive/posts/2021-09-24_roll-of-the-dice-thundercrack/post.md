@@ -10,7 +10,7 @@ Still, there’s no contesting the historical significance of “Thundercrack.�
 
 But “Thundercrack” is worthy of consideration and appreciation on its own merits, so let’s take a listen to it together, starting with its earliest known circulating performance, from January 31, 1973.
 
-[Watch Video Highlight](https://videopress.com/embed/eziesEzW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eziesEzW)
 
 As we can tell, “Thundercrack” didn’t exactly leave Bruce’s audiences gasping for breath in the beginning. That’s in large part due to the mid-song comedy breaks and extended fadeout section (the latter of which was often so quiet that the band was practically inaudible for long stretches) that sapped the song of its momentum.
 
@@ -102,7 +102,7 @@ At one point considered as the lead-off to Bruce’s second album, “Thundercra
 
 Longtime fans were disappointed that “Thundercrack” wasn’t one of the *Tracks* tracks featured on the Reunion Tour at the turn of the century, but Bruce hadn’t forgotten about it. He just saved it for a hometown crowd. Without any fanfare, he launched into it early in the set at his holiday benefit show in Asbury Park on December 3, 2001. It wasn’t quite the E Street Band (minus Steve and Roy, plus Soozie and the Max Weinberg 7), but it was a joyous and faithful rendition all the same, particularly benefitting from Soozie’s fiddle.
 
-[Watch Video Highlight](https://videopress.com/embed/E3R2dicJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/E3R2dicJ)
 
 It went over so well that Bruce played it every night of that holiday stand and every night of the next one as well, in 2003.
 
@@ -130,8 +130,8 @@ And really, who can blame them? It’s guaranteed fun at the very least, and a r
 
 **Thundercrack**
 **Recorded** 1973-1974, 1997  
-**Released:** *Tracks* (1998)  
-**First performed:** October 29, 1972 (Long Branch, NJ)  
+**Released:** *Tracks* (1998)
+**First performed:** October 29, 1972 (Long Branch, NJ)
 **Last performed:** September 7, 2016 (Philadelphia, PA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

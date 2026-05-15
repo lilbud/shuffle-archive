@@ -23,7 +23,7 @@ First, we have an early lyrics sheet that shows us that Bruce hadn’t yet settl
 
 An early live recording (but not *that* early–only weeks before Bruce recorded “Phantoms” in the studio, in fact) tells the same story but apparently with understudies: the recording below is the tale of Billy and Bobby instead of Jamey and Jessie.
 
-[Watch Video Highlight](https://videopress.com/embed/LLhVt7Mc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LLhVt7Mc)
 
 Still other early lyrics revolve around Billy and Lou, and sometimes the action switches from St. George to St. Croix.
 
@@ -65,7 +65,7 @@ Miles to go is miles away.
 **Phantoms**
 **Recorded:** June 1973  
 **Never released**
-**First performed:** June 13, 1973 (Binghamton, NY)  
+**First performed:** June 13, 1973 (Binghamton, NY)
 **Last performed:** June 13, 1973 (Binghamton, NY)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

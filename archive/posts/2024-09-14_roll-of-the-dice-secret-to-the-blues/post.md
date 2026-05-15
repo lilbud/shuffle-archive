@@ -33,7 +33,7 @@ From the opening measures of “Secret to the Blues,” we can hear Bruce go to 
 **Secret to the Blues**
 **Never Recorded**
 **Never Released**
-**First performed:** January 4, 1973 (Bryn Mawr, PA)  
+**First performed:** January 4, 1973 (Bryn Mawr, PA)
 **Last performed:** June 13, 1973 (Binghamton, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries coming soon!

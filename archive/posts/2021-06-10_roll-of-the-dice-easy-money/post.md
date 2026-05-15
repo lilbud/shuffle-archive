@@ -63,8 +63,8 @@ That’s too bad, because “Easy Money” was both a crowd- and artist-pleaser,
 
 **Easy Money**
 **Recorded:** 2011  
-**Released:** *Wrecking Ball* (2011)  
-**First performed:** March 18, 2012 (Atlanta, GA)  
+**Released:** *Wrecking Ball* (2011)
+**First performed:** March 18, 2012 (Atlanta, GA)
 **Last performed:** September 19, 2012 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -86,11 +86,11 @@ Those lines don’t appear in any other of the versions floating around, so it m
 
 And then there’s whatever this version is:
 
-[Watch Video Highlight](https://videopress.com/embed/yPReuND7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yPReuND7)
 
 …and this lovely acoustic version (with some slight lyrical changes and verse swapping):
 
-[Watch Video Highlight](https://videopress.com/embed/f1SqqG0a?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/f1SqqG0a)
 
 But the version at the top of this essay is the one that Bruce decided to release, and it’s the version he sang once at Sony Studios in 1995 before changing the song forever five years later.
 
@@ -130,7 +130,7 @@ When the band regrouped for their first show after Danny’s passing, a video tr
 
 The following night, Bruce and the band–still healing as they would continue to do for some time to come–opened with their one and only performance of the rock arrangement of “Blood Brothers.”
 
-[Watch Video Highlight](https://videopress.com/embed/HB5j102B?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HB5j102B)
 
 Bruce only played “Blood Brothers” one time since–by request in Perth in 2017, and at the opening rather than closing show of a tour.
 
@@ -144,8 +144,8 @@ In any arrangement, “Blood Brothers” continues to be an emotional rarity, lo
 
 **Blood Brothers**
 **Recorded** January 1995  
-**Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)  
-**First performed:** April 4, 1995 (New York City, NY)  
+**Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)
+**First performed:** April 4, 1995 (New York City, NY)
 **Last performed:** January 22, 2017 (Perth, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

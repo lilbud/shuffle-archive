@@ -145,8 +145,8 @@ But apart from an odd arrangement on the Reunion Tour (which thankfully never su
 
 **No Surrender**
 **Recorded** October 27, 1983  
-**Released:** *Born in the U.S.A.* (1984)  
-**First performed:** June 29, 1984 (St. Paul, MN)  
+**Released:** *Born in the U.S.A.* (1984)
+**First performed:** June 29, 1984 (St. Paul, MN)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

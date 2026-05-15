@@ -76,8 +76,8 @@ Bruce dropped it a few months into the tour and never attempted it with the E St
 
 **The Long Goodbye**
 **Recorded:** April-May, 1990  
-**Released:** *Human Touch* (1992)  
-**First performed:** June 26, 1992 (Frankfurt, Germany)  
+**Released:** *Human Touch* (1992)
+**First performed:** June 26, 1992 (Frankfurt, Germany)
 **Last performed:** October 22, 1992 (Mountain View, CA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

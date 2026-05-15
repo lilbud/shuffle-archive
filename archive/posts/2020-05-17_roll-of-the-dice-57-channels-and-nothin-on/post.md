@@ -110,7 +110,7 @@ Bruce leaned *all* the way in to TV sampling when he released his single for “
 
 [Watch on Youtube: Bruce Springsteen - 57 Channels (And Nothin' On) [Little Steven Mix 1] - 1992](https://www.youtube.com/watch?v=qGqkNagk8Gk)
 
-[Watch Video Highlight](https://videopress.com/embed/tOeMTIIW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tOeMTIIW)
 
 Bruce took those remix samples and used them on stage, and as is typically the case on tour, Bruce’s performances of “57 Channels” continued to grow in length and power with each passing month.
 
@@ -130,8 +130,8 @@ TV was now a part of life rather than apart from it, and Bruce would shortly hav
 
 **57 Channels (And Nothin’ On)**
 **Recorded** Early December 1990  
-**Released:** *Human Touch* (1992)  
-**First performed:** November 16, 1990 (Los Angeles, CA)  
+**Released:** *Human Touch* (1992)
+**First performed:** November 16, 1990 (Los Angeles, CA)
 **Last performed:** June 26, 1993 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -71,7 +71,7 @@ In the end, “Cowboys of the Sea” is little more than a footnote in Bruce’s
 **Cowboys of the Sea**
 **Recorded** April – July 1972  
 **Never released**
-**First performed:** February 4, 1972 (Richmond, VA)  
+**First performed:** February 4, 1972 (Richmond, VA)
 **Last performed:** February 25, 1972 (Richmond, VA)
 
 © September 17, 2021

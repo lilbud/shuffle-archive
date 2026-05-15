@@ -91,7 +91,7 @@ Bruce played “Night” for the first time during his legendary 1975 stand at T
 
 But “Night” is too powerful a song to remain on the shelf, so when Bruce reformed the E Street Band, he brought back his old fan favorite for a couple of outings, including this one–its first outing in fifteen years. Listen to Bruce surprise a hometown crowd by opening his Reunion Show at the Meadowlands with the long-awaited return of “Night.”
 
-[Watch Video Highlight](https://videopress.com/embed/Y78DAxC5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Y78DAxC5)
 
 But it was on the Rising Tour when Bruce finally brought back “Night” as a semi-regular staple of his set lists, perhaps to balance the heaviness of the Rising material that formed the spine of the tour. Fortunately one fantastic performance was captured professionally for *Live in Barcelona.*
 
@@ -105,18 +105,18 @@ That’s a good thing, because “Night” never gets old. It’s a shot of clas
 
 Here’s one of them, from nine months earlier in August 1974:
 
-[Watch Video Highlight](https://videopress.com/embed/dUf7SCr3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dUf7SCr3)
 
 …and another from April, 1975 just weeks before recording the final version.
 
-[Watch Video Highlight](https://videopress.com/embed/NjCeY1Dr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NjCeY1Dr)
 
 Both have minor lyrical differences (including some bluffing in the earlier version) and some minor musical variations as well. But both reveal just how clear Bruce’s vision was for the song almost a year before he officially recorded it in the studio.
 
 **Night**
 **Recorded:** May 10, 1975  
-**Released:** *Born to Run* (1975)  
-**First performed:** August 13, 1975 (New York City, NY)  
+**Released:** *Born to Run* (1975)
+**First performed:** August 13, 1975 (New York City, NY)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -10,11 +10,11 @@ Both surviving recordings are a bit distant, and it can be hard to make out Bruc
 
 Let’s take a listen, starting with this first performance. Of particular note here is the three-minute introductory interplay between Bruce on guitar and David Sancious on keys. It’s almost certainly improvised, and both artists dazzle in their duel.
 
-[Watch Video Highlight](https://videopress.com/embed/I8DjdsIW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/I8DjdsIW)
 
 The other surviving performance is from the same month (perhaps earlier, perhaps later, but certainly only a few weeks apart at most). Disappointingly, the intro is shorter and Sancious-less; without the rocket boost provided by the earlier performance’s introduction, this performance is slower and more of a straight-up rocker.
 
-[Watch Video Highlight](https://videopress.com/embed/9eBAYPhh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9eBAYPhh)
 
 Comparing the two contemporaneous performances gives us a pretty good idea of how loose and improvisational those early shows were.
 
@@ -51,7 +51,7 @@ If Bruce ever surprises us with an archive series document of one of these early
 **All I Want to Do Is Dance**
 Never recorded**
 **Never released**
-**First performed:** February 4, 1972 (Richmond, VA)  
+**First performed:** February 4, 1972 (Richmond, VA)
 **Last performed:** February 26, 1972 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

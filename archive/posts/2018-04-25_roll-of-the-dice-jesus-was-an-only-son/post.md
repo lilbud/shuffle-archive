@@ -33,8 +33,8 @@ Despite its historical subject matter, “Jesus Was an Only Son” feels like on
 
 **Jesus Was an Only Son**  
 **Recorded:** Unknown–likely 2004  
-**Released:** *Devils & Dust* (2005)  
-**First performed:** April 4, 2005 (Red Bank, NJ/VH1 Storytellers)  
+**Released:** *Devils & Dust* (2005)
+**First performed:** April 4, 2005 (Red Bank, NJ/VH1 Storytellers)
 **Last performed:** November 19, 2006 (Dublin, Ireland)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -139,12 +139,12 @@ He’s played it that way ever since–at pre-election rallies for Secretary Cli
 
 Unfortunately, by the time Bruce recorded and filmed his Broadway show for official release, “Long Walk Home” had been dropped from the set. But if you weren’t lucky enough to catch it live during its run, I’ll leave you with it now. Enjoy.
 
-[Watch Video Highlight](https://videopress.com/embed/nKNDHlSR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nKNDHlSR)
 
 **Long Walk Home**
 **Recorded** March-April 2007  
-**Released:** *Magic* (2007)  
-**First performed:** November 11, 2006 (London, England)  
+**Released:** *Magic* (2007)
+**First performed:** November 11, 2006 (London, England)
 **Last performed:** November 18, 2020 (Colts Neck, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

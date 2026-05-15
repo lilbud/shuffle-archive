@@ -55,7 +55,7 @@ And the next time you hear someone complain about Bruce getting political in his
 **The War Is Over**
 **Never recorded**
 Never released**
-**First performed:** September 20, 1969 (Richmond, VA)  
+**First performed:** September 20, 1969 (Richmond, VA)
 **Last performed:** August 14, 1970 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

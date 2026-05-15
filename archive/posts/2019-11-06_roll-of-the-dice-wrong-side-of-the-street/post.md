@@ -59,8 +59,8 @@ Like several of the songs on *The Promise*, I can’t help but suspect that the 
 It’s hard to blame Bruce, though, because it’s a great backing track with terrific tandem solos from Bruce and Clarence. Still, “Wrong Side of the Street” is a lyrical lightweight, likely to remain unperformed for the foreseeable future.
 
 **Wrong Side of the Street**
-**Recorded:** October 14, 1977 (backing track); 2010 (vocals)  
-**Released:** *The Promise* (2010)  
+**Recorded:** October 14, 1977 (backing track); 2010 (vocals)
+**Released:** *The Promise* (2010)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

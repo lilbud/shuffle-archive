@@ -12,7 +12,7 @@ In Australia, “Just Like Fire Would” peaked at #29, and the Triple M radio n
 
 Maybe that’s why Bruce decided to cover it when he took his Wrecking Ball Tour down under in the (Australian) summer of 2013. Or maybe he was simply looking for an excuse to play a song he’s always liked. Here’s Bruce discussing “Just Like Fire Would” on E Street Radio in early 2014:
 
-[Watch Video Highlight](https://videopress.com/embed/wNpoULsY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wNpoULsY)
 
 It really does sound like an E Street Band song, which may be why Bruce kept his arrangement very close to the original. The bridge greatly benefits from the presence of the E Street Horns, but otherwise this a very faithful cover.
 
@@ -26,7 +26,7 @@ That video was put together rather hastily: it was filmed on January 13, 2014 an
 
 But if you want to get a sense of what that live performance *actually* sounded like, watch the rarely seen video below. The official video was filmed at a closed rehearsal for the band’s appearance on *Late Night with Jimmy Fallon* the next day. Bruce and the band performed the song for Fallon’s audience, but it was cut from the broadcast for time. Here’s that unaired performance:
 
-[Watch Video Highlight](https://videopress.com/embed/hWuIxuPl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hWuIxuPl)
 
 “Just Like Fire Would” served as a staple of the High Hopes Tour set lists throughout the Australian/New Zealand leg, a reliable crowd-pleaser for the local audiences.
 
@@ -36,8 +36,8 @@ I was lucky enough to catch it twice–in Cape Town and Charlotte, and I count m
 
 **Just Like Fire Would**
 **Recorded** March 2013  
-**Released:** *High Hopes* (2014)  
-**First performed:** March 14, 2012 (Brisbane, Australia)  
+**Released:** *High Hopes* (2014)
+**First performed:** March 14, 2012 (Brisbane, Australia)
 **Last performed:** April 26, 2014 (Atlanta, GA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

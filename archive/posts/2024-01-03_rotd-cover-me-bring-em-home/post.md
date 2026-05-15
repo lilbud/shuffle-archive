@@ -62,8 +62,8 @@ Like all great folk songs, Pete Seeger’s patriotic anti-war song will continue
 
 **Bring ‘Em Home**
 **Recorded** January 21 and May 18, 2006  
-**Released:** *Bring ‘Em Home* (single, 2006)  
-**First performed:** May 10, 2006 (Paris, France)  
+**Released:** *Bring ‘Em Home* (single, 2006)
+**First performed:** May 10, 2006 (Paris, France)
 **Last performed:** November 14, 2006 (Sheffield, England)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

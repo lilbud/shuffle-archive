@@ -22,7 +22,7 @@
 
 **1988:** At Night Two at Villa Park in Birmingham, England, on the Tunnel of Love Tour, Edwin Starr drops by to perform “War” with the band.
 
-[Watch Video Highlight](https://videopress.com/embed/BFpYsmqK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BFpYsmqK)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IWi4gO40EH0)
 
@@ -30,7 +30,7 @@
 
 **2000:** The Reunion Tour’s last stand reaches its halfway point on Night Five at Madison Square Garden. Surprises continue starting with the opener: the premiere of “Another Thin Line.” Late in the set, lucky fans get the tour premiere of “Secret Garden” as well, plus a guest appearance by Soozie Tyrell on a beautiful arrangement of “The Ghost of Tom Joad.”
 
-[Watch Video Highlight](https://videopress.com/embed/qRFjgNwt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qRFjgNwt)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0oSrbygepJ8)
 
@@ -46,7 +46,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tpeisHYbKdE)
 
-[Watch Video Highlight](https://videopress.com/embed/WbnXwnwr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WbnXwnwr)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/2006-06-22.jpg)
 

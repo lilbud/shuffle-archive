@@ -106,10 +106,13 @@ def insert_post() -> None:
                     {"id": rp["id"]},
                 ).fetchone()
 
-                cur.execute(
-                    """insert into related_posts (related_post_id, post_id) values (%(related_post)s, %(post)s) on conflict (related_post_id, post_id) do nothing""",
-                    {"related_post": rel_id["id"], "post": db_post_id["id"]},
-                )
+                try:
+                    cur.execute(
+                        """insert into related_posts (related_post_id, post_id) values (%(related_post)s, %(post)s) on conflict (related_post_id, post_id) do nothing""",
+                        {"related_post": rel_id["id"], "post": db_post_id["id"]},
+                    )
+                except TypeError:
+                    continue
 
 
 if __name__ == "__main__":

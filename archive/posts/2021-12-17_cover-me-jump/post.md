@@ -14,8 +14,8 @@ The E Street Band proved remarkably well-suited for the song, particularly with 
 
 That show was essentially the rehearsal for the U.S. leg of the *High Hopes* Tour. Bruce and the band gave “Jump” one more shot, at the very last show of the very short tour, at Mohegan Sun Arena in Uncasville, CT, on May 18th–and this time, they were a whole lot tighter.
 
-[Watch Video Highlight](https://videopress.com/embed/GpTncJij?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GpTncJij)
 
 **Jump**
-**First performed:** April 6, 2014 (Dallas, TX)  
+**First performed:** April 6, 2014 (Dallas, TX)
 **Last performed:** May 19, 2014 (Uncasville, CT)

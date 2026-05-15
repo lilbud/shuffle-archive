@@ -22,7 +22,7 @@
 
 **1982:** Bruce guests with Beaver Brown at The Fast Lane in Asbury Park for “[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/),” “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/),” “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/),” and “[Around and Around](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/).”
 
-[Watch Video Highlight](https://videopress.com/embed/FYSJTZ6R?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/FYSJTZ6R)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1982-0508.jpg)
 

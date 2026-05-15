@@ -33,7 +33,7 @@ We’ll leave aside the irony of Joe performing a “Thank goodness I didn’t m
 
 Instead, let’s just enjoy these longtime friends playing “Talking to the King” in one of their earliest performances together, back on the October Assault mini-tour for [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) in 1995.
 
-[Watch Video Highlight](https://videopress.com/embed/a5fl9cA4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/a5fl9cA4)
 
 Following their handful of performances on the American Babylon Tour, Bruce and Joe could be counted on to play “Talking to the King” pretty much any time they played together–and they played together often.
 
@@ -50,7 +50,7 @@ I’ll leave you with Bruce and Joe performing “Talking to the King” at Ligh
 [Watch on Youtube: Grushecky & Houserockers Bruce Springsteen](https://www.youtube.com/watch?v=JnFv1WiWmeo)
 
 **Talking to the King**
-**First performed:** October 17, 1995 (Asbury Park, NJ)  
+**First performed:** October 17, 1995 (Asbury Park, NJ)
 **Last performed:** January 18, 2020 (Asbury Park, NJ)
 
 

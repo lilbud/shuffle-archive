@@ -50,7 +50,7 @@ The show explores the complicated civil rights history of Yonkers, New York, and
 
 **Gave It a Name**
 **Recorded:** August 24, 1998  
-**Released:** *Tracks* (1998)  
+**Released:** *Tracks* (1998)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

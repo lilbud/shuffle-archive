@@ -14,7 +14,7 @@ The legendary rockers’ performance is a bit rocky–Bruce accidentally transpo
 
 **Bonus:** The clip above missed the introduction and opening line (and second ending), so here’s an intact audio version for your listening pleasure.
 
-[Watch Video Highlight](https://videopress.com/embed/QWUOhrvS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QWUOhrvS)
 
 **Only the Good Die Young**
 **First performed:** October 29, 2009 (New York City, NY)<br>

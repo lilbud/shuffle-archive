@@ -28,7 +28,7 @@ Okay, so maybe he wasn’t *Dirty Dancing* material. But how fun is it to watch 
 
 “Do You Love Me” remained a late encore highlight throughout the entire tour, with Bruce practicing and busting out new moves along the way.
 
-[Watch Video Highlight](https://videopress.com/embed/o27P2i1f?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/o27P2i1f)
 
 When the Born in the U.S.A. Tour ended, though, so did Bruce’s performances of “Do You Love Me”–which is odd, because the next time Bruce took the band out on the road, his shows revolved around a love-centric set list and “Do You Love Me” was on its way back up the charts. The circumstances couldn’t have been better suited for The Contours’ hit to make a return appearance to Bruce’s set.
 
@@ -37,7 +37,7 @@ Yet Bruce has only performed one post-1985 “Do You Love Me” in all the years
 By that time, though, he no longer needed to ask.
 
 **Do You Love Me**
-**First performed:** July 18, 1984 (Rosemont, IL)  
+**First performed:** July 18, 1984 (Rosemont, IL)
 **Last performed:** July 17, 1988 (Munich, West Germany)
 
 (c) December 1, 2021

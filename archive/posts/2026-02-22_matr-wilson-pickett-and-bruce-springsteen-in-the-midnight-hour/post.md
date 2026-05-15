@@ -4,7 +4,7 @@ Forty years ago tonight, Bruce Springsteen said goodbye to 1980 with an appropri
 
 “In the Midnight Hour” might have been a well-timed audible, but it would be hard to believe that Bruce didn’t at least have it in the back of his mind that evening. After all, the E Street Band had already played it twice in recent months, starting with their first-ever performance in Milwaukee on October 14th.
 
-[Watch Video Highlight](https://videopress.com/embed/If4eE6ah?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/If4eE6ah)
 
 This one was indeed an audible–we can clearly hear the delay of game as the band scrambles to figure out the song.
 
@@ -22,7 +22,7 @@ Although Bruce wouldn’t play “In the Midnight Hour” at a proper E Street B
 
 (Bruce did play “In the Midnight Hour” live once during the intervening years, but it was with his 1992-93 touring band, along with guest-star Peter Wolf.)
 
-[Watch Video Highlight](https://videopress.com/embed/oKcA8FZ4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oKcA8FZ4)
 
 Over the years, Bruce has played “In the Midnight Hour” over two dozen times with about as many artists and bands, but I suspect that for Bruce, one of those occasions ranks above the others: the time he got to perform it with the original artist himself.
 
@@ -52,7 +52,7 @@ In May 1995, Bruce attended John Fogerty’s 50th birthday party at John’s hou
 
 Here’s a brief snippet of John and Bruce performing “In the Midnight Hour” together in John’s living room.
 
-[Watch Video Highlight](https://videopress.com/embed/MvJaPHIS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MvJaPHIS)
 
 Happy new year, everyone–we made it!
 

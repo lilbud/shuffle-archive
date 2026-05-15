@@ -12,7 +12,7 @@ When The Wallflowers and Bruce Springsteen launched into “God Don’t Make Lon
 
 Then they took it higher. Take a listen below–it’s a one-time-only moment.
 
-[Watch Video Highlight](https://videopress.com/embed/fiwfljqg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fiwfljqg)
 
 **God Don’t Make Lonely Girls**
 **First performed:** March 8, 1997 (Sea Bright, NJ)<br>

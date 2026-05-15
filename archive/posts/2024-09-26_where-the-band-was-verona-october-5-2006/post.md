@@ -28,7 +28,7 @@ The show started with a trio of [*We Shall Overcome*](https://estreetshuffle.com
 
 Marc Anthony Thompson joined Bruce for their nightly “[Eyes on the Prize](https://estreetshuffle.com/index.php/2021/11/01/cover-me-eyes-on-the-prize/)” duet, followed by “[Jesse James](https://estreetshuffle.com/index.php/2019/07/10/roll-of-the-dice-cover-me-jesse-james/),” and then “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” became the first Springsteen original of the night.
 
-[Watch Video Highlight](https://videopress.com/embed/Dd91MY0J?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Dd91MY0J)
 
 “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” — that seemingly infinitely malleable and enduring ballad — was the second Bruce original, presented here in a waltz arrangement, while the crowd sang every note of the melody–even when there were no lyrics.
 
@@ -40,7 +40,7 @@ Even as they began to play it, I couldn’t believe it was happening. I don’t 
 
 Bruce followed that surprise with another one: the tour premiere of “[Bobby Jean.](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” I knew this was coming from the soundcheck, but I was thrilled he chose to play it.
 
-[Watch Video Highlight](https://videopress.com/embed/xjDDu5Ri?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xjDDu5Ri)
 
 The rest of the main set matched my memory of my earlier Glendale show, but there was one notable exception: the addition of “[The River,](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” which had become a set list standard on the European leg, recast in an Irish-tinged arrangement. I’ve always argued that Bruce’s greatest talent–perhaps even more than songwriting–is his amazing gift for endlessly re-arranging and re-inventing. “The River” sounded fresh and vital. Take a listen below.
 
@@ -50,7 +50,7 @@ The only notable omission so far was “[American Land](https://estreetshuffle.c
 
 When the band returned for the encores, I thought for sure Bruce would open with it–but he thew one last curve ball, tour premiering “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” — the first time I’d ever heard Bruce play it. The arrangement was pretty close to the original, so why did he choose to play it? Heck if I know. I’m just glad he did.
 
-[Watch Video Highlight](https://videopress.com/embed/s2KuaP2C?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/s2KuaP2C)
 
 [Watch on Youtube: 20061005 Springsteen Verona - Pay Me ...](https://www.youtube.com/watch?v=Hz6kT97ge3Q)
 
@@ -58,7 +58,7 @@ A couple of standard encores (“[Rag Mama Rag](https://estreetshuffle.com/index
 
 But Bruce had one more song to send us off with — a celebratory arrangement of the gospel classic “[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)” — and only at the very end of it, when I was absolutely *sure* he was done, did Bruce *finally* play my first “American Land.” It immediately became on of my favorites and remains so to this day.
 
-[Watch Video Highlight](https://videopress.com/embed/26lYeTOG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/26lYeTOG)
 
 Looking back, what I remember most about this show are the *feelings* more than the performances, the crowd more than the band, and that gorgeous venue under the starriest sky on a perfect night, half a world away from my home and my life.
 

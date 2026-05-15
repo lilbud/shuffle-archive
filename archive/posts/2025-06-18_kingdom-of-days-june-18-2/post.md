@@ -10,13 +10,13 @@
 
 **1983:** Bruce makes a guest appearance at The Stone Pony with The Diamonds. Listen to their mini-set of “[Around and Around](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/), “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/),” and “Twist and Shout” below.
 
-[Watch Video Highlight](https://videopress.com/embed/bfu6gyfx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bfu6gyfx)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/06/1983-0618.jpg)
 
 **1985:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Munich for a show at Olympiastadion.
 
-[Watch Video Highlight](https://videopress.com/embed/1ITbMJo8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1ITbMJo8)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/06/1985-0618.jpg)
 

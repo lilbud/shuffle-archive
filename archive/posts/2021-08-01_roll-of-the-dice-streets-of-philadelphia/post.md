@@ -2,7 +2,7 @@ Will the real “Streets of Philadelphia” please stand up?
 
 Is it the one that plays over the opening credits of Jonathan Demme’s film, *Philadelphia*?
 
-[Watch Video Highlight](https://videopress.com/embed/L1P2Lcad?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/L1P2Lcad)
 
 Or is it the four-minute-plus track released on the movie’s soundtrack?
 
@@ -28,7 +28,7 @@ Or could it be the version from the rarely seen video Bruce filmed in 1994?
 
 Oh, and then there’s the legendary version featuring jazz legends Ornette Coleman and Little Jimmy Scott, which remains unreleased to this day, although we can hear it playing during an emotional scene in *Philadelphia.*
 
-[Watch Video Highlight](https://videopress.com/embed/Bvgy1B4q?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Bvgy1B4q)
 
 That’s a whole lot of versions for a one-off, between-albums single, but “Streets of Philadelphia” is no ordinary song, not even for Bruce.
 
@@ -131,8 +131,8 @@ So if “Streets of Philadelphia” is on your chase list, you’ve still got a 
 
 **Streets of Philadelphia**
 **Recorded** August 1993  
-**Released:** *Philadelphia* (1994), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)  
-**First performed:** January 27, 1994 (Los Angeles, CA)  
+**Released:** *Philadelphia* (1994), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
+**First performed:** January 27, 1994 (Los Angeles, CA)
 **Last performed:** September 9, 2016 (Philadelphia, PA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries return in August!

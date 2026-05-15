@@ -107,7 +107,7 @@ Bruce recorded “Living Proof” essentially as a solo effort–Garry Mallaber�
 
 The E Street Band didn’t even attempt “Living Proof” until very late in The Rising Tour, although that’s more an artifact of Bruce’s belated rediscovery of his *Human Touch* and *Lucky Town* material as he was preparing his *Essential Bruce Springsteen* release. And those first E Street Band performances (there were two in rapid succession) didn’t quite pack the same punch as the 1992-93 versions.
 
-[Watch Video Highlight](https://videopress.com/embed/cQV0J1yV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cQV0J1yV)
 
 Bruce wouldn’t play “Living Proof” with the E Street Band again for another six years. Late in the Working on a Dream Tour, though, he brought it back thanks to fan’s sign request, and it turns out the song had aged well.
 
@@ -129,12 +129,12 @@ These days, “Living Proof” is considered a rarity. Bruce has only played it 
 
 **Bonus:** Of the 98 times Bruce has played “Living Proof” to date, only once has he played it “off tour.” That was in the summer of 1994, when Bruce played an unadvertised set with Joe Grushecky and The Houserockers at Marz American Style in Long Branch, New Jersey. Here’s that rarely heard performance, back when the song was still shiny and new.
 
-[Watch Video Highlight](https://videopress.com/embed/uJ7EeWz5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uJ7EeWz5)
 
 **Living Proof**
 **Recorded** July-December 1991  
-**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)  
-**First performed:** May 6, 1992 (New York City, NY)  
+**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
+**First performed:** May 6, 1992 (New York City, NY)
 **Last performed:** August 30, 2016 (East Rutherford, NJ)
 
 © March 18, 2020

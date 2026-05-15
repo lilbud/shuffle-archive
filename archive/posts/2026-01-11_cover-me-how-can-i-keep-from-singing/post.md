@@ -18,7 +18,7 @@ In the recording above, Bruce is just another member of the choir, his voice at 
 
 When Bruce added “How Can I Keep From Singing” to the set list during his U.K. visit in 2006, however, there was definitely a lead voice in the mix–and it wasn’t Bruce’s.
 
-[Watch Video Highlight](https://videopress.com/embed/97TvPBiE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/97TvPBiE)
 
 When performed live, “How Can I Keep From Singing” provided a rare spotlight for Patti’s gorgeous vocals, and as for the rest of the Sessions choir–their harmonies blended even better on stage than on record.
 
@@ -26,8 +26,8 @@ Those lucky Brits–they’re the only ones who got to experience this song live
 
 **How Can I Keep From Singing?**
 **Recorded** January 21, 2006  
-**Released:** *We Shall Overcome: The Seeger Sessions (American Land Edition)* (2006)  
-**First performed:** May 7, 2006 (Manchester, England)  
+**Released:** *We Shall Overcome: The Seeger Sessions (American Land Edition)* (2006)
+**First performed:** May 7, 2006 (Manchester, England)
 **Last performed:** May 9, 2006 (London, England)
 
 © November 21, 2019

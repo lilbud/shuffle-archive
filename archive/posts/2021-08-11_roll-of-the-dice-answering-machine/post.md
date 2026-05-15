@@ -8,7 +8,7 @@ By the mid-1980s, answering machines had grown from a novelty item into a necess
 
 If you had an answering machine, it’s a safe bet that at one point or another you agonized over coming up with a greeting that would make people smile or laugh. We all did–even rock stars.
 
-[Watch Video Highlight](https://videopress.com/embed/zL8OU1w8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zL8OU1w8)
 
 Okay, that wasn’t real.
 

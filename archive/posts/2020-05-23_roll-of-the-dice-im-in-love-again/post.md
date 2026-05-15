@@ -4,7 +4,7 @@ I love those Bruce Springsteen Band shows–they’re warm and soulful, cool and
 
 Earlier this week, we listened to “[Natural Magic](https://estreetshuffle.com/index.php/2020/05/19/roll-of-the-dice-natural-magic/),” Bruce’s Van Morrison tribute. Today, we check out Bruce’s hat tip to The Crystals, “I’m in Love Again.” No further introduction needed–this song is as light as a feather. Let’s take a listen:
 
-[Watch Video Highlight](https://videopress.com/embed/mEy5mzkR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mEy5mzkR)
 
 While Bruce’s lyrics here don’t require any deep analysis, there are at least three things going on in “I’m in Love Again” that are worth mentioning.
 
@@ -53,7 +53,7 @@ Bring on summer!
 **I’m in Love Again**
 Never recorded  
 Never released  
-**First performed:** July 23, 1971 (New York City, NY)  
+**First performed:** July 23, 1971 (New York City, NY)
 **Last performed:** July 29, 1971 (South Amboy, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

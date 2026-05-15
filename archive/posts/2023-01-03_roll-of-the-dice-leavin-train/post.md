@@ -88,8 +88,8 @@ I suspect not. That particular train has left the station, and with luck thereâ€
 
 **Leavinâ€™ Train**
 **Recorded** February 27, 1990  
-**Released:** *Tracks* (1998)  
-**First performed:** May 22, 2014 (Pittsburgh, PA)  
+**Released:** *Tracks* (1998)
+**First performed:** May 22, 2014 (Pittsburgh, PA)
 **Last performed:** May 23, 2014 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

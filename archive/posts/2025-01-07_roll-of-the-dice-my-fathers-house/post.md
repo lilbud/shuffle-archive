@@ -115,8 +115,8 @@ I am my father’s house now, and as long as I’m here, he has a home.
 
 **My Father’s House**
 **Recorded** May 25, 1982  
-**Released:** *Nebraska* (1982), *Chapter and Verse* (2016)  
-**First performed:** July 26, 1984 (Toronto, ON)  
+**Released:** *Nebraska* (1982), *Chapter and Verse* (2016)
+**First performed:** July 26, 1984 (Toronto, ON)
 **Last performed:** September 4, 2021 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

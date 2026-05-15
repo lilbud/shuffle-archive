@@ -90,8 +90,8 @@ No surprise that Bruce opened his first U.S. reunion show with the E Street Band
 
 **My Love Will Not Let You Down**  
 **Recorded:** May 5, 1982  
-**Released:** *Tracks* (1998), *18 Tracks* (1999), *Live in New York City* (2001)  
-**First performed:** March 18, 1999 (Asbury Park, NJ)  
+**Released:** *Tracks* (1998), *18 Tracks* (1999), *Live in New York City* (2001)
+**First performed:** March 18, 1999 (Asbury Park, NJ)
 **Last performed:** July 13, 2023 (Copenhagen, Denmark)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

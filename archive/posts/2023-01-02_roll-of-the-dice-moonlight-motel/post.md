@@ -165,7 +165,7 @@ Bruce’s vocals are more gruff in the filmed version as well. Some might like t
 
 **Moonlight Motel**
 **Recorded** Unknown  
-**Released:** *Western Stars* (2019)  
+**Released:** *Western Stars* (2019)
 **First performed:** April 2019  
 **Last performed:** April 2019
 

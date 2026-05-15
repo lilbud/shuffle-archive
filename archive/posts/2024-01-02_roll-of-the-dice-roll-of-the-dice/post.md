@@ -75,7 +75,7 @@ But among the 120 performances of “Roll of the Dice” Bruce has given us over
 
 The first is an electric piano performance from 2005:
 
-[Watch Video Highlight](https://videopress.com/embed/HGkj7z5q?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HGkj7z5q)
 
 …but my favorite is Bruce’s acoustic guitar performance from Hanover in 2013. I wasn’t there for it, but even on video it’s one of my favorite performances of any song from that tour.
 
@@ -87,8 +87,8 @@ But it holds the distinction of kickstarting a new era in Bruce’s career and c
 
 **Roll of the Dice**
 **Recorded** December 1989  
-**Released:** *Human Touch* (1992)  
-**First performed:** May 6, 1992 (New York City, NY)  
+**Released:** *Human Touch* (1992)
+**First performed:** May 6, 1992 (New York City, NY)
 **Last performed:** February 16, 2017 (Brisbane, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

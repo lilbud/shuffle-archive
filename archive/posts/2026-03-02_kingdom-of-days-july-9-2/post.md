@@ -4,11 +4,11 @@
 
 **1978:** Bruce sits down for an interview with WNEW-FM DJ Dave Herman in San Diego. (The interview will air in September on the King Biscuit Flower Hour.) As with Mary Turner a few days earlier, Bruce is loose, talkative, and funny. This interview is definitely worth a listen.
 
-[Watch Video Highlight](https://videopress.com/embed/1tvtbjLH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1tvtbjLH)
 
 That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings “Not Fade Away” and “Gloria” as lead-ins to “She’s the One” for the first time.
 
-[Watch Video Highlight](https://videopress.com/embed/9D8CJQei?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9D8CJQei)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/07/1978-07-09.jpg)
 
@@ -26,7 +26,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings �
 
 **1984:** At Night Two in Richfield, Ohio on the Born in the U.S.A. Tour, Bruce plays “No Surrender” acoustically for the first time ever, along with the tour premiere of “Darkness on the Edge of Town.”
 
-[Watch Video Highlight](https://videopress.com/embed/Eurx5bco?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Eurx5bco)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=i2uzyHlLjSs)
 
@@ -44,7 +44,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings �
 
 **1992:** Bruce and his new touring band play their second of five nights at Wembley Arena in London.
 
-[Watch Video Highlight](https://videopress.com/embed/mY6CjOdb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mY6CjOdb)
 
 **1995:** One of the stranger collaborations of Bruce’s career: Bruce travels to Berlin, where he plays a short concert at Cafe Eckstein with Wolfgang Niedecken and His Leopardefellband. The purpose of the show is to yield a new recording and video for “Hungry Heart,” which will be released on video and on the *Hungry Heart* EP (sort of–it will actually feature Bruce’s new vocals over the original instrumental track, and it’s kind of jarring. Compare the official video with the raw footage below). The setlist also features several covers, including Dylan’s “Knockin’ on Heaven’s Door” and “Highway 61 Revisited.”
 

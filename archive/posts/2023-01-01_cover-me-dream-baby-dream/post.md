@@ -58,8 +58,8 @@ Here’s the last appearance of “Dream Baby Dream” to date–the show opener
 
 **Dream Baby Dream**
 **Recorded** 2013  
-**Released:** *High Hopes* (2014)  
-**First performed:** May 11, 2005 (Rosemont, IL)  
+**Released:** *High Hopes* (2014)
+**First performed:** May 11, 2005 (Rosemont, IL)
 **Last performed:** July 20, 2016 (Horsens, Denmark)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -6,7 +6,7 @@
 
 **1976:** Bruce and the E Street Band play a sold-out show at Virginia Tech University. After the show, Bruce zips across town to catch Nils Lofgren’s performance at Town Hall.
 
-[Watch Video Highlight](https://videopress.com/embed/XZDPhTNT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XZDPhTNT)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/46715349575_b9286b453b_o.jpg)
 
@@ -20,13 +20,13 @@
 
 **1984:** Bruce sits in with Cats on a Smooth Surface for three songs at The Stone Pony in Asbury Park.
 
-[Watch Video Highlight](https://videopress.com/embed/PUCyth9U?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PUCyth9U)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1984-0422.jpg)
 
 **1985:** Bruce concludes his first Japanese tour with a two-night stand in Osaka. This is Night One.
 
-[Watch Video Highlight](https://videopress.com/embed/gOCQxFdQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gOCQxFdQ)
 
 [Watch on Youtube: Bruce Springsteen - Detroit Medley - at Osaka-Joh Hall in Japan 1985.04.22](https://www.youtube.com/watch?v=8BTntTz9fW4)
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Bruce Springsteen Tunnel of Love Express LA Sports Arena 4-22-88](https://www.youtube.com/watch?v=SfrdUdHseog)
 
-[Watch Video Highlight](https://videopress.com/embed/NoyrHe0X?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NoyrHe0X)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-22b.jpg)
 
@@ -46,13 +46,13 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce’s u
 
 **1996:** Thanks to the request of a fan who snuck his way into the soundcheck, Bruce plays “The Angel” for the first time ever (and the last time for 13 years) at his solo acoustic show in Royal Albert Hall in London.
 
-[Watch Video Highlight](https://videopress.com/embed/hWsdZ1Y5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hWsdZ1Y5)
 
 **2000:** Bruce soundchecks a new song, “American Skin (41 Shots),” before the Reunion show in Raleigh. Cousin Frank Bruno guest-stars on “Hungry Heart” during the show.
 
 [Watch on Youtube: Bruce Springsteen Lucky Town Live In Raleigh 22/04/2000 Soundboard](https://www.youtube.com/watch?v=0DUdqPBb-hc)
 
-[Watch Video Highlight](https://videopress.com/embed/0Yx6HV13?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0Yx6HV13)
 
 
 

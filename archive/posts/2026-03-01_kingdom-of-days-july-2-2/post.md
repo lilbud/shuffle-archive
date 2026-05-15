@@ -28,7 +28,7 @@
 
 **1984:** The last of three nights in St. Paul (and the opening stand of the Born in the U.S.A. Tour) features the live debuts of “Downbound Train” and “Cover Me,” along with the last full-band arrangement of “No Surrender” for fifteen years.
 
-[Watch Video Highlight](https://videopress.com/embed/PWy5WzaZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PWy5WzaZ)
 
 **1986:** On the CBS television network, *West 57th* airs a segment profiling Clarence.
 
@@ -38,9 +38,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wBU8DiGV6j0)
 
-[Watch Video Highlight](https://videopress.com/embed/iUUErpTo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iUUErpTo)
 
-[Watch Video Highlight](https://videopress.com/embed/T5bpoXqm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/T5bpoXqm)
 
 **1989:** Bruce joins Gary U.S. Bonds at The Cafe Bar in Long Branch for six songs: “This Little Girl,” “Angelyne,” “Bony Moronie,” “Your Love,” “Dedication,” and “New Orleans.”
 
@@ -48,7 +48,7 @@
 
 **1999:** Bruce films a cameo performance in the movie *High Fidelity* at Disney Soundstage Studios in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/e9i42Z2L?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e9i42Z2L)
 
 **2009:** The Working on a Dream Tour arrives in Germany. In Munich, Bruce plays back-to-back tour premieres of “This Hard Land” and “Oh, Pretty Woman.”
 

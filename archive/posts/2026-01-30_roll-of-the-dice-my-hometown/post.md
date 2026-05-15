@@ -184,8 +184,8 @@ Today Bruce lives ten minutes from his hometown, which tells us all we need to k
 
 **My Hometown**
 **Recorded:** June 29, 1983  
-**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *L.A. Garage Sessions ’83* (2025)  
-**First performed:** June 8, 1984 (Asbury Park, NJ)  
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *L.A. Garage Sessions ’83* (2025)
+**First performed:** June 8, 1984 (Asbury Park, NJ)
 **Last performed:** July 11, 2023 (Copenhagen, Denmark)
 
 © April 9, 2020 / December 21, 2025

@@ -58,7 +58,7 @@ Bruce’s last verse shreds on its own power, but Gary absolutely nails his voca
 
 **Love’s on the Line**
 **Recorded** January – February 1982  
-**Released:** *On the Line* (1982)  
+**Released:** *On the Line* (1982)
 **Never performed**
 
 

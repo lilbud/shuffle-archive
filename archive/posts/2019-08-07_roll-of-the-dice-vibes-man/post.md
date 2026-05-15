@@ -12,7 +12,7 @@ All the while he was performing “New York Song” on stage, Bruce had been wor
 
 Let’s take a listen:
 
-[Watch Video Highlight](https://videopress.com/embed/cQLEEsa9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cQLEEsa9)
 
 Bruce’s lyrics for “Vibes Man” are so very close to what would become “New York City Serenade” that I’ll save my line-by-line analysis for that future essay.
 
@@ -52,7 +52,7 @@ Musically, “Vibes Man” can’t hold a candle to “New York City Serenade.�
 But lyrically, it reflects Bruce’s rapidly developing songwriting skill and provides keen insight into his not-too-distant future classic.
 
 **Vibes Man**
-**Recorded** February 1973 (demo)  
+**Recorded** February 1973 (demo)
 **Never released**
 **Never performed**
 

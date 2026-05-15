@@ -12,11 +12,11 @@
 
 **1988:** The Tunnel of Love Tour arrives in Rotterdam for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/Qh1rK3ay?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Qh1rK3ay)
 
 **1993:** Bruce joins Clarence and the Red Bank Rockers on stage for 30 minutes of their set at Tradewinds in Sea Bright, New Jersey.
 
-[Watch Video Highlight](https://videopress.com/embed/8wxTcxZg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8wxTcxZg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/1993-06-28a.jpg)
 

@@ -74,7 +74,7 @@ But other than its under-the-radar official release in the anniversary box set, 
 
 **The Man Who Got Away**
 **Recorded** June 13-July 5, 1979  
-**Released:** *The Ties That Bind: The River Collection* (2015)  
+**Released:** *The Ties That Bind: The River Collection* (2015)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

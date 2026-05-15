@@ -24,11 +24,11 @@ Of course, it was perfect. Following an even more surprising “Glory Days,” S
 
 The crowd ate it up, so much so that McCartney invited Bruce to join him again only nine days later–this time across the Atlantic at McCartney’s headline set at Glastonbury. It was another crowd-pleasing performance, captured professionally by the BBC.
 
-[Watch Video Highlight](https://videopress.com/embed/XPKAKtFD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XPKAKtFD)
 
 **Bonus:** Although they’d played the same songs together just nine days earlier, the two rock legends took some time to rehearse with McCartney’s band before they took the stage in Glastonbury. Check out this rare behind-the-scenes rehearsal footage.
 
-[Watch Video Highlight](https://videopress.com/embed/WfZdsAa1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WfZdsAa1)
 
 **I Wanna Be Your Man**
 First performance:** June 16, 2022 (East Rutherford, NJ)

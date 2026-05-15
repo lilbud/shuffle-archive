@@ -16,15 +16,15 @@
 
 **1982:** Bruce joins Billy Chinnock on stage at Big Man’s West for “Lucille.”
 
-[Watch Video Highlight](https://videopress.com/embed/Y4S1mwaJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Y4S1mwaJ)
 
 **1992:** “The Long Goodbye” makes its world debut at Night Two in Frankfurt, along with the tour premieres of “Dancing in the Dark” and “Follow That Dream.”
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=AuLvzIM27aE)
 
-[Watch Video Highlight](https://videopress.com/embed/thLKBdSi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/thLKBdSi)
 
-[Watch Video Highlight](https://videopress.com/embed/2oyjkUD9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2oyjkUD9)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dgzLPRuvtLQ)
 

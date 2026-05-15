@@ -22,7 +22,7 @@ As it turned out, he didn’t. He went a different way instead, and boy was I gl
 
 Trust me and watch this straight through–and prepare to be as blown away as I was.
 
-[Watch Video Highlight](https://videopress.com/embed/y8xGamAc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/y8xGamAc)
 
 Slowed down and stripped down to its bare essentials, Iacopo’s arrangement gave him plenty of room to showcase his impressively powerful vocals. All the elements clicked, and his performance of “Man’s Job” ended up being one of my top three favorites of the night.
 

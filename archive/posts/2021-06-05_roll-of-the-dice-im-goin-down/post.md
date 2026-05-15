@@ -60,7 +60,7 @@ It wasn’t an afterthought–in fact, it was one of the earlier songs recorded 
 
 In concert, “I’m Goin’ Down” was an immediate hit. Bruce typically hammed it up with an introductory explanation (as if the song required any).
 
-[Watch Video Highlight](https://videopress.com/embed/ZN88tTQy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZN88tTQy)
 
 And while it’s been a lot more difficult to catch “I’m Goin’ Down” in concert since the Born in the U.S.A. tour ended (it didn’t even show up again until the Rising Tour), it’s made enough appearances over the last decade and a half to be considered a decent-odds selection if you’re chasing it.
 
@@ -72,8 +72,8 @@ Here’s one of Bruce’s best recent performances, from the Wrecking Ball Tour 
 
 **I’m Goin’ Down**
 **Recorded**May 13, 1982  
-**Released:** *Born in the U.S.A.* (1984)  
-**First performed:** August 17, 1984 (East Rutherford, NJ)  
+**Released:** *Born in the U.S.A.* (1984)
+**First performed:** August 17, 1984 (East Rutherford, NJ)
 **Last performed:** February 18, 2017 (Hunter Valley, Australia)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

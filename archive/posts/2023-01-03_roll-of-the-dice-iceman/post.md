@@ -85,8 +85,8 @@ With only three performances ever, “Iceman” remains a rarity–too misunders
 
 **Iceman**
 **Recorded** October 27, 1977  
-**Released:** *Tracks* (1998)  
-**First performed:** May 17, 2005 (Philadelphia, PA)  
+**Released:** *Tracks* (1998)
+**First performed:** May 17, 2005 (Philadelphia, PA)
 **Last performed:** July 13, 2016 (Paris, France)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

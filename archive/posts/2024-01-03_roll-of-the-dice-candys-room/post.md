@@ -145,8 +145,8 @@ And to reach Candy’s room, you have to walk that long, dark hall.
 
 **Candy’s Room**
 **Recorded** October 27, 1977 – March 5, 1978  
-**Released:** *Darkness on the Edge of Town* (1978)  
-**First performed:** May 23, 1978 (Buffalo, NY)  
+**Released:** *Darkness on the Edge of Town* (1978)
+**First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** August 26, 2023 (Foxborough, MA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

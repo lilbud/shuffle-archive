@@ -167,8 +167,8 @@ In craft, content, performance, and artistry, it stands incontrovertibly as one 
 
 **The Rising**
 **Recorded** February-March 2002  
-**Released:** *The Rising* (2002), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)  
-**First performed:** July 25, 2002 (Asbury Park, NJ)  
+**Released:** *The Rising* (2002), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
+**First performed:** July 25, 2002 (Asbury Park, NJ)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

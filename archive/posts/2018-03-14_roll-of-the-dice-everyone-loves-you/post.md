@@ -15,8 +15,8 @@ Best I can tell, it’s an unrequited love song, but it requires some seriously 
 
 If you can make out anything more or different, please let me know.
 
-**Everyone Loves You** (unfinished and unreleased)  
-**Recorded:** 1979 (demo)  
+**Everyone Loves You** (unfinished and unreleased)
+**Recorded:** 1979 (demo)
 **Performed:** Never
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

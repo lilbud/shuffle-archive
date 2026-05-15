@@ -4,7 +4,7 @@ In December, he asked Bruce to join him on the album’s second track, “Disord
 
 VH1 aired behind-the-scenes footage of Warren and Bruce’s recording session in a documentary about the album.
 
-[Watch Video Highlight](https://videopress.com/embed/kZE8W4C5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kZE8W4C5)
 
 Warren lived just long enough to see their performance debut to fan and critical acclaim alike, but he passed away before he won his first-ever Grammy, for Best Rock Vocal Performance (Group or Duo).
 

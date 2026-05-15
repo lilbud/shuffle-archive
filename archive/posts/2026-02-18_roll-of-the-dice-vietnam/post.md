@@ -18,7 +18,7 @@ And it all started in the autumn of 1981, when Bruce sat down with his acoustic 
 
 Bruce recorded “Vietnam” in the autumn of 1981, and although he never released it, the lyrics eventually found their way into two of Springsteen’s most poignant songs: “Shut Out the Light” and “Born in the U.S.A.” There are two versions of the song in the clip below; the second is the stronger and more finished one, so it’s that one we’ll analyze.
 
-[Watch Video Highlight](https://videopress.com/embed/42EG7bIO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/42EG7bIO)
 
 The first verse begins with some familiar lyrics–the first couplet of “Vietnam” would eventually introduce “Shut Out the Light” instead:
 
@@ -60,7 +60,7 @@ But Bruce didn’t seem to realize that yet, so he kept working on the song. In 
 
 This version of “Vietnam” has a new refrain, and now we can clearly see the destination where the song will ultimately lead Bruce.
 
-[Watch Video Highlight](https://videopress.com/embed/ZZMFFtgu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZZMFFtgu)
 
 This version of “Born in the U.S.A.” (we may as well call it by that name now, since it’s clearly the song’s refrain) is almost the inverse of the song we’d eventually hear on the radio three years later. It’s almost a prequel, in fact–Bruce spends the whole song singing about the dirty town of Glendale where his protagonist grows up. Many lyrical snippets would make their way into the final version of “Born in the U.S.A.,” but at this point, they serve to flesh out the narrator’s backstory.
 

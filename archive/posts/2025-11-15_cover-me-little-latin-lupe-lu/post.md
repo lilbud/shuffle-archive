@@ -1,4 +1,4 @@
-[Watch Video Highlight](https://videopress.com/embed/ATK1qBy1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ATK1qBy1)
 
 Yeah, I’m kinda with Barry on this one: it’s the Righteous Brothers all the way.
 
@@ -12,22 +12,22 @@ Bruce premiered his cover of “Little Latin Lupe Lou” at the final stand of t
 
 It would take more than a decade for Bruce to bring “Little Latin Lupe Lu” back to the E Street stage, but he performed it frequently during Jersey shore club gigs in the intervening years.
 
-[Watch Video Highlight](https://videopress.com/embed/B9zul4Cm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/B9zul4Cm)
 
 In 1988, Bruce and the E Street Band played a one-off encore of “Little Latin Lupe Lu” during their show in Mountain View, and it had been so long since the band had played it that Bruce found himself trapped in it. Watch the video below for a rare and hilarious instance of Bruce Springsteen trying desperately to figure his way out of a song.
 
-[Watch Video Highlight](https://videopress.com/embed/VhXfEbbr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VhXfEbbr)
 
 It worked better the next time they tried it–as the very last song of the opening show of the E Street Band’s short-lived 1995 reunion. We’re lucky to have some great footage of that one, too:
 
-[Watch Video Highlight](https://videopress.com/embed/H4Q1SeWf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/H4Q1SeWf)
 
 In the modern era, Bruce and the E Street Band tackled “Little Latin Lupe” two exactly twice, both times by request. Here’s the last one, from Washington, DC on the Working on a Dream Tour, and it features what must be one of the most unlikeliest segues ever.
 
 [Watch on Youtube: Bruce Springsteen - Little Latin Lupe Lu / Hava Nagila - Washington D.C. 05/18](https://www.youtube.com/watch?v=8f15jpsBTjk)
 
 **Little Latin Lupe Lu**
-**First performed:** March 23, 1977 (Boston, MA)  
+**First performed:** March 23, 1977 (Boston, MA)
 **Last performed:** May 18, 2009 (Washington, DC)
 
 (c) April 21, 2019

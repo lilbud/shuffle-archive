@@ -10,7 +10,7 @@ Perhaps parts of it were, but we also know through the benefit of hindsight, his
 
 On the night of February 22, however, Bruce was particularly–almost frighteningly–in the zone during “Backstreets,” and for the first time he included a lyric that would ultimately lead to “Candy’s Room,” even though the line itself never made it to the finished song. If you’re pressed for time, just skip to the nine-minute mark below and listen.
 
-[Watch Video Highlight](https://videopress.com/embed/txLrCFYJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/txLrCFYJ)
 
 That final, memorable segment of the interlude begins with “I was just standing there waiting and wishing that God would send some angels to blow this whole town into the sea.”
 
@@ -18,7 +18,7 @@ Whether he came up with it on the spot or had been toying with it for a while, t
 
 Not just a new song, mind you, but a *fast* song.
 
-[Watch Video Highlight](https://videopress.com/embed/vkwM9NkJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vkwM9NkJ)
 
 The instrumental track (featuring just piano, drums, and bass) above is the earliest appearance of the music that would someday serve as the backing track for “Candy’s Room,” but Bruce’s lyrics were nowhere near as far along (which may be why Bruce stuck with “The Fast Song” as a title for so long).
 
@@ -68,7 +68,7 @@ But that’s a thread we’ll pick up another day, when we (finally!) bring the 
 
 **Bonus:** The early take of “The Fast Song” is too muddy to listen to more than once, but it’s worth that lone listen just to admire Bruce’s guitar solo that wouldn’t make it to the final version.
 
-[Watch Video Highlight](https://videopress.com/embed/ejuhlzzg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ejuhlzzg)
 
 **The Fast Song**
 **Recorded:** June-September, 1977  

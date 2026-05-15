@@ -22,7 +22,7 @@ But again: it’s simply remarkable that this tape exists at all. Listen and mar
 
 **Mr. Jones**
 Never recorded or released**
-**First performed:** September 30, 1967 (Freehold, NJ)  
+**First performed:** September 30, 1967 (Freehold, NJ)
 **Last performed:** September 30, 1967 (Freehold, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

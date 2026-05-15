@@ -142,7 +142,7 @@ We’ll pick up the story of Jim Deer in “Richfield Whistle.”
 
 **James Lincoln Deere**
 **Recorded:** January-March 1983  
-**Released:** *L.A. Garage Sessions ’83* (2025)  
+**Released:** *L.A. Garage Sessions ’83* (2025)
 **Never performed**
 
 © November 29, 2022 / January 25, 2026

@@ -104,8 +104,8 @@ Clearly, “Tougher Than the Rest” holds deep meaning and power for Bruce and 
 
 **Tougher Than the Rest**
 **Recorded** January – April 1987  
-**Released:** *Tunnel of Love* (1987), *The Essential Bruce Springsteen* (2003)  
-**First performed:** October 31, 1987 (Sea Bright, NJ)  
+**Released:** *Tunnel of Love* (1987), *The Essential Bruce Springsteen* (2003)
+**First performed:** October 31, 1987 (Sea Bright, NJ)
 **Last performed:** September 15, 2024 (Asbury Park, NJ)
 
 (c) August 8, 2020

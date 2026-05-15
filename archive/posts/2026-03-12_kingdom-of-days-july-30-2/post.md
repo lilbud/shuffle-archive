@@ -8,7 +8,7 @@
 
 **1981:** Southside Johnny guest-stars on “I Don’t Want to Go Home” when Bruce and the E Street Band bring the River Tour to Richfield, Ohio for the second of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/RwhE4R38?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RwhE4R38)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1981-07-30.png)
 
@@ -18,7 +18,7 @@
 
 **1984:** At the first of two nights in Detroit on the Born in the U.S.A. Tour, Bruce tour premieres “Independence Day” in a new arrangement. In attendance tonight: *Funky Winkerbean* cartoonist Tom Batiuk.
 
-[Watch Video Highlight](https://videopress.com/embed/1Tbv8N9O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1Tbv8N9O)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dLdutnQxZUI)
 
@@ -30,13 +30,13 @@
 
 **1987:** Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey, playing reggae versions of “Born in the U.S.A.” and “My Hometown,” along with covers of “One Love” and “People Get Ready.”
 
-[Watch Video Highlight](https://videopress.com/embed/r1cTI473?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/r1cTI473)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xVV5FTnI4FM)
 
 **1988:** The Tunnel of Love Tour nears its end with this final German show in Bremen, where “Working on the Highway” makes its tour debut.
 
-[Watch Video Highlight](https://videopress.com/embed/mpsQeIHo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mpsQeIHo)
 
 **1992:** At Night Five of eleven at World Tour 1992’s opening stand in the Meadowlands, Bruce performs “All the Way Home” for the first time, and “4th of July, Asbury Park (Sandy)” comes out as well, accompanied by only Bruce and Roy.
 
@@ -58,7 +58,7 @@ That night, Bruce and the band play a public warm-up show, where “Paradise” 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5Oh6eapJuPI)
 
-[Watch Video Highlight](https://videopress.com/embed/u6r6AnpC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/u6r6AnpC)
 
 Finally, ABC’s *Nightline* airs Bruce’s performance of “Empty Sky” recorded a few days earlier.
 

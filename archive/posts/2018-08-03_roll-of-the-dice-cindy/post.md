@@ -67,7 +67,7 @@ So yeah, we’re in full-on creep mode now.
 
 **Cindy**
 **Recorded:** July 16, 1979  
-**Released:** *The Ties That Bind: The River Collection* (2015)  
+**Released:** *The Ties That Bind: The River Collection* (2015)
 **Never performed live**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

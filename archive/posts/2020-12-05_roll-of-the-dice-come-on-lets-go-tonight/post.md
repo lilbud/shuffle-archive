@@ -71,8 +71,8 @@ Still, “Factory” remains the better-known song, and it would probably only c
 
 **Come On (Let’s Go Tonight)**
 **Recorded** Late 1977  
-**Released:** *The Promise* (2010)  
-**First performed:** December 7, 2010 (Asbury Park, NJ)  
+**Released:** *The Promise* (2010)
+**First performed:** December 7, 2010 (Asbury Park, NJ)
 **Last performed:** December 7, 2010 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

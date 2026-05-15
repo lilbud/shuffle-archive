@@ -22,7 +22,7 @@ The Rolling Stones changed “Kickin'” to “Charlie” when they recorded the
 
 A jam piece from its very origin, “Down the Road Apiece” proved a perfect showcase for the talents of the Bruce Springsteen Band players: Bruce and Steve Van Zandt both take a turn in the guitar solo spotlight, and David Sancious dazzles as always. Take a listen to this vintage show-opening performance from February 1972.
 
-[Watch Video Highlight](https://videopress.com/embed/F5gqWxPt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/F5gqWxPt)
 
 “Down the Road Apiece” was a perfect fit for the Bruce Springsteen Band, but when the BSB evolved into the ESB later that year, Bruce set the song aside and didn’t look back for almost a quarter-century. He rediscovered it in 1995, when he performed it not with his own band but as a guest with two of his good friends.
 
@@ -47,7 +47,7 @@ Bruce and the Tangiers Blues Band played “Down the Road Apiece” one more tim
 We might be in a pandemic pause at the moment, but when it finally lifts there are gonna be some *epic* jams on the Jersey Shore, and odds are good that we’ll see another Springsteen performance of “Down the Road Apiece.”
 
 **Down the Road Apiece**
-**First performed:** July 10, 1971 (Lincroft, NJ)  
+**First performed:** July 10, 1971 (Lincroft, NJ)
 **Last performed:** April 13, 2019 (New York City, NY)
 
 

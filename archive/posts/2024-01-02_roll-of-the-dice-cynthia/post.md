@@ -112,8 +112,8 @@ Like “[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/201
 
 **Cynthia**
 **Recorded** June 15, 1983  
-**Released:** *Tracks* (1998)  
-**First performed:** August 31, 2003 (East Rutherford, NJ)  
+**Released:** *Tracks* (1998)
+**First performed:** August 31, 2003 (East Rutherford, NJ)
 **Last performed:** July 23, 2013 (Cardiff, Wales)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

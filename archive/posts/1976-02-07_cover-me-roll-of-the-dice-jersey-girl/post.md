@@ -20,7 +20,7 @@ In any event, Bruce first performed “Jersey Girl” at Max Weinberg’s weddin
 
 Bruce teed it up with the hometown crowd by sharing his observations that Europeans are different than New Jerseyans. (Glad he cleared that up.) Europeans are great, he said, but there’s “nobody better” than a New Jersey crowd. (I’ll let you decide whether or not that was a pander.) And then, Bruce debuted his own version of Tom Waits’ “Jersey Girl.”
 
-[Watch Video Highlight](https://videopress.com/embed/Gx4aArIV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Gx4aArIV)
 
 Fans familiar with Waits’ version probably noticed that Bruce cleaned up the lyrics a bit, but the shocker was the completely new final verse:
 

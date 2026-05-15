@@ -24,7 +24,7 @@ Bruce and Steve Van Zandt had produced Bonds’ “comeback” album, *Dedicatio
 
 But of all the songs Bruce gave away for *On the Line* that cried out for an official Springsteen release, “All I Need” ranks near the top. Such a recording almost certainly exists, and it very probably uses the exact same E Street Band backing track that Bonds recorded his vocals over. Let’s take a listen:
 
-[Watch Video Highlight](https://videopress.com/embed/HbdN8Y0e?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HbdN8Y0e)
 
 Bruce still sticks pretty close to that “It’s Gonna Work Out Fine” melody, but it’s lusher now, more romantic and soulful, with a coda at least inspired by if not lifted from “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/).”
 
@@ -62,7 +62,7 @@ Bruce has never performed “All I Need” live, not even with Bonds. But as lon
 
 **All I Need**
 **Recorded:** Early 1982  
-**Released:** *On the Line* (1982)  
+**Released:** *On the Line* (1982)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

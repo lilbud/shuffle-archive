@@ -18,12 +18,12 @@ Bruce continued to perform “Chimes of Freedom” for the duration of the Tunne
 
 Bruce hasn’t performed the song since 1988, but he actually did perform it once long *before*–on the Darkness Tour, way back in 1978. Take a listen–it’s not anywhere near as strong or as confident as Bruce’s later arrangement, but it’s notable for Bruce’s comments (he cites this as one of his favorite songs from high school), his embarrassment and unease in performing such an idealistic song in such a setting (my, how he’d change in a decade!), and the more classic E Street-sounding arrangement.
 
-[Watch Video Highlight](https://videopress.com/embed/6l3WlkHI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6l3WlkHI)
 
 **Chimes of Freedom**
 **Recorded** July 3, 1988  
-**Released:** *Chimes of Freedom* (1988)  
-**First performed:** September 1, 1978 (Detroit, MI)  
+**Released:** *Chimes of Freedom* (1988)
+**First performed:** September 1, 1978 (Detroit, MI)
 **Last performed:** October 15, 1988 (Buenos Aires, Argentina)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -22,11 +22,11 @@
 
 **1985:** Bruce and the E Street Band play their final Australian show of the Born in the U.S.A. Tour in Melbourne. Bruce will not perform in the country again for twelve years.
 
-[Watch Video Highlight](https://videopress.com/embed/LYSMFSR2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LYSMFSR2)
 
 **1988:** The Tunnel of Love Express moves on to Largo for the first of two shows at the Capital Center.
 
-[Watch Video Highlight](https://videopress.com/embed/WlaAr5RE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WlaAr5RE)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-04-04a.jpg)
 
@@ -52,9 +52,9 @@
 
 **2000:** Bad Seattle traffic delays Bruce’s show at the Tacoma Dome. Bruce makes up for it by delivering a scorching set, filmed in its entirety by a fan in the audience and paired with an IEM recording. Watch this amazing (for the time) full show video below, and check out the somersault at the end of the final encore of Ramrod! For more on this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/04/04/where-the-band-was-tacoma-april-4-2000/)
 
-[Watch Video Highlight](https://videopress.com/embed/KyuwuVe8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KyuwuVe8)
 
-[Watch Video Highlight](https://videopress.com/embed/P8RSioXo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/P8RSioXo)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/2000-04-04a.jpg)
 
@@ -64,7 +64,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Show Introduction (From VH1 Storytellers)](https://www.youtube.com/watch?v=uHTKQsExS8Y)
 
-[Watch Video Highlight](https://videopress.com/embed/4tpSy6cv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4tpSy6cv)
 
 **2006:** Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Theater in Asbury Park.
 
@@ -78,9 +78,9 @@
 
 **2012:** The second of two nights in East Rutherford features five tour premieres, including “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/).”
 
-[Watch Video Highlight](https://videopress.com/embed/UqHksOXt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UqHksOXt)
 
-[Watch Video Highlight](https://videopress.com/embed/B1HmmvsI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/B1HmmvsI)
 
 [Watch on Youtube: Bruce Springsteen: 2012-04-04 - Izod Center, E. Rutherford, NJ (Nevaton MCE400 Audio)](https://www.youtube.com/watch?v=fKHDTeJrV2E)
 

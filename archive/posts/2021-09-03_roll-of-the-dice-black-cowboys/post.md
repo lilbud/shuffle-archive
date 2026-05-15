@@ -128,8 +128,8 @@ In the end, through the power of her love and the dreams she instilled in her so
 
 **Black Cowboys**
 **Recorded** 1997-2004  
-**Released:** *Devils & Dust* (2005)  
-**First performed:** April 21, 2005 (Asbury Park, NJ)  
+**Released:** *Devils & Dust* (2005)
+**First performed:** April 21, 2005 (Asbury Park, NJ)
 **Last performed:** October 30, 2005 (Boston, MA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
