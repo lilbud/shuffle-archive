@@ -132,22 +132,3 @@ def comments_format():
 #         cur.execute("""
 #             INSERT INTO comments (comment_id, author_id, post_id, text, parent, published, is_reply)
 #             VALUES (%s, %s, %s, %s, %s, %s, %s) on conflict (comment_id) do nothing""", (c['id'], author['id'], c["post"], content, parent, published, reply))
-
-comments = json.loads(
-    Path(
-        r"C:\Users\bvw20\Documents\Software\Programming\Website\shuffle\_data\new_comments.json",
-    ).read_text(),
-)
-
-for c in comments:
-    img = c["avatar_thumb"].replace("/", "\\")
-
-    if not Path(
-        rf"C:\Users\bvw20\Documents\Software\Programming\Website\shuffle\{img}",
-    ).exists():
-        c["avatar_thumb"] = "/assets/img/avatars/default.jpg"
-
-with Path(
-    r"C:\Users\bvw20\Documents\Software\Programming\Website\shuffle\_data\new_comments_1.json",
-).open("w") as f:
-    json.dump(comments, f)

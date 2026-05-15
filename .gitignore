@@ -39,3 +39,5 @@ notes/booktest/
 
 # books folder, contains tests of standard toolset
 books/*
+
+archive/assets
