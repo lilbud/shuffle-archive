@@ -1,4 +1,4 @@
-> "We all have our own ways of praying. I restricted mine to 3 minutes and a 45 rpm record. The power of pure pop, the beautiful simplicity of melody, a complete character study in a matter of minutes. Life in 180 seconds or less. If you get it right, it has the power of prayer." *–Bruce Springsteen, Letter to You (2020)*
+> "We all have our own ways of praying. I restricted mine to 3 minutes and a 45 rpm record. The power of pure pop, the beautiful simplicity of melody, a complete character study in a matter of minutes. Life in 180 seconds or less. If you get it right, it has the power of prayer." *–Bruce Springsteen, Letter to You (2020)*<br>
 
 It took almost fifty years and twenty studio albums to get there, but hiding in the center of *Letter to You* is the truest summation of Bruce Springsteen's prolific songwriting career.
 
@@ -18,15 +18,15 @@ Bruce constructed "The Power of Prayer" in the mold of the songs he sings about.
 
 "The Power of Prayer" boasts the strongest arrangement on [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)and one of Bruce's best in recent years. It allows him to take an understated approach with his lyrics, trusting that the music will inform us about what the song is truly about.
 
-> *Dreamy afternoon ‘neath the summer sun*
-> *We'd lie by the lake till the evening comes*
-> *I run my fingers through your sun-streaked hair*
-> *Baby that's the power of prayer*
+> *Dreamy afternoon ‘neath the summer sun*<br>
+> *We'd lie by the lake till the evening comes*<br>
+> *I run my fingers through your sun-streaked hair*<br>
+> *Baby that's the power of prayer*<br>
 
-> *Summer nights, summer's in the air*
-> *I stack the tables with the chairs*
-> *It's closing time and you're standing there*
-> *Baby that's the power of prayer*
+> *Summer nights, summer's in the air*<br>
+> *I stack the tables with the chairs*<br>
+> *It's closing time and you're standing there*<br>
+> *Baby that's the power of prayer*<br>
 
 At no point in those first two verses does Bruce tell us what he's referring to as the power of prayer. It's not until the final verse that he explicitly connects the dots, but we still sense it at first listen.
 
@@ -36,30 +36,30 @@ We all have those magic moments, scenes we can recall vividly decades later, and
 
 The bridge–both sides of it–spurs the narrator to go all in on love, with a clever card game metaphor (holding hearts, playing pairs). Bruce is paying homage to the romantic pop songs of his youth, but there's a subtext at work as well:
 
-> *It's a fixed game without any rules*
-> *An empty table on a ship of fools*
-> *I'm holding hearts, I play the pair*
-> *Darling it's just the power of prayer*
+> *It's a fixed game without any rules*<br>
+> *An empty table on a ship of fools*<br>
+> *I'm holding hearts, I play the pair*<br>
+> *Darling it's just the power of prayer*<br>
 
-> *It's a fixed game without any rules*
-> *An empty table on a ship of fools*
-> *I'm holding hearts, I play the pair*
-> *I'm going all in 'cause I don't care*
-> *They say that love, love comes and goes*
-> *But darling what, what do they know*
-> *I'm reaching for heaven, we'll make it there*
-> *Darling it's just the power of prayer*
-> *Baby it's just the power of prayer*
-> *Darling it's just the power of prayer*
+> *It's a fixed game without any rules*<br>
+> *An empty table on a ship of fools*<br>
+> *I'm holding hearts, I play the pair*<br>
+> *I'm going all in 'cause I don't care*<br>
+> *They say that love, love comes and goes*<br>
+> *But darling what, what do they know*<br>
+> *I'm reaching for heaven, we'll make it there*<br>
+> *Darling it's just the power of prayer*<br>
+> *Baby it's just the power of prayer*<br>
+> *Darling it's just the power of prayer*<br>
 
 That passage works equally well as the songwriter's manifesto as it does the narrator's love letter.
 
 The final verse is the reveal, and Bruce's choice of songs is a deliberate wink.
 
-> *Last call, the bouncer shuts the door*
-> *"This Magic Moment" drifts across the floor*
-> *As Ben E. King's voice fills the air*
-> *Baby that's the power of prayer*
+> *Last call, the bouncer shuts the door*<br>
+> *"This Magic Moment" drifts across the floor*<br>
+> *As Ben E. King's voice fills the air*<br>
+> *Baby that's the power of prayer*<br>
 
 Music can elevate even the most prosaic of moments into the realm of magic. Is there anything else in life with that kind of power?
 
@@ -74,10 +74,10 @@ Bruce figured that out early on, and that's why we connect to his music on such 
 [Watch on Youtube: Power of Prayer @brucespringsteen](https://www.youtube.com/watch?v=otO5hkhocZE)
 
 **The Power of Prayer**<br>
-**Recorded** November 2019  
+**Recorded** November 2019<br>
 **Released:** *Letter to You* (2020)
-**First performed:** November 6, 2023(New York City, NY)
-**Last performed:** November 6, 2023 (New York City, NY)
+**First performed:** November 6, 2023(New York City, NY)<br>
+**Last performed:** November 6, 2023 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 

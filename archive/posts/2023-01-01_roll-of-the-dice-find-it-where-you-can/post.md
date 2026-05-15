@@ -16,22 +16,22 @@ But luckily we have the early acoustic version below for comparison, and with th
 
 Bruce's lyrics seem to be a forerunner to "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)." In the later song, Bruce sings:
 
-> *Some girls they want a handsome Dan*
-> *Or some good-lookin' Joe, on their arm*
-> *Some girls like a sweet-talkin' Romeo*
-> *Well 'round here baby*
-> *I learned you get what you can get*
-> *So if you're rough enough for love*
-> *Honey I'm tougher than the rest*
+> *Some girls they want a handsome Dan*<br>
+> *Or some good-lookin' Joe, on their arm*<br>
+> *Some girls like a sweet-talkin' Romeo*<br>
+> *Well 'round here baby*<br>
+> *I learned you get what you can get*<br>
+> *So if you're rough enough for love*<br>
+> *Honey I'm tougher than the rest*<br>
 
 In "Find It Where You Can," Bruce strikes a similar pose:
 
-> *I didn't ask for this conversation*
-> *And maybe you don't think I'm nice*
-> *Baby it's just the… situation*
-> *I'm just another desperate man*
-> *In this world you don't pick and choose girl*
-> *You just find it where you can*
+> *I didn't ask for this conversation*<br>
+> *And maybe you don't think I'm nice*<br>
+> *Baby it's just the… situation*<br>
+> *I'm just another desperate man*<br>
+> *In this world you don't pick and choose girl*<br>
+> *You just find it where you can*<br>
 
 Despite the strong rehearsal tapes, there's no record of Bruce ever having recorded "Find It Where You Can" in the studio. That doesn't mean no such version exists, though, so we can always hold out hope.
 

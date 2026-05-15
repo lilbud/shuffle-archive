@@ -12,5 +12,5 @@ July 23, 1982 (Asbury Park, NJ)
 July 23, 1982 (Asbury Park, NJ)
 
 **Be-Bop-a-Lula**<br>
-**First performed:** <br>
+**First performed:**<br>
 **Last performed:**<br>

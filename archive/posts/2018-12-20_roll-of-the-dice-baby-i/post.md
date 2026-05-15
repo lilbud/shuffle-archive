@@ -8,22 +8,22 @@ It shows.
 
 [Watch on Youtube: Bruce Springsteen - Baby I (2016) [Chapter and Verse]](https://www.youtube.com/watch?v=aTeJTkSJMVE)
 
-The lyrics are, shall we say, basic–although the song goes on for about two minutes, the lyrics are comprised of a total of nine unique lines that repeat at least once.*
+The lyrics are, shall we say, basic–although the song goes on for about two minutes, the lyrics are comprised of a total of nine unique lines that repeat at least once:
 
-> *Baby I don't need your loving no more*
-> *Baby I don't need your kisses no more*
-> *Baby I don't need your tender touch*
-> *Baby I*
+> *Baby I don't need your loving no more*<br>
+> *Baby I don't need your kisses no more*<br>
+> *Baby I don't need your tender touch*<br>
+> *Baby I*<br>
 
-> *Baby I don't need your tender kiss*
-> *Baby I you will never miss*
-> *Baby I don't want you 'round me no more*
-> *Baby I*
+> *Baby I don't need your tender kiss*<br>
+> *Baby I you will never miss*<br>
+> *Baby I don't want you 'round me no more*<br>
+> *Baby I*<br>
 
-> *‘Cause I got someone new*
-> *Somebody better than you*
-> *Somebody who'll be true*
-> *Somebody better than you*
+> *‘Cause I got someone new*<br>
+> *Somebody better than you*<br>
+> *Somebody who'll be true*<br>
+> *Somebody better than you*<br>
 
 Given their youth and the fact that the song was written minutes before it was recorded, we'll forgive the boys that clumsy, wince-inducing "Baby I you will never miss" and their inability come up with a fourth line for the chorus.
 
@@ -41,8 +41,8 @@ Although it's believed that The Castiles performed the song often over the next 
 
 **Baby I**<br>
 **Recorded:** May 18, 1966  
-**Released:** *Chapter & Verse* (2016)
-**First performed:** November 2019 (Colts Neck, NJ)
-**Last performed:** November 2019 (Colts Neck, NJ)
+**Released:** *Chapter & Verse* (2016)<br>
+**First performed:** November 2019 (Colts Neck, NJ)<br>
+**Last performed:** November 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

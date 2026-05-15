@@ -105,8 +105,8 @@ Other than that special one-off, Bruce seems to have retired "You're Missing" fr
 
 **You're Missing**<br>
 **Recorded:** February-March, 2002  
-**Released:** *The Rising* (2002)
-**First performed:** July 25, 2002 (Asbury Park, NJ)
-**Last performed:** September 11, 2016 (Pittsburgh, PA)
+**Released:** *The Rising* (2002)<br>
+**First performed:** July 25, 2002 (Asbury Park, NJ)<br>
+**Last performed:** September 11, 2016 (Pittsburgh, PA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

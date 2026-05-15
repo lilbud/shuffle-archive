@@ -10,15 +10,15 @@ We get perhaps a little more insight into Bruce's original concept with this sin
 
 Bruce's early lyrics here are interesting. Unlike the final version, where the focus is on the dual prisons of a convicted criminal and his romantic partner left to fend for herself, here Bruce focuses on the day to day experience of the prisoner himself, struggling physically, mentally, and emotionally for survival:
 
-> *You take the chances that you've got to take*
-> *You drive hard and you stay awake*
-> *You take what you can get and keep what you hold*
-> *Pound for pound, you're bought and sold*
-> *You sit crying, dirty on stage*
-> *You learn to cool your temper and collect your rage*
-> *To use it well down in Jackson Cage*
-> *Men down in Jackson Cage*
-> *Down in Jackson Cage*
+> *You take the chances that you've got to take*<br>
+> *You drive hard and you stay awake*<br>
+> *You take what you can get and keep what you hold*<br>
+> *Pound for pound, you're bought and sold*<br>
+> *You sit crying, dirty on stage*<br>
+> *You learn to cool your temper and collect your rage*<br>
+> *To use it well down in Jackson Cage*<br>
+> *Men down in Jackson Cage*<br>
+> *Down in Jackson Cage*<br>
 
 The quieter melody is fascinating, too–listening to the all-too-brief snippet above, one can't help but wonder if this version of "Jackson Cage" might have ended up on *Nebraska* had Bruce not returned to it during the River sessions a year later.
 
@@ -30,23 +30,23 @@ Well, that's surprising, isn't it?
 
 Here we have lyrics that will appear in very similar form in the final version of "Jackson Cage," but the instrumental track is all "Restless Nights." And those lyrics–even though they're familiar, there's a subtle but significant difference:
 
-> *…crossed swords on the killing floor*
-> *To settle back is to settle without knowing*
-> *The hard edge that you're settling for*
-> *There's always just one more day*
-> *It'll always be that way*
-> *Once, oh, you're back, baby stay*
+> *…crossed swords on the killing floor*<br>
+> *To settle back is to settle without knowing*<br>
+> *The hard edge that you're settling for*<br>
+> *There's always just one more day*<br>
+> *It'll always be that way*<br>
+> *Once, oh, you're back, baby stay*<br>
 
-> *Way down, babe, in the Jackson Cage, in the Jackson Cage*
-> *Turning tricks and kings*
+> *Way down, babe, in the Jackson Cage, in the Jackson Cage*<br>
+> *Turning tricks and kings*<br>
 
-> *Turn the corner, grab something to eat*
-> *Turn the corner and drive down her street*
-> *In a row of houses, she fade away*
-> *A scene in a new play*
-> *And girl, what's your sin*
-> *That you're living in?*
-> *You've been judged and handed life*
+> *Turn the corner, grab something to eat*<br>
+> *Turn the corner and drive down her street*<br>
+> *In a row of houses, she fade away*<br>
+> *A scene in a new play*<br>
+> *And girl, what's your sin*<br>
+> *That you're living in?*<br>
+> *You've been judged and handed life*<br>
 
 In this version, Bruce has shifted the focus away from the prisoner (who doesn't even seem to be a factor here, although that may just be due the incomplete recording) and instead to his girl–and the lyrics that describe the prisoner's trap in the final version instead judge the woman here for allowing herself to remain in her situation.
 
@@ -72,25 +72,25 @@ Let's start off by acknowledging the power of the instrumental track–it may ha
 
 Our narrator picks up the story from his prison cell, as he imagines the limbo his love is now imprisoned in:
 
-> *Driving home she grabs something to eat*
-> *Turns a corner and drives down her street*
-> *Into a row of houses she just melts away*
-> *Like the scenery in another man's play*
-> *Into a house where the blinds are closed*
-> *To keep from seeing things she don't wanna know*
-> *She pulls the blinds and looks out on the street*
-> *Where the cool of the night takes the edge off the heat*
+> *Driving home she grabs something to eat*<br>
+> *Turns a corner and drives down her street*<br>
+> *Into a row of houses she just melts away*<br>
+> *Like the scenery in another man's play*<br>
+> *Into a house where the blinds are closed*<br>
+> *To keep from seeing things she don't wanna know*<br>
+> *She pulls the blinds and looks out on the street*<br>
+> *Where the cool of the night takes the edge off the heat*<br>
 
 Once, she was the star of her own story and the romantic lead in his. Now, she allows herself to fade into the background. Whether it's out of loyalty to her man or her anger and fear over the violence that took him away from her, she shuts herself away inside her inconspicuous house, serving her time in a self-imposed prison.
 
 We don't realize this at first, of course, but we do as soon as the chorus comes in:
 
-> *In the Jackson Cage*
-> *Down in the Jackson Cage*
-> *And you can try with all your might*
-> *But you're reminded every night*
-> *That you been judged and handed life*
-> *Down in the Jackson Cage*
+> *In the Jackson Cage*<br>
+> *Down in the Jackson Cage*<br>
+> *And you can try with all your might*<br>
+> *But you're reminded every night*<br>
+> *That you been judged and handed life*<br>
+> *Down in the Jackson Cage*<br>
 
 Jackson is a New Jersey town about 15 miles south of Freehold, but the song could just as easily take place in Jackson, Mississippi or any other town by that name. It's not the town that's significant, it's the circumstances.
 
@@ -98,39 +98,39 @@ As the narrator sings the chorus, we get our first inkling of just how long he's
 
 He goes on, describing their new life of biding time:
 
-> *Every day ends in wasted motion*
-> *Just crossed swords on the killing floor*
-> *To settle back is to settle without knowing*
-> *The hard edge that you're settling for*
-> *Because there's always just one more day*
-> *And it's always gonna be that way*
-> *Little girl, you've been down here so long*
-> *I can tell by the way that you move you belong*
+> *Every day ends in wasted motion*<br>
+> *Just crossed swords on the killing floor*<br>
+> *To settle back is to settle without knowing*<br>
+> *The hard edge that you're settling for*<br>
+> *Because there's always just one more day*<br>
+> *And it's always gonna be that way*<br>
+> *Little girl, you've been down here so long*<br>
+> *I can tell by the way that you move you belong*<br>
 
-> *To the Jackson Cage*
-> *Down in Jackson Cage*
-> *And it don't matter just what you say*
-> *Are you tough enough to play the game they play?*
-> *Or will you just do your time and fade away*
-> *Down into the Jackson Cage*
+> *To the Jackson Cage*<br>
+> *Down in Jackson Cage*<br>
+> *And it don't matter just what you say*<br>
+> *Are you tough enough to play the game they play?*<br>
+> *Or will you just do your time and fade away*<br>
+> *Down into the Jackson Cage*<br>
 
 The heart of this song lies in the irony of their circumstances and the raw emotional power of the final verse: her prison is self-imposed, but his is immutable, and they both know it. The narrator can never summon the emotional bravery to say it straight out, but "Jackson Cage" is his way of exhorting her to move on, to leave him behind, to escape her prison.
 
-> *Baby, there's nights when I dream of a better world*
-> *But I wake up so downhearted, girl*
-> *I see you feeling so tired and confused*
-> *I wonder what it's worth to me or you*
-> *Just waiting to see some sun*
-> *Never knowing if that day will ever come*
-> *Left alone standing out on the street*
-> *Till you become the hand that turns the key*
+> *Baby, there's nights when I dream of a better world*<br>
+> *But I wake up so downhearted, girl*<br>
+> *I see you feeling so tired and confused*<br>
+> *I wonder what it's worth to me or you*<br>
+> *Just waiting to see some sun*<br>
+> *Never knowing if that day will ever come*<br>
+> *Left alone standing out on the street*<br>
+> *Till you become the hand that turns the key*<br>
 
-> *Down in Jackson Cage*
-> *Down in Jackson Cage*
-> *Well, darlin', can you understand*
-> *The way that they will turn a man*
-> *Into a stranger to waste away*
-> *Down in the Jackson Cage*
+> *Down in Jackson Cage*<br>
+> *Down in Jackson Cage*<br>
+> *Well, darlin', can you understand*<br>
+> *The way that they will turn a man*<br>
+> *Into a stranger to waste away*<br>
+> *Down in the Jackson Cage*<br>
 
 For as much solace as she brings to him through her visits and loyalty, she increases his torment as well: in part because he can't bear to see her tired, confused, and defeated by life, but if he's completely honest, it's more because he can't bear to let her see what he knows will become of him as time passes in the cage. Better to have her move on and remember him as he was than as the stranger he will ultimately waste away to become.
 
@@ -155,9 +155,9 @@ Here's one of those performances, from one of the very last full-album shows in 
 Will we see "Jackson Cage" again? If history is any indication, probably. Although it didn't show up in the brief 2004 Vote for Change and 2017 Australian tours, it hasn't skipped out a full E Street Band tour in over fifteen years. We haven't heard the last from our lifers.
 
 **Jackson Cage**<br>
-**Recorded** February-March, 1980  
+**Recorded** February-March, 1980<br>
 **Released:** *The River* (1980)
-**First performed:** October 3, 1980 (Ann Arbor, MI)
-**Last performed:** July 28, 1980 (Oslo, Norway)
+**First performed:** October 3, 1980 (Ann Arbor, MI)<br>
+**Last performed:** July 28, 1980 (Oslo, Norway)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

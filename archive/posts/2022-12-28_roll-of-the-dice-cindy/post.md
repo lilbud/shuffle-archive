@@ -8,54 +8,54 @@ But "Cindy" quickly takes a darker turn, and it isn't long before we realize tha
 
 Bruce doesn't waste any time–there's no introduction here, just a cold open into a first verse that immediately establishes our sympathies for the singer:
 
-> *I pick you up with flowers when you get off of work*
-> *It's like you don't even care, it's like I'm some kind of jerk*
-> *I take you out on a date and then you won't even kiss me*
-> *Boy, when I ain't around I'll bet you don't even miss me*
+> *I pick you up with flowers when you get off of work*<br>
+> *It's like you don't even care, it's like I'm some kind of jerk*<br>
+> *I take you out on a date and then you won't even kiss me*<br>
+> *Boy, when I ain't around I'll bet you don't even miss me*<br>
 
-> *I don't know why, I love you like I do*
-> *I try and try, you treat me like a fool*
-> *It makes me wanna cry, it makes me feel so blue*
-> *But I just do, baby, I just do*
+> *I don't know why, I love you like I do*<br>
+> *I try and try, you treat me like a fool*<br>
+> *It makes me wanna cry, it makes me feel so blue*<br>
+> *But I just do, baby, I just do*<br>
 
 Poor guy! He's trying his best to be a good boyfriend, isn't he? He's attentive, doting even, but his girl just seems to take him for granted.
 
 Or does she?
 
-> *I call you up just to pass the time*
-> *Soon as you hear my voice you disconnect the line*
-> *And when I call you back, your mother says you ain't home*
-> *Cindy, I know that's you on the other end of this phone*
+> *I call you up just to pass the time*<br>
+> *Soon as you hear my voice you disconnect the line*<br>
+> *And when I call you back, your mother says you ain't home*<br>
+> *Cindy, I know that's you on the other end of this phone*<br>
 
 Um.
 
 Suddenly, this doesn't exactly sounds like an established relationship, healthy or otherwise. I suppose it could just be a lovers' quarrel… maybe our narrator is right, and it's not Cindy's mom on the phone but rather Cindy herself trying to get him to stop calling. That would be pretty mean, but it seems our self-styled hero likes it that way:
 
-> *Now in this world there ain't another like you*
-> *My little candy girl, so hard-hearted and cruel*
-> *I think that's what keeps me coming back*
-> *I'm a fool for you Cindy and I like it like that*
+> *Now in this world there ain't another like you*<br>
+> *My little candy girl, so hard-hearted and cruel*<br>
+> *I think that's what keeps me coming back*<br>
+> *I'm a fool for you Cindy and I like it like that*<br>
 
 But then the next verse makes it pretty clear that if Cindy really is cruel, her parents have her back:
 
-> *I came to get you last night, Cindy, at quarter to six*
-> *Your daddy came to the door, he said Cindy got sick*
-> *She got sent home from work with a note from the nurse*
-> *And that my very own presence would make your condition worse*
+> *I came to get you last night, Cindy, at quarter to six*<br>
+> *Your daddy came to the door, he said Cindy got sick*<br>
+> *She got sent home from work with a note from the nurse*<br>
+> *And that my very own presence would make your condition worse*<br>
 
 …and then Bruce makes it clear that the narrator's intentions aren't as virtuous as he'd led us to believe:
 
-> *But it ain't your health, 'cause honey you sure look fine*
-> *Little girl it's something else that's on my mind*
-> *But whatever you've got, well you can give it to me*
-> *‘Cause if it's good enough for you, it's good enough for me*
+> *But it ain't your health, 'cause honey you sure look fine*<br>
+> *Little girl it's something else that's on my mind*<br>
+> *But whatever you've got, well you can give it to me*<br>
+> *‘Cause if it's good enough for you, it's good enough for me*<br>
 
 So yeah, we're in full-on creep mode now.
 
-> *I don't know why, I love you like I do*
-> *You make me cry and feel like such a fool*
-> *I guess I like it when you hurt me this way*
-> *You dish it out and I just put it away*
+> *I don't know why, I love you like I do*<br>
+> *You make me cry and feel like such a fool*<br>
+> *I guess I like it when you hurt me this way*<br>
+> *You dish it out and I just put it away*<br>
 
 …and that's where we leave our characters, with no indication that Cindy will ever be free of her would-be Romeo, despite her consistent signals of disinterest. Bruce has played a clever trick: rather than putting his characters through a story arc, he takes the listener on a ride instead. The song's characters don't change, but our perceptions of them do. It's a neat feat to pull off in two and a half minutes–impressive enough that we'll forgive Bruce the occasionally clumsy meter (there are several places where Bruce works hard to stretch or compress syllables to fit the melody).
 

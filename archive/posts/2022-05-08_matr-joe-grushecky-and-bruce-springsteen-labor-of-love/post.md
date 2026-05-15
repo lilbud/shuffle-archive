@@ -20,10 +20,10 @@ Unfortunately, despite their many and frequent on-stage team-ups year after year
 
 But catch [Joe and his band at the Wonder Bar on July 9th](https://www.ticketmaster.com/joe-grushecky-the-houserockers-asbury-park-new-jersey-07-09-2022/event/00005C81CD6A78D0?_ga=2.262119309.1098266866.1651979274-1181650660.1651979274) this summer (I'll be there!), and odds are pretty high you'll get a smoking version of it in person.
 
-> *The 25th anniversary edition of American Babylon is finally and newly available in vinyl–pick it up [here](https://store.clevelandinternational.com/products/joe-grushecky-the-houserockers-american-babylon-25th-anniversary-edition?variant=41116046229672).*
+> *The 25th anniversary edition of American Babylon is finally and newly available in vinyl–pick it up [here](https://store.clevelandinternational.com/products/joe-grushecky-the-houserockers-american-babylon-25th-anniversary-edition?variant=41116046229672).*<br>
 
 **Labor of Love**<br>
-**First performed:** July 22, 1995 (Sea Bright, NJ)
-**Last performed:** March 2, 1998 (Pittsburgh, PA)
+**First performed:** July 22, 1995 (Sea Bright, NJ)<br>
+**Last performed:** March 2, 1998 (Pittsburgh, PA)<br>
 
 

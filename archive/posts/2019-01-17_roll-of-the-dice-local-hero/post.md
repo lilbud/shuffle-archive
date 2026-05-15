@@ -90,8 +90,8 @@ It was almost a full decade before Bruce tried again, this time by request on th
 
 **Local Hero**<br>
 **Recorded:** Late 1991  
-**Released:** *Lucky Town* (1992), *In Concert/MTV Plugged* (1993)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** April 14, 2023 (Newark, NJ)
+**Released:** *Lucky Town* (1992), *In Concert/MTV Plugged* (1993)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** April 14, 2023 (Newark, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -18,8 +18,8 @@ Lyrically, it fits right in with Bruce's early work, rife with alliteration…
 …and colorful imagery limning seamy street life.
 
 > *So perfumed sweet and so obscene*
-> *Like the fancy dancers of our dirty green  
-Oh they know hello and goodbye but not what goes in between*
+> *Like the fancy dancers of our dirty green*
+> *Oh they know hello and goodbye but not what goes in between*
 > *Yeah, and its such a scene on Saturday night*
 
 For most of the song, it seems like "Hollywood Kids" is just a street scene painting without any real narrative or message, perhaps simply a songwriting practice exercise.
@@ -38,7 +38,7 @@ A twist of alienation and fascination that could only come from a 22-year-old Ne
 As the singer signs off: Yeah, that's it for that one.
 
 **Hollywood Kids**<br>
-**Recorded** April 1972  
+**Recorded** April 1972<br>
 **Never released**  
 **Never performed**<br>
 

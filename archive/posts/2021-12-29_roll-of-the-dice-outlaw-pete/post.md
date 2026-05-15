@@ -4,14 +4,14 @@
 >
 > In other words, your past is your past. You carry it with you always. These are your sins. You carry them with you always. You better learn how to live with them, learn the story that they're telling you. Because they're whispering your future in your ear, and if you don't listen, it will be contaminated by the toxicity of your past.
 >
-> — *Bruce Springsteen to Mark Hagen, The Guardian, January 18, 2009*
+> — *Bruce Springsteen to Mark Hagen, The Guardian, January 18, 2009*<br>
 > Well the Maximum Lawman run down Flamingo chasing the Rat and the barefoot girl  And the kids 'round here look just like shadows, always quiet, holding hands
 >
 >
 >
 > In the tunnels uptown, the Rat's own dream guns him down as shots echo down them hallways in the night  No one watches when the ambulance pulls away or as the girl shuts out the bedroom light…
 >
-> *—Bruce Springsteen, "Jungleland"*
+> *—Bruce Springsteen, "Jungleland"*<br>
 
 Epic in length, audacious in arrangement.
 
@@ -55,73 +55,73 @@ It is breathtakingly effective.
 
 It's my wont to summarize the song in these essays, but in this case the author himself does it pretty well. In that same interview with Mark Hagen, Bruce described Pete's motivation:
 
-> *"He moves ahead. He tries to make the right moves. He awakes from a vision of his death and realizes: Life is finite. Time is with me always. And I'm frightened. And he rides west where he settles down. But the past comes back in the form of this bounty hunter, whose mind is also quickened and burdened by the need to get his man. And these possessed creatures meet along the shores of this river where the bounty hunter of course is killed, and his last words are: ‘We can't undo the things we've done.'"*
+> *"He moves ahead. He tries to make the right moves. He awakes from a vision of his death and realizes: Life is finite. Time is with me always. And I'm frightened. And he rides west where he settles down. But the past comes back in the form of this bounty hunter, whose mind is also quickened and burdened by the need to get his man. And these possessed creatures meet along the shores of this river where the bounty hunter of course is killed, and his last words are: ‘We can't undo the things we've done.'"*<br>
 
 That's a pretty good synopsis of the main events of "Outlaw Pete." When we meet Pete, he's just a babe, introduced to us "[John Henry](https://estreetshuffle.com/index.php/2021/06/01/cover-me-rotd-john-henry/)"-style– so brash in his youth, invincibility and notoriety that he shouts his name as if the wind would carry it forever, daring all who hear him to forget him.
 
-> *He was born a little baby on the Appalachian Trail*
-> *At six months old he'd done three months in jail*
-> *He robbed a bank in his diapers and his little bare baby feet*
-> *All he said was "Folks, my name is Outlaw Pete."*
-> *I'm Outlaw Pete, I'm Outlaw Pete, can you hear me?*
+> *He was born a little baby on the Appalachian Trail*<br>
+> *At six months old he'd done three months in jail*<br>
+> *He robbed a bank in his diapers and his little bare baby feet*<br>
+> *All he said was "Folks, my name is Outlaw Pete."*<br>
+> *I'm Outlaw Pete, I'm Outlaw Pete, can you hear me?*<br>
 
 By the time Pete becomes a young adult, however, his romantic rebel veneer has been stripped away. Bruce writes in realistic detail now, and there's a dawning self-awareness in Pete of his impact on others. And he begins to question who he is.
 
-> *At twenty-five a Mustang pony he did steal*
-> *And he rode her 'round and 'round on heaven's wheel*
-> *Father Jesus I'm an outlaw, killer and a thief*
-> *And I slow down only to sow my grief*
-> *I'm Outlaw Pete, I'm Outlaw Pete, can you hear me?*
+> *At twenty-five a Mustang pony he did steal*<br>
+> *And he rode her 'round and 'round on heaven's wheel*<br>
+> *Father Jesus I'm an outlaw, killer and a thief*<br>
+> *And I slow down only to sow my grief*<br>
+> *I'm Outlaw Pete, I'm Outlaw Pete, can you hear me?*<br>
 
 As we reach our first bridge, we can't look away from Pete's cruel and callous legacy–and neither can Pete.
 
-> *He cut his trail of tears across the countryside*
-> *And where he went women wept and men died*
+> *He cut his trail of tears across the countryside*<br>
+> *And where he went women wept and men died*<br>
 
 Finally, one night, Pete has a moral awakening, a crisis of conscience–and he leaves his life behind. Unable to put right the pile of wrongs he'd amassed, he turns his back on it. He rides deep into the West, falls in love with a girl who only knows him for who he is now, and starts a family. And in his family, he finds redemption. For a time.
 
-> *One night he woke from a vision of his own death*
-> *Saddled his pony and rode her deep into the West*
-> *Married a Navajo girl and settled down on the res*
-> *And as the snow fell he held their beautiful daughter to his chest*
-> *I'm Outlaw Pete, I'm Outlaw Pete, can you hear me?*
-> *Can you hear me?*
-> *Can you hear me?*
+> *One night he woke from a vision of his own death*<br>
+> *Saddled his pony and rode her deep into the West*<br>
+> *Married a Navajo girl and settled down on the res*<br>
+> *And as the snow fell he held their beautiful daughter to his chest*<br>
+> *I'm Outlaw Pete, I'm Outlaw Pete, can you hear me?*<br>
+> *Can you hear me?*<br>
+> *Can you hear me?*<br>
 
 An exultant instrumental break carries us to the song's true turning point, the second bridge–in which an older and wiser songwriter reminds us that stories don't end until their characters do.
 
-> *Out of the East on an Irish stallion came bounty hunter Dan*
-> *His heart quickened and burned by the need to get his man*
-> *He found Pete peacefully fishing by the river, pulled his gun and got the drop*
-> *He said, "Pete, you think you've changed but you have not."*
+> *Out of the East on an Irish stallion came bounty hunter Dan*<br>
+> *His heart quickened and burned by the need to get his man*<br>
+> *He found Pete peacefully fishing by the river, pulled his gun and got the drop*<br>
+> *He said, "Pete, you think you've changed but you have not."*<br>
 
 Pete's past finally catches up with him in the form of a bounty hunter commissioned to avenge the victims of Pete's former life. Because we've spent all this time with our anti-hero Pete, we're conditioned to receive Dan as the bad guy. But he's not–through a certain lens, he's actually the good (if not merciful) guy.
 
-> *He cocked his pistol, pulled the trigger and shouted "let it start"*
-> *Pete drew a knife from his boot, threw it, and pierced Dan through the heart*
-> *Dan smiled as he lay in his own blood dying in the sun*
-> *And whispered in Pete's ear, "We cannot undo these things we've done."*
-> *You're Outlaw Pete, you're Outlaw Pete, Can you hear me?*
-> *Can you hear me?*
-> *Can you hear me?*
+> *He cocked his pistol, pulled the trigger and shouted "let it start"*<br>
+> *Pete drew a knife from his boot, threw it, and pierced Dan through the heart*<br>
+> *Dan smiled as he lay in his own blood dying in the sun*<br>
+> *And whispered in Pete's ear, "We cannot undo these things we've done."*<br>
+> *You're Outlaw Pete, you're Outlaw Pete, Can you hear me?*<br>
+> *Can you hear me?*<br>
+> *Can you hear me?*<br>
 
 Unaware, uncaring, and unbelieving of Pete's change of heart, Dan fires words at Pete that draw more blood than bullets ever could: *You only think you've changed. You're still the same person. You can't undo your sins. You can't undo your past.* And as Pete proves him right by slaying him in self-defense–another by-product victim of his life of crime–Dan twists the only knife he has left: *You're **Outlaw** Pete. Not Pete. **Outlaw Pete**. You'll always be an outlaw. Do you hear me?*
 
 Pete is haunted by Dan's dying words, and once again his instinct is to run from them. And he does–for forty days and forty nights. Running, running from his past and his sins. Until he reaches a breaking point, where he loses the will to run any further.
 
-> *For forty days and nights Pete rode and did not stop*
-> *Till he sat high upon an icy mountaintop*
-> *He watched the hawk on a desert updraft, slip and slide*
-> *Moved to the edge and dug his spurs deep into his pony's side*
+> *For forty days and nights Pete rode and did not stop*<br>
+> *Till he sat high upon an icy mountaintop*<br>
+> *He watched the hawk on a desert updraft, slip and slide*<br>
+> *Moved to the edge and dug his spurs deep into his pony's side*<br>
 
 And in one final cinematic sweep, Bruce gives Pete a *Thelma & Louise* send-off against a second instrumental section that descends to earth along with our hero. A quiet epilogue closes the book on the tale of Outlaw Pete:
 
-> *Some say Pete and his pony vanished over the edge*
-> *And some say they remain frozen high up on that icy ledge*
-> *The young Navajo girl washes in the river, skin so fair*
-> *And braids a piece of Pete's buckskin chaps into her hair*
-> *Outlaw Pete, Outlaw Pete, Can you hear me?*
-> *Can you hear me?*
+> *Some say Pete and his pony vanished over the edge*<br>
+> *And some say they remain frozen high up on that icy ledge*<br>
+> *The young Navajo girl washes in the river, skin so fair*<br>
+> *And braids a piece of Pete's buckskin chaps into her hair*<br>
+> *Outlaw Pete, Outlaw Pete, Can you hear me?*<br>
+> *Can you hear me?*<br>
 
 In the end, Pete outruns his past in the only sure way possible. He leaves behind his family–the only ones who will ever really remember him, the only ones who cry for him through Little Steven's anguished, heartbreaking guitar solo. Pete's notoriety soon fades, and he is remembered more for the way he died rather than the way he lived.
 

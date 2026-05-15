@@ -8,12 +8,12 @@ Bruce's recent autobiographical openness sheds light on his penchant for getting
 
 The first verse of "Lady and the Doctor" introduces us to our two title characters. Bruce writes in parallel throughout, alternating his point-of-view characters to ensure his listeners can empathize with both.
 
-> *The lady keeps the doctor in a place inside her pocket*
-> *In a circle made of silver like a wheel*
-> *The doctor gives a strange love, but the lady she don't knock it*
-> *She's glad to get a piece of anything*
-> *Because the lady needs the medicine he brings*
-> *And the doctor needs the lady to see*
+> *The lady keeps the doctor in a place inside her pocket*<br>
+> *In a circle made of silver like a wheel*<br>
+> *The doctor gives a strange love, but the lady she don't knock it*<br>
+> *She's glad to get a piece of anything*<br>
+> *Because the lady needs the medicine he brings*<br>
+> *And the doctor needs the lady to see*<br>
 
 I absolutely adore those opening lines, both for their effect and their humor. When Bruce describes "a circle made of silver like a wheel," he is of course describing a locket–which would rhyme with the immediately preceding *pocket*.
 
@@ -21,12 +21,12 @@ Why didn't Bruce simply open the song with "The lady keeps the doctor in a locke
 
 Bruce barely gives us time to appreciate the joke, however, before he lays out our lovers' dilemma: she craves his attention; he's devoted to his work. Bruce drives that comparison home in the opening lines of the second verse, which are almost as laugh-out-loud funny as the previous ones.
 
-> *The doctor keeps the lady in a page in a book*
-> *On the history of communicable disease*
-> *The lady's been to school and she lets the doctor play it cool*
-> *He writes the script, she follows his lead*
-> *Because the doctor writes a love story so fine*
-> *And the lady's learned to read between his lines (sometimes)*
+> *The doctor keeps the lady in a page in a book*<br>
+> *On the history of communicable disease*<br>
+> *The lady's been to school and she lets the doctor play it cool*<br>
+> *He writes the script, she follows his lead*<br>
+> *Because the doctor writes a love story so fine*<br>
+> *And the lady's learned to read between his lines (sometimes)*<br>
 
 In those first two lines, Bruce shows us that the lady really does occupy a space in the doctor's heart–but that his attention is otherwise almost entirely focused on his work, his primary concern. "Communicable" is an absolutely horrible fit for the song's meter, which is why Bruce uses it.
 
@@ -34,21 +34,21 @@ The awkward line tells us just how out of sync our two characters are, how littl
 
 The lady thinks she understands the doctor, although she admits parenthetically that she's not quite sure. She certainly has a somewhat resentful view of the demands of his job, though, as we learn in the third verse.
 
-> *The doctor he takes house calls where he visits the animals in their stalls*
-> *Shoots 'em full of juice and then goes home*
-> *The lady hits the supermart where she rides the aisles in a shopping cart*
-> *‘Till she feels she's played enough of the part to get by*
-> *Oh, and the lady feels it's enough to just be good*
-> *But the doctor has this need to be understood*
+> *The doctor he takes house calls where he visits the animals in their stalls*<br>
+> *Shoots 'em full of juice and then goes home*<br>
+> *The lady hits the supermart where she rides the aisles in a shopping cart*<br>
+> *‘Till she feels she's played enough of the part to get by*<br>
+> *Oh, and the lady feels it's enough to just be good*<br>
+> *But the doctor has this need to be understood*<br>
 
 The lady plays her part, trying to be an understanding and devoted lover. But she can't understand the doctor's devotion to a job that she reduces to a literally dehumanizing degree, and that frustrates the doctor.
 
-> *The doctor feels he's so abused and the lady feels she's so unused*
-> *And demands the doctor tend her daily parts*
-> *Oh, but the doctor he just can't do it, because long ago the lady blew it*
-> *They're too old now to make another start*
-> *The lady feels the doctor's made of stone*
-> *But the doctor's heart it just ain't found a home*
+> *The doctor feels he's so abused and the lady feels she's so unused*<br>
+> *And demands the doctor tend her daily parts*<br>
+> *Oh, but the doctor he just can't do it, because long ago the lady blew it*<br>
+> *They're too old now to make another start*<br>
+> *The lady feels the doctor's made of stone*<br>
+> *But the doctor's heart it just ain't found a home*<br>
 
 Frustration is the name of the game for both lovers: the lady feels neglected both physically and emotionally, and the doctor no longer trusts that the lady will ever understand or appreciate him for anything other than his attentiveness.
 
@@ -65,7 +65,7 @@ Still, "Lady and the Doctor" is a gem of an early outtake.
 <https://estreetshuffle.com/wp-content/uploads/2020/09/Bruce-Springsteen-The-Lady-And-The-Doctor-1.mp3>
 
 **Lady and the Doctor**<br>
-**Recorded** June 7, 1972  
+**Recorded** June 7, 1972<br>
 **Never released**<br>
 **Never performed**<br>
 

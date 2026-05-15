@@ -12,15 +12,15 @@ In 2003, producer Jim Musselman rewrote the first verse of Seeger's song to upda
 
 Three years later, Bruce took Musselman's first verse and Seeger's second verse and then wrote two new verses of his own:
 
-> *They wanna test their grand theories*
-> *Bring them home, bring them home*
-> *With the blood of you and me*
-> *Bring them home, bring them home*
+> *They wanna test their grand theories*<br>
+> *Bring them home, bring them home*<br>
+> *With the blood of you and me*<br>
+> *Bring them home, bring them home*<br>
 
-> *Now we'll give no more brave young lives*
-> *Bring them home, bring them home*
-> *For the gleam in someone's eyes*
-> *Bring them home, bring them home*
+> *Now we'll give no more brave young lives*<br>
+> *Bring them home, bring them home*<br>
+> *For the gleam in someone's eyes*<br>
+> *Bring them home, bring them home*<br>
 
 But Bruce wasn't done yet–he borrowed and adapted two verses from the standard "When Johnny Comes Marching Home"….
 
@@ -31,10 +31,10 @@ But Bruce wasn't done yet–he borrowed and adapted two verses from the standard
 
 …and then wrote a seventh verse in tribute:
 
-> *We will lift their voice and sound*
-> *Bring them home, bring them home*
-> *Yeah when Johnny comes marching home*
-> *Bring them home, bring them home*
+> *We will lift their voice and sound*<br>
+> *Bring them home, bring them home*<br>
+> *Yeah when Johnny comes marching home*<br>
+> *Bring them home, bring them home*<br>
 
 It's hard to call the resulting song a cover, but it's certainly not an original Springsteen song. There's no debating its power, however. Although not nearly as angry as Seeger's original song, Bruce's version captures the patriotism of Seeger's original and the longing in "When Johnny Comes Marching Home" to produce a mash-up that perfectly captures the heartache and sacrifice of the families of soldiers overseas.
 
@@ -61,9 +61,9 @@ Bruce retired his version of "Bring ‘Em Home" after the Seeger Sessions Tour c
 Like all great folk songs, Pete Seeger's patriotic anti-war song will continue to grow, adapt, and evolve across the years for as long as there are wars that require people to fight them.
 
 **Bring ‘Em Home**<br>
-**Recorded** January 21 and May 18, 2006  
+**Recorded** January 21 and May 18, 2006<br>
 **Released:** *Bring ‘Em Home* (single, 2006)
-**First performed:** May 10, 2006 (Paris, France)
-**Last performed:** November 14, 2006 (Sheffield, England)
+**First performed:** May 10, 2006 (Paris, France)<br>
+**Last performed:** November 14, 2006 (Sheffield, England)<br>
 
 © June 23, 2021

@@ -6,9 +6,9 @@ Silent Bear is a Boulder-based singer-songwriter steeped in the blues tradition,
 
 A longtime fan of Springsteen, Silent Bear cites Bruce's passion as an inspiration for his own performances.
 
-> *"Bruce brings passion to everything that he does. His love and commitment to what he does always shines through and inspires. The last time I saw him was the second to last show of the MSG Reunion run. I remember thinking to myself upon leaving that show that Bruce is like an urban Shaman of sorts, a medicine man for the common people.*
+> *"Bruce brings passion to everything that he does. His love and commitment to what he does always shines through and inspires. The last time I saw him was the second to last show of the MSG Reunion run. I remember thinking to myself upon leaving that show that Bruce is like an urban Shaman of sorts, a medicine man for the common people.*<br>
 
-> *"Unlike Indigenous cultures that still perform their original sacred ceremonies, most folks in modern western society have lost this primal connection. The rock concert might be the closest thing that we have to that ritual. So that's what I aspire to: presenting live music as a transformative, healing, medicinal experience, like Bruce does."*
+> *"Unlike Indigenous cultures that still perform their original sacred ceremonies, most folks in modern western society have lost this primal connection. The rock concert might be the closest thing that we have to that ritual. So that's what I aspire to: presenting live music as a transformative, healing, medicinal experience, like Bruce does."*<br>
 
 Silent Bear combined that passion and his improvisational talent at The Mountain Sun in Boulder on January 18, 2015, when he covered "Tenth Avenue Freeze-Out" for only the second time.
 
@@ -26,14 +26,14 @@ When I asked him what inspired him to make the connection, Silent Bear took me i
 
 *"The repeating of the phrase **Tenth Avenue freeze-out** led to something else. I started out with the blues tradition of scatting along with the guitar as I played. and then I found myself saying the words, ‘Shot my brother down.'*
 
-> *"This was not long after Ferguson and the Eric Garner murder, so police murders of people of color was in the air. So the narrative/flow of the improvisation went that way.*
+> *"This was not long after Ferguson and the Eric Garner murder, so police murders of people of color was in the air. So the narrative/flow of the improvisation went that way.*<br>
 
-> *The Big Man dressed in blue, shot my brother down*
-> *Right in front of his mother*
-> *Right by the Tenth Ave street line*
-> *Lights flashing, sirens blaring*
+> *The Big Man dressed in blue, shot my brother down*<br>
+> *Right in front of his mother*<br>
+> *Right by the Tenth Ave street line*<br>
+> *Lights flashing, sirens blaring*<br>
 
-> *"So basically, completely improvised, I found myself recreating the scene of the police shooting of a man of color in the street. The title took on another meaning in the moment and became symbolic of a shooting/murder on a city street. A whole different kind of "freeze out."*
+> *"So basically, completely improvised, I found myself recreating the scene of the police shooting of a man of color in the street. The title took on another meaning in the moment and became symbolic of a shooting/murder on a city street. A whole different kind of "freeze out."*<br>
 
 Silent Bear and Bruce may never have met, but they're only one degree separated: they both shared a friendship and working relationship with the late, great Pete Seeger.
 

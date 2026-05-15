@@ -25,7 +25,7 @@ January 21, 1972 (Neptune, NJ)
 
 **Sweet Miss Sally/Mistress Annie**<br>
 **Never recorded or released**<br>
-**First performed:** <br>
+**First performed:**<br>
 **Last performed:**<br>
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

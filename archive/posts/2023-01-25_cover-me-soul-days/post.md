@@ -1,6 +1,6 @@
 > ["Soul Days"] was a song I stumbled onto. You go on iTunes and you see you see "[Drift Away](https://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)" at No. 1. No. 2, "Soul Days." What's "Soul Days?" I've never heard of that. All right. Boom. I put it on. Oh, it's a great narrative. It's about somebody's love for soul music... It almost sounds like it could have been one of my tunes."
 >
-> *— Bruce Springsteen to Raina Douris, NPR, December 9, 2022*
+> *— Bruce Springsteen to Raina Douris, NPR, December 9, 2022*<br>
 
 If we'd known in advance there was going to be a Dobie Gray song on Bruce Springsteen's album of soul covers, "Soul Days" is the last song we'd guess.
 

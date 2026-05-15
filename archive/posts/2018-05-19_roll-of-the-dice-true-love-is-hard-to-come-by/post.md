@@ -14,18 +14,18 @@ He tried different styles, from reggae…
 
 Yep, those lines:
 
-> *Til the sun is torn from the sky  
-Til every river, baby, it runs dry.*
+> *Til the sun is torn from the sky*<br>
+> *Til every river, baby, it runs dry.*<br>
 
 are the genetic ancestor of "[Janey, Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)." The last lines of that song are:
 
-> *‘Til every river, baby, it runs dry*
-> *Until the sun, honey, is torn from the sky*
+> *‘Til every river, baby, it runs dry*<br>
+> *Until the sun, honey, is torn from the sky*<br>
 
 Bruce recorded these demos in early 1982, and reportedly the E Street Band took a crack at at in 1983. Maybe someday we'll get to hear what they came up with.
 
-**True Love Is Hard to Come By**  
+**True Love Is Hard to Come By**<br>
 **Never Released**<br>
-Never Performed**
+Never Performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -11,5 +11,5 @@ Here's a contemporaneous video of The Box Tops performing their hit on *Upbeat* 
 *Technically, Bruce did perform this one other time in 2015 with Southside Johnny, but Bruce was just on guitar for that one–SSJ took the vocals. So we'll consider this a one-time-only performance.
 
 **The Letter**<br>
-**First performed:** September 30, 1967 (Freehold, NJ)
-**Last performed:** January 17, 2015 (Asbury Park, NJ)
+**First performed:** September 30, 1967 (Freehold, NJ)<br>
+**Last performed:** January 17, 2015 (Asbury Park, NJ)<br>

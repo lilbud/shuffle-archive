@@ -2,7 +2,7 @@
 
 **1972:** John Hammond sends the demos that Bruce recorded on May 3 to Clive Davis, president of Columbia Records. He includes a note that reads:
 
-> *Here is a copy of a couple of the reels of Bruce Springsteen, a very talented kid who recorded these twelve songs in a period of around two hours last Wednesday . . . I think we better act quickly because many people heard the boy at The Gaslight so that his fame is beginning to spread.*
+> *Here is a copy of a couple of the reels of Bruce Springsteen, a very talented kid who recorded these twelve songs in a period of around two hours last Wednesday . . . I think we better act quickly because many people heard the boy at The Gaslight so that his fame is beginning to spread.*<br>
 
 **1975:** Bruce records an early take of "[Linda Let Me Be the One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)" at the Record Plant in New York City.
 

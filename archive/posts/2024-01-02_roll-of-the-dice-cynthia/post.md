@@ -18,17 +18,17 @@ But I'm surprised that no one ever seems to notice that "Cynthia" is essentially
 
 I mean, come on: compare Orbison's opening verse…
 
-> *Pretty woman, walkin' down the street*
-> *Pretty woman the kind I like to meet*
-> *Pretty woman I don't believe you, you're not the truth*
-> *No one could look as good as you, mercy*
+> *Pretty woman, walkin' down the street*<br>
+> *Pretty woman the kind I like to meet*<br>
+> *Pretty woman I don't believe you, you're not the truth*<br>
+> *No one could look as good as you, mercy*<br>
 
 …with Bruce's:
 
-> *Cynthia, when you come walking by you're an inspiring sight*
-> *Cynthia, you don't smile or say hi but baby that's alright*
-> *‘Cause I don't need to hold you or taste your kiss*
-> *I just like knowing, Cynthia, you exist, doll, in a world like this*
+> *Cynthia, when you come walking by you're an inspiring sight*<br>
+> *Cynthia, you don't smile or say hi but baby that's alright*<br>
+> *‘Cause I don't need to hold you or taste your kiss*<br>
+> *I just like knowing, Cynthia, you exist, doll, in a world like this*<br>
 
 Even Bruce's inter-verse comments and asides are tributes to Orbison's immortal "Mercy!"
 
@@ -40,47 +40,47 @@ The narrator of "Cynthia," by contrast, harbors no illusions. He knows he'll nev
 
 The "world like this" that Bruce's protagonist lives in would appears to include a construction site–that's where he works along with a crew of other fools who appreciate their daily visitor.
 
-> *Cynthia, when you pass it seems like this whole town drops*
-> *Cynthia, or maybe it's just me, baby, and these fools stuck here punching this clock*
-> *Well you give us a reason to stop just for a while*
-> *To stop, stand, baby, and salute your style*
-> *Yeah Cynthia*
+> *Cynthia, when you pass it seems like this whole town drops*<br>
+> *Cynthia, or maybe it's just me, baby, and these fools stuck here punching this clock*<br>
+> *Well you give us a reason to stop just for a while*<br>
+> *To stop, stand, baby, and salute your style*<br>
+> *Yeah Cynthia*<br>
 
 Our hero is sanguine about the situation–he knows there will be other women to dream about, more attractive ones even. But if you're a blue-collar aesthete, you've got to take notice of beauty where you find it. Or when it finds you.
 
-> *Well now you ain't the finest thing I'll never have*
-> *And when you go the hurt you leave but baby it ain't so bad*
-> *Alright Cynthia*
+> *Well now you ain't the finest thing I'll never have*<br>
+> *And when you go the hurt you leave but baby it ain't so bad*<br>
+> *Alright Cynthia*<br>
 
-> *Yeah there ain't a man in this whole town who'd say you ain't fine*
-> *You hear them guys talking, tell me baby do you mind*
-> *Well you make us happy, honey, when we feel sad*
-> *To see something so good in a world gone bad*
-> *There's still Cynthia, oh yeah*
+> *Yeah there ain't a man in this whole town who'd say you ain't fine*<br>
+> *You hear them guys talking, tell me baby do you mind*<br>
+> *Well you make us happy, honey, when we feel sad*<br>
+> *To see something so good in a world gone bad*<br>
+> *There's still Cynthia, oh yeah*<br>
 
-> *Cynthia, no one knows your number, no one knows where you live*
-> *Cynthia, I wonder do you understand this strange thing you give*
-> *Yeah well baby is it your style, the mystery in your smile*
-> *Or just how cool you walk in a world gone wild*
-> *Oh tell me if you will, Cynthia*
+> *Cynthia, no one knows your number, no one knows where you live*<br>
+> *Cynthia, I wonder do you understand this strange thing you give*<br>
+> *Yeah well baby is it your style, the mystery in your smile*<br>
+> *Or just how cool you walk in a world gone wild*<br>
+> *Oh tell me if you will, Cynthia*<br>
 
 In the end, "Cynthia's" admirer differentiates himself from Orbison's narrator in the song's most direct explicit reference to "Oh, Pretty Woman." In Orbison's song, the hero sings:
 
-> *Pretty woman don't walk on by*
-> *Pretty woman don't make me cry*
-> *Pretty woman don't walk away, okay*
+> *Pretty woman don't walk on by*<br>
+> *Pretty woman don't make me cry*<br>
+> *Pretty woman don't walk away, okay*<br>
 
 But Bruce's hero is fine with the fantasy. He encourages Cynthia to keep on walking, and in the song's best line, he proclaims "I got other dreams as good as you, Cynthia" with a delivery that does its best to be respectful rather than dismissive.
 
 Bruce channels his best Orbison impression for that line and the ones that follow, sending his pretty woman off to live her day.
 
-> *Well I gotta be pretty naive to believe in you*
-> *I know you ain't ever gonna be my dream come true*
-> *That's alright, I got other dreams as good as you, Cynthia*
-> *Yeah now baby, now this ain't no come-on*
-> *Now walk on, Cynthia, walk on*
-> *That's right*
-> *Yeah go on there baby*
+> *Well I gotta be pretty naive to believe in you*<br>
+> *I know you ain't ever gonna be my dream come true*<br>
+> *That's alright, I got other dreams as good as you, Cynthia*<br>
+> *Yeah now baby, now this ain't no come-on*<br>
+> *Now walk on, Cynthia, walk on*<br>
+> *That's right*<br>
+> *Yeah go on there baby*<br>
 
 And as Cynthia walks on, our hero goes back to work with a spring in his step, a work chant of "yeah, yeah, alright" and the fuel to get through the rest of the day.
 
@@ -111,9 +111,9 @@ Like "[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/
 ***Want another take on "Cynthia?" Check out Katy Crane's excellent essay [here.](https://estreetshuffle.com/index.php/2021/12/06/two-faces-cynthia/)***<br>
 
 **Cynthia**<br>
-**Recorded** June 15, 1983  
-**Released:** *Tracks* (1998)
-**First performed:** August 31, 2003 (East Rutherford, NJ)
-**Last performed:** July 23, 2013 (Cardiff, Wales)
+**Recorded** June 15, 1983<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** August 31, 2003 (East Rutherford, NJ)<br>
+**Last performed:** July 23, 2013 (Cardiff, Wales)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

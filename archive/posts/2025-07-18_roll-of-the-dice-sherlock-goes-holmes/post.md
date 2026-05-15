@@ -10,7 +10,7 @@ July 17, 1970 (Asbury Park, NJ)
 October 11, 1970 (Richmond, VA)
 
 **Sherlock Goes Home**<br>
-**First performed:** <br>
+**First performed:**<br>
 **Last performed:**<br>
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

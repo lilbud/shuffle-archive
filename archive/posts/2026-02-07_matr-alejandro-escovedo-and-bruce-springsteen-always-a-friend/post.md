@@ -1,4 +1,4 @@
-> "Those four minutes on stage with Bruce were more important than the 33 years I've been playing music. It just changed my life. It was like being blessed by the Dalai Lama. Suddenly all those years of working really hard and struggling, someone said, ‘You're alright. You're good at what you do. You deserve to be up here.'" *–Alejandro Escovedo, Backstreets interview, July 2008*
+> "Those four minutes on stage with Bruce were more important than the 33 years I've been playing music. It just changed my life. It was like being blessed by the Dalai Lama. Suddenly all those years of working really hard and struggling, someone said, ‘You're alright. You're good at what you do. You deserve to be up here.'" *–Alejandro Escovedo, Backstreets interview, July 2008*<br>
 
 Bruce Springsteen has long been a fan of Alejandro Escovedo. The two singer-songwriters performed together five times in as many years, trading stages in their home states of New Jersey and Texas.
 
@@ -44,7 +44,7 @@ Prior to the pandemic, Escovedo's career was back on track, but it's been a long
 
 **Always a Friend**<br>
 **Released:** *Magic Tour Highlights* (2008)
-**First performed:** April 14, 2008 (Houston, TX)
-**Last performed:** March 14, 2012 (Austin, TX)
+**First performed:** April 14, 2008 (Houston, TX)<br>
+**Last performed:** March 14, 2012 (Austin, TX)<br>
 
 © August 31, 2020

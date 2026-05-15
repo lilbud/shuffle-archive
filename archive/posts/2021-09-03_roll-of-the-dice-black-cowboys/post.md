@@ -10,7 +10,7 @@
 >
 >
 >
-> –Jonathan Kozol, *Amazing Grace: The Lives of Children and the Conscience of a Nation*
+> –Jonathan Kozol, *Amazing Grace: The Lives of Children and the Conscience of a Nation*<br>
 
 In 1995, author/educator/activist Jonathan Kozol published his award-winning, eye-opening, and heartbreaking book, *Amazing Grace: The Lives of Children and the Conscience of a Nation*.
 
@@ -42,15 +42,15 @@ Enhanced or re-recorded with a more lush palette and expansive soundstage than t
 
 In "Black Cowboys," Raney Williams proxies for David Washington; his mother Lynette stands in for Alice. Bruce sets his song in the same Mott Haven neighborhood where the Washingtons lived, employing imagery drawn directly from the book.
 
-> *Raney Williams' playground was the Mott Haven streets*
-> *Where he ran past melted candles and flower wreaths*
-> *Names and photos of young black faces*
-> *Whose death and blood consecrated these places*
+> *Raney Williams' playground was the Mott Haven streets*<br>
+> *Where he ran past melted candles and flower wreaths*<br>
+> *Names and photos of young black faces*<br>
+> *Whose death and blood consecrated these places*<br>
 
-> *Raney's mother said, "Raney stay at my side*
-> *For you are my blessing, you are my pride*
-> *It's your love here that keeps my soul alive*
-> *I want you to come home from school and stay inside"*
+> *Raney's mother said, "Raney stay at my side*<br>
+> *For you are my blessing, you are my pride*<br>
+> *It's your love here that keeps my soul alive*<br>
+> *I want you to come home from school and stay inside"*<br>
 
 Bruce immediately establishes Raney's fragile innocence. He is by no means sheltered–no one in Mott Haven ever could be–but the import of the photos of young faces vanished and gone doesn't yet penetrate his worldview.
 
@@ -60,24 +60,24 @@ Raney lives in the aura of his mother's love, thriving in his inner life if not 
 
 Raney becomes fascinated with movies about the American West, whitewashed tales (like most American history books) scrubbed of references to Black cowboys and the roles they played. Recognizing the importance of having idols and role models who look like Raney, Lynette buys him books about the Black cowboys, stoking his dreams and hopes for as long as she can.
 
-> *Raney'd do his work and put his books away*
-> *There was a channel showed a Western movie every day*
-> *Lynette brought him home books on the black cowboys of the Oklahoma range*
-> *The Seminole scouts that fought the tribes of the Great Plains*
+> *Raney'd do his work and put his books away*<br>
+> *There was a channel showed a Western movie every day*<br>
+> *Lynette brought him home books on the black cowboys of the Oklahoma range*<br>
+> *The Seminole scouts that fought the tribes of the Great Plains*<br>
 
-> *Summer come and the days grew long*
-> *Raney always had his mother's smile to depend on*
-> *Along the street of stray bullets he made his way*
-> *To the warmth of her arms at the end of each day*
+> *Summer come and the days grew long*<br>
+> *Raney always had his mother's smile to depend on*<br>
+> *Along the street of stray bullets he made his way*<br>
+> *To the warmth of her arms at the end of each day*<br>
 
 On a diet of Westerns, books, warm summer days, and his mother's devotion, Raney grows and matures, navigating and surviving the threats the street throws at him daily. The song's backing track is lush and warm like summer here, similar to the idyllic flashback at the heart of "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)."
 
 But now the song takes a turn. An ominous bass layer enters as summer turns to fall in a passage we might think serves only as transition if not for the biblical reference to Ezekiel's vision.
 
-> *Come the fall the rain flooded these homes*
-> *Here in Ezekiel's valley of dry bones*
-> *It fell hard and dark to the ground*
-> *It fell without a sound*
+> *Come the fall the rain flooded these homes*<br>
+> *Here in Ezekiel's valley of dry bones*<br>
+> *It fell hard and dark to the ground*<br>
+> *It fell without a sound*<br>
 
 In the Bible, Ezekiel is commanded by God to speak to a valley of dead, dry bones, and to promise the bones that new life for them is coming. By reference, Bruce implies that Mott Haven (or at least Raney's experience of it) is that valley of dry bones, with Lynette's love the divine source that promises escape and redemption.
 
@@ -85,34 +85,34 @@ But now the rain falls, and the valley is flooded, signifying that the flame of 
 
 Lynette falls victim to the allure and easy access to the drugs. She becomes addicted ("lost in the days"), and grows haunted, distant and withdrawn. In a poignant but clever flourish, Bruce writes that Lynette's smile is "dusted away," a reference to the powdered drugs.
 
-> *Lynette took up with a man whose business was the boulevard*
-> *Whose smile was fixed in a face that was never off guard*
-> *In the pipes ‘neath the kitchen sink his secrets he kept*
-> *In the day behind drawn curtains in Lynette's bedroom he slept*
+> *Lynette took up with a man whose business was the boulevard*<br>
+> *Whose smile was fixed in a face that was never off guard*<br>
+> *In the pipes ‘neath the kitchen sink his secrets he kept*<br>
+> *In the day behind drawn curtains in Lynette's bedroom he slept*<br>
 
-> *Then she got lost in the days*
-> *The smile Raney depended on dusted away*
-> *The arms that held him were no more his home*
-> *He lay at night his head pressed to her chest listening to the ghost in her bones*
+> *Then she got lost in the days*<br>
+> *The smile Raney depended on dusted away*<br>
+> *The arms that held him were no more his home*<br>
+> *He lay at night his head pressed to her chest listening to the ghost in her bones*<br>
 
 Raney longs for his mother's love and presence, and his devotion is unshaken. But Lynette is only a shell of the woman she once was. She's failed her son.
 
 So Raney honors his mother the best way he knows how: he follows the dreams she inspired and fed when she was at her best.
 
-> *In the kitchen Raney slipped his hand between the pipes*
-> *From a brown bag pulled five hundred dollar bills and stuck it in his coat side*
-> *Stood in the dark at his mother's bed*
-> *Brushed her hair and kissed her eyes*
+> *In the kitchen Raney slipped his hand between the pipes*<br>
+> *From a brown bag pulled five hundred dollar bills and stuck it in his coat side*<br>
+> *Stood in the dark at his mother's bed*<br>
+> *Brushed her hair and kissed her eyes*<br>
 
-> *In the twilight Raney walked to the station along streets of stone*
-> *Through Pennsylvania and Ohio his train drifted on*
-> *Through the small towns of Indiana the big train crept*
-> *As he lay his head back on the seat and slept*
+> *In the twilight Raney walked to the station along streets of stone*<br>
+> *Through Pennsylvania and Ohio his train drifted on*<br>
+> *Through the small towns of Indiana the big train crept*<br>
+> *As he lay his head back on the seat and slept*<br>
 
-> *He awoke and the towns gave way to muddy fields of green*
-> *Corn and cotton and an endless nothing in between*
-> *Over the rutted hills of Oklahoma the red sun slipped and was gone*
-> *The moon rose and stripped the earth to its bone*
+> *He awoke and the towns gave way to muddy fields of green*<br>
+> *Corn and cotton and an endless nothing in between*<br>
+> *Over the rutted hills of Oklahoma the red sun slipped and was gone*<br>
+> *The moon rose and stripped the earth to its bone*<br>
 
 Using the hidden proceeds from the drugs that robbed him of his mother, Raney buys a train ticket, heads west and never looks back.
 
@@ -127,9 +127,9 @@ In the end, through the power of her love and the dreams she instilled in her so
 [Watch on Youtube: Bruce Springsteen - BLACK COWBOYS (live 2005)](https://www.youtube.com/watch?v=K3bjY14BQf0)
 
 **Black Cowboys**<br>
-**Recorded** 1997-2004  
-**Released:** *Devils & Dust* (2005)
-**First performed:** April 21, 2005 (Asbury Park, NJ)
-**Last performed:** October 30, 2005 (Boston, MA)
+**Recorded** 1997-2004<br>
+**Released:** *Devils & Dust* (2005)<br>
+**First performed:** April 21, 2005 (Asbury Park, NJ)<br>
+**Last performed:** October 30, 2005 (Boston, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

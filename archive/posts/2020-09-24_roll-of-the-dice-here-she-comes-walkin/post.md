@@ -10,22 +10,22 @@ In fact, not only is it a separate song, it actually pre-dates "I Wanna Marry Yo
 
 It's a song for anyone who ever fell instantly and fleetingly and love with someone they'd never seen before until they crossed paths as strangers on the street. We've all been there, and we've all dreamt this dream even if we'd never heard the song before.
 
-> *Well sometimes at night when I lie in bed*
-> *I still see her face running 'round my head*
-> *Well sometimes at night when I lie in bed*
-> *I still see her face running 'round my head*
+> *Well sometimes at night when I lie in bed*<br>
+> *I still see her face running 'round my head*<br>
+> *Well sometimes at night when I lie in bed*<br>
+> *I still see her face running 'round my head*<br>
 
-> *Here she comes walking down the street*
-> *Here she comes walking down the street*
-> *She's looking so fine, she's looking so sweet*
-> *Yes she's looking so fine, she's looking so sweet*
-> *And someday I'm gonna make her mine, I know I will*
-> *Someday I'm gonna make her mine, I know I will*
+> *Here she comes walking down the street*<br>
+> *Here she comes walking down the street*<br>
+> *She's looking so fine, she's looking so sweet*<br>
+> *Yes she's looking so fine, she's looking so sweet*<br>
+> *And someday I'm gonna make her mine, I know I will*<br>
+> *Someday I'm gonna make her mine, I know I will*<br>
 
-> *Someday she's gonna stop instead of walking by*
-> *She's gonna stop now instead of walking by*
-> *She's gonna stop instead of walking on by*
-> *She's gonna stop…*
+> *Someday she's gonna stop instead of walking by*<br>
+> *She's gonna stop now instead of walking by*<br>
+> *She's gonna stop instead of walking on by*<br>
+> *She's gonna stop…*<br>
 
 The lyrics are simple, as most great doo-wop lyrics are. But that's okay–the secret to songs like these aren't in the lyrics or even the music but in the delivery. It's about soaring vocals, gorgeous harmonies, and passionate emoting.
 
@@ -48,7 +48,7 @@ Let's hope.
 **Here She Comes Walkin'**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** October 11, 1980 (Chicago, IL)
-**Last performed:** July 28, 2016 (Oslo, Norway)
+**First performed:** October 11, 1980 (Chicago, IL)<br>
+**Last performed:** July 28, 2016 (Oslo, Norway)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

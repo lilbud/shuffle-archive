@@ -1,4 +1,4 @@
-> "As much as it is the writer's job to write well, it is the listener's job to listen well." — *Bruce Springsteen, New York Times, October 18, 2020*
+> "As much as it is the writer's job to write well, it is the listener's job to listen well." — *Bruce Springsteen, New York Times, October 18, 2020*<br>
 
 "Why don't you start a blog?" my wife asked.
 

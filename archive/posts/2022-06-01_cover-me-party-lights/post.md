@@ -24,6 +24,6 @@ Take a listen to Bruce's own version of "[Party Lights](https://estreetshuffle.c
 
 **Party Lights  
 First performed:** December 2, 1975 (Boston, MA)
-**Last performed:** December 11, 1975 (South Orange, NJ)
+**Last performed:** December 11, 1975 (South Orange, NJ)<br>
 
  

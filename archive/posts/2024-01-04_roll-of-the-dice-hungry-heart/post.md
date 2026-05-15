@@ -46,15 +46,15 @@ With a gorgeously bright band performance and nostalgically lush harmonies, "Hun
 
 Bruce had something else in mind.
 
-> *Got a wife and kids in Baltimore, Jack*
-> *I went out for a ride and I never went back*
+> *Got a wife and kids in Baltimore, Jack*<br>
+> *I went out for a ride and I never went back*<br>
 
 "Hungry Heart" is indeed about new love, but it's a love that comes at an inconvenient time–and at a cost.
 
 We meet our narrator as he tells his tale to Jack (that's us) from a neighboring barstool. The first thing we learn about him is that he abandoned his family with what sounds like blithe callousness. What we don't yet realize is that he's speaking metaphorically: his body went back, but his heart was endlessly wandering. He's deeply unsatisfied but unaware of it; he roams without realizing he's searching.
 
-> *Like a river that don't know where it's flowing*
-> *I took a wrong turn and I just kept going*
+> *Like a river that don't know where it's flowing*<br>
+> *I took a wrong turn and I just kept going*<br>
 
 Although it's not the only [song on the album to feature a river metaphor](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/), Bruce borrowed this particular one from [one of Bob Dylan's cocktail napkins](https://estreetshuffle.com/index.php/2021/01/04/cover-me-ballad-of-easy-rider/).
 
@@ -64,19 +64,19 @@ Dylan scrawled "*The river flows, it flows to the sea/Wherever that river goes, 
 
 "The Ballad of Easy Rider" clearly informed "Hungry Heart." (Bruce even [covered it once](https://estreetshuffle.com/index.php/2021/01/04/cover-me-ballad-of-easy-rider/) during the River Tour in 1981.) But while McGuinn's narrator is a blank slate with no ties to bind him, Bruce's character is anchored by commitment and obligation. He's restless, though, and like Dylan's river, he feels pulled… somewhere.
 
-> *Everybody's got a hungry heart*
-> *Everybody's got a hungry heart*
-> *Lay down your money and you play your part*
-> *Everybody's got a hungry heart*
+> *Everybody's got a hungry heart*<br>
+> *Everybody's got a hungry heart*<br>
+> *Lay down your money and you play your part*<br>
+> *Everybody's got a hungry heart*<br>
 
 The phrase *hungry heart* was coined by Alfred, Lord Tennyson in his 1842 epic poem *Ulysses*, a tale about growing old but refusing to surrender to unhappiness, restlessness, and monotony. Bruce's use of it in the chorus is our first clue to his narrator's motivation.
 
 The second verse lays it bare.
 
-> *I met her in a Kingstown bar*
-> *We fell in love I knew it had to end*
-> *We took what we had and we ripped it apart*
-> *Now here I am down in Kingstown again*
+> *I met her in a Kingstown bar*<br>
+> *We fell in love I knew it had to end*<br>
+> *We took what we had and we ripped it apart*<br>
+> *Now here I am down in Kingstown again*<br>
 
 He hasn't wandered very far. Kingstown is only about a ninety-minute drive from Baltimore, but it's far enough to provide a temporary escape. He stops at the right bar at the right time, and unexpectedly meets and falls for a woman who rouses his restless heart.
 
@@ -84,10 +84,10 @@ She's married, too–or at least in a committed relationship–but the heart wan
 
 Perhaps sensing Jack's judgment, our protagonist defends his actions in the final verse:
 
-> *Everybody needs a place to rest*
-> *Everybody wants to have a home*
-> *Don't make no difference what nobody says*
-> *Ain't nobody like to be alone*
+> *Everybody needs a place to rest*<br>
+> *Everybody wants to have a home*<br>
+> *Don't make no difference what nobody says*<br>
+> *Ain't nobody like to be alone*<br>
 
 Everyone wants a home. We all want stability. But *nobody* wants to feel alone. That's the crux of the song: What do you do when your sense of security requires the sacrifice of love?
 
@@ -131,11 +131,11 @@ As it turned out, the essential element would come two weeks later, and it would
 
 Paul Rappaport, former VP of Columbia Records, was there that night and shared his recollection in a 2016 blog post.
 
-> *I was lucky enough to be at the Rosemont Theater show in Chicago the very first time the crowd sang the lyrics back to Bruce. It came as a total shock, but in the nicest of ways. The record was in the process of becoming a hit on top 40 radio. This was brand new territory for Bruce and it meant more new fans and those fans coming to a show with that specific song in their heads that they'd heard over an over again on their local top 40 radio station.*
+> *I was lucky enough to be at the Rosemont Theater show in Chicago the very first time the crowd sang the lyrics back to Bruce. It came as a total shock, but in the nicest of ways. The record was in the process of becoming a hit on top 40 radio. This was brand new territory for Bruce and it meant more new fans and those fans coming to a show with that specific song in their heads that they'd heard over an over again on their local top 40 radio station.*<br>
 
-> *The band started the intro and as Bruce put the mic up to his mouth before he could get the first words out the audience started singing! Bruce had never experienced anything like that before and his eyes nearly popped out of his head with amazement. He looked back at the band like, "What??!! Can you believe this?!!! Then he looked at Landau and us in the wings with the same astonished face, which quickly turned into a huge smile.*
+> *The band started the intro and as Bruce put the mic up to his mouth before he could get the first words out the audience started singing! Bruce had never experienced anything like that before and his eyes nearly popped out of his head with amazement. He looked back at the band like, "What??!! Can you believe this?!!! Then he looked at Landau and us in the wings with the same astonished face, which quickly turned into a huge smile.*<br>
 
-> *Then he realized he had to sing the song himself after the audience had finished the first verse. It was funny watching him make a quick decision—do I just start singing the second verse or do I re-start the song from the beginning and repeat the first verse? Well, he chose the latter and he's been doing it that way ever since. He was pumped beyond belief and it was the best time I've ever heard him sing "Hungry Heart"—a total artist and audience bonding—a euphoric and shared love fest.*
+> *Then he realized he had to sing the song himself after the audience had finished the first verse. It was funny watching him make a quick decision—do I just start singing the second verse or do I re-start the song from the beginning and repeat the first verse? Well, he chose the latter and he's been doing it that way ever since. He was pumped beyond belief and it was the best time I've ever heard him sing "Hungry Heart"—a total artist and audience bonding—a euphoric and shared love fest.*<br>
 
 "We had a hit," Springsteen recalled in his autobiography. "A real one. ‘Hungry Heart' went top ten, doubled our album sales and brought to our live shows… women. Thank you, Jesus! Up 'til now, I'd had a hard-core following of young men who made up a high percentage of our live audience, but ‘Hungry Heart' brought in the girls and proved Top 40 radio's power to transform your audience."
 
@@ -175,9 +175,9 @@ Now all of that would have been odd enough, but in the actual released video, Br
 Bruce released that version as an official single that year, too. What made him decide to record and release such an odd amalgam of a fifteen-year-old song? Who knows, and maybe that's the point: when you're feeling bored and restless, sometimes you just need to follow your heart.
 
 **Hungry Heart**<br>
-**Recorded** June 14-21, 1979  
-**Released:** *The River* (1980), *Greatest Hits* (1995), *The Ties That Bind: The River Collection* (2015)
-**First performed:** October 18, 1980 (St. Louis, MO)
-**Last performed:** April 7, 2023 (Baltimore, MD)
+**Recorded** June 14-21, 1979<br>
+**Released:** *The River* (1980), *Greatest Hits* (1995), *The Ties That Bind: The River Collection* (2015)<br>
+**First performed:** October 18, 1980 (St. Louis, MO)<br>
+**Last performed:** April 7, 2023 (Baltimore, MD)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

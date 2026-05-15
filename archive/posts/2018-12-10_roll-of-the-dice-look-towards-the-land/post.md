@@ -108,7 +108,7 @@ So like much of his early pre-Street work, we'll have to content ourselves with 
 **Look Towards the Land**<br>
 **Recorded:** March 14, 1972 (rehearsal)
 **Never released**<br>
-**First performed:** May 15, 1971 (Union, NJ)
-**Last performed:** October 23, 1971 (Richmond, VA)
+**First performed:** May 15, 1971 (Union, NJ)<br>
+**Last performed:** October 23, 1971 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

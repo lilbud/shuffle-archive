@@ -1,4 +1,4 @@
-> "Laying in bed the other night I said, 'What would really bend everybody's minds?… Achy Breaky Heart!" *–Bruce Springsteen, March 23, 1993*
+> "Laying in bed the other night I said, 'What would really bend everybody's minds?… Achy Breaky Heart!" *–Bruce Springsteen, March 23, 1993*<br>
 
 It sure bent mine.
 
@@ -35,7 +35,7 @@ And as for me, I had to admit… very, *very* grudgingly… it was kinda fun.
 Shhhhh…. don't tell anyone.
 
 **Achy Breaky Heart**<br>
-**First performed:** March 23, 1993 (Red Bank, NJ)
-**Last performed:** March 23, 1993 (Red Bank, NJ)
+**First performed:** March 23, 1993 (Red Bank, NJ)<br>
+**Last performed:** March 23, 1993 (Red Bank, NJ)<br>
 
 

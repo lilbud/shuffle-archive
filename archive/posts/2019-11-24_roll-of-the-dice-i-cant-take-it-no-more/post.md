@@ -57,7 +57,7 @@ Not all of Bruce's protagonists need be virtuous–if that were so, we'd be depr
 **I Can't Take It No More**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** October 11, 1970 (Richmond, VA)
-**Last performed:** January 18, 1971 (South Amboy, NJ)
+**First performed:** October 11, 1970 (Richmond, VA)<br>
+**Last performed:** January 18, 1971 (South Amboy, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

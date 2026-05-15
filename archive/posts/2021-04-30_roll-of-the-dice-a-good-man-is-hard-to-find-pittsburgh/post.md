@@ -1,4 +1,4 @@
-> There was something in those stories of [Flannery O'Connor] that I felt captured a certain part of the American character that I was interested in writing about. They were a big, big revelation. She got to the heart of some part of meanness that she never spelled out, because if she spelled it out you wouldn't be getting it. It was always at the core of every one of her stories–the way that she'd left that hole there, that hole that's inside of everybody. *–Bruce Springsteen to Will Percy, DoubleTake, Spring 1998*
+> There was something in those stories of [Flannery O'Connor] that I felt captured a certain part of the American character that I was interested in writing about. They were a big, big revelation. She got to the heart of some part of meanness that she never spelled out, because if she spelled it out you wouldn't be getting it. It was always at the core of every one of her stories–the way that she'd left that hole there, that hole that's inside of everybody. *–Bruce Springsteen to Will Percy, DoubleTake, Spring 1998*<br>
 
 It's easy to overlook a song like "A Good Man Is Hard to Find (Pittsburgh)."
 
@@ -18,11 +18,11 @@ But "Good Man" stands out for more than its unusual point-of-view character. For
 
 But most impressively, "Good Man" features some of Bruce's subtlest, most artful, and most economical songwriting. The first verse alone is a marvel:
 
-> *It's cloudy out in Pittsburgh, it's raining in Saigon*
-> *Snow's fallin' all across the Michigan line*
-> *Well she sits by the lights of her Christmas tree*
-> *With the radio softly on*
-> *Thinkin' how a good man is so hard to find*
+> *It's cloudy out in Pittsburgh, it's raining in Saigon*<br>
+> *Snow's fallin' all across the Michigan line*<br>
+> *Well she sits by the lights of her Christmas tree*<br>
+> *With the radio softly on*<br>
+> *Thinkin' how a good man is so hard to find*<br>
 
 Bruce never tells us directly that the unnamed widow is mourning a fallen soldier, but by the time we reach the song's midpoint it's crystal clear. With the benefit of that hindsight, let's take note of the patient artistry with which Bruce parcels out his information.
 
@@ -36,12 +36,12 @@ Bruce ends the first verse with the introduction of the song's title that also s
 
 "A good man is hard to find" may carry a double meaning: Bruce never outright tells us that the soldier is dead. It's possible (likely, even) that he's missing in action, which would underscore her fixation on the weather in Saigon and her inability to move on. In this case, the title works literally–she may be waiting in the vain hope that he will someday be found. But more likely, the title is figurative, and either way there's a hole in her heart.
 
-> *Well once she had a fella*
-> *Once she was somebody's girl*
-> *And she gave all she had that one last time*
-> *Now there's a little girl asleep in the back room*
-> *She's gonna have to tell about the meanness in this world*
-> *And how a good man is so hard to find*
+> *Well once she had a fella*<br>
+> *Once she was somebody's girl*<br>
+> *And she gave all she had that one last time*<br>
+> *Now there's a little girl asleep in the back room*<br>
+> *She's gonna have to tell about the meanness in this world*<br>
+> *And how a good man is so hard to find*<br>
 
 The opening lines of the second verse that evoke another Springsteen trope: the "I had a job/I had a girl" construction that Bruce sometimes employs to set the scene. He uses this construction here but focuses both halves on the relationship, establishing just how central it was to his character.
 
@@ -49,33 +49,33 @@ The opening lines of the second verse that evoke another Springsteen trope: the 
 
 Again, just stunningly delicate yet devastating storytelling.
 
-> *Well there's pictures on the table by her bed*
-> *Him in his dress greens and her in her wedding white*
-> *She remembers how the world was the day he left*
-> *And now how that world is dead*
-> *And a good man is so hard to find*
+> *Well there's pictures on the table by her bed*<br>
+> *Him in his dress greens and her in her wedding white*<br>
+> *She remembers how the world was the day he left*<br>
+> *And now how that world is dead*<br>
+> *And a good man is so hard to find*<br>
 
 In the third verse, Bruce cements what we already suspect: the dress greens confirm the soldier's active status even as the follow-up line suggests he was deployed shortly (if not immediately) after. And declaring that world to be dead may not be as definitive as declaring the soldier himself to be, but the point of the song is not the death of the soldier's physical life but of his widow's emotional life.
 
 For the past two verses, we've been dwelling in the past. Now, Bruce brings us back to the present. Our point-of-view character is resigned but pragmatic:
 
-> *She ain't got no time now for Casanovas*
-> *Yeah those days are gone*
-> *She don't want that anymore, she's made up her mind*
-> *Just somebody to hold her as the night gets on*
-> *When a good man is so hard to find*
+> *She ain't got no time now for Casanovas*<br>
+> *Yeah those days are gone*<br>
+> *She don't want that anymore, she's made up her mind*<br>
+> *Just somebody to hold her as the night gets on*<br>
+> *When a good man is so hard to find*<br>
 
 The first line of that verse recalls Bruce's earlier song "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)," which also features a disillusioned character. Our focal character harbors no illusions of ever finding another love who can measure up to her lost one. And it wouldn't matter anyway–she doesn't want to risk that kind of loss again. Companionship is enough for her now. As with the radio earlier in the song, she's just looking for someone to fill the emptiness.
 
 The last verse is as depressing as any final verse Bruce has ever written. Our hero climbs into bed at the end of a meaningless day, with only another empty one to look forward to. Why bother dreaming when she now understands how easily dreams can be swept away?
 
-> *Well she shuts off the TV without a word*
-> *And into bed she climbs*
-> *Well she thinks how it was all so wasted*
-> *And how expendable their dreams all were*
-> *When a good man was so hard to find*
+> *Well she shuts off the TV without a word*<br>
+> *And into bed she climbs*<br>
+> *Well she thinks how it was all so wasted*<br>
+> *And how expendable their dreams all were*<br>
+> *When a good man was so hard to find*<br>
 
-> *Well, it's cloudy out in Pittsburgh…*
+> *Well, it's cloudy out in Pittsburgh…*<br>
 
 Bruce ends the song the way he began it, one last storytelling flourish that tells us that his character is trapped in an endless cycle, unable or unwilling to move forward.
 
@@ -97,9 +97,9 @@ Both performances were serviceable, but neither captured the poignancy of the st
 It isn't hard to find a great performance of "Good Man"; we just have to look to the studio rather than the stage.
 
 **A Good Man Is Hard to Find (Pittsburgh)**<br>
-**Recorded** May 5-6, 1982  
+**Recorded** May 5-6, 1982<br>
 **Released:** *Tracks* (1998)
-**First performed:** May 10, 2005 (St. Paul, MN)
-**Last performed:** November 4, 2010 (Pittsburgh, PA)
+**First performed:** May 10, 2005 (St. Paul, MN)<br>
+**Last performed:** November 4, 2010 (Pittsburgh, PA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

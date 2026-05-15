@@ -8,17 +8,17 @@ Written in early 1971 and performed at least four times that summer, "Come On Bi
 
 Sometimes referred to on bootlegs as "Nothing Can Stop Me Now," "Come On Billy, Break Out the Wine" features a narrator desperate to escape his one-horse town with his friend Billy.
 
-> *Come on Billy, won't you break out the wine*
-> *I wanna see you pop that cork*
-> *Today's the day that we've all been waiting for*
+> *Come on Billy, won't you break out the wine*<br>
+> *I wanna see you pop that cork*<br>
+> *Today's the day that we've all been waiting for*<br>
 > *Now I'm gonna get down to some serious celebrating*,
-> *We ain't been out of this one horse town*
-> *Since I was dropped off by the stork*
+> *We ain't been out of this one horse town*<br>
+> *Since I was dropped off by the stork*<br>
 
-> *Nothing can stop me now*
-> *Got my ticket to New York*
-> *Oh nothing can stop me boy*
-> *No no nothing can stop me now*
+> *Nothing can stop me now*<br>
+> *Got my ticket to New York*<br>
+> *Oh nothing can stop me boy*<br>
+> *No no nothing can stop me now*<br>
 
 It's never made clear what the celebration's about–graduation, perhaps? Or maybe it's simply the purchase of a bus ticket that transforms our hero from dreamer to traveler.
 
@@ -30,18 +30,18 @@ Before we even reach the second verse, we feel the narrator's desperate need for
 
 But the signposts are about to get even clearer:
 
-> *Yeah I'll say my goodbyes to Mary*
-> *She's a standing there at the door*
-> *I don't wanna leave that women so bluesy*
-> *I never left that girl before, oh no no*
-> *A man's gotta seek his fortune*
-> *And a man gotta seek his fame*
+> *Yeah I'll say my goodbyes to Mary*<br>
+> *She's a standing there at the door*<br>
+> *I don't wanna leave that women so bluesy*<br>
+> *I never left that girl before, oh no no*<br>
+> *A man's gotta seek his fortune*<br>
+> *And a man gotta seek his fame*<br>
 
-> *I tell you when I get back*
-> *This whole town's gonna know my name*
-> *No nothing can stop me boy*
-> *Not even my mama*
-> *Oh no nothing can stop me now*
+> *I tell you when I get back*<br>
+> *This whole town's gonna know my name*<br>
+> *No nothing can stop me boy*<br>
+> *Not even my mama*<br>
+> *Oh no nothing can stop me now*<br>
 
 Before he pulls out of town to win, our hero needs to say goodbye to his girl Mary, who's standing at the door. (It must be a screen door.)
 
@@ -49,11 +49,11 @@ It's a first glimpse at a song that wouldn't even begin to take shape for years,
 
 There's a delightful David Sancious solo at this point–always a highlight of any BSB song–and then we get yet one more glimpse into the future.
 
-> *Hey Mr. Greyhound driver*
-> *It's good to see you right on time*
-> *All I wanna know is how far do we go*
-> *What time do we arrive*
-> *No no nothing can stop me now*
+> *Hey Mr. Greyhound driver*<br>
+> *It's good to see you right on time*<br>
+> *All I wanna know is how far do we go*<br>
+> *What time do we arrive*<br>
+> *No no nothing can stop me now*<br>
 
 Well hey there, bus driver. Don't forget to name your kids.
 
@@ -66,7 +66,7 @@ But it's also a fun and fascinating peek into how beloved songs sometimes start 
 **Come On Billy, Break Out the Wine  
 **Never recorded**<br>
 **Never released**  
-**First performed:** July 10, 1971 (Lincroft, NJ)  
-**Last performed:** July 29, 1971 (South Amboy, NJ)
+**First performed:** July 10, 1971 (Lincroft, NJ)<br>
+**Last performed:** July 29, 1971 (South Amboy, NJ)<br>
 
 © May 11, 2026

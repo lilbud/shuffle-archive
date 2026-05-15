@@ -82,9 +82,9 @@ I've heard each of the dozen "When You're Alone" performances Bruce has given ov
 Even then, though, it's only the music that's warm–the lyrics are still icy. I suspect it's not a song most fans would clamor to hear, and likely not one of the artist's favorites either.
 
 **When You're Alone  
-Recorded:** January-April 1987  
-**Released:** *Tunnel of Love* (1987)
-**First performed:** March 23, 1993 (Red Bank, NJ)
-**Last performed:** October 20, 2005 (Worcester, MA)
+**Recorded:** January-April 1987  
+**Released:** *Tunnel of Love* (1987)<br>
+**First performed:** March 23, 1993 (Red Bank, NJ)<br>
+**Last performed:** October 20, 2005 (Worcester, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

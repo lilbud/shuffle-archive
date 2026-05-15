@@ -35,7 +35,7 @@ It's been ten years since "Run Rudolph Run" last made Bruce's setlist, but don't
 December 20, 1994 (Sea Bright, NJ)
 December 22, 2008 (Red Bank, NJ)
 
-**Run Rudolph Run** **First performed:** <br>
+**Run Rudolph Run** **First performed:**<br>
 
 **Last performed:**<br>
 

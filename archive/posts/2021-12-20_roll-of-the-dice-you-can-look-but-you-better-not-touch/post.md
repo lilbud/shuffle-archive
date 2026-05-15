@@ -48,30 +48,30 @@ Anyway, I digress. It was the "Held Up" version of "You Can Look" that won the d
 
 [Watch on Youtube: You Can Look (But You Better Not Touch)](https://www.youtube.com/watch?v=2QFJkYm-kYk)
 
-> *Yesterday I went shopping, buddy, down to the mall*
-> *Looking for something pretty I could hang on my wall*
-> *I knocked over a lamp, before it hit the floor I caught it*
-> *A salesman turned around, said, "Boy, you break that thing you bought it"*
+> *Yesterday I went shopping, buddy, down to the mall*<br>
+> *Looking for something pretty I could hang on my wall*<br>
+> *I knocked over a lamp, before it hit the floor I caught it*<br>
+> *A salesman turned around, said, "Boy, you break that thing you bought it"*<br>
 
-> *You can look but you better not touch, boy*
-> *You can look but you better not touch*
-> *Mess around and you'll end up in dutch, boy*
-> *You can look but you better not, no you better not, no you better not touch*
+> *You can look but you better not touch, boy*<br>
+> *You can look but you better not touch*<br>
+> *Mess around and you'll end up in dutch, boy*<br>
+> *You can look but you better not, no you better not, no you better not touch*<br>
 
-> *Well I came home from work and I switched on Channel 5*
-> *There was a pretty little girly looking straight into my eyes*
-> *Well I watched as she wiggled back and forth across the screen*
-> *She didn't get me excited, she just made me feel mean*
+> *Well I came home from work and I switched on Channel 5*<br>
+> *There was a pretty little girly looking straight into my eyes*<br>
+> *Well I watched as she wiggled back and forth across the screen*<br>
+> *She didn't get me excited, she just made me feel mean*<br>
 
-> *Well I called up Dirty Annie on the telephone*
-> *I took her out to the drive-in just to get her alone*
-> *I found a lover's rendezvous, the music low, set to park*
-> *I heard a tapping on the window and a voice in the dark*
+> *Well I called up Dirty Annie on the telephone*<br>
+> *I took her out to the drive-in just to get her alone*<br>
+> *I found a lover's rendezvous, the music low, set to park*<br>
+> *I heard a tapping on the window and a voice in the dark*<br>
 
-> *You can look but you better not touch, boy*
-> *You can look, better not touch*
-> *Mess around and you'll end up in dutch, boy*
-> *You can look but you better not, no you better not…*
+> *You can look but you better not touch, boy*<br>
+> *You can look, better not touch*<br>
+> *Mess around and you'll end up in dutch, boy*<br>
+> *You can look but you better not, no you better not…*<br>
 
 I've always felt the album version moves at too breakneck a pace. "You Can Look" is a clever song, but the verses fly by so quickly that it's comedic potential (especially in the Dirty Annie verse) is never fully realized.
 
@@ -107,8 +107,8 @@ You can bet "You Can Look" will be around for a long time to come.
 
 **You Can Look (But You Better Not Touch)**<br>
 **Recorded** August 24-25 1979 (rockabilly version), February 17-23, 1980 (album version)
-**Released:** *The River* (1980, album version), *The River: Single Album* (2015, rockabilly version)
-**First performed:** October 7, 1980 (Richfield, OH)
-**Last performed:** February 18, 2017 (Hunter Valley, Australia)
+**Released:** *The River* (1980, album version), *The River: Single Album* (2015, rockabilly version)<br>
+**First performed:** October 7, 1980 (Richfield, OH)<br>
+**Last performed:** February 18, 2017 (Hunter Valley, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

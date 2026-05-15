@@ -38,25 +38,25 @@ After all that, one would expect that "The Way" would be a genuine stinker. But 
 
 Let's take a close listen:
 
-> *The way your heart beats when I hold you tight*
-> *The way you sigh when we kiss goodnight*
-> *The way the wind blows through the trees*
-> *Well hey, that's the way you belong to me*
+> *The way your heart beats when I hold you tight*<br>
+> *The way you sigh when we kiss goodnight*<br>
+> *The way the wind blows through the trees*<br>
+> *Well hey, that's the way you belong to me*<br>
 
-> *The way you warm me baby when I'm cold*
-> *The way you make me want you body and soul*
-> *The way the rivers run to the sea*
-> *Well hey, that's the way you belong to me*
+> *The way you warm me baby when I'm cold*<br>
+> *The way you make me want you body and soul*<br>
+> *The way the rivers run to the sea*<br>
+> *Well hey, that's the way you belong to me*<br>
 
-> *The way you soothe me when I'm in pain*
-> *The way you make the blood rush in my veins*
-> *The way the winds rush through the trees*
-> *Well hey, that's the way you belong to me*
+> *The way you soothe me when I'm in pain*<br>
+> *The way you make the blood rush in my veins*<br>
+> *The way the winds rush through the trees*<br>
+> *Well hey, that's the way you belong to me*<br>
 
-> *When I lose faith you take my hand*
-> *The way you make me feel like I'm a man*
-> *The way the sun belongs to the sea*
-> *Well hey, that's the way you belong to me*
+> *When I lose faith you take my hand*<br>
+> *The way you make me feel like I'm a man*<br>
+> *The way the sun belongs to the sea*<br>
+> *Well hey, that's the way you belong to me*<br>
 
 So far, so good. Bruce has constructed a song entirely of comparisons of his narrator's love with the most natural, reliable, and romantic constants in his life.
 
@@ -64,19 +64,19 @@ All the while, the E Street Band provides gradual and stately accompaniment, bui
 
 And with that realization, the song starts to get a little bit creepy:
 
-> *The way you make me feel like I belong*
-> *And if I could girl though I know it'd be wrong*
-> *I'd lock you deep inside 'till the last rains fall*
-> *And hide you from the emptiness of it all*
+> *The way you make me feel like I belong*<br>
+> *And if I could girl though I know it'd be wrong*<br>
+> *I'd lock you deep inside 'till the last rains fall*<br>
+> *And hide you from the emptiness of it all*<br>
 
 Wait, what? Who wants to lock their lover away from the world until the end of time? Suddenly Bruce's David Lynch comment seems like not that much of an imaginative stretch.
 
 Bruce reels us back into less questionable territory for the final verse, which includes a couplet that would someday appear in [a song that he'd think much more highly of](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/):
 
-> *Sometimes at night I lie awake*
-> *I pull you close and feel each breath you take*
-> *The way the rivers belong to the seas*
-> *Well hey, that's the way you belong to me*
+> *Sometimes at night I lie awake*<br>
+> *I pull you close and feel each breath you take*<br>
+> *The way the rivers belong to the seas*<br>
+> *Well hey, that's the way you belong to me*<br>
 
 Setting aside the narrator's self-centeredness and borderline obsession, "The Way" is a sweet little song that doesn't seem deserving of its creator's scorn. It's easy to hear why it was left off of *Darkness on the Edge of Town*, though: it takes a close listen to discern the darkness lurking on the song's periphery. (It's there, though.)
 
@@ -85,8 +85,8 @@ Most listeners would have probably heard it as a sweet romantic pledge that woul
 Given Bruce's distaste for the song, it's not surprising that he hasn't played "The Way" in concert. With Bruce, we've learned to never say never, but I'd lay very long odds against us hearing this one live.
 
 **The Way**<br>
-**Recorded** August 1977 – February 1978  
-**Released:** *The Promise* (2010)
+**Recorded** August 1977 – February 1978<br>
+**Released:** *The Promise* (2010)<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

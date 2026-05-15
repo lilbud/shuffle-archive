@@ -84,7 +84,7 @@
 
 **2011:** While doctors try to save Clarence's life following his severe stroke, Bruce issues the following statement on his website:
 
-> *By now, many of you have heard that our beloved comrade and sax player Clarence Clemons has suffered a serious stroke. While all initial signs are encouraging, Clarence will need much care and support to achieve his potential once again. He has his wonderfully supportive wife, Victoria, excellent doctors and health care professionals, and is surrounded by friends and family. I thank you all for your prayers and positive energy and concern. This is a time for us all to share in a hopeful spirit that can ultimately inspire Clarence to greater heights.*
+> *By now, many of you have heard that our beloved comrade and sax player Clarence Clemons has suffered a serious stroke. While all initial signs are encouraging, Clarence will need much care and support to achieve his potential once again. He has his wonderfully supportive wife, Victoria, excellent doctors and health care professionals, and is surrounded by friends and family. I thank you all for your prayers and positive energy and concern. This is a time for us all to share in a hopeful spirit that can ultimately inspire Clarence to greater heights.*<br>
 
 ![](../../assets/2020/06/2011-06-13.jpg)
 

@@ -56,8 +56,8 @@ The other was remarkable for both the location–Cape Town, South Africa, where 
 
 **We Shall Overcome**<br>
 **Recorded:** November 2, 1997  
-**Released:** *Where Have All the Flowers Gone: The Songs of Pete Seeger* (1998), *We Shall Overcome: The Seeger Sessions* (2006), *We Shall Overcome: The Seeger Sessions – American Land Edition* (2006)
-**First performed:** April 20, 2006 (Asbury Park, NJ)
-**Last performed:** January 28, 2014 (Cape Town, South Africa)
+**Released:** *Where Have All the Flowers Gone: The Songs of Pete Seeger* (1998), *We Shall Overcome: The Seeger Sessions* (2006), *We Shall Overcome: The Seeger Sessions – American Land Edition* (2006)<br>
+**First performed:** April 20, 2006 (Asbury Park, NJ)<br>
+**Last performed:** January 28, 2014 (Cape Town, South Africa)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

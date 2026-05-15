@@ -39,7 +39,7 @@ We know what happened next. Steve Van Zandt's phone rang in Richmond, and when h
 Check out Chapter Five of Steve's *Unrequited Infatuations* to see where the story goes from there.
 
 **Confessin' the Blues**<br>
-**First performed:** January 21, 1972 (Neptune, NJ)
-**Last performed:** September 9, 1972 (Highlands, NJ)
+**First performed:** January 21, 1972 (Neptune, NJ)<br>
+**Last performed:** September 9, 1972 (Highlands, NJ)<br>
 
 

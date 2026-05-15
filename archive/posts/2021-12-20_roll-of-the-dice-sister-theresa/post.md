@@ -24,41 +24,41 @@ Here's that second, superior performance–although we can't precisely date it, 
 
 Gentle and tentative, 19-year-old Bruce Springsteen's lyrics (the lyrics in the 1970 performance are identical to the earlier one) walk a tightrope between fantasy and worship. He can't help but see Sister Teresa as a woman, and he can't reconcile her celibate devotion.
 
-> *Sister Theresa, golden hair all tucked away*
-> *Sister Theresa, she's dressed in black*
-> *With rosary beads strung 'round her neck*
-> *What you need's a man to love*
-> *Can you tell what I'm thinking of*
+> *Sister Theresa, golden hair all tucked away*<br>
+> *Sister Theresa, she's dressed in black*<br>
+> *With rosary beads strung 'round her neck*<br>
+> *What you need's a man to love*<br>
+> *Can you tell what I'm thinking of*<br>
 
-> *Sister Theresa, feeling her way back home*
-> *Sister Theresa, up in the morning saying her prayers*
-> *Sister Theresa, revealing herself to the midnight air*
+> *Sister Theresa, feeling her way back home*<br>
+> *Sister Theresa, up in the morning saying her prayers*<br>
+> *Sister Theresa, revealing herself to the midnight air*<br>
 
 The artistic heart of the song is in the bridge, in which Bruce struggles to comprehend Theresa's devotional sacrifice of earthly pleasures through a lens that could only belong to a nineteen-year-old boy:
 
-> *You say you're married to Jesus Christ*
-> *And that he's in your bedroom every night*
-> *Why is he so hard, why does he treat you so cruel*
-> *Is he jealous or just a fool*
+> *You say you're married to Jesus Christ*<br>
+> *And that he's in your bedroom every night*<br>
+> *Why is he so hard, why does he treat you so cruel*<br>
+> *Is he jealous or just a fool*<br>
 
 And if the payoff is predictable, at least it comes off more sweet than sly. Chalk that up to the earnestness of Bruce's vocals and the inherent innocence of Vini's recorder. (I'm not sure it's possible to make that instrument sound sexy.)
 
-> *Sister Theresa, come with me for a while*
-> *I promise I'll make you smile*
-> *Mother Superior, come and see*
-> *Sister Frances, come and see*
-> *Mother Superior, come and see*
-> *Sister Frances, come and see*
-> *She is gone, she is gone*
+> *Sister Theresa, come with me for a while*<br>
+> *I promise I'll make you smile*<br>
+> *Mother Superior, come and see*<br>
+> *Sister Frances, come and see*<br>
+> *Mother Superior, come and see*<br>
+> *Sister Frances, come and see*<br>
+> *She is gone, she is gone*<br>
 
-> *Sister Theresa, I've given you my heart*
+> *Sister Theresa, I've given you my heart*<br>
 
 Never recorded and rarely performed, "Sister Theresa" is too atypical of Bruce's contemporary writing to ignore but not significant enough to merit memorializing. If notable for anything, it serves as a signpost toward softer, more contemplative songs like "[Mary, Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" and "[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" that lie ahead a couple of years down the road.
 
 **Sister Theresa**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** September 20, 1969 (Richmond, VA)
-**Last performed:** 1970 (exact date uncertain)
+**First performed:** September 20, 1969 (Richmond, VA)<br>
+**Last performed:** 1970 (exact date uncertain)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

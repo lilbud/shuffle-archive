@@ -16,27 +16,27 @@ The result was the second track on Burgess' 1996 self-titled release.
 
 The lyrics are clever and straightforward. "Tiger Rose" opens as a simple love song, with a devoted narrator professing his eternal love:
 
-> *Tiger Rose let me read some prose to you*
-> *Just as long as it shows my love any verse will do*
-> *Honey, I could make you happy if you'd only let me, heaven knows*
-> *My, my Tiger Rose*
+> *Tiger Rose let me read some prose to you*<br>
+> *Just as long as it shows my love any verse will do*<br>
+> *Honey, I could make you happy if you'd only let me, heaven knows*<br>
+> *My, my Tiger Rose*<br>
 
 …but there's a heck of a curve ball in the second verse:
 
-> *I went to work this morning on the local commuter train*
-> *Stopped back early and I peeked through the window pane*
-> *There was a man eating from my refrigerator dressed up in my clothes*
-> *Why, why Tiger Rose?*
+> *I went to work this morning on the local commuter train*<br>
+> *Stopped back early and I peeked through the window pane*<br>
+> *There was a man eating from my refrigerator dressed up in my clothes*<br>
+> *Why, why Tiger Rose?*<br>
 
 The song heads down a darker path now, but Bruce keeps it more funny than sad:
 
-> *Called out your name and I kicked down the front door*
-> *I grabbed him by my robe and I rassled him across the floor*
-> *I told him "you ain't any better than all those other so-and-sos"*
-> *He said I wasn't any different than a thousand other Joe Blows*
-> *Love disappears so quickly, when it goes it goes*
-> *Why, why Tiger Rose?*
-> *Bye Bye, Tiger Rose*
+> *Called out your name and I kicked down the front door*<br>
+> *I grabbed him by my robe and I rassled him across the floor*<br>
+> *I told him "you ain't any better than all those other so-and-sos"*<br>
+> *He said I wasn't any different than a thousand other Joe Blows*<br>
+> *Love disappears so quickly, when it goes it goes*<br>
+> *Why, why Tiger Rose?*<br>
+> *Bye Bye, Tiger Rose*<br>
 
 It's a fun song, but hardly essential listening. But the imagery of the protagonist wrestling his rival (wearing his own robe), the late-breaking revelation that he's not the first gentleman she's betrayed him for, and the clever rhyme in the final lines of the verses elevates the song from otherwise-forgettable status to a fun trifle–one we might hope to yet see Bruce perform on stage someday.
 
@@ -45,9 +45,9 @@ He actually did perform it twice, though–with Burgess himself at the Alliance 
 [Watch on Youtube: Tiger rose - sonny burgess & bruce springsteen](https://www.youtube.com/watch?v=zPY4nX3nWLY)
 
 **Tiger Rose**<br>
-**Recorded** Summer 1995  
+**Recorded** Summer 1995<br>
 **Never released**<br>
-**First performed:** October 18, 2001 (Red Bank, NJ)
+**First performed:** October 18, 2001 (Red Bank, NJ)<br>
 **Last performed** October 19, 2001 (Red Bank, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

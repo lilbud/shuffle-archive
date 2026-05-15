@@ -22,22 +22,22 @@ See what I mean? Yeah, it's obvious that the guy loves the girl, and that their 
 
 Let's look at those original lyrics together:
 
-> *If the sun should fall from the sky, tomorrow*
-> *If the rain brings a tear to your eye I would share your sorrow*
-> *But you must go if you can't take the heat*
-> *Our love was fine, our love was sweet*
-> *But we were walking on the wild side, running down a one way street*
+> *If the sun should fall from the sky, tomorrow*<br>
+> *If the rain brings a tear to your eye I would share your sorrow*<br>
+> *But you must go if you can't take the heat*<br>
+> *Our love was fine, our love was sweet*<br>
+> *But we were walking on the wild side, running down a one way street*<br>
 
 I'm picking up on your implications, Bruce. These lovers seem to be committed to others, but they've found temporary refuge in each other. Very "[Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/)."
 
 But in that third line, you introduce a bit of bite to our protagonist: "you must go if you can't take the heat." So the guy is just fine with how things are, it's the girl who's having trouble with the situation. He seems to be saying: "Hey look: we both knew what we were getting into. This was never going to lead anywhere, but I thought we were both okay with it."
 
-> *Yeah, at night when the moon shines, rolling in your eyes*
-> *Sometimes, yeah sometimes, I can't forget your lies*
-> *But oh the changes come today*
-> *And for your wrongs well you must pay*
-> *And we're walking on the wild side running down a one way street*
-> *It's a dead end baby*
+> *Yeah, at night when the moon shines, rolling in your eyes*<br>
+> *Sometimes, yeah sometimes, I can't forget your lies*<br>
+> *But oh the changes come today*<br>
+> *And for your wrongs well you must pay*<br>
+> *And we're walking on the wild side running down a one way street*<br>
+> *It's a dead end baby*<br>
 
 Can I just say that I love how you used moonlight rolling in her eyes as a euphemism for doing the deed? That's brilliant. And to have that be the moment when he has to wrestle with dishonesty–well, that's just haunting. (What did exactly did she lie about, anyway? Or is it one of those situations where if she's lying to her husband, what's to say she's not lying to her lover?)
 
@@ -47,23 +47,23 @@ Oh, and that throwaway line–"It's a dead end, baby." You threw it away! That w
 
 Another nice touch: you gave the narrator enough self-awareness to recognize his obsession but didn't give him the inner strength wean himself from it:
 
-> *If and oh, my darling I, I must confess*
-> *That this can't be love though I must be a man possessed*
-> *When I look in your eyes so bright*
-> *You're walking and your dress fits you just right*
-> *But babe we're walking on a dead end, running down a one way street*
+> *If and oh, my darling I, I must confess*<br>
+> *That this can't be love though I must be a man possessed*<br>
+> *When I look in your eyes so bright*<br>
+> *You're walking and your dress fits you just right*<br>
+> *But babe we're walking on a dead end, running down a one way street*<br>
 
-> *Well if a man could change the things he feels inside*
-> *If for once I could turn and maybe swallow some of my pride*
-> *But for the wrongs oh yes we must pay*
-> *So it's bye bye baby today*
-> *And we'll go walking down the wild side running down a one way street*
+> *Well if a man could change the things he feels inside*<br>
+> *If for once I could turn and maybe swallow some of my pride*<br>
+> *But for the wrongs oh yes we must pay*<br>
+> *So it's bye bye baby today*<br>
+> *And we'll go walking down the wild side running down a one way street*<br>
 
-> *Yeah when I think of all the girls that I have missed*
-> *Well I know I would give them up for just one kiss*
-> *It's mmmm we, we are the same kind*
-> *And to leave you baby I'd have to go blind*
-> *Oh and we're walking on the wild side, running down a one way street*
+> *Yeah when I think of all the girls that I have missed*<br>
+> *Well I know I would give them up for just one kiss*<br>
+> *It's mmmm we, we are the same kind*<br>
+> *And to leave you baby I'd have to go blind*<br>
+> *Oh and we're walking on the wild side, running down a one way street*<br>
 
 Okay, that last verse is a bit weak. But in fairness, I know you never intended for us to hear this version, and I'm sure you were gonna finesse the lyrics some more.
 
@@ -75,31 +75,31 @@ Let's listen to that one, from your 2010 album, *The Promise*.
 
 See how right off the bat, the song loses its edge:
 
-> *Well if the sun should fall from the sky tomorrow*
-> *If the rain brings a tear to your eye I would share your sorrow*
+> *Well if the sun should fall from the sky tomorrow*<br>
+> *If the rain brings a tear to your eye I would share your sorrow*<br>
 ***If you must go, then take your leave***<br>
-> *Our love was strong, our love was sweet*
-> *But we were walking on the wild side, running down a one way street*
+> *Our love was strong, our love was sweet*<br>
+> *But we were walking on the wild side, running down a one way street*<br>
 
 "You must go if you can't take the heat" is angry, but it's also pleading. The narrator's goal is to get her to stay by impugning her courage. It's a great line.
 
 "If you must go, then take your leave…" well, that's just martyrdom.
 
-> *In the night, I see only the fire in your eyes*
-> *The morning light brings the shadows of your lies*
-> *And so the change has come today*
-> *And for our wrongs well we must pay*
-> *We were walking on the wild side, running down a one way street*
+> *In the night, I see only the fire in your eyes*<br>
+> *The morning light brings the shadows of your lies*<br>
+> *And so the change has come today*<br>
+> *And for our wrongs well we must pay*<br>
+> *We were walking on the wild side, running down a one way street*<br>
 
 Again, those subtle changes have a big impact. In the 1977 version, we're inside the narrator's head as he struggles with his partner's untruthfulness even as he upbraids her for feeling conflicted about it–all in the midst of an act of passion. Here, the doubt doesn't set in until the morning after, which is nowhere near as heart-wrenching or heat-generating.
 
 And then finally, that last verse:
 
-> *Oh my darling I must, I must confess*
-> *This can't be love, no I am just a man possessed*
-> *And so the tide has turned to day*
-> *We can turn and walk away*
-> *‘Cause we were walking on the wild side, running down a one way street*
+> *Oh my darling I must, I must confess*<br>
+> *This can't be love, no I am just a man possessed*<br>
+> *And so the tide has turned to day*<br>
+> *We can turn and walk away*<br>
+> *‘Cause we were walking on the wild side, running down a one way street*<br>
 
 Okay, exactly how possessed can the guy actually be if in the very next breath he says "oh well" and walks away? Seriously, *that's* how you end the song?
 
@@ -119,8 +119,8 @@ But if you're ever in the mood to play it in concert again, maybe give the origi
 
 **One Way Street**<br>
 **Recorded** June 17, 1977 (backing track), 2010 (vocals)
-**Released:** *The Promise* (2010)
-**First performed:** December 7, 2010 (Asbury Park, NJ)
-**Last performed:** July 5, 2013 (Monchengladbach, Germany)
+**Released:** *The Promise* (2010)<br>
+**First performed:** December 7, 2010 (Asbury Park, NJ)<br>
+**Last performed:** July 5, 2013 (Monchengladbach, Germany)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

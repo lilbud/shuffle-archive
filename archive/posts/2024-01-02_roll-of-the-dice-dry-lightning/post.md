@@ -12,12 +12,12 @@ As it stands, "Dry Lightning" is as close as we get to an E Street Band song on 
 
 Borrowing the melody from "[Jersey Girl,](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" Bruce spins a tale of torrid romance turned dry and distant memory. We meet our narrator as he rises from a sleepless night (in a verse that contains distant echoes of the opening of "[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)").
 
-> *I threw my robe on in the morning, watched the ring on the stove turn to red*
-> *Stared hypnotized into a cup of coffee, pulled on my boots and made the bed*
-> *Screen door hangin' off its hinges kept bangin' me awake all night*
-> *As I look out the window, the only thing in sight*
-> *Is dry lightning on the horizon line*
-> *It's just dry lightning and you on my mind*
+> *I threw my robe on in the morning, watched the ring on the stove turn to red*<br>
+> *Stared hypnotized into a cup of coffee, pulled on my boots and made the bed*<br>
+> *Screen door hangin' off its hinges kept bangin' me awake all night*<br>
+> *As I look out the window, the only thing in sight*<br>
+> *Is dry lightning on the horizon line*<br>
+> *It's just dry lightning and you on my mind*<br>
 
 Bruce uses fine detail to communicate how deeply lost in memory is our narrator. He uncharacteristically abandons subtlety by using the word "hypnotized" (the verse would be just as powerful and work better metrically had he left that word out and let the imagery do the heavy lifting). but we can forgive that.
 
@@ -27,21 +27,21 @@ The dry lightning is metaphor, of course. We often refer to sexual chemistry and
 
 Our narrator's devotion/obsession is almost religious in its fervor:
 
-> *I chased the heat of her blood like it was the holy grail*
-> *Descend beautiful spirit into the evening pale*
-> *Her Appaloosa's kickin' in the corral smelling rain*
-> *There's a low thunder rolling across the mesquite plain*
-> *But there's just dry lightning on the horizon line*
-> *It's just dry lightning and you on my mind*
+> *I chased the heat of her blood like it was the holy grail*<br>
+> *Descend beautiful spirit into the evening pale*<br>
+> *Her Appaloosa's kickin' in the corral smelling rain*<br>
+> *There's a low thunder rolling across the mesquite plain*<br>
+> *But there's just dry lightning on the horizon line*<br>
+> *It's just dry lightning and you on my mind*<br>
 
 The restless horse is more than just a colorful detail; its presence is the first and only way we learn that his past-tense affair was serious enough that they lived together (or at the very least, they spent enough time together for her to have her own horse in his corral). The fact that the horse is smelling rain is likely projection on the narrator's part.
 
 Although we've had reason to suspect as much all along, in the final verse Bruce suggests that the narrator's relationship was rooted in its physicality.
 
-> *I'd drive down to Alvarado street where she danced to make ends meet*
-> *I'd spend the night over my gin as she'd talk to her men*
-> *Well the piss-yellow sun comes bringin' up the day*
-> *She said, "Ain't nobody gonna give nobody what they really need anyway."*
+> *I'd drive down to Alvarado street where she danced to make ends meet*<br>
+> *I'd spend the night over my gin as she'd talk to her men*<br>
+> *Well the piss-yellow sun comes bringin' up the day*<br>
+> *She said, "Ain't nobody gonna give nobody what they really need anyway."*<br>
 
 Our narrator flashes back to the strip club where they met, she a dancer and he a patron. At the end of her shift, they go home together, but any trace of romance is expertly eradicated by Bruce's "piss-yellow" description of the rising sun, a stark contrast to the song's imagery up to this point.
 
@@ -51,10 +51,10 @@ By assigning it as a quote by the nameless love interest rather than simply stat
 
 We never learn what circumstances led to their dissolution, but it's clear that the lovers never clicked as well out of bed as they did in it:
 
-> *You get so sick of the fightin', you lose your fear of the end*
-> *I can't lose your memory, the sweet smell of your skin*
-> *It's just dry lightning on the horizon line*
-> *It's just dry lightning and you on my mind*
+> *You get so sick of the fightin', you lose your fear of the end*<br>
+> *I can't lose your memory, the sweet smell of your skin*<br>
+> *It's just dry lightning on the horizon line*<br>
+> *It's just dry lightning and you on my mind*<br>
 
 There's a point in toxic relationships where the fighting becomes so wearing on your well-being that even if you can't bring yourself to end it, you at least realize you no longer fear the break-up. At that point, it's just a matter of time.
 
@@ -78,9 +78,9 @@ That performance, too, pales beside the original album version. "Dry Lightning" 
 I haven't given up hope of hearing one someday.
 
 **Dry Lightning**<br>
-**Recorded** April-June 1995  
-**Released:** *The Ghost of Tom Joad* (1995)
-**First performed:** November 21, 1995 (New Brunswick, NJ)
-**Last performed:** May 14, 2005 (Fairfax, VA)
+**Recorded** April-June 1995<br>
+**Released:** *The Ghost of Tom Joad* (1995)<br>
+**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Last performed:** May 14, 2005 (Fairfax, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

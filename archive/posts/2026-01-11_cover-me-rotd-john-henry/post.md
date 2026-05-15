@@ -38,6 +38,6 @@ But even if Bruce never performs "John Henry" again, we'll certainly be hearing 
 **Recorded:** March 19, 2005<br>
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
-**Last performed:** November, 21, 2006 (Belfast, Northern Ireland)
+**Last performed:** November, 21, 2006 (Belfast, Northern Ireland)<br>
 
 © June 1, 2021

@@ -28,30 +28,30 @@ Actually, that's probably not fair–Max, Danny, Garry, and Roy are locked in th
 
 Let's pick up the story.
 
-> *Driving in to Darlington County, me and Wayne on the Fourth of July*
-> *Driving in to Darlington County, looking for some work on the county line*
-> *We drove down from New York City  
-Where the girls are pretty but they just wanna know your name*
-> *Driving in to Darlington City, got a union connection with an uncle of Wayne's*
-> *We drove eight hundred miles without seeing a cop*
-> *We got rock and roll music blasting off the T-top*
+> *Driving in to Darlington County, me and Wayne on the Fourth of July*<br>
+> *Driving in to Darlington County, looking for some work on the county line*<br>
+> *We drove down from New York City*<br>
+> *Where the girls are pretty but they just wanna know your name*<br>
+> *Driving in to Darlington City, got a union connection with an uncle of Wayne's*<br>
+> *We drove eight hundred miles without seeing a cop*<br>
+> *We got rock and roll music blasting off the T-top*<br>
 
-> *Singing sha la la, sha la la la la*
-> *Sha la la la la la la*
+> *Singing sha la la, sha la la la la*<br>
+> *Sha la la la la la la*<br>
 
 Wilson is what we call an "unreliable narrator." We know from "Delivery Man" that they did not in fact drive in from New York City, but rather from just across the county line. But he and Wayne fancy themselves as Big City boys, because that's what impresses the girls. We also know that Wayne and Wilson are quite the wild ones–that third line tells us all we need to know about their character.
 
 And as for that wordless "sha la la" chorus, that's just the setup for a joke that pays off in the next verse, when our two "heroes" attempt to pick up a couple of streetwalkers, waving around a wad of cash as if it were just a taste instead of what's likely their entire holdings.
 
-> *Hey little girl standing on the corner, today's your lucky day for sure all right*
-> *Me and my buddy we're from New York City, we got two hundred dollars we wanna rock all night*
-> *Girl you're looking at two big spenders, well the world don't know what me and Wayne might do*
+> *Hey little girl standing on the corner, today's your lucky day for sure all right*<br>
+> *Me and my buddy we're from New York City, we got two hundred dollars we wanna rock all night*<br>
+> *Girl you're looking at two big spenders, well the world don't know what me and Wayne might do*<br>
 > *Our pas each own one of the World Trade Centers, for a kiss and a smile I'll give mine all to you*,
-> *Come on baby take a seat on my fender, it's a long night and tell me what else were you gonna do*
-> *Just me and you, we could…*
+> *Come on baby take a seat on my fender, it's a long night and tell me what else were you gonna do*<br>
+> *Just me and you, we could…*<br>
 
-> *Sha la la, sha la la la la*
-> *Sha la la la la la la*
+> *Sha la la, sha la la la la*<br>
+> *Sha la la la la la la*<br>
 
 We know from "Delivery Man" where the inspiration for Wilson's World Trade Center boast comes from, but it's the euphemistic "sha la la" that earns the laugh–so much so that Bruce cracks himself up during Clarence's solo.
 
@@ -59,13 +59,13 @@ In fact from this point forward, the train seems ever ready to run the rails, wi
 
 The final verse flashes forward past a week of truancy and debauchery. Wayne has burned his uncle's bridge; Wilson appears to have made it through a week of work, but as he blows town on the weekend with his sweetheart-for-hire blowing beside him, he discovers Wayne in the process of being arrested by the highway patrol, presumably for the chicken incident.
 
-> *Little girl sitting in the window, ain't seen my buddy in seven days*
-> *County man tells me the same thing, he don't work and he don't get paid*
-> *Little girl you're so young and pretty, walk with me and you can have your way*
-> *And we'll leave this Darlington City for a ride down that Dixie Highway*
+> *Little girl sitting in the window, ain't seen my buddy in seven days*<br>
+> *County man tells me the same thing, he don't work and he don't get paid*<br>
+> *Little girl you're so young and pretty, walk with me and you can have your way*<br>
+> *And we'll leave this Darlington City for a ride down that Dixie Highway*<br>
 
-> *Driving out of Darlington County, my eyes seen the glory of the coming of the Lord*
-> *Driving out of Darlington County, seen Wayne handcuffed to the bumper of a state trooper's Ford*
+> *Driving out of Darlington County, my eyes seen the glory of the coming of the Lord*<br>
+> *Driving out of Darlington County, seen Wayne handcuffed to the bumper of a state trooper's Ford*<br>
 
 Even without the prequel backstory, we know without Bruce telling us: Wilson doesn't even slow down. He just keeps right on going.
 
@@ -104,9 +104,9 @@ Something tells me we'll be celebrating the misadventures of Wayne and Wilson fo
 [Watch on Youtube: Bruce Springsteen Untitled Harmonies #1](https://www.youtube.com/watch?v=dcjjeHtdsLg)
 
 **Darlington County**<br>
-**Recorded** May 13, 1982  
+**Recorded** May 13, 1982<br>
 **Released:** *Born in the U.S.A.* (1984)
-**First performed:** June 8, 1984 (Asbury Park, NJ)
-**Last performed:** August 24, 2023 (Foxborough, MA)
+**First performed:** June 8, 1984 (Asbury Park, NJ)<br>
+**Last performed:** August 24, 2023 (Foxborough, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

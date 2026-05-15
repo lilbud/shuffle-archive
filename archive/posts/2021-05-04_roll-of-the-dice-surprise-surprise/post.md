@@ -10,29 +10,29 @@ Because if "Surprise, Surprise" is the only "good" song to come out of Bruce's d
 
 Its glorious Byrdsian production and harmonies may somewhat redeem it, but lyrically "Surprise, Surprise" is as slight as they come. Heck, we're a quarter of the way through the song before Bruce utters his eleventh non-repeating word, although he manages to get "surprise" out sixteen times in forty-five seconds, which is approaching "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" territory.
 
-> *Well surprise, surprise, surprise*
-> *Yeah surprise, surprise, surprise*
-> *Well surprise, surprise, come on open your eyes*
-> *And let your love shine down*
+> *Well surprise, surprise, surprise*<br>
+> *Yeah surprise, surprise, surprise*<br>
+> *Well surprise, surprise, come on open your eyes*<br>
+> *And let your love shine down*<br>
 
-> *Well surprise, surprise, surprise*
-> *Yeah surprise, surprise, surprise*
-> *Well surprise, surprise, come on open your eyes*
-> *And let your love shine down*
+> *Well surprise, surprise, surprise*<br>
+> *Yeah surprise, surprise, surprise*<br>
+> *Well surprise, surprise, come on open your eyes*<br>
+> *And let your love shine down*<br>
 
 So we're thinking: there's gotta be more to the song than this, right?
 
 Well, yeah…. there are all of two verses:
 
-> *Well today is your birthday, we traveled so far we two*
-> *So let's blow out the candles on your cake and we'll raise a glass or two*
-> *And when the sun comes out tomorrow, it'll be the start of a brand new day*
-> *And all that you have wished for I know will come your way*
+> *Well today is your birthday, we traveled so far we two*<br>
+> *So let's blow out the candles on your cake and we'll raise a glass or two*<br>
+> *And when the sun comes out tomorrow, it'll be the start of a brand new day*<br>
+> *And all that you have wished for I know will come your way*<br>
 
-> *In the hollow of the evening, as you lay your head to rest*
-> *May the evening stars scatter a shining crown upon your breast*
-> *In the darkness of the morning, as the sky struggles to light*
-> *May the rising sun caress and bless your soul for all your life*
+> *In the hollow of the evening, as you lay your head to rest*<br>
+> *May the evening stars scatter a shining crown upon your breast*<br>
+> *In the darkness of the morning, as the sky struggles to light*<br>
+> *May the rising sun caress and bless your soul for all your life*<br>
 
 So Bruce dreamt he re-wrote "Happy Birthday to You" and now it's on an album.
 
@@ -41,7 +41,7 @@ So Bruce dreamt he re-wrote "Happy Birthday to You" and now it's on an album.
 > *From good friends and true*,
 > *From old friends and new*,
 > *May good luck go with you*,
-> *And happiness too.*
+> *And happiness too.*<br>
 
 …but if you compare the full lyrics to "Happy Birthday to You" with "Surprise, Surprise," they are basically the same song. Bruce just uses more florid language.
 
@@ -61,8 +61,8 @@ So let's hope Bruce can turn his brain off at night and sleep peacefully. He doe
 
 **Surprise, Surprise**<br>
 **Recorded:** 2007-2008  
-**Released:** *Working on a Dream* (2009)
-**First performed:** March 23, 2009 (Asbury Park, NJ)
-**Last performed:** May 14, 2014 (Hershey, PA)
+**Released:** *Working on a Dream* (2009)<br>
+**First performed:** March 23, 2009 (Asbury Park, NJ)<br>
+**Last performed:** May 14, 2014 (Hershey, PA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

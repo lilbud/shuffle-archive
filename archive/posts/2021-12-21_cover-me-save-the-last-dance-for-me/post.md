@@ -26,6 +26,6 @@ Bruce granted her wish and chose a perfect song for the occasion. Captured close
 
 **Save the Last Dance For Me  
 First performed:** 1971-1972 (exact date unknown) (Richmond, VA)
-**Last performed:** May 13, 2014 (Albany, NY)
+**Last performed:** May 13, 2014 (Albany, NY)<br>
 
  

@@ -12,35 +12,35 @@ Once we get past the jarring freestyle wind-up, the band quickly settles into a 
 
 Lyrically, "Lady of Boston" underwhelms. About the only thing worth noting from a historical perspective is its thematic similarity to Bruce's later song, "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)." Both songs are odes to seductive dancers, and the second verse of the former features a line with a striking similarity to one that would show up in the latter.
 
-> *I got a lady in Boston, she's outta sight*
-> *When I get up into Massachusetts, she keep me company every night*
-> *Well she's mean and she hits you like a Kansas twister*
-> *She's a solid gold, genuine, bona fide, super soul sister*
-> *Well I don't want her money, ain't no money that satisfies*
-> *All I want is your loving, Great god almighty she got the lord on her side*
+> *I got a lady in Boston, she's outta sight*<br>
+> *When I get up into Massachusetts, she keep me company every night*<br>
+> *Well she's mean and she hits you like a Kansas twister*<br>
+> *She's a solid gold, genuine, bona fide, super soul sister*<br>
+> *Well I don't want her money, ain't no money that satisfies*<br>
+> *All I want is your loving, Great god almighty she got the lord on her side*<br>
 
-> *See her every Friday night down at the disco scene*
+> *See her every Friday night down at the disco scene*<br>
 ***When she gets out on the floor everybody moves, she's so clean***<br>
-> *You know she's so heavenly, all a man wants to do is just hold her*
-> *And I tell you there ain't no other woman on earth, there just ain't nobody bolder*
-> *Now I don't care about her bankbook 'cause Sally's what satisfies*
-> *All I want is her loving Great god almighty she got the lord on her side*
+> *You know she's so heavenly, all a man wants to do is just hold her*<br>
+> *And I tell you there ain't no other woman on earth, there just ain't nobody bolder*<br>
+> *Now I don't care about her bankbook 'cause Sally's what satisfies*<br>
+> *All I want is her loving Great god almighty she got the lord on her side*<br>
 
 The instrumental break, however, does not underwhelm. It's very, um, whelming. For the first two minutes, the Sonic Boom members just sort of do their own thing, at times in a painfully discordant fashion. That's followed by a two-minute movement clearly designed to spotlight Bruce's blisteringly fast guitar playing. (If anything impresses about "Lady of Boston," it's Bruce's jaw-dropping guitar dexterity.)
 
 A tempo change signals a shift to the song's final movement, which sounds like Bruce just decided he needed to put words to the riff.
 
-> *It's a funny and a hurting 'cause things ain't right*
-> *Try bake it, try to bomb, maybe start a fight*
-> *But your friends don't wanna know you*
-> *They just pass you by*
-> *But they couldn't be your friends*
-> *‘Cause they wouldn't lie*
-> *So sit down shut up don't you cry*
-> *‘Cause things will get better if you really try*
-> *So don't you panic, don't you panic give it one more try*
-> *Don't you panic, don't you panic give it one more try*
-> *Keep on trying!*
+> *It's a funny and a hurting 'cause things ain't right*<br>
+> *Try bake it, try to bomb, maybe start a fight*<br>
+> *But your friends don't wanna know you*<br>
+> *They just pass you by*<br>
+> *But they couldn't be your friends*<br>
+> *‘Cause they wouldn't lie*<br>
+> *So sit down shut up don't you cry*<br>
+> *‘Cause things will get better if you really try*<br>
+> *So don't you panic, don't you panic give it one more try*<br>
+> *Don't you panic, don't you panic give it one more try*<br>
+> *Keep on trying!*<br>
 
 It's not clear to me that these lyrics have any connection to the ones that preceded them, unless it's a clumsy fast-forward to a relationship on the rocks. Given the abrupt fade-out that ends the track, I sometimes wonder whether the band had actually segued into a different song by this point.
 
@@ -51,7 +51,7 @@ In the end both Dr. Zoom and the Sonic Boom and "Lady of Boston" are historical 
 **Lady of Boston**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** May 15, 1971 (Union, NJ)
-**Last performed:** May 15, 1971 (Union, NJ)
+**First performed:** May 15, 1971 (Union, NJ)<br>
+**Last performed:** May 15, 1971 (Union, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

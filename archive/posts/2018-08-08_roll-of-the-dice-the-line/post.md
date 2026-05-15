@@ -94,7 +94,7 @@ Bruce performed "The Line" nightly throughout the Ghost of Tom Joad Tour, as wel
 **The Line**  
 **Recorded:** March-August 1995  
 **Released:** *The Ghost of Tom Joad* (1995)
-**First performed:** November 21, 1995 (New Brunswick, NJ)
-**Last performed:** August 13, 2005 (Vancouver, Canada)
+**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Last performed:** August 13, 2005 (Vancouver, Canada)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

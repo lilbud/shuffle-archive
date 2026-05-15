@@ -16,41 +16,41 @@ And it works, because "Wrong Side of the Street" is a light, straightforward roc
 
 Lyrically, "Wrong Side of the Street" is far from Bruce's best work–there's nothing objectionable, but neither is there anything of brilliance.
 
-> *Turn on the radio, turn off the lights*
-> *We'll bring an end, darling, to your endless night*
-> *You're on the wrong side of the street*
+> *Turn on the radio, turn off the lights*<br>
+> *We'll bring an end, darling, to your endless night*<br>
+> *You're on the wrong side of the street*<br>
 
-> *I see your fortune in the lines in your face*
-> *I knew you're looking for your saving grace*
-> *You're on the wrong side of the street*
+> *I see your fortune in the lines in your face*<br>
+> *I knew you're looking for your saving grace*<br>
+> *You're on the wrong side of the street*<br>
 
-> *Fear and desire such a sweet confusion*
-> *Well, open your eyes and throw down your illusions*
-> *And see you never belonged here with me*
+> *Fear and desire such a sweet confusion*<br>
+> *Well, open your eyes and throw down your illusions*<br>
+> *And see you never belonged here with me*<br>
 
-> *You and your poetry and your cool, cool world*
-> *You been working hard on that face of a martyr girl*
-> *You're on the wrong side of the street*
+> *You and your poetry and your cool, cool world*<br>
+> *You been working hard on that face of a martyr girl*<br>
+> *You're on the wrong side of the street*<br>
 
-> *You got the look and you own your world*
-> *But here you better check your diamonds and your pearls*
-> *You're on the wrong side of the street*
+> *You got the look and you own your world*<br>
+> *But here you better check your diamonds and your pearls*<br>
+> *You're on the wrong side of the street*<br>
 
-> *You get bored of every day bringing the same*
-> *So you go out looking for some strange new games*
-> *But pretty soon you don't know the score or what you're looking for*
+> *You get bored of every day bringing the same*<br>
+> *So you go out looking for some strange new games*<br>
+> *But pretty soon you don't know the score or what you're looking for*<br>
 
-> *You get bored of every day bringing the same*
-> *So you go out looking for some strange new games*
-> *But pretty soon you don't know the score or what you came here for*
+> *You get bored of every day bringing the same*<br>
+> *So you go out looking for some strange new games*<br>
+> *But pretty soon you don't know the score or what you came here for*<br>
 
-> *Turn on the radio, turn off the lights*
-> *We'll bring an end, darling, to this endless night*
-> *Here on the wrong side of the street*
+> *Turn on the radio, turn off the lights*<br>
+> *We'll bring an end, darling, to this endless night*<br>
+> *Here on the wrong side of the street*<br>
 
-> *Fear and desire such a sweet confusion*
-> *Well, open your eyes and throw down your illusions*
-> *And see tonight there's no one here but you and me*
+> *Fear and desire such a sweet confusion*<br>
+> *Well, open your eyes and throw down your illusions*<br>
+> *And see tonight there's no one here but you and me*<br>
 
 Nothing really happens in "Wrong Side of the Street." The lovers appear to be suspended in time, which is perhaps the point: they hide away in the night because neither belongs in the other's world.
 

@@ -45,7 +45,7 @@ Where did "Cardi B. backyard" come from?
 
 **Savin' Up**  
 **Released:** *Rescue* (1983, Clarence Clemons & The Red Bank Rockers)
-**First Performed:** August 14, 1987 (Asbury Park, NJ)
-**Last performed:** January 18, 2020 (Asbury Park, NJ)
+**First Performed:** August 14, 1987 (Asbury Park, NJ)<br>
+**Last performed:** January 18, 2020 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

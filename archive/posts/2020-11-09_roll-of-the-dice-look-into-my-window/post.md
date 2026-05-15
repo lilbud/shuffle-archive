@@ -39,7 +39,7 @@ Although Bruce would quickly grow by leaps and bounds in both his lyrical skill 
 **Look Into My Window**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** September 30, 1967 (Freehold, NJ)
-**Last performed:** September 30, 1967 (Freehold, NJ)
+**First performed:** September 30, 1967 (Freehold, NJ)<br>
+**Last performed:** September 30, 1967 (Freehold, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

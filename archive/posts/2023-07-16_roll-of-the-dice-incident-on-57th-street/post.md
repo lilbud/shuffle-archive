@@ -28,10 +28,10 @@ When Vini's drums usher in the rest of the band, the individual musicians contin
 
 Bruce tells us a tale:
 
-> *Spanish Johnny drove in from the underworld last night*
-> *With bruised arms and broken rhythm in a beat-up old Buick but dressed just like dynamite*
-> *He tried sellin' his heart to the hard girls over on Easy Street*
-> *But they sighed, "Johnny, it falls apart so easy and you know hearts these days are cheap"*
+> *Spanish Johnny drove in from the underworld last night*<br>
+> *With bruised arms and broken rhythm in a beat-up old Buick but dressed just like dynamite*<br>
+> *He tried sellin' his heart to the hard girls over on Easy Street*<br>
+> *But they sighed, "Johnny, it falls apart so easy and you know hearts these days are cheap"*<br>
 
 Every word of that opening verse–of the entire song, really–is essential and purposeful.
 
@@ -41,23 +41,23 @@ And while Johnny may be sharply dressed, his life isn't an easy one: he's a hero
 
 We've gleaned all this from four lines. Bruce is just getting started. Johnny's addiction is getting him in hot water with management:
 
-> *And the pimps swung their axes and said, "Johnny, you're a cheater"*
-> *Well, the pimps swung their axes and said, "Johnny, you're a liar"*
+> *And the pimps swung their axes and said, "Johnny, you're a cheater"*<br>
+> *Well, the pimps swung their axes and said, "Johnny, you're a liar"*<br>
 
 Again, Bruce's vocals are just so perfectly nuanced, dropping almost imperceptibly into character as the pimps leveling their accusations, and then immediately returning to the tale.
 
-> *And from out of the shadows came a young girl's voice*
+> *And from out of the shadows came a young girl's voice*<br>
 
 This is a key moment in the story, and Sancious sets it up for us with three brief flourishes.
 
-> *Said, "Johnny, don't cry"*
+> *Said, "Johnny, don't cry"*<br>
 
 Bruce's vocal here is gentle, tender. We need to know: to whom does this voice belong?
 
-> *Puerto Rican Jane, oh, won't you tell me what's your name*
-> *I want to drive you down to the other side of town*
-> *Where paradise ain't so crowded, there'll be action goin' down on Shanty Lane tonight*
-> *All them golden-heeled fairies in a real bitch fight pull thirty-eights and kiss the girls goodnight*
+> *Puerto Rican Jane, oh, won't you tell me what's your name*<br>
+> *I want to drive you down to the other side of town*<br>
+> *Where paradise ain't so crowded, there'll be action goin' down on Shanty Lane tonight*<br>
+> *All them golden-heeled fairies in a real bitch fight pull thirty-eights and kiss the girls goodnight*<br>
 
 The power of this passage is remarkable. Danny's organ (possibly David as well, there are two organs in play) comes to the fore, and we feel like the world is spinning as the ill-fated lovers discover each other.
 
@@ -65,10 +65,10 @@ Johnny is immediately smitten with Jane, (who is also a prostitute, as we'll sho
 
 And now we arrive at the first chorus, with Suki Lahav's double-tracked backing vocals sounding like a heavenly choir:
 
-> *Oh, goodnight, it's all right, Jane*
-> *Now let them black boys in to light the soul aflame*
-> *We may find it out on the street tonight, baby*
-> *Or we may walk until the daylight, maybe*
+> *Oh, goodnight, it's all right, Jane*<br>
+> *Now let them black boys in to light the soul aflame*<br>
+> *We may find it out on the street tonight, baby*<br>
+> *Or we may walk until the daylight, maybe*<br>
 
 This is where we learn that Puerto Rican Jane, just like Spanish Johnny, sells her body for a living. Johnny encourages her to work on his side of town, enticing her with stories of a clientele she'll actually enjoy doing business with.
 
@@ -80,10 +80,10 @@ Forty-five years down the road, we can look back at Bruce's choice of language (
 
 At the end of the night, the two end up in… well, we never really learn where, because that's not a detail that matters. We just know that they find privacy, a peaceful oasis at her place, his place, or someplace in between. The story continues:
 
-> *Well, like a cool Romeo he made his moves, ah, she looked so fine*
-> *And like a late Juliet she knew he'd never be true, but then she didn't really mind*
-> *Upstairs a band was playin', the singer was singin' something about going home*
-> *She whispered, "Spanish Johnny, you can leave me tonight, but just don't leave me alone"*
+> *Well, like a cool Romeo he made his moves, ah, she looked so fine*<br>
+> *And like a late Juliet she knew he'd never be true, but then she didn't really mind*<br>
+> *Upstairs a band was playin', the singer was singin' something about going home*<br>
+> *She whispered, "Spanish Johnny, you can leave me tonight, but just don't leave me alone"*<br>
 
 Johnny is all swagger and sweet-talk, but after a night of street-walking and -talking, Jane knows him (and knows men) well enough to know that fidelity may be too much to ask given his nature. She already understands and discounts the demands of the job–and she alludes to it, asking for his heart knowing that she has to share his body, asking him to always return home to her at the end of every working night.
 
@@ -93,11 +93,11 @@ But we already know this story won't end well. We know it as soon as Bruce casts
 
 Johnny telegraphs it:
 
-> *And Johnny cried, "Puerto Rican Jane, word is down the cops have found the vein"*
-> *Well, them barefoot boys, they left their homes for the woods*
-> *Them little barefoot street boys, they said homes ain't no good*
-> *They left the corners, threw away all of their switchblade knives*
-> *And kissed each other goodbye*
+> *And Johnny cried, "Puerto Rican Jane, word is down the cops have found the vein"*<br>
+> *Well, them barefoot boys, they left their homes for the woods*<br>
+> *Them little barefoot street boys, they said homes ain't no good*<br>
+> *They left the corners, threw away all of their switchblade knives*<br>
+> *And kissed each other goodbye*<br>
 
 The cops have tracked down the source of the neighborhood drug scene, and the usual suspects have scattered, leaving the street eerily quiet–no supply, but an inevitably building demand.
 
@@ -105,19 +105,19 @@ And now the song elevates from brilliant to masterpiece.
 
 The street is empty now, and Johnny is lost in thought, wrestling with a dilemma that Bruce never outright states but makes crystal clear nonetheless. The E Street Band disappears, and the soundstage is deserted as the street below. In a rare and stunningly effective move, Garry carries the melody all by himself–quietly, softly, with Vini's haphazard cymbals rolling through the empty street like tumbleweed as his only accompaniment.
 
-> *Johnny was sittin' on the fire escape watchin' the kids playin' down in the street*
-> *He called down, "Hey, little heroes, summer's long, but I guess it ain't very sweet around here anymore"*
-> *Janey sleeps in sheets damp with sweat; Johnny sits up alone and watches her dream on, dream on*
-> *And the sister prays for lost souls, then breaks down in the chapel after everyone's gone*
+> *Johnny was sittin' on the fire escape watchin' the kids playin' down in the street*<br>
+> *He called down, "Hey, little heroes, summer's long, but I guess it ain't very sweet around here anymore"*<br>
+> *Janey sleeps in sheets damp with sweat; Johnny sits up alone and watches her dream on, dream on*<br>
+> *And the sister prays for lost souls, then breaks down in the chapel after everyone's gone*<br>
 
 ![](../../assets/2018/12/incidentlyrics.jpg)
 
 Johnny may have called down to his compadres (who, by the way, are not children–their "play" is decidedly less innocent), but he's really talking to himself. He's lost in thought, unable to sleep. The line about the sister praying for lost souls in the nearby chapel–that's not a throwaway line either. It's foreshadowing, and because it happens within Johnny's earshot and notes it, we know that he knows it's foreshadowing, too.
 
-> *Jane moves over to share her pillow but opens her eyes to see Johnny up and putting his clothes on*
-> *She says, "Those romantic young boys, all they ever want to do is fight"*
-> *Those romantic young boys, they're callin' through the window:*
-> *"Hey, Spanish Johnny, you want to make a little easy money tonight?"*
+> *Jane moves over to share her pillow but opens her eyes to see Johnny up and putting his clothes on*<br>
+> *She says, "Those romantic young boys, all they ever want to do is fight"*<br>
+> *Those romantic young boys, they're callin' through the window:*<br>
+> *"Hey, Spanish Johnny, you want to make a little easy money tonight?"*<br>
 
 Again, there's much here that draws our attention. Jane wakes from a dream and remarks at the foolishness of young men, and the way she says it, underlined by Suki, tells us that she sees Johnny as being apart from them.
 
@@ -125,10 +125,10 @@ Which has to make it all the more devastating when they invite Johnny to join th
 
 Johnny is quick to reassure Jane:
 
-> *And Johnny whispered, "Goodnight, it's all tight, Jane*
-> *I'll meet you tomorrow night on Lover's Lane*
-> *We may find it out on the street tonight, baby*
-> *Or we may walk until the daylight, maybe"*
+> *And Johnny whispered, "Goodnight, it's all tight, Jane*<br>
+> *I'll meet you tomorrow night on Lover's Lane*<br>
+> *We may find it out on the street tonight, baby*<br>
+> *Or we may walk until the daylight, maybe"*<br>
 
 That Lover's Lane reference is yet another brilliant lyrical touch. On one level, it's an ironic euphemism for the gritty street where they ply their trade; on another, it's a sincere nickname for the street where they first fell in love through a night of walking and talking. This is one of the most subtly impressive lyrical devices in the entire song, and I think it goes mostly unnoticed to a casual listener.
 
@@ -183,9 +183,9 @@ I'll leave you with one of Bruce's most recent performances, from the show where
 [Watch on Youtube: Bruce Springsteen - Incident On 57th Street (E Rutherford 8/30/16) cam mix video](https://www.youtube.com/watch?v=Ez2tGloaHXk)
 
 **Incident on 57th Street**<br>
-**Recorded** September 23, 1973  
-**Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)
-**First performed:** October 13, 1973 (Washington, DC)
-**Last performed:** January 22, 2017 (Perth, Australia)
+**Recorded** September 23, 1973<br>
+**Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)<br>
+**First performed:** October 13, 1973 (Washington, DC)<br>
+**Last performed:** January 22, 2017 (Perth, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

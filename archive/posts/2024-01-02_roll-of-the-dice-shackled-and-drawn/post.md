@@ -36,29 +36,29 @@ If we're looking for a song that exemplifies Bruce's reputation as a bard for th
 
 There's no color, no brightness in this song, only earth tones:
 
-> *Gray morning light spits through the shade*
-> *Another day older, closer to the grave*
-> *Closer to the grave and come the dawn*
-> *I woke up this morning shackled and drawn*
+> *Gray morning light spits through the shade*<br>
+> *Another day older, closer to the grave*<br>
+> *Closer to the grave and come the dawn*<br>
+> *I woke up this morning shackled and drawn*<br>
 
-> *Shackled and drawn, shackled and drawn*
-> *Pick up the rock, son, carry it on*
-> *I'm trudging through the dark in a world gone wrong*
-> *I woke up this morning shackled and drawn*
+> *Shackled and drawn, shackled and drawn*<br>
+> *Pick up the rock, son, carry it on*<br>
+> *I'm trudging through the dark in a world gone wrong*<br>
+> *I woke up this morning shackled and drawn*<br>
 
 Based on the first verse and chorus alone, we might think that "Shackled and Drawn" is a song of resentment, of bitterness–the plaint of a worker stuck in a rut, shackled to a thankless job, never enjoying the fruits of his labor, and toiling endlessly toward his own demise.
 
 But Bruce quickly disabuses us of that notion in the second verse:
 
-> *I always loved the feel of sweat on my shirt*
-> *Stand back, son, and let a man work*
-> *Let a man work, is that so wrong*
-> *I woke up this morning shackled and drawn*
+> *I always loved the feel of sweat on my shirt*<br>
+> *Stand back, son, and let a man work*<br>
+> *Let a man work, is that so wrong*<br>
+> *I woke up this morning shackled and drawn*<br>
 
-> *Shackled and drawn, shackled and drawn*
-> *Pick up the rock, son, carry it on*
-> *What's a poor boy to do in a world gone wrong*
-> *Woke up this morning shackled and drawn*
+> *Shackled and drawn, shackled and drawn*<br>
+> *Pick up the rock, son, carry it on*<br>
+> *What's a poor boy to do in a world gone wrong*<br>
+> *Woke up this morning shackled and drawn*<br>
 
 Our protagonist is more sympathetic now, and neither bitter nor resentful–he just wants to take satisfaction in his own labor.
 
@@ -66,36 +66,36 @@ But he can't even do that: in this recession era, our hero is denied even the op
 
 As is often the case with Bruce's best songs, the heart of "Shackled and Drawn" can be found in a single line: "Freedom, son, is a dirty shirt."
 
-> *Freedom, son, is a dirty shirt*
-> *The sun on my face and my shovel in the dirt*
-> *A shovel in the dirt keeps the devil gone*
-> *I woke up this morning shackled and drawn*
+> *Freedom, son, is a dirty shirt*<br>
+> *The sun on my face and my shovel in the dirt*<br>
+> *A shovel in the dirt keeps the devil gone*<br>
+> *I woke up this morning shackled and drawn*<br>
 
-> *Shackled and drawn, shackled and drawn*
-> *Pick up the rock, son, carry it on*
-> *What's a poor boy to do but keep singing his song*
-> *I woke up this morning shackled and drawn*
+> *Shackled and drawn, shackled and drawn*<br>
+> *Pick up the rock, son, carry it on*<br>
+> *What's a poor boy to do but keep singing his song*<br>
+> *I woke up this morning shackled and drawn*<br>
 
 Good, honest, hard labor not only allows him to earn a living, it also keeps temptation at bay. What kind of temptation? Well…
 
-> *Gambling man rolls the dice, working man pays the bill*
-> *It's still fat and easy up on banker's hill*
-> *Up on banker's hill the party's going strong*
-> *Down here below we're shackled and drawn*
+> *Gambling man rolls the dice, working man pays the bill*<br>
+> *It's still fat and easy up on banker's hill*<br>
+> *Up on banker's hill the party's going strong*<br>
+> *Down here below we're shackled and drawn*<br>
 
 And here we arrive at the crux of the song: honest workers toil away at manual labor, the sheer effort of which keeps them on the straight and narrow. Meanwhile, the rich bankers shoulder no such burden. They speculate and deviate, and when they're wrong, the cost is paid in livelihoods while the bankers party on.
 
 There's no song in Bruce's catalog that more aptly captures the emotional impact of the collapse of the financial market as "Shackled and Drawn."
 
-> *Shackled and drawn, shackled and drawn*
-> *Pick up the rock, son, carry it on*
-> *Trudging through the dark in a world gone wrong*
-> *I woke up this morning shackled and drawn*
+> *Shackled and drawn, shackled and drawn*<br>
+> *Pick up the rock, son, carry it on*<br>
+> *Trudging through the dark in a world gone wrong*<br>
+> *I woke up this morning shackled and drawn*<br>
 
-> *Shackled and drawn, shackled and drawn*
-> *Pick up the rock, son, carry it on*
-> *What's a poor boy to do but keep singing his song*
-> *I woke up this morning shackled and drawn*
+> *Shackled and drawn, shackled and drawn*<br>
+> *Pick up the rock, son, carry it on*<br>
+> *What's a poor boy to do but keep singing his song*<br>
+> *I woke up this morning shackled and drawn*<br>
 
 Oh, and we can't let that "poor boy" reference pass us by for a third time without noting Bruce's homage to The Rolling Stones' "[Street Fighting Man](https://estreetshuffle.com/index.php/2019/08/19/cover-me-street-fighting-man/)." Bruce cited "What can a poor boy do but sing in a rock and roll band" as one of the greatest lyrics of all time; it's fitting that Bruce borrows it for his own call to revolution.
 
@@ -107,21 +107,21 @@ As if to erase any doubt of that, Bruce ends the song with a spotlight on Cindy 
 
 Bruce's lyrics quote the opening of Collins' 1972 single–
 
-> *I want everybody to stand up*
-> *I want everybody to stand up and be counted tonight*
-> *You know we got to pray together*
-> *I want you to stand up*
-> *I want everybody to stand up and be counted tonight*
+> *I want everybody to stand up*<br>
+> *I want everybody to stand up and be counted tonight*<br>
+> *You know we got to pray together*<br>
+> *I want you to stand up*<br>
+> *I want everybody to stand up and be counted tonight*<br>
 
 But Bruce trusts our familiarity with the original song in order for us to register the full import of Cindy's vocals. At the heart of the original, Collins sings:
 
-> *Gimme a man who can pay my dues*
-> *Cause I don't wanna die*
+> *Gimme a man who can pay my dues*<br>
+> *Cause I don't wanna die*<br>
 
-> *Sisters who work hard*
-> *To help their man, yeah*
-> *But the man need to do*
-> *Need to do what he can, hey*
+> *Sisters who work hard*<br>
+> *To help their man, yeah*<br>
+> *But the man need to do*<br>
+> *Need to do what he can, hey*<br>
 
 So when Cindy sings, "I want everybody to stand up and be counted tonight," it's a dash of salt in the narrator's wounded pride. How can he help his family without the opportunity to do what he can?
 
@@ -139,9 +139,9 @@ Here's that one-off performance, the last "Shackled and Drawn" to date.
 [Watch on Youtube: Bruce Springsteen - Ullevi Gothenburg 25-06-16 - Shackled And Drawn (HD from 4K)](https://www.youtube.com/watch?v=-0cJ5iOn9_M)
 
 **Shackled and Drawn**<br>
-**Recorded** 2011  
-**Released:** *Wrecking Ball* (2012)
-**First performed:** March 9, 2012 (New York City, NY)
+**Recorded** 2011<br>
+**Released:** *Wrecking Ball* (2012)<br>
+**First performed:** March 9, 2012 (New York City, NY)<br>
 Last performed: June 25, 2016 (Gothenburg, Sweden)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

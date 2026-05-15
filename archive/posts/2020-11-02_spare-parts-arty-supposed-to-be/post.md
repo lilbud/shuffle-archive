@@ -17,5 +17,5 @@ The first thirty seconds of "Supposed to Be" are clearly lifted from "Atlantic C
 Still, Arty insisted on (and succeeded at) getting Bruce's blessing to use his song, and the result is Bruce's first songwriting credit (co-writer, to be precise) for an EDM song.
 
 **Supposed to Be**<br>
-**Released:** 2017  
+**Released:** 2017<br>
 **Never performed**<br>

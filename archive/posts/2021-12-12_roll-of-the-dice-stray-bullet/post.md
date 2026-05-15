@@ -14,39 +14,39 @@ But as a standalone song, "Stray Bullet" is haunting and deceptively idyllic.
 
 The melody is lilting and gentle, carried by Clarence's brooding sax–gentler than any track Bruce had set down on vinyl to that point–and as the first verse unfolds, it seems as if this may simply be an alternate-universe version of "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)."
 
-> *In the tall grass we held hands*
-> *Down by the river we made plans*
-> *Of what would and would not be*
-> *It was impossible to see*
+> *In the tall grass we held hands*<br>
+> *Down by the river we made plans*<br>
+> *Of what would and would not be*<br>
+> *It was impossible to see*<br>
 
 There's foreshadowing there, but Bruce's writing at the time typically dealt with disillusionment and disappointment down the road, and it would be natural to assume this song would fit right in.
 
 The next verse introduces mysterious others and signals impending darkness linking them with his girl through literal blackness (their shoes, her hair).
 
-> *Their black boots shone in the sun*
-> *They were waiting on the Annandale train when my baby come*
-> *Little girl with the long black hair*
-> *Do you know what lies ‘neath the long coats that they wear*
+> *Their black boots shone in the sun*<br>
+> *They were waiting on the Annandale train when my baby come*<br>
+> *Little girl with the long black hair*<br>
+> *Do you know what lies ‘neath the long coats that they wear*<br>
 
 We still don't know what's to come, although that last line teases something ominous.
 
 Bruce breaks the narrative at this point, raising the stakes by raising his pitch, and beginning to make it clear that things may not have worked out as planned, the soft background vocals rhyming like memory:
 
-> *Once I swore you'd ride with me (to some far and distant shore)*
-> *Down where this river meets the sea (I'll make you mine forevermore)*
-> *Over these dark hills I'd walk along (just to hold you in my arms)*
-> *To lie with you on a bed of stone*
+> *Once I swore you'd ride with me (to some far and distant shore)*<br>
+> *Down where this river meets the sea (I'll make you mine forevermore)*<br>
+> *Over these dark hills I'd walk along (just to hold you in my arms)*<br>
+> *To lie with you on a bed of stone*<br>
 
 Finally, the narrator returns to the present, and to the river imagery:
 
-> *River blood red with the years*
-> *You can flood this valley with a thousand tears*
-> *Wash away all that's been found*
+> *River blood red with the years*<br>
+> *You can flood this valley with a thousand tears*<br>
+> *Wash away all that's been found*<br>
 
 …and only at the end, as the song perseverates on the final line, do we learn why:
 
-> *But you'll never wash away the sound*
-> *Of the stray bullet that shot my baby down*
+> *But you'll never wash away the sound*<br>
+> *Of the stray bullet that shot my baby down*<br>
 
 Random violence? Gang-related? A planned murder? We never learn; the only certainty is that the narrator's love was an innocent bystander, killed by the stray bullet.
 
@@ -56,7 +56,7 @@ Bruce has never performed "Stray Bullet" in concert, and it's unclear whether it
 
 **Stray Bullet**<br>
 **Recorded** February 24, March 9, and April 10, 1980 (it's unclear from which session this take originates)
-**Released:** *The River: Outtakes* (2015)
+**Released:** *The River: Outtakes* (2015)<br>
 **Never Performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

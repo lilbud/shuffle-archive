@@ -1,4 +1,4 @@
-> "This is a song about sin! According to the Bible (at least the way I was taught), way back in the Garden of Eden, Eve showed Adam the apple, Adam took a bite… and here we are tonight! That's a little hard to believe… there had to be something more than an *apple*. So I got to thinking… I figured it couldn't be an apple, so it must have been… it must have been…" *–Bruce Springsteen, introducing the debut of "Pink Cadillac" in St. Paul on July 1, 1984*
+> "This is a song about sin! According to the Bible (at least the way I was taught), way back in the Garden of Eden, Eve showed Adam the apple, Adam took a bite… and here we are tonight! That's a little hard to believe… there had to be something more than an *apple*. So I got to thinking… I figured it couldn't be an apple, so it must have been… it must have been…" *–Bruce Springsteen, introducing the debut of "Pink Cadillac" in St. Paul on July 1, 1984*<br>
 
 It's a vagina.
 
@@ -14,17 +14,17 @@ I know that some music historians will point to Elvis Presley's legendary pink C
 
 Gunter's version:
 
-> *Well, you may go to college*
-> *You may go to school*
-> *You may get religion*
-> *But don't you be nobody's fool*
+> *Well, you may go to college*<br>
+> *You may go to school*<br>
+> *You may get religion*<br>
+> *But don't you be nobody's fool*<br>
 
 Elvis' version:
 
-> *Well, you may go to college*
-> *You may go to school*
-> *You may have a pink Cadillac*
-> *But don't you be nobody's fool*
+> *Well, you may go to college*<br>
+> *You may go to school*<br>
+> *You may have a pink Cadillac*<br>
+> *But don't you be nobody's fool*<br>
 
 [Watch on Youtube: Elvis Presley - Baby Let's Play House](https://www.youtube.com/watch?v=92iwC-xI3mE)
 
@@ -34,18 +34,18 @@ And that's not the only time a pink Caddy shows up as a sexual stand-in. No less
 
 [Watch on Youtube: Aretha Franklin - Freeway Of Love (Official Music Video)](https://www.youtube.com/watch?v=Ip_pjb5_fgA)
 
-> *Knew you'd be a vision in white*
-> *How'd you get your pants so tight?*
-> *Don't know what you're doin'*
-> *But you must be livin' right, yeah*
+> *Knew you'd be a vision in white*<br>
+> *How'd you get your pants so tight?*<br>
+> *Don't know what you're doin'*<br>
+> *But you must be livin' right, yeah*<br>
 
-> *Oh, we got some places to see*
-> *I brought all the maps with me*
-> *So jump right in, it ain't no sin*
-> *Take a ride in my machine*
+> *Oh, we got some places to see*<br>
+> *I brought all the maps with me*<br>
+> *So jump right in, it ain't no sin*<br>
+> *Take a ride in my machine*<br>
 
-> *We goin' ridin' on the freeway of love*
-> *In my pink Cadillac*
+> *We goin' ridin' on the freeway of love*<br>
+> *In my pink Cadillac*<br>
 
 But I digress.
 
@@ -53,10 +53,10 @@ Bruce's "Pink Cadillac" traces its origins to the *Nebraska* sessions in 1982. R
 
 It's also even more overt than the finished version, which you might not have thought possible. But check out the couplet in the recording below that Bruce dropped from the final version:
 
-> *They say Eve tempted Adam with an apple*
-> *Ain't no way the poor fool went for that*
-> *Can you imagine what would have happened if she'd just stepped back*
-> *And showed him her pink Cadillac*
+> *They say Eve tempted Adam with an apple*<br>
+> *Ain't no way the poor fool went for that*<br>
+> *Can you imagine what would have happened if she'd just stepped back*<br>
+> *And showed him her pink Cadillac*<br>
 
 
 
@@ -64,9 +64,9 @@ It's also even more overt than the finished version, which you might not have th
 
 There's also another section toward the end of the song where Bruce makes it clear that he's not exactly thinking beyond the here and now:
 
-> *Now I ain't getting married in no church*
-> *‘Cause to me a church ain't nothing but a shack*
-> *I want it in your pink Cadillac*
+> *Now I ain't getting married in no church*<br>
+> *‘Cause to me a church ain't nothing but a shack*<br>
+> *I want it in your pink Cadillac*<br>
 
 Obviously, "Pink Cadillac" never made it onto *Nebraska* despite its inclusion in the original sessions. And even though it was one of the few *Nebraska* holdouts to successfully translate to a full-band arrangement, it didn't make *Born in the U.S.A.* either.
 
@@ -90,18 +90,18 @@ Even at its last outing (to date, at least) in Virginia Beach in 2016, Bruce emp
 
 As you can see in the clips above, Bruce clearly enjoys stepping up to and back from the line of propriety during his introductions. And that's as good a segue as any for us to delve into the way he walks that line in the lyrics.
 
-> *Well now you may think I'm foolish for the foolish things I do*
-> *You may wonder how come I love you when you get on my nerves like you do*
-> *Well baby you know you bug me, there ain't no secret 'bout that*
-> *Well come on over here and hug me, baby I'll spill the facts*
-> *Well honey it ain't your money 'cause baby I got plenty of that*
+> *Well now you may think I'm foolish for the foolish things I do*<br>
+> *You may wonder how come I love you when you get on my nerves like you do*<br>
+> *Well baby you know you bug me, there ain't no secret 'bout that*<br>
+> *Well come on over here and hug me, baby I'll spill the facts*<br>
+> *Well honey it ain't your money 'cause baby I got plenty of that*<br>
 
-> *I love you for your pink Cadillac, crushed velvet seats*
-> *Riding in the back, oozing down the street*
-> *Waving to the girls, feeling out of sight*
-> *Spending all my money on a Saturday night*
-> *Honey I just wonder what you do there in the back*
-> *Of your pink Cadillac, pink Cadillac*
+> *I love you for your pink Cadillac, crushed velvet seats*<br>
+> *Riding in the back, oozing down the street*<br>
+> *Waving to the girls, feeling out of sight*<br>
+> *Spending all my money on a Saturday night*<br>
+> *Honey I just wonder what you do there in the back*<br>
+> *Of your pink Cadillac, pink Cadillac*<br>
 
 Hey, at least the guy's honest, right? He doesn't particularly care for his girl, but who cares as long as she's great in bed.
 
@@ -111,35 +111,35 @@ I digress again.
 
 "Pink Cadillac" is a Bruce Springsteen song, so if it's got sex, it's gotta have religion, too.
 
-> *Well now way back in the Bible temptation's always come along*
-> *There's always somebody tempting, somebody into doing something they know is wrong*
-> *Well they tempt you man with silver and they tempt you sir with gold*
-> *And they tempt you with the pleasure that the flesh does surely hold*
-> *They say Eve tempted Adam with an apple but man I ain't going for that*
+> *Well now way back in the Bible temptation's always come along*<br>
+> *There's always somebody tempting, somebody into doing something they know is wrong*<br>
+> *Well they tempt you man with silver and they tempt you sir with gold*<br>
+> *And they tempt you with the pleasure that the flesh does surely hold*<br>
+> *They say Eve tempted Adam with an apple but man I ain't going for that*<br>
 
-> *I know it was her pink Cadillac, crushed velvet seats*
-> *Riding in the back, oozing down the street*
-> *Waving to the girls, feeling out of sight*
-> *Spending all my money on a Saturday night*
-> *Honey I just wonder what it feels like in the back*
-> *Of your pink Cadillac, pink Cadillac*
+> *I know it was her pink Cadillac, crushed velvet seats*<br>
+> *Riding in the back, oozing down the street*<br>
+> *Waving to the girls, feeling out of sight*<br>
+> *Spending all my money on a Saturday night*<br>
+> *Honey I just wonder what it feels like in the back*<br>
+> *Of your pink Cadillac, pink Cadillac*<br>
 
 This is the section of the song that inspired Bruce's tour schtick, and there's not much we can add to it that Bruce didn't already say himself on a nightly basis.
 
 But it's the song's final verse that's my favorite. It's a serious contender for Bruce's funniest lyrics ever, and if he'd added on another verse or two we might have had a serious contender to Peter Gabriel's "Sledgehammer" for best song-length penis metaphor.
 
-> *Now some folks say it's too big and uses too much gas*
-> *Some folks say it's too old and that it goes too fast*
-> *But my love is bigger than a Honda, yeah it's bigger than a Subaru*
-> *Hey man there's only one thing and one car that will do*
-> *Anyway we don't have to drive it, honey we can park it out in back*
+> *Now some folks say it's too big and uses too much gas*<br>
+> *Some folks say it's too old and that it goes too fast*<br>
+> *But my love is bigger than a Honda, yeah it's bigger than a Subaru*<br>
+> *Hey man there's only one thing and one car that will do*<br>
+> *Anyway we don't have to drive it, honey we can park it out in back*<br>
 
-> *And have a party in your pink Cadillac, crushed velvet seats*
-> *Riding in the back, oozing down the street*
-> *Waving to the girls, feeling out of sight*
-> *Spending all my money on a Saturday night*
-> *Honey I just wonder what you do there in the back*
-> *Of your pink Cadillac, pink Cadillac*
+> *And have a party in your pink Cadillac, crushed velvet seats*<br>
+> *Riding in the back, oozing down the street*<br>
+> *Waving to the girls, feeling out of sight*<br>
+> *Spending all my money on a Saturday night*<br>
+> *Honey I just wonder what you do there in the back*<br>
+> *Of your pink Cadillac, pink Cadillac*<br>
 
 And here we leave it, with one of the slyest references to doing it doggy style in popular music.
 
@@ -164,9 +164,9 @@ But despite a handful of terrific E Street Band concert performances, it's at th
 [Watch Video Highlight](https://videopress.com/embed/bL4Mc0Lt)
 
 **Pink Cadillac**<br>
-**Recorded** May 31, 1983 – original, November 2003 – Jerry Lee Lewis cover  
-**Released:** *Dancing in the Dark* (1984)*, Tracks* (1998), *18 Tracks* (1999) – original, *Last Man Standing* (2006) – Jerry Lee Lewis cover  
-**First performed:** July 1, 1984 (St. Paul, MN)
-**Last performed:** December 13, 2021 (New York City, NY)
+**Recorded** May 31, 1983 – original, November 2003 – Jerry Lee Lewis cover<br>
+**Released:** *Dancing in the Dark* (1984)*, Tracks* (1998), *18 Tracks* (1999) – original, *Last Man Standing* (2006) – Jerry Lee Lewis cover<br>
+**First performed:** July 1, 1984 (St. Paul, MN)<br>
+**Last performed:** December 13, 2021 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

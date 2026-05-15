@@ -13,6 +13,6 @@ And that's how Ray Davies' 2010 album *See My Friends* came to kick off with "Be
 To date, Bruce has never played "Better Things" in concert, but thankfully we have this terrific studio recording as a trade-off.
 
 **Better Things**<br>
-**Recorded** 2010  
-**Released:** *See My Friends* (2010)
+**Recorded** 2010<br>
+**Released:** *See My Friends* (2010)<br>
 **Never performed**<br>

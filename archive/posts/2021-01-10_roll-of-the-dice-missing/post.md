@@ -36,12 +36,12 @@ As for the lyrics: if this is your first time hearing "Missing," you're probably
 
 "Missing" is *very* similar in title, theme, and at times lyrics to "[You're Missing](https://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/)," from Bruce's 2002 album, *The Rising.*
 
-> *Woke up this morning, was a chill in the air*
-> *Went into the kitchen, my cigarettes were lying there*
-> *Jacket hung on the chair, the way I left it last night*
-> *Everything was in place, everything seemed alright*
+> *Woke up this morning, was a chill in the air*<br>
+> *Went into the kitchen, my cigarettes were lying there*<br>
+> *Jacket hung on the chair, the way I left it last night*<br>
+> *Everything was in place, everything seemed alright*<br>
 
-> *But you were missing… missing…*
+> *But you were missing… missing…*<br>
 
 There's no doubt that Bruce consciously reworked his obscure 1994 single for his 2002 album, to great effect. But obvious musical differences aside, once we move past the first verse of "Missing" (which is very similar in structure and imagery to "You're Missing"), the songs diverge.
 
@@ -49,35 +49,35 @@ The latter song is clearly about the aftermath of a tragic death; Bruce conveys 
 
 Is the narrator's lover dead? Has she fled? Is she in trouble, or has she simply moved on? We never learn, but her departure hits our narrator as hard as the one that hits the protagonist in "[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)." The comparison is especially apt considering the dream sequences that haunt both narrators:
 
-> *Last night I dreamed the sky went black*
-> *You were drifting down, couldn't get back*
-> *Lost in trouble, so far from home*
-> *I reached for you, my arms were like stone*
+> *Last night I dreamed the sky went black*<br>
+> *You were drifting down, couldn't get back*<br>
+> *Lost in trouble, so far from home*<br>
+> *I reached for you, my arms were like stone*<br>
 
-> *Woke and you were missing… missing…*
+> *Woke and you were missing… missing…*<br>
 
 Whether the narrator's missing love is dead or still alive, there's a strong implication in this verse that whatever circumstances took her from him were not of her choosing. Some kind of trouble or ill influence claimed her, and our narrator is guilt-ridden over his inability to save her.
 
-> *Searched for something to explain*
-> *In the whispering rain and the trembling leaves*
-> *Tell me baby, where did you go*
-> *You were here just a moment ago*
+> *Searched for something to explain*<br>
+> *In the whispering rain and the trembling leaves*<br>
+> *Tell me baby, where did you go*<br>
+> *You were here just a moment ago*<br>
 
 The narrator may be asking "where," but it seems clear that the question he's really obsessed with is "why." She's gone now–physically, at least–but our protagonist still feels her presence when he lies in bed at night. And in one of Bruce's more literally haunting endings, he lies motionless as the song fades out, unwilling or unable to risk breaking the fragile sensory illusion that's all he has left of his lost love.
 
-> *There's nights I still hear your footsteps fall*
-> *I can hear your voice moving down the hall*
-> *Drifting through the bedroom*
-> *I lie awake but I don't move*
+> *There's nights I still hear your footsteps fall*<br>
+> *I can hear your voice moving down the hall*<br>
+> *Drifting through the bedroom*<br>
+> *I lie awake but I don't move*<br>
 
-> *Missing, missing, missing, missing…*
+> *Missing, missing, missing, missing…*<br>
 
 For an experimental obscurity, "Missing" is a strikingly effective and powerful song. Perhaps because it's been overshadowed by its cousin on *The Rising*, Bruce has never played "Missing" in concert, but he did finally give it a proper album release on *The Essential Bruce Springsteen* in 2003.
 
 As for the rest of his abandoned 1994 album, rumor has it we may yet hear it someday when Bruce finally releases his long-awaited follow-up to *Tracks*.
 
 **Missing**<br>
-**Recorded** March-April, 1994  
+**Recorded** March-April, 1994<br>
 **Released:** *Missing* (single, 1996), *The Essential Bruce Springsteen* (2003)
 **Never performed**<br>
 

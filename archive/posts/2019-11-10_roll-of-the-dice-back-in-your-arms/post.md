@@ -1,10 +1,10 @@
-> "For a long time, if I loved you or if I felt a deep attachment to you, I'd hurt you if I could." *–Bruce Springsteen, Western Stars*
+> "For a long time, if I loved you or if I felt a deep attachment to you, I'd hurt you if I could." *–Bruce Springsteen, Western Stars*<br>
 
 When Bruce Springsteen played "Back in Your Arms" live for the first time way back on the Reunion Tour, here's how he introduced it:
 
 [Watch on Youtube: Bruce Springsteen - Back In Your Arms [East Rutherford August 4, 1999]](https://www.youtube.com/watch?v=it2AyvSrjdU)
 
-> *"This is a song about blowing a good thing… Everybody's done that, had some blessing that they didn't take into account and let it go out the window."*
+> *"This is a song about blowing a good thing… Everybody's done that, had some blessing that they didn't take into account and let it go out the window."*<br>
 
 It's twenty years later now, and he still introduces it that way almost every time.
 
@@ -44,27 +44,27 @@ If you've watched all of the above clips, then by now at least one thing should 
 
 The lyrics themselves paint a picture of a desolate landscape with a sole inhabitant: a forlorn ex-lover desperate to recapture his lost grace.
 
-> *In my dream our love was lost, I lived by luck and fate*
-> *I carried you inside of me, prayed it wouldn't be too late*
-> *Now I'm standin' on this empty road where nothin' moves but the wind*
-> *And honey I just wanna be back in your arms*
-> *Back in your arms again*
+> *In my dream our love was lost, I lived by luck and fate*<br>
+> *I carried you inside of me, prayed it wouldn't be too late*<br>
+> *Now I'm standin' on this empty road where nothin' moves but the wind*<br>
+> *And honey I just wanna be back in your arms*<br>
+> *Back in your arms again*<br>
 
 What's fascinating to me about Bruce's lyrics for "Back in Your Arms" is how much they bend to the will of the performer. Pretend you haven't heard the song before, and then read the verses above and below. One could easily imagine the narrator as pitiful and needy rather than rueful and tormented.
 
-> *Once I was your treasure and I saw your face in every star*
-> *But these promises we make at night, oh that's all they are*
-> *Unless we fill them with faith and love, they're empty as the howlin' wind*
-> *And honey I just wanna be back in your arms*
-> *Back in your arms again*
+> *Once I was your treasure and I saw your face in every star*<br>
+> *But these promises we make at night, oh that's all they are*<br>
+> *Unless we fill them with faith and love, they're empty as the howlin' wind*<br>
+> *And honey I just wanna be back in your arms*<br>
+> *Back in your arms again*<br>
 
 See what I mean?
 
 There is one key lyrical moment in "Back in Your Arms," however, and as is the case with many of Bruce's songs, it comes in the form of the bridge:
 
-> *You came to me with love and kindness*
-> *But all my life I've been a prisoner of my own blindness*
-> *I met you with indifference and I don't know why*
+> *You came to me with love and kindness*<br>
+> *But all my life I've been a prisoner of my own blindness*<br>
+> *I met you with indifference and I don't know why*<br>
 
 I've seen analysis and conjecture positing that Bruce is singing to the E Street Band here–apologizing in a way for breaking up the band years prior. ("Back in Your Arms" was recorded by the E Street Band during the great diaspora of the 1990s, at a moment when it seemed like Bruce was flirting with reuniting them.)
 
@@ -80,11 +80,11 @@ Perhaps it's not a coincidence that Bruce's performances of "Back in Your Arms" 
 
 The final verse of the song returns to form. Nothing has changed, other than the singer's self-awareness:
 
-> *Now I wake from my dream, I wake from my dream to this world*
-> *Where all is shadow and darkness and above me a dark sky unfurls*
-> *And all the love I've thrown away and lost I'm longin' for again*
-> *Now darlin' I just wanna be back in your arms*
-> *Back in your arms again*
+> *Now I wake from my dream, I wake from my dream to this world*<br>
+> *Where all is shadow and darkness and above me a dark sky unfurls*<br>
+> *And all the love I've thrown away and lost I'm longin' for again*<br>
+> *Now darlin' I just wanna be back in your arms*<br>
+> *Back in your arms again*<br>
 
 He's still alone, and he still wishes he wasn't.
 
@@ -106,10 +106,10 @@ For a song about an ex-lover carrying a torch he refuses to put down, I can't th
 [Watch on Youtube: Bruce Springsteen*Get your flowers On! *Back in Your Arms* Brisbane 14/02/17](https://www.youtube.com/watch?v=oQlkiVC3xis)
 
 **Back in Your Arms**<br>
-**Recorded** January 12, 1995  
-**Released:** *Tracks* (1998)
-**First performed:** August 4, 1999 (East Rutherford, NJ)
-**Last performed:** February 14, 2017 (Brisbane, Australia)
+**Recorded** January 12, 1995<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** August 4, 1999 (East Rutherford, NJ)<br>
+**Last performed:** February 14, 2017 (Brisbane, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 

@@ -8,10 +8,10 @@ Which is a little ironic, if you think about it, because "Pay Me" originates as 
 
 The "down" in the title/chorus means "now" — so the song is actually a demand to be paid on the spot. Because the lyrics alternate call-and-response with "Pay me my money down," the lyrics are often misunderstood:
 
-> *I thought I heard the captain say*
-> *Pay me my money down*
-> *Tomorrow is our sailing day*
-> *Pay me my money down*
+> *I thought I heard the captain say*<br>
+> *Pay me my money down*<br>
+> *Tomorrow is our sailing day*<br>
+> *Pay me my money down*<br>
 
 The captain isn't saying "pay me my money down." He's saying "tomorrow is our sailing day"– in other words, promising that he'll still be around tomorrow to pay them but fully intending to slip off in the night. The stevedores will have none of it, of course.
 
@@ -43,6 +43,6 @@ In concert on the all-too-short Seeger Sessions Tour, "Pay Me My Money Down" was
 
 **Pay Me My Money Down**  
 **Recorded:** March 19, 2005**Released:** *We Shall Overcome: The Seeger Sessions* (2006)*, We Shall Overcome: The Seeger Sessions – American Land Edition* (2006)*, Live in Dublin* (2007)**First performed:** April 20, 2006 (Asbury Park, NJ)
-**Last performed:** May 16, 2015 (New York City, NY)
+**Last performed:** May 16, 2015 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

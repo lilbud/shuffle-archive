@@ -1,4 +1,4 @@
-> Four years ago, I found myself in an unusual situation. It was a cold winter day, and I was standing alongside of Pete Seeger… He's ninety years old, a living embodiment of Woody's legacy. And there were several hundred thousand of our fellow citizens in front of us. We had the Lincoln Memorial behind us and a newly-elected president to our right. We were going to sing, "This Land is Your Land" in front of all these Americans. And Pete insisted, "We have to sing all the verses! We have to sing all the verses, man, you can't leave any of them out." I said, I don't know, Pete… He says, "No. We're all gonna sing all the verses. All the verses." So we got to it.  *–Bruce Springsteen, March 15, 2012*
+> Four years ago, I found myself in an unusual situation. It was a cold winter day, and I was standing alongside of Pete Seeger… He's ninety years old, a living embodiment of Woody's legacy. And there were several hundred thousand of our fellow citizens in front of us. We had the Lincoln Memorial behind us and a newly-elected president to our right. We were going to sing, "This Land is Your Land" in front of all these Americans. And Pete insisted, "We have to sing all the verses! We have to sing all the verses, man, you can't leave any of them out." I said, I don't know, Pete… He says, "No. We're all gonna sing all the verses. All the verses." So we got to it.  *–Bruce Springsteen, March 15, 2012*<br>
 
 Pete Seeger was right: they had to sing *all* the verses. Because that day–January 18, 2009–was one of those rare moments in America when all assembled understood that something of momentous importance was happening.
 
@@ -10,26 +10,26 @@ As was his habit, Seeger spoon-fed the crowd each line a half-second before they
 
 But towards the end of the song, viewers on the mall and at home appreciated the assist, because the most important lyrics of the song are ones most of us never knew existed.
 
-> *As I went walking I saw a sign there*
-> *And on the sign it said "No Trespassing."*
+> *As I went walking I saw a sign there*<br>
+> *And on the sign it said "No Trespassing."*<br>
 > *But on the other side it didn't say nothing*,
-> *That side was made for you and me.*
+> *That side was made for you and me.*<br>
 
 > *In the squares of the city, in the shadow of the steeple*,
-> *By the relief office I seen my people;*
-> *As they stood there hungry, I stood there asking*
-> *Is this land made for you and me?*
+> *By the relief office I seen my people;*<br>
+> *As they stood there hungry, I stood there asking*<br>
+> *Is this land made for you and me?*<br>
 
 > *Nobody living can ever stop me*,
-> *As I go walking that freedom highway;*
-> *Nobody living can ever make me turn back*
-> *This land was made for you and me.*
+> *As I go walking that freedom highway;*<br>
+> *Nobody living can ever make me turn back*<br>
+> *This land was made for you and me.*<br>
 
 Without those verses, Woody Guthrie's "This Land Is Your Land" is just a poetic travelogue, a paean to the beauty and birthright of the American Land.
 
 With them, the song is also a reminder that all too often, America fails to live up to its promise of inclusion. On paper, its bounty of natural resources and political freedoms belong to all citizens. In reality, there have always been underclasses of downtrodden and disenfranchised to whom that bounty was more tease than promise.
 
-> *(Note: like much American folk music, Guthrie's lyrics are fluid, changing slightly from one recording and performance to the next. There's no definitive version to which we can point, so the lyrics you read here may somewhat differ from the ones you next hear.)*
+> *(Note: like much American folk music, Guthrie's lyrics are fluid, changing slightly from one recording and performance to the next. There's no definitive version to which we can point, so the lyrics you read here may somewhat differ from the ones you next hear.)*<br>
 
 That's the message of Guthrie's song, but to this day it goes largely unrecognized. Blame Guthrie himself for that.
 
@@ -39,10 +39,10 @@ He wrote the song in 1939 with the best of intentions. Ironically, he was inspir
 
 Berlin's song, like Guthrie's more well-known verses, is merely a catalog of American natural treasures. However, Berlin also wrote an introduction that didn't make Kate Smith's recording but which she performed in concert whenever she sang the song:
 
-> *While the storm clouds gather far across the sea*
-> *Let us swear allegiance to a land that's free*
-> *Let us all be grateful for a land so fair*
-> *As we raise our voices in a solemn prayer.*
+> *While the storm clouds gather far across the sea*<br>
+> *Let us swear allegiance to a land that's free*<br>
+> *Let us all be grateful for a land so fair*<br>
+> *As we raise our voices in a solemn prayer.*<br>
 
 Yes, it was wartime. (Berlin actually wrote "God Bless America" during World War I.) And there's nothing wrong with a little patriotic pride even in peacetime. But it irked Guthrie to hear Berlin's blindly syrupy song coming out of every radio a full decade into the Great Depression while all around him were migrants and homeless struggling to find work and survive. These were his people, and they weren't feeling particularly blessed.
 
@@ -54,10 +54,10 @@ Guthrie wrote "This Land Is Your Land" as an answer to "God Bless America," copy
 
 Lyrically, Guthrie balanced his song by pointing out where America was falling short and failing its citizens. When he first recorded it in 1944, "This Land Is Your Land" included one of his additional verses:
 
-> *There was a big high wall there that tried to stop me*
-> *A sign was painted that said Private Property*
-> *But on the back side it didn't say nothin'*
-> *This land was made for you and me*
+> *There was a big high wall there that tried to stop me*<br>
+> *A sign was painted that said Private Property*<br>
+> *But on the back side it didn't say nothin'*<br>
+> *This land was made for you and me*<br>
 
 [Watch on Youtube: This Land is Your Land - Woody Guthrie](https://www.youtube.com/watch?v=1my1jn6QHzE)
 
@@ -107,10 +107,10 @@ But no performance of "This Land Is Your Land" by anyone was seen by or touched 
 
 Looking back on that day years later, Bruce marveled:
 
-> *So on that day, Pete and myself and generations of young and old Americans – all colors, religious beliefs – I realized that sometimes things that come from the outside, they make their way in, to become a part of the beating heart of the nation. And on that day, when we sung that song, Americans – young and old, black and white, of all religious and political beliefs – were united, for a brief moment, by Woody's poetry.*
+> *So on that day, Pete and myself and generations of young and old Americans – all colors, religious beliefs – I realized that sometimes things that come from the outside, they make their way in, to become a part of the beating heart of the nation. And on that day, when we sung that song, Americans – young and old, black and white, of all religious and political beliefs – were united, for a brief moment, by Woody's poetry.*<br>
 
 **This Land Is Your Land**<br>
 **Recorded** December 28, 1980 (live)**Released:** *Live 1975-85* (1986)**First performed:** December 28, 1980 (Uniondale, NY)
-**Last performed:** June 3, 2013 (Milan, Italy)
+**Last performed:** June 3, 2013 (Milan, Italy)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every month!

@@ -39,7 +39,7 @@ I believe Bruce was searching for a way to contrast the words we utter when newl
 
 **Black Mountain Ballad**<br>
 **Recorded:** Early 1983
-**Released:** *L.A. Garage Sessions '83* (2025)
+**Released:** *L.A. Garage Sessions '83* (2025)<br>
 **Never performed**<br>
 
 © January 18, 2026

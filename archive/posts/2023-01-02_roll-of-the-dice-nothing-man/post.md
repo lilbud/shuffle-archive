@@ -20,13 +20,13 @@ Bruce has a habit of pairing his lyrics with backing tracks that belie rather th
 
 And then there's the lyrics, easily carving out a place in upper echelons of Bruce' most powerful songwriting. If there's another Springsteen superpower on display in "Nothing Man," it's the remarkably deep empathy of its songwriter.
 
-> *I don't remember how I felt, I never thought I'd live*
-> *To read about myself in my hometown paper*
-> *How my brave young life was forever changed*
-> *In a misty cloud of pink vapor*
+> *I don't remember how I felt, I never thought I'd live*<br>
+> *To read about myself in my hometown paper*<br>
+> *How my brave young life was forever changed*<br>
+> *In a misty cloud of pink vapor*<br>
 
-> *Darling give me your kiss, only understand:*
-> *I am the nothing man*
+> *Darling give me your kiss, only understand:*<br>
+> *I am the nothing man*<br>
 
 Our hero is… well, a hero. To us, at least–the listeners as well as the characters who inhabit the song. To himself, not so much.
 
@@ -38,13 +38,13 @@ Regardless, he now views himself as a "nothing man"–with no feelings, no purpo
 
 (At least we *think* he's talking to his partner. That may change.)
 
-> *Around here everybody acts the same*
-> *Around here everybody acts like nothing's changed*
-> *Friday night, the club meets at Al's Barbecue*
-> *The sky is still the same unbelievable blue*
+> *Around here everybody acts the same*<br>
+> *Around here everybody acts like nothing's changed*<br>
+> *Friday night, the club meets at Al's Barbecue*<br>
+> *The sky is still the same unbelievable blue*<br>
 
-> *Darling give me your kiss, come and take my hand*
-> *I am the nothing man*
+> *Darling give me your kiss, come and take my hand*<br>
+> *I am the nothing man*<br>
 
 There's a commonality felt by those who experience something life-altering–whether something good like the birth of a child or something tragic like the loss of one: how can everyone around us carry on like nothing's changed when our own world has been irrevocably shattered?
 
@@ -52,13 +52,13 @@ That's the emotional context of the second verse. Bruce significantly refers to 
 
 In the second chorus, Bruce once again pleads to his off-screen love, but there's something curious about the construction here: he begs her to take his hand as if to lead him, but his "nothing man" self-condemnation seems to stand alone. It's our first real hint about who he's actually addressing.
 
-> *You can call me Joe, buy me a drink and shake my hand*
-> *You want courage, I'll show you courage you can understand*
-> *The pearl and silver resting on my night table*
-> *It's just me Lord, I pray and I'm able*
+> *You can call me Joe, buy me a drink and shake my hand*<br>
+> *You want courage, I'll show you courage you can understand*<br>
+> *The pearl and silver resting on my night table*<br>
+> *It's just me Lord, I pray and I'm able*<br>
 
-> *Darling with this kiss, say you understand*
-> *I am the nothing man*
+> *Darling with this kiss, say you understand*<br>
+> *I am the nothing man*<br>
 
 All three verses in "Nothing Man" are powerful, but it's the final one that devastates. Joe has become something of a local celebrity, but while he goes through the motions of allowing his grateful neighbors express their appreciation and admiration, it's clear his self-image does not match their perception.
 
@@ -87,9 +87,9 @@ As soon as Bruce begins to play "Nothing Man," he loses the crowd; we can hear t
 It's been a long fifteen years since we've heard Bruce play "Nothing Man" in concert, and unless we're fortunate enough to get another solo tour down the road, I suspect we might have heard the last from it. Despite its absence from the stage, however, "Nothing Man" remains one of Bruce's most powerful songs.
 
 **Nothing Man**<br>
-**Recorded** Early 2002  
-**Released:** *The Rising* (2002)
-**First performed:** September 30, 2002 (St. Paul, MN)
-**Last performed:** October 28, 2005 (Boston, MA)
+**Recorded** Early 2002<br>
+**Released:** *The Rising* (2002)<br>
+**First performed:** September 30, 2002 (St. Paul, MN)<br>
+**Last performed:** October 28, 2005 (Boston, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

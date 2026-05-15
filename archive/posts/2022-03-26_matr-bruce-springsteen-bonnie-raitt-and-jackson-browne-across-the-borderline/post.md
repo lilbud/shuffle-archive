@@ -6,13 +6,13 @@ One of Cooder's songs played over both the opening and end credits: a bitterswee
 
 "Across the Borderline" features such a lovely melody and such uplifting verses (they inspired two of Bruce's own songs, "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)" and "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)") that it's easy to miss the fact that the choruses offer a hard dose of reality.
 
-> *When you reach the broken promised land*
-> *Every dream slips through your hand*
-> *And you know that it's too late to change your mind*
+> *When you reach the broken promised land*<br>
+> *Every dream slips through your hand*<br>
+> *And you know that it's too late to change your mind*<br>
 
-> *‘Cause you've paid the price to come this far*
-> *Just to wind up where you are*
-> *And you're still just across the borderline*
+> *‘Cause you've paid the price to come this far*<br>
+> *Just to wind up where you are*<br>
+> *And you're still just across the borderline*<br>
 
 At first listen, "Across the Borderline" sounds like a strange candidate for offering hope and fortitude. A border is just a line, it seems to say, and the grass on the other side may not be any greener until you water it a good long time.
 
@@ -45,7 +45,7 @@ All three icons were in peak form that night, their voices and instruments blend
 [Watch on Youtube: Bruce Springsteen | Across The Borderline - Denver - 19/11/2012](https://www.youtube.com/watch?v=3WqKKf0jfoE)
 
 **Across the Borderline**<br>
-**First performed:** April 27, 1988 (Los Angeles, CA)
-**Last performed:** November 19, 2012 (Denver, CA)
+**First performed:** April 27, 1988 (Los Angeles, CA)<br>
+**Last performed:** November 19, 2012 (Denver, CA)<br>
 
 

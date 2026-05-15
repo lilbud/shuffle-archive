@@ -30,7 +30,7 @@ Take a listen to it below–to date, it's the only known time Bruce has performe
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ghycWG6AejM)
 
 **Johnny Come Lately**<br>
-**First performed:** February 6, 1998 (Sea Bright, NJ)
-**Last performed:** February 6, 1998 (Sea Bright, NJ)
+**First performed:** February 6, 1998 (Sea Bright, NJ)<br>
+**Last performed:** February 6, 1998 (Sea Bright, NJ)<br>
 
 © January 4, 2019

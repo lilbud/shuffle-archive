@@ -8,44 +8,44 @@ As Guthrie originally conceived it, "Vigilante Man" was set in the same period a
 
 It's a fearful song bordering on paranoia. The song's narrator keeps constant watch against an unseen threat, and any less than-friendly reception might become more sinister in the dead of night, like the man who slew Preacher Casey in Steinbeck's novel.
 
-> *Have you seen that vigilante man?*
-> *Have you seen that vigilante man?*
-> *Have you seen that vigilante man?*
-> *I've been hearin' his name all over the land*
+> *Have you seen that vigilante man?*<br>
+> *Have you seen that vigilante man?*<br>
+> *Have you seen that vigilante man?*<br>
+> *I've been hearin' his name all over the land*<br>
 
-> *Well what is a vigilante man?*
-> *Tell me, what is a vigilante man?*
-> *Has he got a gun and a club in his hand?*
-> *Is that a vigilante man?*
+> *Well what is a vigilante man?*<br>
+> *Tell me, what is a vigilante man?*<br>
+> *Has he got a gun and a club in his hand?*<br>
+> *Is that a vigilante man?*<br>
 
-> *Rainy night down in the engine house*
-> *Sleepin' just as still as a mouse*
-> *Man come along and he chased us out in the rain*
-> *Was that a vigilante man?*
+> *Rainy night down in the engine house*<br>
+> *Sleepin' just as still as a mouse*<br>
+> *Man come along and he chased us out in the rain*<br>
+> *Was that a vigilante man?*<br>
 
-> *Stormy days, we pass the time away*
-> *Sleeping in some good warm place*
-> *Man come along and we give him a little race*
-> *Was that a vigilante man?*
+> *Stormy days, we pass the time away*<br>
+> *Sleeping in some good warm place*<br>
+> *Man come along and we give him a little race*<br>
+> *Was that a vigilante man?*<br>
 
-> *Preacher Casey was just a working man*
-> *And he said, "Unite, all you working men"*
-> *Killed him in the river, some strange man*
-> *Was that a vigilante man?*
+> *Preacher Casey was just a working man*<br>
+> *And he said, "Unite, all you working men"*<br>
+> *Killed him in the river, some strange man*<br>
+> *Was that a vigilante man?*<br>
 
-> *Oh why does a vigilante man*
-> *Why does a vigilante man*
-> *Carry that sawed-off shotgun in his hand?*
-> *Would he shoot his brother and sister down?*
+> *Oh why does a vigilante man*<br>
+> *Why does a vigilante man*<br>
+> *Carry that sawed-off shotgun in his hand?*<br>
+> *Would he shoot his brother and sister down?*<br>
 
-> *I rambled 'round from town to town*
-> *I rambled 'round from town to town*
-> *And they herded us around like a wild herd of cattle*
-> *Was that the vigilante men?*
+> *I rambled 'round from town to town*<br>
+> *I rambled 'round from town to town*<br>
+> *And they herded us around like a wild herd of cattle*<br>
+> *Was that the vigilante men?*<br>
 
-> *Have you seen that vigilante man?*
-> *Have you seen that vigilante man?*
-> *I've heard his name all over the land*
+> *Have you seen that vigilante man?*<br>
+> *Have you seen that vigilante man?*<br>
+> *I've heard his name all over the land*<br>
 
 Years before Bruce recorded *The Ghost of Tom Joad*, he was taken enough with Guthrie's sequel (side-quel?) to record it with the E Street Band sometime between completing his *Tunnel of Love* album and embarking on the tour.
 
@@ -68,9 +68,9 @@ But other than a one-off in the UK a month later, we haven't heard from "Vigilan
 [Watch on Youtube: Vigilante Man - Bruce Springsteen (21-06-1988 Villa Park, Birmingham, England)](https://www.youtube.com/watch?v=YemLdhH1Ev8)
 
 **Vigilante Man**<br>
-**Recorded** Late 1987 – Early 1988  
-**Released:** *Folkways: A Vision Shared: A Tribute To Woody Guthrie And Leadbelly* (1988)
-**First performed:** May 19, 1988 (New York, NY)
-**Last performed:** June 21, 1988 (Birmingham, England)
+**Recorded** Late 1987 – Early 1988<br>
+**Released:** *Folkways: A Vision Shared: A Tribute To Woody Guthrie And Leadbelly* (1988)<br>
+**First performed:** May 19, 1988 (New York, NY)<br>
+**Last performed:** June 21, 1988 (Birmingham, England)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

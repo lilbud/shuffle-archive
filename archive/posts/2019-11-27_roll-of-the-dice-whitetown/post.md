@@ -18,35 +18,35 @@ Most of the released outtakes sounded like more polished versions of the demos (
 
 If I didn't know better, I'd peg this version of "Whitetown" as an outtake from *Working on a Dream* rather than *The River*. It certainly has the lush sound and the growing-old theme of WOAD, and that's has modern-day singing voice too–which makes me suspect that Bruce significantly rewrote and recorded this song sometime in the last decade. Check out these lyrics–some lines are retained from the old outtake (which was never very cohesive lyrically), but it's now a very different song, almost a re-write of "Glory Days" (set in northeast Philly to boot–the Kensington and "el" (elevated train) references give that away).
 
-> *Mary Ann on the avenue*
-> *Girl all dressed up in Kensington blue*
-> *Down where the hammer falls*
-> *She's born and bred within Whitetown walls*
+> *Mary Ann on the avenue*<br>
+> *Girl all dressed up in Kensington blue*<br>
+> *Down where the hammer falls*<br>
+> *She's born and bred within Whitetown walls*<br>
 
-> *Each and every thing slowly passes away*
-> *She moves alone along the narrow street*
-> *From a passing car she hears the music play*
-> *Beneath the El she starts to sway*
+> *Each and every thing slowly passes away*<br>
+> *She moves alone along the narrow street*<br>
+> *From a passing car she hears the music play*<br>
+> *Beneath the El she starts to sway*<br>
 
-> *Down in Whitetown*
+> *Down in Whitetown*<br>
 
-> *Johnny's just trying to make his way*
-> *He's got a job but mister it don't pay*
-> *He sits and counts the scars*
-> *On a stool down the end of a Whitetown bar*
+> *Johnny's just trying to make his way*<br>
+> *He's got a job but mister it don't pay*<br>
+> *He sits and counts the scars*<br>
+> *On a stool down the end of a Whitetown bar*<br>
 
-> *And the old men here piss their lives away*
-> *Drinking and joking about their cop-fighting days*
-> *Ain't no answers here, just the past and fear*
-> *Of spending the rest of your days*
+> *And the old men here piss their lives away*<br>
+> *Drinking and joking about their cop-fighting days*<br>
+> *Ain't no answers here, just the past and fear*<br>
+> *Of spending the rest of your days*<br>
 
-> *Down in Whitetown*
+> *Down in Whitetown*<br>
 
 So color me surprised. And delighted: Bruce turned "Whitetown" into a wonderful song that would have been a delightful addition to *Working on a Dream*. It's easily one of my favorite tracks in the *River* box set.
 
 **Whitetown**<br>
-**Recorded** ?  
-**Released:** *The Ties That Bind: The River Collection* (2015)
+**Recorded** ?<br>
+**Released:** *The Ties That Bind: The River Collection* (2015)<br>
 **Never Performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

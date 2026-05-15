@@ -92,7 +92,7 @@ At this point in my Bruce concert career, I don't have a lot left on my chase li
 **This Little** **Girl**  
 **Recorded:** 1980  
 **Released:** *Dedication* (1981)
-**First performed:** June 15, 1981 (San Francisco, CA)
-**Last performed:** January 17, 2015 (Asbury Park, NJ)
+**First performed:** June 15, 1981 (San Francisco, CA)<br>
+**Last performed:** January 17, 2015 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

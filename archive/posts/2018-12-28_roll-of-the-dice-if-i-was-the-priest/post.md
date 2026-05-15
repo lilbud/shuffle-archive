@@ -102,7 +102,7 @@ So here's a bonus demo instead: earlier than both of the above performances, thi
 
 **If I Was the Priest**<br>
 **Recorded** April-June 1972 (solo), November 2019 (band)
-**Released:** *Letter to You* (2020)
-**First performed:** February 14, 2023 (Houston, TX) (but likely performed in 1971 as well)
-**Last performed:** February 21, 2023 (Tulsa, OK)
+**Released:** *Letter to You* (2020)<br>
+**First performed:** February 14, 2023 (Houston, TX) (but likely performed in 1971 as well)<br>
+**Last performed:** February 21, 2023 (Tulsa, OK)<br>
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

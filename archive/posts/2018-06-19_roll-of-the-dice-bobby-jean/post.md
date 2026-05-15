@@ -71,8 +71,8 @@ He also gave it the Seeger Sessions treatment on the *Bruce Springsteen with the
 
 **Bobby Jean**<br>
 **Recorded:** January 1982-February 1984  
-**Released:** *Born in the U.S.A.* (1984), *Bruce Springsteen with the Sessions Band PBS Exclusive* (2007)
-**First performed:** June 29, 1984 (St. Paul, MN)
-**Last performed:** July 25, 2023 (Monza, Italy)
+**Released:** *Born in the U.S.A.* (1984), *Bruce Springsteen with the Sessions Band PBS Exclusive* (2007)<br>
+**First performed:** June 29, 1984 (St. Paul, MN)<br>
+**Last performed:** July 25, 2023 (Monza, Italy)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

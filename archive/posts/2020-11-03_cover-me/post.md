@@ -48,7 +48,7 @@ Gieco's lyrics are simple but powerful, beseeching his God for the strength to f
 It remains as important today as it was when Gieco first recorded it.
 
 **Sólo Le Pido A Dios**<br>
-**Recorded** September 14, 2013  
+**Recorded** September 14, 2013<br>
 **Never released**<br>
 **Never performed**<br>
 

@@ -16,10 +16,10 @@ However: this is a Springsteen song, and in Springsteen songs happiness may be *
 
 What do you do when life hands you everything you've ever wanted on a silver platter, and you're *still* not satisfied? You keep seeking.
 
-> *Well I sought gold and diamond rings*
-> *My own drug to ease the pain that living brings*
-> *Walked from the mountain to the valley floor*
-> *Searching for my beautiful reward*
+> *Well I sought gold and diamond rings*<br>
+> *My own drug to ease the pain that living brings*<br>
+> *Walked from the mountain to the valley floor*<br>
+> *Searching for my beautiful reward*<br>
 
 Although they couldn't be more different musically, Bruce constructs "My Beautiful Reward" and "Aint Got You" with lyrical parallelism. Both songs refer to diamonds and gold in their first line**, but while the younger man crows of his wealth *(I got the fortunes of heaven in diamonds and gold…)*, the older and wiser man recognizes his material riches as a drug to numb the daily pain of a life lacking in meaning.
 
@@ -27,28 +27,28 @@ The narrator's trek from the mountaintop to the valley floor is a metaphor for t
 
 The second verses are parallel as well, with both songs focusing on homes full of possessions *(I got a house full of Rembrandt and priceless art)* but devoid of presence.
 
-> *From a house on a hill a sacred light shines*
-> *I walk through these rooms but none of them are mine*
-> *Down empty hallways I went from door to door*
-> *Searching for my beautiful reward*
+> *From a house on a hill a sacred light shines*<br>
+> *I walk through these rooms but none of them are mine*<br>
+> *Down empty hallways I went from door to door*<br>
+> *Searching for my beautiful reward*<br>
 
 (It's no coincidence that Bruce sets his character's house upon a hill–that's a callback to the powerful symbolism such homes have had for him at least as far back as *Nebraska* and most likely back to his childhood.)
 
 Both songs segue into their bridges at this point. In "Ain't Got You," our narrator makes a deal with the devil to win his love. In "My Beautiful Reward," we are reminded that such deals often don't bring the lasting satisfaction we expect them to.
 
-> *Well your hair shone in the sun*
-> *I was so high and I was the lucky one*
-> *Then I came crashing down like a drunk on a barroom floor*
-> *Searching for my beautiful reward*
+> *Well your hair shone in the sun*<br>
+> *I was so high and I was the lucky one*<br>
+> *Then I came crashing down like a drunk on a barroom floor*<br>
+> *Searching for my beautiful reward*<br>
 
 Our narrator had his lover's affections for a time, but he lost them–and it's implied by the metaphor (one that Bruce re-uses in "[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)") that it's the result of his own actions and temptations. When fame and wealth don't bring satisfaction, it makes sense to assume love will. So when it doesn't, what do you do?
 
 You keep searching.
 
-> *Tonight I can feel the cold wind at my back*
-> *I'm flying high over gray fields, my feathers long and black*
-> *Down along the river's silent edge I soar*
-> *Searching for my beautiful reward*
+> *Tonight I can feel the cold wind at my back*<br>
+> *I'm flying high over gray fields, my feathers long and black*<br>
+> *Down along the river's silent edge I soar*<br>
+> *Searching for my beautiful reward*<br>
 
 In this final, ethereal and dreamlike verse, our narrator is transformed into a raven–a symbol in many cultures of insight, wisdom and knowledge, but also of darkness and destruction. Bruce's selection of it as his avatar is deliberate and significant. It reveals a self-awareness combined with a certain powerlessness. Our narrator is destined to forever wander the world searching for something he knows he's missing… something hidden in the one place where he'll never find it: himself.
 
@@ -80,9 +80,9 @@ Bruce has played "My Beautiful Reward" 127 times to date, but surprisingly only 
 A return engagement is a long shot at this point. "[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)" seems to have taken its place, a more fitting send-off at this late stage of Bruce's career. Still, one never knows–as long as Bruce keeps writing and releasing new music, the search continues.
 
 **My Beautiful Reward**<br>
-**Recorded** Late 1991  
+**Recorded** Late 1991<br>
 **Released:** *Lucky Town* (1992)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** May 23, 2014 (Pittsburgh, PA)
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** May 23, 2014 (Pittsburgh, PA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

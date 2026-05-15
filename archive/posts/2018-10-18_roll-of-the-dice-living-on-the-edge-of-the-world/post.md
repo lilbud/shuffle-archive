@@ -98,8 +98,8 @@ Listen carefully to the performance, especially around the 3:40 mark, and you'll
 
 **Living on the Edge of the** World  
 **Recorded:** December 7, 1979  
-**Released:** *Tracks* (1998), *The Ties That Bind: The River Collection* (2015)
-**First performed:** September 21, 2012  
-**Last performed:** September 21, 2012
+**Released:** *Tracks* (1998), *The Ties That Bind: The River Collection* (2015)<br>
+**First performed:** September 21, 2012<br>
+**Last performed:** September 21, 2012<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

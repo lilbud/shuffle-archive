@@ -25,11 +25,11 @@ We have no records to indicate if Bruce ever played "Talking About My Baby" othe
 
 As for the lyrics, "Janey Needs a Shooter" is one of the most graphically sexual songs in Bruce's catalog. Bruce certainly hasn't shied away from sexual metaphor in his career, but rarely has he been this overt. (Let's keep in mind that Bruce was only 22-23 at the time he wrote "Janey.")
 
-> *Well Janey's got a doctor who tears apart her insides*
-> *He investigates her and silently baits her every little sigh*
-> *Oh he probes with his fingers but he knows her heart only through his stethoscope*
-> *Oh his hands are so old and his instruments so cold*
-> *Janey turns him down like dope*
+> *Well Janey's got a doctor who tears apart her insides*<br>
+> *He investigates her and silently baits her every little sigh*<br>
+> *Oh he probes with his fingers but he knows her heart only through his stethoscope*<br>
+> *Oh his hands are so old and his instruments so cold*<br>
+> *Janey turns him down like dope*<br>
 
 That's quite the opening verse. We're introduced to Janey, of whom we know nothing other than that she's the object of some intense sexual attention from a suitor who doesn't seem to care very much about her for any other purpose.
 
@@ -39,21 +39,21 @@ For example: "he knows her heart only through his stethoscope" is a terrific lyr
 
 We needn't wonder, though, because we won't hear from the doctor again. In the second verse, we meet a new fellow: a proctor (clever rhyme, that), who seems to have an identical interest to the doctor.
 
-> *And Janey's got a proctor, from his marble pulpit he smiles*
-> *He provides consolation and an open invitation to confession at any time*
-> *Between the pages of his bible he holds from what Janey he hides*
-> *With her doors open wide she begs come inside*
-> *He's too long been content to mess around with the handles on the outside*
+> *And Janey's got a proctor, from his marble pulpit he smiles*<br>
+> *He provides consolation and an open invitation to confession at any time*<br>
+> *Between the pages of his bible he holds from what Janey he hides*<br>
+> *With her doors open wide she begs come inside*<br>
+> *He's too long been content to mess around with the handles on the outside*<br>
 
 Again, Bruce is sly with his metaphor, but it's clear what Janey's doors and handles refer to. And again, Bruce writes a brilliant lyric to establish the proctor's emotional distance: "between the pages of his bible he holds what from Janey he hides." In other words, his heart belongs to God, not to Janey. (This proctor provides at least as much fodder for confession as he does absolution.)
 
 We're now two verses in, and still all we know is that Janey has at least two concurrent sexual partners. I've read takes suggesting that Janey is a prostitute; perhaps that's so, but there's nothing explicit in Bruce's lyrics to establish that. I suspect that Janey is either a strong, sexually independent woman, an emotionally damaged one, or both–notions that would seem reinforced by the chorus, which finally introduces the narrator as a self-interested character:
 
-> *And Janey needs a shooter*
-> *A shooter like this boy on her side*
-> *Janey needs a shooter*
-> *Someone who knows her style*
-> *And I know her style*
+> *And Janey needs a shooter*<br>
+> *A shooter like this boy on her side*<br>
+> *Janey needs a shooter*<br>
+> *Someone who knows her style*<br>
+> *And I know her style*<br>
 
 Aha! Now the song comes into focus: our narrator views himself as Janey's savior–able to please her both physically and emotionally. (In a way, Janey is a predecessor to Candy, a character we won't meet for a few years yet.)
 
@@ -61,23 +61,23 @@ In fact, if we now go back and review the first two verses, it's quite possible 
 
 Our story continues, as does Janey's parade of suitors. Now we meet the mechanic, and things take a violent turn as our silent observer relinquishes both his silence and his passivity.
 
-> *Janey loved a mechanic who owned a gas station down on Route 9*
-> *Well she took him to bed and I beat my head on his gas tanks and bled all over his tires*
-> *And then he smashed my car with his big tow bar. I got out and asked him why*
-> *He said "Cause with her it's either you or me, and it's gonna be me"*
-> *And I watched Janey silently stand by*
+> *Janey loved a mechanic who owned a gas station down on Route 9*<br>
+> *Well she took him to bed and I beat my head on his gas tanks and bled all over his tires*<br>
+> *And then he smashed my car with his big tow bar. I got out and asked him why*<br>
+> *He said "Cause with her it's either you or me, and it's gonna be me"*<br>
+> *And I watched Janey silently stand by*<br>
 
 It's the shocking violence that draws our attention in this verse, but it's the dialogue that's important: it shows that the mechanic recognizes our narrator as a significant actor in Janey's drama. The narrator isn't merely observing Janey's parade of partners, he's a participant in it, and a significant one at that. He's not happy about the competition, which isn't surprising given the beatdown he received from Janey's jealous mechanic.
 
 Another actor enters, and now things *really* come into focus. One of the most impressive things about "Janey Needs a Shooter" is the way Bruce slowly, subtly, and meticulously parcels out just a little more information about Janey and the narrator with each verse…
 
-> *Then she flopped with a cop who lived round the block*
-> *He'd come peek in my window every night*
-> *Janey's skin would turn pale as the siren he'd wail*
-> *Outside my house all night long when he knew she was inside*
-> *She said his big gun was fun but Janey's small, and sometimes he scared her*
-> *So I held her real close, she was more a saint than a ghost*
-> *And told her I so long had been prepared for her*
+> *Then she flopped with a cop who lived round the block*<br>
+> *He'd come peek in my window every night*<br>
+> *Janey's skin would turn pale as the siren he'd wail*<br>
+> *Outside my house all night long when he knew she was inside*<br>
+> *She said his big gun was fun but Janey's small, and sometimes he scared her*<br>
+> *So I held her real close, she was more a saint than a ghost*<br>
+> *And told her I so long had been prepared for her*<br>
 
 The cop, like the mechanic, appears to be obsessed with Janey. He stalks her and makes his presence known to her via his siren.
 
@@ -89,13 +89,13 @@ The last couplet of the final verse holds the key line to the song :"she was mor
 
 As the song concludes, our narrator vows to be her protector and defender–to stand by her, to give her what she needs, and not let her backslide.
 
-> *And Janey needs a shooter*
-> *A shooter just like me on her side*
-> *Janey needs a shooter*
-> *Someone who won't let her slide*
-> *And I can't let her slide*
+> *And Janey needs a shooter*<br>
+> *A shooter just like me on her side*<br>
+> *Janey needs a shooter*<br>
+> *Someone who won't let her slide*<br>
+> *And I can't let her slide*<br>
 
-> *Woah, I'm stayin' here tonight, baby, and I won't let you slide*
+> *Woah, I'm stayin' here tonight, baby, and I won't let you slide*<br>
 
 We never find out what happens to our would-be lovers. "Janey Needs a Shooter" isn't concerned with a happy ending but rather the moment when we decide we deserve one.
 
@@ -117,13 +117,13 @@ Time and again, he asked Bruce to hear the song; time and again, Bruce demurred�
 
 Zevon did just that–or at least he wrote a single verse:
 
-> *I was born down by the river*
-> *Where the dirty river flows*
-> *And the cool wind cut through me*
-> *It cut right through my clothes*
-> *And the anger and the yearning*
-> *Like fever in my veins*
-> *Set the fire burning*
+> *I was born down by the river*<br>
+> *Where the dirty river flows*<br>
+> *And the cool wind cut through me*<br>
+> *It cut right through my clothes*<br>
+> *And the anger and the yearning*<br>
+> *Like fever in my veins*<br>
+> *Set the fire burning*<br>
 
 Warren proudly played his work-in-progress for Bruce in 1979 during a break in the River sessions. Bruce reportedly liked what he heard and asked Zevon: where's the rest of it?
 

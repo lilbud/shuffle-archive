@@ -10,51 +10,51 @@ Although most of Bruce's home demo escapees are fairly primitive, "Love Is a Dan
 
 Our protagonist (if we can call him that) is a literal stalker, which makes his "Don't talk to strangers" chorus (not to mention the song title) more sinister and threatening than it might otherwise sound.
 
-> *Followed you home baby late last night*
-> *I seen you walking in the dark*
-> *Sat outside baby, out at your house*
-> *Sat outside in my car*
-> *Now babe I'm lookin' through the window*
-> *Baby don't go away*
-> *Don't trust strangers*
-> *I told you don't talk to strangers*
-> *Baby don't talk to strangers*
-> *Love is a dangerous thing*
+> *Followed you home baby late last night*<br>
+> *I seen you walking in the dark*<br>
+> *Sat outside baby, out at your house*<br>
+> *Sat outside in my car*<br>
+> *Now babe I'm lookin' through the window*<br>
+> *Baby don't go away*<br>
+> *Don't trust strangers*<br>
+> *I told you don't talk to strangers*<br>
+> *Baby don't talk to strangers*<br>
+> *Love is a dangerous thing*<br>
 
-> *I see you looking and out go the lights*
-> *I feel you baby in the middle of the night*
-> *??? squeezin' you tight*
-> *And still I'm waitin' for ???*
-> *Don't trust strangers*
-> *Don't trust strangers*
-> *Baby don't trust strangers*
-> *Love is a dangerous thing*
+> *I see you looking and out go the lights*<br>
+> *I feel you baby in the middle of the night*<br>
+> *??? squeezin' you tight*<br>
+> *And still I'm waitin' for ???*<br>
+> *Don't trust strangers*<br>
+> *Don't trust strangers*<br>
+> *Baby don't trust strangers*<br>
+> *Love is a dangerous thing*<br>
 
 With the third verse, the song gets more challenging to follow, in large part because this verse is still underdeveloped and heavily bluffed. Still, it seems that Bruce is revealing that our narrator is far more than just a jealous lover–his paranoia consumes him even when he's alone.
 
-> *Yeah I feel eyes on me when I'm alone*
-> *I hear some noises comin' through my telephone*
-> *I lock the windows and ???*
-> *???*
-> *Yeah they come a knockin' in the middle of the night*
-> *???*
-> *You better watch out baby ???*
-> *Or you'll be slowly twisting in the wind*
-> *Don't talk to strangers*
-> *I told you don't talk to strangers*
-> *Baby don't talk to strangers*
-> *Love is a dangerous thing*
+> *Yeah I feel eyes on me when I'm alone*<br>
+> *I hear some noises comin' through my telephone*<br>
+> *I lock the windows and ???*<br>
+> *???*<br>
+> *Yeah they come a knockin' in the middle of the night*<br>
+> *???*<br>
+> *You better watch out baby ???*<br>
+> *Or you'll be slowly twisting in the wind*<br>
+> *Don't talk to strangers*<br>
+> *I told you don't talk to strangers*<br>
+> *Baby don't talk to strangers*<br>
+> *Love is a dangerous thing*<br>
 
 Bruce repeats the final verse of "Love Is a Dangerous Thing" twice, for good reason. It's a strong verse, fully developed, and (to us, at least) familiar.
 
-> *Eve tempted Adam with an apple*
-> *You know how that story ends*
-> *Delilah tempted Samson*
-> *She left him slowly twisting in the wind*
-> *Don't trust strangers*
-> *Don't trust strangers*
-> *Don't trust strangers*
-> *Love is a dangerous thing*
+> *Eve tempted Adam with an apple*<br>
+> *You know how that story ends*<br>
+> *Delilah tempted Samson*<br>
+> *She left him slowly twisting in the wind*<br>
+> *Don't trust strangers*<br>
+> *Don't trust strangers*<br>
+> *Don't trust strangers*<br>
+> *Love is a dangerous thing*<br>
 
 Two years later, that first line would show up in "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)," and the clever device in the second would show up more than a decade on in "[Highway 29.](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)" (The Samson and Delilah reference, of course, had already been featured in "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/).")
 

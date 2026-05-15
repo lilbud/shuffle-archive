@@ -20,28 +20,28 @@ But apart from the title, "The Band's Just Boppin' the Blues" has little in comm
 
 Bruce's lyrics are simple and straightforward, and a comparison with the only other surviving audio of "The Band's Just Boppin' the Blues" (a muddier-sounding performance from three months later) suggests that the piece was intended to be somewhat improvisational from the beginning, more of a band showcase (complete with in-song band intros) than a song with a message.
 
-> *Well it's another Saturday night and you're sitting at the bar all alone*
-> *Well man you're feeling kind of tired but you're not tired enough to go home*
-> *Well sit back and let loose because the band's just boppin' the blues*
+> *Well it's another Saturday night and you're sitting at the bar all alone*<br>
+> *Well man you're feeling kind of tired but you're not tired enough to go home*<br>
+> *Well sit back and let loose because the band's just boppin' the blues*<br>
 
-> *Well it's the same old singer, Ma, and I know that it's the same old song*
-> *And the band keeps on playing, band keeps playing all night long*
-> *Well now I know it ain't no use because the band's just boppin' the blues*
+> *Well it's the same old singer, Ma, and I know that it's the same old song*<br>
+> *And the band keeps on playing, band keeps playing all night long*<br>
+> *Well now I know it ain't no use because the band's just boppin' the blues*<br>
 
-> *Yeah I got Madman on the drums, and Mr. Dave right down to my left on the keys*
-> *And when the man plays his guitar, it hits the little girls bad between the knees*
-> *Oh, so just sit back and hang loose, the band's just bopping the blues*
+> *Yeah I got Madman on the drums, and Mr. Dave right down to my left on the keys*<br>
+> *And when the man plays his guitar, it hits the little girls bad between the knees*<br>
+> *Oh, so just sit back and hang loose, the band's just bopping the blues*<br>
 
-> *Oh you might dig boogie-woogie tunes or maybe you like to rock and roll*
-> *But right now it's all about the music, it saves me right down into my soul*
-> *Ah well just sit back and hang loose because the band's just bopping the blues*
+> *Oh you might dig boogie-woogie tunes or maybe you like to rock and roll*<br>
+> *But right now it's all about the music, it saves me right down into my soul*<br>
+> *Ah well just sit back and hang loose because the band's just bopping the blues*<br>
 
 And a showcase it was. The highlights of the performance are clearly the two instrumental breaks, the first one a spotlight for Southside Johnny's impressive harp skills, the latter an extended jam centered around the amazing David Sancious.
 
 Flash forward exactly a year later, and Bruce would be one month into touring for his upcoming debut album, with the band that would eventually become known as E Street fully in place. But in November 1971, the action was all at the Student Prince, where a pre-fame Bruce Springsteen and his eponymous band spent their weekend nights just boppin' the blues.
 
 **The Band's Just Boppin' the Blues**<br>
-**First performed:** November 13, 1971 (Asbury Park, NJ)
-**Last performed:** February 4, 1972 (Richmond, VA)
+**First performed:** November 13, 1971 (Asbury Park, NJ)<br>
+**Last performed:** February 4, 1972 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

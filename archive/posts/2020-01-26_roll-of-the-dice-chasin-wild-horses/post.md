@@ -107,10 +107,10 @@ Bruce has been coy when asked whether we'll ever hear any of the *Western Stars*
 "Chasin' Wild Horses" is in the latter category. It's a perfect song, perfectly situated on a perfect album, and perhaps that's where it should remain.
 
 **Chasin' Wild Horses**<br>
-**Recorded** Unknown  
+**Recorded** Unknown<br>
 **Released:** *Western Stars* (2019)
-**First performed:** April 2019 (exact date unknown) (Colts Neck, NJ)
-**Last performed:** April 2019 (exact date unknown) (Colts Neck, NJ)
+**First performed:** April 2019 (exact date unknown) (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (exact date unknown) (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 

@@ -38,6 +38,6 @@ So odds are good that as soon as we're fortunate enough for *any* night to rock,
 
 **Seven Nights to Rock  
 First performed:** April 13, 2002 (Asbury Park, NJ)
-**Last performed:** November 16, 2019 (Asbury Park, NJ)
+**Last performed:** November 16, 2019 (Asbury Park, NJ)<br>
 
  

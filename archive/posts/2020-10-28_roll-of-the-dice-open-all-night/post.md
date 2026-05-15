@@ -109,9 +109,9 @@ This incredible version of "Open All Night" from their final Dublin stand may be
 Bruce brought "Open All Night" (in its new arrangement) back for nineteen outings with the E Street Band in the years since, but no E Street performance has ever equaled the best Sessions ones.
 
 **Open All Night**<br>
-**Recorded** January 3, 1982  
-**Released:** *Nebraska* (1982)
-**First performed:** October 3, 1982 (Asbury Park, NJ)
-**Last performed:** February 8, 2014 (Perth, Australia)
+**Recorded** January 3, 1982<br>
+**Released:** *Nebraska* (1982)<br>
+**First performed:** October 3, 1982 (Asbury Park, NJ)<br>
+**Last performed:** February 8, 2014 (Perth, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

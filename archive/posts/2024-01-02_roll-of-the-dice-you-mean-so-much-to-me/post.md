@@ -36,20 +36,20 @@ It's easy to forget how much the E Street Band's sound has changed since their e
 
 By this point, you might have noticed that I've been focusing on the musicality of "You Mean So Much to Me," rather than its poetry. That's not an accident. Lyrically, there's not a lot here to either admire or dismiss–only two verses and a chorus for a song that approached ten minutes when performed live.
 
-> *Well she comes to me like a childhood song*
-> *Or an old time friend I ain't seen in so long*
-> *When she sings to me she's like a robin's song*
-> *She can be so sweet, she won't do me no wrong*
+> *Well she comes to me like a childhood song*<br>
+> *Or an old time friend I ain't seen in so long*<br>
+> *When she sings to me she's like a robin's song*<br>
+> *She can be so sweet, she won't do me no wrong*<br>
 
-> *You mean so much to me baby*
-> *You know you drive me crazy*
-> *You mean so much to me baby*
-> *I want you for my girl*
+> *You mean so much to me baby*<br>
+> *You know you drive me crazy*<br>
+> *You mean so much to me baby*<br>
+> *I want you for my girl*<br>
 
-> *Well sometimes she's like a baby playing with a toy*
-> *Then she's so much woman she makes me feel like a little boy*
-> *And when she comes to me, and she's all alone*
-> *She cries "Oh daddy, oh daddy make me strong"*
+> *Well sometimes she's like a baby playing with a toy*<br>
+> *Then she's so much woman she makes me feel like a little boy*<br>
+> *And when she comes to me, and she's all alone*<br>
+> *She cries "Oh daddy, oh daddy make me strong"*<br>
 
 Yeah… this isn't exactly Bruce at his lyrical best, but it's fairly typical of his early (pre-1972) attempts at writing love songs. The lyrics are basically there for the band to hang their performance on, and that's probably why Bruce retired the song for good shortly thereafter; he'd already introduced some much stronger material to his catalog and the band didn't want for substantive songs to sink their teeth into.
 
@@ -60,7 +60,7 @@ Look for that story coming soon.
 **You Mean So Much to Me**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** July 10, 1971 (Lincroft, NJ)
-**Last performed:** May 13, 1977 (Red Bank, NJ)
+**First performed:** July 10, 1971 (Lincroft, NJ)<br>
+**Last performed:** May 13, 1977 (Red Bank, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

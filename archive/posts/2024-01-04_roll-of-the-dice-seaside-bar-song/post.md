@@ -1,4 +1,4 @@
-> "There was a club in New Jersey–it's still there–called The Osprey. It's in Manasquan. I had my first drink there, first drink ever. I thought it was the greatest night of my life. And I saw Bo Diddley! I saw Bo Diddley at the The Osprey in Manasquan. There's a little stage… there's a bar and a little stage that's right there. So I went home and I wrote this song." —*Bruce Springsteen, March 28, 2012*
+> "There was a club in New Jersey–it's still there–called The Osprey. It's in Manasquan. I had my first drink there, first drink ever. I thought it was the greatest night of my life. And I saw Bo Diddley! I saw Bo Diddley at the The Osprey in Manasquan. There's a little stage… there's a bar and a little stage that's right there. So I went home and I wrote this song." —*Bruce Springsteen, March 28, 2012*<br>
 
 The Stone Pony may be the more famous seaside bar, but The Osprey is the one Bruce Springsteen immortalized in song.
 
@@ -24,41 +24,41 @@ It takes a full minute, however, for Bruce to utter even a single word in "Seasi
 
 The first thing we might notice is that "Seaside Bar Song" isn't about a bar at all. Sure, Bruce namechecks his fictional haunt in the second verse, but otherwise we may as well be listening to an early prototype of "Born to Run." All the elements are here–the highway, the car, the escape, the pledge of everlasting love (at least for tonight), and the promise of *someday*. We hear the echoes before we're even two lines into the song.
 
-> *Well, Billy bought a Chevy '40 coupe deluxe*
-> *Chrome wheels, stick shift, give her gas, pop the clutch*
-> *Little girls on the corner like a diamond they shine*
-> *Someday, Billy, I'm gonna make 'em all mine*
+> *Well, Billy bought a Chevy '40 coupe deluxe*<br>
+> *Chrome wheels, stick shift, give her gas, pop the clutch*<br>
+> *Little girls on the corner like a diamond they shine*<br>
+> *Someday, Billy, I'm gonna make 'em all mine*<br>
 
-> *Hey girl, you wanna ride in Daddy's Cadillac*
-> *Because I love the way your long hair falls down your back*
-> *Bo Diddley, Bo Diddley's at the Seaside Bar*
-> *We'll run barefoot in the sand and listen to his guitar*
+> *Hey girl, you wanna ride in Daddy's Cadillac*<br>
+> *Because I love the way your long hair falls down your back*<br>
+> *Bo Diddley, Bo Diddley's at the Seaside Bar*<br>
+> *We'll run barefoot in the sand and listen to his guitar*<br>
 
 "Born to Run" isn't the only future song we hear in "Seaside Bar Song." Bruce would borrow the cadence and car imagery almost a decade later when writing "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)" for *Nebraska*.
 
 And then there's the bridge…
 
-> *You say your mama's gonna meet you when the morning comes*
-> *Yeah, and papa's gonna beat you because he knows you're out on the run*
-> *I'm gonna live a life of love and tonight you're the one*
+> *You say your mama's gonna meet you when the morning comes*<br>
+> *Yeah, and papa's gonna beat you because he knows you're out on the run*<br>
+> *I'm gonna live a life of love and tonight you're the one*<br>
 
 Bruce was writing "Rosalita (Come Out Tonight)" contemporaneously, and as is often the case, we can hear the same themes shining through similar lyrical and musical devices. The entire structure of both songs are similar, in fact. They share a "collage" approach, each song shifting dramatically in tempo and tone at key points without ever losing cohesion. The next passage is a great example, and it also introduces our next and most explicit "call-forward."
 
-> *The highway is alive tonight so baby do not be frightened*
-> *There's something about a pretty girl on a sweet summer night that gets this boy excited*
-> *The radio man finally understands and plays you something you can move to*
+> *The highway is alive tonight so baby do not be frightened*<br>
+> *There's something about a pretty girl on a sweet summer night that gets this boy excited*<br>
+> *The radio man finally understands and plays you something you can move to*<br>
 > *You lay back easy, cut loose your drive power*,
-> *your girl leans over, says*
-> *"Daddy can you turn that radio up any louder?"*
+> *your girl leans over, says*<br>
+> *"Daddy can you turn that radio up any louder?"*<br>
 
 A couple of decades down the road, Bruce nicked "the highway is alive tonight" for "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)," where he uses it in such a diametrically different context that one is forced to wonder whether we're meant to imagine the same narrator in both songs, carefree in youth but downtrodden in middle age.
 
 Let's not wonder for long, though, because like "Born to Run" and "Rosalita (Come Out Tonight)," "Seaside Bar Song" is about the glory of *now*, of surviving the day in order to embrace the night and all of the promise it offers.
 
-> *Ah, the juke joints humming, everybody came down*
-> *Little Willie and the Soul Brooms laying all his stuff down*
-> *Well, don't let that daylight steal your soul*
-> *Get in your wheels and roll, roll, roll, roll*
+> *Ah, the juke joints humming, everybody came down*<br>
+> *Little Willie and the Soul Brooms laying all his stuff down*<br>
+> *Well, don't let that daylight steal your soul*<br>
+> *Get in your wheels and roll, roll, roll, roll*<br>
 
 "Seaside Bar Song" is an infectious crowd-pleaser–so much so that it's surprising to realize Bruce only ever performed it once (that we know of) in the century it was written.
 
@@ -93,9 +93,9 @@ But on a summer night at the shore, if you don't let the daylight steal your sou
 
 
 **Seaside Bar Song**<br>
-**Recorded** June 28 – July 24, 1973  
+**Recorded** June 28 – July 24, 1973<br>
 **Released:** *Tracks* (1998), *18 Tracks* (1999)
-**First performed:** June 13, 1973 (Binghamton, NY)
-**Last performed:** May 13, 2014 (Albany, NY)
+**First performed:** June 13, 1973 (Binghamton, NY)<br>
+**Last performed:** May 13, 2014 (Albany, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

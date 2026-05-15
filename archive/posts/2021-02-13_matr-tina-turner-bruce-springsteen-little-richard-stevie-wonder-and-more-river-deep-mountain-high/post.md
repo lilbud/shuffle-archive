@@ -1,4 +1,4 @@
-> "‘River Deep — Mountain High' is one of the greatest rock records probably ever made. And [Tina Turner] is simply one of the greatest rock singers, you know." – *Bruce Springsteen, From My Home to Yours Volume 9*
+> "‘River Deep — Mountain High' is one of the greatest rock records probably ever made. And [Tina Turner] is simply one of the greatest rock singers, you know." – *Bruce Springsteen, From My Home to Yours Volume 9*<br>
 
 It sure is, and she sure as *heck* is.
 
@@ -37,7 +37,7 @@ You can vote [here](https://vote.rockhall.com/) and vote often–once a day thro
 Let's do this.
 
 **River Deep-Mountain High**<br>
-**First performed:** January 18, 1989 (New York City, NY)
-**Last performed:** January 18, 1989 (New York City, NY)
+**First performed:** January 18, 1989 (New York City, NY)<br>
+**Last performed:** January 18, 1989 (New York City, NY)<br>
 
 

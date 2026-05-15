@@ -25,7 +25,7 @@ Toward the end of "All Shook Up," Nick deftly (and gutsily) segues the band into
 [Watch on Youtube: Springsteen - All Shook Up - The Spectrum October 19, 2009](https://www.youtube.com/watch?v=XyJgPQRw4JA)
 
 **Blue Suede Shoes**<br>
-**First performed:** August 19, 1983 (Long Branch, NJ)
-**Last performed:** August 19, 1983 (Long Branch, NJ)
+**First performed:** August 19, 1983 (Long Branch, NJ)<br>
+**Last performed:** August 19, 1983 (Long Branch, NJ)<br>
 
 

@@ -36,6 +36,6 @@ He did play it a half-dozen times in 2006, though, and one of those (in Santande
 **Recorded:** March 19, 2005<br>
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
 **First performed:** May 31, 2006 (Noblesville, IN)<br>
-**Last performed:** November 14, 2006 (Sheffield, England)
+**Last performed:** November 14, 2006 (Sheffield, England)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

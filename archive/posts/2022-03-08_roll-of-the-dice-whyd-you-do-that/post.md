@@ -6,18 +6,18 @@ We've listened to dozens of original songs that Bruce wrote during that brief, b
 
 "Why'd You Do That" has all of nine unique lines, none of which provide any semblance of story or metaphor.
 
-> *I still got your picture hanging up upon my wall*
-> *I can still remember the day you gave it to me*
-> *You were kinda long and tall*
+> *I still got your picture hanging up upon my wall*<br>
+> *I can still remember the day you gave it to me*<br>
+> *You were kinda long and tall*<br>
 
-> *And they say I didn't ???*
-> *Honey why'd you do that*
+> *And they say I didn't ???*<br>
+> *Honey why'd you do that*<br>
 
-> *Well goodbye New Jersey, look out New York City here I come*
-> *You better watch out, you know I wanna get to you*
-> *I gotta get out on the run*
+> *Well goodbye New Jersey, look out New York City here I come*<br>
+> *You better watch out, you know I wanna get to you*<br>
+> *I gotta get out on the run*<br>
 
-> *?? night and day, everything's gonna be ok*
+> *?? night and day, everything's gonna be ok*<br>
 
 But let's not hold that against him. Written and performed at the tender age of twenty, Bruce's lyrics for "Why'd You Do That" are just a coat rack for the band to cut loose on some epic jams–and with only a core four on the stage (Bruce, Steven Van Zandt, Danny Federici, and Vini Lopez), each member gets a chance to shine.
 
@@ -26,7 +26,7 @@ But let's not hold that against him. Written and performed at the tender age of 
 **Why'd You Do That?**<br>
 Never recorded  
 Never released  
-**First performed:** July 17, 1970 (Asbury Park, NJ)
-**Last performed:** October 11, 1970 (Richmond, VA)
+**First performed:** July 17, 1970 (Asbury Park, NJ)<br>
+**Last performed:** October 11, 1970 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

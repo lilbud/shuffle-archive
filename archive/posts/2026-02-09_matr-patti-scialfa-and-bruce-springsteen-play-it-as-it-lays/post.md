@@ -1,4 +1,4 @@
-> "You make your choices in life, and then it comes down to your heart and your resilience." *–Patti Scialfa to Dennis Elsas, NPR, November 1, 2007*
+> "You make your choices in life, and then it comes down to your heart and your resilience." *–Patti Scialfa to Dennis Elsas, NPR, November 1, 2007*<br>
 
 Patti Scialfa's third album is (in my opinion, at least) the best album to be released by *anyone* in 2007. And yes, I'm well aware that her competition included an album by her husband.
 
@@ -17,7 +17,7 @@ The way Patti and Ron deploy Bruce throughout the song is something very close t
 To date, Bruce and Patti have never performed "Play It As It Lays" live, but they don't need to–it's perfect as is.
 
 **Play It As It Lays**<br>
-**Released:** *Play It As It Lays* (2007)
+**Released:** *Play It As It Lays* (2007)<br>
 **Never performed**<br>
 
 © October 12, 2020

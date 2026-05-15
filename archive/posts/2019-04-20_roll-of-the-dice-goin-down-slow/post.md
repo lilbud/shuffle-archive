@@ -51,7 +51,7 @@ So we'll appreciate this recording for what it is: a remarkably clear and very l
 **Goin' Down Slow**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** September 20, 1969 (Richmond, VA)
-**Last performed:** April 18, 1970 (Toms River, NJ)
+**First performed:** September 20, 1969 (Richmond, VA)<br>
+**Last performed:** April 18, 1970 (Toms River, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

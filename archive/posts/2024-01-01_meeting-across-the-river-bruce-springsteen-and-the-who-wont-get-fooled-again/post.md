@@ -22,5 +22,5 @@ January 17, 1990 (New York City, NY)
 May 28, 2015 (New York City, NY)
 
 **Won't Get Fooled Again**<br>
-**First performed:** <br>
+**First performed:**<br>
 **Last performed:**<br>

@@ -20,41 +20,41 @@ The Scopes Monkey Trial has about as much to do with understanding "Part Man, Pa
 
 Let's start with the first verse, the one that invites all the Scopes comparisons. (To be fair, Bruce almost always introduced the song with a direct reference to it.)
 
-> *They prosecuted some poor sucker in these United States*
-> *For teaching that man descended from the apes*
-> *They coulda settled that case without a fuss or fight*
-> *If they'd seen me chasing you, sugar, through the jungle last night*
-> *They'd a-called in that jury and a one two three, said*
-> *Part man, part monkey, definitely*
+> *They prosecuted some poor sucker in these United States*<br>
+> *For teaching that man descended from the apes*<br>
+> *They coulda settled that case without a fuss or fight*<br>
+> *If they'd seen me chasing you, sugar, through the jungle last night*<br>
+> *They'd a-called in that jury and a one two three, said*<br>
+> *Part man, part monkey, definitely*<br>
 
 *Why waste time with a trial*, Bruce argues. *I'm living proof that men are still part simian.*
 
 With the second verse, we leave the trial to the pages of history, as we learn that while our narrator may be single-minded, he's not exactly monogamous.
 
-> *Well the church bell rings from the corner steeple*
-> *Man in a monkey suit swears he'll do no evil*
-> *Offers his lover's prayer but his soul lies*
-> *Dark and drifting and unsatisfied*
-> *Well hey bartender tell me what do you see*
-> *Part man, part monkey, looks like to me*
+> *Well the church bell rings from the corner steeple*<br>
+> *Man in a monkey suit swears he'll do no evil*<br>
+> *Offers his lover's prayer but his soul lies*<br>
+> *Dark and drifting and unsatisfied*<br>
+> *Well hey bartender tell me what do you see*<br>
+> *Part man, part monkey, looks like to me*<br>
 
 Even on his wedding day, our narrator recognizes deep down that he's not a paragon of fidelity. It's only a matter of time before he strays, and he attributes that to millions of years of evolutionary biological urges. Let's pause for a moment to acknowledge the clever "monkey suit" reference–it serves both as common idiom for a tuxedo and as ironic humor (because he's more accurately a monkey in a man suit).
 
 The bridge sets up some romantic imagery, but we quickly learn that romance isn't really what's on his mind.
 
-> *Well the night is dark, the moon is full*
-> *The flowers of romance exert their pull*
-> *We talk awhile, my fingers slip*
-> *I'm hard and crackling like a whip*
+> *Well the night is dark, the moon is full*<br>
+> *The flowers of romance exert their pull*<br>
+> *We talk awhile, my fingers slip*<br>
+> *I'm hard and crackling like a whip*<br>
 
 Bruce wraps up the song by returning to the root of the debate: was the first man created divinely or via evolution? Our narrator enters himself into the evidentiary record as Exhibit A.
 
-> *Well did God make man in a breath of holy fire*
-> *Or did he crawl on up out of the muck and mire*
-> *Well the man on the street believes what the bible tells him so*
-> *But you can ask me, mister, because I know*
-> *Tell them soul-sucking preachers to come on down and see*
-> *Part man, part monkey, baby that's me*
+> *Well did God make man in a breath of holy fire*<br>
+> *Or did he crawl on up out of the muck and mire*<br>
+> *Well the man on the street believes what the bible tells him so*<br>
+> *But you can ask me, mister, because I know*<br>
+> *Tell them soul-sucking preachers to come on down and see*<br>
+> *Part man, part monkey, baby that's me*<br>
 
 The irony of "Part Man, Part Monkey" is that it's a slight song, yet it tends to get more credit than it deserves for having substance.
 
@@ -81,9 +81,9 @@ It's been absent ever since, most likely because it's an outlier in Bruce's cata
 It's still a fun song, though, and one that acknowledges an elemental truth: you can seek enlightenment all day long, but at the end of that day that inner monkey will still be there waiting for its turn at the wheel.
 
 **Part Man, Part Monkey**<br>
-**Recorded** January 1990  
-**Released:** *Tracks* (1998), *18 Tracks* (1999)
-**First performed:** February 25, 1988 (Worcester, MA)
-**Last performed:** August 19, 2008 (Hershey, PA)
+**Recorded** January 1990<br>
+**Released:** *Tracks* (1998), *18 Tracks* (1999)<br>
+**First performed:** February 25, 1988 (Worcester, MA)<br>
+**Last performed:** August 19, 2008 (Hershey, PA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,4 +1,4 @@
-> "I didn't even know I was up for a Grammy! I opened the newspaper on Monday and saw that I had won, and thought, ‘Well, that's great!'" *–Bruce Springsteen, MTV News, February 10, 2009*
+> "I didn't even know I was up for a Grammy! I opened the newspaper on Monday and saw that I had won, and thought, ‘Well, that's great!'" *–Bruce Springsteen, MTV News, February 10, 2009*<br>
 
 Coming from any other artist, under any other circumstances, that line might sound just a bit too coy.
 
@@ -19,7 +19,7 @@ Also: I'm going to focus on the "winter mix" for this essay, not the album versi
 Okay, let's go:
 
 [Watch Video Highlight](https://videopress.com/embed/NX1uEPta)
-> You know that song Bruce wrote, "Girls in Their Summer Clothes?" I heard that song and said, "This song should be on the radio, why is that not all over the radio?" I spoke to somebody recently, a Bruce fan, and I said, "Do you know this song? It is the most insightful song about aging. It is a song of experience, actually." And they said, "No, I don't know that." So these songs, they can slip through the cracks of culture. *— Bono, Rolling Stone Magazine, January 2018*
+> You know that song Bruce wrote, "Girls in Their Summer Clothes?" I heard that song and said, "This song should be on the radio, why is that not all over the radio?" I spoke to somebody recently, a Bruce fan, and I said, "Do you know this song? It is the most insightful song about aging. It is a song of experience, actually." And they said, "No, I don't know that." So these songs, they can slip through the cracks of culture. *— Bono, Rolling Stone Magazine, January 2018*<br>
 
 "Girls in Their Summer Clothes" was recorded during the *Magic* sessions, but both in sound and theme, it was really the first track recorded for *Working on a Dream*, an album that's lyrically all about growing old while musically celebrating the romance of youth. Had Bruce held the song back from *Magic* and featured it as the lead single from his next album instead, I have no doubt that both the single and the album would have received the attention and esteem they deserve.
 
@@ -29,50 +29,50 @@ Let's try an experiment. Put your headphones back on, take a few minutes, and li
 
 [Watch on Youtube: Born to Run](https://www.youtube.com/watch?v=z_XiRS8eF8w)
 
-Now go back and do the same thing with "Girls in Their Summer Clothes," and realize: *that's the same singer.*
+Now go back and do the same thing with "Girls in Their Summer Clothes," and realize: *that's the same singer.*<br>
 
 The similarity of sound between the songs only underscores the toll that age and life experience takes on all of us. "Born to Run" bristles and bursts with youthful energy and defiance; "Girls in Their Summer Clothes" is a world-weary song of acceptance–but with a flickering spark of vitality that occasionally peeks through and suggests to us: *that's the same character*.
 
 Although I've never seen him comment on it, I have no doubt that Bruce very much had his breakthrough album on his mind when he wrote this song. It's not just the music and production that's a callback to 1975–the lyrics are laden with the echoes of Bruce's songwriting youth:
 
-> *Well, the streetlights shine down on Blessing Avenue*
-> *Lovers they walk by, holding hands two by two*
-> *A breeze crosses the porch, bicycle spokes spin 'round*
-> *Jacket's on, I'm out the door, tonight I'm gonna burn this town down*
+> *Well, the streetlights shine down on Blessing Avenue*<br>
+> *Lovers they walk by, holding hands two by two*<br>
+> *A breeze crosses the porch, bicycle spokes spin 'round*<br>
+> *Jacket's on, I'm out the door, tonight I'm gonna burn this town down*<br>
 
 Our story begins at the very same place as the opening track of *Born to Run:* on the front porch. Notice the breeze that Bruce deliberately notes is crossing the porch–he leaves it to us to imagine a dress waving or swaying.
 
 Bruce employs the same cinematic technique here that he used in "Thunder Road," and there's no doubt in my mind that it's intentional. Entranced by the magic that is the Summer Evening, lured by visions of romance, our hero puts on his jacket and is out the door. Does the screen door slam behind him?
 
-> *And the girls in their summer clothes  
-in the cool of the evening light*
-> *The girls in their summer clothes  
-pass me by*
+> *And the girls in their summer clothes*<br>
+> *in the cool of the evening light*<br>
+> *The girls in their summer clothes*<br>
+> *pass me by*<br>
 
 And here in the chorus, we have one of the many wry devices Bruce employs in this song: three lines of soaring melody that lift us up before the fourth line dashes our hopes as it descends back to earth.
 
 This is the heart of the song: the singer's realization that he's no longer an actor but rather a spectator in his own story. Young at heart but old in body, he's unnoticed–or worse, dismissed–by the girls who catch his eye. We realize, at this point, that this is the reason for his keen eye for detail–observing is all that's left to him:
 
-> *A kid's rubber ball smacks off the gutter ‘neath the lamp light*
-> *Big bank clock chimes off go the sleepy front porch lights*
-> *Downtown the stores alight as the evening's underway*
+> *A kid's rubber ball smacks off the gutter ‘neath the lamp light*<br>
+> *Big bank clock chimes off go the sleepy front porch lights*<br>
+> *Downtown the stores alight as the evening's underway*<br>
 
 And yet… he can't quite shake that optimism:
 
-> *Things been a little tight but I know they're gonna turn my way*
+> *Things been a little tight but I know they're gonna turn my way*<br>
 
 Or is it bravado? Is he trying to convince us or himself? Because he still can't help but notice:
 
-> *…the girls in their summer clothes in the cool of the evening light*
-> *The girls in their summer clothes pass me by…*
+> *…the girls in their summer clothes in the cool of the evening light*<br>
+> *The girls in their summer clothes pass me by…*<br>
 
 And now, that bridge… oh, that bridge. Go ahead, listen to it again, just to hear the full E Street Band in all their glory. There may be no better 21st-century studio recording that captures the E Street sound better than this.
 
-> *Frankie's Diner's an old friend on the edge of town*
-> *The neon sign spinning round like a cross over the lost and found*
-> *The fluorescent lights flick above Pop's Grill*
-> *Shaniqua brings a coffee and asks, "fill?"*
-> *And says, "penny for your thoughts now my boy, Bill"*
+> *Frankie's Diner's an old friend on the edge of town*<br>
+> *The neon sign spinning round like a cross over the lost and found*<br>
+> *The fluorescent lights flick above Pop's Grill*<br>
+> *Shaniqua brings a coffee and asks, "fill?"*<br>
+> *And says, "penny for your thoughts now my boy, Bill"*<br>
 
 Okay, let's talk about Shaniqua for a moment. If you're like me, the first time you heard "Girls in Their Summer Clothes," you just about fell out of your chair at that line. *Shaniqua?* What happened to Mary? Was Janey busy that day?
 
@@ -86,10 +86,10 @@ Whether we overtly realize it or not, the warm, nostalgic "Born to Run" sound of
 
 That bridge is *devastatingly* effective in its subtlety, even moreso than the overt chorus, but we barely have a chance to realize it (especially in the overly literal video) before Max barrel-rolls us into the final verse:
 
-> *She went away, she cut me like a knife*
-> *Hello beautiful thing, maybe you could save my life*
-> *In just a glance down here on Magic Street*
-> *Love's a fool's dance, I ain't got much sense but I still got my feet*
+> *She went away, she cut me like a knife*<br>
+> *Hello beautiful thing, maybe you could save my life*<br>
+> *In just a glance down here on Magic Street*<br>
+> *Love's a fool's dance, I ain't got much sense but I still got my feet*<br>
 
 There's so much to love in these four lines. Just from a storytelling perspective, look how much information and context we suddenly receive:
 
@@ -100,13 +100,13 @@ There's so much to love in these four lines. Just from a storytelling perspectiv
 
 Oh, and just in case you're skeptical about my argument that Bruce is deliberately and lyrically contrasting "Girls in Their Summer Clothes" with "Thunder Road" throughout the song, take note of those last two lines before the last chorus:
 
-*In just a glance down here on Magic **Street***
-*Love's a fool's dance, I ain't got much sense but I still got my **feet***
+> *In just a glance down here on Magic **Street***<br>
+> *Love's a fool's dance, I ain't got much sense but I still got my **feet***<br>
 
 …and compare it with the last two lines of "Thunder Road" before its final coda:
 
-*They scream your name at night in the **street***
-*Your graduation gown lies in rags at their **feet***
+> *They scream your name at night in the **street***<br>
+> *Your graduation gown lies in rags at their **feet***<br>
 
 Well played, Bruce. Well played.
 
@@ -114,10 +114,9 @@ Bruce gives us one final chorus, but the song actually fades out on a wordless v
 
 The video drives this home even harder, with the girls now waving goodbye as the song fades out. My favorite moment is the final little girl who sticks her tongue out at Bruce in an innocent tease. It's cute, but it's also savage:
 
-*This world belongs to me*, she's saying, *and my story is just starting while yours ends.*
+*This world belongs to me*, she's saying, *and my story is just starting while yours ends.*<br>
 
 ---
-
 
 Bruce played "Girls in Their Summer Clothes" regularly throughout the Magic Tour, almost always as the opening encore. I always felt that was an odd placement, but then again it would have been sorely out of place in the heavily political setlists of that tour.
 
@@ -138,9 +137,9 @@ By request (my thanks to the fan who made the sign), Bruce played an impromptu v
 If we're fortunate enough to get at least one more solo acoustic tour, this is one song that I hope becomes a setlist staple. It's too beautiful to ignore, and it's one song that Bruce can only grow into, never out of.
 
 **Girls in Their Summer Clothes**<br>
-**Recorded** March-May 2007  
-**Released:** *Magic* (2007), *Girls in Their Summer Clothes* (2008, winter mix)
-**First performed:** September 24, 2007 (Asbury Park, NJ)
-**Last performed:** February 7, 2014 (Perth, Australia)
+**Recorded** March-May 2007<br>
+**Released:** *Magic* (2007), *Girls in Their Summer Clothes* (2008, winter mix)<br>
+**First performed:** September 24, 2007 (Asbury Park, NJ)<br>
+**Last performed:** February 7, 2014 (Perth, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

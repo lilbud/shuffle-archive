@@ -26,19 +26,19 @@ The melody would transform dramatically by the time the final version was record
 
 You probably noticed the different and extended chorus:
 
-> *This is your hometown, this is your hometown*
-> *The world you may travel around, but this is your hometown*
+> *This is your hometown, this is your hometown*<br>
+> *The world you may travel around, but this is your hometown*<br>
 
 And you almost certainly caught the alternative couplet that opens the final verse:
 
-> *Now there's a hill outside of town where me and my wife*
-> *Watch the stars rising bright in the black endless sky*
+> *Now there's a hill outside of town where me and my wife*<br>
+> *Watch the stars rising bright in the black endless sky*<br>
 
 (Kudos to Bruce for swapping that out–it makes the song end on an idyllic and therefore far less powerful note than the lyrics he'd eventually settle on.)
 
 And if you were paying very close attention, you might have even caught the extra bit of local color in the bridge:
 
-> *They're closing down the textile mill across the little Texas tracks*
+> *They're closing down the textile mill across the little Texas tracks*<br>
 
 (Texas was the name that locals gave to a Freehold neighborhood due to the concentration of southern migrants who had come north for work.)
 
@@ -62,11 +62,11 @@ Almost all of "My Hometown" is drawn from real-life events, the past rhyming wit
 
 In the first verse, the narrator is a little boy filled with pride as he "drives" through town with his father:
 
-> *I was eight years old and running with a dime in my hand*
-> *Into the bus stop to pick up a paper for my old man*
-> *I'd sit on his lap in that big old Buick and steer as we drove through town*
-> *He'd tousle my hair and say son take a good look around*
-> *This is your hometown*
+> *I was eight years old and running with a dime in my hand*<br>
+> *Into the bus stop to pick up a paper for my old man*<br>
+> *I'd sit on his lap in that big old Buick and steer as we drove through town*<br>
+> *He'd tousle my hair and say son take a good look around*<br>
+> *This is your hometown*<br>
 
 On stage, Bruce would often say that when he wrote "My Hometown," he was trying to imagine himself as a father, even though he really couldn't. But the memory of sitting on his dad's lap and steering as they drove through town–that was real, and ironically it was that very distant memory that made it possible at the age of 33 to picture himself as a father.
 
@@ -74,17 +74,17 @@ When you're a boy, and you're out with your father, and it feels like you're dri
 
 When you're eight years old, your parents are still paragons, and your home is a haven. It's only as you grow that the imperfections in both appear.
 
-> *In '65 tension was running high at my high school*
-> *There was a lot of fights between the black and white, there was nothing you could do*
-> *Two cars at a light on a Saturday night, in the back seat there was a gun*
-> *Words were passed in a shotgun blast, troubled times had come*
-> *To my hometown*
+> *In '65 tension was running high at my high school*<br>
+> *There was a lot of fights between the black and white, there was nothing you could do*<br>
+> *Two cars at a light on a Saturday night, in the back seat there was a gun*<br>
+> *Words were passed in a shotgun blast, troubled times had come*<br>
+> *To my hometown*<br>
 
 We've flashed forward in time now, and our eight-year old is now in high school.
 
 When discussing "My Hometown," it's almost always the drawn-from-the-headlines second half of that verse that gets the attention. But the heart of the entire song is hidden away in the first half:
 
-> *There was nothing you could do.*
+> *There was nothing you could do.*<br>
 
 Of course there was something you could do. Across America during the civil rights era, high school and college students took to the streets in protest, support, and activism.
 
@@ -94,19 +94,19 @@ While our attention is diverted by a tragic shooting, Bruce slipped his theme pa
 
 Let's flash forward again, to the present.
 
-> *Now Main Street's whitewashed windows and vacant stores*
-> *Seems like there ain't nobody wants to come down here no more*
-> *They're closing down the textile mill across the railroad tracks*
-> *Foreman says these jobs are going boys and they ain't coming back*
-> *To your hometown*
+> *Now Main Street's whitewashed windows and vacant stores*<br>
+> *Seems like there ain't nobody wants to come down here no more*<br>
+> *They're closing down the textile mill across the railroad tracks*<br>
+> *Foreman says these jobs are going boys and they ain't coming back*<br>
+> *To your hometown*<br>
 
 Bruce isn't comparing hard economic times with hate crimes and civil unrest, but he *is* telling us that we'll all be tested someday, and we'll have to choose: do we become part of the solution, stay part of the problem, or do we just pack up and leave?
 
-> *Last night me and Kate we laid in bed talking about getting out*
-> *Packing up our bags maybe heading south*
-> *I'm thirty-five, we got a boy of our own now*
-> *Last night I sat him up behind the wheel and said son take a good look around*
-> *This is your hometown*
+> *Last night me and Kate we laid in bed talking about getting out*<br>
+> *Packing up our bags maybe heading south*<br>
+> *I'm thirty-five, we got a boy of our own now*<br>
+> *Last night I sat him up behind the wheel and said son take a good look around*<br>
+> *This is your hometown*<br>
 
 The contrast between the first and last verses couldn't be more stark: the prideful eight-year-old son is now a father with a song of his own. As the saying goes, history doesn't repeat itself, but it does rhyme: "My Hometown" ends as it begins, but this time with a warning rather than a blessing, foreboding rather than pride.
 
@@ -114,10 +114,10 @@ Take a good look around, says the father to the son, because it may not last muc
 
 "My Hometown" trails off without a final chorus, a by-design effect to make the song feel unresolved. Thirty years later, however, Bruce would revisit the theme of "My Hometown"–and possibly the place and the characters–when he wrote the *Wrecking Ball* album.
 
-> *They destroyed our families, factories*
-> *And they took our homes*
-> *They left our bodies on the plains*
-> *The vultures picked our bones*
+> *They destroyed our families, factories*<br>
+> *And they took our homes*<br>
+> *They left our bodies on the plains*<br>
+> *The vultures picked our bones*<br>
 
 Just like the surely intentional similarity of their titles, the bridge of "Death to My Hometown" is meant to parallel the bridge of "My Hometown."
 
@@ -178,8 +178,8 @@ Today Bruce lives ten minutes from his hometown, which tells us all we need to k
 
 **My Hometown**<br>
 **Recorded:** June 29, 1983  
-**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995)
-**First performed:** June 8, 1984 (Asbury Park, NJ)
-**Last performed:** July 11, 2023 (Copenhagen, Denmark)
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995)<br>
+**First performed:** June 8, 1984 (Asbury Park, NJ)<br>
+**Last performed:** July 11, 2023 (Copenhagen, Denmark)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

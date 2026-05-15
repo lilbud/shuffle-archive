@@ -48,6 +48,6 @@ But one night in 1987, Bruce (and most of the E Street Band) joined Cats on a Sm
 
 **Kansas City  
 First performed:** January 11, 1979 (Fair Haven, NJ)
-**Last performed:** November 17, 2012 (Kansas City, MO)
+**Last performed:** November 17, 2012 (Kansas City, MO)<br>
 
  

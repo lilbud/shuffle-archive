@@ -1,6 +1,6 @@
 On the night of November 18, 2009, in the final week of the Working on a Dream Tour in Nashville, Bruce opened the encores with those words every Springsteen fan loves to hear:
 
-> *"We've never played this before…"*
+> *"We've never played this before…"*<br>
 
 And then without further ado, he launched into a just-for-Nashville cover of Johnny Cash's "Ring of Fire" (taking full advantage of Curt Ramm).
 
@@ -37,5 +37,5 @@ I bring that last one up because the one other time that Bruce performed "Ring o
 [Watch on Youtube: Social Distortion w/ Bruce Springsteen - Ring of Fire - 9/30/18 - Asbury Park NJ - Sea.Hear.Now](https://www.youtube.com/watch?v=MKWlQy9d2Ug)
 
 **Ring of Fire**<br>
-**First performed:** March 13, 1973 (Boston, MA)
-**Last performed:** September 30, 2018 (Asbury Park, NJ)
+**First performed:** March 13, 1973 (Boston, MA)<br>
+**Last performed:** September 30, 2018 (Asbury Park, NJ)<br>

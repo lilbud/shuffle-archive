@@ -96,7 +96,7 @@ Only once in the post-Reunion era did "Lion's Den" get an outing beyond the Penn
 **Lion's Den**<br>
 **Recorded** January 25, 1982 (core recording), 1998 (horns)
 **Released:** *Tracks* (1998), *18 Tracks* (1999)
-**First performed:** June 3, 1999 (Paris, France)
-**Last performed:** November 1, 2012 (University Park, PA)
+**First performed:** June 3, 1999 (Paris, France)<br>
+**Last performed:** November 1, 2012 (University Park, PA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -20,29 +20,29 @@ Comparing the two contemporaneous performances gives us a pretty good idea of ho
 
 As for Bruce's lyrics, there's not much to analyze here–this is Bruce in pop mode. Still, there a few early instances of what would shortly become early Springsteen trademarks: the internal rhymes, the alliteration, and of course the totemization of the guitar:
 
-> *I been looking, I been searching, I been like a buzzard perching on a branch*
-> *I been stopping, I been hopping, I been bopping, I been running out of gas*
-> *Tonight I'm gonna go to the ranch*
-> *And I'm looking for love, trying for sweet romance*
-> *But I know what you're gonna do*
-> *Cause all I wanna do is dance*
+> *I been looking, I been searching, I been like a buzzard perching on a branch*<br>
+> *I been stopping, I been hopping, I been bopping, I been running out of gas*<br>
+> *Tonight I'm gonna go to the ranch*<br>
+> *And I'm looking for love, trying for sweet romance*<br>
+> *But I know what you're gonna do*<br>
+> *Cause all I wanna do is dance*<br>
 
-> *Well I been learning, I been burning, I been running on my midnight lamp*
-> *I been escaping, I been aching, I've been scraping up to buy me an amp*
-> *Well Friday night I go to the hop*
-> *My feet they move so fast that they just can't stop*
-> *Child, what've I gotta do now, tell me*
-> *Cause all I wanna do is dance with you*
+> *Well I been learning, I been burning, I been running on my midnight lamp*<br>
+> *I been escaping, I been aching, I've been scraping up to buy me an amp*<br>
+> *Well Friday night I go to the hop*<br>
+> *My feet they move so fast that they just can't stop*<br>
+> *Child, what've I gotta do now, tell me*<br>
+> *Cause all I wanna do is dance with you*<br>
 
-> *Oh baby you know that I need you and I know that you need me*
-> *I'll learn to play guitar for you, woman I'll be a star for you*
+> *Oh baby you know that I need you and I know that you need me*<br>
+> *I'll learn to play guitar for you, woman I'll be a star for you*<br>
 
-> *Well look out Mama, cause I'm taking over*
-> *Oh step back kids, let the music roll you over*
-> *I can do anything, anything that you wanna do*
-> *That's alright with me, girl*
-> *Ah won't you come on through and ??? wanna do*
-> *Yeah, come on babe, let me see you ???*
+> *Well look out Mama, cause I'm taking over*<br>
+> *Oh step back kids, let the music roll you over*<br>
+> *I can do anything, anything that you wanna do*<br>
+> *That's alright with me, girl*<br>
+> *Ah won't you come on through and ??? wanna do*<br>
+> *Yeah, come on babe, let me see you ???*<br>
 
 Before long, Bruce would turn his attention to more serious subjects, but in 1971 and 1972, The Bruce Springsteen Band was often just focused on providing a good dance party. (Besides "All I Want to Do Is Dance," the band's repertoire also included Springsteen originals like "Dance Dance Dance" and "When You Dance.")
 
@@ -51,7 +51,7 @@ If Bruce ever surprises us with an archive series document of one of these early
 **All I Want to Do Is Dance  
 **Never recorded**<br>
 **Never released**  
-**First performed:** February 4, 1972 (Richmond, VA)  
-**Last performed:** February 26, 1972 (Richmond, VA)
+**First performed:** February 4, 1972 (Richmond, VA)<br>
+**Last performed:** February 26, 1972 (Richmond, VA)<br>
 
 © April 20, 2021

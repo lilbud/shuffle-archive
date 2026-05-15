@@ -6,28 +6,28 @@ Unlike many of other acoustic outtakes from this period, "The Klansman" is virtu
 
 The melody is sinister and foreboding (Bruce plays every instrument); we know that something bad is afoot almost before Bruce lays it out in the opening verse:
 
-> *Word of the trouble spread around*
-> *One day a man came to my town*
-> *In the kitchen when my Pa let him in*
-> *He shook my hand, said, "Son, the Klan's your friend"*
+> *Word of the trouble spread around*<br>
+> *One day a man came to my town*<br>
+> *In the kitchen when my Pa let him in*<br>
+> *He shook my hand, said, "Son, the Klan's your friend"*<br>
 
 We never learn what the "trouble" is, but given the greeting of the mysterious visitor, it isn't hard to imagine. The recruiter continues–presumably addressing the father now:
 
-> *"Was a meeting at Lyle Stanton's house on the Jefferson Highway*
-> *Some they did not listen, some did not turn away"*
+> *"Was a meeting at Lyle Stanton's house on the Jefferson Highway*<br>
+> *Some they did not listen, some did not turn away"*<br>
 
-> *Said, "When the holy rain of fire comes tumbling from above*
-> *It'll be a Klansman who stands for the land he loves"*
-> *Look away, look away now*
+> *Said, "When the holy rain of fire comes tumbling from above*<br>
+> *It'll be a Klansman who stands for the land he loves"*<br>
+> *Look away, look away now*<br>
 
 That's a pretty strong pitch. We're left to wonder how the father will react during a short instrumental interlude, and then the story continues, some time later:
 
-> *I was ten years old when my Pa said, "Son, some day you will see*
-> *When you grow to wear the robes like your brother and me"*
+> *I was ten years old when my Pa said, "Son, some day you will see*<br>
+> *When you grow to wear the robes like your brother and me"*<br>
 
-> *"When the war between the races leaves us in a fiery dream*
-> *It'll be a Klansman who will wipe this country clean*
-> *This, son, is my dream"*
+> *"When the war between the races leaves us in a fiery dream*<br>
+> *It'll be a Klansman who will wipe this country clean*<br>
+> *This, son, is my dream"*<br>
 
 Bruce's vocals give nothing away–his delivery is unflinching. We can discern neither a young boy's pride in his father nor a grown man's shame.
 

@@ -13,7 +13,7 @@ Orbison originally released "Blue Angel" in 1960. It peaked at #9 on the U.S. Ho
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YUMFNz0IpEQ)
 
 **Blue Angel**<br>
-**First performed:** September 30, 1987 (Los Angeles, CA)
-**Last performed:** September 30, 1987 (Los Angeles, CA)
+**First performed:** September 30, 1987 (Los Angeles, CA)<br>
+**Last performed:** September 30, 1987 (Los Angeles, CA)<br>
 
 © November 5, 2018

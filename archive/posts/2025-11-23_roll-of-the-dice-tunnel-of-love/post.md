@@ -1,4 +1,4 @@
-> Julie was already sleeping one evening as I came to bed. There, in the darkness, the bedside lamp caught a glint of my wedding ring… . I'd never taken it off; something inside of me told me I never would, never should. I sat on the edge of the bed, gave it a light tug and watched as it slid off my finger. An ocean of despair swept over me and I felt faint. My pulse leapt and I could feel my heart threatening to push through my chest. I got up, made my way to the bathroom, ran cold water over my face and neck, then, gathering myself, beneath the bathroom's fluorescent light, I slipped my ring back on. I walked back into the shadows of our bedroom, a room containing all my mysteries and fears, where my lovely wife lay in bed, her body just an outline, a dark, gentle ridge of tousled covers. I placed my hand upon her shoulders, moved my palm over her cheek, breathed in, felt the air return to my lungs, pulled back the sheets, climbed in and went to sleep. – *Bruce Springsteen, Born to Run (2016)*
+> Julie was already sleeping one evening as I came to bed. There, in the darkness, the bedside lamp caught a glint of my wedding ring… . I'd never taken it off; something inside of me told me I never would, never should. I sat on the edge of the bed, gave it a light tug and watched as it slid off my finger. An ocean of despair swept over me and I felt faint. My pulse leapt and I could feel my heart threatening to push through my chest. I got up, made my way to the bathroom, ran cold water over my face and neck, then, gathering myself, beneath the bathroom's fluorescent light, I slipped my ring back on. I walked back into the shadows of our bedroom, a room containing all my mysteries and fears, where my lovely wife lay in bed, her body just an outline, a dark, gentle ridge of tousled covers. I placed my hand upon her shoulders, moved my palm over her cheek, breathed in, felt the air return to my lungs, pulled back the sheets, climbed in and went to sleep. – *Bruce Springsteen, Born to Run (2016)*<br>
 
 Even today, it sounds unlike anything else Bruce has ever recorded. It stands apart, both from the album it lent its title to and from the rest of Bruce's catalog.
 
@@ -14,12 +14,11 @@ Reports first surfaced of Bruce's separation from Julianne Phillips, his first w
 
 Today, we know their relationship was on the rocks long before. While Bruce has never explicitly addressed when he and Patti first hooked up, he's dropped several breadcrumbs over the years. In his 2016 autobiography, Bruce wrote:
 
-> *It was a September night, the moon a slim fingernail in the western sky over the silhouetted  
-wood that bordered the backyard…. After seventeen years of sporadically bumping into each other, then two of working side by side, somewhat flirtatiously, there came a moment when I looked at Patti and saw something different, something new, something I'd missed and hadn't experienced before…. So, it started.*
+> *It was a September night, the moon a slim fingernail in the western sky over the silhouetted wood that bordered the backyard…. After seventeen years of sporadically bumping into each other, then two of working side by side, somewhat flirtatiously, there came a moment when I looked at Patti and saw something different, something new, something I'd missed and hadn't experienced before…. So, it started.*<br>
 
 Since Patti joined the E Street Band just a few days prior to the Born in the U.S.A. Tour in June 1984, that would put us in September 1986. Bruce continued:
 
-> *At first, I told myself it was just "a thing." It wasn't. It was the thing. The surreptitiousness didn't last long and I came clean to Julie as soon as I knew how serious Patti and I were… Soon I'd be separated and photographed in my tighty-whities with Patti on a balcony in Rome.*
+> *At first, I told myself it was just "a thing." It wasn't. It was the thing. The surreptitiousness didn't last long and I came clean to Julie as soon as I knew how serious Patti and I were… Soon I'd be separated and photographed in my tighty-whities with Patti on a balcony in Rome.*<br>
 
 [That paparazzi incident](https://estreetshuffle.com/index.php/2021/06/15/kingdom-of-days-june-15-2/) was almost two years after Bruce and Patti first started discretely dating. If we take Bruce at his word that he came clean to Julie relatively quickly, we can assume that they separated well before the Tunnel of Love Express Tour kicked off. Indeed, Brucebase pegs the separation date in April 1987, and while I've never seen any other source confirm it, I'm inclined to believe it.
 
@@ -41,24 +40,24 @@ He certainly does so. The introduction to "Tunnel of Love" is a twenty-second wh
 
 Which is exactly what our narrator is experiencing as the lyrics begin. In Bruce's first verse, all is… well, not exactly innocent, but at least simple.
 
-> *Fat man sitting on a little stool*
-> *Takes the money from my hand while his eyes take a walk all over you*
-> *Hands me two tickets, smiles and whispers good luck*
-> *Well cuddle up angel, cuddle up my little dove*
-> *We'll ride down baby into this tunnel of love*
+> *Fat man sitting on a little stool*<br>
+> *Takes the money from my hand while his eyes take a walk all over you*<br>
+> *Hands me two tickets, smiles and whispers good luck*<br>
+> *Well cuddle up angel, cuddle up my little dove*<br>
+> *We'll ride down baby into this tunnel of love*<br>
 
 It's the early days of our narrator's relationship, all new and exciting. The ride attendant takes his money (and his girl's measure, in a cleverly constructed line), wishes him luck and sends the lovers on their way.
 
 In the second verse, things get physical as our riders find themselves alone in the dark.
 
-> *Well I can feel the soft silk of your blouse*
-> *And them soft thrills in our little fun house*
+> *Well I can feel the soft silk of your blouse*<br>
+> *And them soft thrills in our little fun house*<br>
 
 But those early days of physical connection quickly give way to emotional intimacy, and that's when things get scary.
 
-> *Then the lights go out and it's just the three of us*
-> *Yeah, you me and all that stuff we're so scared of*
-> *Gotta ride down baby into this tunnel of love*
+> *Then the lights go out and it's just the three of us*<br>
+> *Yeah, you me and all that stuff we're so scared of*<br>
+> *Gotta ride down baby into this tunnel of love*<br>
 
 For all of Bruce's celebrated lyrics, I'd argue that those lines above deserve to rank among them. It's the most perceptive line in the song (and the second most on the album, behind the closing lines of "Brilliant Disguise"), and with their arrival we finally hear Bruce acknowledge in his writing the fear of intimacy that he would so eloquently describe in his autobiography decades later.
 
@@ -66,20 +65,20 @@ It's a fantastic line, and I bet Bruce thinks so too, because if you watch the v
 
 In the second half of "Tunnel of Love," Bruce explores the rest of the carnival, putting the other attractions to brilliant metaphorical use: the funhouse mirrors that distort our images of each other like our own emotional lenses do; the room of shadows that so easily hides parts of us where our partners can't see; the haunted house that draws our characters together to face their fright as a pair.
 
-> *There's a crazy mirror showing us both in 5-D*
-> *I'm laughing at you, you're laughing at me*
-> *There's a room of shadows that gets so dark brother*
-> *It's easy for two people to lose each other in this tunnel of love*
+> *There's a crazy mirror showing us both in 5-D*<br>
+> *I'm laughing at you, you're laughing at me*<br>
+> *There's a room of shadows that gets so dark brother*<br>
+> *It's easy for two people to lose each other in this tunnel of love*<br>
 
 That second line–"I'm laughing at you, you're laughing at me"–has always tugged at me. Are Bruce's characters laughing in amusement or in scorn? The line works either way, and I suspect Bruce knew it when he wrote it.
 
 And then there's that break: enter Patti Scialfa–literally. She makes her first off-screen and on-screen appearance in a Springsteen video at this moment (she doesn't perform on "Brilliant Disguise" which preceded "Tunnel of Love" as the album's first single), walking out of the shadows and into Bruce's life, her passionately wordless vocals underscoring Bruce's final, hopeful verse:
 
-> *Well, it ought to be easy, it ought to be simple enough*
-> *Yeah, man meets woman and they fall in love*
-> *But this house is haunted and the ride gets rough*
-> *You've got to learn to live with what you can't rise above*
-> *If you want to ride on down, down through this tunnel of love*
+> *Well, it ought to be easy, it ought to be simple enough*<br>
+> *Yeah, man meets woman and they fall in love*<br>
+> *But this house is haunted and the ride gets rough*<br>
+> *You've got to learn to live with what you can't rise above*<br>
+> *If you want to ride on down, down through this tunnel of love*<br>
 
 It feels disrespectful to say this given how incredible Patti's own three albums are, but her backing vocals here are among her best performances on record, just spectacular. And *come on*: could you ask for a more dramatic introduction?
 
@@ -117,9 +116,9 @@ But don't count out future appearances. "Tunnel of Love" is too significant a tr
 
 
 **Tunnel of Love**<br>
-**Recorded** June-July, 1987  
-**Released:** *Tunnel of Love* (1987), *The Essential Bruce Springsteen* (2003)
-**First performed:** February 25, 1988 (Worcester, MA)
-**Last performed:** June 25, 2016 (Gothenburg, Sweden)
+**Recorded** June-July, 1987<br>
+**Released:** *Tunnel of Love* (1987), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** February 25, 1988 (Worcester, MA)<br>
+**Last performed:** June 25, 2016 (Gothenburg, Sweden)<br>
 
 (c) June 15, 2021

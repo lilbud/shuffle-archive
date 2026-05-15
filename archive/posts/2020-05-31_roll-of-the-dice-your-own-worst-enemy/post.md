@@ -109,9 +109,9 @@ But in 2010, Bruce took a run at a solo acoustic arrangement and hit it out of t
 Bruce performed "Your Own Worst Enemy" twice since, each time acoustic. I suspect that's the way we'll hear it from now on–and hear it we will, because sadly the song has only grown in relevance in recent years.
 
 **Your Own Worst Enemy**<br>
-**Recorded** March-May 2007  
-**Released:** *Magic* (2007)
-**First performed:** October 10, 2007 (East Rutherford, NJ)
-**Last performed:** November 4, 2011 (Pittsburgh, PA)
+**Recorded** March-May 2007<br>
+**Released:** *Magic* (2007)<br>
+**First performed:** October 10, 2007 (East Rutherford, NJ)<br>
+**Last performed:** November 4, 2011 (Pittsburgh, PA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

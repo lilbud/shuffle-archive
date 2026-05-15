@@ -57,7 +57,7 @@ Hearing the song for the first time in concert, did his fans understand the true
 **There Will Never Be Any Other for Me But You**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** September 19, 1996 (Providence, RI)
-**Last performed:** May 10, 1997 (Warsaw, Poland)
+**First performed:** September 19, 1996 (Providence, RI)<br>
+**Last performed:** May 10, 1997 (Warsaw, Poland)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

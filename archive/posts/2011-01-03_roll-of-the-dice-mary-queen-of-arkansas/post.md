@@ -101,9 +101,9 @@ It's almost impossible to predict whether she'll make a return appearance–she'
 I suspect he still holds her in higher esteem than most of his listeners do.
 
 **Mary Queen of Arkansas**<br>
-**Recorded** June 26-27, 1972  
-**Released:** *Greetings From Asbury Park, N.J.* (1973)
-**First performed:** May 2, 1972 (New York City, NY)
-**Last performed:** May 22, 2014 (Pittsburgh, PA)
+**Recorded** June 26-27, 1972<br>
+**Released:** *Greetings From Asbury Park, N.J.* (1973)<br>
+**First performed:** May 2, 1972 (New York City, NY)<br>
+**Last performed:** May 22, 2014 (Pittsburgh, PA)<br>
 
 © May 12, 2021

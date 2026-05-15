@@ -18,7 +18,7 @@ February 5, 1975 (Bryn Mawr, PA)
 December 27, 1975 (Philadelphia, PA)
 
 **Back in the U.S.A.**<br>
-**First performed:** <br>
+**First performed:**<br>
 **Last performed:**<br>
 
 (c) March 11, 2019

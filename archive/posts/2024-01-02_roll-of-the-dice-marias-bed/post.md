@@ -16,26 +16,26 @@ It's no slouch lyrically either, but it's also something of a puzzle. At times i
 
 But "Maria's Bed" is also full of callbacks to and swipes from other Springsteen songs–so much so that one can't help but wonder if Bruce was being lazy or deliberate:
 
-> *Been on a barbed wire highway 40 days and nights*
-> *I ain't complaining, that's my job and it suits me right*
-> *I got a sweet soft fever rushing around my head*
-> *I'm gonna sleep tonight in Maria's bed*
+> *Been on a barbed wire highway 40 days and nights*<br>
+> *I ain't complaining, that's my job and it suits me right*<br>
+> *I got a sweet soft fever rushing around my head*<br>
+> *I'm gonna sleep tonight in Maria's bed*<br>
 
 Four lines in, and we might as well be listening to "[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/):"
 
-> *I work for the county out on ninety five*
-> *All day I hold a red flag and watch the traffic pass me by*
-> *In my head I keep a picture of a pretty little miss*
-> *Someday, mister, I'm gonna lead a better life than this*
+> *I work for the county out on ninety five*<br>
+> *All day I hold a red flag and watch the traffic pass me by*<br>
+> *In my head I keep a picture of a pretty little miss*<br>
+> *Someday, mister, I'm gonna lead a better life than this*<br>
 
 Pretty similar first verses, don't you think?
 
 But the second verse of "Maria's Bed" is a *verbatim* swipe from a different Springsteen song:
 
-> *Got on a dead man's suit and smiling skull ring*
-> *Lucky graveyard boots and a song to sing*
-> *I keep my heart in my work, my troubles in my head*
-> *And I keep my soul in Maria's bed*
+> *Got on a dead man's suit and smiling skull ring*<br>
+> *Lucky graveyard boots and a song to sing*<br>
+> *I keep my heart in my work, my troubles in my head*<br>
+> *And I keep my soul in Maria's bed*<br>
 
 Those first two lines made a previous appearance in "[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)" on Bruce's previous album, *The Rising–*and that song actually dates back to the Reunion Tour, which raises the question:
 
@@ -45,29 +45,29 @@ I tend to side toward the latter as the more likely explanation: we already know
 
 Either way, it's an odd choice of phrasing for a song like "Maria's Bed." It works perfectly in "Further On (Up the Road)" but here it's jarring. Perhaps that's the point, though: Bruce devotes a few lines of grim, dark shading in order to more effectively offset the remainder of the song, which paints Maria in primary colors:
 
-> *I been up on sugar mountain, ‘cross the sweet blue seas*
-> *I walked the valley of love and tears and mystery*
-> *I got run out of luck and gave myself up for dead*
-> *Then I drank the cool clear waters from Maria's bed*
+> *I been up on sugar mountain, ‘cross the sweet blue seas*<br>
+> *I walked the valley of love and tears and mystery*<br>
+> *I got run out of luck and gave myself up for dead*<br>
+> *Then I drank the cool clear waters from Maria's bed*<br>
 
-> *She give me candy stick kisses ‘neath a wolf dog moon*
-> *One sweet breath and she'll take you, mister, to the upper room*
-> *I was burned by the angels, sold wings of lead*
-> *Then I fell in the roses and sweet salvation of Maria's bed*
+> *She give me candy stick kisses ‘neath a wolf dog moon*<br>
+> *One sweet breath and she'll take you, mister, to the upper room*<br>
+> *I was burned by the angels, sold wings of lead*<br>
+> *Then I fell in the roses and sweet salvation of Maria's bed*<br>
 
 The final verse features some wonderfully apt metaphor:
 
-> *I been out in the desert, yeah doing my time*
-> *Sifting through the dust for fools gold, looking for a sign*
-> *Holy man said, "Hold on, brother, there's a light up ahead."*
-> *Ain't nothing like the light that shines on me in Maria's bed*
+> *I been out in the desert, yeah doing my time*<br>
+> *Sifting through the dust for fools gold, looking for a sign*<br>
+> *Holy man said, "Hold on, brother, there's a light up ahead."*<br>
+> *Ain't nothing like the light that shines on me in Maria's bed*<br>
 
 It's so good, in fact, that Bruce used it once before–a second swipe from "Further On (Up the Road):"
 
-> *Now I been out in the desert just doing my time*
-> *Searching through the dust looking for a sign*
-> *If there's a light up ahead, well brother I don't know*
-> *But I got this fever burning in my soul*
+> *Now I been out in the desert just doing my time*<br>
+> *Searching through the dust looking for a sign*<br>
+> *If there's a light up ahead, well brother I don't know*<br>
+> *But I got this fever burning in my soul*<br>
 
 Notice the almost-verbatim recycling of the first two lines and the parallel (but more faithful in "Maria's Bed") third line. Even the "fever" reference in the last line of "Further" appears in similar form earlier in "Maria's Bed," strengthening the argument that both songs were written around the same time.
 
@@ -107,6 +107,6 @@ Chalk up its continuing absence from the E Street stage as just anther of the my
 
 **Maria's Bed**<br>
 **Recorded** 1996-2004**Released:** *Devils & Dust* (2005)
-**First performed:** March 10, 2005 (Asbury Park, NJ)**Last performed:** July 20, 2013 (Belfast, Northern Ireland)
+**First performed:** March 10, 2005 (Asbury Park, NJ)**Last performed:** July 20, 2013 (Belfast, Northern Ireland)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

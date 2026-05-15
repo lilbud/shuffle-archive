@@ -2,8 +2,8 @@ A deep cut from an underrated album, "With Every Wish" escaped my understanding 
 
 I was 23, very newly wed, and invincible. When I first heard "With Every Wish," I focused on the chorus:
 
-> *Before you choose your wish, son, you better think first:*
-> *With every wish there comes a curse.*
+> *Before you choose your wish, son, you better think first:*<br>
+> *With every wish there comes a curse.*<br>
 
 …and thought, incorrectly, that the song was a warning to choose wisely, that making the wrong choice can have unforeseen consequences.
 
@@ -19,13 +19,13 @@ At 23, I completely missed the word "every," and I didn't grok the third verse a
 
 *These days I sit around and laugh a**t the many rivers I've crossed*
 *But on the far banks there's always another forest w**here a man can get lost*
-> *Well there in the high trees love's bluebird glides*
-> *Guiding us ‘cross to another river on the other side*
-> *And there someone is waitin' with a look in her eyes*
+> *Well there in the high trees love's bluebird glides*<br>
+> *Guiding us ‘cross to another river on the other side*<br>
+> *And there someone is waitin' with a look in her eyes*<br>
 *And though my heart's grown weary a**nd more than a little bit shy*
-> *Tonight I'll drink from her waters to quench my thirst*
-> *And leave the angels to worry*
-> *With every wish…*
+> *Tonight I'll drink from her waters to quench my thirst*<br>
+> *And leave the angels to worry*<br>
+> *With every wish…*<br>
 
 A quarter-century down the road, though, I get it.
 
@@ -59,8 +59,8 @@ But when he tries to skip over the sad parts, his son makes him go back and read
 [Watch Video Highlight](https://videopress.com/embed/G9xPqO8U)
 
 **With Every Wish**<br>
-**Recorded** Late 1989**Released:** *Human Touch*, 1992  
-**First Performed:** June 15, 1992 (Stockholm)
+**Recorded** Late 1989**Released:** *Human Touch*, 1992<br>
+**First Performed:** June 15, 1992 (Stockholm)<br>
  **Last Performed:** July 23, 1992 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

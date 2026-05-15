@@ -1,4 +1,4 @@
-> "We are ghosts or we are ancestors in our children's lives. We either lay our mistakes, our burdens upon them and we haunt them, or we assist them in laying those old burdens down, and we free them from the chain of our own flawed behavior. And as ancestors, we walk alongside them, and we assist them in finding their own way, and some transcendence." *–Bruce Springsteen, Springsteen on Broadway*
+> "We are ghosts or we are ancestors in our children's lives. We either lay our mistakes, our burdens upon them and we haunt them, or we assist them in laying those old burdens down, and we free them from the chain of our own flawed behavior. And as ancestors, we walk alongside them, and we assist them in finding their own way, and some transcendence." *–Bruce Springsteen, Springsteen on Broadway*<br>
 
 Bruce Springsteen said those words while recalling "the greatest moment in my life with my dad"–the moment his father offered his version of an apology to the son he hadn't shown up for when he had the chance.
 
@@ -40,21 +40,21 @@ In the acoustic version, we can see the narrator's night sky. We can hear the cr
 
 It's on this night, in this setting, where we join our narrator at the moment of his awakening.
 
-> *Out where the creek turns shallow and sandy*
-> *And the moon comes skimming away the stars*
-> *The wind in the mesquite comes rushing over the hilltops*
-> *Straight into my arms*
-> *Straight into my arms*
+> *Out where the creek turns shallow and sandy*<br>
+> *And the moon comes skimming away the stars*<br>
+> *The wind in the mesquite comes rushing over the hilltops*<br>
+> *Straight into my arms*<br>
+> *Straight into my arms*<br>
 
-> *I'm riding hard carrying a cache of roses*
-> *And a fresh map that I made*
-> *Tonight I'm gonna get birth naked and bury my old soul*
-> *And dance on its grave*
-> *And dance on its grave*
+> *I'm riding hard carrying a cache of roses*<br>
+> *And a fresh map that I made*<br>
+> *Tonight I'm gonna get birth naked and bury my old soul*<br>
+> *And dance on its grave*<br>
+> *And dance on its grave*<br>
 
-> *It's been a long time coming, my dear*
-> *It's been a long time coming, but now it's here*
-> *And now it's here*
+> *It's been a long time coming, my dear*<br>
+> *It's been a long time coming, but now it's here*<br>
+> *And now it's here*<br>
 
 Even for a songwriter as fond of metaphor as Bruce, there is a *lot* of symbolism in the first third of "Long Time Comin'."
 
@@ -64,21 +64,21 @@ Our narrator rides hard through this life, but he now carries love where he once
 
 His freedom from his ghosts is what's been long in coming, and the arrival of his ancestors. In the middle section of the song, we learn why.
 
-> *Well my daddy he was just a stranger*
-> *Lived in a hotel downtown*
-> *Well when I was a kid he was just somebody*
-> *Somebody I'd see around*
-> *Somebody I'd see around*
+> *Well my daddy he was just a stranger*<br>
+> *Lived in a hotel downtown*<br>
+> *Well when I was a kid he was just somebody*<br>
+> *Somebody I'd see around*<br>
+> *Somebody I'd see around*<br>
 
-> *Well now down below and pulling on my shirt*
-> *Yeah I got some kids of my own*
-> *Well if I had one wish in this god forsaken world, kids*
-> *It'd be that your mistakes would be your own*
-> *Yeah your sins would be your own*
+> *Well now down below and pulling on my shirt*<br>
+> *Yeah I got some kids of my own*<br>
+> *Well if I had one wish in this god forsaken world, kids*<br>
+> *It'd be that your mistakes would be your own*<br>
+> *Yeah your sins would be your own*<br>
 
-> *It's been a long time coming, my dear*
-> *It's been a long time coming, but now it's here*
-> *And now it's here*
+> *It's been a long time coming, my dear*<br>
+> *It's been a long time coming, but now it's here*<br>
+> *And now it's here*<br>
 
 Our narrator never knew his father. He only knew *of* him. In this narrator's case, it may be literal. For the songwriter, it may be metaphorical. Douglas Springsteen didn't live in a hotel downtown, but Bruce may have felt like he never really understood him.
 
@@ -86,11 +86,11 @@ We never seem to see these lines listed among Bruce's most powerful lyrics, but 
 
 But it's the next lines that hold the key to the song:
 
-> *"If I had one wish in this godforsaken world, kids, it'd be that your mistakes would be your own."*
+> *"If I had one wish in this godforsaken world, kids, it'd be that your mistakes would be your own."*<br>
 
 Bruce has spoken to this wish directly and often, both from the stage and in print. In his 2016 autobiography, he wrote:
 
-> *We honor our parents by not accepting as the final equation the most troubling characteristics of our relationship. I decided between my father and me that the sum of our troubles would not be the summation of our lives together. In analysis you work to turn the ghosts that haunt you into ancestors who accompany you. That takes hard work and a lot of love, but it's the way we lessen the burdens our children have to carry. Insisting on our own experience, our own final calculus of love, trouble, hard times and, if we're lucky, a little transcendence. This is how we claim our own lives as sons and daughters, independent souls on our piece of ground.*
+> *We honor our parents by not accepting as the final equation the most troubling characteristics of our relationship. I decided between my father and me that the sum of our troubles would not be the summation of our lives together. In analysis you work to turn the ghosts that haunt you into ancestors who accompany you. That takes hard work and a lot of love, but it's the way we lessen the burdens our children have to carry. Insisting on our own experience, our own final calculus of love, trouble, hard times and, if we're lucky, a little transcendence. This is how we claim our own lives as sons and daughters, independent souls on our piece of ground.*<br>
 
 He'd said it more powerfully and in far fewer words two decades earlier.
 
@@ -98,20 +98,20 @@ But it's the dawning of that wish–the desire that your kids *not* take after y
 
 As we segue into the final third of the song, celebration gives way to reflection and determination.
 
-> *Out ‘neath the arms of Cassiopeia*
-> *Where the sword of Orion sweeps*
-> *It's me and you, Rosie, crackling like crossed wires*
-> *And you breathing in your sleep*
-> *You breathing in your sleep*
+> *Out ‘neath the arms of Cassiopeia*<br>
+> *Where the sword of Orion sweeps*<br>
+> *It's me and you, Rosie, crackling like crossed wires*<br>
+> *And you breathing in your sleep*<br>
+> *You breathing in your sleep*<br>
 
-> *Well there's just a spark of a campfire left burning*
-> *Two kids in a sleeping bag beside*
-> *I reach ‘neath your shirt, lay my hands across your belly*
-> *And feel another one kicking inside*
-> *And I ain't gonna fuck it up this time*
+> *Well there's just a spark of a campfire left burning*<br>
+> *Two kids in a sleeping bag beside*<br>
+> *I reach ‘neath your shirt, lay my hands across your belly*<br>
+> *And feel another one kicking inside*<br>
+> *And I ain't gonna fuck it up this time*<br>
 
-> *It's been a long time coming, my dear*
-> *It's been a long time coming, but now it's here*
+> *It's been a long time coming, my dear*<br>
+> *It's been a long time coming, but now it's here*<br>
 
 Of the first half of the verse, not much need be said other than: no, I don't think Rosie is a hat tip to Rosalita (although it may be a wink at Neil Diamond) and *thank god* someone finally told Bruce how Orion is pronounced sometime between 2006 and 2012, because that mispronunciation is a mild but distracting annoyance in every version of the song pre-Wrecking Ball Tour. (You can see Bruce remind himself to sing it correctly in the second clip below.)
 
@@ -121,11 +121,11 @@ Of the first half of the verse, not much need be said other than: no, I don't th
 
 Let's linger on that second half of the verse, though, because these lines also contend for a place among Bruce's best:
 
-> *Well there's just a spark of a campfire left burning*
-> *Two kids in a sleeping bag beside*
-> *I reach ‘neath your shirt, lay my hands across your belly*
-> *And feel another one kicking inside*
-> *And I ain't gonna fuck it up this time*
+> *Well there's just a spark of a campfire left burning*<br>
+> *Two kids in a sleeping bag beside*<br>
+> *I reach ‘neath your shirt, lay my hands across your belly*<br>
+> *And feel another one kicking inside*<br>
+> *And I ain't gonna fuck it up this time*<br>
 
 It's here that we learn what's prompted our protagonist's epiphany: the imminent arrival of his third child. (It also lends another layer of meaning to the chorus.) This isn't just an opportunity to course-correct with his current children, it's a chance for him to get it right from the start with his next one.
 
@@ -148,9 +148,9 @@ May we not fuck it up this time.
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Long Time Comin' [Brisbane, AUS - 16.FEB.2017]](https://www.youtube.com/watch?v=yWf4r7G3mX8)
 
 **Long Time Comin'**<br>
-**Recorded** 1997-2004  
-**Released:** *Devils & Dust* (2005), *The Essential Bruce Springsteen* (2015), *Chapter and Verse* (2016)
-**First performed:** October 16, 1996 (Denver, CO)
-**Last performed:** December 5, 2018 (New York City, NY)
+**Recorded** 1997-2004<br>
+**Released:** *Devils & Dust* (2005), *The Essential Bruce Springsteen* (2015), *Chapter and Verse* (2016)<br>
+**First performed:** October 16, 1996 (Denver, CO)<br>
+**Last performed:** December 5, 2018 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

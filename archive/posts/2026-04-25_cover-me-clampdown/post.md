@@ -1,4 +1,4 @@
-> *Let fury have the hour. Anger can be power. Do you know that you can use it?*
+> *Let fury have the hour. Anger can be power. Do you know that you can use it?*<br>
 
 ![](../../assets/2021/09/strummer.jpg)
 
@@ -34,10 +34,10 @@ That would change.
 
 A dozen years later, the lyrics of "Clampdown" sound eerily resonant.
 
-> *In these days of evil presidentes*
-> *Working for the clampdown*
-> *But lately, one or two has fully paid their due*
-> *For working for the clampdown*
+> *In these days of evil presidentes*<br>
+> *Working for the clampdown*<br>
+> *But lately, one or two has fully paid their due*<br>
+> *For working for the clampdown*<br>
 
 It was almost certainly Morello's suggestion to reprise "Clampdown" on the Land of Hope and Dreams American Tour, and it was a great one.
 
@@ -52,7 +52,7 @@ Nor should they.
 Let fury have the hour. Anger can be power. Do you know that you can use it?
 
 **Clampdown**<br>
-**First performed:** April 2, 2014 (Pittsburgh, PA)
-**Last performed:** April 23, 2026 (Sunrise, FL)
+**First performed:** April 2, 2014 (Pittsburgh, PA)<br>
+**Last performed:** April 23, 2026 (Sunrise, FL)<br>
 
 © September 10, 2021 / April 25, 2026

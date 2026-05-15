@@ -92,9 +92,9 @@ Here's Bruce's last performance of "Cautious Man" to date, in East Rutherford to
 [Watch on Youtube: Bruce Springsteen - Cautious Man (Solo Acoustic) - E. Rutherford-11/17/05](https://www.youtube.com/watch?v=Yxtw7W5xZao)
 
 **Cautious Man**<br>
-**Recorded** January-April 1987  
+**Recorded** January-April 1987<br>
 **Released:** *Tunnel of Love* (1987)
-**First performed:** May 10, 1988 (Bloomington, MN)
-**Last performed:** November 17, 2005 (East Rutherford, NJ)
+**First performed:** May 10, 1988 (Bloomington, MN)<br>
+**Last performed:** November 17, 2005 (East Rutherford, NJ)<br>
 
 (c) June 9, 2020

@@ -27,30 +27,30 @@ When I wrote about "Little Girl (Like You)" last spring, I wasn't very kind in m
 
 "One Love" doesn't demand much in the way of lyrical analysis; Bruce never even dips a toe into metaphor.
 
-> *One girl, one love*
-> *One dream in our heart*
-> *Two hearts as one*
-> *One hope, never to be torn apart*
+> *One girl, one love*<br>
+> *One dream in our heart*<br>
+> *Two hearts as one*<br>
+> *One hope, never to be torn apart*<br>
 
-> *Yeah, come on baby, rock me way down low*
-> *Shake me darling, shake me, don't let me go*
-> *You're the one, yeah, you're the one for me*
+> *Yeah, come on baby, rock me way down low*<br>
+> *Shake me darling, shake me, don't let me go*<br>
+> *You're the one, yeah, you're the one for me*<br>
 
 By the time we've finished that first verse, we pretty much get the idea: like the man says (here and elsewhere), two hearts are better than one. But just to make sure that we don't miss the point, the song continues:
 
-> *One dream, one dream*
-> *Is all, is all I need*
-> *One reason to believe*
-> *In you I've found the thing I need*
+> *One dream, one dream*<br>
+> *Is all, is all I need*<br>
+> *One reason to believe*<br>
+> *In you I've found the thing I need*<br>
 
-> *Once I was alone*
-> *So alone, so all alone*
-> *Then you came along*
-> *With a love you said I could call home*
+> *Once I was alone*<br>
+> *So alone, so all alone*<br>
+> *Then you came along*<br>
+> *With a love you said I could call home*<br>
 
-> *Come on baby, rock me all night long*
-> *I've been searching for you for so long*
-> *You're the one, yeah, you're the one for me*
+> *Come on baby, rock me all night long*<br>
+> *I've been searching for you for so long*<br>
+> *You're the one, yeah, you're the one for me*<br>
 
 When *Tracks II: The Lost Albums* was announced with "One Love" included, I wondered if we'd finally hear a more polished version of the song. In a sense, I guess we do: the official release lops off the extended intro and fade-out, so the album version is considerably shorter. But it's still the same recording otherwise.
 
@@ -59,8 +59,8 @@ When *Tracks II: The Lost Albums* was announced with "One Love" included, I wond
 The best we can say about "One Love" is that it's a simple but earnest and bouncy love song that probably wouldn't have stood the test of time had it been released as a B-side as intended back in the mid-eighties.
 
 **One Love**<br>
-**Recorded** January 19, 1983  
-**Released:** *L.A. Garage Sessions '83*
+**Recorded** January 19, 1983<br>
+**Released:** *L.A. Garage Sessions '83*<br>
 **Never performed**<br>
 
 © April 23, 2019 / December 12, 2025

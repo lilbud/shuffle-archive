@@ -12,4 +12,4 @@ Bruce and Sam finally got a chance to perform live together on the Reunion Tour 
 
 **Soul Man  
 First performed:** October 15, 1999 (Phoenix, AZ)
-**Last performed:** April 22, 2017 (Marlboro, NJ)
+**Last performed:** April 22, 2017 (Marlboro, NJ)<br>

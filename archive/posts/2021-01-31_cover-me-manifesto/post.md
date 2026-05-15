@@ -8,7 +8,7 @@ Reading from a carefully prepared script in Spanish, Bruce recalled the last tim
 
 Here's the English translation of Bruce's words:
 
-> *In 1988, we played for Amnesty International in Mendoza, Argentina, but Chile was in our hearts. We met many families of The Disappeared, who had pictures of their loved ones. It was a moment that stays with me forever. If you are a political musician, Víctor Jara remains a great inspiration. It's an honor to be here, and I accept it humbly.*
+> *In 1988, we played for Amnesty International in Mendoza, Argentina, but Chile was in our hearts. We met many families of The Disappeared, who had pictures of their loved ones. It was a moment that stays with me forever. If you are a political musician, Víctor Jara remains a great inspiration. It's an honor to be here, and I accept it humbly.*<br>
 
 The Desperarecidos –The Disappeared–who Bruce spoke of numbered in the hundreds of thousands. They were ordinary citizens who were arrested, tortured, and killed during the Chilean dictatorship of General Augusto Pinochet.
 
@@ -32,37 +32,37 @@ The very last song Jara wrote before the coup was "Manifesto," released only pos
 
 "Manifesto" is a song about what it means to be a politically outspoken musician. Jara's lyrics, translated below, have resonated with artists ever since.
 
-> *I don't sing for love of singing*
-> *or to show off my voice*
-> *but for the statements*
-> *made by my honest guitar*
-> *for its heart is of the earth*
-> *and like the dove it goes flying….*
-> *endlessly as holy water*
-> *blessing the brave and the dying*
-> *so my song has found a purpose*
-> *as Violet Parra would say.*
+> *I don't sing for love of singing*<br>
+> *or to show off my voice*<br>
+> *but for the statements*<br>
+> *made by my honest guitar*<br>
+> *for its heart is of the earth*<br>
+> *and like the dove it goes flying….*<br>
+> *endlessly as holy water*<br>
+> *blessing the brave and the dying*<br>
+> *so my song has found a purpose*<br>
+> *as Violet Parra would say.*<br>
 
-> *Yes, my guitar is a worker*
-> *shining and smelling of spring*
-> *my guitar is not for killers*
-> *greedy for money and power*
-> *but for the people who labor*
-> *so that the future may flower*
-> *For a song takes on a meaning*
-> *when its own heart beat is strong*
-> *sung by a man who will die singing*
-> *truthfully singing his song.*
+> *Yes, my guitar is a worker*<br>
+> *shining and smelling of spring*<br>
+> *my guitar is not for killers*<br>
+> *greedy for money and power*<br>
+> *but for the people who labor*<br>
+> *so that the future may flower*<br>
+> *For a song takes on a meaning*<br>
+> *when its own heart beat is strong*<br>
+> *sung by a man who will die singing*<br>
+> *truthfully singing his song.*<br>
 
-> *I don't care for adulation*
-> *or so that strangers may weep*
-> *I sing for a far strip of country*
-> *narrow but endlessly deep*
+> *I don't care for adulation*<br>
+> *or so that strangers may weep*<br>
+> *I sing for a far strip of country*<br>
+> *narrow but endlessly deep*<br>
 
-> *There, where everything comes to rest*
-> *and where everything begins*
-> *the song which has been brave*
-> *will be forever new*
+> *There, where everything comes to rest*<br>
+> *and where everything begins*<br>
+> *the song which has been brave*<br>
+> *will be forever new*<br>
 
 As such a high-profile supporter of Allende, Jara was one of the first to be rounded up by Pinochet's military–the very next day, in fact.
 
@@ -93,7 +93,7 @@ When they finished, Bruce went directly into "[We Are Alive.](https://estreetshu
 He couldn't have picked a more perfect segue.
 
 **Manifesto**<br>
-**First performed:** September 12, 2013 (Santiago, Chile)
-**Last performed:** September 12, 2013 (Santiago, Chile)
+**First performed:** September 12, 2013 (Santiago, Chile)<br>
+**Last performed:** September 12, 2013 (Santiago, Chile)<br>
 
 

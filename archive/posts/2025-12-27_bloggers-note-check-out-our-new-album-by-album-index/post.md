@@ -41,6 +41,6 @@ Bruce has been known to feature one-time-only performances in his Halloween show
 [Watch on Youtube: Ghostbusters (Live at Centre Bell, Montreal, PQ - 10/31/2024)](https://www.youtube.com/watch?v=e9-rlT7p-Xw)
 
 **Ghostbusters**<br>
-**First performed:** October 31, 2024 (Montreal, QC)**Last performed:** October 31, 2024 (Montreal, QC)
+**First performed:** October 31, 2024 (Montreal, QC)**Last performed:** October 31, 2024 (Montreal, QC)<br>
 
 © December 9, 2025

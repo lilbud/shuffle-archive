@@ -30,6 +30,6 @@ Start your Valentine's Day with this wonderfully filmed, beautifully performed, 
 **Recorded:** January 2004<br>
 **Released:** *23rd Street Lullaby* (2004)<br>
 **First performed:** December 3, 2001 (Asbury Park, NJ)<br>
-**Last performed:** October 13, 2004 (East Rutherford, NJ)
+**Last performed:** October 13, 2004 (East Rutherford, NJ)<br>
 
 © February 14, 2021

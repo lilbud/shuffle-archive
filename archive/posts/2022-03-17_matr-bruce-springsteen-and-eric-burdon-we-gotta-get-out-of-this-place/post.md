@@ -1,4 +1,4 @@
-> "[F]or me, it was The Animals. For some, they were just another one of the really good beat groups that came of the 60s. But to me, The Animals were a revelation. The first records with full blown class consciousness that I had ever heard." *–Bruce Springsteen, SXSW Keynote, March 15, 2012*
+> "[F]or me, it was The Animals. For some, they were just another one of the really good beat groups that came of the 60s. But to me, The Animals were a revelation. The first records with full blown class consciousness that I had ever heard." *–Bruce Springsteen, SXSW Keynote, March 15, 2012*<br>
 
 Bruce Springsteen was and is a serious fan of Eric Burdon and The Animals. There are surviving bootleg recordings of him performing their songs when they were brand new, like "[San Franciscan Nights](https://estreetshuffle.com/index.php/2018/05/22/cover-me-san-franciscan-nights/)" in 1967. (The song was only a month old.)
 

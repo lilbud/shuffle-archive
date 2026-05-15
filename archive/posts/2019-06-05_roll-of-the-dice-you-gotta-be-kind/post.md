@@ -2,24 +2,24 @@
 
 The song features a reggae beat paired with roughed-in lyrics that dance around the need to go out of your way to help someone in need. To be kind, in other words.
 
-> *If you see a man lying by the roadside*
-> *Would you stop and give him a helping hand*
-> *Or would you drive home leavin' him to cry*
-> *<unintelligible>*
+> *If you see a man lying by the roadside*<br>
+> *Would you stop and give him a helping hand*<br>
+> *Or would you drive home leavin' him to cry*<br>
+> *<unintelligible>*<br>
 
-> *You gotta be a kind to your brother*
-> *You gotta be kind, baby, understand*
-> *You gotta be, You gotta be kind*
-> *You gotta be kind*
+> *You gotta be a kind to your brother*<br>
+> *You gotta be kind, baby, understand*<br>
+> *You gotta be, You gotta be kind*<br>
+> *You gotta be kind*<br>
 
 [Watch on Youtube: Bruce Springsteen You Gotta Be Kind](https://www.youtube.com/watch?v=ZGdmi0tREPQ)
 
 The second verse doesn't really fit with the first:
 
-> *Now some boys, they come out on Stockton*
-> *And they're acting mighty rough and tough*
-> *They hurt the others*
-> *And they don't live on blood*
+> *Now some boys, they come out on Stockton*<br>
+> *And they're acting mighty rough and tough*<br>
+> *They hurt the others*<br>
+> *And they don't live on blood*<br>
 
 The reference to "Stockton" and acting "rough and tough" leads me to believe that this verse is borrowed from "[Stockton Boys](https://estreetshuffle.com/index.php/2019/01/10/roll-of-the-dice-stockton-boys/)" (which was recorded around the same time) for the purpose of working out the song (if one can borrow lines from a song that doesn't exist yet). It was probably never intended for the final product at all.
 

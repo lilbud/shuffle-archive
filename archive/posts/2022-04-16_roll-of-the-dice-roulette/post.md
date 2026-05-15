@@ -44,70 +44,70 @@ He's not wrong, on any count: "Roulette" is *very* much over the top, but it's t
 
 The song takes off in mid-flight: our narrator–a Riker's Island fireman (Bruce seems to have transplanted the setting to someplace a little closer to home)–is fleeing town. Our narrator packed his family and their belongings so quickly that the yard is still filled with toys and their home unprotected.
 
-> *We left the toys out in the yard*
-> *I took my wife and kids and I left my home unguarded*
-> *We packed what we could into the car*
-> *No one here knows how it started*
-> *Well suddenly everything was just so out of control*
-> *Now I want some answers, mister, I need to know*
-> *I hear all the talk but I don't know what you're saying*
-> *But I think I got a good idea of the game that you're playing*
+> *We left the toys out in the yard*<br>
+> *I took my wife and kids and I left my home unguarded*<br>
+> *We packed what we could into the car*<br>
+> *No one here knows how it started*<br>
+> *Well suddenly everything was just so out of control*<br>
+> *Now I want some answers, mister, I need to know*<br>
+> *I hear all the talk but I don't know what you're saying*<br>
+> *But I think I got a good idea of the game that you're playing*<br>
 
-> *Roulette, that's the name*
-> *Roulette, that's the game now*
-> *Roulette, I don't believe what they're saying*
-> *Roulette, everybody's playing*
+> *Roulette, that's the name*<br>
+> *Roulette, that's the game now*<br>
+> *Roulette, I don't believe what they're saying*<br>
+> *Roulette, everybody's playing*<br>
 
 He's fleeing, but he doesn't know what from, or why. He wants answers, but none are forthcoming. Most of all, though, he wants to hear something he can trust. All he gets, though, are empty reassurances, mixed messages, and the distinct sense that their lives and health are nothing but a game of chance to the people in charge.
 
 As the verse builds towards the first chorus, suspicion and distrust give way to frustration, and in the second verse outright anger.
 
-> *I grew up here on this street*
-> *Where nothing moves, just a strange breeze*
-> *In a town full of worthless memories*
-> *There's a shadow in my backyard*
-> *I've got a house full of things that I can't touch*
-> *Well all those things they won't do me much good now*
-> *I was a fireman out at Riker's, I did my job*
-> *Mister, I've been cheated, I feel like I've been robbed*
-> *I'm the big expendable, my life's just cancelled null and void*
-> *Well what you gonna do about your new boy*
+> *I grew up here on this street*<br>
+> *Where nothing moves, just a strange breeze*<br>
+> *In a town full of worthless memories*<br>
+> *There's a shadow in my backyard*<br>
+> *I've got a house full of things that I can't touch*<br>
+> *Well all those things they won't do me much good now*<br>
+> *I was a fireman out at Riker's, I did my job*<br>
+> *Mister, I've been cheated, I feel like I've been robbed*<br>
+> *I'm the big expendable, my life's just cancelled null and void*<br>
+> *Well what you gonna do about your new boy*<br>
 
-> *Roulette, you're playing with my life*
-> *Roulette, with my kids and my wife*
-> *Roulette, every day the stakes get bigger*
-> *Roulette, a different finger on the trigger*
+> *Roulette, you're playing with my life*<br>
+> *Roulette, with my kids and my wife*<br>
+> *Roulette, every day the stakes get bigger*<br>
+> *Roulette, a different finger on the trigger*<br>
 
 Our narrator has done his best to live the right way; he got up every morning and went to work each day as a public servant. But in the wake of the accident, he's got nothing to show for it but exile from a contaminated home. There's no promised land on the horizon, and he demands answers from the state's "mister" — the authorities on whom his family's safety is dependent, who seem to take neither urgency in nor accountability for the situation.
 
 If any one thing about "Roulette" was responsible for its exclusion from *The River*, it was likely the final verse, which veers away from the visceral emotion that carries the song through its first verses and chase scene bridge and dives headfirst into a police state like something out of speculative fiction.
 
-> *Down by the river that talks*
-> *The night speaks in searchlights and shortwave radios squawk*
-> *Well the police patrol the streets*
-> *But I've left behind the man I used to be*
-> *Everything he believed and all that belonged to me*
-> *I tried to find my way out to somewhere where I thought it'd be safe*
-> *They stopped me at the roadblock they put up on the interstate*
-> *They put me in detention but I broke loose and then I ran*
-> *They said they just want to ask me a few questions but I think they had other plans*
-> *Now I don't know who to trust and I don't know what I can believe*
-> *They say they want to help me but with the stuff they keep on saying*
-> *I think those guys just wanna keep on playing*
+> *Down by the river that talks*<br>
+> *The night speaks in searchlights and shortwave radios squawk*<br>
+> *Well the police patrol the streets*<br>
+> *But I've left behind the man I used to be*<br>
+> *Everything he believed and all that belonged to me*<br>
+> *I tried to find my way out to somewhere where I thought it'd be safe*<br>
+> *They stopped me at the roadblock they put up on the interstate*<br>
+> *They put me in detention but I broke loose and then I ran*<br>
+> *They said they just want to ask me a few questions but I think they had other plans*<br>
+> *Now I don't know who to trust and I don't know what I can believe*<br>
+> *They say they want to help me but with the stuff they keep on saying*<br>
+> *I think those guys just wanna keep on playing*<br>
 
 Despite its melodrama, though, the final verse of "Roulette" has some of Bruce's rawest, punkiest vocals on record. All of the verses are constructed such that the lyrics never quite fit–Bruce is forced to stumble and tumble headfirst through them, a deliberate songwriting decision that conveys the narrator's panic.
 
 But the second half of the final verse (extended by two lines to milk the moment) is absolute desperation. Our narrator is lost in his paranoia, and we sense that last thread–the one that's been fraying throughout the song–is about to snap.
 
-> *Roulette, with my life*
-> *Roulette, with my kids and my wife*
-> *Roulette, the bullet's in the chamber*
-> *Roulette, who's the unlucky stranger*
-> *Roulette, surprise, you're dead*
-> *Roulette, the gun's to your head*
-> *Roulette, the bullet's spinning in the chamber*
-> *Roulette, pull the trigger, feel the click*
-> *No further danger*
+> *Roulette, with my life*<br>
+> *Roulette, with my kids and my wife*<br>
+> *Roulette, the bullet's in the chamber*<br>
+> *Roulette, who's the unlucky stranger*<br>
+> *Roulette, surprise, you're dead*<br>
+> *Roulette, the gun's to your head*<br>
+> *Roulette, the bullet's spinning in the chamber*<br>
+> *Roulette, pull the trigger, feel the click*<br>
+> *No further danger*<br>
 
 "Roulette" ends on an unsettling note, its titular metaphor fully revealed as Russian roulette, and it's our narrator's turn to spin. *No further danger*–that final line echoes the unconvincing reassurance of the state authorities but implies a gruesome irony. As Max's pounding tomtom heartbeat fades us out, we're unsure whether we're out of danger because we won… or because we lost.
 
@@ -133,9 +133,9 @@ As for the incident that inspired the song, over the next six months anti-nuclea
 Bruce headlined two of those concerts, but despite his continued concern for the cause, the new song that signaled his support didn't make its debut that night. It would still be a few years before Bruce would seem comfortable performing such topical material. That time was coming, though, and it would mark an inflection point in his career.
 
 **Roulette**<br>
-**Recorded** April 1979  
+**Recorded** April 1979<br>
 **Released:** *One Step Up* (B-side, 1988)*,Tracks* (1998), *The River: Outtakes* (2015)
-**First performed:** February 25, 1988 (Worcester, MA)
-**Last performed:** July 5, 2016 (Milan, Italy)
+**First performed:** February 25, 1988 (Worcester, MA)<br>
+**Last performed:** July 5, 2016 (Milan, Italy)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

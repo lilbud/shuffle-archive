@@ -1,6 +1,6 @@
-> *Good morning, good morning!*
-> *The church mouse is snoring  
-News is out all over town: Frankie fell in love!*
+> *Good morning, good morning!*<br>
+> *The church mouse is snoring*<br>
+> *News is out all over town: Frankie fell in love!*<br>
 
 And with those words, we're off to the races in a song that Bruce recorded in 2008 (during the *Working on a Dream* sessions) but sounds like it would be right at home on *The River*: "Frankie Fell in Love."
 
@@ -25,37 +25,37 @@ Bruce has also said in interviews that he wrote this song to evoke the time he l
 
 Is Frankie either Bruce or Steve? Probably, but only the two of them can say which of them play the title character. Either way, this is a song about what it's like on the first day you realize you're in love, and how that new love feels like it's the most important thing in the world at that moment. Start spreading the news:
 
-> *Good morning, good morning!*
-> *The church mouse is snoring*
-> *News is out all over town: Frankie fell in love!*
+> *Good morning, good morning!*<br>
+> *The church mouse is snoring*<br>
+> *News is out all over town: Frankie fell in love!*<br>
 
-> *Wake up, boys, wake up!*
-> *You drunken choir boys, shake it up!*
-> *Our Juliet says her Romeo's been found–Frankie fell in love*
+> *Wake up, boys, wake up!*<br>
+> *You drunken choir boys, shake it up!*<br>
+> *Our Juliet says her Romeo's been found–Frankie fell in love*<br>
 
-> *World peace is gonna break out  
-From here on in we're eating take out*
-> *She ain't gonna be cooking for the likes of us*
-> *Somebody call mama and just tell her: Frankie fell in love*
+> *World peace is gonna break out*<br>
+> *From here on in we're eating take out*<br>
+> *She ain't gonna be cooking for the likes of us*<br>
+> *Somebody call mama and just tell her: Frankie fell in love*<br>
 
 But the crux of the song is the second verse, which features Einstein and Shakespeare representing the head and the heart, trying to figure out the secret of happiness through Springsteen arithmetic:
 
-> *Einstein and Shakespeare sitting having a beer*
-> *Einstein trying to figure out the number that adds up to bliss*
-> *Shakespeare says, "Man, it all starts with a kiss"*
+> *Einstein and Shakespeare sitting having a beer*<br>
+> *Einstein trying to figure out the number that adds up to bliss*<br>
+> *Shakespeare says, "Man, it all starts with a kiss"*<br>
 
-> *Einstein is scratching numbers on his napkin*
-> *Shakespeare says, "Man, it's just one and one make three*
-> *That's why it's poetry"*
+> *Einstein is scratching numbers on his napkin*<br>
+> *Shakespeare says, "Man, it's just one and one make three*<br>
+> *That's why it's poetry"*<br>
 
 Those are some of my favorite Bruce lyrics right there. The rest of the song simply traces the arc of the day. Nothing eventful happens, and that's the point: the only thing that matters on Day One of new love is new love.
 
-> *Glory, glory, it's the same old story*
-> *Kid, there ain't nothing anybody can do*
-> *It's gonna happen to you, just like: Frankie fell in love*
+> *Glory, glory, it's the same old story*<br>
+> *Kid, there ain't nothing anybody can do*<br>
+> *It's gonna happen to you, just like: Frankie fell in love*<br>
 
-> *Good evening, good evening, the church mouse is sleeping*
-> *News is out all over town, Frankie fell in love*
+> *Good evening, good evening, the church mouse is sleeping*<br>
+> *News is out all over town, Frankie fell in love*<br>
 
 Musically, the E Street band is as buoyant as the lyrics, with a loose melody punctuated by (of course) a cowbell carrying the rhythm even once Max's drums kick in. For another example of a Bruce melody diverging like two roads in the woods, go and listen to Bruce's "[American Beauty](https://estreetshuffle.com/index.php/2019/02/21/roll-of-the-dice-american-beauty/)" after listening to "Frankie Fell in Love" and you'll hear how Bruce took the same basic riff and went in two different directions with it.
 
@@ -67,8 +67,8 @@ Bruce inevitably introduces the song by referencing its underlying arithmetic. A
 
 **Frankie Fell in Love**<br>
 **Recorded:** 2008 (probably)
-**Released:** *High Hopes* (2014)
-**First performed:** January 18, 2014 (Asbury Park, NJ)
-**Last performed:** July 18, 2015 (Asbury Park, NJ)
+**Released:** *High Hopes* (2014)<br>
+**First performed:** January 18, 2014 (Asbury Park, NJ)<br>
+**Last performed:** July 18, 2015 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

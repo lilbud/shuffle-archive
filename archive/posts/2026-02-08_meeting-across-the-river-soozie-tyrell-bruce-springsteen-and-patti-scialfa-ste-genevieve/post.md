@@ -16,6 +16,6 @@ Bruce and Patti reprised their roles at the release party for *White Lines* at t
 **Recorded:** May 2002<br>
 **Released:** *White Lines* (2003)<br>
 **First performed:** May 2, 2003 (Asbury Park, NJ)<br>
-**Last performed:** May 2, 2003 (Asbury Park, NJ)
+**Last performed:** May 2, 2003 (Asbury Park, NJ)<br>
 
 © August 21, 2018

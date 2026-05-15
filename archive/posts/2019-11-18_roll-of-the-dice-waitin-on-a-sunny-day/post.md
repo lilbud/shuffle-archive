@@ -117,9 +117,9 @@ There may come a day when the name and music of Bruce Springsteen are all but fo
 [Watch on Youtube: Bruce Springsteen - Waitin' On A Sunny Day - The Song (From VH1 Storytellers)](https://www.youtube.com/watch?v=6we0bK-XZaU)
 
 **Waitin' on a Sunny Day**<br>
-**Recorded** Early 2002  
-**Released:** *The Rising* (2002)
-**First performed:** July 25,2002 (Asbury Park, NJ)
-**Last performed:** November 16, 2019 (Asbury Park, NJ)
+**Recorded** Early 2002<br>
+**Released:** *The Rising* (2002)<br>
+**First performed:** July 25,2002 (Asbury Park, NJ)<br>
+**Last performed:** November 16, 2019 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

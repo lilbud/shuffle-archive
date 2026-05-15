@@ -32,9 +32,9 @@ It would take another eighteen years, but that middle line would eventually make
 It's believed that Bruce and The Castiles likely played "That's What You Get" live throughout 1966 and 1967, but no document survives to confirm that. Not only does this recording stand as the only confirmed performance of one of Bruce's earliest songs, it's tied with "Baby I" as the earliest known recording of a Bruce Springsteen performance.
 
 **That's What You Get**<br>
-**Recorded** May 18, 1966  
+**Recorded** May 18, 1966<br>
 **Never released**<br>
-**First performed:** unconfirmed  
-**Last performed:** unconfirmed
+**First performed:** unconfirmed<br>
+**Last performed:** unconfirmed<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

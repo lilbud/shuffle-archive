@@ -1,4 +1,4 @@
-> "I've always kept my expectations realistic. The only thing I know I can do is try to be relevant musically and write songs that mean something. Everything else will come. I don't have to have a career like Bruce Springsteen's to see myself as successful." — *Kathleen Edwards, November 2008*
+> "I've always kept my expectations realistic. The only thing I know I can do is try to be relevant musically and write songs that mean something. Everything else will come. I don't have to have a career like Bruce Springsteen's to see myself as successful." — *Kathleen Edwards, November 2008*<br>
 
 No lie: Kathleen Edwards' spectacular cover of "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)" has been at the top of my *Cover Me* to-blog list since Day One.
 

@@ -4,30 +4,30 @@ When it comes to art imitating life, there may be no better metatextual example 
 
 There's no mistaking what "Boom Boom" is about. Even in its original 1962 version (Bruce modeled his version after a cover by The Animals two years later), Booker's stop-time classic isn't exactly subtle:
 
-> *Boom, boom, boom, boom*
-> *I'm gonna shoot you right down*
-> *Right off of your feet*
-> *And take you home with me*
-> *Put you in my house*
-> *Boom, boom, boom, boom*
+> *Boom, boom, boom, boom*<br>
+> *I'm gonna shoot you right down*<br>
+> *Right off of your feet*<br>
+> *And take you home with me*<br>
+> *Put you in my house*<br>
+> *Boom, boom, boom, boom*<br>
 
-> *How how how how*
-> *Hmm hmm hmm hmm*
-> *Hmm hmm hmm hmm*
-> *I love to see you strut*
-> *Up and down the floor*
-> *When you're talking to me*
-> *That baby talk*
-> *I like it like that*
+> *How how how how*<br>
+> *Hmm hmm hmm hmm*<br>
+> *Hmm hmm hmm hmm*<br>
+> *I love to see you strut*<br>
+> *Up and down the floor*<br>
+> *When you're talking to me*<br>
+> *That baby talk*<br>
+> *I like it like that*<br>
 
 Unsurprisingly, "Boom Boom" became a hit almost immediately, peaking at #16 on the Billboard Hot R&B Sides chart and #60 on the Hot 100. The Animals' version did even better in 1964, peaking at #43 on the Hot 100. Their version put an even finer point on it:
 
-> *I need you right now*
-> *I mean right now*
-> *I don't mean tomorrow*
-> *I mean right now*
-> *Come on, come on*
-> *Come on, shake it up baby*
+> *I need you right now*<br>
+> *I mean right now*<br>
+> *I don't mean tomorrow*<br>
+> *I mean right now*<br>
+> *Come on, come on*<br>
+> *Come on, shake it up baby*<br>
 
 [Watch on Youtube: Boom Boom](https://www.youtube.com/watch?v=7oVTRUSz7oI)
 
@@ -70,7 +70,7 @@ None of the post-1988 performances have matched the remarkable passion on displa
 Still, "Boom Boom" remains a reliable adrenaline booster for any show it appears in, and odds are strong that we'll hear it again at least once on the next E Street Band Tour.
 
 **Boom Boom**<br>
-**First performed:** April 26, 1974 (Providence, RI)
-**Last performed:** September 14, 2016 (Foxborough, MA)
+**First performed:** April 26, 1974 (Providence, RI)<br>
+**Last performed:** September 14, 2016 (Foxborough, MA)<br>
 
 

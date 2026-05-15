@@ -34,16 +34,16 @@ Therefore, the lyrics sheet above is likely a very early draft of "Glory Road." 
 
 Or maybe it evolved into three songs, because if we read the lyrics, we can certainly see a thematic if not a lyrical link to "Thunder Road."
 
-> *She danced on my hood like an angel locked in overdrive*
-> *She had a hemi-powered Chevy and her trans was backed by power glide*
-> *She begged Billy take me for a ride*
-> *Take me to glory road, bring me to glory road*
+> *She danced on my hood like an angel locked in overdrive*<br>
+> *She had a hemi-powered Chevy and her trans was backed by power glide*<br>
+> *She begged Billy take me for a ride*<br>
+> *Take me to glory road, bring me to glory road*<br>
 
-> *I looked out over cross my hood and saw the highway buckle in the heat*
-> *Let me take you to the place where the whores and the angels meet*
-> *I wanna take my walk in the sun*
-> *Don't try to hold me back cause you ain't got the guts to come*
-> *Some day you'll see tramps like us, baby we were born to run*
+> *I looked out over cross my hood and saw the highway buckle in the heat*<br>
+> *Let me take you to the place where the whores and the angels meet*<br>
+> *I wanna take my walk in the sun*<br>
+> *Don't try to hold me back cause you ain't got the guts to come*<br>
+> *Some day you'll see tramps like us, baby we were born to run*<br>
 
 Besides some metrical similarities that may well be coincidental, that last verse certainly echoes the closing escapist sentiment of "Thunder Road." The narrator entreats his girl to join him on the open road (in somewhat less romantic fashion), and the "tramps like us" line fits so perfectly that we can't help but realize (if we hadn't already) just how thematically similar "Thunder Road" and "Born to Run' are–one almost wonders if our narrator simply moved on to Wendy when Mary refused to get in the car.
 

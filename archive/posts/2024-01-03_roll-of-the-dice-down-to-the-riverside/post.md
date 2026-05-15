@@ -66,53 +66,53 @@ It's time. If you have headphones, put them on so you can best experience the cl
 
 If you've read *Born to Run* or heard Bruce speak of losing his grandparents, you already knew the story. You just hadn't heard it told this way.
 
-> *I remember back when I was just a small boy*
-> *On the night that my grandpa died*
-> *It was three o'clock, it was three o'clock in the morning*
-> *All of a sudden my eyes they popped open wide*
+> *I remember back when I was just a small boy*<br>
+> *On the night that my grandpa died*<br>
+> *It was three o'clock, it was three o'clock in the morning*<br>
+> *All of a sudden my eyes they popped open wide*<br>
 
-> *It was mama, my sweet mama*
-> *She said, "Aw, won't you come with me son"*
-> *It was three o'clock, she told me grandpa he's dead*
-> *Oh and the doctor he says that he can't come*
+> *It was mama, my sweet mama*<br>
+> *She said, "Aw, won't you come with me son"*<br>
+> *It was three o'clock, she told me grandpa he's dead*<br>
+> *Oh and the doctor he says that he can't come*<br>
 
-> *Well now, my mama she took me, she took me by my hand*
-> *And she said, "don't worry son, but we have to pass through grandpa's room"*
-> *Mama, grandma she was crying, by my side she said he was such a good man*
+> *Well now, my mama she took me, she took me by my hand*<br>
+> *And she said, "don't worry son, but we have to pass through grandpa's room"*<br>
+> *Mama, grandma she was crying, by my side she said he was such a good man*<br>
 
 (Bruce stumbles over that entire line–"Mama" was clearly a mistake that he instantly realized and corrected, but it threw him off his game for a few seconds after.)
 
-> *Don't you know he was too*
+> *Don't you know he was too*<br>
 
-> *She said, "He was sitting up in bed, alive just like you and me*
-> *When all of a sudden he just slumped back down"*
-> *She said "it's three o'clock and oh the reverend's here*
-> *And grandpa, grandpa he has gone down"*
-> *She said, "Grandpa's gone down to the riverside one last time"*
-> *She said, "Grandpa's gone down to the riverside just one last time"*
+> *She said, "He was sitting up in bed, alive just like you and me*<br>
+> *When all of a sudden he just slumped back down"*<br>
+> *She said "it's three o'clock and oh the reverend's here*<br>
+> *And grandpa, grandpa he has gone down"*<br>
+> *She said, "Grandpa's gone down to the riverside one last time"*<br>
+> *She said, "Grandpa's gone down to the riverside just one last time"*<br>
 
-> *Well mama, she took me by my hand*
-> *She took me into her room and said, "You and sister can sleep here tonight"*
-> *And I was just about to stop crying and close my eyes and go to sleep*
-> *When I heard something giving a young boy a fright*
+> *Well mama, she took me by my hand*<br>
+> *She took me into her room and said, "You and sister can sleep here tonight"*<br>
+> *And I was just about to stop crying and close my eyes and go to sleep*<br>
+> *When I heard something giving a young boy a fright*<br>
 
-> *I swear I heard them angels singing*
-> *And it's sounding like it was coming from my grandpa's room*
-> *Ah and the church bells, the church bells they were ringing*
-> *To shine a little light, to shine a little light on this gloom*
+> *I swear I heard them angels singing*<br>
+> *And it's sounding like it was coming from my grandpa's room*<br>
+> *Ah and the church bells, the church bells they were ringing*<br>
+> *To shine a little light, to shine a little light on this gloom*<br>
 
-> *I heard the voices, they're coming from, I heard 'em sing…*
-> *They said, "Swing low sweet chariot*
-> *Coming for to carry me home"*
-> *They said, "Swing low sweet chariot"*
-> *Coming to carry Grandpa home*
+> *I heard the voices, they're coming from, I heard 'em sing…*<br>
+> *They said, "Swing low sweet chariot*<br>
+> *Coming for to carry me home"*<br>
+> *They said, "Swing low sweet chariot"*<br>
+> *Coming to carry Grandpa home*<br>
 
 I will admit to tearing up when the song shifts from blues to uplifting spiritual. It's a move both subtle and striking, and most importantly skillful–it opens up the song and fills the darkness with sunlight and grace. It's my favorite moment of the song.
 
-> *‘Cause grandpa's gone down to the riverside one last time*
-> *Grandpa's gone down to the riverside one last time*
-> *Oh, grandpa's gone down to the riverside one last time*
-> *Oh, grandpa's gone down to the riverside one last time*
+> *‘Cause grandpa's gone down to the riverside one last time*<br>
+> *Grandpa's gone down to the riverside one last time*<br>
+> *Oh, grandpa's gone down to the riverside one last time*<br>
+> *Oh, grandpa's gone down to the riverside one last time*<br>
 
 And there we have it: the only known recording of Bruce's breathtakingly intimate "Down to the Riverside." It wasn't the first time he played it, nor would it be the last (it would surface in his set as late as April), but at least now we finally know what it sounds like.
 
@@ -121,7 +121,7 @@ For me, at least, it was worth the wait.
 **Down to the Riverside**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** February 5, 1972 (Richmond, VA)
-**Last performed:** April 1972 (Freehold, NJ)
+**First performed:** February 5, 1972 (Richmond, VA)<br>
+**Last performed:** April 1972 (Freehold, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,7 +2,7 @@
 >
 >
 >
-> — *Joe Grushecky, July 2020*
+> — *Joe Grushecky, July 2020*<br>
 
 It's a hell of a story.
 

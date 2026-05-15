@@ -11,8 +11,8 @@ Written and performed by Joe and fellow Pittsburgh singer/songwriter Bill Deasy,
 It's a beautiful, powerful, and haunting song, with or without Bruce's accompaniment, on an album that should be in every Springsteen fan's collection.
 
 **Broken Wheel**<br>
-**Recorded** 2009  
-**Released:** *East Carson Street* (2009)
+**Recorded** 2009<br>
+**Released:** *East Carson Street* (2009)<br>
 **Never performed**<br>
 
 © September 29, 2019

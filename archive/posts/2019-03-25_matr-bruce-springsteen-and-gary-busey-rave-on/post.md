@@ -1,4 +1,4 @@
-> "It's funny because I could never really picture Buddy Holly moving. To me, he was always just that guy with the bow tie on the album cover. I liked the picture because it made him a lot more real for me." — *Bruce Springsteen, The Inglewood Forum, July 5, 1978*
+> "It's funny because I could never really picture Buddy Holly moving. To me, he was always just that guy with the bow tie on the album cover. I liked the picture because it made him a lot more real for me." — *Bruce Springsteen, The Inglewood Forum, July 5, 1978*<br>
 
 Bruce never performed with Buddy Holly. How could he have–Bruce was only nine years old when Holly died in a tragic plane crash. But if you were at the Philadelphia Spectrum in August 1978 when Bruce brought the Darkness Tour to town, with a little suspension of disbelief, you could almost imagine it.
 

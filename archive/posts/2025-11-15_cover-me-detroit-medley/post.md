@@ -92,7 +92,7 @@ And counting.
 
 **Detroit Medley**<br>
 **Released:** *No Nukes* (1979), *Hammersmith Odeon London '75* (2005)
-**First performed:** September 23, 1975 (Ann Arbor, MI)
-**Last performed:** November 19, 2024 (Edmonton, AB)
+**First performed:** September 23, 1975 (Ann Arbor, MI)<br>
+**Last performed:** November 19, 2024 (Edmonton, AB)<br>
 
 (c) December 27, 2019

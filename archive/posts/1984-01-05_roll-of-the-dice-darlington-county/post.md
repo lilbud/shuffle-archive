@@ -30,8 +30,8 @@ Let's pick up the story.
 
 > *Driving in to Darlington County, me and Wayne on the Fourth of July*
 > *Driving in to Darlington County, looking for some work on the county line*
-> *We drove down from New York City  
-Where the girls are pretty but they just wanna know your name*
+> *We drove down from New York City*
+> *Where the girls are pretty but they just wanna know your name*
 > *Driving in to Darlington City, got a union connection with an uncle of Wayne's*
 > *We drove eight hundred miles without seeing a cop*
 > *We got rock and roll music blasting off the T-top*
@@ -104,9 +104,9 @@ Something tells me we'll be celebrating the misadventures of Wayne and Wilson fo
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dcjjeHtdsLg)
 
 **Darlington County**<br>
-**Recorded** May 13, 1982  
+**Recorded** May 13, 1982<br>
 **Released:** *Born in the U.S.A.* (1984)
-**First performed:** June 8, 1984 (Asbury Park, NJ)
-**Last performed:** June 24, 2025 (San Sebastian, Spain)
+**First performed:** June 8, 1984 (Asbury Park, NJ)<br>
+**Last performed:** June 24, 2025 (San Sebastian, Spain)<br>
 
 © September 10, 2020

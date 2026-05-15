@@ -42,6 +42,6 @@ It's still early, but "Don't Play That Song" shows every sign of becoming an iro
 **Recorded:** 2021<br>
 **Released:** *Only the Strong Survive* (2022)<br>
 **First performed:** November 15, 2022 (New York City, NY)<br>
-**Last performed:** February 14, 2023 (Houston, TX)
+**Last performed:** February 14, 2023 (Houston, TX)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

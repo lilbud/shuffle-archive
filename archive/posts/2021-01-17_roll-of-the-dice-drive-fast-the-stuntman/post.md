@@ -2,7 +2,7 @@
 >
 >
 >
-> Everybody's broken in some way–physically, emotionally, spiritually. In this life, nobody gets away unhurt. I wrote a song about a guy not just finding the fearlessness to do his job, but the fearlessness to risk being with somebody that you love. We're always trying to find somebody whose broken pieces fit with our broken pieces, and something whole emerges. — Bruce Springsteen, *Western Stars*
+> Everybody's broken in some way–physically, emotionally, spiritually. In this life, nobody gets away unhurt. I wrote a song about a guy not just finding the fearlessness to do his job, but the fearlessness to risk being with somebody that you love. We're always trying to find somebody whose broken pieces fit with our broken pieces, and something whole emerges. — Bruce Springsteen, *Western Stars*<br>
 
 This is my sixth *Roll of the Dice* entry for *Western Stars*, and I'm well aware that I've already rated three of the previous five among Bruce's finest songs ever.
 
@@ -22,12 +22,12 @@ Bruce hasn't left me much to analyze–his pull quote at the top of this essay (
 
 "Drive Fast (The Stuntman)" is very much in keeping with the album it hails from. It features a main character late in life, looking back with satisfaction on his life.
 
-> *I got two pins in my ankle and a busted collarbone*
-> *A steel rod in my leg, but it walks me home*
-> *At nine I climbed high into the boughs of our neighborhood's tallest tree*
-> *I don't remember the fear, just the breeze*
+> *I got two pins in my ankle and a busted collarbone*<br>
+> *A steel rod in my leg, but it walks me home*<br>
+> *At nine I climbed high into the boughs of our neighborhood's tallest tree*<br>
+> *I don't remember the fear, just the breeze*<br>
 
-> *Drive fast, fall hard*
+> *Drive fast, fall hard*<br>
 
 The verses and choruses in "Drive Fast" are linked by a single line: *Drive fast, fall hard.*
 
@@ -43,10 +43,10 @@ During the first half of the verse, the music is gentle and tentative. Our narra
 
 It's followed immediately by another: the swell of the strings representing the breeze that greets the narrator from the treetop. It's such an evocative moment that I swear I feel that breeze every time I reach this moment in the song.
 
-> *I'll keep you in my heart*
-> *Don't worry about tomorrow*
-> *Don't mind the scars*
-> *Just drive fast, fall hard*
+> *I'll keep you in my heart*<br>
+> *Don't worry about tomorrow*<br>
+> *Don't mind the scars*<br>
+> *Just drive fast, fall hard*<br>
 
 When we reach the first chorus, that first line grabs our attention: *I'll keep you in my heart*.
 
@@ -56,10 +56,10 @@ We have years to cross before that moment arrives, however. We're only at the na
 
 We flash forward a decade now, carried by the introduction of Marc Muller's pedal steel.
 
-> *At nineteen I was the king of the dirt down at the Remington draw*
-> *I liked the pedal and I didn't mind the wall*
-> *‘Midst the roar of the metal I never heard a sound*
-> *I was looking for anything, any kind of drug to lift me up off this ground*
+> *At nineteen I was the king of the dirt down at the Remington draw*<br>
+> *I liked the pedal and I didn't mind the wall*<br>
+> *‘Midst the roar of the metal I never heard a sound*<br>
+> *I was looking for anything, any kind of drug to lift me up off this ground*<br>
 
 At the age of nineteen, our narrator is now cleaning up at the races. He doesn't care about the prize money, though–he's in it for the rush. Adrenaline is his drug, and he's an addict. We know in this moment that he'll spend his life in search of the next rush.
 
@@ -69,10 +69,10 @@ A piano-centric bridge carries us forward in time again to the moment we've know
 
 Our narrator is now literally a stuntman, on the set of a movie where he meets his great love.
 
-> *We met on the set of this B picture that she made*
-> *She liked her guys a little greasy, ‘neath her pay grade*
-> *We headed down to Baja in the desert, we made our stand of it*
-> *Figured maybe together we could get the broken pieces to fit*
+> *We met on the set of this B picture that she made*<br>
+> *She liked her guys a little greasy, ‘neath her pay grade*<br>
+> *We headed down to Baja in the desert, we made our stand of it*<br>
+> *Figured maybe together we could get the broken pieces to fit*<br>
 
 Bruce often brings up his "broken pieces" metaphor in interviews and monologues. It's clear that at some point along the way (probably with the help of therapy), he realized that we all break, and we hide those broken pieces as best we can. Love–whether romance or friendship–is at heart a matter of trust. Its durability, longevity, and fidelity are largely the result of our ability to reveal our own broken pieces and accept our partner's damage.
 
@@ -84,8 +84,8 @@ Now the instrumental bridge returns and carries us back to the present. Although
 
 We ‘re back where we started now, and Bruce re-introduces us to the stuntman in the present. The last two lines of the song are the same as the first two, but they carry more meaning now.
 
-> *I got two pins in my ankle and a busted collarbone*
-> *A steel rod in my leg, but it walks me home*
+> *I got two pins in my ankle and a busted collarbone*<br>
+> *A steel rod in my leg, but it walks me home*<br>
 
 Are the stuntman and his leading lady still together? Did she pass away recently or leave him years ago? Bruce leaves it up to us to decide (I know what I think), but while it's natural for us to wonder, it's also beside the point of the song.
 
@@ -107,9 +107,9 @@ Watch for the moment when our nine-year-old hero climbs his tree. The lighting i
 [Watch on Youtube: Drive Fast (The Stuntman) - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=ag-U2K5tWKY)
 
 **Drive Fast (The Stuntman)**<br>
-**Recorded** 2010-2018  
-**Released:** *Western Stars* (2019)
-**First performed:** April 2019 (Colts Neck, NJ)
-**Last performed:** April 2019 (Colts Neck, NJ)
+**Recorded** 2010-2018<br>
+**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

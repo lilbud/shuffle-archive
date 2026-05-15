@@ -42,6 +42,6 @@ Curiously, though, while several Seeger Sessions songs have re-appeared in the y
 **Recorded:** March 19, 2005<br>
 **Released:** [*We Shall Overcome: The Seeger Sessions* (2006)](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
-**Last performed:** November 21, 2006 (Belfast, Northern Ireland)
+**Last performed:** November 21, 2006 (Belfast, Northern Ireland)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

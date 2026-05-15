@@ -37,7 +37,7 @@ There was one particularly memorable performance in 2014, though, when Patti Sci
 So odds are good that as soon as we're fortunate enough for *any* night to rock, "Seven Nights to Rock" will be a wild card candidate in Bruce's set lists.
 
 **Seven Nights to Rock**<br>
-**First performed:** April 13, 2002 (Asbury Park, NJ)
-**Last performed:** June 11, 2025 (Berlin, Germany)
+**First performed:** April 13, 2002 (Asbury Park, NJ)<br>
+**Last performed:** June 11, 2025 (Berlin, Germany)<br>
 
 (c) April 22, 2021

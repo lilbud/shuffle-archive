@@ -18,5 +18,5 @@ February 4, 1972 (Richmond, VA)
 February 4, 1972 (Richmond, VA)
 
 **I'm Into Something Good**<br>
-**First performed:** <br>
+**First performed:**<br>
 **Last performed:**<br>

@@ -60,4 +60,4 @@
 
 ![](../../assets/2024/03/Chicago_Tribune_Thu__Mar_9__2023_-2-scaled.jpg)
 
-> *![](../../assets/2024/03/Chicago_Tribune_Thu__Mar_9__2023_-1.jpg)*
+> *![](../../assets/2024/03/Chicago_Tribune_Thu__Mar_9__2023_-1.jpg)*<br>

@@ -73,7 +73,7 @@ Exactly fifty years later, though, protests rage across America, and we find our
 **Where Was Jesus in Ohio**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** June 19, 1970 (Richmond, VA)
-**Last performed:** June 19, 1970 (Richmond, VA)
+**First performed:** June 19, 1970 (Richmond, VA)<br>
+**Last performed:** June 19, 1970 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

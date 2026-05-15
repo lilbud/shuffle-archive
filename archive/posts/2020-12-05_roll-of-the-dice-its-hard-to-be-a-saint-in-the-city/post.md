@@ -108,9 +108,9 @@ For my money the song still works best acoustically. I haven't been lucky enough
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_q3BRl9M9Zg)
 
 **It's Hard to Be a Saint in the City  
-Recorded:** June-October 1972  
-**Released:** *Greetings from Asbury Park, N.J.* (1973), *Tracks* (1998) (Demo version)
-**First performed:** May 2, 1972 (New York City, NY)
-**Last performed:** February 21, 2017 (Christchurch, New Zealand)
+**Recorded:** June-October 1972  
+**Released:** *Greetings from Asbury Park, N.J.* (1973), *Tracks* (1998) (Demo version)<br>
+**First performed:** May 2, 1972 (New York City, NY)<br>
+**Last performed:** February 21, 2017 (Christchurch, New Zealand)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

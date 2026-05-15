@@ -145,9 +145,9 @@ Bonus #2: Here's another "Frankie" studio outtake, this one from the 1982 sessio
 <https://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3>
 
 **Frankie**<br>
-**Recorded** May 14,1982  
-**Released:** *Tracks* (1998)
-**First performed:** March 26, 1976 (Atlanta, GA)
-**Last performed:** July 20, 2016 (Horsens, Denmark)
+**Recorded** May 14,1982<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** March 26, 1976 (Atlanta, GA)<br>
+**Last performed:** July 20, 2016 (Horsens, Denmark)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -14,37 +14,37 @@ Joe recorded released "I'm Not Sleeping" on his 1998 album, *Coming Home.*
 
 [Watch on Youtube: I'm Not Sleeping](https://www.youtube.com/watch?v=VCVz7Vlvyo4)
 
-> *I never go out, I just stay at home*
-> *Change my address and disconnect the phone*
-> *Turn off the TV because it bothers me*
-> *I've seen all, seen all I want to see*
-> *And if my friends ask where I've been*
-> *Just say I don't know what's become of him*
+> *I never go out, I just stay at home*<br>
+> *Change my address and disconnect the phone*<br>
+> *Turn off the TV because it bothers me*<br>
+> *I've seen all, seen all I want to see*<br>
+> *And if my friends ask where I've been*<br>
+> *Just say I don't know what's become of him*<br>
 
-> *Well I'm not sleeping*
-> *I'm only resting my eyes*
-> *Well I'm not sleeping*
-> *I'm only taking my time*
+> *Well I'm not sleeping*<br>
+> *I'm only resting my eyes*<br>
+> *Well I'm not sleeping*<br>
+> *I'm only taking my time*<br>
 
-> *Well it's so hard, so hard to be responsible*
-> *Knowing everything, everything that's possible*
-> *When the bad wind, when it comes blowing in*
-> *I'll pack my things and I'll move on again*
-> *I feed the rich and fool the poor*
-> *Stack the bodies outside my door*
+> *Well it's so hard, so hard to be responsible*<br>
+> *Knowing everything, everything that's possible*<br>
+> *When the bad wind, when it comes blowing in*<br>
+> *I'll pack my things and I'll move on again*<br>
+> *I feed the rich and fool the poor*<br>
+> *Stack the bodies outside my door*<br>
 
-> *The world outside is such a dangerous place*
-> *That I don't dare, I don't dare show my face*
-> *They got my number, they know where I live*
-> *Well I've got no more to say, I've got no more to give*
+> *The world outside is such a dangerous place*<br>
+> *That I don't dare, I don't dare show my face*<br>
+> *They got my number, they know where I live*<br>
+> *Well I've got no more to say, I've got no more to give*<br>
 
-> *But I'm not sleeping*
+> *But I'm not sleeping*<br>
 
-> *Another night comes drawing near*
-> *I shut my doors and then I disappear*
+> *Another night comes drawing near*<br>
+> *I shut my doors and then I disappear*<br>
 
-> *But I'm not sleeping*
-> *I'm only resting my eyes*
+> *But I'm not sleeping*<br>
+> *I'm only resting my eyes*<br>
 
 In a just world, "I'm Not Sleeping" would have been a hit single. It had all the elements, and it sounds even more relevant and fresh today than it did in 1998. (At least one of Joe's lines also snuck its way into one of Bruce's songs almost a decade later. Can you spot it?)
 
@@ -57,8 +57,8 @@ Joe and Bruce's performances of "I'm Not Sleeping" are so great, in fact, that I
 [Watch Video Highlight](https://videopress.com/embed/bNmTsDJo)
 
 **I'm Not Sleeping**<br>
-**Released:** *Coming Home* (1998)
-**First performed:** November 4, 2010 (Pittsburgh, PA)
-**Last performed:** May 23, 2014 (Pittsburgh, PA)
+**Released:** *Coming Home* (1998)<br>
+**First performed:** November 4, 2010 (Pittsburgh, PA)<br>
+**Last performed:** May 23, 2014 (Pittsburgh, PA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

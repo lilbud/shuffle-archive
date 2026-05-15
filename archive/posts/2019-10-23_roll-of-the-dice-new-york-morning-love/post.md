@@ -16,55 +16,55 @@ Perhaps it's for the best that "New York Morning Love" never made it to the stag
 
 Let's take a close look at those lyrics:
 
-> *Pastel colors paint the sky*
-> *Green sea children cloud your eyes*
-> *Upon the grass together we'd lie*
-> *And a raindrop filled your eye*
+> *Pastel colors paint the sky*<br>
+> *Green sea children cloud your eyes*<br>
+> *Upon the grass together we'd lie*<br>
+> *And a raindrop filled your eye*<br>
 
 That first verse is fairly typical of Bruce's late 1960s writing. His imagery often featured vivid colors, and he was prone to making frequent trips to the well of nature metaphors.
 
 But the second verse rescues the song from what might otherwise have already been cliched territory for Bruce, wresting the lovers from their green reverie and transplanting them to the reality of a New York City flat.
 
-> *Stained glass window comes alive*
-> *Through its veins pulse the merging light*
-> *Under the soft white sheet together we'd lie*
-> *And your tears are crystallized*
+> *Stained glass window comes alive*<br>
+> *Through its veins pulse the merging light*<br>
+> *Under the soft white sheet together we'd lie*<br>
+> *And your tears are crystallized*<br>
 
 Our narrator and his love lie in the afterglow of their love, but something's not quite right–why is his girl crying?
 
-> *I'll take your love & hide it in my hand*
-> *Until the sea has stolen all of the sand*
-> *I'll shield you from the violence of a half-crazed man*
-> *Who'd kill you where you stand*
+> *I'll take your love & hide it in my hand*<br>
+> *Until the sea has stolen all of the sand*<br>
+> *I'll shield you from the violence of a half-crazed man*<br>
+> *Who'd kill you where you stand*<br>
 
 Oh. Well, *that's* certainly a curve ball. It turns out she's married, or at least in a relationship serious enough that her partner could conceivably resort to violence for her betrayal.
 
 But Bruce is undeterred, promising to protect her and professing his true love.
 
-> *Sometimes I doubt if you understand*
-> *All the things I've spoken to you and*
-> *Everything I've felt for you today*
-> *But I guess you cannot say what you don't know*
+> *Sometimes I doubt if you understand*<br>
+> *All the things I've spoken to you and*<br>
+> *Everything I've felt for you today*<br>
+> *But I guess you cannot say what you don't know*<br>
 
 Okay, here comes the next plot twist. Ready?
 
-> *Through the green fields that day we ran*
-> *You made me happy like no one else can*
-> *Then dusk came in and hid us in the night*
-> *And you gave me my first child*
+> *Through the green fields that day we ran*<br>
+> *You made me happy like no one else can*<br>
+> *Then dusk came in and hid us in the night*<br>
+> *And you gave me my first child*<br>
 
 Whoa–that's pretty serious ground for a teenager to travel. Not only is our protagonist in love with a married woman, he apparently is the father of her child.
 
 You'd think that'd be the setup of a fascinating song, but unfortunately that's where Bruce ends it. There's a refrain or coda of sorts, one that implies that the lovers long for each other but are destined to remain apart.
 
-> *Can you help me*
-> *Can you help me*
-> *Can you help me call your name*
-> *(repeat)*
+> *Can you help me*<br>
+> *Can you help me*<br>
+> *Can you help me call your name*<br>
+> *(repeat)*<br>
 
-> *I will help you*
-> *I will help you*
-> *I will help you call my name*
+> *I will help you*<br>
+> *I will help you*<br>
+> *I will help you call my name*<br>
 
 …and that's all he wrote.
 

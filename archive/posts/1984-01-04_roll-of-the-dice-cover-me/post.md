@@ -126,9 +126,9 @@ I'm thinking this is a streak worth extending.
 [Watch Video Highlight](https://videopress.com/embed/e3V4yBk8)
 
 **Cover Me**<br>
-**Recorded** January 25, 1982  
+**Recorded** January 25, 1982<br>
 **Released:** *Born in the U.S.A.* (1984)
-**First performed:** July 2, 1984 (St. Paul, MN)
-**Last performed:** June 27, 2024 (Nijmegen, The Netherlands)
+**First performed:** July 2, 1984 (St. Paul, MN)<br>
+**Last performed:** June 27, 2024 (Nijmegen, The Netherlands)<br>
 
 © January 13, 2021

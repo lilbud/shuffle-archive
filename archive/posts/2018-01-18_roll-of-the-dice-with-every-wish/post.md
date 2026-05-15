@@ -59,8 +59,8 @@ But when he tries to skip over the sad parts, his son makes him go back and read
 [Watch Video Highlight](https://videopress.com/embed/G9xPqO8U)
 
 **With Every Wish**<br>
-**Recorded** Late 1989**Released:** *Human Touch*, 1992  
-**First Performed:** June 15, 1992 (Stockholm)
+**Recorded** Late 1989**Released:** *Human Touch*, 1992<br>
+**First Performed:** June 15, 1992 (Stockholm)<br>
  **Last Performed:** July 23, 1992 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

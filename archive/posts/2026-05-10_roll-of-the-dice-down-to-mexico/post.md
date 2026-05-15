@@ -16,10 +16,10 @@ But when it comes to "Down to Mexico," a 1971-72 gem from The Bruce Springsteen 
 
 The entire song revolves around variations of:
 
-> *Oh do run daddy*
-> *Yeah you do or don't you daddy*
-> *Papa where are you going*
-> *Down to Mexico*
+> *Oh do run daddy*<br>
+> *Yeah you do or don't you daddy*<br>
+> *Papa where are you going*<br>
+> *Down to Mexico*<br>
 
 Honestly, though, the lyrics are so not the point here. "Down to Mexico" is a straight-up showcase piece–first for Bruce, then for keyboardist David Sancious.
 
@@ -49,6 +49,6 @@ I think not.
 Never recorded  
 Never released  
 First performed:** February 4, 1972 (Richmond, VA)  
-**Last performed:** February 26, 1972 (Richmond, VA)
+**Last performed:** February 26, 1972 (Richmond, VA)<br>
 
 © March 10, 2021

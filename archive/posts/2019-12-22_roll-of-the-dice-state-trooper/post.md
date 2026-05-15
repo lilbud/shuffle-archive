@@ -87,8 +87,8 @@ I'll leave you with that masterful and nightmarish Vancouver performance, my all
 
 **State Trooper**<br>
 **Recorded:** December 17, 1981 – January 3, 1982  
-**Released:** *Nebraska* (1982)
-**First performed:** September 8, 1984 (Hartford, CT)
-**Last performed:** November 15, 2012 (Omaha, NE)
+**Released:** *Nebraska* (1982)<br>
+**First performed:** September 8, 1984 (Hartford, CT)<br>
+**Last performed:** November 15, 2012 (Omaha, NE)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

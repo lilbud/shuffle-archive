@@ -4,7 +4,7 @@ In the spring of 1995, Sting and Trudie Styler invited Bruce Springsteen to perf
 
 But Bruce couldn't and wouldn't decline the invitation, of course, and he did end up singing a few Elvis covers at the show. But the idea of trying to imitate Elvis got stuck in his mind, and one afternoon at home he wrote the words:
 
-> *I'm turning into Elvis, and there's nothing I can do.*
+> *I'm turning into Elvis, and there's nothing I can do.*<br>
 
 "I thought it would be a funny way to contextualize the entire event," he told interviewer Neil Strauss in 1995. "It was very easy to write."
 
@@ -14,40 +14,40 @@ Also fun.
 
 [Watch Video Highlight](https://videopress.com/embed/ZEiX8nVY)
 
-> *I woke up in the morning, and I had on blue suede shoes*
-> *The pillow crushed my hair into a shiny black pompadour and on my arm was one blue tattoo*
-> *Well my wife, she brought me breakfast and I said, "thank you ma'am… god bless you"*
-> *I'm turning into Elvis, and there's nothing I can do*
+> *I woke up in the morning, and I had on blue suede shoes*<br>
+> *The pillow crushed my hair into a shiny black pompadour and on my arm was one blue tattoo*<br>
+> *Well my wife, she brought me breakfast and I said, "thank you ma'am… god bless you"*<br>
+> *I'm turning into Elvis, and there's nothing I can do*<br>
 
-> *Well now, my closet was filled with uncounted jewels and a suit of gold lame*
-> *And I put on a belt the size of Memphis, It was inscribed "Love Priscilla, Yours Always"*
-> *In the pocket there were some little white pills… yeah, I did them too*
-> *I'm turning into Elvis, and there's nothing I can do*
+> *Well now, my closet was filled with uncounted jewels and a suit of gold lame*<br>
+> *And I put on a belt the size of Memphis, It was inscribed "Love Priscilla, Yours Always"*<br>
+> *In the pocket there were some little white pills… yeah, I did them too*<br>
+> *I'm turning into Elvis, and there's nothing I can do*<br>
 
-> *Well I went downstairs, and I kissed the babysitter. She screamed and I told her it was just the beast in me*
-> *And on my way out of the house, I shot out my TV*
-> *I went down to the corner luncheonette and said "fried peanut butter and banana, ma'am, that'll do"*
-> *I'm turning into Elvis and there's nothing I can do*
+> *Well I went downstairs, and I kissed the babysitter. She screamed and I told her it was just the beast in me*<br>
+> *And on my way out of the house, I shot out my TV*<br>
+> *I went down to the corner luncheonette and said "fried peanut butter and banana, ma'am, that'll do"*<br>
+> *I'm turning into Elvis and there's nothing I can do*<br>
 
-> *Well, I threw out my wife and family and I took off my wedding ring*
-> *I told my friends and neighbors to refer to me now as "King"*
-> *I put a chain link fence around my ranch house and on the gate a sign that says "Graceland II"*
-> *I'm turning into Elvis and there's nothing I can do*
+> *Well, I threw out my wife and family and I took off my wedding ring*<br>
+> *I told my friends and neighbors to refer to me now as "King"*<br>
+> *I put a chain link fence around my ranch house and on the gate a sign that says "Graceland II"*<br>
+> *I'm turning into Elvis and there's nothing I can do*<br>
 
-> *I visited my mama's grave and I headed out to Hollywood and I signed a picture with MGM*
-> *I play a rebellious beach boy racecar driver who fucks a nun in the end*
-> *In the last scene, I whip out my big guitar and show her a little Memphis-style kung-fu*
-> *I'm turning into Elvis and there's nothing I can do*
+> *I visited my mama's grave and I headed out to Hollywood and I signed a picture with MGM*<br>
+> *I play a rebellious beach boy racecar driver who fucks a nun in the end*<br>
+> *In the last scene, I whip out my big guitar and show her a little Memphis-style kung-fu*<br>
+> *I'm turning into Elvis and there's nothing I can do*<br>
 
-> *Well, then I drove on straight to Vegas and I stopped in the first good old stripper bar*
-> *Found me a little hooker that looked just like Ann-Margaret and we rumba-ed in my sports car*
-> *Well me and my drinking buddies turned my lovin' home into a freakin' zoo*
-> *I'm turning into Elvis and there's nothing I can do*
+> *Well, then I drove on straight to Vegas and I stopped in the first good old stripper bar*<br>
+> *Found me a little hooker that looked just like Ann-Margaret and we rumba-ed in my sports car*<br>
+> *Well me and my drinking buddies turned my lovin' home into a freakin' zoo*<br>
+> *I'm turning into Elvis and there's nothing I can do*<br>
 
-> *Well he came to me last night in a dream, looking just like he did in 1957*
-> *He said "Son that guitar is a wonderful thing but it can be the devils' friend.*
-> *On the other hand there's sex-starved women, millions of dollars, and anything you want to do…"*
-> *I'm turning into Elvis and there's nothing I can do*
+> *Well he came to me last night in a dream, looking just like he did in 1957*<br>
+> *He said "Son that guitar is a wonderful thing but it can be the devils' friend.*<br>
+> *On the other hand there's sex-starved women, millions of dollars, and anything you want to do…"*<br>
+> *I'm turning into Elvis and there's nothing I can do*<br>
 
 That performance was actually from Bruce's show in Memphis in November 1996–the only time Bruce has performed "I'm Turning Into Elvis" on tour, and the only known complete recording of the song. (Bruce previewed his work-in-progress at a private show at Sony Studios a week before the Rainforest gig, playing only a few verses parceled out over the course of the show, and then debuted the song at Carnegie Hall the week following.)
 
@@ -60,7 +60,7 @@ But "I'm Turning Into Elvis" was where it started. One wonders just how many oth
 **I'm Turning Into Elvis**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** April 5, 1995 (New York City, NY)
-**Last performed:** November 19, 1996 (Memphis, TN)
+**First performed:** April 5, 1995 (New York City, NY)<br>
+**Last performed:** November 19, 1996 (Memphis, TN)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

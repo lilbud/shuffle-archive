@@ -20,19 +20,19 @@ But while the title might have been borrowed, the lyrics are original.
 
 Unfortunately, the first half is *really* hard to make out. The good folks at brucelyrics.com took a stab at it, but my inspection tells me that their decryption is inaccurate. Unfortunately, I can't come up with anything better, so rather than give myself a headache trying (if you want to try, be my guest–I'd love to know what you come up with), here's my transcription of the second half:
 
-> *In high school ??? her hair*
-> *What you got baby under there*
-> *Something hot for when the night turns cold*
-> *I'd want you till … [presumably the chorus "the blue moon turns to gold" goes here]*
+> *In high school ??? her hair*<br>
+> *What you got baby under there*<br>
+> *Something hot for when the night turns cold*<br>
+> *I'd want you till … [presumably the chorus "the blue moon turns to gold" goes here]*<br>
 
-> *When the school days was done*
-> *marry me baby, we'll have a lot of fun*
-> *All I heard was no no no no*
-> *I'll be cryin' till the blue moon turns to gold*
+> *When the school days was done*<br>
+> *marry me baby, we'll have a lot of fun*<br>
+> *All I heard was no no no no*<br>
+> *I'll be cryin' till the blue moon turns to gold*<br>
 
-> *So you wanna leave our little town*
-> *Someday all that's this world won't be nothin but ice and cold*
-> *My love will burn inside till the blue moon…*
+> *So you wanna leave our little town*<br>
+> *Someday all that's this world won't be nothin but ice and cold*<br>
+> *My love will burn inside till the blue moon…*<br>
 
 So, um, yeah–not exactly Bruce's deepest (or even coherent) lyrics.
 

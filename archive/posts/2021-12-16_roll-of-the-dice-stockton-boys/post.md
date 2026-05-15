@@ -10,23 +10,23 @@ However, not just one but *four* home-recorded outtakes of a very work-in-progre
 
 As I mentioned, the song isn't fully developed. A lot of the lyrics are bluffed, but there's enough there to figure out what Bruce was aiming for. And those first lines should sound at least a bit familiar–and the second verse variation even more so:
 
-> *They wear it in their eyes, they wear it on their shirts*
-> *They come down here looking to get hurt*
+> *They wear it in their eyes, they wear it on their shirts*<br>
+> *They come down here looking to get hurt*<br>
 
 …because [they'd show up in somewhat altered form](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/) a few years later:
 
-> *Friday night's pay night guys fresh out of work*
-> *Talking about the weekend scrubbing off the dirt*
+> *Friday night's pay night guys fresh out of work*<br>
+> *Talking about the weekend scrubbing off the dirt*<br>
 *Some heading home to their families, **some are looking to get hurt***
 *Some going down to Stovell **wearing trouble on their shirts***
 
 The chorus is the only part of the song with fully intelligible lyrics, and it's here where the song comes into focus:
 
-> *Oh Stockton boys*
-> *Acting tough, making noise*
-> *They say they're coming down here to collect*
-> *The Stockton boys, acting tough making noise*
-> *Man they just want to get wrecked*
+> *Oh Stockton boys*<br>
+> *Acting tough, making noise*<br>
+> *They say they're coming down here to collect*<br>
+> *The Stockton boys, acting tough making noise*<br>
+> *Man they just want to get wrecked*<br>
 
 The Stockton boys are hooligans, come to town to cause trouble. It's unclear from the fragments we have whether the boys are petty thieves "coming down here to collect," drug addicts "looking to get wrecked" or just escaping a life they never planned on but have found themselves saddled with.
 
@@ -42,10 +42,10 @@ In a third version, Bruce puts a fine point on the Stockton boys:
 
 [Watch on Youtube: Bruce Springsteen Stockton Boys #3](https://www.youtube.com/watch?v=6rY67dsXmnU)
 
-> *Oh Stockton Boys, too young to figure it out*
-> *Just too dumb to pack it up and get out*
-> *Stockton Boys*
-> *Get out of Stockton boys*
+> *Oh Stockton Boys, too young to figure it out*<br>
+> *Just too dumb to pack it up and get out*<br>
+> *Stockton Boys*<br>
+> *Get out of Stockton boys*<br>
 
 Well, that's pretty direct, isn't it?
 
@@ -53,10 +53,10 @@ Finally, a fourth outtake almost feels like a reversion. Bruce dips into his tru
 
 [Watch on Youtube: Bruce Springsteen Stockton Boys #4](https://www.youtube.com/watch?v=T4JL2egZvk8)
 
-> *Oh Jenny's still got money in her car*
-> *And Eddie stills begging fights in Queenstown bars*
-> *This life never ends*
-> *Will they never learn?*
+> *Oh Jenny's still got money in her car*<br>
+> *And Eddie stills begging fights in Queenstown bars*<br>
+> *This life never ends*<br>
+> *Will they never learn?*<br>
 
 There's no evidence to suggest that any version of "Stockton Boys" ever made it past the home demo stage. Other than some shared DNA with "Working on the Highway," this one appears to be truly lost in time.
 

@@ -1,4 +1,4 @@
-> "Robert De Niro said once that what he likes about acting is that he gets to step into other people's shoes without the real-life consequences. Art does allow you to do that, to go right up to the abyss and look in, hopefully without falling in. On any given day. I feel like that's what **Arcade Fire** was built to hold off, that falling in. There's a furious aspect to the performance, and that's why people come out — you're recognizing the realities of people's emotional lives and their difficulties, you're presenting these problems, and you're bringing a survival kit. The bands that do that forge intense, intense relationships with their audience, and to me, that was always the core of the best rock'n'roll." *–Bruce Springsteen to Steve Kandell, Spin, December 2007*
+> "Robert De Niro said once that what he likes about acting is that he gets to step into other people's shoes without the real-life consequences. Art does allow you to do that, to go right up to the abyss and look in, hopefully without falling in. On any given day. I feel like that's what **Arcade Fire** was built to hold off, that falling in. There's a furious aspect to the performance, and that's why people come out — you're recognizing the realities of people's emotional lives and their difficulties, you're presenting these problems, and you're bringing a survival kit. The bands that do that forge intense, intense relationships with their audience, and to me, that was always the core of the best rock'n'roll." *–Bruce Springsteen to Steve Kandell, Spin, December 2007*<br>
 
 Bruce lavished that praise on Arcade Fire in the presence of the band's lead vocalists, Win Butler and Régine Chassagne, just hours before Bruce's Magic show at the Meadowlands in early October 2007.
 
@@ -21,7 +21,7 @@ As it turned out, it translated pretty darn well. See for yourself: the clip bel
 Bruce would perform with Win and Régine once more, five years down the road, but that 2007 night in Ottawa remains the only time to date Bruce has played "Keep the Car Running."
 
 **Keep the Car Running**<br>
-**First performed:** October 14, 2007 (Ottawa, ON)
-**Last performed:** October 14, 2007 (Ottawa, ON)
+**First performed:** October 14, 2007 (Ottawa, ON)<br>
+**Last performed:** October 14, 2007 (Ottawa, ON)<br>
 
 © April 1, 2020

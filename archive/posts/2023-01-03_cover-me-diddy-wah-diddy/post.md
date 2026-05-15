@@ -35,7 +35,7 @@ It was an inspired choice–for fans anxious for release in that freshly post-9/
 Here's hoping we all get to make a return visit soon.
 
 **Diddy Wah Diddy**<br>
-**First performed:** August 20, 1994 (Long Branch, NJ)
-**Last performed:** September 7, 2003 (Boston, MA)
+**First performed:** August 20, 1994 (Long Branch, NJ)<br>
+**Last performed:** September 7, 2003 (Boston, MA)<br>
 
 

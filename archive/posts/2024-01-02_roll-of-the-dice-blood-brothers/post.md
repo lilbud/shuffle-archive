@@ -1,4 +1,4 @@
-> *"I always felt that the friendships, loyalties, and relationships are the bonds that keep you from slipping into the abyss of self-destructiveness. Without those things, that abyss feels a lot closer–like it's on your heels." — Bruce Springsteen to Neil Strauss, September 1995*
+> *"I always felt that the friendships, loyalties, and relationships are the bonds that keep you from slipping into the abyss of self-destructiveness. Without those things, that abyss feels a lot closer–like it's on your heels." — Bruce Springsteen to Neil Strauss, September 1995*<br>
 
 How can such a nihilistic song give us so much feels?
 
@@ -8,12 +8,12 @@ That's the irony underlying the song that–despite only having been played five
 
 On first listen–heck, maybe even on *any* listen–"Blood Brothers" is shocking in its apathy. If asked to name a defining trait for Bruce Springsteen on *Family Feud*, "passion" would almost certainly be the number one answer. But the singer of "Blood Brothers" can't dredge any of it up–he can only remember it in the faint, foolish, glow of youth.
 
-> *We played king of the mountain out on the end*
-> *The world come charging up the hill, and we were women and men*
-> *Now there's so much that time, time and memory fade away*
-> *We got our own roads to ride and chances we got to take*
-> *We stood side by side each one fighting for the other*
-> *And we said until we died we'd always be blood brothers*
+> *We played king of the mountain out on the end*<br>
+> *The world come charging up the hill, and we were women and men*<br>
+> *Now there's so much that time, time and memory fade away*<br>
+> *We got our own roads to ride and chances we got to take*<br>
+> *We stood side by side each one fighting for the other*<br>
+> *And we said until we died we'd always be blood brothers*<br>
 
 Yes, Bruce is speaking of and to the E Street Band here. He admitted as much in interviews at the time–in fact he wrote the song on the eve of (temporarily, it turned out) reuniting with them in the studio. And that pull-quote at the top of the essay–it probably sounded a bit melodramatic at the time, but with the retrospective knowledge that its speaker has struggled all his adult life with depression…. well, suddenly that abyss seems very real and very close. I'd argue that "Blood Brothers" may be the most depressive song in Bruce's catalog, the one that most clearly laid bare (if only we knew how to hear it at the time) his emotional struggle.
 
@@ -23,24 +23,24 @@ But in 1995, he was still searching and still coming to terms with the warring s
 
 Remember, this is the man who only a few years earlier wrote one of the other defining songs of the Reunion Era:
 
-> *We said we'd walk together baby come what may*
-> *That come the twilight should we lose our way*
-> *If as we're walking a hand should slip free*
-> *I'll wait for you*
-> *And should I fall behind*
-> *Wait for me*
+> *We said we'd walk together baby come what may*<br>
+> *That come the twilight should we lose our way*<br>
+> *If as we're walking a hand should slip free*<br>
+> *I'll wait for you*<br>
+> *And should I fall behind*<br>
+> *Wait for me*<br>
 
-> *We swore we'd travel darlin' side by side*
-> *We'd help each other stay in stride*
+> *We swore we'd travel darlin' side by side*<br>
+> *We'd help each other stay in stride*<br>
 
 
 
 Granted, "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" is a romantic song and "Blood Brothers" a fraternal one, but the narrator of the latter seems to have lost the heart of the former.
 
-> *Now the hardness of this world slowly grinds your dreams away*
-> *Making a fool's joke out of the promises we make*
-> *And what once seemed black and white turns to so many shades of gray*
-> *We lose ourselves in work to do, work to do and bills to pay*
+> *Now the hardness of this world slowly grinds your dreams away*<br>
+> *Making a fool's joke out of the promises we make*<br>
+> *And what once seemed black and white turns to so many shades of gray*<br>
+> *We lose ourselves in work to do, work to do and bills to pay*<br>
 
 
 
@@ -50,24 +50,24 @@ Until this point, Bruce had largely lived a Peter Pan life, but now in 1995 he h
 
 In other words–and in later words–it was "bills and kids and kids and bills and the ringing of the bell."
 
-> *And it's a ride, ride, ride, and there ain't much cover*
-> *With no one running by your side, my blood brother*
+> *And it's a ride, ride, ride, and there ain't much cover*<br>
+> *With no one running by your side, my blood brother*<br>
 
 It's worth pausing for a moment here to note that despite the obviously personal lyrics and the interviews where Bruce flat-out copped to writing the song about the band, the song itself is actually sung to only one person, one blood brother. It would be a few years before Bruce would alter it to remove the veil–but we're getting ahead of ourselves.
 
 It's the final verse that reveals the emotional state of the singer. He's numb, detached, and removed from his actions, unable to feel the connections he's clearly subconsciously searching for.
 
-> *On through the houses of the dead past those fallen in their tracks*
-> *Always moving ahead and never looking back*
-> *Now I don't know how I feel, I don't know how I feel tonight*
-> *If I've fallen ‘neath the wheel, if I've lost or I gained sight*
-> *I don't even know why, I don't know why I made this call*
-> *Or if any of this matters anymore after all*
+> *On through the houses of the dead past those fallen in their tracks*<br>
+> *Always moving ahead and never looking back*<br>
+> *Now I don't know how I feel, I don't know how I feel tonight*<br>
+> *If I've fallen ‘neath the wheel, if I've lost or I gained sight*<br>
+> *I don't even know why, I don't know why I made this call*<br>
+> *Or if any of this matters anymore after all*<br>
 
 The song's final couplet almost seems like an afterthought, a too-neat bow to end the song on a happy note the song hasn't earned.
 
-> *But the stars are burning bright like some mystery uncovered*
-> *I'll keep moving through the dark with you in my heart, my blood brother*
+> *But the stars are burning bright like some mystery uncovered*<br>
+> *I'll keep moving through the dark with you in my heart, my blood brother*<br>
 
 But the key is in that very last line, now that we know to look for it: at the time at least, Bruce was still in the dark, still moving through it, and he knew that his personal relationships were the key to making it through to the other side. He's not in a healthy place, but he knows his best chance of getting there lies with his family and friends.
 
@@ -79,8 +79,8 @@ In any event, besides the "official" version above that appears on *Greatest Hit
 
 Interestingly, the rock version discards the "I don't know why" ending of the official version and replaces it with this couplet:
 
-> *Now the moon's dirty light shines ‘cross the highway unfurled*
-> *And this love burns inside me like the last light in the world*
+> *Now the moon's dirty light shines ‘cross the highway unfurled*<br>
+> *And this love burns inside me like the last light in the world*<br>
 
 Those lines don't appear in any other of the versions floating around, so it may have been a fleeting attempt by Bruce to summon a sentiment he just wasn't feeling. Wisely, he dropped it.
 
@@ -104,12 +104,12 @@ But on closing night, Bruce had one more song in mind after "Land of Hope and Dr
 
 Bruce completely excised the nihilistic last verse and replaced it with lyrics that showed how in touch Bruce was with his heart at that moment. And if there was any doubt at all among those in attendance, Bruce's tears and husky vocals put it to rest.
 
-> *Now I'm out here on this road, alone on this road tonight*
-> *Close my eyes and feel so many friends around me in the early evening light*
-> *And the miles we have come and the battles won and lost*
-> *Are just so many roads traveled, so many rivers crossed*
-> *And I ask God for the strength and faith in one another*
-> *‘Cause it's a good night for a ride ‘cross this river to the other side, my blood brothers*
+> *Now I'm out here on this road, alone on this road tonight*<br>
+> *Close my eyes and feel so many friends around me in the early evening light*<br>
+> *And the miles we have come and the battles won and lost*<br>
+> *Are just so many roads traveled, so many rivers crossed*<br>
+> *And I ask God for the strength and faith in one another*<br>
+> *‘Cause it's a good night for a ride ‘cross this river to the other side, my blood brothers*<br>
 
 In that last line, that last word, Bruce finally made the song explicitly about his band.
 
@@ -143,9 +143,9 @@ Perhaps he felt the original lyrics best suited the contemplative acoustic arran
 In any arrangement, "Blood Brothers" continues to be an emotional rarity, long and fondly remembered by those present to hear it.
 
 **Blood Brothers**<br>
-**Recorded** January 1995  
+**Recorded** January 1995<br>
 **Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)
-**First performed:** April 4, 1995 (New York City, NY)
-**Last performed:** January 22, 2017 (Perth, Australia)
+**First performed:** April 4, 1995 (New York City, NY)<br>
+**Last performed:** January 22, 2017 (Perth, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

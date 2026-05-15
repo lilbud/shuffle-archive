@@ -18,21 +18,21 @@ Musically, the two songs couldn't be more different. Williamson's 1958 single is
 
 Lyrically, though, Bruce hews pretty closely to Williamson's line–both songs center around a protagonist desperately pleading to be forgiven for his indiscretions, promising faithfulness evermore. But whereas Williamson's narrator seems a genuinely repentant and changed man (like the narrator of "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)"), Bruce's protagonist seems to be a bit more self-aware.
 
-> *First time I crossed my heart I was begging baby please*
-> *At your bedside down on my knees*
-> *When I crossed my heart*
-> *It's when I crossed my heart*
-> *I crossed my heart pretty baby over you*
+> *First time I crossed my heart I was begging baby please*<br>
+> *At your bedside down on my knees*<br>
+> *When I crossed my heart*<br>
+> *It's when I crossed my heart*<br>
+> *I crossed my heart pretty baby over you*<br>
 
 The action begins with a couplet largely lifted from Williamson's song and transformed into a devilishly clever visual double entendre. Clearly, our narrator has done something wrong and is begging his lover to take him back, but by placing his character's act of supplication besides his lover's bedside, Bruce suggests that his narrator's apology is accompanied by an earthly act of contrition. In other words, he's about to orally please his lover if only she'll let him.
 
 Although likely employed as idiom, the narrator's use of the sign of the cross to promise his faithfulness (from now on) is ironic given the morality tale that lies beneath "Cross My Heart."
 
-> *Second time I crossed my heart rain came in from the south*
-> *I was lying there with something sweet and salty in my mouth*
-> *When I crossed my heart*
-> *It's when I crossed my heart*
-> *When I crossed my heart pretty darling over you*
+> *Second time I crossed my heart rain came in from the south*<br>
+> *I was lying there with something sweet and salty in my mouth*<br>
+> *When I crossed my heart*<br>
+> *It's when I crossed my heart*<br>
+> *When I crossed my heart pretty darling over you*<br>
 
 Yeah, that means what you think it does. If the first verse was foreplay, the second is afterglow.
 
@@ -42,10 +42,10 @@ Maybe.
 
 As is often the case, Bruce hides the moral of the song in the bridge–or in this case, two bridges. Here's the first:
 
-> *Well you may think the world's black and white*
-> *And you're dirty or you're clean*
+> *Well you may think the world's black and white*<br>
+> *And you're dirty or you're clean*<br>
 ***Son**, you better watch out you don't slip*
-> *Through them spaces in between*
+> *Through them spaces in between*<br>
 
 Despite our narrator's promises of fidelity, Bruce is suggesting that we are listening to someone who rationalizes his actions when he falls short. He's *generally* good, *mostly* faithful. But the world isn't binary, Bruce cautions, and you can find yourself going south in small increments.
 
@@ -53,26 +53,26 @@ Significantly, the bridge is addressed not to the narrator's lover but to the na
 
 But before either we or our narrator can consider this further, Bruce brings us back to the heat of the moment.
 
-> *Where the night gets sticky and the sky gets black*
-> *Grabbed you baby and you grabbed me back*
-> *And we crossed our heart*
+> *Where the night gets sticky and the sky gets black*<br>
+> *Grabbed you baby and you grabbed me back*<br>
+> *And we crossed our heart*<br>
 
 There's an extended instrumental break (accompanied by some vocal whooping) that implies our protagonist is getting busy and ignoring that pesky inner voice. But then comes that second bridge…
 
-> *Well little boys, little girls*
-> *Yeah they know their wrongs from their rights*
-> *And once you cross your heart*
-> *Well you ain't ever supposed to lie*
+> *Well little boys, little girls*<br>
+> *Yeah they know their wrongs from their rights*<br>
+> *And once you cross your heart*<br>
+> *Well you ain't ever supposed to lie*<br>
 
 That second couplet is another lift from Sonny Boy, and it's a telling one. Our narrator may mean his promise in the moment, but he knows himself well enough to know he's not apt to keep it forever. But he's not going to ponder that now–he's too content in this moment.
 
 Bruce brings it home in a final verse that lays his character's motivation bare.
 
-> *Well life ain't nothing but a cold hard ride*
-> *I ain't leaving 'til I'm satisfied*
-> *I cross my heart*
-> *Yeah I cross my heart*
-> *Well I cross my heart pretty darling over you*
+> *Well life ain't nothing but a cold hard ride*<br>
+> *I ain't leaving 'til I'm satisfied*<br>
+> *I cross my heart*<br>
+> *Yeah I cross my heart*<br>
+> *Well I cross my heart pretty darling over you*<br>
 
 There are at least a couple ways to read this, none of them charitable. When he says "I ain't leaving 'til I'm satisfied," our narrator may be referring to his lover's bedroom or to life in general, but either way his motivations are selfish ones. His pledge may be sincere, but its duration is suspect, and he knows it.
 
@@ -96,9 +96,9 @@ With just Roy on keyboards and Bruce on guitar and harmonica (with a solo that B
 "Cross My Heart" is one of the stronger songs on *Human Touch*, as well as its most overlooked, even by its author. Especially in its acoustic arrangement, it deserves more consideration than it receives.
 
 **Cross My Heart**<br>
-**Recorded** September 1989 – March 1991  
-**Released:** *Human Touch* (1992)
-**First performed:** July 31, 1992 (East Rutherford, NJ)
-**Last performed:** November 10, 1992 (Uniondale, NY)
+**Recorded** September 1989 – March 1991<br>
+**Released:** *Human Touch* (1992)<br>
+**First performed:** July 31, 1992 (East Rutherford, NJ)<br>
+**Last performed:** November 10, 1992 (Uniondale, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

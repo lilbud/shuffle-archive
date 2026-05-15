@@ -29,7 +29,7 @@ March 27, 2024 (Brooklyn, NY)
 August 7, 2024 (Philadelphia, PA)
 
 **Sandpaper**<br>
-**Released:** *The Great American Bar Scene* <br>
+**Released:** *The Great American Bar Scene*<br>
 **First performed:**<br>
 **Last performed:**<br>
 

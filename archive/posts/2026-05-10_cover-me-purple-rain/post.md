@@ -1,4 +1,4 @@
-> "There's never been anyone better. Bandleader, showman, arranger… Whenever I would catch one of [Prince's] shows, I would always leave humbled. I'm going to miss that. We're going to miss that." *— Bruce Springsteen, April 23, 2016*
+> "There's never been anyone better. Bandleader, showman, arranger… Whenever I would catch one of [Prince's] shows, I would always leave humbled. I'm going to miss that. We're going to miss that." *— Bruce Springsteen, April 23, 2016*<br>
 
 Has there ever been a song more loaded with feels than "Purple Rain?" (Answer: no.)
 
@@ -30,7 +30,7 @@ Bruce played "Purple Rain" twice more, once the following night and again a few 
 
 **Purple Rain  
 First performed:** April 23, 2016* (Brooklyn, NY)  
-**Last performed:** May 14, 2016 (Barcelona, Spain)
+**Last performed:** May 14, 2016 (Barcelona, Spain)<br>
 
 *Brucebase cites one earlier performance of "Purple Rain," a team-up with Prince and Madonna in 1985. However, I've listened to that recording, and I do not believe Bruce was on stage for it. There's some confusion due to Prince seemingly calling out "Bruce!" during "America" that immediately preceded "Purple Rain," but it was actually Prince just shouting "Peace!" (which is how "America" opens). Bruce had left the stage by that time, only joining Prince and Madonna for "[Baby, I'm a Star](https://estreetshuffle.com/index.php/2020/08/07/matr-prince-bruce-springsteen-and-madonna-baby-im-a-star/)."
 

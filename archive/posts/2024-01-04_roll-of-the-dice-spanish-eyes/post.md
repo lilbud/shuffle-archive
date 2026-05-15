@@ -18,19 +18,19 @@ The second thing that leaps out at us are the lyrics, which sound awfully famili
 
 ***Hey little girl, is your daddy home***<br>
 ***Did he go away and leave you all alone***<br>
-> *Baby I been watching you for a long, long time*
-> *Come close, we could have us some fun*
-> *And after the burning is done*
-> *Our ruins will shine through the night*
-> *Where you took me with your Spanish eyes*
+> *Baby I been watching you for a long, long time*<br>
+> *Come close, we could have us some fun*<br>
+> *And after the burning is done*<br>
+> *Our ruins will shine through the night*<br>
+> *Where you took me with your Spanish eyes*<br>
 
 *He's your Saturday night special baby**, is he good to you***
-> *Does he have money, honey, like I do*
+> *Does he have money, honey, like I do*<br>
 ***Can he do the things that I'll do for you***<br>
-> *If your answer it isn't so clear*
-> *Then maybe you should stay right here*
-> *And let your doubts slip away ‘neath your sighs*
-> *Let me kiss your Spanish eyes*
+> *If your answer it isn't so clear*<br>
+> *Then maybe you should stay right here*<br>
+> *And let your doubts slip away ‘neath your sighs*<br>
+> *Let me kiss your Spanish eyes*<br>
 
 "Spanish Eyes" wouldn't see the light of day until 2010, but those four lines in bold introduce one of Bruce's greatest hits, his 1985 Top Ten single, "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)."
 
@@ -38,18 +38,18 @@ The second thing that leaps out at us are the lyrics, which sound awfully famili
 
 It's not just those lines that rhyme between songs; they're thematically similar, too. Where "I'm on Fire" is steamy and sinister, "Spanish Eyes" sounds richly romantic. However, they're both seduction songs crooned by a protagonist who isn't troubled by the fact that the object of his affection already has an object of her own.
 
-> *When the music it plays and the dancers sway with sweet emotion*
-> *And the dance floor is filled with promises of complete devotion*
-> *Close to feel your motion*
-> *Yeah, bring it on in*
+> *When the music it plays and the dancers sway with sweet emotion*<br>
+> *And the dance floor is filled with promises of complete devotion*<br>
+> *Close to feel your motion*<br>
+> *Yeah, bring it on in*<br>
 
-> *Come on and stretch out baby, and call your daddy home*
-> *I'm running tonight, I won't be long*
-> *I got something special baby, just meant for you*
-> *Here where the road narrows and turns*
-> *The only light's from the fire that burns*
-> *Here ‘neath the coal black skies*
-> *When I look into your Spanish eyes*
+> *Come on and stretch out baby, and call your daddy home*<br>
+> *I'm running tonight, I won't be long*<br>
+> *I got something special baby, just meant for you*<br>
+> *Here where the road narrows and turns*<br>
+> *The only light's from the fire that burns*<br>
+> *Here ‘neath the coal black skies*<br>
+> *When I look into your Spanish eyes*<br>
 
 "Spanish Eyes" only sounds romantic. While its bridge makes us swoon with words like emotion and devotion, our narrator makes no promises beyond showing his would-be lover a good time. But hey, maybe that's good enough for tonight.
 
@@ -76,9 +76,9 @@ Thank goodness for that tour's fan request segment, however. One time only, in (
 If we're only ever going to get one performance, at least it was a great one, featuring a gorgeous Curt Ramm trumpet solo. It's probably too deep a cut to surface again, but if you're laying odds keep an eye out for the Barcelona shows in a few months–you never know what surprises might lie in store.
 
 **Spanish Eyes**<br>
-**Recorded** June 30, 1977; 2010  
-**Released:** *The Promise* (2010)
-**First performed:** June 17, 2012 (Madrid, Spain)
-**Last performed:** June 17, 2012 (Madrid, Spain)
+**Recorded** June 30, 1977; 2010<br>
+**Released:** *The Promise* (2010)<br>
+**First performed:** June 17, 2012 (Madrid, Spain)<br>
+**Last performed:** June 17, 2012 (Madrid, Spain)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -16,5 +16,5 @@ May 27, 2001 (Asbury Park, NJ)
 May 27, 2001 (Asbury Park, NJ)
 
 **Trapped Again**<br>
-**First performed:** <br>
+**First performed:**<br>
 **Last performed:**<br>

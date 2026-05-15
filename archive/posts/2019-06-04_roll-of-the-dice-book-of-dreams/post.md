@@ -71,8 +71,8 @@ But my favorite performance is this one from 2005. It was the first time Bruce p
 
 **Book of Dreams**<br>
 **Recorded:** Late 1991  
-**Released:** *Lucky Town* (1992)
-**First performed:** August 2, 1992 (East Rutherford, NJ)
-**Last performed:** June 13, 2005 (Munich, Germany)
+**Released:** *Lucky Town* (1992)<br>
+**First performed:** August 2, 1992 (East Rutherford, NJ)<br>
+**Last performed:** June 13, 2005 (Munich, Germany)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

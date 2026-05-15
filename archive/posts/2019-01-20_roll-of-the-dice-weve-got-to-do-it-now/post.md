@@ -12,15 +12,15 @@ But that's pretty much all that's remarkable about this *very* of-its-time compo
 
 Honestly, it's a pretty weak song. The sentiment is admirable: it's a call to metaphorical arms, with Bruce and Robbin exhorting their cohorts to choose love not war (or at least to *choose* period):
 
-> *Well, come with me brothers, come with me sisters*
-> *The time has come, we've got to help each other*
-> *So pick up your guns or send out your lovers*
-> *The choice is yours, it's one or the other*
+> *Well, come with me brothers, come with me sisters*<br>
+> *The time has come, we've got to help each other*<br>
+> *So pick up your guns or send out your lovers*<br>
+> *The choice is yours, it's one or the other*<br>
 
-> *Now hurry up before it's too late*
-> *There's even no time to waste*
-> *The sooner it's done, I know, the better*
-> *So longer we wait the harder they'll make it for us to get together*
+> *Now hurry up before it's too late*<br>
+> *There's even no time to waste*<br>
+> *The sooner it's done, I know, the better*<br>
+> *So longer we wait the harder they'll make it for us to get together*<br>
 
 But that message was also delivered by many other musicians of that era, typically in a more artful fashion.
 
@@ -28,10 +28,10 @@ In fact, the lyrics are *so* atypical of Bruce's writing at the time that I susp
 
 There is one verse in particular that sounds like early Bruce–and differs enough from the preceding ones to lend credence to co-authorship:
 
-> *There's no backing out cause you're already in*
-> *The choice is yours, you have to make it my friend*
-> *You're branded as an outlaw and set on the run*
-> *Hunted by soldiers marked as the one*
+> *There's no backing out cause you're already in*<br>
+> *The choice is yours, you have to make it my friend*<br>
+> *You're branded as an outlaw and set on the run*<br>
+> *Hunted by soldiers marked as the one*<br>
 
 The notion of being cast as an "outlaw"–specifically the use of that term–is a theme that comes up often in Bruce's very western-influenced writing at the time. The sudden shift of focus and tone from peace and love to the very real consequences of refusing to participate in a morally unjust war–that sounds like Bruce as well.
 
@@ -40,7 +40,7 @@ But we'll probably never know, and it would rank pretty close to the bottom of t
 **We've Got to Do It Now**<br>
 **Never recorded**<br>
 Never released  
-**First performed:** November 27, 1970 (Asbury Park, NJ)
-**Last performed:** November 27, 1970 (Asbury Park, NJ)
+**First performed:** November 27, 1970 (Asbury Park, NJ)<br>
+**Last performed:** November 27, 1970 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

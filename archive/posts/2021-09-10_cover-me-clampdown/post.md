@@ -1,4 +1,4 @@
-> "Bruce is great. If you don't agree, you're a pretentious Martian from Venus." — *Joe Strummer to Mark Hagen, 1995*
+> "Bruce is great. If you don't agree, you're a pretentious Martian from Venus." — *Joe Strummer to Mark Hagen, 1995*<br>
 
 ![](../../assets/2021/09/strummer.jpg)
 

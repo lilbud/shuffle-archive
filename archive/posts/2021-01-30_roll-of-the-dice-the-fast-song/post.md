@@ -38,29 +38,29 @@ Musically, "The Fast Song" is a tour de force, somehow sounding both punk and cl
 
 We can hear the desperation at the heart of "Candy's Room" in this early iteration, but Bruce's narrator is too obsessed with his own self-torture for the song to work. We don't even know there's a romantic interest until the second verse, and we don't learn a thing about her until the third.
 
-> *The night rushes into the door*
-> *Kids running across the floor, hmm*
-> *I wish God's angels would tear this town down and blow it into the sea*
-> *Man that's alright with me, I don't care anymore*
+> *The night rushes into the door*<br>
+> *Kids running across the floor, hmm*<br>
+> *I wish God's angels would tear this town down and blow it into the sea*<br>
+> *Man that's alright with me, I don't care anymore*<br>
 
-> *She, she who is everything*
-> *And the fear tonight she brings, she's got everything*
-> *And I got caught wasting my life so bad*
-> *Just looking for the facts*
-> *Sometimes I feel like I'm walking dazed*
-> *The blood rushing in my veins, I can hear it flow*
+> *She, she who is everything*<br>
+> *And the fear tonight she brings, she's got everything*<br>
+> *And I got caught wasting my life so bad*<br>
+> *Just looking for the facts*<br>
+> *Sometimes I feel like I'm walking dazed*<br>
+> *The blood rushing in my veins, I can hear it flow*<br>
 
-> *She lives in a world of dreams-come-true*
-> *But she don't know like I do, not like I do*
-> *I was nothing over and over again*
-> *Counting the nights roll in without her*
+> *She lives in a world of dreams-come-true*<br>
+> *But she don't know like I do, not like I do*<br>
+> *I was nothing over and over again*<br>
+> *Counting the nights roll in without her*<br>
 
-> *She needs her clothes and diamond rings*
-> *She got men who bring her anything she wants, but they don't see*
-> *That what she wants is me*
-> *Oh and I want her so, I'll never let her go*
-> *Me, walking into the room, I count the nights ???*
-> *Without her, without her, without her*
+> *She needs her clothes and diamond rings*<br>
+> *She got men who bring her anything she wants, but they don't see*<br>
+> *That what she wants is me*<br>
+> *Oh and I want her so, I'll never let her go*<br>
+> *Me, walking into the room, I count the nights ???*<br>
+> *Without her, without her, without her*<br>
 
 That fourth verse, though… now, we're cooking. Other than the "blood rushing" line in the second verse, the final verse is the only original lyric from "The Fast Song" to remain relatively intact and land safely on the final track.
 

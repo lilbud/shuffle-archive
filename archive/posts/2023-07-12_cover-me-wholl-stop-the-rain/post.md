@@ -1,6 +1,6 @@
 > "Vietnam turned this whole country into [a] dark street, and unless we're able to walk down those dark alleys and look into the eyes of the men and the women that are down there and the things that happened, we're never gonna be able to get home. You guys out there, you're eighteen or nineteen years old... it happened once and it can happen again."
 >
-> *–Bruce Springsteen, on stage in Los Angeles, August 20, 1981*
+> *–Bruce Springsteen, on stage in Los Angeles, August 20, 1981*<br>
 
 [Watch on Youtube: Who'll Stop the Rain (Live at Wembley Arena, London, UK - 06/05/81 - Official Audio)](https://www.youtube.com/watch?v=lA31GteIgXU)
 

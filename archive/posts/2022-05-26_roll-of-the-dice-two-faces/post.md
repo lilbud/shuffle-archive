@@ -1,4 +1,4 @@
-> "For a long time, if I loved you or if I felt a deep attachment to you, I'd hurt you if I could." *–Bruce Springsteen, Western Stars*
+> "For a long time, if I loved you or if I felt a deep attachment to you, I'd hurt you if I could." *–Bruce Springsteen, Western Stars*<br>
 
 This isn't the first time I've used that pull quote in a *Roll of the Dice* installment.
 
@@ -18,8 +18,8 @@ Those favorites almost certainly included Christie's 1963 Top Ten single, "Two F
 
 "Two Faces Have I" peaked at #6 on the Billboard Hot 100, and it finished at #44 for the year. But it wasn't just the falsetto and the catchy melody that likely caught Bruce's attention. Something about the chorus also lodged itself in his brain.
 
-> *Two faces have I*
-> *One to laugh and one to cry*
+> *Two faces have I*<br>
+> *One to laugh and one to cry*<br>
 
 Christie's song wasn't about dual personalities or warring natures; it was just a simple pop break-up song featuring a narrator who hides his heartbreak from the world. But the notion of *two faces–*one that laughs and one that cries–likely resonated, and it surfaced to the top of his mind when writing material for what would become *Tunnel of Love*.
 
@@ -29,24 +29,24 @@ He was still Bruce Springsteen, though. He might have been ready to address his 
 
 "Two Faces" is a spare song both in orchestration and narration. Bruce's lyrics are among his most economical, eschewing metaphor beyond the titular, and yet they are powerfully effective–building tension towards the bridge, tension we don't even detect at first listen.
 
-> *I met a girl and we ran away*
-> *I swore I'd make her happy every day*
-> *And how I made her cry*
-> *Two faces have I*
+> *I met a girl and we ran away*<br>
+> *I swore I'd make her happy every day*<br>
+> *And how I made her cry*<br>
+> *Two faces have I*<br>
 
 Once we've heard the song in full, we can hear the song in a darker light, but on first listen, following a carefree instrumental introduction, we hear that third line ("and how I made her cry") as wedding day tears of happiness. Only the verse's final line provides more ominous shading, and in the second verse Bruce employs pedestrian symbolism to deepen the rumbling.
 
-> *Sometimes mister I feel sunny and wild*
-> *Lord I love to see my baby smile*
-> *Then dark clouds come rolling by*
-> *Two faces have I*
+> *Sometimes mister I feel sunny and wild*<br>
+> *Lord I love to see my baby smile*<br>
+> *Then dark clouds come rolling by*<br>
+> *Two faces have I*<br>
 
 Until this point, our narrator has only hinted at darker doings. He's happy and in love, but there's a sense of something darker brewing. We don't have to wait any longer for it though–the sky opens in the bridge.
 
-> *One that laughs one that cries*
-> *One says hello one says goodbye*
-> *One does things I don't understand*
-> *Makes me feel like half a man*
+> *One that laughs one that cries*<br>
+> *One says hello one says goodbye*<br>
+> *One does things I don't understand*<br>
+> *Makes me feel like half a man*<br>
 
 And there it is–the Christie homage that also reveals Bruce's newfound self-awareness: *if I love you, I'll hurt you if I can*.
 
@@ -54,21 +54,21 @@ Expressed by his narrator, the key lines (Bruce's key lines are almost always in
 
 With the villain now fully revealed, the struggle continues.
 
-> *At night I get down on my knees and pray*
-> *Our love will make that other man go away*
-> *But he'll never say goodbye*
-> *Two faces have I*
+> *At night I get down on my knees and pray*<br>
+> *Our love will make that other man go away*<br>
+> *But he'll never say goodbye*<br>
+> *Two faces have I*<br>
 
 Bruce has credited his wife's love, patience, and understanding as foundational and essential to his ability to rise above his darker nature (although it wasn't the wife he had at the time he wrote "Two Faces"). Even so, I suspect from Bruce's more recent writings that he'd admit that other man never did say goodbye. That struggle likely continues to this day.
 
 But the song isn't over yet–and atypically for Bruce, it's about to take a turn for the brighter.
 
-> *Last night as I kissed you ‘neath the willow tree*
-> *He swore he'd take your love away from me*
-> *He said our life was just a lie*
-> *And two faces have I*
+> *Last night as I kissed you ‘neath the willow tree*<br>
+> *He swore he'd take your love away from me*<br>
+> *He said our life was just a lie*<br>
+> *And two faces have I*<br>
 
-> *Well go ahead and let him try*
+> *Well go ahead and let him try*<br>
 
 "Two Faces" ends with what I believe must be an intentional set of parallels. On the album, the song is paired with "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," which immediately follows "Two Faces" as if they were opposite sides of a coin.
 
@@ -106,9 +106,9 @@ We haven't heard from "Two Faces" since that 2005 tour. But it's only been as lo
 After all, Bruce warned us about his other face: *he'll never say goodbye.*
 
 **Two Faces  
-Recorded:** January-April 1987  
-**Released:** *Tunnel of Love* (1987)
-**First performed:** October 31, 1987 (Sea Bright, NJ)
-**Last performed:** October 9, 2005 (Uniondale, NY)
+**Recorded:** January-April 1987  
+**Released:** *Tunnel of Love* (1987)<br>
+**First performed:** October 31, 1987 (Sea Bright, NJ)<br>
+**Last performed:** October 9, 2005 (Uniondale, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

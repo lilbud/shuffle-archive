@@ -31,7 +31,7 @@ But the band's arguably best performance was their third and last performance to
 That was the most recent time "Wild Thing" surfaced on a Springsteen set list to date, but it may not be the last. Bruce has too much fun with it to resist if he ever sees a sign for it again.
 
 **Wild Thing**<br>
-**First performed:** April 24, 2009 (Hartford, CT)
-**Last performed:** July 18, 2013 (Cork, Ireland)
+**First performed:** April 24, 2009 (Hartford, CT)<br>
+**Last performed:** July 18, 2013 (Cork, Ireland)<br>
 
 

@@ -22,5 +22,5 @@ November 4, 1976 (New York City, NY)
 May 13, 1977 (Red Bank, NJ)
 
 **Baby, I Love You**<br>
-**First performed:** <br>
+**First performed:**<br>
 **Last performed:**<br>

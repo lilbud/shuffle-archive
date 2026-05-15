@@ -18,21 +18,21 @@ That's not evident at the start, however. The first words we hear over an ominou
 
 The next voice we hear still isn't Springsteen's, but rather his frequent collaborator Michelle Moore, who provides backing vocals on six of Bruce's studio albums and at more than 200 of his concerts.
 
-> *We've been traveling over rocky ground, rocky ground*
+> *We've been traveling over rocky ground, rocky ground*<br>
 
 Accompanied by a martial drumbeat supplied by either Bruce or Ron Aniello (both are credited drummers for this track; Max Weinberg is nowhere to be found), the first thirty seconds or so of "Rocky Ground" are completely in keeping with its album-mates.
 
 But then Bruce enters with gentle, almost plaintive vocals against a tender guitar line, and we instantly recognize that this is a song of neither resentment or despair, but of acceptance and persistence.
 
-> *Rise up shepherd, rise up*
-> *Your flock has roamed far from the hills*
-> *The stars have faded, the sky is still*
-> *The angels are shouting "Glory hallelujah"*
+> *Rise up shepherd, rise up*<br>
+> *Your flock has roamed far from the hills*<br>
+> *The stars have faded, the sky is still*<br>
+> *The angels are shouting "Glory hallelujah"*<br>
 
-> *Forty days and nights of rain have washed this land*
-> *Jesus said the money changers in this temple will not stand*
-> *Find your flock, get them to higher ground*
-> *The floodwater's rising, we're Canaan bound*
+> *Forty days and nights of rain have washed this land*<br>
+> *Jesus said the money changers in this temple will not stand*<br>
+> *Find your flock, get them to higher ground*<br>
+> *The floodwater's rising, we're Canaan bound*<br>
 
 The first verse begins with what sounds like a call to arms, one that Bruce has issued before: *Rise up!*
 
@@ -40,38 +40,38 @@ Here, however, it's a warning rather than a command. Throughout the song, the sh
 
 Bruce's vocals warn the shepherd: *Get up. Do you know where you children are? Make sure you do, and that they're on the right path, because judgment is coming. It's a cold, hard world out there, and it cannot stand.*
 
-> *Tend to your flock or they will stray*
-> *We'll be called for our service come judgment day*
-> *Before we cross that river wide*
-> *The blood on our hands will come back on us twice*
+> *Tend to your flock or they will stray*<br>
+> *We'll be called for our service come judgment day*<br>
+> *Before we cross that river wide*<br>
+> *The blood on our hands will come back on us twice*<br>
 
 *They need you*, Bruce tells the shepherd. *Your kids need you, and they need your guidance. The good they do will be rewarded; the bad will be revisited.*
 
-> *Rise up shepherd, rise up*
-> *Your flock has roamed far from the hills*
-> *Stars have faded, the sky is still*
-> *Sun's in the heavens and a new day's rising*
+> *Rise up shepherd, rise up*<br>
+> *Your flock has roamed far from the hills*<br>
+> *Stars have faded, the sky is still*<br>
+> *Sun's in the heavens and a new day's rising*<br>
 
 *A new day is rising*. Those sound like words of hope, but they're not.
 
 Until this point, "Rocky Ground" urges faith and action, but in Moore's spoken-word bridge (some call it a rap, but I'm not sure it fits the definition), faith falls away along with biblical metaphor. Elegance gives way to prosaicness, and a street-level cadence grounds us in harsh reality.
 
-> *You use your muscle and your mind and you pray your best*
-> *That your best is good enough, the Lord will do the rest*
-> *You raise your children and you teach them to walk straight and sure*
-> *You pray that hard times, hard times come no more*
-> *You try to sleep, you toss and turn, the bottom's dropping out*
-> *Where you once had faith now there's only doubt*
-> *You pray for guidance, only silence now meets your prayers*
-> *The morning breaks, you awake but no one's there*
+> *You use your muscle and your mind and you pray your best*<br>
+> *That your best is good enough, the Lord will do the rest*<br>
+> *You raise your children and you teach them to walk straight and sure*<br>
+> *You pray that hard times, hard times come no more*<br>
+> *You try to sleep, you toss and turn, the bottom's dropping out*<br>
+> *Where you once had faith now there's only doubt*<br>
+> *You pray for guidance, only silence now meets your prayers*<br>
+> *The morning breaks, you awake but no one's there*<br>
 
 *A new day is rising*. There's no hope here in those words; they're nothing but an alarm clock.
 
 *Change isn't coming*, the shepherd tells herself. *Today isn't Judgment Day, and tomorrow won't be, either. Hard times are going to keep on coming.*
 
-> *But this is the world you live in. It's the world you brought your children into. And it's your job to lead them through it.*
+> *But this is the world you live in. It's the world you brought your children into. And it's your job to lead them through it.*<br>
 
-> *Rise up.*
+> *Rise up.*<br>
 
 The song's final minutes introduce the Victorious Gospel choir (who also appear on "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)"), joining Moore on her "we've been traveling over rocky ground" chorus, while Bruce continues to encourage, "there's a new day coming." The choir transforms the struggles of "Rocky Ground" from personal to communal, as the "I'm a soldier" sample returns to inform us that the battle is nowhere close to being won.
 
@@ -90,9 +90,9 @@ Bruce also issued "Rocky Ground" as the second single from [*Wrecking Ball*](htt
 Even so, "Rocky Ground" vanished after the Wrecking Ball Tour (save for a single encore at the very beginning of the High Hopes Tour), too pensive for the celebratory tour that followed. But in the years since the last full E Street Band outing, the world has traveled over some seriously rocky ground, and Bruce's song seems more timely than ever.
 
 **Rocky Ground**<br>
-**Recorded** 2011  
+**Recorded** 2011<br>
 **Released:** *Wrecking Ball* (2012)
-**First performed:** March 9, 2012 (New York City, NY)
-**Last performed:** January 29, 2014 (Cape Town, South Africa)
+**First performed:** March 9, 2012 (New York City, NY)<br>
+**Last performed:** January 29, 2014 (Cape Town, South Africa)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

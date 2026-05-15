@@ -19,7 +19,7 @@ Perhaps, but baby…
 Autumn 1979 (early demo only)
 
 **I Don't Know**<br>
-**Recorded:** <br>
+**Recorded:**<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

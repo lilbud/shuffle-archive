@@ -34,20 +34,20 @@ I had been gradually walking away, but on that day the ties tautened.
 
 "My Father's House" terrified me like no other song before or since. It's easy to understand why: the song itself is crafted around a nightmare.
 
-> *Last night I dreamed that I was a child*
-> *Out where the pines grow wild and tall*
-> *I was trying to make it home through the forest*
-> *Before the darkness falls*
+> *Last night I dreamed that I was a child*<br>
+> *Out where the pines grow wild and tall*<br>
+> *I was trying to make it home through the forest*<br>
+> *Before the darkness falls*<br>
 
-> *I heard the wind rustling through the trees*
-> *And ghostly voices rose from the fields*
-> *I ran with my heart pounding down that broken path*
-> *With the devil snapping at my heels*
+> *I heard the wind rustling through the trees*<br>
+> *And ghostly voices rose from the fields*<br>
+> *I ran with my heart pounding down that broken path*<br>
+> *With the devil snapping at my heels*<br>
 
-> *I broke through the trees and there in the night*
-> *My father's house stood shining hard and bright*
-> *The branches and brambles tore my clothes and scratched my arms*
-> *But I ran till I fell shaking in his arms*
+> *I broke through the trees and there in the night*<br>
+> *My father's house stood shining hard and bright*<br>
+> *The branches and brambles tore my clothes and scratched my arms*<br>
+> *But I ran till I fell shaking in his arms*<br>
 
 Bruce had already written "[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)" by this point, which features a remarkably similar and equally powerful dream sequence. But as brilliantly cinematic as it is, the dream in "Downbound Train" is just a narrative device; the dream that opens "My Father's House" by contrast is deeply symbolic.
 
@@ -57,15 +57,15 @@ Our narrator's desperation to reach his father's house "before the darkness fall
 
 But the song gets even scarier when the narrator awakens:
 
-> *I awoke and I imagined the hard things that pulled us apart*
-> *Will never again, sir, tear us from each other's hearts*
-> *I got dressed and to that house I did ride*
-> *From out on the road I could see its windows shining in light*
+> *I awoke and I imagined the hard things that pulled us apart*<br>
+> *Will never again, sir, tear us from each other's hearts*<br>
+> *I got dressed and to that house I did ride*<br>
+> *From out on the road I could see its windows shining in light*<br>
 
-> *I walked up the steps and stood on the porch*
-> *A woman I didn't recognize came and spoke to me through a chained door*
-> *I told her my story and who I'd come for*
-> *She said "I'm sorry son but no one by that name lives here anymore"*
+> *I walked up the steps and stood on the porch*<br>
+> *A woman I didn't recognize came and spoke to me through a chained door*<br>
+> *I told her my story and who I'd come for*<br>
+> *She said "I'm sorry son but no one by that name lives here anymore"*<br>
 
 These two verses are, I think, the saddest and most anguished in Bruce's entire catalog.
 
@@ -73,10 +73,10 @@ The son wakes and resolves to repair his relationship with his father, but it's 
 
 The final verse is a stark warning:
 
-> *My father's house shines hard and bright*
-> *It stands like a beacon calling me in the night*
-> *Calling and calling so cold and alone*
-> *Shining ‘cross this dark highway where our sins lie unatoned*
+> *My father's house shines hard and bright*<br>
+> *It stands like a beacon calling me in the night*<br>
+> *Calling and calling so cold and alone*<br>
+> *Shining ‘cross this dark highway where our sins lie unatoned*<br>
 
 "My Father's House" haunted me as a teen, replaying in my mind every time I found myself growing sullen or rebellious towards my father (which admittedly was not an infrequent occurrence). We never had a lot in common, but we were able to find games we enjoyed playing and rare topics we enjoyed discussing.
 
@@ -114,10 +114,10 @@ I am my father's house now, and as long as I'm here, he has a home.
 (I'm going to take a short break while I join my family in remembering my father. I'll be back in a week.)
 
 **My Father's House**<br>
-**Recorded** May 25, 1982  
+**Recorded** May 25, 1982<br>
 **Released:** *Nebraska* (1982), *Chapter and Verse* (2016)
-**First performed:** July 26, 1984 (Toronto, ON)
-**Last performed:** September 4, 2021 (New York City, NY)
+**First performed:** July 26, 1984 (Toronto, ON)<br>
+**Last performed:** September 4, 2021 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 

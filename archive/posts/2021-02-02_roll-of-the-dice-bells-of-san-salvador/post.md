@@ -8,10 +8,10 @@ There was something odd about those performances, though, something fans of the 
 
 The new verses begin with the lines:
 
-> *Now me and Robert Williams*
-> *We were out on Route Line 3*
-> *Well last night they pulled him out of his house*
-> *And shot him in the street*
+> *Now me and Robert Williams*<br>
+> *We were out on Route Line 3*<br>
+> *Well last night they pulled him out of his house*<br>
+> *And shot him in the street*<br>
 
 Bruce gave no explanation for the new lyrics, but they certainly fit the anti-gun theme of the original song. In any event, after those three performances, those lyrics were never heard from again.
 
@@ -33,17 +33,17 @@ But they *do* closely resemble those new verses for "Run Through the Jungle" tha
 
 Listen carefully to the clip above, and shortly after the three-minute mark you'll hear:
 
-> *They took him from his house and killed him in the street*
+> *They took him from his house and killed him in the street*<br>
 
 The lyrics that follow expand a bit on what Bruce sang in "Run Through the Jungle," so it's quite possible (even likely) that Bruce was developing them for yet another song that we have yet to discover.
 
-> *And nobody knows the numbers*
-> *Nobody knows the name*
+> *And nobody knows the numbers*<br>
+> *Nobody knows the name*<br>
 
-> *And they left him lying in his room*
-> *They took all of his things*
-> *Lying on the jailhouse floor, sir*
-> *There's the one who killed my friend and left him in the sun*
+> *And they left him lying in his room*<br>
+> *They took all of his things*<br>
+> *Lying on the jailhouse floor, sir*<br>
+> *There's the one who killed my friend and left him in the sun*<br>
 
 They almost certainly were never intended for "Bells of San Salvador," but the dark violent imagery fit the tone of the music he was developing, so they made for great placeholders.
 
@@ -51,10 +51,10 @@ Bruce eventually took the song to the E Street Band, and toward the end of the y
 
 At least one verse (or more likely the chorus) seems to be clear and distinct, though, and it's enough to reveal that Bruce had indeed focused his song on those recent historical events:
 
-> *And nobody hears the clang of the swinging jailhouse door*
-> *And nobody knows there're people looking on*
-> *And nobody knows the number and nobody knows the one*
-> *With the bells of San Salvador ringing in the sun*
+> *And nobody hears the clang of the swinging jailhouse door*<br>
+> *And nobody knows there're people looking on*<br>
+> *And nobody knows the number and nobody knows the one*<br>
+> *With the bells of San Salvador ringing in the sun*<br>
 
 Whether Bruce ever finished the song and recorded it has yet to be revealed, but for hardcore Springsteen fans who enjoy tracing the development of Bruce's songwriting, these early demos of "Bells of San Salvador" provide a fascinating glimpse in to the days immediately following the River Tour.
 

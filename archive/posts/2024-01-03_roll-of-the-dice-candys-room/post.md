@@ -16,34 +16,34 @@ It was at this point that Bruce began to merge the sibling songs. As September p
 
 ![](../../assets/2022/05/newfastsong.jpg)
 
-> *In Candy's room she has pictures of her savior on the wall*
-> *But to get to Candy's room you got to walk Candy's hall*
-> *Strangers from the city call my baby's number*
-> *They bring Candy toys but when I come knockin'*
-> *She smiles pretty, she knows I'm gonna be Candy's boy*
+> *In Candy's room she has pictures of her savior on the wall*<br>
+> *But to get to Candy's room you got to walk Candy's hall*<br>
+> *Strangers from the city call my baby's number*<br>
+> *They bring Candy toys but when I come knockin'*<br>
+> *She smiles pretty, she knows I'm gonna be Candy's boy*<br>
 
-> *There somewhere in the darkness I find hidden worlds that shine*
-> *Through the fear blackness mist*
+> *There somewhere in the darkness I find hidden worlds that shine*<br>
+> *Through the fear blackness mist*<br>
 
-> *Then when we kiss my hearts explodes through my skin*
-> *For with a moment she lets me in*
-> *That's when the sadness begins*
-> *I get visions of avenging angels of eden*
-> *With them white horses and flaming swords*
-> *Can blow this whole town into the sea*
-> *But they cant touch Candy and me*
-> *Our love they cannot destroy*
-> *I will forever be Candy's boy*
+> *Then when we kiss my hearts explodes through my skin*<br>
+> *For with a moment she lets me in*<br>
+> *That's when the sadness begins*<br>
+> *I get visions of avenging angels of eden*<br>
+> *With them white horses and flaming swords*<br>
+> *Can blow this whole town into the sea*<br>
+> *But they cant touch Candy and me*<br>
+> *Our love they cannot destroy*<br>
+> *I will forever be Candy's boy*<br>
 
-> *She says baby if you wanna be wild you got a lot to learn*
-> *You gotta let your heart burn*
-> *So come with me together baby we'll drive all*
-> *We'll go drivin' together into the night*
-> *through the heart of a fire fight with no rain*
+> *She says baby if you wanna be wild you got a lot to learn*<br>
+> *You gotta let your heart burn*<br>
+> *So come with me together baby we'll drive all*<br>
+> *We'll go drivin' together into the night*<br>
+> *through the heart of a fire fight with no rain*<br>
 
-> *We go driving south through the pines ??? the out roads*
-> *that ??? off the line and then we kiss*
-> *From a world we'll meet / burn / take / know / without end*
+> *We go driving south through the pines ??? the out roads*<br>
+> *that ??? off the line and then we kiss*<br>
+> *From a world we'll meet / burn / take / know / without end*<br>
 
 We're getting closer to the final version of "Candy's Room," now: The first verse is there (it's the one consistent component from the very beginning of the song's evolution), and we see hints of the second (although this version contains lyrics that will make their way to "[Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)").
 
@@ -55,20 +55,20 @@ Bruce continued tinkering and polishing throughout the month, but sometimes evol
 
 This version contains almost entirely new lyrics, but thematically the heart of the song remains intact:
 
-> *In the night, all the lights will shine*
-> *With people laughing all the time*
-> *I went down to that house that sits on the edge of town*
-> *Shining so fine and so bright, so full of light*
+> *In the night, all the lights will shine*<br>
+> *With people laughing all the time*<br>
+> *I went down to that house that sits on the edge of town*<br>
+> *Shining so fine and so bright, so full of light*<br>
 
-> *Tonight, I got a feeling that I can't face*
-> *And tonight, I got a loneliness I can't erase*
-> *I got a hunger that drives me down*
-> *Down to the gates of the house*
-> *That waits on the edge of town*
-> *Feeding my fears night after night*
-> *And for me, she's waiting in the window*
-> *I see her face with a beauty that time can't erase*
-> *Hidden from the sound, hidden from the light, hidden from the world… tonight*
+> *Tonight, I got a feeling that I can't face*<br>
+> *And tonight, I got a loneliness I can't erase*<br>
+> *I got a hunger that drives me down*<br>
+> *Down to the gates of the house*<br>
+> *That waits on the edge of town*<br>
+> *Feeding my fears night after night*<br>
+> *And for me, she's waiting in the window*<br>
+> *I see her face with a beauty that time can't erase*<br>
+> *Hidden from the sound, hidden from the light, hidden from the world… tonight*<br>
 
 From here, evidence suggests the song cohered rather quickly, with recording sessions for the final track taking place between late October and mid-December, with three days of intensive overdubbing and mixing in early March until a final version (take 42 out of a total of 79) was selected for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).
 
@@ -86,21 +86,21 @@ But in fairness, after travelling the long and winding road from "Candy's Boy" a
 
 That said, the first verse is vivid enough to strongly suggest that Candy is a professional lover…
 
-> *In Candy's room, there are pictures of her heroes on the wall*
-> *But to get to Candy's room, you gotta walk the darkness of Candy's hall*
-> *Strangers from the city call my baby's number and they bring her toys*
-> *When I come knocking, she smiles pretty, she knows I wanna be Candy's boy*
+> *In Candy's room, there are pictures of her heroes on the wall*<br>
+> *But to get to Candy's room, you gotta walk the darkness of Candy's hall*<br>
+> *Strangers from the city call my baby's number and they bring her toys*<br>
+> *When I come knocking, she smiles pretty, she knows I wanna be Candy's boy*<br>
 
 …and its consistent and continual inclusion as the opening verse of the song from its very earliest incarnations convinces me that "Candy's Room" requires a narrator in love with an escort. Bruce also strongly suggests that the narrator is one of Candy's clients, one of lesser material means than her other, more well-heeled johns.
 
 But if he can't compete financially, our self-styled hero can at least offer Candy true passion and connection–or so he's convinced himself. Our narrator has cast himself as Candy's would-be savior, certain that she must feel the same rush that he does when they're together.
 
-> *There's a sadness hidden in that pretty face*
-> *A sadness all her own, from which no man can keep Candy safe*
-> *We kiss, my heart's rushes to my brain*
-> *And the blood rushes in my veins, the fire rushes towards the sky*
-> *And then we go driving, driving deep into the night*
-> *I go driving deep into the light, in Candy's eyes*
+> *There's a sadness hidden in that pretty face*<br>
+> *A sadness all her own, from which no man can keep Candy safe*<br>
+> *We kiss, my heart's rushes to my brain*<br>
+> *And the blood rushes in my veins, the fire rushes towards the sky*<br>
+> *And then we go driving, driving deep into the night*<br>
+> *I go driving deep into the light, in Candy's eyes*<br>
 
 We should pause our lyrical analysis for a moment to acknowledge the brilliance of the backing track. For a song pieced together from parts, it's astounding how well the final lyrics and music reflect each other. In large part, this is because Bruce abandons concern with meter and form, delivering his vocals in spoken-word for much of the song, and matching the music's flourishes.
 
@@ -108,20 +108,20 @@ We should pause our lyrical analysis for a moment to acknowledge the brilliance 
 
 But when he begins to describe their love-making, the song opens up–the musical accompaniment to rushing blood and heart and fire. And when Candy finally speaks, the song reaches its climax too, in a screaming guitar-solo of a bridge.
 
-> *She says, "baby if you wanna be wild, you got a lot to learn*
-> *Close your eyes, let them melt, let them fire, let them burn"*
-> *‘Cause in the darkness, there'll be hidden worlds that shine*
-> *When I hold Candy close she makes these hidden worlds mine*
+> *She says, "baby if you wanna be wild, you got a lot to learn*<br>
+> *Close your eyes, let them melt, let them fire, let them burn"*<br>
+> *‘Cause in the darkness, there'll be hidden worlds that shine*<br>
+> *When I hold Candy close she makes these hidden worlds mine*<br>
 
 Finally, though, our narrator returns to reality–a reality in which he can't compete with the expensive gifts lavished on her by her other suitors. So he convinces himself that he doesn't need to: his connection with Candy is special rather than professional, and while he may have to accept her sharing her body, he's got exclusive dibs on Candy's heart.
 
-> *She has fancy clothes and diamond rings*
-> *She has men who give her anything she wants, but they don't see*
-> *That what she wants is me*
-> *Oh and I want her so, I'll never let her go, no no no*
-> *She knows that I'd give all that I got to give*
-> *All that I want, all that I live to make Candy mine*
-> *Tonight*
+> *She has fancy clothes and diamond rings*<br>
+> *She has men who give her anything she wants, but they don't see*<br>
+> *That what she wants is me*<br>
+> *Oh and I want her so, I'll never let her go, no no no*<br>
+> *She knows that I'd give all that I got to give*<br>
+> *All that I want, all that I live to make Candy mine*<br>
+> *Tonight*<br>
 
 While never stated, the implication that Candy is a sex worker casts doubt on the reliability of our narrator. Does he truly have an intimate connection with the object of his affection? Possibly. But a skilled courtesan would likely convince her customer of that regardless of whether it was true, and the suggestion that our protagonist is or was originally a client suggests that he's not quite as certain as he tries to sound.
 
@@ -144,9 +144,9 @@ And to reach Candy's room, you have to walk that long, dark hall.
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Candy's Room (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=w2Q7bb0szOE)
 
 **Candy's Room**<br>
-**Recorded** October 27, 1977 – March 5, 1978  
-**Released:** *Darkness on the Edge of Town* (1978)
-**First performed:** May 23, 1978 (Buffalo, NY)
-**Last performed:** August 26, 2023 (Foxborough, MA)
+**Recorded** October 27, 1977 – March 5, 1978<br>
+**Released:** *Darkness on the Edge of Town* (1978)<br>
+**First performed:** May 23, 1978 (Buffalo, NY)<br>
+**Last performed:** August 26, 2023 (Foxborough, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

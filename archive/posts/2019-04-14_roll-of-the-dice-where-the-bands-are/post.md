@@ -66,8 +66,8 @@ The sole exception: a dedication from Bruce to his fans during his Wrecking Ball
 [Watch on Youtube: Bruce Springsteen - Where The Bands Are](https://www.youtube.com/watch?v=aKE8uUZIWkM)
 
 **Where the Bands Are****Recorded:** October 9, 1979  
-**Released:** *Tracks* (1998)
-**First performed:** April 19, 1999 (Milan, Italy)
-**Last performed:** July 12, 2012 (Gothenburg, Sweden)
+**Released:** *Tracks* (1998)<br>
+**First performed:** April 19, 1999 (Milan, Italy)<br>
+**Last performed:** July 12, 2012 (Gothenburg, Sweden)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

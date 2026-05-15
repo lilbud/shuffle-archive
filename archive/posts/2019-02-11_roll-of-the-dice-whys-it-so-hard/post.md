@@ -44,7 +44,7 @@ If "Why's It So Hard" is notable for any other reason, it's because it's another
 **Why's It So Hard?**<br>
 **Never recorded**<br>
 **Never Released**<br>
-**First performed:** January 21, 1972 (Neptune, NJ)
-**Last performed:** January 21, 1972 (Neptune, NJ)
+**First performed:** January 21, 1972 (Neptune, NJ)<br>
+**Last performed:** January 21, 1972 (Neptune, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

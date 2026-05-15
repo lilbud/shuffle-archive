@@ -65,6 +65,6 @@ So on this Christmas Eve, whether you celebrate the holiday or not: here's a wis
 **Santa Claus Is Comin' to Town**<br>
 Never recorded  
 Released (Live):** *In Harmony 2* (1981)
-**First performed:** December 20, 1973 (Brsitol, RI)**Last performed:** November 22, 2024 (Vancouver, BC)
+**First performed:** December 20, 1973 (Brsitol, RI)**Last performed:** November 22, 2024 (Vancouver, BC)<br>
 
 (c) December 24, 2021 by Ken Rosen

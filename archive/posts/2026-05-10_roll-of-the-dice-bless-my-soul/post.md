@@ -26,6 +26,6 @@ If you enjoyed this track, stay tuned for more Bruce Springsteen Band performanc
 Never recorded  
 Never released  
 First performed:** November 13, 1971 (Asbury Park, NJ)  
-**Last performed:** February 26, 1972 (Richmond, VA)
+**Last performed:** February 26, 1972 (Richmond, VA)<br>
 
 © June 11, 2022

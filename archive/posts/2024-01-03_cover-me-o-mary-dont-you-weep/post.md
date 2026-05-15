@@ -80,6 +80,6 @@ Bruce even performed it at a mini-reunion of the Sessions Band in 2015. (In actu
 **Recorded:** March 19, 2005<br>
 **Released:** *[We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*(2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
-**Last performed:** May 16, 2015 (New York City, NY)
+**Last performed:** May 16, 2015 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -12,24 +12,24 @@ One listen to "Without You" is all it takes to realize how much fun the band mus
 
 It feels silly to analyze Bruce's lyrics for "Without You." First of all, there aren't that many of them: two verses, a bridge, and a three-syllable chorus, all of which boil down to: *I miss you, baby.*
 
-> *Monday, I go to work*
-> *Tuesday, can't find my shirt*
-> *Wednesday, I'm feeling blue*
-> *I'm helpless, darling*
-> *Without you, without you*
-> *Without you, without you*
+> *Monday, I go to work*<br>
+> *Tuesday, can't find my shirt*<br>
+> *Wednesday, I'm feeling blue*<br>
+> *I'm helpless, darling*<br>
+> *Without you, without you*<br>
+> *Without you, without you*<br>
 
-> *Thursdays, everything's fine*
-> *Friday, I'm out of my mind*
-> *Saturday, Sunday too*
-> *It's hopeless, darling*
-> *Without you, without you*
-> *Without you, without you*
+> *Thursdays, everything's fine*<br>
+> *Friday, I'm out of my mind*<br>
+> *Saturday, Sunday too*<br>
+> *It's hopeless, darling*<br>
+> *Without you, without you*<br>
+> *Without you, without you*<br>
 
-> *Each and every night of the week*
-> *I toss and turn in my sleep*
-> *Worrying if you're all right*
-> *Wondering where you are tonight*
+> *Each and every night of the week*<br>
+> *I toss and turn in my sleep*<br>
+> *Worrying if you're all right*<br>
+> *Wondering where you are tonight*<br>
 
 Second, "Without You" is just a standard "calendar song" in the mold of "[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)" or "Friday I'm in Love"–a pop song built around the days of the week, an easy crutch for a songwriter to latch onto. But easy doesn't necessarily make for an earworm–for that you need talent.
 
@@ -42,8 +42,8 @@ The bigger mystery is why the band has yet to break it out in concert, because i
 Perhaps one day we'll get to crash this party, too.
 
 **Without You**<br>
-**Recorded** January 1995  
-**Released:** *Blood Brothers* (1996)
+**Recorded** January 1995<br>
+**Released:** *Blood Brothers* (1996)<br>
 **Never performed live**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

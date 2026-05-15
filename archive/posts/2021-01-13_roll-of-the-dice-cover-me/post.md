@@ -34,35 +34,35 @@ In fact, Bruce himself made that argument implicitly, when he recast "Cover Me" 
 
 In either form, however, Bruce's lyrics are inoffensively slight, revolving around a single gimmick: the use of wartime metaphor in what is otherwise a straightforward pop song about taking refuge from a harsh world in a nameless lover's arms.
 
-> *The times are tough now, just getting tougher*
-> *This old world is rough, it's just getting rougher*
-> *Cover me, come on baby cover me*
-> *Well I'm looking for a lover who will come on in and cover me*
+> *The times are tough now, just getting tougher*<br>
+> *This old world is rough, it's just getting rougher*<br>
+> *Cover me, come on baby cover me*<br>
+> *Well I'm looking for a lover who will come on in and cover me*<br>
 
-> *Now promise me baby you won't let them find us*
-> *Hold me in your arms, let's let our love blind us*
-> *Cover me, shut the door and cover me*
-> *I'm looking for a lover who will come on in and cover me*
+> *Now promise me baby you won't let them find us*<br>
+> *Hold me in your arms, let's let our love blind us*<br>
+> *Cover me, shut the door and cover me*<br>
+> *I'm looking for a lover who will come on in and cover me*<br>
 
-> *Outside's the rain, the driving snow*
-> *I can hear the wild wind blowing*
-> *Turn out the light, bolt the door*
-> *I ain't going out there no more*
+> *Outside's the rain, the driving snow*<br>
+> *I can hear the wild wind blowing*<br>
+> *Turn out the light, bolt the door*<br>
+> *I ain't going out there no more*<br>
 
-> *This whole world is out there just trying to score*
-> *I've seen enough, I don't wanna see any more*
-> *Cover me, come on and cover me*
-> *I'm looking for a lover who will come on in and cover me*
+> *This whole world is out there just trying to score*<br>
+> *I've seen enough, I don't wanna see any more*<br>
+> *Cover me, come on and cover me*<br>
+> *I'm looking for a lover who will come on in and cover me*<br>
 
 I called "Cover Me" lyrically slight for a reason: aside from the repeated chorus, the song consists of a grand total of ten unique lines, the first two of which are awfully lazy, and the last two of which are basically restatements of the first two. (The rest isn't particularly ambitious, either.)
 
 Interestingly, even though the verses are essentially identical between "Cover Me" and "Drop on Down and Cover Me," Bruce rewrote the bridge for the later song:
 
-> *Inside I feel the pain that*
-> *The hatred and the sorrow*
-> *I wanna shut the light, baby*
-> *C'mon and shut the door*
-> *Drop on down and cover me*
+> *Inside I feel the pain that*<br>
+> *The hatred and the sorrow*<br>
+> *I wanna shut the light, baby*<br>
+> *C'mon and shut the door*<br>
+> *Drop on down and cover me*<br>
 
 It's a moment of vulnerability for the narrator–he drops the metaphor just long enough for us to feel his inner pain and turmoil, and I think the song is stronger for it.
 
@@ -128,9 +128,9 @@ I'm thinking this is a streak worth extending.
 [Watch Video Highlight](https://videopress.com/embed/e3V4yBk8)
 
 **Cover Me**<br>
-**Recorded** January 25, 1982  
+**Recorded** January 25, 1982<br>
 **Released:** *Born in the U.S.A.* (1984)
-**First performed:** July 2, 1984 (St. Paul, MN)
-**Last performed:** February 4, 2017 (Melbourne, Australia)
+**First performed:** July 2, 1984 (St. Paul, MN)<br>
+**Last performed:** February 4, 2017 (Melbourne, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

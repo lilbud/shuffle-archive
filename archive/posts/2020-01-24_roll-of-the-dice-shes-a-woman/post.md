@@ -37,7 +37,7 @@ Anyone wanna hook me up? 🙂
 **She's a Woman**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** December 17, 1971 (New Brunswick, NJ)
-**Last performed:** February 17, 1972 (Freehold, NJ)
+**First performed:** December 17, 1971 (New Brunswick, NJ)<br>
+**Last performed:** February 17, 1972 (Freehold, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

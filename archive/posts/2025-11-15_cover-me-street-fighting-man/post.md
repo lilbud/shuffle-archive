@@ -25,7 +25,7 @@ Bruce brought "Street Fighting Man" back for one final encore the following summ
 It's been almost 35 years since that last E Street Band cover of "Street Fighting Man," but we can hope it won't prove to be the final one. It may be more resonant now than ever.
 
 **Street Fighting Man**<br>
-**First performed:** June 29, 1984 (St. Paul, MN)
-**Last performed:** July 6, 1985 (London, England)
+**First performed:** June 29, 1984 (St. Paul, MN)<br>
+**Last performed:** July 6, 1985 (London, England)<br>
 
 (c) August 19, 2019

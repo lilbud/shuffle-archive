@@ -16,61 +16,60 @@ It's not only the most powerful rock anthem Bruce ever wrote (IMHO)–it's also 
 
 In "Dancing in the Dark," the narrator is nocturnal, isolated and disconnected:
 
-*I get up in the evening, and* *I ain't got nothing to say*  
-> *I come home in the morning*
-> *I go to bed feeling the same way*
-> *I ain't nothing but tired*
-> *Man , I'm just tired and bored with myself*
+> *I get up in the evening, and* *I ain't got nothing to say*<br>
+> *I come home in the morning*<br>
+> *I go to bed feeling the same way*<br>
+> *I ain't nothing but tired*<br>
+> *Man, I'm just tired and bored with myself*<br>
 
 The narrator of "My Love Will Not Let You Down" lives during the day. He feels the same sense of isolation, but a sense of resignation is replaced by desperation:
 
-> *At night I go to bed, but I just can't sleep*
-> *I got something running around my head that just won't keep*
-> *In the silence, I hear my heart beating, time slipping away*
-> *I got a time bomb ticking deep inside of me*
+> *At night I go to bed, but I just can't sleep*<br>
+> *I got something running around my head that just won't keep*<br>
+> *In the silence, I hear my heart beating, time slipping away*<br>
+> *I got a time bomb ticking deep inside of me*<br>
 
 Both narrators make a plea for connection, but where "Dancing" guy is looking for a temporary physical fix…
 
-> *Hey there, baby: I could use just a little help  
-You can't start a fire without a spark  
-This gun's for hire, even if we're just dancing in the dark.*
+> *Hey there, baby: I could use just a little help*<br>
+> *You can't start a fire without a spark*<br>
+> *This gun's for hire, even if we're just dancing in the dark.*<br>
 
 …"My Love" guy wants the real thing. He knows his love is out there somewhere (the song is sung to a love he searches for but never finds), and he's determined to find her and prove himself:
 
-> *Girl, all I want to say: I keep searching for you darling, searching every where I go*
-> *And when I find you there's gonna be just one thing that you gotta know:  
-My love will not let you down.*
+> *Girl, all I want to say: I keep searching for you darling, searching every where I go*<br>
+> *And when I find you there's gonna be just one thing that you gotta know: My love will not let you down.*<br>
 
 The "Dancing" narrator is self-obsessed:
 
-> *I want to change my clothes, my hair, my face*
-> *Man, I ain't getting nowhere loving in a dump like this.*
+> *I want to change my clothes, my hair, my face*<br>
+> *Man, I ain't getting nowhere loving in a dump like this.*<br>
 
-> *I'm dying for some action*
-> *I'm sick of sitting 'round here trying to write this book*
-> *I need a love reaction*
-> *Come on now baby, gimme just one look.*
+> *I'm dying for some action*<br>
+> *I'm sick of sitting 'round here trying to write this book*<br>
+> *I need a love reaction*<br>
+> *Come on now baby, gimme just one look.*<br>
 
 The "My Love" narrator shows no self-loathing. but instead hints at an inability to spark the connection he seeks. His inner fire and bravery is belied by his outward shyness and hesitation:
 
-At night I walk the streets looking for romance  
-But I always end up stumbling in a half-trance  
-I search for connection in some new eyes  
-that hardly protect you from too many dreams passed by  
-I see you standing across the room, watching me without a sound  
-I'm gonna push my way through that crowd  
-I'm gonna tear all your walls down
+> *At night I walk the streets looking for romance  *<br>
+> *But I always end up stumbling in a half-trance  *<br>
+> *I search for connection in some new eyes  *<br>
+> *that hardly protect you from too many dreams passed by  *<br>
+> *I see you standing across the room, watching me without a sound  *<br>
+> *I'm gonna push my way through that crowd  *<br>
+> *I'm gonna tear all your walls down*<br>
 
 The irony, as any introvert will have already realized, is that it isn't *her* walls holding him back.
 
 Does the hero get the girl? I suspect not. His last lines are:
 
-> *Hold still now, darling–hold still for God's sake*
-> *‘Cause I got me a promise that I ain't afraid to make*
+> *Hold still now, darling–hold still for God's sake*<br>
+> *‘Cause I got me a promise that I ain't afraid to make*<br>
 
 …and then the song ends as he repeats his promise over and over:
 
-> *My love will not let you down.*
+> *My love will not let you down.*<br>
 
 In my mind's eye, the subject of his affection walks away while he struggles in vain to get up the nerve to talk to her.
 
@@ -91,7 +90,7 @@ No surprise that Bruce opened his first U.S. reunion show with the E Street Band
 **My Love Will Not Let You Down**  
 **Recorded:** May 5, 1982  
 **Released:** *Tracks* (1998), *18 Tracks* (1999), *Live in New York City* (2001)
-**First performed:** March 18, 1999 (Asbury Park, NJ)
-**Last performed:** July 13, 2023 (Copenhagen, Denmark)
+**First performed:** March 18, 1999 (Asbury Park, NJ)<br>
+**Last performed:** July 13, 2023 (Copenhagen, Denmark)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

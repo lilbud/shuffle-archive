@@ -14,23 +14,23 @@ But no audio of "Sometimes at Night" has ever turned up. So imagine the surprise
 
 It's only the first page of the song–almost certainly just the set-up–and since the song is known to have been performed live, we can assume that Bruce eventually finished it. But it's enough to give us some insight into the song's subject:
 
-> *Sometimes at night I lie awake for a while*
-> *Thinking and dreaming 'bout when I was a small boy child*
-> *Running and laughing as hard as I could*
-> *Everything easy, everything good*
+> *Sometimes at night I lie awake for a while*<br>
+> *Thinking and dreaming 'bout when I was a small boy child*<br>
+> *Running and laughing as hard as I could*<br>
+> *Everything easy, everything good*<br>
 
-> *I'm older now that's what the judge said*
-> *As I walked through the county hall, through a window I fled*
-> *The last thing that they did was put a price on my head*
-> *Now alone, scared, and running for something I never did*
+> *I'm older now that's what the judge said*<br>
+> *As I walked through the county hall, through a window I fled*<br>
+> *The last thing that they did was put a price on my head*<br>
+> *Now alone, scared, and running for something I never did*<br>
 
 That's a terrific opening. Note how Bruce deftly establishes a dreamlike, nostalgic first verse and contrasts it with a suspenseful escape from the law in the second, using a parallel "running" device to convey first freedom, then fright. Great songwriting there.
 
 Fascinatingly, we can also see Bruce's first attempt at the second verse, crossed out, but still quite readable:
 
-> *I'm older now, that's what the judge said*
-> *So now I walk the road with a price on my head*
-> *The last thing that they did*
+> *I'm older now, that's what the judge said*<br>
+> *So now I walk the road with a price on my head*<br>
+> *The last thing that they did*<br>
 
 It looks like Bruce abandoned that version because he wanted to establish the escape as a contrasting device, but I actually like that version better. One of Bruce's songwriting strengths is his ability to provide just enough context and then trust the listener to fill in the missing events. (See "Highway 29" for perhaps the best example of this.) Perhaps Bruce hadn't honed that skill at the time, or perhaps he wasn't quite so confident a songwriter yet. Either way, the "through a window I fled" replacement isn't nearly as sure-footed as the rest of the song.
 
@@ -39,7 +39,7 @@ But that's a picked nit. The lyrics above are still a great set-up for a song th
 **Sometimes at Night**  
 **Never Recorded**<br>
 **Never Released**  
-**First performed:** July 22, 1971 (South Amboy, NJ)  
-**Last performed:** July 22, 1971 (South Amboy, NJ)
+**First performed:** July 22, 1971 (South Amboy, NJ)<br>
+**Last performed:** July 22, 1971 (South Amboy, NJ)<br>
 
 © May 22, 2019

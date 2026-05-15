@@ -65,7 +65,7 @@ Miles to go is miles away.
 **Phantoms**<br>
 **Recorded:** June 1973  
 **Never released**<br>
-**First performed:** June 13, 1973 (Binghamton, NY)
-**Last performed:** June 13, 1973 (Binghamton, NY)
+**First performed:** June 13, 1973 (Binghamton, NY)<br>
+**Last performed:** June 13, 1973 (Binghamton, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

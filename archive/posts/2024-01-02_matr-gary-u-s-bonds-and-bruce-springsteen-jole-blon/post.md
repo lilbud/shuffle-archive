@@ -60,6 +60,6 @@ While it's disappointing that our recording of Bruce and Gary's first "Jole Blon
 **Recorded:** July 1980<br>
 **Released:** *Dedication* (1981)<br>
 **First performed:** June 5, 1981 (London, England)<br>
-**Last performed:** February 21, 2017 (Christchurch, New Zealand)
+**Last performed:** February 21, 2017 (Christchurch, New Zealand)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -28,6 +28,6 @@ Bruce and Joe have only played it together twice more since their 1995 tour toge
 **Recorded:** October-November 1993<br>
 **Released:** *American Babylon* (1995)<br>
 **First performed:** August 20, 1994 (Long Branch, NJ)<br>
-**Last performed:** July 18, 2015 (Asbury Park, NJ)
+**Last performed:** July 18, 2015 (Asbury Park, NJ)<br>
 
 

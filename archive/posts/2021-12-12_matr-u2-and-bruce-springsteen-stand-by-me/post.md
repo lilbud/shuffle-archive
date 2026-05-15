@@ -2,9 +2,9 @@
 
 ****Roll of the Dice, Cover Me, and Meeting Across the River take a brief holiday after today's post so I can do my annual year-end site clean-up.*
 
-> *Each December, I take a sweep through the site and replace broken video links, update song performance statistics, add cross-links to all the essays I wrote that year, and other miscellaneous tidying tasks. I've always managed to do it without taking time off, but each year adds another 365 or so essays, and now that we're four years in… well, that's a lot of reviewing and updating.*
+> *Each December, I take a sweep through the site and replace broken video links, update song performance statistics, add cross-links to all the essays I wrote that year, and other miscellaneous tidying tasks. I've always managed to do it without taking time off, but each year adds another 365 or so essays, and now that we're four years in… well, that's a lot of reviewing and updating.*<br>
 
-> *If I finish early, you might see a one-off or two from me if I feel so inspired, but more likely I'll be building up a head of steam and cache of content for Year Five.*
+> *If I finish early, you might see a one-off or two from me if I feel so inspired, but more likely I'll be building up a head of steam and cache of content for Year Five.*<br>
 
 *Regular programming resumes on Christmas Eve. Have a great holiday season until then, and thanks for reading!****
 
@@ -61,5 +61,5 @@ And the crowd… the crowd was just as electric. Let's watch that moment–Bruce
 [Watch Video Highlight](https://videopress.com/embed/BRBXz4w6)
 
 **Stand By Me**<br>
-**First performed:** January 17, 1985 (Greensboro, NC)
-**Last performed:** July 31, 2015 (New York City, NY)
+**First performed:** January 17, 1985 (Greensboro, NC)<br>
+**Last performed:** July 31, 2015 (New York City, NY)<br>

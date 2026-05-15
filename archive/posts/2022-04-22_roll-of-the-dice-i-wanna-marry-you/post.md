@@ -1,4 +1,4 @@
-> "You always dream of the kind of love that comes without consequences, without struggle and without responsibility. The kind that doesn't exist." *— Bruce Springsteen, March 10, 2016*
+> "You always dream of the kind of love that comes without consequences, without struggle and without responsibility. The kind that doesn't exist." *— Bruce Springsteen, March 10, 2016*<br>
 
 Some songs simply don't age well.
 
@@ -20,10 +20,10 @@ We can award points for earnestness–it took some guts in 1979 for a rock music
 
 Our narrator introduces us to his love interest right from the top, although we never learn a thing about her besides the fact that she's a single, working mother.
 
-> *I see you walking baby down the street*
-> *Pushing that baby carriage at your feet*
-> *I see that lonely ribbon in your hair*
-> *Tell me am I the man for whom you put it there*
+> *I see you walking baby down the street*<br>
+> *Pushing that baby carriage at your feet*<br>
+> *I see that lonely ribbon in your hair*<br>
+> *Tell me am I the man for whom you put it there*<br>
 
 Let us pause for a moment to acknowledge one of the most memorable lines in Bruce's entire catalog: *Tell me am I the man for whom you put it there.*
 
@@ -33,14 +33,14 @@ And yet I'm sure it warms the heart of every grammar school English teacher. So 
 
 Awkwardly paternal elocution aside, though, we might still think this is a sweet love song… until we reach the second verse.
 
-> *You never smile girl you never speak*
-> *You just walk on by darling week after week*
-> *Raising two kids alone in this mixed-up world*
-> *Must be a lonely life for a working girl*
+> *You never smile girl you never speak*<br>
+> *You just walk on by darling week after week*<br>
+> *Raising two kids alone in this mixed-up world*<br>
+> *Must be a lonely life for a working girl*<br>
 
-> *Little girl I wanna marry you, oh yeah*
-> *Little girl I wanna marry you, yes I do*
-> *Little girl I wanna marry you*
+> *Little girl I wanna marry you, oh yeah*<br>
+> *Little girl I wanna marry you, yes I do*<br>
+> *Little girl I wanna marry you*<br>
 
 Wait, what now? Our narrator doesn't even *know* this woman? They haven't even spoken?
 
@@ -50,42 +50,42 @@ In later years, Bruce would explain that "I Wanna Marry You" is a fantasy–the 
 
 And if the song lingered in the realm of fantasy for the duration, we might concede the conceit. But it doesn't–when we return from the swooning refrain, Bruce takes us squarely into the domain of the pragmatic.
 
-> *Now honey I don't wanna clip your wings*
-> *But a time comes when two people should think of these things*
-> *Having a home and a family*
-> *Facing up to their responsibilities*
+> *Now honey I don't wanna clip your wings*<br>
+> *But a time comes when two people should think of these things*<br>
+> *Having a home and a family*<br>
+> *Facing up to their responsibilities*<br>
 
-> *They say in the end true love prevails*
-> *But in the end true love can't be some fairytale*
-> *To say I'll make your dreams come true would be wrong*
-> *But maybe darling I could help them along*
+> *They say in the end true love prevails*<br>
+> *But in the end true love can't be some fairytale*<br>
+> *To say I'll make your dreams come true would be wrong*<br>
+> *But maybe darling I could help them along*<br>
 
-> *Little girl I wanna marry you, oh yeah*
-> *Little girl I wanna marry you, yes I do*
-> *Little girl I wanna marry you*
+> *Little girl I wanna marry you, oh yeah*<br>
+> *Little girl I wanna marry you, yes I do*<br>
+> *Little girl I wanna marry you*<br>
 
 This is actually a fascinating passage. It's strangely cynical for a romantic fantasy: *I can't make your dreams come true. Our love won't be magical. But it might be good enough. And besides… we really ought to consider getting hitched and starting a family, because we're not getting any younger.* And yet… Bruce sings with such sincerity that one might swoon to hear it.
 
 As is often the case, Bruce tucks the true heart of the song away in the song's bridge.
 
-> *My daddy said right before he died*
-> *That true true love was just a lie*
-> *He went to his grave a broken heart*
-> *An unfulfilled life, girl, makes a man hard*
+> *My daddy said right before he died*<br>
+> *That true true love was just a lie*<br>
+> *He went to his grave a broken heart*<br>
+> *An unfulfilled life, girl, makes a man hard*<br>
 
 The first couplet is almost autobiographical, except for the fact that Bruce's dad was still alive at the time. Decades later, Bruce would tell his audiences about how his father dismissed love songs as government propaganda. I can't help but think his dad informed this passage.
 
 But underneath the humor is a raw emotional truth: our narrator, we suspect, is frightened of ending up like his dad: unfulfilled, hardened, and lacking love. Or as he puts it immediately after:
 
-> *Oh darling, there's something happy and there's something sad*
-> *‘Bout wanting somebody oh so bad*
+> *Oh darling, there's something happy and there's something sad*<br>
+> *‘Bout wanting somebody oh so bad*<br>
 
 It's a clever line couched in a melody so sweet that it almost slips by us unnoticed: *there's something happy and there's something sad about wanting somebody so bad.* There's something missing in our narrator's life, and it's a hole he's trying very hard to fill. He's looking for love more than he's looking for a specific person to love.
 
 That doesn't stop him from professing his fidelity, however:
 
-> *I wear my love darling without shame*
-> *I'd be proud if you would wear my name*
+> *I wear my love darling without shame*<br>
+> *I'd be proud if you would wear my name*<br>
 
 (In later years, Bruce would tip his hat to the datedness of the song by adding a parenthetical "….hyphenated!")
 
@@ -104,9 +104,9 @@ What most fans don't realize, however, is that the version of "I Wanna Marry You
 [Watch on Youtube: I Wanna Marry You](https://www.youtube.com/watch?v=WtNHmFYtBf8)
 
 **I Wanna Marry You**<br>
-**Recorded** July 1979 – May 1980  
+**Recorded** July 1979 – May 1980<br>
 **Released:** *The River* (1980), *The River: Single Album* (2015)
-**First performed:** October 3, 1980 (Ann Arbor, MI)
-**Last performed:** July, 28, 2016 (Oslo, Norway)
+**First performed:** October 3, 1980 (Ann Arbor, MI)<br>
+**Last performed:** July, 28, 2016 (Oslo, Norway)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

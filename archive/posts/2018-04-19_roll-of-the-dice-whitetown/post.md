@@ -45,8 +45,8 @@ If I didn't know better, I'd peg this version of "Whitetown" as an outtake from 
 So color me surprised. And delighted: Bruce turned "Whitetown" into a wonderful song that would have been a delightful addition to *Working on a Dream*. It's easily one of my favorite tracks in the *River* box set.
 
 **Whitetown**<br>
-**Recorded** ?  
-**Released:** *The Ties That Bind: The River Collection* (2015)
+**Recorded** ?<br>
+**Released:** *The Ties That Bind: The River Collection* (2015)<br>
 **Never Performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

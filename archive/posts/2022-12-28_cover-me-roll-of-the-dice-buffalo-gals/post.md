@@ -34,6 +34,6 @@ It's hard to say why "Buffalo Gals" became such an American classic, but with pe
 **Recorded:** 2005-2006<br>
 **Released:** *We Shall Overcome: The Seeger Sessions*<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
-**Last performed:** June 29, 2006 (Saratoga Springs, NY)
+**Last performed:** June 29, 2006 (Saratoga Springs, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

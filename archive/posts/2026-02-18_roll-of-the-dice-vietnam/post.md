@@ -1,4 +1,4 @@
-> "*It's like when you're walking down a dark street at night, and out of the corner of your eye you see somebody getting hurt in a dark alley. But you keep walking on because you think it don't have nothing to do with you, and you just want to get home. Vietnam turned this whole country into that dark street, and unless we can walk down those alleys and look into the eyes of those men and women, we're never gonna get home.*" *–Bruce Springsteen, August 20, 1981*
+> "*It's like when you're walking down a dark street at night, and out of the corner of your eye you see somebody getting hurt in a dark alley. But you keep walking on because you think it don't have nothing to do with you, and you just want to get home. Vietnam turned this whole country into that dark street, and unless we can walk down those alleys and look into the eyes of those men and women, we're never gonna get home.*" *–Bruce Springsteen, August 20, 1981*<br>
 
 In the autumn of 1981, the plight of Vietnam veterans was very much on Bruce's mind.
 
@@ -22,35 +22,35 @@ Bruce recorded "Vietnam" in the autumn of 1981, and although he never released i
 
 The first verse begins with some familiar lyrics–the first couplet of "Vietnam" would eventually introduce "Shut Out the Light" instead:
 
-> *The runway rushed up at me, I felt the wheels touch down*
-> *Stood out on the blacktop, and took a taxi into town*
-> *Got off down on Main Street, to see what I could see*
-> *All I seen was strangers, watchin' a stranger pass by*
-> *And that stranger was me*
+> *The runway rushed up at me, I felt the wheels touch down*<br>
+> *Stood out on the blacktop, and took a taxi into town*<br>
+> *Got off down on Main Street, to see what I could see*<br>
+> *All I seen was strangers, watchin' a stranger pass by*<br>
+> *And that stranger was me*<br>
 
 Bruce actually tries two options for that final line: "and no one was stranger than me" is the alternate. We could debate which line is stronger, but both serve to communicate the alienation our returning hero feels from his town.
 
 The second verse also features some vaguely familiar lyrics, but unlike the foreman in "Born in the U.S.A." the desk man in "Vietnam" isn't is almost brutal in his brush-off:
 
-> *Went for my job back at the factory, down at the factory*
-> *The only thing I heard from the man at the desk*
-> *Is, "Son, understand if it was up to me"*
-> *‘Bout half the town's out of work*
-> *Ain't nothin' for you here*
-> *From the assembly line to the front-line*
-> *But I guess you didn't hear:*
-> *You died in Vietnam.*
+> *Went for my job back at the factory, down at the factory*<br>
+> *The only thing I heard from the man at the desk*<br>
+> *Is, "Son, understand if it was up to me"*<br>
+> *‘Bout half the town's out of work*<br>
+> *Ain't nothin' for you here*<br>
+> *From the assembly line to the front-line*<br>
+> *But I guess you didn't hear:*<br>
+> *You died in Vietnam.*<br>
 
 That chorus–"you died in Vietnam"–is devastatingly powerful. If "Born in the U.S.A." is an ambiguous clarion call, there's absolutely no mistaking the message of "you died in Vietnam." It works on two levels at once: as irony ("we heard you died over there") and as metaphor ("the person we knew died in the war; the person who came back is a stranger").
 
 My favorite verse, though, is the final one:
 
-> *Went to see my baby, down on First and Grand*
-> *To tell her I'd come home from away in Vietnam*
-> *Her mama came to the door and told me*
-> *Her mama told me she ran away*
-> *With a singer in a Rock ‘N' Roll band*
-> *She said, "I'm sorry son, but we understand"*
+> *Went to see my baby, down on First and Grand*<br>
+> *To tell her I'd come home from away in Vietnam*<br>
+> *Her mama came to the door and told me*<br>
+> *Her mama told me she ran away*<br>
+> *With a singer in a Rock ‘N' Roll band*<br>
+> *She said, "I'm sorry son, but we understand"*<br>
 
 Geez, that's quite a knife twist, isn't it? Not only did his girl not wait for him, but check out the clear reference to the Rolling Stones' classic "[Street Fighting Man](https://estreetshuffle.com/index.php/2019/08/19/cover-me-street-fighting-man/)." Our hero risks his life only to find that his girlfriend left him for a poor boy who couldn't answer the question "what else can I do but sing in a rock and roll band?" In these six lines, Bruce lays out a fascinating, morally ambiguous circumstance that's far more thought-provokingly gray than any of the songs that would spin out of "Vietnam."
 
@@ -64,24 +64,24 @@ This version of "Vietnam" has a new refrain, and now we can clearly see the dest
 
 This version of "Born in the U.S.A." (we may as well call it by that name now, since it's clearly the song's refrain) is almost the inverse of the song we'd eventually hear on the radio three years later. It's almost a prequel, in fact–Bruce spends the whole song singing about the dirty town of Glendale where his protagonist grows up. Many lyrical snippets would make their way into the final version of "Born in the U.S.A.," but at this point, they serve to flesh out the narrator's backstory.
 
-> *I was born in the shadow of the Glendale refinery*
-> *With air so dirty you could hardly breathe*
-> *The dirt gets so deep it colors your skin*
-> *you can scrub all day and scrub all night but it ain't never coming out again*
+> *I was born in the shadow of the Glendale refinery*<br>
+> *With air so dirty you could hardly breathe*<br>
+> *The dirt gets so deep it colors your skin*<br>
+> *you can scrub all day and scrub all night but it ain't never coming out again*<br>
 
 Our hero reaches a dead end–we never learn exactly what kind of scrape he gets into, but it's serious enough that his only options are the military, jail, or running. He chooses to stand with (or at least for) his country:
 
-> *Now we come down from Glendale, now you don't count*
-> *Coming from Glendale, they just count you out*
-> *I'm warning you mister, you better not get in a jam*
-> *'cause the only choice they give you is the barracks or the jailhouse, take it on the lam*
+> *Now we come down from Glendale, now you don't count*<br>
+> *Coming from Glendale, they just count you out*<br>
+> *I'm warning you mister, you better not get in a jam*<br>
+> *'cause the only choice they give you is the barracks or the jailhouse, take it on the lam*<br>
 
-> *I just turned eighteen, I got in a roadhouse jam*
-> *gave me the choice, to the jailhouse or my country, I did stand*
-> *The runway rushed up at me, the wheels touched land*
-> *The heat hit me in the face, and I stood in Vietnam*
+> *I just turned eighteen, I got in a roadhouse jam*<br>
+> *gave me the choice, to the jailhouse or my country, I did stand*<br>
+> *The runway rushed up at me, the wheels touched land*<br>
+> *The heat hit me in the face, and I stood in Vietnam*<br>
 
-> *Born in the U.S.A.*
+> *Born in the U.S.A.*<br>
 
 The song ends with our narrator arriving in Vietnam. (Ironically, when those lyrics appear again in "Shut Out the Light," the runway will be the one that greets him upon his return home.)
 

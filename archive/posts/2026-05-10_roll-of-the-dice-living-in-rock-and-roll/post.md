@@ -10,21 +10,21 @@ Daniels wasn't the only one-time-only element of that recording. One of the song
 
 Like many of Bruce's Steel Mill and Bruce Springsteen Band era songs, "Living in Rock and Roll" is slight of lyrics and heavy on the jam. The recording above is distant and often muddy, but we're able to make out enough of his lyrics to recognize that this is a pure pop song–nothing to analyze here.
 
-> *Mama, mama, won't you come and see*
-> *See what the music has done to me*
-> *Gone through my fingers, gone down deep into my soul*
-> *I'm just another boy trying to live in rock and roll*
+> *Mama, mama, won't you come and see*<br>
+> *See what the music has done to me*<br>
+> *Gone through my fingers, gone down deep into my soul*<br>
+> *I'm just another boy trying to live in rock and roll*<br>
 
-> *Sister, sister come quick*
-> *Just the other night, a revelation*
-> *Found it last night, soul on the radio*
-> *I'm just another boy trying to live in rock and roll*
+> *Sister, sister come quick*<br>
+> *Just the other night, a revelation*<br>
+> *Found it last night, soul on the radio*<br>
+> *I'm just another boy trying to live in rock and roll*<br>
 
-> *Well if you've got it, baby*
-> *Don't hide it*
-> *You can feel it*
-> *You can't hide it, you can't hide it*
-> *???*
+> *Well if you've got it, baby*<br>
+> *Don't hide it*<br>
+> *You can feel it*<br>
+> *You can't hide it, you can't hide it*<br>
+> *???*<br>
 
 The lyrics are either bluffed or repeated from this point forward, and I'm not even sure I've correctly captured what I've printed above. But I'm confident we're close enough to paint "Living in Rock and Roll" as a good-time, uptempo crowd-pleaser, with vocalists Daniels and Dee Holmes clearly audible and acknowledged by Bruce just before launching into the song.
 
@@ -37,7 +37,7 @@ But that's a story for another day.
 **Living in Rock and Roll  
 **Never recorded**<br>
 **Never released**  
-**First performed:** October 30, 1971 (Richmond, VA)  
-**Last performed:** October 30, 1971 (Richmond, VA)
+**First performed:** October 30, 1971 (Richmond, VA)<br>
+**Last performed:** October 30, 1971 (Richmond, VA)<br>
 
 © March 27, 2022

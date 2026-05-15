@@ -36,4 +36,4 @@ Bruce also plays acoustic guitar throughout the song, and the resulting video wa
 **Recorded:** 2020<br>
 **Released:** *Take the Sadness Out of Saturday Night* (2020)<br>
 **First performed:** November 2020 (New York City, NY)<br>
-**Last performed:** July 26, 2022 (New York City, NY)
+**Last performed:** July 26, 2022 (New York City, NY)<br>

@@ -57,10 +57,10 @@ Here's that performance–its first in 46 years–performed by the original Bruc
 [Watch on Youtube: Ballad of Jesse James](https://www.youtube.com/watch?v=IJ-MMNnX_AE)
 
 **The Ballad of Jesse James**<br>
-**Recorded** March 14, 1972  
-**Released:** *Chapter and Verse* (2016)
-**First performed:** September 1, 1971 (Long Branch, NJ)
-**Last performed:** April 21, 2017 (Asbury Park, NJ)
+**Recorded** March 14, 1972<br>
+**Released:** *Chapter and Verse* (2016)<br>
+**First performed:** September 1, 1971 (Long Branch, NJ)<br>
+**Last performed:** April 21, 2017 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 

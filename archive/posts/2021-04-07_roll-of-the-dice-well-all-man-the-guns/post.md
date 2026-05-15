@@ -79,7 +79,7 @@ Until and unless Bruce decides to talk about this lost early song (an unlikely p
 **We'll All Man the Guns**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** August 14, 1970 (Richmond, VA)
-**Last performed:** August 14, 1970 (Richmond, VA)
+**First performed:** August 14, 1970 (Richmond, VA)<br>
+**Last performed:** August 14, 1970 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -10,18 +10,18 @@ And what a magnificent album closer it would have been: musically lush in the Sp
 
 "Loose End" is the story of a relationship turned toxic. Like all great loves, it starts like a storybook, and Bruce employs some of his most romantic lyrics to date to paint the scene.
 
-> *We met out on open streets when we had no place to go*
+> *We met out on open streets when we had no place to go*<br>
 *I remember how my heart beat when you said "I love you so*"
 
 Which makes the tonal shift in the third line all the more shocking:
 
-> *Then little by little we choked out all the life that our love could hold*
-> *No no*
+> *Then little by little we choked out all the life that our love could hold*<br>
+> *No no*<br>
 
-> *It's like we had a noose and baby without check*
-> *We pulled 'til it grew tighter around our necks*
-> *Each one waiting for the other, darling to say when*
-> *Well baby you can meet me tonight on the loose end*
+> *It's like we had a noose and baby without check*<br>
+> *We pulled 'til it grew tighter around our necks*<br>
+> *Each one waiting for the other, darling to say when*<br>
+> *Well baby you can meet me tonight on the loose end*<br>
 
 The titular metaphor is a brutal one: Their relationship is like a noose, and our lovers pull it ever tighter, choking the life out of their love. Both partners are miserable, but neither is willing to flinch–waiting instead for the other to be the one to break it off.
 
@@ -31,17 +31,17 @@ Honestly, Bruce could have stopped writing at this point. The remaining verses o
 
 All he can do is look backward and remember a past that grows increasingly rosy as his present darkens.
 
-> *We didn't count tomorrows, we took what we could and baby we ran*
-> *There was no time for sorrow, every place we went I held your hand*
-> *And when the night closed in I was sure your kisses told me all I had to know*
-> *But oh no*
+> *We didn't count tomorrows, we took what we could and baby we ran*<br>
+> *There was no time for sorrow, every place we went I held your hand*<br>
+> *And when the night closed in I was sure your kisses told me all I had to know*<br>
+> *But oh no*<br>
 
 In the final verse, our narrator acknowledges what has become obvious: their love affair was no more impervious than any other, but knowing their love has died isn't the same thing as understanding why–which brings us to the most anguished line in the song.
 
-> *Our love has fallen around us like we said it never could*
-> *We saw it happen to all the others but to us it never would*
-> *Well how could something so bad, darling, come from something that was so good*
-> *I don't know*
+> *Our love has fallen around us like we said it never could*<br>
+> *We saw it happen to all the others but to us it never would*<br>
+> *Well how could something so bad, darling, come from something that was so good*<br>
+> *I don't know*<br>
 
 How could something so bad come from something so good?
 
@@ -66,10 +66,10 @@ Since then, "Loose End" has remained elusive, never missing an E Street Band Tou
 [Watch on Youtube: Bruce Springsteen - Loose Ends (Philadelphia, October 20, 2009)](https://www.youtube.com/watch?v=riKDqDaY6RM)
 
 **Loose End**<br>
-**Recorded** July 18, 1979  
-**Released:** *Tracks* (1998), *The River: Single Album* (2015)
-**First performed:** June 3, 1999 (Paris, France)
-**Last performed:** September 9, 2016 (Philadelphia, PA)
+**Recorded** July 18, 1979<br>
+**Released:** *Tracks* (1998), *The River: Single Album* (2015)<br>
+**First performed:** June 3, 1999 (Paris, France)<br>
+**Last performed:** September 9, 2016 (Philadelphia, PA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 

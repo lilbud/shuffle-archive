@@ -59,7 +59,7 @@ Perhaps someday a recording will surface and we'll find out for sure.
 
 **Clouds**<br>
 **Never recorded**<br>
-**First performed:** unknown  
-**Last performed:** unknown
+**First performed:** unknown<br>
+**Last performed:** unknown<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

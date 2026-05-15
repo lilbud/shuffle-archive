@@ -95,9 +95,9 @@ Here's that rarely seen performance–to my knowledge, it's the only professiona
 [Watch Video Highlight](https://videopress.com/embed/5Cf6O411)
 
 **Galveston Bay**<br>
-**Recorded** March-August 1995  
+**Recorded** March-August 1995<br>
 **Released:** *The Ghost of Tom Joad* (1995)
-**First performed:** November 21, 1995 (New Brunswick, NJ)
-**Last performed:** September 25, 2009 (New York City, NY)
+**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Last performed:** September 25, 2009 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

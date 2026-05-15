@@ -46,7 +46,7 @@ That night, Bruce plays three back-to-back tour premieres at Amsterdam's Magic s
 
 **2011:** Clarence Clemons passes away following complications arising from his stroke a week earlier. Bruce issues the following statement:
 
-> *Clarence lived a wonderful life. He carried within him a love of people that made them love him. He created a wondrous and extended family. He loved the saxophone, loved our fans and gave everything he had every night he stepped on stage. His loss is immeasurable and we are honored and thankful to have known him and had the opportunity to stand beside him for nearly forty years. He was my great friend, my partner and with Clarence at my side, my band and I were able to tell a story far deeper than those simply contained in our music. His life, his memory, and his love will live on in that story and in our band.*
+> *Clarence lived a wonderful life. He carried within him a love of people that made them love him. He created a wondrous and extended family. He loved the saxophone, loved our fans and gave everything he had every night he stepped on stage. His loss is immeasurable and we are honored and thankful to have known him and had the opportunity to stand beside him for nearly forty years. He was my great friend, my partner and with Clarence at my side, my band and I were able to tell a story far deeper than those simply contained in our music. His life, his memory, and his love will live on in that story and in our band.*<br>
 
 ![](../../assets/2020/06/2011-06-18.jpg)
 

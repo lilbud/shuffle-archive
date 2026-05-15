@@ -34,42 +34,42 @@ He leaves behind his walking stick with the ornamental skull–a symbolic gestur
 
 It's at this point that the song begins in earnest, the overture shifting into waltz-time as we notice our nomad still carrying his walking stick. Was his detour a dream, or does the cane represent a burden he can never truly lose? Our nomad becomes our narrator now as he turns to the camera to address us:
 
-> *I hauled myself up out of the ditch*
-> *And built me an ark out of gopher wood and pitch*
-> *Sat down by the roadside and waited on the rain*
-> *I am the hunter of invisible game*
+> *I hauled myself up out of the ditch*<br>
+> *And built me an ark out of gopher wood and pitch*<br>
+> *Sat down by the roadside and waited on the rain*<br>
+> *I am the hunter of invisible game*<br>
 
 Our narrator is a survivor, one who sees himself as doing God's work. He imagines himself as a modern-day Noah, building an ark to save and house the essential elements of a society before the worst of it is washed away in the flood. First he has to find them, though, and such ethereal concepts as love, family, and community are not as easy to spot as elephants or giraffes.
 
-> *Well I woke last night to the heavy clicking and clack*
-> *And a scarecrow on fire along the railroad tracks*
-> *There were empty cities and burning plains*
-> *I am the hunter of invisible game*
+> *Well I woke last night to the heavy clicking and clack*<br>
+> *And a scarecrow on fire along the railroad tracks*<br>
+> *There were empty cities and burning plains*<br>
+> *I am the hunter of invisible game*<br>
 
 It can't be a classic Springsteen song without a train metaphor. Here though, Bruce keeps the train at a distance. Whatever saints and sinners it may carry are far off; only its echoes carry through the deserted cities and arid farmland, as a flaming scarecrow stands in warning to those who might otherwise repeat the mistakes of a failed nation.
 
 As is often the case, Bruce tips his hand in the bridge:
 
-> *We all come up a little short and we go down hard*
-> *These days I spend my time skipping through the dark*
-> *Through the empires of dust I chant your name*
-> *I am the hunter of invisible game*
+> *We all come up a little short and we go down hard*<br>
+> *These days I spend my time skipping through the dark*<br>
+> *Through the empires of dust I chant your name*<br>
+> *I am the hunter of invisible game*<br>
 
 Civilizations and societies have an arc–they rise and they fall, without exception. In the bridge, Bruce alludes to what brought his character's world to the state it's in: an empire of dust, with citizens who didn't live up to their ideals. They fiddled, and their world burned.
 
 Now, it's left to our hunter to seek out the virtuous remnants of his civilization, and he descends into the valley of sin to do so.
 
-> *Through the boneyard rattle and black smoke we rolled on*
-> *Down into the valley where the beast has his throne*
-> *There I sing my song and I sharpen my blade*
-> *I am the hunter of invisible game*
+> *Through the boneyard rattle and black smoke we rolled on*<br>
+> *Down into the valley where the beast has his throne*<br>
+> *There I sing my song and I sharpen my blade*<br>
+> *I am the hunter of invisible game*<br>
 
 Even in the heart of darkness, there is light to be found. And in the next verse, Bruce tells us where we'll find it.
 
-> *Strength is vanity and time is illusion*
-> *I feel you breathing, the rest is confusion*
-> *Your skin touches mine, what else to explain*
-> *I am the hunter of invisible game*
+> *Strength is vanity and time is illusion*<br>
+> *I feel you breathing, the rest is confusion*<br>
+> *Your skin touches mine, what else to explain*<br>
+> *I am the hunter of invisible game*<br>
 
 This is what he's hunting: connection. The ties that bind.
 
@@ -77,12 +77,12 @@ Ironically, though, for an artist who can never seem to resist an opportunity fo
 
 Bruce brings it home in the final verse with stark words of warning.
 
-> *Now pray for yourself and that you may not fall*
-> *When the hour of deliverance comes on us all*
-> *When our hope and faith and courage and trust*
-> *Can rise or vanish like dust into dust*
-> *Now there's a kingdom of love waiting to be reclaimed*
-> *I am the hunter of invisible game*
+> *Now pray for yourself and that you may not fall*<br>
+> *When the hour of deliverance comes on us all*<br>
+> *When our hope and faith and courage and trust*<br>
+> *Can rise or vanish like dust into dust*<br>
+> *Now there's a kingdom of love waiting to be reclaimed*<br>
+> *I am the hunter of invisible game*<br>
 
 Our moment will come, he cautions, where we'll be called upon to band together, face adversity together, and hold together. Will we meet the moment, or like the world in which our narrator now wanders, will we fail and cede the stage to new players?
 
@@ -96,9 +96,9 @@ Because, as he tells us before literally walking off into the sunset, there's al
 [Watch on Youtube: Bruce Springsteen - Hunter Of Invisible Game - Adelaide, Australia 12 February 2014](https://www.youtube.com/watch?v=KwDdVpXdvgE)
 
 **Hunter of Invisible Game**<br>
-**Recorded** 2004-2008  
+**Recorded** 2004-2008<br>
 **Released:** *High Hopes* (2014)
-**First performed:** February 12, 2014 (Adelaide, Australia)
-**Last performed:** February 12, 2014 (Adelaide, Australia)
+**First performed:** February 12, 2014 (Adelaide, Australia)<br>
+**Last performed:** February 12, 2014 (Adelaide, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

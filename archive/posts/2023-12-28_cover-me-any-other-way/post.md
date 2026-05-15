@@ -1,18 +1,18 @@
 > **Chris Jordan:** "Any Other Way," William Bell ... Are you familiar with the version by a woman named Jackie Shane?
 >
-> **Bruce Springsteen:** *I've heard her name mentioned with that song. I don't know if I've heard her version. I know a lot of people are familiar with her version of it. It's supposed to be great.*
+> **Bruce Springsteen:** *I've heard her name mentioned with that song. I don't know if I've heard her version. I know a lot of people are familiar with her version of it. It's supposed to be great.*<br>
 >
 > Jackie Shane, it's my understanding that she's a trailblazer. She was born a man and Jackie was a trans performer.
 >
-> *I didn't know that...*
+> *I didn't know that...*<br>
 >
 > She was up through the '60s and based in Toronto. I think her story is especially significant after the Colorado incident here.
 >
-> *I want to check her version out.*
+> *I want to check her version out.*<br>
 >
 > Jackie Shane's really good. It's subdued, really good like that.
 >
-> *I was copying the William Bell version, basically.*
+> *I was copying the William Bell version, basically.*<br>
 >
 > —Asbury Park Press, November 23, 2022
 

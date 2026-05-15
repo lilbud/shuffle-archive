@@ -142,9 +142,9 @@ Unfortunately, by the time Bruce recorded and filmed his Broadway show for offic
 [Watch Video](https://videopress.com/embed/nKNDHlSR?hd=1&loop=0&autoPlay=0&permalink=1)
 
 **Long Walk Home  
-Recorded:** March-April 2007  
+**Recorded:** March-April 2007  
 **Released:** *Magic* (2007)
-**First performed:** November 11, 2006 (London, England)
-**Last performed:** July 18, 2018 (New York City, NY)
+**First performed:** November 11, 2006 (London, England)<br>
+**Last performed:** July 18, 2018 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

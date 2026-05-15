@@ -19,7 +19,7 @@ Both Joe and Bruce are now *well* past sixty, and perhaps that's why they've sto
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SHIGaBfiLcE)
 
 **I Still Look Good (For Sixty)**<br>
-**First performed:** May 22, 2014 (Pittsburgh, PA)
-**Last performed:** January 17, 2015 (Asbury Park, NJ)
+**First performed:** May 22, 2014 (Pittsburgh, PA)<br>
+**Last performed:** January 17, 2015 (Asbury Park, NJ)<br>
 
 © April 24, 2018 / February 8, 2026

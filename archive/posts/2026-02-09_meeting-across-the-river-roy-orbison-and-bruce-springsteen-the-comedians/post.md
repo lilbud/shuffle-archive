@@ -9,7 +9,7 @@ Orbison recorded a cover of "The Comedians" but hadn't released it at the time o
 Roy's 1987 performance remains the definitive version, however. Bruce takes a backing guitar role on it, and Elvis Costello actually appears as a backing vocalist. So is it a cover or a team-up? You decide.
 
 **The Comedians**<br>
-**First performed:** September 30, 1987 (Los Angeles, CA)
-**Last performed:** September 30 ,1987 (Los Angeles, CA)
+**First performed:** September 30, 1987 (Los Angeles, CA)<br>
+**Last performed:** September 30 ,1987 (Los Angeles, CA)<br>
 
 © February 22, 2018

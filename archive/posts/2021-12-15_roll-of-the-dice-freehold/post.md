@@ -14,27 +14,27 @@ Listen to that performance below (including an unintentional interlude where Bru
 
 I'll forego my usual analysis of Bruce's lyrics this time, because Bruce bares it all openly on the page. It's interesting to note just how well the lyrics match with Bruce's eventual book and stage show–and to remember how new this information was when Bruce first debuted this song back in 1996. There are few annotations worth making, though:
 
-> *I was born right here on Randolph Street in Freehold*
-> *Here right behind that big red maple in Freehold*
-> *Well I went to school right here*
-> *Got laid and had my first beer*
-> *In Freehold*
+> *I was born right here on Randolph Street in Freehold*<br>
+> *Here right behind that big red maple in Freehold*<br>
+> *Well I went to school right here*<br>
+> *Got laid and had my first beer*<br>
+> *In Freehold*<br>
 
 In both his book and his Broadway show, Bruce talks about the tree that felt like a childhood friend to him, a constant reliable companion while he was growing up. These days it's a beech tree rather than a maple, and I wonder whether Bruce simply just didn't get around to properly identifying it until it was gone.
 
-> *Well my folks all lived and worked right here in Freehold*
-> *I remember running up the street past the convent to the church here in Freehold*
-> *I chased my daddy down in these bars*
-> *First fell in love with this guitar*
-> *Here in Freehold*
+> *Well my folks all lived and worked right here in Freehold*<br>
+> *I remember running up the street past the convent to the church here in Freehold*<br>
+> *I chased my daddy down in these bars*<br>
+> *First fell in love with this guitar*<br>
+> *Here in Freehold*<br>
 
 That single line–"I chased my daddy down in these bars"–would become an emotional centerpiece story in *Springsteen on Broadway* twenty years later.
 
-> *Well I had my first kiss at the YMCA canteen on a Friday night*
-> *Maria Espinosa tell me where are you tonight*
-> *You were thirteen but way ahead of your time*
-> *I walked home with a limp but I felt fine*
-> *That night in Freehold*
+> *Well I had my first kiss at the YMCA canteen on a Friday night*<br>
+> *Maria Espinosa tell me where are you tonight*<br>
+> *You were thirteen but way ahead of your time*<br>
+> *I walked home with a limp but I felt fine*<br>
+> *That night in Freehold*<br>
 
 Bruce has mentioned Maria often since that night, but at the time, fans scratched their heads and asked, "Who?"
 
@@ -44,88 +44,88 @@ He'd never spoken of her publicly before, and as a result, neither had she. When
 
 ![](../../assets/2018/12/maria-1.jpg)
 
-> *Well the girls at Freehold Regional they looked pretty fine*
-> *Had my heart broke at least half a dozen times*
-> *I wonder if they missed me, if they still get the itch*
-> *Would they had dumped me if they knew I'd strike it rich*
-> *Straight out of Freehold*
+> *Well the girls at Freehold Regional they looked pretty fine*<br>
+> *Had my heart broke at least half a dozen times*<br>
+> *I wonder if they missed me, if they still get the itch*<br>
+> *Would they had dumped me if they knew I'd strike it rich*<br>
+> *Straight out of Freehold*<br>
 
 Bruce rarely lets his fame go to his head in public. This was a nice reminder that he's subject to the same types of "glory days" what-ifs as the rest of us.
 
 The remaining verses introduce us to characters and stories that we now know well from Bruce's writing and stage performances:
 
-> *Well Tex rest in peace and Marion gave us kids a hand in Freehold*
-> *Georgie, we started up a little Rock and Roll band in Freehold*
-> *But we learned pretty quick how to rock it*
-> *I'll never forget the feeling of that first five bucks in my pocket*
-> *That I earned in Freehold*
+> *Well Tex rest in peace and Marion gave us kids a hand in Freehold*<br>
+> *Georgie, we started up a little Rock and Roll band in Freehold*<br>
+> *But we learned pretty quick how to rock it*<br>
+> *I'll never forget the feeling of that first five bucks in my pocket*<br>
+> *That I earned in Freehold*<br>
 
-> *Well I got outta here really hard and fast in Freehold*
-> *Everybody wanted to kick my ass back there in Freehold*
-> *Well if you were different, black or brown*
-> *It was a bit of a redneck town*
-> *Back then in Freehold*
+> *Well I got outta here really hard and fast in Freehold*<br>
+> *Everybody wanted to kick my ass back there in Freehold*<br>
+> *Well if you were different, black or brown*<br>
+> *It was a bit of a redneck town*<br>
+> *Back then in Freehold*<br>
 
-> *Well something broke my daddy's back in Freehold*
-> *In '69 he left and he never come back to Freehold*
-> *Except once he drove from California 3000 miles in three days*
-> *Called my relatives some dirty names*
-> *And pulled straight out of Freehold*
+> *Well something broke my daddy's back in Freehold*<br>
+> *In '69 he left and he never come back to Freehold*<br>
+> *Except once he drove from California 3000 miles in three days*<br>
+> *Called my relatives some dirty names*<br>
+> *And pulled straight out of Freehold*<br>
 
-> *Sister had her first little baby at seventeen in Freehold*
-> *Well people they can be pretty mean*
-> *Honey you had a rough road to go but you ain't made of nothin' but soul*
-> *I love you more than you'll ever know*
-> *We both survived Freehold*
+> *Sister had her first little baby at seventeen in Freehold*<br>
+> *Well people they can be pretty mean*<br>
+> *Honey you had a rough road to go but you ain't made of nothin' but soul*<br>
+> *I love you more than you'll ever know*<br>
+> *We both survived Freehold*<br>
 
-> *Well my buddy Mike, well he's the mayor now in Freehold*
-> *I remember when we used to have a lot more hair in Freehold*
-> *Well I left and swore I'd never walk these streets again Jack*
-> *Tonight all I can say is "holy shit, I'm back"*
-> *Back in Freehold*
+> *Well my buddy Mike, well he's the mayor now in Freehold*<br>
+> *I remember when we used to have a lot more hair in Freehold*<br>
+> *Well I left and swore I'd never walk these streets again Jack*<br>
+> *Tonight all I can say is "holy shit, I'm back"*<br>
+> *Back in Freehold*<br>
 
-> *Well this summer everything was green*
-> *Rode my kids on the fire engine through the streets of Freehold*
-> *I showed them where dad was born and raised*
-> *And first felt the sun on his face*
-> *There in Freehold*
+> *Well this summer everything was green*<br>
+> *Rode my kids on the fire engine through the streets of Freehold*<br>
+> *I showed them where dad was born and raised*<br>
+> *And first felt the sun on his face*<br>
+> *There in Freehold*<br>
 
-> *Well I still got a lot of good friends right here in town*
-> *I can usually find me a free beer somewhere*
-> *With offers of free meals I am blessed*
-> *Should I go crazy, blow all my money and ruin my life, well at least I'll never go hungry I guess*
-> *Here in Freehold*
+> *Well I still got a lot of good friends right here in town*<br>
+> *I can usually find me a free beer somewhere*<br>
+> *With offers of free meals I am blessed*<br>
+> *Should I go crazy, blow all my money and ruin my life, well at least I'll never go hungry I guess*<br>
+> *Here in Freehold*<br>
 
 At the time, it was a laugh line. But with time and revelation, we now know that Bruce has long struggled with mental illness. There's a cost that comes with being famous and continuing to live in the place that you are very publicly associated with. But there's a benefit as well, and it must be comforting to Bruce to live in a place surrounded by people who know more than just the side of himself he presents on stage, and to know that he's loved and supported by a town grateful for his contributions without demanding them.
 
 Finally, Bruce couldn't let the occasion end without getting in one last good-natured jab at the expense of the school's faculty and staff. We can almost hear the collective blush:
 
-> *Well I got a good Catholic education here in Freehold*
-> *Led to an awful lot of masturbation here in Freehold*
-> *Father it was just something I did for a smile*
-> *Hell, I still get a good one off once in a while*
-> *And dedicate it to Freehold*
+> *Well I got a good Catholic education here in Freehold*<br>
+> *Led to an awful lot of masturbation here in Freehold*<br>
+> *Father it was just something I did for a smile*<br>
+> *Hell, I still get a good one off once in a while*<br>
+> *And dedicate it to Freehold*<br>
 
-> *Don't get me wrong, I ain't putting anybody down*
-> *Hell, in the end it all just goes and comes around*
-> *It's one hell of a town*
-> *Freehold*
+> *Don't get me wrong, I ain't putting anybody down*<br>
+> *Hell, in the end it all just goes and comes around*<br>
+> *It's one hell of a town*<br>
+> *Freehold*<br>
 
 Despite promising a one-time-only performance, Bruce played "Freehold" periodically throughout the remainder of the tour. (One has to wonder how the song played in such far-flung places as Sydney and Warsaw.)
 
 He brought it back a couple of years later during the homecoming stand on the Reunion Tour, with some added lyrics. After the verse about his father, he added:
 
-> *Now he's there by the highway buried in the dirt*
-> *His ghost just flippin' the bird*
-> *To everybody in Freehold*
+> *Now he's there by the highway buried in the dirt*<br>
+> *His ghost just flippin' the bird*<br>
+> *To everybody in Freehold*<br>
 
 And in response to news of his hometown's defeated proposal to erect a ten-foot statue of himself at a considerable cost, he sang:
 
-> *Well I read something in the papers a few weeks ago that was pretty funny*
-> *Seems the town council was debating whether to up a statue of me in my hometown, but it cost too much money*
-> *Well I'd like to thank the Town Council my friends*
-> *For saving me from humiliation by displaying the good hard common sense*
-> *We learned in Freehold*
+> *Well I read something in the papers a few weeks ago that was pretty funny*<br>
+> *Seems the town council was debating whether to up a statue of me in my hometown, but it cost too much money*<br>
+> *Well I'd like to thank the Town Council my friends*<br>
+> *For saving me from humiliation by displaying the good hard common sense*<br>
+> *We learned in Freehold*<br>
 
 Listen to that updated performance below:
 
@@ -137,7 +137,7 @@ As far as we know, he's never recorded "Freehold" in the studio. It remains a co
 
 **Freehold**<br>
 **Never recorded or released**<br>
-**First performed:** November 8, 1996 (Freehold, NJ)
-**Last performed:** February 20, 2003 (Somerville, MA)
+**First performed:** November 8, 1996 (Freehold, NJ)<br>
+**Last performed:** February 20, 2003 (Somerville, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -114,9 +114,9 @@ Bruce would continue to perform "Murder Incorporated" many times with the Houser
 [Watch on Youtube: Patti Scialfa and Nils Lofgren rehearsing Murder Incorporated 1996](https://www.youtube.com/watch?v=nJPDVsqagF0)
 
 **Murder Incorporated**<br>
-**Recorded** May 3-4, 1982  
-**Released:** *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
-**First performed:** February 21, 1995 (New York City, NY)
-**Last performed:** February 2, 2017 (Melbourne, Australia)
+**Recorded** May 3-4, 1982<br>
+**Released:** *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** February 21, 1995 (New York City, NY)<br>
+**Last performed:** February 2, 2017 (Melbourne, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

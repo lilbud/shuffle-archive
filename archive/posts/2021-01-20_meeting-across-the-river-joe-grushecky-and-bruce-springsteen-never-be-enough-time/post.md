@@ -17,5 +17,5 @@ Bruce and Joe play the song live together frequently (30 times over the past 24 
 [Watch on Youtube: Joe Grushecky & Houserockers Bruce Springsteen](https://www.youtube.com/watch?v=aor4Wdwbfgc)
 
 **Never Be Enough Time**<br>
-**First performed:** August 20, 1994 (Long Branch, NJ)
-**Last performed:** January 18, 2020 (Asbury Park, NJ)
+**First performed:** August 20, 1994 (Long Branch, NJ)<br>
+**Last performed:** January 18, 2020 (Asbury Park, NJ)<br>

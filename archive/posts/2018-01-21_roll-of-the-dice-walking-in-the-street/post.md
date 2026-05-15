@@ -10,22 +10,22 @@ And lyrically, a late verse sounds *very* similar to "Wings for Wheels," which w
 
 **From "Walking in the Street.."**<br>
 
-> *Oh baby, I can't lay the stars at your feet,  
-Oh but I think we could take it all , just you and me  
-Oh come on and see there's a lot of room for you baby in this front seat.*
+> *Oh baby, I can't lay the stars at your feet*<br>
+> *Oh but I think we could take it all , just you and me*<br>
+> *Oh come on and see there's a lot of room for you baby in this front seat.*<br>
 
 **…to "Wings for Wheels…"**<br>
 
-> *Maybe I can't lay the stars at your feet,  
-But I got this old car and she's pretty tough to beat*
-> *There's plenty of room in my front seat*
-> *If you think you can make it, climb in.*
+> *Maybe I can't lay the stars at your feet*<br>
+> *But I got this old car and she's pretty tough to beat*<br>
+> *There's plenty of room in my front seat*<br>
+> *If you think you can make it, climb in.*<br>
 
 **to "Thunder Road."**<br>
 
-> *Well, I ain't no hero, that's understood.*
-> *All the redemption I can offer, girl, is beneath this dirty hood*
-> *With a chance to make it good some how… hey, what else can we do now?*
+> *Well, I ain't no hero, that's understood.*<br>
+> *All the redemption I can offer, girl, is beneath this dirty hood*<br>
+> *With a chance to make it good some how… hey, what else can we do now?*<br>
 
 But thematically, "Walking in the Street" (sometimes called "Lovers in the Cold") is a very different song from "Thunder Road." The latter is a classic expression of desperation, yearning, and escape. The former is a fatalistic tale of Billy and Cherry, who seem reconciled to their lot.
 
@@ -35,15 +35,15 @@ They sound more like the lovers in "[Atlantic City](https://estreetshuffle.com/i
 
 The chorus pairs a soaring melody with gorgeous but grounded imagery:
 
-> *Tonight we're lovers in the cold, running past the graveyards in the snow  
-Walking in the street with nowhere to go.*
+> *Tonight we're lovers in the cold, running past the graveyards in the snow*<br>
+> *Walking in the street with nowhere to go.*<br>
 
 …and even though there's a hint of hope in the line "I think we could take it all, just you and me," the song returns and ends on the chorus, and it's clear that Billy and Cherry won't ever be pulling out of there to win.
 
 So give a listen to this never-released, never-performed classic, lost somewhere with Billy and Cherry, forever walking in the street with nowhere to go.
 
 **Walking in the Street**<br>
-**Recorded** August-September 1974  
+**Recorded** August-September 1974<br>
 **Never released**  
 **Never performed**<br>
 

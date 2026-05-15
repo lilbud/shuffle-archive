@@ -4,21 +4,21 @@ That's probably because it's also one of the most malleable holiday classics, ta
 
 Haven Gillespie wrote the lyrics for "Santa Claus is Comin' to Town" during the height of the Great Depression, and his words reflected the concerns of the day:
 
-> *The season is near, the happiest time*
-> *Gotta bring cheer with every last dime*
-> *Santa Claus is coming to town!*
+> *The season is near, the happiest time*<br>
+> *Gotta bring cheer with every last dime*<br>
+> *Santa Claus is coming to town!*<br>
 
-> *We've gotta dig deep and cover the list*
-> *Gotta see that nobody is missed*
-> *Santa Claus is coming to town!*
+> *We've gotta dig deep and cover the list*<br>
+> *Gotta see that nobody is missed*<br>
+> *Santa Claus is coming to town!*<br>
 
-> *Let's keep home fires burning*
-> *Let's give with out a pause*
-> *Let's prove to those less fortunate that there is a Santa Claus*
+> *Let's keep home fires burning*<br>
+> *Let's give with out a pause*<br>
+> *Let's prove to those less fortunate that there is a Santa Claus*<br>
 
-> *Oh the joy will be yours , that wonderful day*
-> *Knocking on doors and shouting hurray*
-> *Santa Claus is coming to town!*
+> *Oh the joy will be yours , that wonderful day*<br>
+> *Knocking on doors and shouting hurray*<br>
+> *Santa Claus is coming to town!*<br>
 
 It was this version–set to music by J. Fred Coots–that radio star Eddie Cantor performed on his radio show that 1934 holiday season.
 
@@ -65,6 +65,6 @@ So on this Christmas Eve, whether you celebrate the holiday or not: here's a wis
 **Santa Claus Is Comin' to Town**<br>
 Never recorded  
 Released (Live):** *In Harmony 2* (1981)
-**First performed:** December 20, 1973 (Brsitol, RI)**Last performed:** November 22, 2024 (Vancouver, BC)
+**First performed:** December 20, 1973 (Brsitol, RI)**Last performed:** November 22, 2024 (Vancouver, BC)<br>
 
 (c) December 24, 2021 by Ken Rosen

@@ -10,55 +10,55 @@ Today's entry is called "The Virgin Flower," and it's both one of the lengthiest
 
 Still, the good folks at Springsteenlyrics.com made a valiant attempt. Enough passages are legible to get a sense of the song, but too many are illegible or (I'm pretty certain) incorrectly transcribed for us to reliably or confidently interpret.
 
-> *The virgin flower standing*
-> *naked struck open the midnight*
-> *skies sharing love with those*
-> *whom see sacred growing hope with*
-> *her tender smile*
+> *The virgin flower standing*<br>
+> *naked struck open the midnight*<br>
+> *skies sharing love with those*<br>
+> *whom see sacred growing hope with*<br>
+> *her tender smile*<br>
 
-> *The morning sun catches*
-> *her laughing ??? to his ???*
-> *through her eyes the ageless*
-> *children come and sit beside her*
-> *listen in the wind*
-> *you may hear them cry*
+> *The morning sun catches*<br>
+> *her laughing ??? to his ???*<br>
+> *through her eyes the ageless*<br>
+> *children come and sit beside her*<br>
+> *listen in the wind*<br>
+> *you may hear them cry*<br>
 
-> *The gentle rain cleans her*
-> *body the tattered broom sweeps*
-> *out her mind ??? dreams of*
-> *a land that lies just beyond*
-> *the starless skies*
+> *The gentle rain cleans her*<br>
+> *body the tattered broom sweeps*<br>
+> *out her mind ??? dreams of*<br>
+> *a land that lies just beyond*<br>
+> *the starless skies*<br>
 
-> *She makes her home in the*
-> *enchanted forest telling her*
-> *tales that are spun out of gold*
-> *far away from the frightened*
-> *mass that wouldn't understand*
-> *for she's much to [sic] cold*
+> *She makes her home in the*<br>
+> *enchanted forest telling her*<br>
+> *tales that are spun out of gold*<br>
+> *far away from the frightened*<br>
+> *mass that wouldn't understand*<br>
+> *for she's much to [sic] cold*<br>
 
-> *Her eyes appear as the greatest*
-> *??? upon which I would love to*
-> *sail into the evening of her sorrow*
-> *may her ??? never fail*
+> *Her eyes appear as the greatest*<br>
+> *??? upon which I would love to*<br>
+> *sail into the evening of her sorrow*<br>
+> *may her ??? never fail*<br>
 
-> *The mean people mind those*
-> *??? up and proceed to work*
-> *for the master spy the bluest*
-> *??? crying ??? watches*
-> *??? to burn and die*
+> *The mean people mind those*<br>
+> *??? up and proceed to work*<br>
+> *for the master spy the bluest*<br>
+> *??? crying ??? watches*<br>
+> *??? to burn and die*<br>
 
-> *The forest children ??? me*
-> *onward to pay homage to the*
-> *brightest eye that dwells within the*
-> *purest teardrop that falls on her*
-> *the day she dies*
+> *The forest children ??? me*<br>
+> *onward to pay homage to the*<br>
+> *brightest eye that dwells within the*<br>
+> *purest teardrop that falls on her*<br>
+> *the day she dies*<br>
 
-> *The virgin flower standing*
-> *naked calls to the ??? won't*
-> *you please come home as I watch*
-> *from an open window grasping*
-> *at flashes of ??? the wind*
-> *has blown*
+> *The virgin flower standing*<br>
+> *naked calls to the ??? won't*<br>
+> *you please come home as I watch*<br>
+> *from an open window grasping*<br>
+> *at flashes of ??? the wind*<br>
+> *has blown*<br>
 
 About all we can say with some confidence about "The Virgin Flower" is that Bruce uses the natural world as a metaphor for the human one–a device he employed a few times at that age (including in the same notebook). In this case, the virgin flower appears to be a stand-in for a great matriarch–no doubt an intentional religious allusion as well.
 

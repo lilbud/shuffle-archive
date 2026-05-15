@@ -21,24 +21,24 @@ But when his career prospects didn't pan out the way he'd hoped he found himself
 
 He chose the latter, and Bruce's lyrics and world-weary vocals are clearly tinged with regret.
 
-> *Came into town with a pocketful of songs*
-> *I made the rounds but I didn't last long*
-> *Now I'm out on this highway with a bone-cold chill*
-> *Somewhere north of Nashville*
+> *Came into town with a pocketful of songs*<br>
+> *I made the rounds but I didn't last long*<br>
+> *Now I'm out on this highway with a bone-cold chill*<br>
+> *Somewhere north of Nashville*<br>
 
-> *I lie awake in the middle of the night*
-> *Making a list of things that I didn't do right*
-> *With you at the top of a long page filled*
-> *Here somewhere north of Nashville*
+> *I lie awake in the middle of the night*<br>
+> *Making a list of things that I didn't do right*<br>
+> *With you at the top of a long page filled*<br>
+> *Here somewhere north of Nashville*<br>
 
-> *For the deal I made the price was strong*
-> *I traded you for this song*
+> *For the deal I made the price was strong*<br>
+> *I traded you for this song*<br>
 
-> *We woke each morning with hearts filled*
-> *A bluebird of love on the windowsill*
-> *Now the heart's unsteady and the night is still*
-> *All I've got's this melody and time to kill*
-> *Here somewhere north of Nashville*
+> *We woke each morning with hearts filled*<br>
+> *A bluebird of love on the windowsill*<br>
+> *Now the heart's unsteady and the night is still*<br>
+> *All I've got's this melody and time to kill*<br>
+> *Here somewhere north of Nashville*<br>
 
 Our narrator made his choice and lost. He lost his love, and while he may have gained the working life of a touring musician, it's an empty one. In the still and quiet of the night, he has nothing but time to contemplate the price he paid for his working life, and the implication is that the price was too steep.
 
@@ -56,9 +56,9 @@ During the key bridge, Bruce catches the camera and his gaze meets ours just as 
 [Watch on Youtube: Somewhere North of Nashville - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=QFYy08tkdIk)
 
 **Somewhere North of Nashville**<br>
-**Recorded** Unknown  
-**Released:** *Western Stars* (2019)
-**First performed:** April 2019 (Colts Neck, NJ)
-**Last performed:** April 2019 (Colts Neck, NJ)
+**Recorded** Unknown<br>
+**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

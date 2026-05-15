@@ -10,21 +10,21 @@ It's easy to focus on the unfamiliar melody, but it's fascinating to examine the
 
 This early, unrecognizable version of "The Ties That Bind" is told from the opposite perspective. In this take, it's the protagonist who is the loner–but with enough self-awareness to recognize that he can't fully cut his heart off from his girl. He has unbreakable ties binding him to her, no matter how far away he rides:
 
-> *Well tonight I'll pack my bags*
-> *And babe tonight I'll ride*
-> *There won't be anything*
-> *No one at my side*
-> *There's just a cold dark highway (cold dark highway)*
-> *And a thin white line (thin white line)*
-> *Connecting me to the ties that bind*
+> *Well tonight I'll pack my bags*<br>
+> *And babe tonight I'll ride*<br>
+> *There won't be anything*<br>
+> *No one at my side*<br>
+> *There's just a cold dark highway (cold dark highway)*<br>
+> *And a thin white line (thin white line)*<br>
+> *Connecting me to the ties that bind*<br>
 
-> *But in that lonely hour*
-> *Right before the sun*
-> *Baby, gotta believe*
-> *You're the only one*
-> *Because this strength in your heart*
-> *Is all I got to remind me*
-> *No man can forsake the ties that bind*
+> *But in that lonely hour*<br>
+> *Right before the sun*<br>
+> *Baby, gotta believe*<br>
+> *You're the only one*<br>
+> *Because this strength in your heart*<br>
+> *Is all I got to remind me*<br>
+> *No man can forsake the ties that bind*<br>
 
 It didn't take long for Bruce to realize that the song would be more powerful if delivered from the other side of the bed, because by the time he played it live in concert for the first time only six weeks later in Princeton, it had already evolved to a much more familiar form.
 
@@ -34,19 +34,19 @@ Here's the second-ever performance from the following night in Largo, MD:
 
 The perspective has now shifted–in this version, we're in "Two Hearts" territory–there's even a line that would migrate over to that song someday:
 
-> *Outside, inside, anyway you wanna go*
+> *Outside, inside, anyway you wanna go*<br>
 ***There's one thing, darling, that I know***<br>
-> *People cry and wonder who's gonna stop the rain*
-> *Ease the sadness, who's gonna quiet your pain*
-> *You'll walk the wire, will you stand and walk the line*
+> *People cry and wonder who's gonna stop the rain*<br>
+> *Ease the sadness, who's gonna quiet your pain*<br>
+> *You'll walk the wire, will you stand and walk the line*<br>
 
 And then a completely different bridge (the same musical bridge from "[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)") with lyrics that seem more condemning and angry than empathetic:
 
-> *Keeping it safe, if you can, then you'll be a savior*
-> *You can't run from your blood, with that call*
-> *Tell 'em that you mean*
-> *Don't you feel it, baby*
-> *It's pumping in your veins, girl*
+> *Keeping it safe, if you can, then you'll be a savior*<br>
+> *You can't run from your blood, with that call*<br>
+> *Tell 'em that you mean*<br>
+> *Don't you feel it, baby*<br>
+> *It's pumping in your veins, girl*<br>
 
 Bruce still had some tweaking to do, and it didn't take him long–five weeks later, the song was in its almost-final form:
 
@@ -54,19 +54,19 @@ Bruce still had some tweaking to do, and it didn't take him long–five weeks la
 
 The music isn't *quite* there, but it's very close–and the lyrics are spot on, and the changes make all the difference:
 
-> *A cheap romance, you say it's just just just a crush*
-> *You don't want nothing that anybody can touch*
-> *You're so afraid of being somebody's fool*
-> *Not walking tough, baby, not walking cool*
-> *You're walking cool, but baby can you walk the line*
+> *A cheap romance, you say it's just just just a crush*<br>
+> *You don't want nothing that anybody can touch*<br>
+> *You're so afraid of being somebody's fool*<br>
+> *Not walking tough, baby, not walking cool*<br>
+> *You're walking cool, but baby can you walk the line*<br>
 
 Now it's clear that the narrator has empathy for the woman he sings about–he understands that her aloofness is born from fear.
 
 But it's the bridge that seals the deal:
 
-> *I'd rather feel the hurt inside, yes I would darling*
-> *Than know the emptiness that you hide*
-> *Yes I would darling, yes I would darling, yes I would honey*
+> *I'd rather feel the hurt inside, yes I would darling*<br>
+> *Than know the emptiness that you hide*<br>
+> *Yes I would darling, yes I would darling, yes I would honey*<br>
 
 It's now crystal clear that he's wounded, too–in fact, the "darling" and "honey" imply that he's probably the one she's running from. Perhaps they'd had a fight. Perhaps he'd said or done something hurtful–something that sent her packing, down the street, cried out and pushing people out of her way. But he recognizes their connection and wants to work for it.
 
@@ -74,11 +74,11 @@ It's now crystal clear that he's wounded, too–in fact, the "darling" and "hone
 
 By the time Bruce recorded the song in April 1979 (and revisited it a year later for *The River*), he'd added a final verse, salvaging discarded lyrics from earlier versions but making the connection between the two characters clearer:
 
-> *You sit and wonder just who's gonna stop the rain*
-> *Who'll ease the sadness, who's gonna quiet your pain*
-> *It's a long dark highway and a thin white line*
-> *Connecting baby your heart to mine*
-> *We're running now but darling we will stand in time*
+> *You sit and wonder just who's gonna stop the rain*<br>
+> *Who'll ease the sadness, who's gonna quiet your pain*<br>
+> *It's a long dark highway and a thin white line*<br>
+> *Connecting baby your heart to mine*<br>
+> *We're running now but darling we will stand in time*<br>
 
 [Watch on Youtube: The Ties That Bind](https://www.youtube.com/watch?v=5LqOgFrfuJY)
 
@@ -92,8 +92,8 @@ On the River Tour, "The Ties That Bind" was a setlist staple, but it disappeared
 
 **The Ties That Bind**<br>
 **Recorded:** April 10-11, 1979; April 10, 1980  
-**Released:** *The River* (1980), *The Ties That Bind: The River Collection* (alternate version) (2015)
-**First Performed:** November 1, 1978 (Princeton, NJ)
-**Last Performed:** June 24, 2023 (Gothenburg, Sweden)
+**Released:** *The River* (1980), *The Ties That Bind: The River Collection* (alternate version) (2015)<br>
+**First Performed:** November 1, 1978 (Princeton, NJ)<br>
+**Last Performed:** June 24, 2023 (Gothenburg, Sweden)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

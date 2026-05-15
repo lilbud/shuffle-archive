@@ -30,8 +30,8 @@ The track received one more release in 2008, when it appeared in the soundtrack 
 
 **Viva Las** **Vegas**<br>
 **Recorded:** September 13-14, 1989  
-**Released:** *The Last Temptation of Elvis* (1990), *The Essential Bruce Springsteen* (2003)
-**First performed:** August 13, 1992 (Worcester, MA)
-**Last performed:** August 18, 2002 (Las Vegas, NV)
+**Released:** *The Last Temptation of Elvis* (1990), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** August 13, 1992 (Worcester, MA)<br>
+**Last performed:** August 18, 2002 (Las Vegas, NV)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

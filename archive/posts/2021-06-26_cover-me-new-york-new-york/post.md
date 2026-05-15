@@ -40,6 +40,6 @@ I think.
 
 **New York, New York  
 First performed:** May 16, 1988 (New York City, NY)
-**Last performed:** November 19, 1995 (Los Angeles, CA)
+**Last performed:** November 19, 1995 (Los Angeles, CA)<br>
 
  

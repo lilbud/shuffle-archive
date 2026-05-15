@@ -22,12 +22,12 @@ His professed devotion "until they rip out my heart" is imagery violent enough t
 
 In 1979, during the recording sessions for what would become *The River*, Bruce pulled "I Wanna Be With You" out of the vault temporarily, rewriting the last verse slightly but reworking the arrangement mightily. This time, the band sounds just as desperate Bruce's vocals, and by the time they reach the bridge, Bruce's character is so discombobulated that he trips over his own words, tumbling and catapulting into the brilliant final verse where the our lovesick loser realizes just how far gone he is:
 
-**No, I don't know, I don't know, I don't I just can't understand it**<br>
-You're not pretty at all
-But I come when you whisper
-I run when you call
-When I see you on the street, I fall on my face
-I drop to my knees, I plead my case.*
+> *No, I don't know, I don't know, I don't I just can't understand it*<br>
+> *You're not pretty at all*<br>
+> *But I come when you whisper*<br>
+> *I run when you call*<br>
+> *When I see you on the street, I fall on my face*<br>
+> *I drop to my knees, I plead my case.*<br>
 
 One more chorus follows, and rather than a fadeout, the song ends with a triumphant, declarative, "I wanna be with you, because I love you so!" and a final Mighty Max-accompanied "huh!" A mic drop before there were mic drops.
 
@@ -45,8 +45,8 @@ After the Reunion tour, the song pretty much disappeared, appearing only 5 times
 
 **I Wanna Be With You**<br>
 **Recorded:** May 31, 1979<br>
-**Released:** *Tracks* (1998); *18 Tracks* (1999)
-**First Performed:** April 20, 1999 (Milan)
-**Last Performed:** May 14, 2016 (Barcelona)
+**Released:** *Tracks* (1998); *18 Tracks* (1999)<br>
+**First Performed:** April 20, 1999 (Milan)<br>
+**Last Performed:** May 14, 2016 (Barcelona)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

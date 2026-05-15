@@ -12,40 +12,40 @@ Well, she's sure a handful, isn't she?
 
 Although it's hard to feel sorry for her boyfriend Bobby (odd coincidence, that)–he's a bit of a hell-raiser himself. But Betty sure seems to stoke his fire. When we first meet the pair, Bobby's about to drag race, and Betty is officiating:
 
-> *Black Mellon Road on a dark mellow night*
-> *Two cars pulling up ahead on my right*
-> *Going up the highway, gonna see my Betty Jean*
-> *She got eyes like a jack rabbit, staring dead at my beams*
+> *Black Mellon Road on a dark mellow night*<br>
+> *Two cars pulling up ahead on my right*<br>
+> *Going up the highway, gonna see my Betty Jean*<br>
+> *She got eyes like a jack rabbit, staring dead at my beams*<br>
 
 Who won the race? Who knows. Doesn't matter anyway, that's not the point. We're on to their next adventure out in the woods where Betty distractedly cheers Bobby on in a fistfight:
 
-> *Well over in the woods in a hail door light*
-> *Two Red Hills boys in a bare-knuckle fight*
-> *Stretched out on the hood of my GTO*
-> *She's filing her nails, shouting, "Go Bobby, go!"*
+> *Well over in the woods in a hail door light*<br>
+> *Two Red Hills boys in a bare-knuckle fight*<br>
+> *Stretched out on the hood of my GTO*<br>
+> *She's filing her nails, shouting, "Go Bobby, go!"*<br>
 
 Bobby sums Betty up pretty well:
 
-> *Betty Jean, Betty Jean, Betty Jean*
-> *Betty Jean, Betty Jean, Betty Jean*
-> *Honey you're cute, but you sure are mean*
-> *Oh Betty Jean*
+> *Betty Jean, Betty Jean, Betty Jean*<br>
+> *Betty Jean, Betty Jean, Betty Jean*<br>
+> *Honey you're cute, but you sure are mean*<br>
+> *Oh Betty Jean*<br>
 
 Bobby and Betty don't slow down one bit. Bobby races up the highway while Betty gives him… well, use your imagination (there's not a lot required):
 
-> *Well she jumped in my car, we started driving around*
-> *She turned that radio dial, threw her head back and sound*
-> *Going up the highway, she was giving me it*
-> *She put her hand on my leg, I drove us in a drainage ditch*
+> *Well she jumped in my car, we started driving around*<br>
+> *She turned that radio dial, threw her head back and sound*<br>
+> *Going up the highway, she was giving me it*<br>
+> *She put her hand on my leg, I drove us in a drainage ditch*<br>
 
 You can't run forever, though. Sooner or later, life catches up and reality sinks its talons into you. And Bobby learns the lesson of "The River," although it's not clear they ever had the forethought to dream in the first place.
 
 Bruce gives the last verse of "Betty Jean" a final line just as memorable as the one in "The River," but a lot less poetic:
 
-> *Next thing I knew, I was running through the crowd*
-> *I swore her my love forever, she was laughing out loud*
-> *We were married in the spring out on 531*
-> *Had fifteen kids and I hate every single one*
+> *Next thing I knew, I was running through the crowd*<br>
+> *I swore her my love forever, she was laughing out loud*<br>
+> *We were married in the spring out on 531*<br>
+> *Had fifteen kids and I hate every single one*<br>
 
 And there we have it: the tale of Betty Jean, who peaked early while her sibling Bobby Jean escaped with the wind at his back.
 

@@ -95,9 +95,9 @@ It's been a few years now since we've heard Bruce perform "Jack of All Trades," 
 After all: It's all happened before. It'll happen again.
 
 **Jack of All Trades**<br>
-**Recorded** 2011  
-**Released:** *Wrecking Ball* (2012)
-**First performed:** March 2, 2012 (New York City, NY)
-**Last performed:** September 7, 2016 (Philadelphia, PA)
+**Recorded** 2011<br>
+**Released:** *Wrecking Ball* (2012)<br>
+**First performed:** March 2, 2012 (New York City, NY)<br>
+**Last performed:** September 7, 2016 (Philadelphia, PA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

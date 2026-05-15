@@ -10,26 +10,26 @@ The first time he performed it (opening night in Albany), the song's title didn'
 
 And despite benefiting from two stellar soundboard archive releases, it still sounds like Bruce was either partially bluffing the lyrics each night or else realized that for a song like "Action in the Streets," diction didn't really matter. Certainly, the lyrics don't. "Action in the Streets" is basically a song-length "everybody dance!"
 
-> *Don't move, I want you to listen now to what I'm saying*
-> *Hey you, you better get up if you plan to be staying*
-> *Get loose, come on and live for what the band is playing*
-> *And it's whoa tonight, we're rocking on the street*
-> *All night we're thinking about the street*
-> *And driving, driving in the heat, and let's go*
+> *Don't move, I want you to listen now to what I'm saying*<br>
+> *Hey you, you better get up if you plan to be staying*<br>
+> *Get loose, come on and live for what the band is playing*<br>
+> *And it's whoa tonight, we're rocking on the street*<br>
+> *All night we're thinking about the street*<br>
+> *And driving, driving in the heat, and let's go*<br>
 
-> *At school, everybody you better take heed*
-> *Hey you, in this action that you need*
-> *That's cool, it's satisfaction guaranteed*
-> *Whoa tonight, we're rocking on the rhythm all night*
-> *Won't you ???, let's roll*
-> *???, let's go*
+> *At school, everybody you better take heed*<br>
+> *Hey you, in this action that you need*<br>
+> *That's cool, it's satisfaction guaranteed*<br>
+> *Whoa tonight, we're rocking on the rhythm all night*<br>
+> *Won't you ???, let's roll*<br>
+> *???, let's go*<br>
 
-> *Hey man, now don't let the little girls slide*
-> *Understand, move your body from side to side*
-> *Raise your hand, and shout until you're satisfied*
-> *Whoa tonight, we're rocking to the rhythm all night*
-> *Until you get the feeling don't go*
-> *Racing in the street, don't care*
+> *Hey man, now don't let the little girls slide*<br>
+> *Understand, move your body from side to side*<br>
+> *Raise your hand, and shout until you're satisfied*<br>
+> *Whoa tonight, we're rocking to the rhythm all night*<br>
+> *Until you get the feeling don't go*<br>
+> *Racing in the street, don't care*<br>
 
 No, "Action in the Streets" was all about the music. Bruce loved its brassy, Miami Horns-powered instrumental underpinning.
 
@@ -50,7 +50,7 @@ For the few in attendance, it was a magical throwback to a simpler time–one no
 **Action in the Streets**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** February 7, 1977 (Albany, NY)
-**Last performed:** July 17, 2011 (Asbury Park, NJ)
+**First performed:** February 7, 1977 (Albany, NY)<br>
+**Last performed:** July 17, 2011 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,4 +1,4 @@
-> With his new single, "We Take Care of Our Own," Springsteen seems to be throwing up a gauntlet: Misunderstand me. Go on, I dare you." *— Chris Willman, Reuters, January 19, 2012*
+> With his new single, "We Take Care of Our Own," Springsteen seems to be throwing up a gauntlet: Misunderstand me. Go on, I dare you." *— Chris Willman, Reuters, January 19, 2012*<br>
 
 The *New York Times* took that dare, and they weren't the only ones.
 
@@ -40,14 +40,14 @@ Lyric videos had come into fashion in the years between *Working on a Dream* and
 
 With his lyrics now visually front and center for the first time, Bruce compelled his audience to reckon with his message while they rocked to his music.
 
-> *I been knocking on the door that holds the throne*
-> *I been looking for the map that leads me home*
-> *I been stumbling on good hearts turned to stone*
-> *The road of good intentions has gone dry as a bone*
-> *We take care of our own*
-> *We take care of our own*
-> *Wherever this flag's flown*
-> *We take care of our own*
+> *I been knocking on the door that holds the throne*<br>
+> *I been looking for the map that leads me home*<br>
+> *I been stumbling on good hearts turned to stone*<br>
+> *The road of good intentions has gone dry as a bone*<br>
+> *We take care of our own*<br>
+> *We take care of our own*<br>
+> *Wherever this flag's flown*<br>
+> *We take care of our own*<br>
 
 There's nuance in that first verse that might be masked in a first listen: Bruce isn't condemning his countrymen–he acknowledges that Americans have good hearts and good intentions. *Why aren't we living up to our ideals*, he asks.
 
@@ -55,14 +55,14 @@ He speaks truth to power, but power won't answer the door. In a callback to "[Lo
 
 More than anything else, "We Take Care of Our Own" is a song of bewildered frustration: why are our values so disconnected from our actions? The chorus isn't a statement of who we are but rather an incessant reminder of who we're supposed to be.
 
-> *From Chicago to New Orleans, from the muscle to the bone*
-> *From the shotgun shack to the Superdome*
-> *There ain't no help, the cavalry stayed home*
-> *There ain't no one hearing the bugle blowin'*
-> *We take care of our own*
-> *We take care of our own*
-> *Wherever this flag's flown*
-> *We take care of our own*
+> *From Chicago to New Orleans, from the muscle to the bone*<br>
+> *From the shotgun shack to the Superdome*<br>
+> *There ain't no help, the cavalry stayed home*<br>
+> *There ain't no one hearing the bugle blowin'*<br>
+> *We take care of our own*<br>
+> *We take care of our own*<br>
+> *Wherever this flag's flown*<br>
+> *We take care of our own*<br>
 
 The second verse is the only part of the song that sounds dated. "We Take Care of Our Own" is the oldest song on the album, written circa 2009, only four years after Hurricane Katrina and three years after Bruce emotionally bonded with the city of New Orleans during his memorable Jazz Fest appearance.
 
@@ -70,15 +70,15 @@ The failure of the United States government to respond to its citizens in their 
 
 But it's the pleading bridge and final chorus that contain the beating heart of "We Take Care of Our Own."
 
-> *Where're the eyes, the eyes with the will to see*
-> *Where're the hearts that run over with mercy*
-> *Where's the love that has not forsaken me*
-> *Where's the work that set my hands, my soul free*
-> *Where's the spirit that'll reign over me*
-> *Where's the promise from sea to the shining sea:*
+> *Where're the eyes, the eyes with the will to see*<br>
+> *Where're the hearts that run over with mercy*<br>
+> *Where's the love that has not forsaken me*<br>
+> *Where's the work that set my hands, my soul free*<br>
+> *Where's the spirit that'll reign over me*<br>
+> *Where's the promise from sea to the shining sea:*<br>
 
-> *Wherever this flag is flown*
-> *We take care of our own*
+> *Wherever this flag is flown*<br>
+> *We take care of our own*<br>
 
 Bruce asks: who among us is willing to acknowledge our societal inequality? Who among us will do something about it?
 
@@ -108,9 +108,9 @@ In a stripped-down arrangement with warm vocals, the full plaintive power of the
 [Watch on Youtube: We Take Care of Our Own - Bruce Springsteen (live at Beacon Theatre, New York City 2012)](https://www.youtube.com/watch?v=NDNZ2Unv4Mg)
 
 **We Take Care of Our Own**<br>
-**Recorded** 2011  
-**Released:** *Wrecking Ball* (2012)
-**First performed:** February 10, 2012 (Los Angeles, CA)
-**Last performed:** June 22, 2016 (Copenhagen, Denmark)
+**Recorded** 2011<br>
+**Released:** *Wrecking Ball* (2012)<br>
+**First performed:** February 10, 2012 (Los Angeles, CA)<br>
+**Last performed:** June 22, 2016 (Copenhagen, Denmark)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -61,7 +61,7 @@ Despite its frequent inclusion and rare tour absences, Bruce has never altered t
 **Trapped**<br>
 Never recorded in-studio  
 Released (live):** *We Are the World* (1985), *The Essential Bruce Springsteen* (2003)
-**First performed:** [May 29](https://estreetshuffle.com/index.php/2018/05/29/kingdom-of-days-may-29/), 1981 (London, England)
-**Last performed:** August 24, 2023 (Foxborough, MA)
+**First performed:** [May 29](https://estreetshuffle.com/index.php/2018/05/29/kingdom-of-days-may-29/), 1981 (London, England)<br>
+**Last performed:** August 24, 2023 (Foxborough, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

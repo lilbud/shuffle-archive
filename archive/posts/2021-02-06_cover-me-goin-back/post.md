@@ -39,7 +39,7 @@ Enjoy this rare footage of a very young Nils Lofgren performing Carole King's "G
 [Watch on Youtube: Nils Lofgren - Goin' Back - The Old Grey Whistle Test](https://www.youtube.com/watch?v=rSBeEHUAfok)
 
 **Goin' Back**<br>
-**First performed:** October 16, 1975 (West Hollywood, CA)
-**Last performed:** October 19, 1975 (West Hollywood, CA)
+**First performed:** October 16, 1975 (West Hollywood, CA)<br>
+**Last performed:** October 19, 1975 (West Hollywood, CA)<br>
 
 

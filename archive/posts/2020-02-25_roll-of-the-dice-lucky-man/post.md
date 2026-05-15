@@ -84,7 +84,7 @@ Perhaps he'll spend the rest of his life alone, or maybe the one he'd settle dow
 Especially at that moment, Bruce probably very much needed to believe that.
 
 **Lucky Man**<br>
-**Recorded** April 4, 1987  
+**Recorded** April 4, 1987<br>
 **Released:** *Brilliant Disguise* (single B-side, 1987), *Tracks* (1998)
 **Never performed**<br>
 

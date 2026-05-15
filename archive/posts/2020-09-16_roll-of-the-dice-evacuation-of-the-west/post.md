@@ -69,7 +69,7 @@ But I was only disappointed for a moment–because then I realized that as a ful
 Let's hope we see it soon. "Evacuation of the West" is a true early gem of an outtake that deserves a place in Bruce's "official" catalog.
 
 **Evacuation of the West**<br>
-**Recorded** June 22 – July 11, 1973  
+**Recorded** June 22 – July 11, 1973<br>
 **Never released**<br>
 **Never performed**<br>
 

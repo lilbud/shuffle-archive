@@ -91,7 +91,7 @@ This video was too close to capture the fireworks at the end of the song. But I 
 **Jersey Girl**<br>
 **Recorded:** July 9, 1981 (live)
 **Released:** *Live 1975-85* (1986)
-**First performed:** June 22, 1981 (East Orange, NJ)
-**Last performed:** September 15, 2024 (Asbury Park, NJ)
+**First performed:** June 22, 1981 (East Orange, NJ)<br>
+**Last performed:** September 15, 2024 (Asbury Park, NJ)<br>
 
 (c) July 24, 2019

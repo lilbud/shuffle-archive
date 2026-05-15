@@ -1,4 +1,4 @@
-It was the centerpiece of one of the very first concept albums, and it inspired one of Bruce Springsteen's finest ballads.*
+It was the centerpiece of one of the very first concept albums, and it inspired one of Bruce Springsteen's finest ballads.
 
 Woody Guthrie recorded "Tom Joad" in two parts for his 1940 *Dust Bowl Ballads* album, because at almost seven minutes, his retelling of John Steinbeck's *The Grapes of Wrath* was too long to fit on a single side of a 78 rpm record.
 
@@ -33,7 +33,7 @@ On May 13, 2021, Bruce was awarded the annual Woody Guthrie Prize by the Woody G
 **In a way, "Tom Joad" inspired two of Bruce's officially released tracks, because Guthrie set his song to the melody of "John Henry," which Bruce released a version of in 2006.*
 
 **Tom Joad**<br>
-**First performed:** September 25, 1996 (Akron, OH)
-**Last performed:** May 13, 2021 (Colts Neck, NJ)
+**First performed:** September 25, 1996 (Akron, OH)<br>
+**Last performed:** May 13, 2021 (Colts Neck, NJ)<br>
 
 

@@ -1,4 +1,4 @@
-> "I had a song we were gonna do, but in the end we didn't learn it in time. I wanted to do–what's the song from *Blue Hawaii*? It was his theme song, one which everyone relates to his Las Vegas period: ‘I Can't Help Falling in Love With You.' Which I think is a great song, but everyone relates to it as being Las Vegas-y, but I don't think it is. I wanted to do that one, but we just didn't get a chance to run it down before the show. — *Bruce Springsteen to Ed Sciaky, August 19, 1978*
+> "I had a song we were gonna do, but in the end we didn't learn it in time. I wanted to do–what's the song from *Blue Hawaii*? It was his theme song, one which everyone relates to his Las Vegas period: ‘I Can't Help Falling in Love With You.' Which I think is a great song, but everyone relates to it as being Las Vegas-y, but I don't think it is. I wanted to do that one, but we just didn't get a chance to run it down before the show. — *Bruce Springsteen to Ed Sciaky, August 19, 1978*<br>
 
 In the 1961 film *Blue Hawaii*, Elvis presents his girlfriend's grandmother (played by Flora K. Hayes, who actually wasn't an actress but rather a congresswoman (fun fact #1)) with a music box that plays a "European love song."
 
@@ -14,17 +14,17 @@ Well, sort of. The lyrics are kind of a downer, but that music box was playing a
 
 The chorus of "Plaisir d'Amour" translates to…
 
-> *Pleasure of love only lasts a moment*
-> *Heartache lasts a lifetime*
+> *Pleasure of love only lasts a moment*<br>
+> *Heartache lasts a lifetime*<br>
 
 …with verses like:
 
-> *I gave up everything for the ungrateful Sylvia  
-She left me for another lover*
+> *I gave up everything for the ungrateful Sylvia*<br>
+> *She left me for another lover*<br>
 
 So calling it a "European love song" might have been a bit of a stretch.
 
-But there's no doubt about the song that Elvis sang. Written by Hugo Peretti, Luigi Creatore, and George David Weiss, "Can't Help Falling in Love" is as romantic a ballad as they come. (Fun fact #3: it was originally written for a woman to sing, which is why there's that odd non-rhyme ("would it be a sin")–it was meant to rhyme with "I can't help falling in love with *him*."
+But there's no doubt about the song that Elvis sang. Written by Hugo Peretti, Luigi Creatore, and George David Weiss, "Can't Help Falling in Love" is as romantic a ballad as they come. (Fun fact #3: it was originally written for a woman to sing, which is why there's that odd non-rhyme ("would it be a sin")–it was meant to rhyme with "I can't help falling in love with *him*.")
 
 Elvis released the song as a single and it became a smash hit, reaching #2 on the Billboard Hot 100 and inspiring a carafe of covers in across just about every genre, from disco…
 
@@ -67,7 +67,7 @@ But when a fan requested it on the Working on a Dream Tour, Bruce and the band r
 It's been more than a decade since Bruce last played "Can't Help Falling in Love," but a song that's made 65 appearances across five separate tours can never be counted out.
 
 **Can't Help Falling in Love**<br>
-**First performed:** April 18, 1981 (Paris, France)
-**Last performed:** November 10, 2009 (Cleveland, OH)
+**First performed:** April 18, 1981 (Paris, France)<br>
+**Last performed:** November 10, 2009 (Cleveland, OH)<br>
 
 (c) May 6, 2021

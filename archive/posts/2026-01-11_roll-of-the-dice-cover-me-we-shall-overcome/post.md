@@ -1,4 +1,4 @@
-> *It was the most powerful song of the 20th century. It started out in church pews and picket lines, inspired one of the greatest freedom movements in U.S. history, and went on to topple governments and bring about reform all over the world. Word for word, the short, simple lyrics of "We Shall Overcome" might be some of the most influential words in the English language.*
+> *It was the most powerful song of the 20th century. It started out in church pews and picket lines, inspired one of the greatest freedom movements in U.S. history, and went on to topple governments and bring about reform all over the world. Word for word, the short, simple lyrics of "We Shall Overcome" might be some of the most influential words in the English language.*<br>
 
 Those words are from the U.S. Library of Congress, describing the global societal impact of "We Shall Overcome."
 
@@ -54,8 +54,8 @@ The other was remarkable for both the location–Cape Town, South Africa, where 
 
 **We Shall Overcome**<br>
 **Recorded:** November 2, 1997  
-**Released:** *Where Have All the Flowers Gone: The Songs of Pete Seeger* (1998), *We Shall Overcome: The Seeger Sessions* (2006), *We Shall Overcome: The Seeger Sessions – American Land Edition* (2006)
-**First performed:** April 20, 2006 (Asbury Park, NJ)
-**Last performed:** January 28, 2014 (Cape Town, South Africa)
+**Released:** *Where Have All the Flowers Gone: The Songs of Pete Seeger* (1998), *We Shall Overcome: The Seeger Sessions* (2006), *We Shall Overcome: The Seeger Sessions – American Land Edition* (2006)<br>
+**First performed:** April 20, 2006 (Asbury Park, NJ)<br>
+**Last performed:** January 28, 2014 (Cape Town, South Africa)<br>
 
 © August 15, 2018

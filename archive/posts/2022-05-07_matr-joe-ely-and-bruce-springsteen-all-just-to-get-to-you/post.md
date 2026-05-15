@@ -24,6 +24,6 @@ It's been fifteen years since Bruce and Joe last played "All Just to Get to You,
 **Recorded:** April 1995<br>
 **Released:** *Letter to Laredo* (1995)<br>
 **First performed:** September 14, 1995 (West Hollywood, CA)<br>
-**Last performed:** April 14, 2008 (Houston, TX)
+**Last performed:** April 14, 2008 (Houston, TX)<br>
 
 

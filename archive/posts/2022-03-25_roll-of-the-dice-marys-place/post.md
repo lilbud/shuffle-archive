@@ -10,15 +10,15 @@ The titular place exists on two planes at once: in the earthly realm, a local ta
 
 The verses of "Mary's Place" operate on both levels:
 
-> *I got seven pictures of Buddha, the prophet's on my tongue*
-> *Eleven angels of mercy sighing over that black hole in the sun*
-> *My heart's dark but it's rising, I'm pulling all the faith I can see*
-> *From that black hole on the horizon I hear your voice calling me*
+> *I got seven pictures of Buddha, the prophet's on my tongue*<br>
+> *Eleven angels of mercy sighing over that black hole in the sun*<br>
+> *My heart's dark but it's rising, I'm pulling all the faith I can see*<br>
+> *From that black hole on the horizon I hear your voice calling me*<br>
 
-> *Familiar faces around me, laughter fills the air*
-> *Your loving grace surrounds me, everybody's here*
-> *Furniture's out on the front porch, music's up loud*
-> *I dream of you in my arms and I lose myself in the crowd*
+> *Familiar faces around me, laughter fills the air*<br>
+> *Your loving grace surrounds me, everybody's here*<br>
+> *Furniture's out on the front porch, music's up loud*<br>
+> *I dream of you in my arms and I lose myself in the crowd*<br>
 
 On earth, we turn to whatever religion offers us succor to help us rise above our grief and despair, and we turn to our friends and neighbors to remind us of all that is still good and joyful in the world. In heaven, all religions meet and meld and call us home when it's our time. (There's a reason our narrator calls it *Mary's* place.) Our ghosts are there to greet us with the celebration that for now we can only dream about.
 
@@ -26,11 +26,11 @@ Those are the verses. When the chorus kicks in, we realize just how subversive a
 
 In "Mary's Place," Bruce inverts the formula: the verses offer us hope and support and the promise of an eventual reward, but the chorus reminds us of the merciless *now*.
 
-> *Meet me at Mary's place, we're gonna have a party*
-> *Tell me how do we get this thing started*
+> *Meet me at Mary's place, we're gonna have a party*<br>
+> *Tell me how do we get this thing started*<br>
 
-> *Meet me at Mary's place, we're gonna have a party*
-> *Tell me how do you live brokenhearted*
+> *Meet me at Mary's place, we're gonna have a party*<br>
+> *Tell me how do you live brokenhearted*<br>
 
 Our departed loved ones may wait for us at the end of our journey, but we have miles to go before we sleep. How *do* we get started again? How *do* we live brokenhearted?
 
@@ -38,31 +38,31 @@ The choruses of "Mary's Place" remind us that we have a long workday ahead of us
 
 It's in the chorus, too, where Bruce overtly tips his hat to his inspirations. Bruce's lyrics are cloaked in the thinnest of disguises. a pair of Clark Kent glasses on the chorus of Sam Cooke's 1966 track, "Meet Me at Mary's Place."
 
-> *Meet me at Mary's place*
-> *We're gonna have us a ball today*
-> *Why don't you meet me at Mary's place*
+> *Meet me at Mary's place*<br>
+> *We're gonna have us a ball today*<br>
+> *Why don't you meet me at Mary's place*<br>
 
 [Watch on Youtube: Sam Cooke - Meet Me At Mary's Place (Official Lyric Video)](https://www.youtube.com/watch?v=415jQbRu_DE)
 
 Cooke's song isn't the only influence at work in "Mary's Place." Bruce transitions from verse to chorus with a little help from Eric Clapton and his 1972 single "Let It Rain" which has something of its own to say about the power of love to cut through grief.
 
-> *The rain is falling through the mist of sorrow that surrounded me*
-> *The sun could never thaw away the bliss that lays around me*
+> *The rain is falling through the mist of sorrow that surrounded me*<br>
+> *The sun could never thaw away the bliss that lays around me*<br>
 
-> *Let it rain, let it rain*
-> *Let your love rain down on me*
+> *Let it rain, let it rain*<br>
+> *Let your love rain down on me*<br>
 
 [Watch on Youtube: Let It Rain](https://www.youtube.com/watch?v=1VKpMI5Msa4)
 
 All the while, the mighty E Streeters serve as our house party band, playing in traditional fashion and classic sound–the only track on *The Rising* that sounds (intentionally) like 1970s E Street. The songs builds toward its climax, where earthly and ethereal realms merge and it's no longer clear whether today is the day after our loved one's passing or the day after our own.
 
-> *I got a picture of you in my locket, I keep it close to my heart*
-> *It's a light shining in my breast, leading me through the dark*
-> *Seven days, seven candles in my window lighting your way*
-> *Your favorite record's on the turntable, I drop the needle and pray*
-> *Band's counting out midnight, floor's rumbling loud*
-> *Singer's calling up daylight, waiting for that shout from the crowd*
-> *Waiting for that shout from the crowd*
+> *I got a picture of you in my locket, I keep it close to my heart*<br>
+> *It's a light shining in my breast, leading me through the dark*<br>
+> *Seven days, seven candles in my window lighting your way*<br>
+> *Your favorite record's on the turntable, I drop the needle and pray*<br>
+> *Band's counting out midnight, floor's rumbling loud*<br>
+> *Singer's calling up daylight, waiting for that shout from the crowd*<br>
+> *Waiting for that shout from the crowd*<br>
 
 Either way, we're at Mary's place, and when we're at Mary's place we're surrounded by love and filled with hope. And any second now, we'll see them again.
 
@@ -92,9 +92,9 @@ On one occasion, Bruce even attempted it acoustically on the piano, with uneven 
 Still, in the right setting, at the right moment, and with the right feeling, "Mary's Place" can be the adrenaline shot that lifts an already stellar show into the stratosphere. While never commonplace in the years since 2004, "Mary's Place" makes return appearances from time to time and will likely continue to do so for as long as fans continue to meet there… and turn it up.
 
 **Mary's Place**<br>
-**Recorded** February-March 2002  
-**Released:** *The Rising* (2002)
-**First performed:** July 25, 2002 (Asbury Park, NJ)
-**Last performed:** September 3, 2023 (East Rutherford, NJ)
+**Recorded** February-March 2002<br>
+**Released:** *The Rising* (2002)<br>
+**First performed:** July 25, 2002 (Asbury Park, NJ)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

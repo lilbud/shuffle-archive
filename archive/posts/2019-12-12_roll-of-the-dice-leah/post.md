@@ -8,13 +8,13 @@ And more often that not, we can see it playing out in his hands.
 
 We can see it in "[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)" —
 
-> *On his right hand Billy tattooed the word love and on his left hand was the word fear*
-> *And in which hand he held his fate was never clear*
+> *On his right hand Billy tattooed the word love and on his left hand was the word fear*<br>
+> *And in which hand he held his fate was never clear*<br>
 
 We see it in "[Valentine's Day](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)" —
 
-> *I'm driving a big lazy car rushin' up the highway in the dark*
-> *I got one hand steady on the wheel and one hand's tremblin' over my heart*
+> *I'm driving a big lazy car rushin' up the highway in the dark*<br>
+> *I got one hand steady on the wheel and one hand's tremblin' over my heart*<br>
 
 And we see it in "Leah."
 
@@ -24,28 +24,28 @@ But among all of the songs in which Bruce wages his emotional war, "Leah" stands
 
 Our point-of-view character knows what he wants and who he wants, and the song bounces along like the spring of the narrator's step. To Bruce's fans, such single-minded resolution in a Springsteen character is a novelty, and Bruce knows it: he relies on our expectations and fakes us out with a first verse that sounds like it's sung by a typical Springsteen loner… until its final two words:
 
-> *I wanna build me a house on higher ground*
-> *I wanna find me a world where love's the only sound*
-> *High above this road filled with shadow and doubt*
-> *I want to shoulder my load and figure it all out*
-> *With Leah*
+> *I wanna build me a house on higher ground*<br>
+> *I wanna find me a world where love's the only sound*<br>
+> *High above this road filled with shadow and doubt*<br>
+> *I want to shoulder my load and figure it all out*<br>
+> *With Leah*<br>
 
 That's a neat trick, and it only works as well as it does because Bruce has conditioned us so well. Those two words–"with Leah"–almost sound like an afterthought, but they land like a cannonball. We don't have to listen any further to understand the significance of such conviction about a connection.
 
 In Verse Two, Bruce lays out his duality/hands metaphor, but he abandons it as soon as he establishes it. It's not relevant anymore–it's a trademark of the character's past, but there's no hint of doubt in his present.
 
-> *I walk this road with a hammer and a fiery lantern*
-> *With this hand I've built and with this I've burned*
-> *I wanna live in the same house beneath the same roof*
-> *Sleep in the same bed, search for the same proof*
-> *As Leah*
+> *I walk this road with a hammer and a fiery lantern*<br>
+> *With this hand I've built and with this I've burned*<br>
+> *I wanna live in the same house beneath the same roof*<br>
+> *Sleep in the same bed, search for the same proof*<br>
+> *As Leah*<br>
 
 But it's the final verse that deliver's the song's biggest emotional wallop:
 
-> *I got something in my heart I been waiting to give*
-> *I got a life I wanna start, yeah one I been waiting to live*
-> *No more waiting, tonight I feel the light I say the prayer*
-> *I open the door and I climb the stairs*
+> *I got something in my heart I been waiting to give*<br>
+> *I got a life I wanna start, yeah one I been waiting to live*<br>
+> *No more waiting, tonight I feel the light I say the prayer*<br>
+> *I open the door and I climb the stairs*<br>
 
 As sure as art imitates life and life imitates art, we know–without Bruce spelling it out–just how long and how much it took for our narrator to reach this point, a place where he can open his heart, give and receive love, and share a life.
 
@@ -67,8 +67,8 @@ It's too gentle a song to translate well to a full band, but I hold out hope for
 
 **Leah**<br>
 **Recorded:** Mid-2004  
-**Released:** *Devils & Dust* (2005)
-**First performed:** April 21. 2005 (Asbury Park, NJ)
-**Last performed:** November 22, 2005 (Trenton, NJ)
+**Released:** *Devils & Dust* (2005)<br>
+**First performed:** April 21. 2005 (Asbury Park, NJ)<br>
+**Last performed:** November 22, 2005 (Trenton, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

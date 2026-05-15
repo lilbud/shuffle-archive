@@ -17,5 +17,5 @@ That may explain why in between "[Paradise by the ‘C'](https://estreetshuffle.
 That rehearsal performance remains the only time Bruce is known to have covered "King Tut" — somehow, it never made it to the Darkness Tour setlist. Go figure.
 
 **King Tut**<br>
-**First performed:** May 19, 1978 (Asbury Park, NJ)
-**Last performed:** May 19, 1978 (Asbury Park, NJ)
+**First performed:** May 19, 1978 (Asbury Park, NJ)<br>
+**Last performed:** May 19, 1978 (Asbury Park, NJ)<br>

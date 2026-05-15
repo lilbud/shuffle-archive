@@ -17,6 +17,6 @@ Take a listen below to the only known recording of Bruce performing this blues c
 February 4, 1972 (Richmond, VA)
 February 4, 1972 (Richmond, VA)
 
-**Sitting on Top of the World** **First performed:** <br>
+**Sitting on Top of the World** **First performed:**<br>
 
 **Last performed:**<br>

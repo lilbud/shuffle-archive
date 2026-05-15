@@ -15,5 +15,5 @@ Although "Eye Catcher" is a studio track, Bruce's contribution was captured live
 **Up to You**<br>
 **Recorded** Unknown (live excerpt from 9/30/88)
 **Released:** *Eye Catcher* (1989)
-**First performed:** September 30, 1988 (New Delhi, India)
-**Last performed:** September 30, 1988 (New Delhi, India)
+**First performed:** September 30, 1988 (New Delhi, India)<br>
+**Last performed:** September 30, 1988 (New Delhi, India)<br>

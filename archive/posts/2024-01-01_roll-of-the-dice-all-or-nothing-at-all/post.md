@@ -8,8 +8,8 @@ Let's compare. Here's the original–
 
 Ouch, those lyrics. It's like he isn't even trying. When the cleverest lyric of a song is:
 
-> *Shout out what you're thinking of*
-> *If what you're thinkin' of is love*
+> *Shout out what you're thinking of*<br>
+> *If what you're thinkin' of is love*<br>
 
 …you know this isn't a great candidate for scholarly analysis.
 
@@ -32,8 +32,8 @@ Even Bruce knew this was a clunker–watch how sheepish he is about playing this
 So yeah, I still hate the song on the album. But I'll sneak a listen from time to time on the bootleg.
 
 **All or Nothin' at All**<br>
-**Recorded** 1990-1991  
-**Released:** *Human Touch* (1992)**First performed:** June 17, 1992 (Stockholm, Sweden)
-**Last performed:** May 6, 2014 (Woodlands, TX)
+**Recorded** 1990-1991<br>
+**Released:** *Human Touch* (1992)**First performed:** June 17, 1992 (Stockholm, Sweden)<br>
+**Last performed:** May 6, 2014 (Woodlands, TX)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -48,17 +48,17 @@ Bruce latched on to Tom Hanks' character in the movie and crafted a deeply, hear
 
 The beauty of Bruce's lyrics lies in the way he simultaneously describes both the biological and emotional toll of the disease, and the separation it creates in this life before death makes it permanent.
 
-> *I was bruised and battered, I couldn't tell what I felt*
-> *I was unrecognizable to myself*
-> *Saw my reflection in a window and didn't know my own face*
-> *So brother are you gonna leave me wasting away*
-> *On the streets of Philadelphia*
+> *I was bruised and battered, I couldn't tell what I felt*<br>
+> *I was unrecognizable to myself*<br>
+> *Saw my reflection in a window and didn't know my own face*<br>
+> *So brother are you gonna leave me wasting away*<br>
+> *On the streets of Philadelphia*<br>
 
-> *I walked the avenue 'til my legs felt like stone*
-> *I heard the voices of friends vanished and gone*
-> *At night I could hear the blood in my veins*
-> *Just as black and whispering as the rain*
-> *On the streets of Philadelphia*
+> *I walked the avenue 'til my legs felt like stone*<br>
+> *I heard the voices of friends vanished and gone*<br>
+> *At night I could hear the blood in my veins*<br>
+> *Just as black and whispering as the rain*<br>
+> *On the streets of Philadelphia*<br>
 
 These verses are among Bruce's finest. What must it feel like to not recognize your own reflection anymore? Bruce's narrator feels a sense of detachment from himself but craves connection with his… brother? Lover? Friend? Bruce deliberately leaves the identity a mystery so that the song relates universally.
 
@@ -66,20 +66,20 @@ But especially at the time the song was written, AIDS drove a wedge of fear that
 
 The streets of Philadelphia represent the purgatory our narrator finds himself in–shunned by but not yet ready to leave this world. As the second verse transitions to the bridge, our narrator's detachment gives way to anguish.
 
-> *Ain't no angel gonna greet me*
-> *It's just you and I my friend*
-> *And my clothes don't fit me no more*
-> *I walked a thousand miles just to slip this skin*
+> *Ain't no angel gonna greet me*<br>
+> *It's just you and I my friend*<br>
+> *And my clothes don't fit me no more*<br>
+> *I walked a thousand miles just to slip this skin*<br>
 
 Bruce conveys so much with these four lines, especially the first: he uses the angel to convey both societal ostracism and self-loathing with a single religious symbol. Our narrator is alone, unloved even by himself.
 
 And here we have what is perhaps the song's greatest heartbreak: even the narrator's lover has abandoned him, or at least distanced himself. In the song's final verse, our narrator pleads with him for a simple kiss so that he knows he's not alone, that he's still here in this world.
 
-> *The night has fallen, I'm lying awake*
-> *I can feel myself fading away*
-> *So receive me brother with your faithless kiss*
-> *Or will we leave each other alone like this*
-> *On the streets of Philadelphia*
+> *The night has fallen, I'm lying awake*<br>
+> *I can feel myself fading away*<br>
+> *So receive me brother with your faithless kiss*<br>
+> *Or will we leave each other alone like this*<br>
+> *On the streets of Philadelphia*<br>
 
 We never find out whether the narrator's brother answers his plea, or even whether he hears it. The song leaves us in the narrator's purgatory, where we serve as his only company.
 
@@ -130,10 +130,10 @@ Still, "Streets of Philadelphia" is a pretty sure bet when Bruce brings the band
 So if "Streets of Philadelphia" is on your chase list, you've still got a pretty good chance of catching it live… as long as you make the trip to the City of Brotherly Love.
 
 **Streets of Philadelphia**<br>
-**Recorded** August 1993  
-**Released:** *Philadelphia* (1994), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
-**First performed:** January 27, 1994 (Los Angeles, CA)
-**Last performed:** September 9, 2016 (Philadelphia, PA)
+**Recorded** August 1993<br>
+**Released:** *Philadelphia* (1994), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** January 27, 1994 (Los Angeles, CA)<br>
+**Last performed:** September 9, 2016 (Philadelphia, PA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries return in August!
 

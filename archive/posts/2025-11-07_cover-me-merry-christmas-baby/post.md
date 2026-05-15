@@ -44,7 +44,7 @@ Bruce gave it one last airing (to date) seven years later at Carnegie Hall, but 
 
 **Merry Christmas Baby**<br>
 **Released:** *A Very Special Christmas* (1987)
-**First performed:** December 28, 1980 (Uniondale, NY)
-**Last performed:** December 14, 2016 (New York City, NY)
+**First performed:** December 28, 1980 (Uniondale, NY)<br>
+**Last performed:** December 14, 2016 (New York City, NY)<br>
 
 (c) December 24, 2018 by Ken Rosen

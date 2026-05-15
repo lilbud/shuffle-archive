@@ -18,4 +18,4 @@ Bruce has performed "You Can't Sit Down" so many times in concert that it's diff
 
 **You Can't Sit Down  
 First performed:** August 1, 1976 (Red Bank, NJ)
-**Last performed:** September 2, 2012 (Philadelphia, PA)
+**Last performed:** September 2, 2012 (Philadelphia, PA)<br>

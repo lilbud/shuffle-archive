@@ -32,6 +32,6 @@ Sadly, the song has been relevant since Bruce first recorded it, and it doesn't 
 **Recorded:** 1987-1988<br>
 **Released:** *Folkways: A Vision Shared* (1988)<br>
 **First performed:** September 23, 1988 (Oakland, CA)<br>
-**Last performed:** March 15, 2012 (Austin, TX)
+**Last performed:** March 15, 2012 (Austin, TX)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -41,7 +41,7 @@ Yeah, maybe this one is better kept to vinyl. But if the E Street Band ever play
 
 **Let's Be Friends (Skin to Skin)**<br>
 **Recorded** 1999-2002**Released:** *The Rising* (2002)
-**First performed:** September 16, 2003 (Hartford, CT)
-**Last performed:** September 16, 2003 (Hartford, CT)
+**First performed:** September 16, 2003 (Hartford, CT)<br>
+**Last performed:** September 16, 2003 (Hartford, CT)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

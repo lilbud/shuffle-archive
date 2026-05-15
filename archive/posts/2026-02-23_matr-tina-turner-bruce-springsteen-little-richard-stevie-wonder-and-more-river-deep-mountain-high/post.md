@@ -1,4 +1,4 @@
-> "‘River Deep — Mountain High' is one of the greatest rock records probably ever made. And [Tina Turner] is simply one of the greatest rock singers, you know." – *Bruce Springsteen, From My Home to Yours Volume 9*
+> "‘River Deep — Mountain High' is one of the greatest rock records probably ever made. And [Tina Turner] is simply one of the greatest rock singers, you know." – *Bruce Springsteen, From My Home to Yours Volume 9*<br>
 
 It sure is, and she sure as *heck* is.
 

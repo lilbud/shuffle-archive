@@ -123,7 +123,7 @@ In 2008 (and again for an encore a year and a half later), Richard Davis reprise
 **Meeting Across the River**<br>
 **Recorded:** May 28, 1975  
 **Released:** *Born to Run* (1975)
-**First performed:** September 26, 1975 (Iowa City, IA)
-**Last performed:** March 28, 2016 (New York City, NY)
+**First performed:** September 26, 1975 (Iowa City, IA)<br>
+**Last performed:** March 28, 2016 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

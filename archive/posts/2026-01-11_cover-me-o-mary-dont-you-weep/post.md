@@ -80,6 +80,6 @@ Bruce even performed it at a mini-reunion of the Sessions Band in 2015. (In actu
 **Recorded:** March 19, 2005<br>
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
-**Last performed:** May 16, 2015 (New York City, NY)
+**Last performed:** May 16, 2015 (New York City, NY)<br>
 
 © July 15, 2022

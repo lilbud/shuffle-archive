@@ -20,54 +20,54 @@ There's another set of early lyrics in existence for "The Wind and The Rain," to
 
 A careful read of either version will reveal lyrics that never made it to the stage:
 
-> *Clouded sky it's been that way since you've been gone*
-> *I've served my punishment for doing you wrong*
-> *So why does the feeling keep hanging on*
-> *The wind + rain is my only song*
+> *Clouded sky it's been that way since you've been gone*<br>
+> *I've served my punishment for doing you wrong*<br>
+> *So why does the feeling keep hanging on*<br>
+> *The wind + rain is my only song*<br>
 
-> *Countless days now my skin has wrinkled up*
-> *Yet I haven't had enough*
-> *The years have made me far too tough*
-> *For the wind + rain is all I love*
+> *Countless days now my skin has wrinkled up*<br>
+> *Yet I haven't had enough*<br>
+> *The years have made me far too tough*<br>
+> *For the wind + rain is all I love*<br>
 
 But honestly, for all that workshopping, the final verses aren't much to write home about either. "The Wind and The Rain" is an intensely bitter post-breakup song with a central storm metaphor that didn't really require a lot of imagination to craft a song around. (Lifting the song title from Shakespeare, however, required a little bit of chutzpah.)
 
-> *The wind and rain slashing at my window pane*
-> *Lightning's flashing, looks like the sky's gone insane*
-> *And it seems like you have lied again*
-> *And now I'm left with the wind and rain*
+> *The wind and rain slashing at my window pane*<br>
+> *Lightning's flashing, looks like the sky's gone insane*<br>
+> *And it seems like you have lied again*<br>
+> *And now I'm left with the wind and rain*<br>
 
-> *Oh shattered truth, jagged memories of you*
-> *You know it's hard, them dreams that just can't come true*
-> *How long has it been since I've known you*
-> *Now the wind and the rain is my only truth*
+> *Oh shattered truth, jagged memories of you*<br>
+> *You know it's hard, them dreams that just can't come true*<br>
+> *How long has it been since I've known you*<br>
+> *Now the wind and the rain is my only truth*<br>
 
-> *Summertime, summertime, that was when you were mine*
-> *And now that's left so far behind*
-> *Can't you see what you've done to my mind*
-> *Now the wind and the rain's forever mine*
+> *Summertime, summertime, that was when you were mine*<br>
+> *And now that's left so far behind*<br>
+> *Can't you see what you've done to my mind*<br>
+> *Now the wind and the rain's forever mine*<br>
 
-> *Then time shorn it up*
-> *The years have made me far too tough*
-> *You know where I start and I go, I got drowned*
-> *Now the wind and the rain is my only love*
+> *Then time shorn it up*<br>
+> *The years have made me far too tough*<br>
+> *You know where I start and I go, I got drowned*<br>
+> *Now the wind and the rain is my only love*<br>
 
-> *Wintertime*
-> *Memories of when you were mine*
-> *Let 'em shine*
-> *Golden moments lost in time*
-> *Now I hear the grandfather chime*
-> *Wind and rain's forever mine*
+> *Wintertime*<br>
+> *Memories of when you were mine*<br>
+> *Let 'em shine*<br>
+> *Golden moments lost in time*<br>
+> *Now I hear the grandfather chime*<br>
+> *Wind and rain's forever mine*<br>
 
-> *Now the wind and the rain slashing at my window pane*
-> *Seems like you have lied again*
-> *By now I guess that it's just the same*
-> *And I am left with the wind and the rain*
+> *Now the wind and the rain slashing at my window pane*<br>
+> *Seems like you have lied again*<br>
+> *By now I guess that it's just the same*<br>
+> *And I am left with the wind and the rain*<br>
 
-> *Hasn't time shown you enough*
-> *The years have made me far too tough*
-> *But you know where I stood when the going got rough*
-> *The wind and rain is my only love*
+> *Hasn't time shown you enough*<br>
+> *The years have made me far too tough*<br>
+> *But you know where I stood when the going got rough*<br>
+> *The wind and rain is my only love*<br>
 
 As is often the case with Bruce's Steel Mill material, the lyrics are just a coatrack on which to hang an epic instrumental jam or three. And my oh my, these are epic jams.
 
@@ -84,7 +84,7 @@ Imagine if Bruce had dedicated himself to the guitar with the same single-minded
 **The Wind and The Rain**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** April 24, 1970 (West Long Branch, NJ)
-**Last performed:** August 14, 1970 (Richmond, VA)
+**First performed:** April 24, 1970 (West Long Branch, NJ)<br>
+**Last performed:** August 14, 1970 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

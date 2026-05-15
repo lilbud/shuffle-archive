@@ -12,86 +12,86 @@ Let's take a listen to the last recording first. Captured by Tinker West at a Br
 
 Although the song runs a full ten minutes, there's not a change-up to be found. Bruce isn't showing off here; instead, he's expressing the dream of a protagonist who fancies himself an explorer, and adventurer, a gypsy (in other words, a musician)–but one who's torn between his compass and his anchor. The anchor, of course, is a woman–one he yearns for as a travel companion, although the lack of detail about her implies that he misses the concept of her more than the fact of her.
 
-> *Well I dreamed I was a gypsy riding the land*
-> *With a tambourine and a gypsy queen and a rainbow caravan*
-> *Happy old land sailor, that's what I wanna be*
-> *Stealing diamonds from the rich men to throw in the sea*
+> *Well I dreamed I was a gypsy riding the land*<br>
+> *With a tambourine and a gypsy queen and a rainbow caravan*<br>
+> *Happy old land sailor, that's what I wanna be*<br>
+> *Stealing diamonds from the rich men to throw in the sea*<br>
 
-> *Singing look toward the land*
-> *‘Cause the land holds the key*
-> *Keep an eye on the land*
-> *And an eye on the sea*
+> *Singing look toward the land*<br>
+> *‘Cause the land holds the key*<br>
+> *Keep an eye on the land*<br>
+> *And an eye on the sea*<br>
 
 Those last two lines establish the conceit of the song–the lure of the open road, the pull of home and loved ones.
 
 But in the two other recorded performances of this song (from the previous year), Bruce exhorts us in the final line of the chorus to keep an eye on "man" (which, paired with the concluding chorus, implies that there is a protest song lurking within), or "me" (which implies that his mantra is directed at his girl rather than himself). Given that this is the most recent recording we have available, we'll assume that this is where Bruce finally landed.
 
-> *Yes I dreamed I was the cabin boy on an American clipper line*
-> *Stealing cargo to colonies of South Caroline*
-> *Watering flowers for the captain that they may not wilt*
-> *On the best ol' clipper Donald McKay ever built*
+> *Yes I dreamed I was the cabin boy on an American clipper line*<br>
+> *Stealing cargo to colonies of South Caroline*<br>
+> *Watering flowers for the captain that they may not wilt*<br>
+> *On the best ol' clipper Donald McKay ever built*<br>
 
-> *Singing look towards the land*
-> *‘Cause the land is the key*
-> *Keep an eye on the land*
-> *And an eye on the sea*
+> *Singing look towards the land*<br>
+> *‘Cause the land is the key*<br>
+> *Keep an eye on the land*<br>
+> *And an eye on the sea*<br>
 
 I have to admit: I had to look up Donald McKay to verify if he was a real person, and indeed he was. McKay was a famous clipper shipbuilder, and the fact that Bruce knew this and namechecked him–combined with the fact that Bruce has made references to dreams of clipper ships in other songs–implies that Bruce had a genuine fascination with clippers, and that this isn't just a piece of colorful detail for a song.
 
 A lovely Clapton-esque guitar solo follows, and then we continue:
 
-> *Yes I dreamed I was the captain of the river queen*
-> *Caressing Mississippi waters down to New Orleans*
-> *Just a riverboat captain, that's what I wanna be*
-> *Won't you come on now, I'd let you ride, my mama, for free*
+> *Yes I dreamed I was the captain of the river queen*<br>
+> *Caressing Mississippi waters down to New Orleans*<br>
+> *Just a riverboat captain, that's what I wanna be*<br>
+> *Won't you come on now, I'd let you ride, my mama, for free*<br>
 
-> *Singing look towards the river*
-> *‘Cause the river's the key*
-> *Keep an eye on the river*
-> *And an eye on the sea*
+> *Singing look towards the river*<br>
+> *‘Cause the river's the key*<br>
+> *Keep an eye on the river*<br>
+> *And an eye on the sea*<br>
 
 This is where we get our first inkling that our narrator has an actual dilemma on his hands: he's drawn to keep moving, but he wants company and implores his love to understand him: he's like the river, he needs to flow. To make sure we don't miss this as the crux of the song, he sings it twice:
 
-> *Where the river flows, I'll follow*
-> *Where the sun shines, I will go*
-> *Mama take my hand, I want to bring you to the land*
-> *Where the wild wind blows*
-> *And the mountains grow*
-> *And the people know*
-> *Yes they know*
-> *You must let the river flow*
-> *Let the river go*
+> *Where the river flows, I'll follow*<br>
+> *Where the sun shines, I will go*<br>
+> *Mama take my hand, I want to bring you to the land*<br>
+> *Where the wild wind blows*<br>
+> *And the mountains grow*<br>
+> *And the people know*<br>
+> *Yes they know*<br>
+> *You must let the river flow*<br>
+> *Let the river go*<br>
 
 Bruce now explicitly imagines himself as the river, flowing on:
 
-> *Yes I dreamed I was a river flowing free*
-> *And I dreamed that everybody just flowed naturally*
-> *Yes I dreamed I was a crystal mountain stream*
-> *Running down the biggest mountain you ever seen*
+> *Yes I dreamed I was a river flowing free*<br>
+> *And I dreamed that everybody just flowed naturally*<br>
+> *Yes I dreamed I was a crystal mountain stream*<br>
+> *Running down the biggest mountain you ever seen*<br>
 
-> *Singing look towards the river*
-> *For they are the key*
-> *Keep an eye on the river*
-> *And an eye on the sea*
+> *Singing look towards the river*<br>
+> *For they are the key*<br>
+> *Keep an eye on the river*<br>
+> *And an eye on the sea*<br>
 
 Finally, Bruce let's go of the metaphor that's carried us the entire length of the song, laying it out for his love:
 
-> *I dreamed I was your lover 'cause that's what I wanna be*
-> *I dreamed that every night you dreamed only of me*
-> *We walked together by the sea, a hand in hand*
-> *I'm telling you were my only woman and I'd be your only man*
+> *I dreamed I was your lover 'cause that's what I wanna be*<br>
+> *I dreamed that every night you dreamed only of me*<br>
+> *We walked together by the sea, a hand in hand*<br>
+> *I'm telling you were my only woman and I'd be your only man*<br>
 
-> *Singing look toward the lovers*
-> *For they are the key*
-> *Keep an eye on the lovers*
-> *And an eye on the war machine*
+> *Singing look toward the lovers*<br>
+> *For they are the key*<br>
+> *Keep an eye on the lovers*<br>
+> *And an eye on the war machine*<br>
 
 Let's talk about that last line for a minute. I'm not sure what to make of it. The "war machine" line comes out of nowhere, and it casts a different light on the song–as if the force that keeps the singer moving is less wanderlust and more a fear of conscription.
 
 It's possible that this was still a holdover from earlier versions of the song, where there were other clues to a more political subtext. In the first recorded performance, a shorter acoustic version from May 1971, Bruce encourages the listener to "keep an eye on man," and he concludes the song with a final couplet:
 
-> *And that's why at night I'm afraid to sleep*
-> *‘Cause some of my dreams frighten me*
+> *And that's why at night I'm afraid to sleep*<br>
+> *‘Cause some of my dreams frighten me*<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j6Gur5A4Zi8)
 
@@ -108,7 +108,7 @@ So like much of his early pre-Street work, we'll have to content ourselves with 
 **Look Towards the Land**  
 **Recorded:** March 14, 1972 (rehearsal)  
 **Never released**  
-**First performed:** May 15, 1971 (Union, NJ)  
-**Last performed:** October 23, 1971 (Richmond, VA)
+**First performed:** May 15, 1971 (Union, NJ)<br>
+**Last performed:** October 23, 1971 (Richmond, VA)<br>
 
 © December 10, 2018

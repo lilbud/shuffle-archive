@@ -58,8 +58,8 @@ If it sounds like I'm hating on "Hurry Up Sundown," I'm not. I quite like the so
 There's a whole sub-genre in Bruce's catalog of fun pop trifles, and "Hurry Up Sundown" is right at home among them, just waiting for someone to notice.
 
 **Hurry Up Sundown**<br>
-**Recorded** March 2013  
-**Released:** *American Beauty* (2014)
+**Recorded** March 2013<br>
+**Released:** *American Beauty* (2014)<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

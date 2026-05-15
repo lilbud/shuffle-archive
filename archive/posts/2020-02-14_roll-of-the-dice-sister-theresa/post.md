@@ -58,7 +58,7 @@ Never recorded and rarely performed, "Sister Theresa" is too atypical of Bruce's
 **Sister Theresa**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** September 20, 1969 (Richmond, VA)
-**Last performed:** 1970 (exact date uncertain)
+**First performed:** September 20, 1969 (Richmond, VA)<br>
+**Last performed:** 1970 (exact date uncertain)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

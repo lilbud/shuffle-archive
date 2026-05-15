@@ -10,33 +10,33 @@ Bruce also made changes to the lyrics, both subtle and significant.
 
 The original version told the story of the oppressed railing against the oppressor. It was clearly a protest song, but it could be read as either a personal or political one. Cliff probably intended it that way, and that's undoubtedly part of what drew Bruce to it.
 
-> *Well it seems like I've fallen in your trap again*
-> *And it seems like I'll be wearing the same old pain*
-> *But good must conquer evil and truth will set me free*
-> *So you see that somewhere I have found the key*
-> *Yes you see that somewhere I have found the key*
+> *Well it seems like I've fallen in your trap again*<br>
+> *And it seems like I'll be wearing the same old pain*<br>
+> *But good must conquer evil and truth will set me free*<br>
+> *So you see that somewhere I have found the key*<br>
+> *Yes you see that somewhere I have found the key*<br>
 
-> *Well it seems like I've been sleeping in your bed too long*
-> *And it seems like you've been planning to do me wrong*
-> *But evil concentrated must be disintegrated*
-> *So I know that I'll be walking out again*
-> *Yes I know that I'll be walking out again*
+> *Well it seems like I've been sleeping in your bed too long*<br>
+> *And it seems like you've been planning to do me wrong*<br>
+> *But evil concentrated must be disintegrated*<br>
+> *So I know that I'll be walking out again*<br>
+> *Yes I know that I'll be walking out again*<br>
 
-> *Well it seems like I have played the game your way too long*
-> *And it seems the game I've played has made you strong*
-> *But when this game is over, I won't end up the loser*
-> *And I know that I'll be walking out again*
-> *Yes I know that I'll be walking out again*
+> *Well it seems like I have played the game your way too long*<br>
+> *And it seems the game I've played has made you strong*<br>
+> *But when this game is over, I won't end up the loser*<br>
+> *And I know that I'll be walking out again*<br>
+> *Yes I know that I'll be walking out again*<br>
 
 Notice that In Jimmy's original, the protagonist has already found his means of escape:
 
-> *So you see that somewhere I have found the key*
-> *Yes you see that somewhere I have found the key*
+> *So you see that somewhere I have found the key*<br>
+> *Yes you see that somewhere I have found the key*<br>
 
 But in Bruce's version, while still optimistic, the hero is still very much trapped:
 
-> *And I know someday I'll find the key*
-> *And I know somewhere I will find the key*
+> *And I know someday I'll find the key*<br>
+> *And I know somewhere I will find the key*<br>
 
 Bruce also changed the line "evil concentrated must be disintegrated" to "I'll teach my eyes to seen beyond these walls in front of me," again shifting the song's message from one of imminent escape to still-very-much-stuck.
 
@@ -61,7 +61,7 @@ Despite its frequent inclusion and rare tour absences, Bruce has never altered t
 **Trapped**<br>
 Never recorded in-studio  
 Released (live):** *We Are the World* (1985), *The Essential Bruce Springsteen* (2003)
-**First performed:** [May 29](https://estreetshuffle.com/index.php/2018/05/29/kingdom-of-days-may-29/), 1981 (London, England)
-**Last performed:** August 24, 2023 (Foxborough, MA)
+**First performed:** [May 29](https://estreetshuffle.com/index.php/2018/05/29/kingdom-of-days-may-29/), 1981 (London, England)<br>
+**Last performed:** August 24, 2023 (Foxborough, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -24,6 +24,6 @@ Bruce's live arrangement starts slowly. Accompanied only by his acoustic guitar 
 **Recorded:** March 19, 2005<br>
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
 **First performed:** November 18, 2006 (Dublin, Ireland)<br>
-**Last performed:** November 18, 2006 (Dublin, Ireland)
+**Last performed:** November 18, 2006 (Dublin, Ireland)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

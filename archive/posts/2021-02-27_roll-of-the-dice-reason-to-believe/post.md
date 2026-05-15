@@ -137,9 +137,9 @@ So we best believe that Bruce's Greenbaum-esque arrangement for "Reason to Belie
 Bruce's 1982 recording of "Reason to Believe" was a question, but when he performs it today, it's an answer.
 
 **Reason to Believe**<br>
-**Recorded** January 3, 1982  
+**Recorded** January 3, 1982<br>
 **Released:** *Nebraska* (1982)
-**First performed:** July 1, 1984 (St. Paul, MN)
-**Last performed:** July 11, 2016 (Paris, France)
+**First performed:** July 1, 1984 (St. Paul, MN)<br>
+**Last performed:** July 11, 2016 (Paris, France)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

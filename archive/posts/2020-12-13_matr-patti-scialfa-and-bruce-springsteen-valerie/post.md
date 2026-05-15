@@ -1,4 +1,4 @@
-> ["Valerie" is] a very heavy song in our history… I was visiting you in your apartment in New York (probably when I shouldn't have been visiting you in your apartment in New York). Under the guise of rehearsing for *Tunnel of Love*, I'm teaching you the guitar parts. But somehow, you got around to playing me this next song, and I remember thinking, "Oh my God, this woman can write." And it totally made me twice as scared as I was anyway. It was like, whoa, I think I saw your talent for the first time, outside of just your voice. It was a pretty intense moment. — *Bruce Springsteen to Patti Scialfa, From My Home to Yours Volume 9*
+> ["Valerie" is] a very heavy song in our history… I was visiting you in your apartment in New York (probably when I shouldn't have been visiting you in your apartment in New York). Under the guise of rehearsing for *Tunnel of Love*, I'm teaching you the guitar parts. But somehow, you got around to playing me this next song, and I remember thinking, "Oh my God, this woman can write." And it totally made me twice as scared as I was anyway. It was like, whoa, I think I saw your talent for the first time, outside of just your voice. It was a pretty intense moment. — *Bruce Springsteen to Patti Scialfa, From My Home to Yours Volume 9*<br>
 
 Until that revelatory confession, I'd always wondered why Patti chose to play "Valerie" during her promotional tour for *Rumble Doll*, her 1993 debut album.
 
@@ -18,11 +18,11 @@ The narrator of "Valerie" followed her lover on a great adventure, only to find 
 
 The second verse of "Valerie" may be the most artful lyric Patti has ever written:
 
-> *Sixteen days since I left Corona*
-> *And I traveled to this carnival town near Alberndeel*
-> *And I rode the coaster there on the fairground*
-> *Twisted backbone of a beast that never heels*
-> *And I left some skin on fortune's wheel*
+> *Sixteen days since I left Corona*<br>
+> *And I traveled to this carnival town near Alberndeel*<br>
+> *And I rode the coaster there on the fairground*<br>
+> *Twisted backbone of a beast that never heels*<br>
+> *And I left some skin on fortune's wheel*<br>
 
 I mean, come on: whose jaw *wouldn't* drop when hearing that verse for the first time?
 
@@ -47,7 +47,7 @@ The song loses some of its power when performed as a duet, however, and even tho
 [Watch on Youtube: Valerie](https://www.youtube.com/watch?v=L34ceGVmC7c)
 
 **Valerie**<br>
-**First performed:** October 5, 2006 (Verona, Italy)
-**Last performed:** October 5, 2006 (Verona, Italy)
+**First performed:** October 5, 2006 (Verona, Italy)<br>
+**Last performed:** October 5, 2006 (Verona, Italy)<br>
 
 

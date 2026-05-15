@@ -119,8 +119,8 @@ But if you're ever in the mood to play it in concert again, maybe give the origi
 
 **One Way Street**<br>
 **Recorded** June 17, 1977 (backing track), 2010 (vocals)
-**Released:** *The Promise* (2010)
-**First performed:** December 7, 2010 (Asbury Park, NJ)
-**Last performed:** July 5, 2013 (Monchengladbach, Germany)
+**Released:** *The Promise* (2010)<br>
+**First performed:** December 7, 2010 (Asbury Park, NJ)<br>
+**Last performed:** July 5, 2013 (Monchengladbach, Germany)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

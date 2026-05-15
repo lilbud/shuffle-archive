@@ -14,70 +14,70 @@ Bruce continued working on the song throughout the remainder of 1981, and the th
 
 Bruce's lyrics have progressed significantly, although the chorus sounds just a bit too jingoistic for the tone Bruce is trying to strike.
 
-> *Got in a little hometown jam*
-> *So the law put a rifle in my hand*
-> *Sent me off to kill the yellow man*
+> *Got in a little hometown jam*<br>
+> *So the law put a rifle in my hand*<br>
+> *Sent me off to kill the yellow man*<br>
 
-> *Born baby in the U.S.A.  
-I believe in the American Way*
+> *Born baby in the U.S.A.*<br>
+> *I believe in the American Way*<br>
 
 The second take features a slower tempo, expanded lyrics, and the first appearance of the "long gone daddy" refrain:
 
-> *Got in a little hometown jam*
-> *so the law put a rifle in my hand*
-> *sent me off to kill the yellow man*
-> *??? rock and roll band*
+> *Got in a little hometown jam*<br>
+> *so the law put a rifle in my hand*<br>
+> *sent me off to kill the yellow man*<br>
+> *??? rock and roll band*<br>
 
-> *Born in the U.SA., Born in the U.S.A.*
-> *I'm a long gone daddy in the U.S.A.*
+> *Born in the U.SA., Born in the U.S.A.*<br>
+> *I'm a long gone daddy in the U.S.A.*<br>
 
 ("I'm a long gone daddy" is a reference to the Hank Williams song by the same name, in which the singer leaves home and a dysfunctional relationship. With a famous chorus of "I'm leaving now, I'm leaving now, I'm a long gone daddy, I don't need you anyhow," Bruce uses the reference here as shorthand for his character's determination to escape his lot in life. And of course, it works out about as well as we suspect it did for Hank Williams' character.)
 
 The song continues with a fascinating verse that gives the singer's returning friend a voice–albeit a bitter one.
 
-> *My buddy, he come back from Vietnam*
-> *He said nobody remembers who i am*
-> *People sure forget real fast man*
-> *I don't give a damn*
+> *My buddy, he come back from Vietnam*<br>
+> *He said nobody remembers who i am*<br>
+> *People sure forget real fast man*<br>
+> *I don't give a damn*<br>
 
-> *Assembly line to the front lines*
-> *Take you directly toward Saigon*
-> *Born in the U.S.A.*
-> *You better know what's going on*
+> *Assembly line to the front lines*<br>
+> *Take you directly toward Saigon*<br>
+> *Born in the U.S.A.*<br>
+> *You better know what's going on*<br>
 
 The song returns to familiar territory now, with almost-final lyrics–except for a heart-breaking final line.
 
-> *Had a buddy over in Khe Sahn*
-> *Fighting off them Viet Cong*
-> *They're still there but he's all gone*
+> *Had a buddy over in Khe Sahn*<br>
+> *Fighting off them Viet Cong*<br>
+> *They're still there but he's all gone*<br>
 
-> *He had a little girl in Saigon*
-> *Sent me a picture of him in her arms*
-> *Said he'd bring her back*
-> *But I don't know where she's gone.*
+> *He had a little girl in Saigon*<br>
+> *Sent me a picture of him in her arms*<br>
+> *Said he'd bring her back*<br>
+> *But I don't know where she's gone.*<br>
 
 The last take in the clip above is fascinating. Bruce switches the perspective and writes from the first person now. This time it's *him* who was in Khe Sahn and who had the girl in Saigon. It's a subtle change that shows how Bruce was still experimenting to find the right nuance for the song.
 
 Bruce continues, bringing back the pivotal scene and wrenching chorus from "Vietnam" and turning it into a pair of verses that starkly illustrate the young man's plight.
 
-> *I was digging dirt and I was eating the sand*
-> *Came back to see the VA man*
-> *He had some papers there in his hands*
-> *That said I died there in Vietnam*
+> *I was digging dirt and I was eating the sand*<br>
+> *Came back to see the VA man*<br>
+> *He had some papers there in his hands*<br>
+> *That said I died there in Vietnam*<br>
 
-> *Assembly line to the front lines*
-> *Back home to the unemployment row*
-> *Detroit straight to Saigon*
-> *Man this whole world sure is cold*
+> *Assembly line to the front lines*<br>
+> *Back home to the unemployment row*<br>
+> *Detroit straight to Saigon*<br>
+> *Man this whole world sure is cold*<br>
 
 That "I died there in Vietnam" line works just as well here as in "Vietnam" — on two levels at once: irony ("we heard you died over there") and metaphor ("the person we knew died in the war; the person who came back is a stranger").
 
 There's one final verse here, and it almost sounds like an afterthought. It's powerful, but it's a step too far from the personal toward the political:
 
-> *I wonder where them Cambodians gone*
-> *When them bombs started falling like rain*
-> *I don't care what they say*
-> *They wasn't bombing the white man that way*
+> *I wonder where them Cambodians gone*<br>
+> *When them bombs started falling like rain*<br>
+> *I don't care what they say*<br>
+> *They wasn't bombing the white man that way*<br>
 
 You'd think that Bruce would instinctively realize he was venturing from the narrative. Instead, in the next take, he doubles down:
 
@@ -85,26 +85,26 @@ You'd think that Bruce would instinctively realize he was venturing from the nar
 
 Yes, you heard those lyrics right:
 
-> *Richard Nixon's on the lam*
-> *After dropping bombs on the yellow man*
-> *I don't care what shit they say*
-> *They wouldn't bomb a white man that way*
-> *Not a day in prison did he spend*
-> *They should have cut off his balls and let them twist in the wind*
+> *Richard Nixon's on the lam*<br>
+> *After dropping bombs on the yellow man*<br>
+> *I don't care what shit they say*<br>
+> *They wouldn't bomb a white man that way*<br>
+> *Not a day in prison did he spend*<br>
+> *They should have cut off his balls and let them twist in the wind*<br>
 
 Thankfully, those lyrics soon vanish. But the verse that follows is instantly recognizable–it's very close to what will eventually become the song's opening verse:
 
-> *Born down in a dead man's town*
-> *Where they kick you when you hit the ground*
-> *What you got ain't enough*
-> *You spend half your time just coverin' up*
+> *Born down in a dead man's town*<br>
+> *Where they kick you when you hit the ground*<br>
+> *What you got ain't enough*<br>
+> *You spend half your time just coverin' up*<br>
 
 There's also a final verse that's hard to make out, and that's too bad–because the opening couplet is terrific and would have served the song well:
 
-> *They planted an American flag*
-> *on a cake that said "welcome home"*
-> *??? in a different house*
-> *but it's forever gone.*
+> *They planted an American flag*<br>
+> *on a cake that said "welcome home"*<br>
+> *??? in a different house*<br>
+> *but it's forever gone.*<br>
 
 In Bruce's next take, the classic introduction is now completely in place. In fact, the entire song is now *very* close to final–other than the masterful yet economical verse with the VA man (which Bruce is still struggling to find the right place for) and the still-missing "ten years burning down the road" closing, the song is essentially complete.
 
@@ -116,10 +116,10 @@ Finally, in this last version, we hear a much more comfortable and confident Bru
 
 But we also have the return of the backstory verses from "Vietnam" along with some harrowing, you-are-there imagery that's powerful enough to overpower the pain and neglect that await him upon his return home:
 
-> *Son, behind that line of trees, something's waiting in the jungle rain*
-> *there deep in the dark forest, there's a river without a name*
-> *Go crawl up there on your knees, go crawlin' quiet, boy, as you can*
-> *Lieutenant sir, if you please, I wanna see my baby again*
+> *Son, behind that line of trees, something's waiting in the jungle rain*<br>
+> *there deep in the dark forest, there's a river without a name*<br>
+> *Go crawl up there on your knees, go crawlin' quiet, boy, as you can*<br>
+> *Lieutenant sir, if you please, I wanna see my baby again*<br>
 
 Bruce would shortly and wisely drop those lyrics.
 
@@ -200,9 +200,9 @@ Today, "Born in the U.S.A." holds a special place in Bruce's catalog, beloved by
 But ten years, twenty years, thirty years, forty years burning down the road, it remains the most necessary.
 
 **Born in the U.S.A.**<br>
-**Recorded** April 27-May 3, 1984  
-**Released:** *Born in the U.S.A.* (1984)
-**First performed:** June 8, 1984 (Asbury Park, NJ)
-**Last performed:** July 3, 2025 (Milan, Italy)
+**Recorded** April 27-May 3, 1984<br>
+**Released:** *Born in the U.S.A.* (1984)<br>
+**First performed:** June 8, 1984 (Asbury Park, NJ)<br>
+**Last performed:** July 3, 2025 (Milan, Italy)<br>
 
 © September 21, 2019 / March 29, 2026

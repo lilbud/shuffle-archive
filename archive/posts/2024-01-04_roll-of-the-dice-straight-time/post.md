@@ -1,4 +1,4 @@
-> "This is a song about a fellow who gets out of prison and is working hard to sort of integrate himself back into his family and into the world at large. But a change like that is a hard thing to do, because all your old habits end up feeling like your friends. Sometimes those very old habits, it's how we define ourselves, how we feel like we know who we are. Whether it's true or not, whether they kill us or not." *–Bruce Springsteen, December 3, 1995*
+> "This is a song about a fellow who gets out of prison and is working hard to sort of integrate himself back into his family and into the world at large. But a change like that is a hard thing to do, because all your old habits end up feeling like your friends. Sometimes those very old habits, it's how we define ourselves, how we feel like we know who we are. Whether it's true or not, whether they kill us or not." *–Bruce Springsteen, December 3, 1995*<br>
 
 "Straight Time" was one of the first songs Springsteen wrote for *[The Ghost of Tom Joad,](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*at least a year before he even had a vision for the album. He recorded it, listened to it once, and then shelved it. "Basically, I threw it away," Bruce told Bob Costas in a 1995 interview, crediting Jon Landau for recognizing and advocating for its worth.
 
@@ -16,49 +16,49 @@ Musically, "Straight Time" is gentler and more reflective than either of the 198
 
 Yet we can clearly see the elements he poached from each. As with James Lincoln and James Lucas, Charlie is an ex-con doing his best to keep his nose clean and make ends meet. In 1995, Bruce wrote with much more economy than he did in 1982, and he accomplishes in just three lines what it took him two full verses to do in the earlier outtakes. (The 1978 film *Straight Time* probably helped. Bruce's exposition is remarkably similar to the movie.)
 
-> *Got out of prison back in '86 and I found a wife*
-> *Walked the clean and narrow just trying to stay out and stay alive*
-> *Got a job at the rendering plant, it ain't gonna make me rich*
-> *In the darkness before dinner comes sometimes I can feel the itch*
-> *I got a cold mind to go tripping ‘cross that thin line*
-> *I'm sick of doing straight time*
+> *Got out of prison back in '86 and I found a wife*<br>
+> *Walked the clean and narrow just trying to stay out and stay alive*<br>
+> *Got a job at the rendering plant, it ain't gonna make me rich*<br>
+> *In the darkness before dinner comes sometimes I can feel the itch*<br>
+> *I got a cold mind to go tripping ‘cross that thin line*<br>
+> *I'm sick of doing straight time*<br>
 
 In the second half of the first verse, Bruce solves a problem that plagued "James Lincoln Deere" and "Richfield Whistle": both earlier songs featured protagonists that seemed too virtuous (as virtuous as an ex-con can be, at least), making their inevitable concession to temptation seem sudden and forced.
 
 In "Straight Time," Bruce reveals that Charlie feels the pull of temptation from the start. As he'd explain on stage and in interviews, we all have bad habits that are hard to break, because when something becomes habitual, it becomes part of our very nature. Charlie feels the itch to improve his circumstances via less-than-ethical means, and he finds it increasingly hard to resist scratching–especially when his uncle (playing the role of Sill in "James Lincoln Deere") comes calling.
 
-> *My uncle's at the evening table, makes his living running hot cars*
-> *Slips me a hundred dollar bill, says "Charlie you best remember who your friends are"*
-> *I got a cold mind to go tripping ‘cross that thin line*
-> *I ain't making straight time*
+> *My uncle's at the evening table, makes his living running hot cars*<br>
+> *Slips me a hundred dollar bill, says "Charlie you best remember who your friends are"*<br>
+> *I got a cold mind to go tripping ‘cross that thin line*<br>
+> *I ain't making straight time*<br>
 
 Charlie is already bending toward resuming his life of crime. His uncle just makes it that much harder to resist. "You best remember who your friends are," he tells Charlie, but the words might as well have been spoken by his own vices.
 
 For most of us–those of us who haven't spent years behind bars–the idea of a convicted criminal throwing away their second chance might escape our understanding. Bruce understands it, though, and he explains:
 
-> *Well eight years in, it feels like you're gonna die*
-> *But you get used to anything, sooner or later it just becomes your life*
+> *Well eight years in, it feels like you're gonna die*<br>
+> *But you get used to anything, sooner or later it just becomes your life*<br>
 
 The human mind adapts to its environment. Spend enough time in even the worst of circumstances, and eventually those circumstances take on the comfort of familiarity. *Sooner or later it just becomes your life*, and you become the person who lives it.
 
 This is Charlie's internal struggle: can he reinvent himself through family, community, and work, or will he inevitably re-embrace the self he hoped he'd left behind in prison. It doesn't help that even his own wife seems braced for the inevitable.
 
-> *The kitchen floor in the evening, tossing my little babies high*
-> *Mary's smiling but she watches me out of the corner of her eye*
-> *Seems you can't get any more than half-free*
-> *I step out onto the front porch and suck the cold air deep inside of me*
-> *I got a cold mind to go tripping ‘cross that thin line*
-> *I'm sick of doing straight time*
+> *The kitchen floor in the evening, tossing my little babies high*<br>
+> *Mary's smiling but she watches me out of the corner of her eye*<br>
+> *Seems you can't get any more than half-free*<br>
+> *I step out onto the front porch and suck the cold air deep inside of me*<br>
+> *I got a cold mind to go tripping ‘cross that thin line*<br>
+> *I'm sick of doing straight time*<br>
 
 *You can't get any more than half-free*, Charlie tells us. His body–his physical half–tries its best to play the family man, but his inner life is neither straight nor narrow.
 
 In the last verse, Bruce hints that old habits are about to re-assert themselves, as Charlie emotionlessly saws off a shotgun. We never learn why, but such weapons are counter-productive for hunting.
 
-> *In the basement, hunting gun and a hacksaw*
-> *Sip a beer and thirteen inches of barrel drop to the floor*
+> *In the basement, hunting gun and a hacksaw*<br>
+> *Sip a beer and thirteen inches of barrel drop to the floor*<br>
 
-> *Come home in the evening, can't get the smell from my hands*
-> *Lay my head down on the pillow and go drifting off into foreign lands*
+> *Come home in the evening, can't get the smell from my hands*<br>
+> *Lay my head down on the pillow and go drifting off into foreign lands*<br>
 
 For the moment he resists temptation, but only for the moment. His day job is already grisly. Unable to rid his hands of the smell of death, we can only wonder where his thoughts go when they drift off into slumber.
 
@@ -82,9 +82,9 @@ Since the conclusion of the Joad Tour, "Straight Time" has made only a single ap
 Bruce hasn't played "Straight Time" in public since, and perhaps that's for the best. It's a gem of a song, but one that shines best in its original setting.
 
 **Straight Time**<br>
-**Recorded** April-June 1995  
+**Recorded** April-June 1995<br>
 **Released:** *The Ghost of Tom Joad* (1995)
-**First performed:** November 21, 1995 (New Brunswick, NJ)
-**Last performed:** June 22, 2005 (Copenhagen, Denmark)
+**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Last performed:** June 22, 2005 (Copenhagen, Denmark)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

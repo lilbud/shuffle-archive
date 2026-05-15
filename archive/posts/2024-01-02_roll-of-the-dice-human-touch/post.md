@@ -16,10 +16,10 @@ His diehard fans never lost faith, but we certainly had to wonder in those pre-I
 
 Bruce answered that in the very first verse of his first post-E Street single:
 
-> *You and me we were the pretenders*
-> *We let it all slip away*
-> *In the end what you don't surrender*
-> *Well the world just strips away*
+> *You and me we were the pretenders*<br>
+> *We let it all slip away*<br>
+> *In the end what you don't surrender*<br>
+> *Well the world just strips away*<br>
 
 For the Bruce Springsteen we'd known until this point, this is a breathtakingly confessional, almost therapeutic verse.
 
@@ -31,27 +31,27 @@ For fans who listened between the lines, Bruce reintroduced himself by explainin
 
 Only with this confession out of the way does Bruce shift his focus to his "girl," although even here I'm not convinced he isn't also talking to himself:
 
-> *Girl, ain't no kindness in the face of strangers*
-> *Ain't gonna find no miracles here*
-> *Well you can wait on your blessings my darlin'*
-> *But I got a deal for you right here*
+> *Girl, ain't no kindness in the face of strangers*<br>
+> *Ain't gonna find no miracles here*<br>
+> *Well you can wait on your blessings my darlin'*<br>
+> *But I got a deal for you right here*<br>
 
 It's worth noting the introduction of religious imagery here, because Bruce not only continues to employ it through the song, but throughout the video as well, weaving together scenes of the flesh and the spirit. That's a familiar Springsteen trope, employed as far back as his first album (and even earlier), but here it serves more than just an artistic purpose. It's the heart (no pun intended) of Bruce's message in "Human Touch"–the closest we get to divinity is in the love we find in each other. But you have to forge that connection–it doesn't just happen. There ain't no kindness in the face of strangers, no miracles, no blessings to wait for.
 
-> *I ain't lookin' for prayers or pity*
-> *I ain't comin' 'round searchin' for a crutch*
-> *I just want someone to talk to*
-> *And a little of that human touch*
+> *I ain't lookin' for prayers or pity*<br>
+> *I ain't comin' 'round searchin' for a crutch*<br>
+> *I just want someone to talk to*<br>
+> *And a little of that human touch*<br>
 
-> *Ain't no mercy on the streets of this town*
-> *Ain't no bread from heavenly skies*
-> *Ain't nobody drawin' wine from this blood*
-> *It's just you and me tonight*
+> *Ain't no mercy on the streets of this town*<br>
+> *Ain't no bread from heavenly skies*<br>
+> *Ain't nobody drawin' wine from this blood*<br>
+> *It's just you and me tonight*<br>
 
-> *Tell me in a world without pity*
-> *Do you think what I'm askin's too much?*
-> *I just want something to hold on to*
-> *And a little of that human touch*
+> *Tell me in a world without pity*<br>
+> *Do you think what I'm askin's too much?*<br>
+> *I just want something to hold on to*<br>
+> *And a little of that human touch*<br>
 
 No kindness in the face of strangers. No mercy. No pity.
 
@@ -65,16 +65,16 @@ But "Human Touch" the song is a notable exception. It features an arrangement th
 
 I state all this here because of what I'm about to say: "Human Touch" kind of falls apart as it heads into and out of the bridge–at least lyrically:
 
-> *Oh girl that feeling of safety you prize*
-> *Well it comes with a hard hard price*
-> *You can't shut off the risk and the pain*
-> *Without losin' the love that remains*
-> *We're all riders on this train*
+> *Oh girl that feeling of safety you prize*<br>
+> *Well it comes with a hard hard price*<br>
+> *You can't shut off the risk and the pain*<br>
+> *Without losin' the love that remains*<br>
+> *We're all riders on this train*<br>
 
-> *So you been broken and you been hurt*
-> *Show me somebody who ain't*
-> *Yeah I know I ain't nobody's bargain*
-> *But hell a little touchup and a little paint*
+> *So you been broken and you been hurt*<br>
+> *Show me somebody who ain't*<br>
+> *Yeah I know I ain't nobody's bargain*<br>
+> *But hell a little touchup and a little paint*<br>
 
 Gone are the religious metaphors and imagery that Bruce has so carefully and skillfully threaded up until this point, and with them went the subtextual layer that makes the first half of "Human Touch" so briliant. The bridge is essentially a "Two Hearts" rehash, and the verse that follows feels like a reprise of "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."
 
@@ -82,15 +82,15 @@ Don't get me wrong–I actually love that verse and the way that Bruce revives h
 
 As for the final choruses… well, they're so direct and unadorned that I'm at a loss for anything to add:
 
-> *You might need somethin' to hold on to*
-> *When all the answers they don't amount too much*
-> *Somebody that you could just talk to*
-> *And a little of that human touch*
+> *You might need somethin' to hold on to*<br>
+> *When all the answers they don't amount too much*<br>
+> *Somebody that you could just talk to*<br>
+> *And a little of that human touch*<br>
 
-> *Baby in a world without pity*
-> *Do you think what I'm askin's too much?*
-> *I just want to feel you in my arms*
-> *And share a little of that human touch*
+> *Baby in a world without pity*<br>
+> *Do you think what I'm askin's too much?*<br>
+> *I just want to feel you in my arms*<br>
+> *And share a little of that human touch*<br>
 
 But hey now, that "hey now!" saves "Human Touch" from petering out unremarkably, Those final two minutes–easily the finest two minutes on the album.
 
@@ -124,8 +124,8 @@ I'll leave you with one of my favorite performances of "Human Touch," from Adela
 
 **Human Touch**<br>
 **Recorded:** Spring 1990  
-**Released:** *Human Touch* (1992) (edited versions appear on *Greatest Hits* and *The Essential Bruce Springsteen* as well)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** April 28, 2023 (Barcelona, Spain)
+**Released:** *Human Touch* (1992) (edited versions appear on *Greatest Hits* and *The Essential Bruce Springsteen* as well)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** April 28, 2023 (Barcelona, Spain)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

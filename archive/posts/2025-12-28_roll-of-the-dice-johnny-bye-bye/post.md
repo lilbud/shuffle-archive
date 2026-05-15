@@ -46,34 +46,34 @@ But in real life, Bruce knew, fame and fortune often led to more tragic outcomes
 
 Bruce lifted Berry's first verse verbatim (Berry would eventually receive a co-writing credit), starting off his hero's journey with all of the idealism and promise of youth:
 
-> *Well she drew out all her money from the Southern Trust*
-> *And she put her little boy on a Greyhound Bus*
-> *Leaving Memphis with a guitar in his hand*
-> *On a one-way ticket to the promised land*
+> *Well she drew out all her money from the Southern Trust*<br>
+> *And she put her little boy on a Greyhound Bus*<br>
+> *Leaving Memphis with a guitar in his hand*<br>
+> *On a one-way ticket to the promised land*<br>
 
 …and followed that with his original two verses from "Come On (Let's Go Tonight)":
 
-> *Now hey little girlie with your red dress on*
-> *There's a party tonight down in Memphis town*
-> *I'll be going down there if you need a ride*
-> *Come on, come on, let's go tonight*
+> *Now hey little girlie with your red dress on*<br>
+> *There's a party tonight down in Memphis town*<br>
+> *I'll be going down there if you need a ride*<br>
+> *Come on, come on, let's go tonight*<br>
 
-> *How many have fallen with their dream denied*
-> *Now tell me baby are you lonesome tonight*
-> *‘Cause the man on the radio says Elvis Presley died*
-> *Come on, come on, let's go tonight*
+> *How many have fallen with their dream denied*<br>
+> *Now tell me baby are you lonesome tonight*<br>
+> *‘Cause the man on the radio says Elvis Presley died*<br>
+> *Come on, come on, let's go tonight*<br>
 
 It's an abrupt change of setting and context, and it comes without explanation. Only at the end of the last of the two new verses that end the song do we make the connection:
 
-> *Down in Dixie tonight the sky is hard and black*
-> *Come on up over the ridge one long white Cadillac*
-> *They stand on the roadside waiting in the heat*
-> *Bound together forever in the promise of an endless sleep*
+> *Down in Dixie tonight the sky is hard and black*<br>
+> *Come on up over the ridge one long white Cadillac*<br>
+> *They stand on the roadside waiting in the heat*<br>
+> *Bound together forever in the promise of an endless sleep*<br>
 
-> *Well they found him slumped up against the drain*
-> *With a whole lot of nothing running through his veins*
-> *Well bye-bye Johnny, oh Johnny bye-bye*
-> *You didn't have to die, you didn't have to die*
+> *Well they found him slumped up against the drain*<br>
+> *With a whole lot of nothing running through his veins*<br>
+> *Well bye-bye Johnny, oh Johnny bye-bye*<br>
+> *You didn't have to die, you didn't have to die*<br>
 
 There are actually two references to the dangers of fame-fueled excess at play in "Johnny Bye Bye." The Elvis reference is the obvious one, because he's name-checked in the third verse and has his death scene re-enacted in the final verse.
 
@@ -105,10 +105,10 @@ Musically, though, the *L.A. Garage Sessions '83* version is the best of the bun
 
 And there's yet even *another* version of "Johnny Bye Bye," recorded two weeks later with an additional verse, but this one was never released.
 
-> *In the Nevada desert a young boy travels alone*
-> *Walking five thousand miles trying to get home*
-> *Stars rising in the black and endless sky burn on*
-> *He stares up into the darkness, he looks down then walks on*
+> *In the Nevada desert a young boy travels alone*<br>
+> *Walking five thousand miles trying to get home*<br>
+> *Stars rising in the black and endless sky burn on*<br>
+> *He stares up into the darkness, he looks down then walks on*<br>
 
 [Watch on Youtube: Bruce Springsteen Bye Bye Johnny #5 AKA Johnny Bye Bye](https://www.youtube.com/watch?v=d89fQRSqKS8)
 
@@ -122,8 +122,8 @@ He paused and added: "And everybody struggles."
 
 **Johnny Bye-Bye**<br>
 **Recorded** January 1983 (Tracks version), March 9, 1983 (*L.A. Garage Sessions '83* version)
-**Released:** *I'm on Fire* (1985), *Tracks* (1998), *L.A. Garage Sessions '83* (2025)
-**First performed:** May 13, 1981 (Manchester, England)
-**Last performed:** April 3, 1985 (Melbourne, Australia)
+**Released:** *I'm on Fire* (1985), *Tracks* (1998), *L.A. Garage Sessions '83* (2025)<br>
+**First performed:** May 13, 1981 (Manchester, England)<br>
+**Last performed:** April 3, 1985 (Melbourne, Australia)<br>
 
 © July 13,2022 / December 28, 2025

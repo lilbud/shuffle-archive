@@ -20,10 +20,10 @@ The bridge is a modern addition, I believe, and it's an essential one. It transf
 
 That's why we'll start our lyrical dissection with the bridge, rather than at the top of the song–because otherwise, the song makes very little sense. (Many's the fan who's scratched their heads trying to figure out why the song's protagonist gets the death penalty for getting high.)
 
-> *Everybody's lost in romance*
-> *Do you feel the way I feel, oh-oh*
-> *I'm just searching, girl*
-> *For the blood, for the bone, for the muscle, for what's real*
+> *Everybody's lost in romance*<br>
+> *Do you feel the way I feel, oh-oh*<br>
+> *I'm just searching, girl*<br>
+> *For the blood, for the bone, for the muscle, for what's real*<br>
 
 For those familiar with the rehearsal versions, the bridge is the most immediately obvious surgical alteration. First, the bridge was originally doubled in length–there's likely some skillful musical editing on display here. Second, Bruce's modern lyrics bear little resemblance to the semi-bluffed ones we hear in the rehearsals. (Notice that the meter is a close but not quite snug fit for these lyrics–Bruce had to add an "oh-oh" to the second line in order to match the backing track.)
 
@@ -39,50 +39,50 @@ The cleverness of "Meet Me in the City" lies in the fact that it is a romantic s
 
 That's a lot for a three-and-a-half-minute rock song to carry, isn't it? Bear with me and I'll explain. Let's take it from the top, shall we?
 
-> *Hey girl, I'm calling all stations, blowing down the wire tonight*
-> *I'm singing through these power lines, I'm running on time and feeling alright*
-> *Skipping over the currents in the air, reaching to see if you're out there*
-> *Coming across your radio station, calling out nation to nation*
-> *If you can hear me then say alright*
-> *And if you can, meet me in the city tonight*
+> *Hey girl, I'm calling all stations, blowing down the wire tonight*<br>
+> *I'm singing through these power lines, I'm running on time and feeling alright*<br>
+> *Skipping over the currents in the air, reaching to see if you're out there*<br>
+> *Coming across your radio station, calling out nation to nation*<br>
+> *If you can hear me then say alright*<br>
+> *And if you can, meet me in the city tonight*<br>
 
 This is a decidedly romantic opening verse–necessarily so, in order to set us up for the realism that follows. It also sounds like a perfect pop song verse, which is not an accident.
 
 (**Note:** I'd be remiss if I didn't take a moment to note the lyrical and metaphorical similarity to Bruce's 2007 single, "[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)"–another meta commentary on popular music.
 
-> *I was trying to find my way home*
-> *But all I heard was a drone*
-> *Bouncing off a satellite*
-> *Crushing the last lone American night*
+> *I was trying to find my way home*<br>
+> *But all I heard was a drone*<br>
+> *Bouncing off a satellite*<br>
+> *Crushing the last lone American night*<br>
 
-> *This is radio nowhere, is there anybody alive out there?*
+> *This is radio nowhere, is there anybody alive out there?*<br>
 
 Both songs feature a protagonist who appears to be reaching out to a love interest, They aren't, of course–the "you" in both songs represent something else entirely. But like I said, we'll get to that.)
 
 Let's move on to the part of the song that confuses many fans:
 
-> *I was busted for feeling no pain*
-> *Charged with doing things I can't explain*
-> *Picked up for parole violation*
-> *Locked with the boys in the subway station*
-> *Handcuffed on the killing floor*
-> *Transmitting from behind these jailhouse doors*
+> *I was busted for feeling no pain*<br>
+> *Charged with doing things I can't explain*<br>
+> *Picked up for parole violation*<br>
+> *Locked with the boys in the subway station*<br>
+> *Handcuffed on the killing floor*<br>
+> *Transmitting from behind these jailhouse doors*<br>
 
 In the first verse, the narrator is a disembodied voice riding the airwaves. In the second, we find out where he's transmitting from. Apparently, he's had a run-in with the law, and it's not his first time. It seems he has been arrested at least for public intoxication and probably for drug use–and for whatever disruptive or perhaps violent acts he committed while under the influence.
 
 Not only is our protagonist in prison, it also appears he's on death row, which makes us wonder if this is a "[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)" scenario. But perhaps all is not quite what it seems, because if taken literally, the final four lines of the second verse are an awfully strange segue:
 
-> *If you're sick, if you're tired, if you're bored*
-> *Then check the line, check the time, check the action, check the score*
-> *Come and get me if I ain't right*
-> *But if I am, meet me in the city tonight*
+> *If you're sick, if you're tired, if you're bored*<br>
+> *Then check the line, check the time, check the action, check the score*<br>
+> *Come and get me if I ain't right*<br>
+> *But if I am, meet me in the city tonight*<br>
 
 It's odd that a locked-up lover would be reaching out telepathically with such a mundane message. But remember: here comes the bridge.
 
-> *Everybody's lost in romance*
-> *Do you feel the way I feel, oh-oh*
-> *I'm just searching, girl*
-> *For the blood, for the bone, for the muscle, for what's real*
+> *Everybody's lost in romance*<br>
+> *Do you feel the way I feel, oh-oh*<br>
+> *I'm just searching, girl*<br>
+> *For the blood, for the bone, for the muscle, for what's real*<br>
 
 And *now* the song snaps into focus, as the voice of an artist–or perhaps *the* artist–emerges. The meta message of "Meet Me in the City" is a sly commentary on romanticism and the rise of realism–both in the world around us and the worlds within Bruce's music.
 
@@ -96,30 +96,30 @@ As for the protagonist character–I suspect his circumstances are highly metaph
 
 It's not as if he hasn't tried to escape–
 
-> *I was busted for feeling no pain*
-> *Charged with doing things I can't explain*
-> *Picked up for parole violation*
-> *Locked with the boys in the subway station*
-> *I pushed my way through the heart of the crowd*
-> *I shoved my way through the heart of the crowd*
-> *Past the sign saying this is not allowed*
-> *To where someone's standing straight and shouting out loud*
+> *I was busted for feeling no pain*<br>
+> *Charged with doing things I can't explain*<br>
+> *Picked up for parole violation*<br>
+> *Locked with the boys in the subway station*<br>
+> *I pushed my way through the heart of the crowd*<br>
+> *I shoved my way through the heart of the crowd*<br>
+> *Past the sign saying this is not allowed*<br>
+> *To where someone's standing straight and shouting out loud*<br>
 
 –but his audience demands more of the same. There's a reason it's called *popular* music.
 
 Although Bruce uses the pop device of a nameless "girl" addressee, it's likely that he's really addressing himself–either as a contemporaneous internal dialogue or as counsel and advice from his older and wiser self. Either way, the call to action is clear: if you can't find inspiration in an idealized world, look to the world you live in instead:
 
-> *Handcuffed to the jailhouse door*
-> *Transmitting from the gallows floor*
-> *And if you're sick, if you're tired, if you're bored*
-> *Check the line, check the time, check the action, check the score*
+> *Handcuffed to the jailhouse door*<br>
+> *Transmitting from the gallows floor*<br>
+> *And if you're sick, if you're tired, if you're bored*<br>
+> *Check the line, check the time, check the action, check the score*<br>
 
-> *If you can holler, then say alright (alright)*
-> *If you can holler, then say alright (alright)*
-> *If you can holler, then say alright (alright)*
-> *If you can holler, then say alright (alright)*
-> *If you can holler, then say alright (alright)*
-> *And if you can, meet me in the city tonight*
+> *If you can holler, then say alright (alright)*<br>
+> *If you can holler, then say alright (alright)*<br>
+> *If you can holler, then say alright (alright)*<br>
+> *If you can holler, then say alright (alright)*<br>
+> *If you can holler, then say alright (alright)*<br>
+> *And if you can, meet me in the city tonight*<br>
 
 That plea–*meet me in the city tonight*–can be read several ways: an artist inviting his audience to follow him to a new, more realistic form of songwriting; a more experienced songwriter encouraging his younger self to meet him in the middle, where their styles can converge; or of course, as the feel-good refrain of the pop song "Meet Me in the City" dresses as.
 
@@ -148,8 +148,8 @@ Will we hear from "Meet Me in the City" again? That remains to be seen–but if 
 
 **Meet Me in the City**<br>
 **Recorded** June 14, 1979 (backing track), 2015 (vocals)
-**Released:** *The River: Outtakes* (2015)
-**First performed:** December 19, 2015 (New York City, NY)
-**Last performed:** July 28, 2016 (Oslo, Norway)
+**Released:** *The River: Outtakes* (2015)<br>
+**First performed:** December 19, 2015 (New York City, NY)<br>
+**Last performed:** July 28, 2016 (Oslo, Norway)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

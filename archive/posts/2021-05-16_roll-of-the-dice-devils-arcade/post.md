@@ -28,12 +28,12 @@ We're now forty seconds into the song. Not a word has been spoken or sung, and y
 
 As the first verse begins, notice the difference from the overture: the electric guitar in our right ear is melodic rather than discordant; there's an easy, almost lazy percussion, and the love theme is front and center. This is a flashback to more innocent times.
 
-> *Remember the morning we dug up your gun*
-> *The worms in the barrel, the hangin' sun*
-> *Those first nervous evenings of perfume and gin*
-> *The lost smell on your breath as I helped you get it in*
-> *The rush of your lips, the feel of your name*
-> *The beat of your heart, the devil's arcade*
+> *Remember the morning we dug up your gun*<br>
+> *The worms in the barrel, the hangin' sun*<br>
+> *Those first nervous evenings of perfume and gin*<br>
+> *The lost smell on your breath as I helped you get it in*<br>
+> *The rush of your lips, the feel of your name*<br>
+> *The beat of your heart, the devil's arcade*<br>
 
 Our lover takes us back to our earliest days together, when our love was new and our connection was electric and all-consuming.
 
@@ -45,25 +45,25 @@ The phrase "devil's arcade" first appears at the end of this verse, simultaneous
 
 In the second verse, our sense of duty calls us to combat:
 
-> *You said heroes are needed, so heroes get made*
-> *Somebody made a bet, somebody paid*
-> *The cool desert morning, then nothin' to save*
-> *Just metal and plastic where your body caved*
-> *The slow games of poker with Lieutenant Ray*
-> *In the ward with the blue walls, a sea with no name*
-> *Where you lie adrift with the heroes of the devil's arcade*
+> *You said heroes are needed, so heroes get made*<br>
+> *Somebody made a bet, somebody paid*<br>
+> *The cool desert morning, then nothin' to save*<br>
+> *Just metal and plastic where your body caved*<br>
+> *The slow games of poker with Lieutenant Ray*<br>
+> *In the ward with the blue walls, a sea with no name*<br>
+> *Where you lie adrift with the heroes of the devil's arcade*<br>
 
 We enlist in the military out of idealism, but our lover is more cynical than we are: she recognizes the war as a rich man's creation, one that's paid with the lives of those who had nothing to do with its origin. We serve, but we accomplish little, and ultimately we're wounded severely enough to remove us from the battlefield. We heal and recuperate (physically, at least) at a field hospital, haunted by the memories of the friends we couldn't save. Able to do little but think and play listless, pointless card games, our idleness and impotence provides fertile ground for our demons to stake their claim.
 
-> *You sleep and you dream of your buddies Charlie and Jim*
-> *And wake with a thick desert dust on your skin*
+> *You sleep and you dream of your buddies Charlie and Jim*<br>
+> *And wake with a thick desert dust on your skin*<br>
 
 We drift into memory at this point, during a deliberately chaotic instrumental bridge. The narrator's love theme rides above Max Weinberg's syncopated drums (representing the firing weapons on the battlefield), desperately trying to keep us rooted in the here and now, but the battle within our psyche isn't so easily won. The theme climbs in register, but the guitar of war in our right ear climbs as well, becoming increasingly urgent and ultimately breaking through into the foreground. 
 
 We return to the present now.
 
-> *A voice says "don't worry, I'm here"*
-> *Just whisper the word "tomorrow" in my ear*
+> *A voice says "don't worry, I'm here"*<br>
+> *Just whisper the word "tomorrow" in my ear*<br>
 
 It's tonight. It's any night and every night.
 
@@ -75,18 +75,18 @@ Well, not faith exactly, but something like it.
 
 Trust, maybe. Devotion. A mutual promise–that at the end of each day, she will be there to guide us through the nights if we promise to continue facing them.
 
-> *A house on a quiet street, a home for the brave*
-> *The glorious kingdom of the sun on your face*
-> *Rising from a long night as dark as the grave*
-> *On a thin chain of next moments and something like faith*
-> *On a morning to order a breakfast to make*
-> *A bed draped in sunshine, a body that waits*
-> *For the touch of your fingers, the end of the day*
-> *The beat of your heart, the beat of your heart*
-> *The beat of your heart, the beat of your heart*
-> *The beat of your heart, the beat of her heart*
-> *The beat of your heart, the slow burning away*
-> *Of the bitter fires of the devil's arcade*
+> *A house on a quiet street, a home for the brave*<br>
+> *The glorious kingdom of the sun on your face*<br>
+> *Rising from a long night as dark as the grave*<br>
+> *On a thin chain of next moments and something like faith*<br>
+> *On a morning to order a breakfast to make*<br>
+> *A bed draped in sunshine, a body that waits*<br>
+> *For the touch of your fingers, the end of the day*<br>
+> *The beat of your heart, the beat of your heart*<br>
+> *The beat of your heart, the beat of your heart*<br>
+> *The beat of your heart, the beat of her heart*<br>
+> *The beat of your heart, the slow burning away*<br>
+> *Of the bitter fires of the devil's arcade*<br>
 
 At the "end of the day" line, notice how the rhythm quickens along with our pulse. Night is here, and the beat of our heart is both our terror at what waits as we descend into the dark and our reassurance to our love that we're still here despite it.
 
@@ -112,9 +112,9 @@ Watch this complete performance of "Devil's Arcade" from early in the tour, and 
 [Watch on Youtube: Bruce Springsteen - Devil's Arcade](https://www.youtube.com/watch?v=dMN3RYMeHnE)
 
 **Devil's Arcade**<br>
-**Recorded** March-April 2007  
+**Recorded** March-April 2007<br>
 **Released:** *Magic* (2007)
-**First performed:** September 24, 2007 (Asbury Park, NJ)
-**Last performed:** June 16, 2008 (Dusseldorf, Germany)
+**First performed:** September 24, 2007 (Asbury Park, NJ)<br>
+**Last performed:** June 16, 2008 (Dusseldorf, Germany)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

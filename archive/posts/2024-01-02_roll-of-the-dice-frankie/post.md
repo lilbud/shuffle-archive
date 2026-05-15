@@ -10,53 +10,53 @@ Unfortunately, no audio circulates from that first performance, but we have a ve
 
 It's remarkable, isn't it, how recognizable this version of "Frankie" is, yet at the same time so very different. Let's take a deeper look:
 
-> *Dark weekends in the sun, out on Chelsea Road*
-> *Descending the stairs, Frankie my love*
-> *Check your make-up in the mirror, come on, baby, let's go*
-> *We'll dance 'round this dirty town, 'till the night is all gone*
-> *Let all the finer things sleep alone tonight*
-> *Let all the minor kings lose their thrones tonight*
-> *Don't worry about me baby, I'll be alright*
+> *Dark weekends in the sun, out on Chelsea Road*<br>
+> *Descending the stairs, Frankie my love*<br>
+> *Check your make-up in the mirror, come on, baby, let's go*<br>
+> *We'll dance 'round this dirty town, 'till the night is all gone*<br>
+> *Let all the finer things sleep alone tonight*<br>
+> *Let all the minor kings lose their thrones tonight*<br>
+> *Don't worry about me baby, I'll be alright*<br>
 
 This first verse is almost identical to the released version. The imagery and metaphor are identical (including, thankfully, that wonderful "minor kings" notion), and the few wording changes are minor. The final one, though, is significant and symbolic of Frankie's journey to come: Bruce tells Frankie not to worry about *him*, because *he'll* be alright. Six years later, they'd be a team, and he'd sing "Don't worry about *us*, baby, *we'll* be alright."
 
 In the second verse, the divergence becomes more obvious. In this version, Bruce sings:
 
-> *There's machines and there's fire on the outside of town*
-> *Young boys for hire waiting to blow us all down*
-> *There are strange flashes in the sky up above*
+> *There's machines and there's fire on the outside of town*<br>
+> *Young boys for hire waiting to blow us all down*<br>
+> *There are strange flashes in the sky up above*<br>
 
 That's some impressionistic imagery there (and yes, that first line would end up in "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" five years later); Bruce paints a gritty street scene as backdrop for the lovers. Six years later, the song would instead be set against a town dying a slow economic death. (It would be easy, in fact, to imagine the 1982 version of Frankie set in the same place is "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).")
 
 In both versions, though, Bruce takes his time painting a stark backdrop so he can play up his hero's romance in the foreground, and when his lyrics open up, we feel our hearts open, too:
 
-> *I'll spend the night at the movies with my secret love*
-> *At dusk the stars all appear on the screen*
-> *Just like they do each night in my dreams*
-> *But tonight's no dream, Frankie, I can feel myself too*
-> *Living and dying like I was born to do*
+> *I'll spend the night at the movies with my secret love*<br>
+> *At dusk the stars all appear on the screen*<br>
+> *Just like they do each night in my dreams*<br>
+> *But tonight's no dream, Frankie, I can feel myself too*<br>
+> *Living and dying like I was born to do*<br>
 
 In 1982, Bruce wouldn't keep his love secret. He was a lot less self-centered, too: instead of "living and dying like I was born to do" he's sing "now and forever, baby, my love is for you."
 
 The first chorus is mostly the same in each version. In 1976, Bruce sings:
 
-> *Walk softly tonight little angel*
-> *I wanna be alone with you*
-> *Talk softly to me tonight angel*
-> *Make all my dream worlds come true*
+> *Walk softly tonight little angel*<br>
+> *I wanna be alone with you*<br>
+> *Talk softly to me tonight angel*<br>
+> *Make all my dream worlds come true*<br>
 
 In 1982, Bruce again shifts the focus away from the narrator and on to the pair: instead of "I wanna be alone with you," he notes that "into these shadows we're passing through."
 
 That third and final verse though… boy, that early version is dark:
 
-> *I remember standing in the freezing rain*
-> *Reading them want ads out on Chelsea Row*
-> *Winging down the street in search of new games*
-> *Hustling through the night packs where the actors go*
-> *Frankie they're real crazy, let's run and hide*
-> *In the darkness there'll be hidden worlds that shine*
-> *When all of the fury in this desperate land*
-> *Will rise like raindrops in the palm of my hand*
+> *I remember standing in the freezing rain*<br>
+> *Reading them want ads out on Chelsea Row*<br>
+> *Winging down the street in search of new games*<br>
+> *Hustling through the night packs where the actors go*<br>
+> *Frankie they're real crazy, let's run and hide*<br>
+> *In the darkness there'll be hidden worlds that shine*<br>
+> *When all of the fury in this desperate land*<br>
+> *Will rise like raindrops in the palm of my hand*<br>
 
 It's also somewhat familiar–when I listen to this version of "Frankie" and reach this point, I feel as if I'm back in the world of "[Incident on 57th Street.](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)" Our narrator could easily pass for Spanish Johnny, and our lovers' shining, hidden world of the street (Bruce would rescue that imagery for "[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)") feels like the very same streets of "Incident," the romance of two not-so-innocent lovers falling in love against a seedy, seamy backdrop.
 
@@ -70,15 +70,15 @@ Oh, and if there's any doubt about just how far the similarities go between Fran
 
 Yes, we heard that right: instead of…
 
-> *Let all the finer things sleep alone tonight*
-> *Let all the minor kings lose their thrones tonight*
-> *Don't worry about us, baby, we'll be alright*
+> *Let all the finer things sleep alone tonight*<br>
+> *Let all the minor kings lose their thrones tonight*<br>
+> *Don't worry about us, baby, we'll be alright*<br>
 
 Bruce sings:
 
-> *Tricks are all over with plenty of time*
-> *The dicks are all covered, straight down the line*
-> *There goes Frankie, she's not that kind*
+> *Tricks are all over with plenty of time*<br>
+> *The dicks are all covered, straight down the line*<br>
+> *There goes Frankie, she's not that kind*<br>
 
 …which gives us some brutal insight into those night packs we hear about in that original early version.
 
@@ -92,23 +92,23 @@ Besides maturing into a more selfless romance, this version of "Frankie" feature
 
 Besides the other lyrical differences we noted earlier, Bruce has significantly scrubbed and softened the final verse:
 
-> *Well lately I've been standing out in the freezing rain*
-> *Reading them want ads out on Chelsea Road*
-> *I'm winging down the street in search of new games*
-> *Hustling through these nightlights' diamond glow*
-> *Well Frankie I don't know what I'm gonna find*
-> *Maybe nothing at all, maybe a world I can call mine*
-> *Shining like these streetlights down here on the strand*
-> *Bright as the rain in the palm of your hand*
+> *Well lately I've been standing out in the freezing rain*<br>
+> *Reading them want ads out on Chelsea Road*<br>
+> *I'm winging down the street in search of new games*<br>
+> *Hustling through these nightlights' diamond glow*<br>
+> *Well Frankie I don't know what I'm gonna find*<br>
+> *Maybe nothing at all, maybe a world I can call mine*<br>
+> *Shining like these streetlights down here on the strand*<br>
+> *Bright as the rain in the palm of your hand*<br>
 
 All traces of 57th Street have been erased, and the focus is on our characters, as it should be. This new backdrop is much brighter than the old one, literally: the nightlights glow like diamonds, the streetlights shine, the rain is bright. Bruce does nothing by accident; this is Bruce's deliberate (if unsubtle) attempt to lighten the weight of the song and imbue the main characters' love with a fiery passion.
 
 And all through the years, the coda remains true, with Bruce pleading:
 
-> *Walk softly tonight, little stranger*
-> *Into these shadows where lovers go*
-> *Talk softly to me, little angel*
-> *Whisper your secrets so soft and low*
+> *Walk softly tonight, little stranger*<br>
+> *Into these shadows where lovers go*<br>
+> *Talk softly to me, little angel*<br>
+> *Whisper your secrets so soft and low*<br>
 
 …as he and Frankie find a haven on the streets, no matter how dark or light they may be.
 
@@ -145,9 +145,9 @@ Bonus #2: Here's another "Frankie" studio outtake, this one from the 1982 sessio
 <https://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3>
 
 **Frankie**<br>
-**Recorded** May 14,1982  
-**Released:** *Tracks* (1998)
-**First performed:** March 26, 1976 (Atlanta, GA)
-**Last performed:** July 20, 2016 (Horsens, Denmark)
+**Recorded** May 14,1982<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** March 26, 1976 (Atlanta, GA)<br>
+**Last performed:** July 20, 2016 (Horsens, Denmark)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

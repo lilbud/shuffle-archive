@@ -12,10 +12,10 @@ It's the second song on the album that bears its name, but the opening track "[B
 
 The first verse reads like a deliberate "Hungry Heart" callback, with a hero who doesn't know where he's going, but he knows he has to go:
 
-> *Well, house got too crowded, clothes got too tight*
-> *And I don't know just where I'm going tonight*
-> *Out where the sky's been cleared by a good hard rain*
-> *There's somebody calling my secret name*
+> *Well, house got too crowded, clothes got too tight*<br>
+> *And I don't know just where I'm going tonight*<br>
+> *Out where the sky's been cleared by a good hard rain*<br>
+> *There's somebody calling my secret name*<br>
 
 Here's what we don't yet realize: the reason that house is so crowded, is because *we're in it*. The house is a metaphor for Bruce's audience; his "clothes" are his stage persona.
 
@@ -25,28 +25,28 @@ Either way, he may not know where he's going, but he's telling us he'll know it 
 
 The second verse extends the metaphor established in the first verse:
 
-> *Had a coat of fine leather and snakeskin boots*
-> *But that coat always had a thread hanging loose*
-> *Well I pulled it one night and to my surprise*
-> *It led me right past your house and on over the rise*
+> *Had a coat of fine leather and snakeskin boots*<br>
+> *But that coat always had a thread hanging loose*<br>
+> *Well I pulled it one night and to my surprise*<br>
+> *It led me right past your house and on over the rise*<br>
 
 Let's pause for a moment on that last line, because it's significant. Bruce has just told us that his clothes, while very nice, have started to fray. (He does love those snakeskin boots, though, doesn't he? How many songs have *those* turned up in?) So he pulled on that loose thread, and notice where it led him: not *to* his love's house, but *past* it. In other words, while he needs love and family in his life, he's not escaping *to* them–he's collecting them and taking them *with* him.
 
 And it's here that we realize that "Lucky Town" isn't a love song, but rather a re-dedication song–an affirmation to both his personal and professional lives. He's learned hard lessons, and he's stronger for it:
 
-> *Well I had some victory that was just failure in deceit*
-> *Now the joke's coming up through the soles of my feet*
-> *I been a long time walking on fortune's cane*
-> *Well tonight I'm stepping lightly and feeling no pain*
+> *Well I had some victory that was just failure in deceit*<br>
+> *Now the joke's coming up through the soles of my feet*<br>
+> *I been a long time walking on fortune's cane*<br>
+> *Well tonight I'm stepping lightly and feeling no pain*<br>
 
 It's hard not to read the first couplet of the bridge as anything but a wry commentary on his first marriage, and the second is clearly an embrace of the freedom that came with walking away from mega-stardom at the height of it.
 
 The final verse is a celebration of self-determination and the sweet satisfaction that comes from taking the hard road:
 
-> *Well here's to your good looks baby, now here's to my health*
-> *Here's to the loaded places that we take ourselves*
-> *When it comes to luck, you make your own*
-> *Tonight I got dirt on my hands but I'm building me a new home*
+> *Well here's to your good looks baby, now here's to my health*<br>
+> *Here's to the loaded places that we take ourselves*<br>
+> *When it comes to luck, you make your own*<br>
+> *Tonight I got dirt on my hands but I'm building me a new home*<br>
 
 Those final lines still resonate years later, and as a personal credo you could do a lot worse. The luck we make, Bruce sings, is better than the fortune we take. It's harder, but it's genuinely yours.
 
@@ -71,8 +71,8 @@ But the full-on E Street Band version shines too. I'll leave you with a great re
 
 **Lucky Town**<br>
 **Recorded:** September 1992-January 1992  
-**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** June 24, 2023 (Gothenburg, Sweden)
+**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** June 24, 2023 (Gothenburg, Sweden)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

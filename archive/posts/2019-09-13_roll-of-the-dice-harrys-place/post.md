@@ -117,7 +117,7 @@ And apparently as good as Bruce's.
 
 **Harry's Place**<br>
 **Recorded:** 2007 and 2014  
-**Released:** *High Hopes* (2014)
+**Released:** *High Hopes* (2014)<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

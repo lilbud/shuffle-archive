@@ -16,55 +16,55 @@ The crickets establish an immediate sense of time and place: a summer evening in
 
 Bruce wastes no time establishing the scene:
 
-> *Every year when summer comes around*
-> *They stretch a banner ‘cross the main street in town*
-> *You can feel somethin' happenin' in the air*
-> *Well from Carol's house up on Telegraph Hill*
-> *You can see the lights goin' up out in the soldiers' field*
-> *Gettin' ready for the county fair*
+> *Every year when summer comes around*<br>
+> *They stretch a banner ‘cross the main street in town*<br>
+> *You can feel somethin' happenin' in the air*<br>
+> *Well from Carol's house up on Telegraph Hill*<br>
+> *You can see the lights goin' up out in the soldiers' field*<br>
+> *Gettin' ready for the county fair*<br>
 
 This lyrics are also notable for their specificity. His girl's name is Carol, and she lives on Telegraph Hill, within line of sight from Soldiers' Field. Later in the song, Bruce namedrops a fictional band, "James Young and the Immortal Ones" (I had to Google to make sure–that's how perfect a name he invented). Bruce is often deliberate with detail, but this seems like a focused attempt to bring a vision into reality.
 
-> *County fair, county fair*
-> *Everybody in town will be there*
-> *So come on, hey, we're goin' down there*
-> *Hey little girl with the long blond hair*
-> *Come win your daddy one of them stuffed bears*
-> *Baby down at the county fair*
+> *County fair, county fair*<br>
+> *Everybody in town will be there*<br>
+> *So come on, hey, we're goin' down there*<br>
+> *Hey little girl with the long blond hair*<br>
+> *Come win your daddy one of them stuffed bears*<br>
+> *Baby down at the county fair*<br>
 
 That chorus shifts the song from scene-painting to first-person excitement, and the main body of the song traces the arc of the narrator's and Carol's day at the fair:
 
-> *Now you'll be hangin' tight when we hit the top*
-> *And that rollercoaster's ready to drop*
-> *And you brag, how you wasn't even scared*
-> *Well baby you know I just love the sound*
-> *Of the pipe organ on the merry-go-round*
-> *Baby down at the county fair*
+> *Now you'll be hangin' tight when we hit the top*<br>
+> *And that rollercoaster's ready to drop*<br>
+> *And you brag, how you wasn't even scared*<br>
+> *Well baby you know I just love the sound*<br>
+> *Of the pipe organ on the merry-go-round*<br>
+> *Baby down at the county fair*<br>
 
-> *Now at the north end of the field, well they set up a stand*
-> *And they got a little Rock ‘N' Roll band*
-> *The people dancin', yeah, out in the open air*
-> *Well it's James Young and the Immortal Ones*
-> *Just two guitars, baby, bass and drums*
-> *Just rockin' down at the county fair*
+> *Now at the north end of the field, well they set up a stand*<br>
+> *And they got a little Rock ‘N' Roll band*<br>
+> *The people dancin', yeah, out in the open air*<br>
+> *Well it's James Young and the Immortal Ones*<br>
+> *Just two guitars, baby, bass and drums*<br>
+> *Just rockin' down at the county fair*<br>
 
 As the day ends, magic sets in, as it often does for young lovers on summer nights:
 
-> *Now it's gettin' late before we head back to town*
-> *We let the fortune wheel spin around*
-> *Come on mister, tell me what's waitin' out there*
-> *On my way out I steal a kiss in the dark*
-> *Hope I can remember where our car's parked*
-> *Baby at the county fair*
+> *Now it's gettin' late before we head back to town*<br>
+> *We let the fortune wheel spin around*<br>
+> *Come on mister, tell me what's waitin' out there*<br>
+> *On my way out I steal a kiss in the dark*<br>
+> *Hope I can remember where our car's parked*<br>
+> *Baby at the county fair*<br>
 
 …and then the pair are home again, sitting with full hearts in the front yard as the evening descends. Max's percussion stops–there's no forward motion now, just the present:
 
-> *Now off down the highway there's the last stream of cars*
-> *We sit a while in my front yard*
-> *With the radio playin' soft and low*
-> *I pull Carol close to my heart*
-> *And I lean back and stare up at the stars*
-> *Oh I wish never had to let this moment go*
+> *Now off down the highway there's the last stream of cars*<br>
+> *We sit a while in my front yard*<br>
+> *With the radio playin' soft and low*<br>
+> *I pull Carol close to my heart*<br>
+> *And I lean back and stare up at the stars*<br>
+> *Oh I wish never had to let this moment go*<br>
 
 And then the band stops. And for a moment, we are *in* that moment, with the lovers and the crickets.
 

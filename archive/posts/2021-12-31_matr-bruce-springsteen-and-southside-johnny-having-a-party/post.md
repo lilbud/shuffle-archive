@@ -52,6 +52,6 @@ Have a happy and safe New Year's Eve, and if you're having a party: mask up. See
 
 **Having a Party  
 First performed:** May 30, 1976 (Asbury Park, NJ)
-**Last performed:** August 7, 2019 (Asbury Park, NJ)
+**Last performed:** August 7, 2019 (Asbury Park, NJ)<br>
 
  

@@ -26,4 +26,4 @@ That May-June 2009 stretch was the only time Bruce and the E Street Band ever pl
 
 **Good Lovin'**<br>
 **First performed:** May 11, 2009 (St. Paul, MN)<br>
-**Last performed:** April 24, 2010 (New York City, NY
+**Last performed:** April 24, 2010 (New York City, NY<br>

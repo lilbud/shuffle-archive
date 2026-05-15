@@ -16,65 +16,65 @@ Lyrically, we're listening to Bruce at his braggadocious best. (I laugh out loud
 
 Like much of The Bruce Springsteen Band's repertoire, "You Better Be Nice to Me, Baby" doesn't require any lyrical analysis; this song is one hundred percent swagger. It's also so rare that there's not even an entry for it (yet) on Springsteenlyrics.com, so here are what I'm 98% certain are Bruce's lyrics:
 
-> *Got a good woman, yeah she was looking pretty fine*
-> *Yeah, we're gonna sing the same song, mama, if we're gonna get along*
-> *There's just one thing I gotta say…*
+> *Got a good woman, yeah she was looking pretty fine*<br>
+> *Yeah, we're gonna sing the same song, mama, if we're gonna get along*<br>
+> *There's just one thing I gotta say…*<br>
 
-> *I can make rain fall from a cloudless sky*
-> *I can make a bluebird forget how to fly*
-> *I can call up a river to flood your home*
-> *I can make a good girl go wrong*
+> *I can make rain fall from a cloudless sky*<br>
+> *I can make a bluebird forget how to fly*<br>
+> *I can call up a river to flood your home*<br>
+> *I can make a good girl go wrong*<br>
 
-> *So you better be nice to me baby*
-> *You better be nice to me baby*
-> *You better be nice to me baby*
-> *So I'll be nice to you*
+> *So you better be nice to me baby*<br>
+> *You better be nice to me baby*<br>
+> *You better be nice to me baby*<br>
+> *So I'll be nice to you*<br>
 
-> *I can kill at a distance of forty feet*
-> *I can steal the honey from a honeybee*
-> *I can stop a train dead with a look in my eye*
-> *I can make a grown man fall to his knees and cry*
+> *I can kill at a distance of forty feet*<br>
+> *I can steal the honey from a honeybee*<br>
+> *I can stop a train dead with a look in my eye*<br>
+> *I can make a grown man fall to his knees and cry*<br>
 
-> *So you better be nice to me baby*
-> *You better be nice to me baby*
-> *You better be nice to me baby*
-> *So I'll be nice to you*
+> *So you better be nice to me baby*<br>
+> *You better be nice to me baby*<br>
+> *You better be nice to me baby*<br>
+> *So I'll be nice to you*<br>
 
-> *[David Sancious solo]*
+> *[David Sancious solo]*<br>
 
-> *[Steve Van Zandt solo]*
+> *[Steve Van Zandt solo]*<br>
 
-> *I can turn desert land into a paradise*
-> *I can take a thorny girl and I can make her nice*
-> *I can steal all the lightning from the sky above*
-> *I can make anyone fall right in love*
+> *I can turn desert land into a paradise*<br>
+> *I can take a thorny girl and I can make her nice*<br>
+> *I can steal all the lightning from the sky above*<br>
+> *I can make anyone fall right in love*<br>
 
-> *I can swim the ocean in one week flat*
-> *I can climb a mountain with a hand behind my back*
-> *I can make a millionaire throw his money away*
-> *I can hide that cargo to Bombay*
+> *I can swim the ocean in one week flat*<br>
+> *I can climb a mountain with a hand behind my back*<br>
+> *I can make a millionaire throw his money away*<br>
+> *I can hide that cargo to Bombay*<br>
 
-> *I'll put you out on an eagle into outer space*
-> *I'm one man and I won the human race*
-> *I can shake you with love right down to your soul*
-> *I can make Lawrence Welk go rock and roll*
+> *I'll put you out on an eagle into outer space*<br>
+> *I'm one man and I won the human race*<br>
+> *I can shake you with love right down to your soul*<br>
+> *I can make Lawrence Welk go rock and roll*<br>
 
-> *I can make a whole army turn around and run*
-> *I can bend the barrel of my dad's shotgun*
-> *I can do most anything I set my mind to*
-> *And honey, I'm setting my mind to you*
+> *I can make a whole army turn around and run*<br>
+> *I can bend the barrel of my dad's shotgun*<br>
+> *I can do most anything I set my mind to*<br>
+> *And honey, I'm setting my mind to you*<br>
 
-> *So you better be nice to me baby*
-> *You better be nice to me baby*
-> *You better be nice to me baby*
-> *So I'll be nice to you*
+> *So you better be nice to me baby*<br>
+> *You better be nice to me baby*<br>
+> *You better be nice to me baby*<br>
+> *So I'll be nice to you*<br>
 
 (That's probably the most fun I've ever had deciphering and transcribing lyrics from one of Bruce's early songs.)
 
 If you enjoyed this little road trip in the wayback machine, you'll be happy to know we've got at least one more return visit ahead of us later this summer. And if not, never fear–we'll be back in Bruce's officially released catalog in just a few days.
 
 **You Better Be Nice to Me, Baby**<br>
-**First performed:** September 1, 1971 (Long Branch, NJ)
-**Last performed:** September 1, 1971 (Long Branch, NJ)
+**First performed:** September 1, 1971 (Long Branch, NJ)<br>
+**Last performed:** September 1, 1971 (Long Branch, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

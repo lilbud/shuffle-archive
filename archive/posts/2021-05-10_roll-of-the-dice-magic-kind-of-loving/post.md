@@ -12,34 +12,34 @@ But that's okay, because Bruce is focusing more on the music here–"Magic Kind 
 
 As for the lyrics, there are several lines almost impossible to decipher, but the rest are clear enough for us to grok the song without the mystery lines.
 
-> *Well I might not be no natural-born lover*
-> *Or a brown eyed handsome man*
-> *Well ???*
-> *and she said that I want you*
-> *???*
-> *She got a magic kind of loving*
-> *It sure don't matter for me*
+> *Well I might not be no natural-born lover*<br>
+> *Or a brown eyed handsome man*<br>
+> *Well ???*<br>
+> *and she said that I want you*<br>
+> *???*<br>
+> *She got a magic kind of loving*<br>
+> *It sure don't matter for me*<br>
 
-> *Well I might not be no king bee*
-> *And my baby might not be no queen*
-> *Well when she comes to the door*
-> *She says "Daddy I'm yours"*
-> *???*
-> *She got that magic kind of loving*
-> *It sure don't matter for me*
+> *Well I might not be no king bee*<br>
+> *And my baby might not be no queen*<br>
+> *Well when she comes to the door*<br>
+> *She says "Daddy I'm yours"*<br>
+> *???*<br>
+> *She got that magic kind of loving*<br>
+> *It sure don't matter for me*<br>
 
-> *Well I might not be no natural born lover*
-> *???*
-> *But whenever she's blue*
-> *She said Daddy, I want you*
-> *???*
-> *She got that magic kind of loving*
-> *And it sure does matter for me*
+> *Well I might not be no natural born lover*<br>
+> *???*<br>
+> *But whenever she's blue*<br>
+> *She said Daddy, I want you*<br>
+> *???*<br>
+> *She got that magic kind of loving*<br>
+> *And it sure does matter for me*<br>
 
 In other words, the lovers in "Magic Kind of Loving" may not be beauties, but they're all right–and that's alright with them.
 
 **Magic Kind of Loving**<br>
-**First performed:** February 4, 1972 (Richmond, VA)
-**Last performed:** February 25, 1972 (Richmond, VA)
+**First performed:** February 4, 1972 (Richmond, VA)<br>
+**Last performed:** February 25, 1972 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

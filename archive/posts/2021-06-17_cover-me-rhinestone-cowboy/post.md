@@ -1,4 +1,4 @@
-> "It was just a song that came up in an instant, you know. A really beautifully written song, and it was always one of my favorites by Glen Campbell." *— Bruce Springsteen, Variety, October 17, 2019*
+> "It was just a song that came up in an instant, you know. A really beautifully written song, and it was always one of my favorites by Glen Campbell." *— Bruce Springsteen, Variety, October 17, 2019*<br>
 
 Sure, Bruce.
 
@@ -6,7 +6,7 @@ I'm sure that's all it was: a beautiful song that came to mind in the moment whe
 
 It probably had nothing to do with its inspiration, a country singer named David Allan Coe, who wore rhinestones and a mask on stage. Why? Because, his father taught him an important lesson:
 
-> *I got the mysterious rhinestone thing from my father. He asked me, "You know the only way that The Lone Ranger can go into town? I said, "No, I don't know what you mean." He said that he has to take his mask off. I thought, what is my dad talking about and trying to tell me? He said, "Well son, you have to wear a mask and then when you don't want to be David Allan Coe you can take your mask off and go anywhere and not be like Elvis with people messin' with you all the time.*
+> *I got the mysterious rhinestone thing from my father. He asked me, "You know the only way that The Lone Ranger can go into town? I said, "No, I don't know what you mean." He said that he has to take his mask off. I thought, what is my dad talking about and trying to tell me? He said, "Well son, you have to wear a mask and then when you don't want to be David Allan Coe you can take your mask off and go anywhere and not be like Elvis with people messin' with you all the time.*<br>
 
 ![](../../assets/2021/06/dac.jpg)
 
@@ -27,7 +27,7 @@ Sometimes a rhinestone is just… well, a rhinestone.
 [Watch on Youtube: Bruce Springsteen - Rhinestone Cowboy (Film Version - Official Audio)](https://www.youtube.com/watch?v=NcnM3nju2uQ)
 
 **Rhinestone Cowboy**<br>
-**Released:** *Western Stars: Songs From the Film (2019)***First performed:** April 2019  
-**Last performed:** April 2019
+**Released:** *Western Stars: Songs From the Film (2019)***First performed:** April 2019<br>
+**Last performed:** April 2019<br>
 
 

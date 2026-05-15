@@ -18,11 +18,11 @@ Some have claimed that Suki was the inspiration for "She's the One," and certain
 
 That early version of "She's the One" was a very different song than the one Bruce would release on *Born to Run* within the year. It was clearly a post-breakup song, and Bruce's lyrics were spiteful and vituperative. In particular, it contained some lines destined for another classic altogether:
 
-> *I hated him and his fancy ways*
-> *And I hated you when you went away*
+> *I hated him and his fancy ways*<br>
+> *And I hated you when you went away*<br>
 
-> *Remember all the movies baby we'd go see*
-> *Trying to learn how to walk and talk rough just like the heroes we thought we had to be*
+> *Remember all the movies baby we'd go see*<br>
+> *Trying to learn how to walk and talk rough just like the heroes we thought we had to be*<br>
 
 Regardless of whatever might have been happening behind closed doors, though, on stage the heat and chemistry between Bruce and Suki was palpable to those who recall seeing them perform together.
 
@@ -36,13 +36,13 @@ In April, Bruce recorded the his first attempt at "Backstreets."
 
 That early studio take was almost certainly intended as a band rehearsal, as many of the lyrics were obviously bluffed. However, the arrangement was in its almost final form and the first verse was as complete as it would ever be, suggesting that while "Backstreets" may have evolved over time as have many of Bruce's songs, it likely germinated from this particular seed:
 
-> *One soft infested summer me and Terry became friends*
-> *Trying in vain to breathe the fire we was born in*
-> *Catching rides to the outskirts, tying faith between our teeth*
-> *Sleeping in that old abandoned beach house, getting wasted in the heat*
-> *And hiding on the backstreets, hiding on the backstreets*
-> *With a love so hard and filled with defeat*
-> *Running for our lives at night on them backstreets*
+> *One soft infested summer me and Terry became friends*<br>
+> *Trying in vain to breathe the fire we was born in*<br>
+> *Catching rides to the outskirts, tying faith between our teeth*<br>
+> *Sleeping in that old abandoned beach house, getting wasted in the heat*<br>
+> *And hiding on the backstreets, hiding on the backstreets*<br>
+> *With a love so hard and filled with defeat*<br>
+> *Running for our lives at night on them backstreets*<br>
 
 (Some sources cite earlier attempts at "Backstreets," as far back as late 1974 when the song was reportedly titled "Hidin' on the River." If true, I suspect that version was likely radically different than what it had evolved into by April 1975.)
 
@@ -68,19 +68,19 @@ It was worth the wait.
 
 An entire boy-meets-girl story unfolds in that first wordless minute. If we close our eyes and feel the music, we can see our narrator and Terry as they introduce themselves to each other in the first fifteen seconds, explore each other in the next twenty, draw intimately close for a first kiss in the next ten, before the rest of the E Street Band finally explodes into the scene as the curtains draw back and our story begins in earnest.
 
-> *One soft infested summer…*
+> *One soft infested summer…*<br>
 
 I'm not sure I've ever paused to analyze only four words into a song, but *come on.* How incredible is that phrase? If you have ever spent even a single sticky summer in New Jersey, you know just how on point that phrase is: *one soft infested summer*. No one has described it better before or since.
 
 Let's continue:
 
-> *One soft infested summer, me and Terry became friends*
-> *Trying in vain to breathe the fire we was born in*
-> *Catching rides to the outskirts, tying faith between our teeth*
-> *Sleeping in that old abandoned beach house, getting wasted in the heat*
-> *And hiding on the backstreets, hiding on the backstreets*
-> *With a love so hard and filled with defeat*
-> *Running for our lives at night on them backstreets*
+> *One soft infested summer, me and Terry became friends*<br>
+> *Trying in vain to breathe the fire we was born in*<br>
+> *Catching rides to the outskirts, tying faith between our teeth*<br>
+> *Sleeping in that old abandoned beach house, getting wasted in the heat*<br>
+> *And hiding on the backstreets, hiding on the backstreets*<br>
+> *With a love so hard and filled with defeat*<br>
+> *Running for our lives at night on them backstreets*<br>
 
 As I wrote earlier, this verse is the one piece of "Backstreets" that was complete from its earliest takes, and it establishes our characters' circumstances from the get-go: A summer romance, a forbidden love born from a spark of passion. (Fire is a common metaphor for passion.) A one-time encounter that our couple couldn't allow to remain one-time. But where do you go to be alone with someone who's already spoken for?
 
@@ -92,13 +92,13 @@ You go where you won't be seen, or where if you're seen you at least won't be re
 
 You run for your lives each night, because only together on those backstreets do you *feel* alive.
 
-> *Slow dancing in the dark on the beach at Stockton's Wing*
-> *Where desperate lovers park we sat with the last of the Duke Street Kings*
-> *Huddled in our cars waiting for the bells that ring*
-> *In the deep heart of the night when you let loose of everything*
-> *To go running on the backstreets, running on the backstreets*
-> *Terry you swore we'd live forever*
-> *Taking it on them backstreets together*
+> *Slow dancing in the dark on the beach at Stockton's Wing*<br>
+> *Where desperate lovers park we sat with the last of the Duke Street Kings*<br>
+> *Huddled in our cars waiting for the bells that ring*<br>
+> *In the deep heart of the night when you let loose of everything*<br>
+> *To go running on the backstreets, running on the backstreets*<br>
+> *Terry you swore we'd live forever*<br>
+> *Taking it on them backstreets together*<br>
 
 (I normally recommend not obsessing over the location of the locales that populate Bruce's songs. It distracts from the film when we focus on the set. That said, if you like putting pins in the map, consider taking a ride down south to Stockton University (known in 1975 as Stockton State College) in Galloway, about an hour's drive from Asbury Park–far enough to keep the odds of running into someone you know pretty low. There's a beach on Lake Fred, right across from the school's wings.)
 
@@ -108,14 +108,14 @@ You run for your lives each night, because only together on those backstreets do
 
 The summer passes, as summers do, and our lovers grow weary of hiding and disguising.
 
-> *Endless juke joints and Valentino drag*
-> *Where dancers scraped the tears up off the street dressed down in rags*
-> *Running into the darkness, some hurt bad some really dying*
-> *At night sometimes it seemed you could hear that whole damn city crying*
-> *Blame it on the lies that killed us, blame it on the truth that ran us down*
-> *You can blame it all on me Terry, it don't matter to me now*
-> *When the breakdown hit at midnight there was nothing left to say*
-> *But I hated him and I hated you when you went away*
+> *Endless juke joints and Valentino drag*<br>
+> *Where dancers scraped the tears up off the street dressed down in rags*<br>
+> *Running into the darkness, some hurt bad some really dying*<br>
+> *At night sometimes it seemed you could hear that whole damn city crying*<br>
+> *Blame it on the lies that killed us, blame it on the truth that ran us down*<br>
+> *You can blame it all on me Terry, it don't matter to me now*<br>
+> *When the breakdown hit at midnight there was nothing left to say*<br>
+> *But I hated him and I hated you when you went away*<br>
 
 Once again, Bruce packs the heart of his song into its bridge. *Blame it on the lies that killed us, blame it on the truth that ran us down.* Dishonesty will eat at you from the inside, and you can't run from the truth forever. It will catch up.
 
@@ -123,15 +123,15 @@ And at metaphorical midnight, it does. The end of the day, and the end of a frie
 
 We travel back in time now, to our lovers' last night together.
 
-> *Now laying here in the dark, you're like an angel on my chest*
-> *Just another tramp of hearts crying tears of faithlessness*
-> *Remember all the movies, Terry, we'd go see*
-> *Trying to learn how to walk like the heroes we thought we had to be*
-> *Well after all this time to find we're just like all the rest*
-> *Stranded in the park and forced to confess*
-> *To hiding on the backstreets, hiding on the backstreets*
-> *Well we swore forever friends*
-> *On the backstreets until the end*
+> *Now laying here in the dark, you're like an angel on my chest*<br>
+> *Just another tramp of hearts crying tears of faithlessness*<br>
+> *Remember all the movies, Terry, we'd go see*<br>
+> *Trying to learn how to walk like the heroes we thought we had to be*<br>
+> *Well after all this time to find we're just like all the rest*<br>
+> *Stranded in the park and forced to confess*<br>
+> *To hiding on the backstreets, hiding on the backstreets*<br>
+> *Well we swore forever friends*<br>
+> *On the backstreets until the end*<br>
 
 There's irony, of course, in *tears of faithlessness*. Is Terry crying over our narrator, or over her husband? The phrase works regardless. They'd spent the summer convincing themselves they were the leads in an epic romance film, forever friends even if only in hiding, but the end came sooner than they imagined. When the cameras stop and the lights come up, they're forced to admit they were doomed from the start… just like all the rest.
 
@@ -183,9 +183,9 @@ To date, Bruce has performed "Backstreets" an even 500 times. Let's hope we get 
 [Watch on Youtube: Bruce Springsteen - Backstreets (Live 2005 solo piano)](https://www.youtube.com/watch?v=NLmxhx4Zo0o)
 
 **Backstreets**<br>
-**Recorded** July 18, 1975  
-**Released:** *Born to Run* (1975)
-**First performed:** August 8, 1975 (Akron, OH)
-**Last performed:** September 3, 2023 (East Rutherford, NJ)
+**Recorded** July 18, 1975<br>
+**Released:** *Born to Run* (1975)<br>
+**First performed:** August 8, 1975 (Akron, OH)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

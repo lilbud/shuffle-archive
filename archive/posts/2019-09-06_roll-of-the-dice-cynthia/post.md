@@ -111,9 +111,9 @@ Like "[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/
 ***Want another take on "Cynthia?" Check out Katy Crane's excellent essay [here.](https://estreetshuffle.com/index.php/2021/12/06/two-faces-cynthia/)***<br>
 
 **Cynthia**<br>
-**Recorded** June 15, 1983  
-**Released:** *Tracks* (1998)
-**First performed:** August 31, 2003 (East Rutherford, NJ)
-**Last performed:** July 23, 2013 (Cardiff, Wales)
+**Recorded** June 15, 1983<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** August 31, 2003 (East Rutherford, NJ)<br>
+**Last performed:** July 23, 2013 (Cardiff, Wales)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

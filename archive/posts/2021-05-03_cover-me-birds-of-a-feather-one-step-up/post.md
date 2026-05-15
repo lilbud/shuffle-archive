@@ -2,7 +2,7 @@ Blogger's Note
 
 ***Blogger's Note:*** *If you're a Springsteen fan, have musical talent, and think you can bring a fresh perspective to one of Bruce's songs, there's still time to enter the s[econd annual Cover Me contest](https://www.noiespringsteen.com/contest/). There's no fee to enter, and the contest attracts submissions from around the world.*
 
-> *Check out the contest site for [rules and regulations](https://www.noiespringsteen.com/contest/#box-regolamento), and get your entry in by May 31, 2021. Hopefully, I'll see you at the finals in Bergamo, Italy this summer! Now, on to today's spotlight…*
+> *Check out the contest site for [rules and regulations](https://www.noiespringsteen.com/contest/#box-regolamento), and get your entry in by May 31, 2021. Hopefully, I'll see you at the finals in Bergamo, Italy this summer! Now, on to today's spotlight…*<br>
 
 Like many bands in 2020, the Birds of a Feather used the great shutdown as an opportunity to create new music–both originals and covers.
 

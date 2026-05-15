@@ -26,26 +26,26 @@ Yeats wrote a series of seven poems about a woman named Crazy Jane, who has a se
 
 Here's the most well-known of the series, Crazy Jane and the Bishop:
 
-> *I met the Bishop on the road*
-> *And much said he and I.*
-> *`Those breasts are flat and fallen now*
-> *Those veins must soon be dry;*
+> *I met the Bishop on the road*<br>
+> *And much said he and I.*<br>
+> *`Those breasts are flat and fallen now*<br>
+> *Those veins must soon be dry;*<br>
 > *Live in a heavenly mansion*,
-> *Not in some foul sty.'*
+> *Not in some foul sty.'*<br>
 
 > *`Fair and foul are near of kin*,
-> *And fair needs foul,' I cried.*
-> *‘My friends are gone, but that's a truth*
+> *And fair needs foul,' I cried.*<br>
+> *‘My friends are gone, but that's a truth*<br>
 > *Nor grave nor bed denied*,
-> *Learned in bodily lowliness*
-> *And in the heart's pride.*
+> *Learned in bodily lowliness*<br>
+> *And in the heart's pride.*<br>
 
-> *`A woman can be proud and stiff*
-> *When on love intent;*
-> *But Love has pitched his mansion in*
-> *The place of excrement;*
-> *For nothing can be sole or whole*
-> *That has not been rent.'*
+> *`A woman can be proud and stiff*<br>
+> *When on love intent;*<br>
+> *But Love has pitched his mansion in*<br>
+> *The place of excrement;*<br>
+> *For nothing can be sole or whole*<br>
+> *That has not been rent.'*<br>
 
 Through Crazy Jane, Yeats argues that age doesn't require one to give up a sexual life, and one shouldn't be ashamed for unabashedly embracing sex as an essential part of love even in old age.
 
@@ -71,62 +71,62 @@ Let's take a listen.
 
 Billy has a great idea–why don't they all head up to the lake? It's not far, and he's got some wine. Heck, they can even pick up Davy and Joe and make a party out of it.
 
-> *Crazy Janey and her mission man were back in the alley trading hands*
-> *‘Long came Wild Billy with his friend G-Man all duded up for Saturday night*
-> *Well, Billy slammed on his coaster brakes and said, "Anybody wanna go on up to Greasy Lake?*
-> *It's about a mile down on the dark side of route eighty-eight, I got a bottle of rose so let's try it*
-> *We'll pick up Hazy Davy and Killer Joe and I'll take you all out to where the gypsy angels go*
-> *They're built like light*
-> *Ooh, and they dance like spirits in the night (all night)*
-> *In the night (all night)*
-> *Oh, you don't know what they can do to you*
-> *Spirits in the night (all night)*
-> *Oh, in the night (all night)*
-> *Stand right up now and let it shoot through you*
+> *Crazy Janey and her mission man were back in the alley trading hands*<br>
+> *‘Long came Wild Billy with his friend G-Man all duded up for Saturday night*<br>
+> *Well, Billy slammed on his coaster brakes and said, "Anybody wanna go on up to Greasy Lake?*<br>
+> *It's about a mile down on the dark side of route eighty-eight, I got a bottle of rose so let's try it*<br>
+> *We'll pick up Hazy Davy and Killer Joe and I'll take you all out to where the gypsy angels go*<br>
+> *They're built like light*<br>
+> *Ooh, and they dance like spirits in the night (all night)*<br>
+> *In the night (all night)*<br>
+> *Oh, you don't know what they can do to you*<br>
+> *Spirits in the night (all night)*<br>
+> *Oh, in the night (all night)*<br>
+> *Stand right up now and let it shoot through you*<br>
 
 Did I say Billy brought wine with him? Maybe he brought something else as well:
 
-> *Well now Wild Billy was a crazy cat and he shook some dust out of his coonskin cap*
-> *He said, "Trust some of this, it'll show you where you're at, or at least it'll help you really feel it"*
+> *Well now Wild Billy was a crazy cat and he shook some dust out of his coonskin cap*<br>
+> *He said, "Trust some of this, it'll show you where you're at, or at least it'll help you really feel it"*<br>
 
 Yeah, there's some, um, pixie dust in the mix, too. Regardless, the kids pile into the car and head lakeward, and by the time they arrive, Bruce (hey, where did he come from? He must be the mission man.) and Janey have hooked up in the backseat:
 
-> *Well, by the time we made it up to Greasy Lake, I had my head out the window and Janey's fingers were in the cake*
-> *I think I really dug her 'cause I was too loose to fake*
-> *I said, "I'm hurt," she said, "Honey, let me heal it"*
-> *And we danced all night to a soul fairy band*
-> *And she kissed me just right like only a lonely angel can*
-> *She felt so nice, just as soft as a spirit in the night (all night)*
-> *In the night (all night)*
-> *Oh, Janey don't know what she do to you*
-> *Like a spirit in the night (all night)*
-> *All night (all night)*
-> *Stand right up and I let her shoot through me*
+> *Well, by the time we made it up to Greasy Lake, I had my head out the window and Janey's fingers were in the cake*<br>
+> *I think I really dug her 'cause I was too loose to fake*<br>
+> *I said, "I'm hurt," she said, "Honey, let me heal it"*<br>
+> *And we danced all night to a soul fairy band*<br>
+> *And she kissed me just right like only a lonely angel can*<br>
+> *She felt so nice, just as soft as a spirit in the night (all night)*<br>
+> *In the night (all night)*<br>
+> *Oh, Janey don't know what she do to you*<br>
+> *Like a spirit in the night (all night)*<br>
+> *All night (all night)*<br>
+> *Stand right up and I let her shoot through me*<br>
 
 If there's another literary influence at play besides Yates, it would have to be Shakespeare. With imagery of midnight revelers dancing to a "soul fairy band," it's a scene right out of *A Midsummer Night's Dream*. As the night reaches toward the dawn, though, the revelers inevitably run out of steam:
 
-> *Now the night was bright and the stars threw light on Billy and Davy*
-> *Dancing in the moonlight*
-> *They were down near the water in a stone mud fight*
-> *Killer Joe gone passed out on the lawn*
+> *Now the night was bright and the stars threw light on Billy and Davy*<br>
+> *Dancing in the moonlight*<br>
+> *They were down near the water in a stone mud fight*<br>
+> *Killer Joe gone passed out on the lawn*<br>
 
 And at this point, Bruce introduces a technique he'll return to again and again over the years: a dramatic pause followed by spare instrumentation to highlight a time-out-of-time moment for his characters. When Janey tells her mission man that it's time to go, they close their eyes and take one last silent moment before the "band" (such as it is) returns to take the song (and the characters) home.
 
-> *Well now Hazy Davy got really hurt, he ran into the lake in just his socks and a shirt*
-> *Me and Crazy Janey was making love in the dirt, singing our birthday songs*
-> *Janey said it was time to go*
-> *So we closed our eyes and said goodbye to gypsy angel row, felt so right*
-> *Together we moved like spirits in the night (all night)*
-> *In the night (all night)*
-> *Oh, you don't know what they can do to you*
-> *Them spirits in the night (all night)*
-> *All night (all night)*
-> *Oh, stand right up and let it shoot through you*
+> *Well now Hazy Davy got really hurt, he ran into the lake in just his socks and a shirt*<br>
+> *Me and Crazy Janey was making love in the dirt, singing our birthday songs*<br>
+> *Janey said it was time to go*<br>
+> *So we closed our eyes and said goodbye to gypsy angel row, felt so right*<br>
+> *Together we moved like spirits in the night (all night)*<br>
+> *In the night (all night)*<br>
+> *Oh, you don't know what they can do to you*<br>
+> *Them spirits in the night (all night)*<br>
+> *All night (all night)*<br>
+> *Oh, stand right up and let it shoot through you*<br>
 
 "Spirit in the Night" may wear some of its influences on its sleeve, but there are a few hidden up it as well: In an early radio interview, Bruce admitted to nicking a line from The Band, most likely from "The Moon Struck One."
 
-> *Little John was stung by a snake over by the lake*
-> *And it looked like he's really, really hurt, he was lying in the dirt*
+> *Little John was stung by a snake over by the lake*<br>
+> *And it looked like he's really, really hurt, he was lying in the dirt*<br>
 
 And Bruce once told Ed Sciaky that "for some reason I always imagined Joe Cocker doing ‘Spirit in the Night.' When I wrote the song I had his kind of voice in mind, which is something I rarely do."
 
@@ -179,9 +179,9 @@ Although the 1973 single went nowhere chart-wise, "Spirit in the Night" remains 
 Regardless of whether it was inspired by The Bard, The Band, the poet, or the girlfriend, its magic belongs to The Boss.
 
 **Spirit in the Night**<br>
-**Recorded** September 11, 1972 – October 26, 1972  
-**Released:** *Greetings from Asbury Park, N.J.* (1973), *The Essential Bruce Springsteen* (2003)
-**First performed:** January 31, 1973 (New York City, NY)
-**Last performed:** November 22, 2024 (Vancouver, BC)
+**Recorded** September 11, 1972 – October 26, 1972<br>
+**Released:** *Greetings from Asbury Park, N.J.* (1973), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** January 31, 1973 (New York City, NY)<br>
+**Last performed:** November 22, 2024 (Vancouver, BC)<br>
 
 © March 1, 2020

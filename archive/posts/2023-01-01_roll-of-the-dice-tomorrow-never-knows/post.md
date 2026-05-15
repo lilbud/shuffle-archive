@@ -18,34 +18,34 @@ That ease is deliberate. Bruce uses it to underscore the song's message, which i
 
 Beyond that, the song speaks for itself–until the last verse, that is. That one is worth discussing, so take a read through the lyrics, and I'll meet you on the other side.
 
-> *Where the cold wind blows*
-> *Tomorrow never knows*
-> *Where your sweet smile goes*
-> *Tomorrow never knows*
+> *Where the cold wind blows*<br>
+> *Tomorrow never knows*<br>
+> *Where your sweet smile goes*<br>
+> *Tomorrow never knows*<br>
 
-> *You and me we been standing here my dear*
-> *Waiting for our time to come*
-> *Where the green grass grows*
-> *Tomorrow never knows*
+> *You and me we been standing here my dear*<br>
+> *Waiting for our time to come*<br>
+> *Where the green grass grows*<br>
+> *Tomorrow never knows*<br>
 
-> *In the field your long hair flowed*
-> *Down by the Tildenberry tracks*
-> *There ‘neath the water tower*
-> *I carried you on my back*
+> *In the field your long hair flowed*<br>
+> *Down by the Tildenberry tracks*<br>
+> *There ‘neath the water tower*<br>
+> *I carried you on my back*<br>
 
-> *Over the rusted spikes of that highway of steel*
-> *When no more thunder sounds*
-> *Where the time goes*
-> *Tomorrow never knows*
+> *Over the rusted spikes of that highway of steel*<br>
+> *When no more thunder sounds*<br>
+> *Where the time goes*<br>
+> *Tomorrow never knows*<br>
 
-> *Well he who waits for the day's riches will be lost*
-> *In the whispering tide*
-> *Where the river flows*
-> *Tomorrow never knows*
+> *Well he who waits for the day's riches will be lost*<br>
+> *In the whispering tide*<br>
+> *Where the river flows*<br>
+> *Tomorrow never knows*<br>
 
 Bruce has said on more than one occasion that most of his songs hide a single line that contain its key, and "Tomorrow Never Knows" is no exception. If you want to know the message of the song, look no further than:
 
-> *"He who waits for the day's riches will be lost in the whispering tide."*
+> *"He who waits for the day's riches will be lost in the whispering tide."*<br>
 
 That line is significant, because without it, "Tomorrow Never Knows" would be lyrically indistinguishable from "[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)" on the same album.
 

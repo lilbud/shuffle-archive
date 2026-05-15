@@ -2,23 +2,23 @@ Of the many adjectives used to describe Bruce Springsteen's songwriting, "cinema
 
 "Cinematic" is a hard term to define, however. Ask three different motion picture professionals, and you'll likely get three different answers. Often, it refers to the use of screenplay-like stage direction to more effectively paint the scene. For example:
 
-> *The screen door slams. Mary's dress waves. Like a vision, she dances across the floor as the radio plays Roy Orbison singing for the lonely.*
+> *The screen door slams. Mary's dress waves. Like a vision, she dances across the floor as the radio plays Roy Orbison singing for the lonely.*<br>
 
 Most songs focus on a narrative; Bruce spends the first verse of "Thunder Road" simply describing the scene.
 
 Sometimes, "cinematic" songwriting refers to something more sophisticated–the art of evoking a movie in the mind of the listener without actually describing it specifically:
 
-> *It was a small town bank, it was a mess*
-> *Well I had a gun, you know the rest*
-> *Money on the floorboards, shirt was covered in blood*
-> *And she was cryin', her and me we headed south*
-> *On highway twenty nine*
+> *It was a small town bank, it was a mess*<br>
+> *Well I had a gun, you know the rest*<br>
+> *Money on the floorboards, shirt was covered in blood*<br>
+> *And she was cryin', her and me we headed south*<br>
+> *On highway twenty nine*<br>
 
 In "[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)" the central event that drives the narrative is never actually described, and yet we have it vividly in our mind. Bruce takes advantage of our familiarity with film tropes to trust that if he sets the stage, plants the prop, and skips to the outcome, we'll do the job of filling in the story.
 
 And sometimes, "cinematic" simply refers to the telling of a tale through song, focusing solely on the story with no thought to a hook or a chorus:
 
-> *Rainey Williams' playground was the Mott Haven streets, where he ran past melted candles and flower wreaths, names and photos of young black faces, whose death and blood consecrated these places. Rainey's mother said, "Rainey stay at my side, for you are my blessing you are my pride. It's your love here that keeps my soul alive. I want you to come home from school and stay inside."*
+> *Rainey Williams' playground was the Mott Haven streets, where he ran past melted candles and flower wreaths, names and photos of young black faces, whose death and blood consecrated these places. Rainey's mother said, "Rainey stay at my side, for you are my blessing you are my pride. It's your love here that keeps my soul alive. I want you to come home from school and stay inside."*<br>
 
 Bruce's catalog is filled with cinematic songs that fit one or more of the above descriptions. But to me, there's no song in Bruce's catalog more cinematic than "Downbound Train" (although "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)" shares the podium with it).
 
@@ -50,13 +50,13 @@ Bruce starts us off with the main guitar riff, with Max and Garry entering short
 
 Cinematic technique #2: the opening verse that frames the scene:
 
-> *I had a job, I had a girl*
-> *I had something going mister in this world*
-> *I got laid off down at the lumber yard*
-> *Our love went bad, times got hard*
-> *Now I work down at the car wash*
-> *Where all it ever does is rain*
-> *Don't you feel like you're a rider on a downbound train*
+> *I had a job, I had a girl*<br>
+> *I had something going mister in this world*<br>
+> *I got laid off down at the lumber yard*<br>
+> *Our love went bad, times got hard*<br>
+> *Now I work down at the car wash*<br>
+> *Where all it ever does is rain*<br>
+> *Don't you feel like you're a rider on a downbound train*<br>
 
 That opening line–"I had a job, I had a girl"–is so good, [Bruce would use it again years later](https://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/). Look at how much Bruce conveys with such economy of language: in eight syllables, we've learned that our narrator once had everything he needed.
 
@@ -64,13 +64,13 @@ We don't even really need the next two lines to tell us what happened–we alrea
 
 And that car wash line is right up there with one of my favorite Springsteen lyrics ever–it's wry and sad without edging into corny or melodramatic. But that last line is curious–following such a clever line about a car wash, that train metaphor comes from out of the blue. There's no setup or rationale for it, but once again, Bruce is telegraphing. He'll reveal all, but he's very deliberate in how he paces his clues.
 
-> *She just said "Joe I gotta go*
-> *We had it once we ain't got it any more"*
-> *She packed her bags left me behind*
-> *She bought a ticket on the Central Line*
-> *Nights as I sleep, I hear that whistle whining*
-> *I feel her kiss in the misty rain*
-> *And I feel like I'm a rider on a downbound train*
+> *She just said "Joe I gotta go*<br>
+> *We had it once we ain't got it any more"*<br>
+> *She packed her bags left me behind*<br>
+> *She bought a ticket on the Central Line*<br>
+> *Nights as I sleep, I hear that whistle whining*<br>
+> *I feel her kiss in the misty rain*<br>
+> *And I feel like I'm a rider on a downbound train*<br>
 
 Another terrific piece of songwriting here. That speech by the narrator's lost love is perfect in its meter, economy and internal rhyme, telling us all we need to know in two lines. And then comes our first revelation: she left him by train. No wonder he's obsessed with the metaphor–he's haunted by the sound of the whistle of her train departing, unable to even conjure the memory of her kiss without the soundtrack of her departure.
 
@@ -80,19 +80,19 @@ We stop.
 
 The percussion, guitar, and bass that carried us this far fades away, leaving us in an ethereal dream state limned by Steve's mandolin and Roy's synthesizer. Bruce already set up the segue just before the instrumental break, his main character drifting off into his nighttime reverie. What follows next is pure art:
 
-> *Last night I heard your voice*
-> *You were crying, crying, you were so alone*
-> *You said your love had never died*
-> *You were waiting for me at home*
-> *Put on my jacket, I ran through the woods*
-> *I ran till I thought my chest would explode*
-> *There in the clearing, beyond the highway*
-> *In the moonlight, our wedding house shone*
-> *I rushed through the yard, I burst through the front door*
-> *My head pounding hard, up the stairs I climbed*
-> *The room was dark, our bed was empty*
-> *Then I heard that long whistle whine*
-> *And I dropped to my knees, hung my head and cried*
+> *Last night I heard your voice*<br>
+> *You were crying, crying, you were so alone*<br>
+> *You said your love had never died*<br>
+> *You were waiting for me at home*<br>
+> *Put on my jacket, I ran through the woods*<br>
+> *I ran till I thought my chest would explode*<br>
+> *There in the clearing, beyond the highway*<br>
+> *In the moonlight, our wedding house shone*<br>
+> *I rushed through the yard, I burst through the front door*<br>
+> *My head pounding hard, up the stairs I climbed*<br>
+> *The room was dark, our bed was empty*<br>
+> *Then I heard that long whistle whine*<br>
+> *And I dropped to my knees, hung my head and cried*<br>
 
 This may be my single most favorite passage from any song in Bruce's catalog. Every time I hear it, I marvel at the way Bruce takes us deep into the dream, using meter and melody and language and octave to heighten the tension. The repetitively short phrasing sounds like the main character panting as he runs through the woods, escalating simultaneously in key and in desperation.
 
@@ -106,9 +106,9 @@ And oh, the pathos: his wife (we've just learned that they were married–see ho
 
 And finally, now, an almost literal coup de grace, as we learn the reason for the song's peculiar drumbeat as it returns for the song's final stanza:
 
-> *Now I swing a sledge hammer on a railroad gang*
-> *Knocking down them cross ties, working in the rain*
-> *Now don't it feel like you're a rider on a downbound train*
+> *Now I swing a sledge hammer on a railroad gang*<br>
+> *Knocking down them cross ties, working in the rain*<br>
+> *Now don't it feel like you're a rider on a downbound train*<br>
 
 In a cruel twist of irony, Joe finds himself forced to work on the railroad tracks, hauling a sledgehammer (which, thanks to Max's percussion, we now realize has been the backdrop of the entire song) that breaks his back, haunted by train whistles that break his spirit.
 
@@ -134,8 +134,8 @@ Still, these are fine and unusual performances and worth watching (even if Bruce
 
 **Downbound Train**<br>
 **Recorded:** April 27 – May 6, 1982  
-**Released:** Born in the USA (1984)
-**First performed:** July 2, 1984 (St. Paul, MN)
-**Last performed:** July 2, 2023 (Oslo, Norway)
+**Released:** Born in the USA (1984)<br>
+**First performed:** July 2, 1984 (St. Paul, MN)<br>
+**Last performed:** July 2, 2023 (Oslo, Norway)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

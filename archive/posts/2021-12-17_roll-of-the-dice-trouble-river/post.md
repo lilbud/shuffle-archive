@@ -12,17 +12,17 @@ In typical Springsteen fashion, it's easy to get caught up in the riff and the h
 
 But once you really listen to the lyrics, there's no mistaking it–especially because there are only eight lines in the entire song. (I did say it was taut, didn't I?)
 
-> *There's a river runs through this valley, cold and deep and black*
-> *Coming like a tombstone shadow across my back*
+> *There's a river runs through this valley, cold and deep and black*<br>
+> *Coming like a tombstone shadow across my back*<br>
 
-> *Woke up last night shaking, shaking from a dream*
-> *All I seen was smiling faces staring back at me*
+> *Woke up last night shaking, shaking from a dream*<br>
+> *All I seen was smiling faces staring back at me*<br>
 
-> *Snakes crawling in the house, I'm stuck in muddy ground*
-> *Tonight I'm gonna shed this skin 'cause water's rising and I'm going down to*
+> *Snakes crawling in the house, I'm stuck in muddy ground*<br>
+> *Tonight I'm gonna shed this skin 'cause water's rising and I'm going down to*<br>
 
-> *Trouble river, six foot high and rising*
-> *Trouble river, I can't keep from crying*
+> *Trouble river, six foot high and rising*<br>
+> *Trouble river, I can't keep from crying*<br>
 
 With a song this concise, Bruce doesn't leave us a lot to dissect, but there are a few things worth noting:
 
@@ -43,9 +43,9 @@ The band seems a bit nonplussed, too. Watch the video below (and yes, it's remar
 Whatever the reason, the song didn't seem to translate well to the E Street stage, and perhaps that's why we haven't seen it since. That's too bad–while I certainly wouldn't rank it amongst Bruce's best work, the successful recent outings for the musically similar "Seven Angels" and "All or Nothin' at All" suggest that there's a place for a song like "Trouble River" in Bruce's sets.
 
 **Trouble River**<br>
-**Recorded** April 6, 1990  
-**Released:** *18 Tracks* (1999)
-**First performed:** August 1, 1999 (East Rutherford, NJ)
-**Last performed:** August 1, 1999 (East Rutherford, NJ)
+**Recorded** April 6, 1990<br>
+**Released:** *18 Tracks* (1999)<br>
+**First performed:** August 1, 1999 (East Rutherford, NJ)<br>
+**Last performed:** August 1, 1999 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

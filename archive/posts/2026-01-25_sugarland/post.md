@@ -34,36 +34,36 @@ That's the theme of "Sugarland": the elusive American Dream racing far ahead of 
 
 Springsteen wastes no time establishing the stakes: our hero Tommy is drowning his despair and desperately searching for a way to stay financially afloat. His grain silos are full, but his pockets are empty.
 
-> *The rains and the field covered with tar*
-> *Can't get a price to see my way clear*
-> *I'm sitting down at the Sugarland bar*
-> *You might as well bury my body right here*
+> *The rains and the field covered with tar*<br>
+> *Can't get a price to see my way clear*<br>
+> *I'm sitting down at the Sugarland bar*<br>
+> *You might as well bury my body right here*<br>
 
-> *Tractor and combines out in the cold*
-> *Shed's piled high with the wheat we ain't sold*
-> *Silo's filled with last year's crop*
-> *If something don't break here we'll all gonna drop*
+> *Tractor and combines out in the cold*<br>
+> *Shed's piled high with the wheat we ain't sold*<br>
+> *Silo's filled with last year's crop*<br>
+> *If something don't break here we'll all gonna drop*<br>
 
 And if times weren't hard enough (the early 1980s ushered in a severe American farming crisis), Tommy has an ever-growing family to support.
 
-> *My wife's got another coming in July*
-> *She's just laying up and all she does is cry, cry, cry*
+> *My wife's got another coming in July*<br>
+> *She's just laying up and all she does is cry, cry, cry*<br>
 > *"Tommy, oh, Tommy, I'm so alone*,
-> *Tommy, oh, Tommy, oh, won't you stay home"*
+> *Tommy, oh, Tommy, oh, won't you stay home"*<br>
 
-> *Pa don't say nothing except when it rains*
-> *He sits by the window listening to the sound of passing trains*
-> *Going out at night, carrying an empty load*
-> *We got a whole lot of grain and ain't got nowhere to go*
+> *Pa don't say nothing except when it rains*<br>
+> *He sits by the window listening to the sound of passing trains*<br>
+> *Going out at night, carrying an empty load*<br>
+> *We got a whole lot of grain and ain't got nowhere to go*<br>
 
 "Sugarland" isn't just a song about farming; it's a song about betrayal. Tommy has done everything right. He's worked the land, he's been loyal, and yet he's watching his world evaporate. His wife is crying in the kitchen, and the silence in the house is becoming louder than the sound of the tractor.
 
 Bruce devotes four of the song's five verses to exposition, painstakingly establishing high stakes both emotional and financial. Everything leads up to the final verse, which leaves our hero on the verge of drastic (and possibly illegal) action.
 
-> *Well if them prices don't get no higher*
-> *I'll fill this duster with gas and set these fields on fire*
-> *Sit up on the ridge where the bluebirds fly*
-> *And watch the flames rise up against the Sugarland sky*
+> *Well if them prices don't get no higher*<br>
+> *I'll fill this duster with gas and set these fields on fire*<br>
+> *Sit up on the ridge where the bluebirds fly*<br>
+> *And watch the flames rise up against the Sugarland sky*<br>
 
 Tommy is contemplating agricultural arson. Is it a protest? A scream of helpless ness? Insurance fraud? If the land is worth more to burned than arable, well then…
 
@@ -74,9 +74,9 @@ We never find out. "Sugarland" not only doesn't resolve a story, it doesn't even
 It's a theme carried over from *Nebraska*, explored throughout *L.A. Garage Sessions '83*, and into *Born in the U.S.A.* and beyond.
 
 **Sugarland**<br>
-**Recorded** January – February 1983  
+**Recorded** January – February 1983<br>
 **Released:** *L.A. Garage Sessions '83* (2025)
-**First performed:** November 16, 1984 (Ames, IA)
-**Last performed:** November 18, 1984 (Lincoln, NE)
+**First performed:** November 16, 1984 (Ames, IA)<br>
+**Last performed:** November 18, 1984 (Lincoln, NE)<br>
 
 © January 25, 2026

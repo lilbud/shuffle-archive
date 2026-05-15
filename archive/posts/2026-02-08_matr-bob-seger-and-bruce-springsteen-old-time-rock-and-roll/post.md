@@ -21,7 +21,7 @@ That performance is a lot harder to find than the 2011, but here it is for your 
 [Watch Video Highlight](https://videopress.com/embed/bLlxnLzl)
 
 **Old Time Rock and Roll**<br>
-**First performed:** July 23, 1989 (Asbury Park, NJ)
-**Last performed:** December 1, 2011 (New York City, NY)
+**First performed:** July 23, 1989 (Asbury Park, NJ)<br>
+**Last performed:** December 1, 2011 (New York City, NY)<br>
 
 © February 1, 2020

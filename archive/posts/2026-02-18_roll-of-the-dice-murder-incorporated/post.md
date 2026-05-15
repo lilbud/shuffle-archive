@@ -1,4 +1,4 @@
-> "There's a body count incorporated into our way of life. We've come to accept the expendability of some of our citizens' lives and dreams as just a part of the price of doing business." *–Bruce Springsteen, December 17, 1995*
+> "There's a body count incorporated into our way of life. We've come to accept the expendability of some of our citizens' lives and dreams as just a part of the price of doing business." *–Bruce Springsteen, December 17, 1995*<br>
 
 It was a Tuesday night in the dead of winter, and a lucky invite-only crowd packed the floor at the appropriately-named Tramps in New York City.
 
@@ -42,18 +42,18 @@ In other words: murder as a business.
 
 And certainly the song can be read literally as a tale of life in the 1930s and 1940s when Murder Incorporated ruled the streets, claiming hundreds of lives.
 
-> *Bobby's got a gun that he keeps beneath his pillow*
-> *Out on the street your chances are zero*
-> *Take a look around you*
-> *It ain't too complicated*
-> *You're messing with Murder Incorporated*
+> *Bobby's got a gun that he keeps beneath his pillow*<br>
+> *Out on the street your chances are zero*<br>
+> *Take a look around you*<br>
+> *It ain't too complicated*<br>
+> *You're messing with Murder Incorporated*<br>
 
-> *Now you check over your shoulder everywhere that you go*
-> *Walking down the street, there's eyes in every shadow*
-> *You better take a look around you*
-> *That equipment you got's so outdated*
-> *You can't compete with Murder Incorporated*
-> *Everywhere you look now: Murder Incorporated*
+> *Now you check over your shoulder everywhere that you go*<br>
+> *Walking down the street, there's eyes in every shadow*<br>
+> *You better take a look around you*<br>
+> *That equipment you got's so outdated*<br>
+> *You can't compete with Murder Incorporated*<br>
+> *Everywhere you look now: Murder Incorporated*<br>
 
 But Bruce is never one to pass up a good metaphor, so we can safely assume that "Murder Incorporated" is more than just a film noir "Jungleland." (Plus, Bruce gave up the game when introducing the song nightly on the Ghost of Tom Joad Tour–see the pull quote at the top.)
 
@@ -63,30 +63,30 @@ The deck is stacked against certain members of our society. The game is rigged. 
 
 A gun is such a potent symbol of violence that when Bruce introduces it in the first line of the song, we might assume that "Murder Incorporated" centers around gun violence. But it doesn't–the gun is a metaphorical security blanket that's just about as effective at protection as a literal one. Or as Bruce puts it during a bridge that builds in intensity and desperation until Bruce practically pants his way into the final verse:
 
-> *So you keep a little secret down deep inside your dresser drawer*
-> *For dealing with the heat you're feeling down on the killing floor*
-> *No matter where you step you feel you're never out of danger*
-> *So the comfort that you keep's a gold-plated snub-nose thirty-two*
+> *So you keep a little secret down deep inside your dresser drawer*<br>
+> *For dealing with the heat you're feeling down on the killing floor*<br>
+> *No matter where you step you feel you're never out of danger*<br>
+> *So the comfort that you keep's a gold-plated snub-nose thirty-two*<br>
 
-> *I hear that you got a job downtown, man it leaves your head cold*
-> *And everywhere you look life ain't got no soul*
-> *That apartment you live in feels like it's just a place to hide*
-> *When you're walking down the street you won't meet no one eye to eye*
-> *Now the cops reported you as just another homicide*
-> *I can tell that you was just frustrated*
-> *From living with Murder Incorporated*
+> *I hear that you got a job downtown, man it leaves your head cold*<br>
+> *And everywhere you look life ain't got no soul*<br>
+> *That apartment you live in feels like it's just a place to hide*<br>
+> *When you're walking down the street you won't meet no one eye to eye*<br>
+> *Now the cops reported you as just another homicide*<br>
+> *I can tell that you was just frustrated*<br>
+> *From living with Murder Incorporated*<br>
 
 If there was any doubt about the message of "Murder Incorporated," the last verse dispels it. Powerless, meaningless, nameless–just another casualty of the callousness in our society.
 
 As I prep this article for publication, I'm finishing Week Seven of sheltering in place, and I can't help but hear "Murder Incorporated" in an entirely new context.
 
-> *Out in the street your chances are zero.*
+> *Out in the street your chances are zero.*<br>
 
-> *That equipment you got's so outdated.*
+> *That equipment you got's so outdated.*<br>
 
-> *No matter where you step you feel you're never out of danger.*
+> *No matter where you step you feel you're never out of danger.*<br>
 
-> *That apartment you live in feels like it's just a place to hide.*
+> *That apartment you live in feels like it's just a place to hide.*<br>
 
 And yet, when I turn on the TV, talking heads debate the morality of dismantling the economy for all in order to save the lives of a relative few–even though they amount to a number so high that they're recorded as just another homicide.
 
@@ -114,9 +114,9 @@ Bruce would continue to perform "Murder Incorporated" many times with the Houser
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nJPDVsqagF0)
 
 **Murder Incorporated**<br>
-**Recorded** May 3-4, 1982  
-**Released:** *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
-**First performed:** February 21, 1995 (New York City, NY)
-**Last performed:** July 3, 2025 (Milan, Italy)
+**Recorded** May 3-4, 1982<br>
+**Released:** *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** February 21, 1995 (New York City, NY)<br>
+**Last performed:** July 3, 2025 (Milan, Italy)<br>
 
 © April 19, 2020

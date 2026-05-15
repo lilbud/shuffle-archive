@@ -129,9 +129,9 @@ Remind yourself, like Bruce does: *I'm alive!*
 Someday we'll be out there on our own.
 
 **Ghosts**<br>
-**Recorded** November 2019  
+**Recorded** November 2019<br>
 **Released:** *Letter to You* (2020)
-**First performed:** December 12, 2020 (New York City, NY)
-**Last performed:** June 11, 2025 (Berlin, Germany)
+**First performed:** December 12, 2020 (New York City, NY)<br>
+**Last performed:** June 11, 2025 (Berlin, Germany)<br>
 
 © July 6, 2023

@@ -24,33 +24,33 @@ So a song called "Little Girl Like You"… let's just say that including this so
 
 Check out the lyrics:
 
-> *I want a little house, on a little hill*
-> *I wanna settle down, yeah I think I will*
-> *Settle down and find a little love that's true*
-> *Settle down with a girl like you*
+> *I want a little house, on a little hill*<br>
+> *I wanna settle down, yeah I think I will*<br>
+> *Settle down and find a little love that's true*<br>
+> *Settle down with a girl like you*<br>
 
-*Seen a lot of girls, h**ad a lot of fun*
-*Ran around a lot, n**ow my runnin's done*
-*Honey, all I want, w**anna be runnin' to*
-> *Is the arms of a girl like you*
+> *Seen a lot of girls, h**ad a lot of fun*<br>
+> *Ran around a lot, n**ow my runnin's done*<br>
+> *Honey, all I want, w**anna be runnin' to*<br>
+> *Is the arms of a girl like you*<br>
 
-*You start living life l**ike you just don't care*
-*You done everything, yo**u been everywhere*
-*But what I done ain't nothin' t**o what I wanna do*
-> *When I find a little girl like you*
+> *You start living life l**ike you just don't care*<br>
+> *You done everything, yo**u been everywhere*<br>
+> *But what I done ain't nothin' t**o what I wanna do*<br>
+> *When I find a little girl like you*<br>
 
-*We'll get married i**n a church down a winding path*
-*Tell a lot of jokes, h**ave a lot of laughs*
-> *Do whatever it is that we wannna do*
-> *Long as I do it with a girl like you*
+> *We'll get married i**n a church down a winding path*<br>
+> *Tell a lot of jokes, h**ave a lot of laughs*<br>
+> *Do whatever it is that we wannna do*<br>
+> *Long as I do it with a girl like you*<br>
 
-*Hey little stranger, w**alkin' down the street*
-*You're the only one can* *make my life complete*
-*I got a plan but i**t's made for two*
-> *So I need a little girl like you*
-> *Yeah hey, I need a little girl like you*
-> *Oh honey I need a little girl like you  
-Oh baby I need a little girl like you*
+> *Hey little stranger, w**alkin' down the street*<br>
+> *You're the only one can* *make my life complete*<br>
+> *I got a plan but i**t's made for two*<br>
+> *So I need a little girl like you*<br>
+> *Yeah hey, I need a little girl like you*<br>
+> *Oh honey I need a little girl like you*<br>
+> *Oh baby I need a little girl like you*<br>
 
 
 It's not just the repeated "little girl" phrasing that's problematic. It's the context of a song about a guy who seems more interested in having someone *like* you rather than you in particular. Or more pointedly, he seems more interested in companionship than in a companion.
@@ -62,8 +62,8 @@ In 1983, these lyrics were offensive. Today, they're also creepy.
 So, yeah: this is a lost track that probably should have stayed lost.
 
 **Little Girl Like You**<br>
-**Recorded:** January 20, 1983  
-**Released:** *L.A. Garage Sessions '83* (2025)
+**Recorded:** January 20, 1983
+**Released:** *L.A. Garage Sessions '83* (2025)<br>
 **Never performed**<br>
 
 © June 15, 2018 / December 12, 2025

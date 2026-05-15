@@ -1,4 +1,4 @@
-> "Any song… that you don't understand the meaning to is always about sex.'" *–Bruce Springsteen introducing "Does This Bus Stop on 82nd Street?", February 19, 2003*
+> "Any song… that you don't understand the meaning to is always about sex.'" *–Bruce Springsteen introducing "Does This Bus Stop on 82nd Street?", February 19, 2003*<br>
 
 On the evening of March 23, 2012 in Tampa, early in the Wrecking Ball Tour, Bruce swapped out "[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)" for a tour premiere of "Does This Bus Stop on 82nd Street."
 
@@ -46,7 +46,7 @@ Even the songwriter was forced to admit there's not a lot of substance here:
 
 *Bless your children, give them names* ("I just liked that.")
 
-> *Don't trust men who walk with canes*
+> *Don't trust men who walk with canes*<br>
 *Drink this and you'll grow wings on your feet* ("I just liked *that*.")
 
 *Broadway Mary, Joan Fontaine* ("Those New York City girls…")
@@ -69,8 +69,8 @@ Even the songwriter was forced to admit there's not a lot of substance here:
 
 *And Mary Lou, she found out how to cope, she rides to heaven on a gyroscope* ("balance… It's a talent.")
 
-> *The Daily News asks her for the dope*
-> *She says, "Man, the dope's that there's still hope"*
+> *The Daily News asks her for the dope*<br>
+> *She says, "Man, the dope's that there's still hope"*<br>
 
 "That's the song. The song that you get on the album… I don't have it. I got *close* to it, but I didn't have it. But somebody once said that a good rock song is really only one good line, you just need one good line that takes you where you want to go and the other stuff is like, kinda getting there, you know, and I think that's true. As long as you find that one good one, that takes it and puts it on the record."
 
@@ -80,8 +80,8 @@ But wait: we're not quite done. Remember that "third part" Bruce referred to bac
 
 *Senorita, Spanish rose* ("my first girlfriend")
 
-> *wipes her eyes and blows her nose*
-> *Uptown in Harlem she throws a rose to some lucky young matador*
+> *wipes her eyes and blows her nose*<br>
+> *Uptown in Harlem she throws a rose to some lucky young matador*<br>
 
 ("That's love, kisses, some fancy I got of myself as some spankin' uptown dude and just… good things. All the joy in life.")
 
@@ -102,9 +102,9 @@ So until we catch that bus again, here's one more performance to enjoy–the las
 [Watch on Youtube: Does This Bus Stop at 82nd Street - Bruce Springsteen - Perth Arena - 22-01-2017](https://www.youtube.com/watch?v=isGuAxRlZ-w)
 
 **Does This Bus Stop at 82nd Street?**<br>
-**Recorded** June 27-July 12, 1972  
+**Recorded** June 27-July 12, 1972<br>
 **Released:** [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1972), *Tracks* (demo, 1998)
-**First performed:** August 10, 1972 (New York City, NY)
-**Last performed:** November 9, 2024 (Ottawa, Ontario)
+**First performed:** August 10, 1972 (New York City, NY)<br>
+**Last performed:** November 9, 2024 (Ottawa, Ontario)<br>
 
 © March 30, 2020

@@ -111,9 +111,9 @@ I'll leave you with one more, and it's a special one: a dedication from Bruce to
 Now I'm going to Tony Roma's.
 
 **Secret Garden**<br>
-**Recorded** January 1995  
-**Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)
-**First performed:** April 5, 1995 (New York City, NY)
-**Last performed:** February 14, 2017 (Brisbane, Australia)
+**Recorded** January 1995<br>
+**Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)<br>
+**First performed:** April 5, 1995 (New York City, NY)<br>
+**Last performed:** February 14, 2017 (Brisbane, Australia)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

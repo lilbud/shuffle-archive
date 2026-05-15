@@ -79,7 +79,10 @@ What happens to good people when faced with hard times? That's a question Bruce 
 > *Found myself sittin'*
 > *On the curb outside Sill's house*
 
-Forced to find a new job but unable to do so, Jimmy remembers his brother-in-law's words: *You got a wife and a child to feed.* *There's no one, buddy, lookin' out here for you.* *In this world a man takes what he can o**r he ain't nothin' but a fool."*
+Forced to find a new job but unable to do so, Jimmy remembers his brother-in-law's words:
+
+> *You got a wife and a child to feed.* *There's no one, buddy, lookin' out here for you.*
+> *In this world a man takes what he can or he ain't nothin' but a fool.*
 
 Bruce employs an interesting storytelling device at this point, flashing forward to the trial but still keeping us in suspense about the offense. Jimmy now sits behind bars, unable to do anything but reflect on the consequences of his actions between visits from his wife and child.
 

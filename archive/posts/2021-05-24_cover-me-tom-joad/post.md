@@ -1,4 +1,4 @@
-It was the centerpiece of one of the very first concept albums, and it inspired one of Bruce Springsteen's finest ballads.*
+It was the centerpiece of one of the very first concept albums, and it inspired one of Bruce Springsteen's finest ballads.
 
 Woody Guthrie recorded "Tom Joad" in two parts for his 1940 *Dust Bowl Ballads* album, because at almost seven minutes, his retelling of John Steinbeck's *The Grapes of Wrath* was too long to fit on a single side of a 78 rpm record.
 

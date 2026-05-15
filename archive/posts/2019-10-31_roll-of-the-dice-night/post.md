@@ -116,7 +116,7 @@ Both have minor lyrical differences (including some bluffing in the earlier vers
 **Night**<br>
 **Recorded:** May 10, 1975  
 **Released:** *Born to Run* (1975)
-**First performed:** August 13, 1975 (New York City, NY)
-**Last performed:** September 3, 2023 (East Rutherford, NJ)
+**First performed:** August 13, 1975 (New York City, NY)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

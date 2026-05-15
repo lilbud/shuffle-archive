@@ -30,21 +30,21 @@ But when Casey told me that she holds Nora as if every time might be the last, w
 
 When I listen to "I'll See You in My Dreams" tonight, I don't hear Bruce's voice or even my own. I hear my daughter's voice singing it, and her daughter's voice. And even though Bruce wrote it as as a song of heartbreak, remembrance and defiance, to me it's now a song of comfort, life, and promise.
 
-> *The road is long and seeming without end*
-> *The days go on, I remember you my friend*
-> *And though you're gone and my heart's been empty it seems*
-> *I'll see you in my dreams*
+> *The road is long and seeming without end*<br>
+> *The days go on, I remember you my friend*<br>
+> *And though you're gone and my heart's been empty it seems*<br>
+> *I'll see you in my dreams*<br>
 
-> *I got your guitar here by the bed*
-> *All your favorite records and all the books that you read*
-> *And though my soul feels like it's been split at the seams*
-> *I'll see you in my dreams*
+> *I got your guitar here by the bed*<br>
+> *All your favorite records and all the books that you read*<br>
+> *And though my soul feels like it's been split at the seams*<br>
+> *I'll see you in my dreams*<br>
 
-> *I'll see you in my dreams when all our summers have come to an end*
-> *I'll see you in my dreams, we'll meet and live and laugh again*
-> *I'll see you in my dreams, up around the river bend*
-> *For death is not the end*
-> *And I'll see you in my dreams*
+> *I'll see you in my dreams when all our summers have come to an end*<br>
+> *I'll see you in my dreams, we'll meet and live and laugh again*<br>
+> *I'll see you in my dreams, up around the river bend*<br>
+> *For death is not the end*<br>
+> *And I'll see you in my dreams*<br>
 
 Bruce writes from the perspective of the one left behind, and his song is laced with loss. He's at the age when Death is a more frequent visitor, and his heart has been emptied, his soul torn.
 
@@ -81,9 +81,9 @@ Happy Thanksgiving.
 [Watch on Youtube: September 11, 2021](https://www.youtube.com/watch?v=xJum7B1KnkA)
 
 **I'll See You in My Dreams**<br>
-**Recorded** November 2019  
-**Released:** *Letter to You* (2020)
-**First performed:** November 18, 2020 (Colts Neck, NJ)
-**Last performed:** September 11, 2021 (New York City, NY)
+**Recorded** November 2019<br>
+**Released:** *Letter to You* (2020)<br>
+**First performed:** November 18, 2020 (Colts Neck, NJ)<br>
+**Last performed:** September 11, 2021 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -18,29 +18,29 @@ But let's not get distracted by the instrumental performance, because we need to
 
 "The Train Song" starts out innocently enough, with our narrator travelling back home to New Orleans to reunite with his long-separated love.
 
-> *Locomotive number 9 travelling down to New Orleans*
-> *Spitting fire, smoke black as coal, the hottest that I've ever seen*
-> *Oh Engineer, Mr. Engineer, won't you please get me home on time*
-> *‘Cause I can't stay away, no not another day from the pretty little woman of mine*
+> *Locomotive number 9 travelling down to New Orleans*<br>
+> *Spitting fire, smoke black as coal, the hottest that I've ever seen*<br>
+> *Oh Engineer, Mr. Engineer, won't you please get me home on time*<br>
+> *‘Cause I can't stay away, no not another day from the pretty little woman of mine*<br>
 
-> *I been a long time riding oh down this rusty track*
-> *And I fear that I'd never get home*
-> *Long time dreaming of what I'll do when I get back*
-> *Be there when the morning comes, when the morning comes*
+> *I been a long time riding oh down this rusty track*<br>
+> *And I fear that I'd never get home*<br>
+> *Long time dreaming of what I'll do when I get back*<br>
+> *Be there when the morning comes, when the morning comes*<br>
 
-> *Hey there Mr. Conductor, can you tell me what time we're due*
-> *Well I hate to seem impatient but you'd be excited too*
-> *If you had a pretty little woman like I got just waiting for you back at home*
-> *And once I reach her loving arms I never again shall roam*
+> *Hey there Mr. Conductor, can you tell me what time we're due*<br>
+> *Well I hate to seem impatient but you'd be excited too*<br>
+> *If you had a pretty little woman like I got just waiting for you back at home*<br>
+> *And once I reach her loving arms I never again shall roam*<br>
 
 So far, so standard. We're not breaking any new ground here; this is just a simple southern-flavored country-rock road song.
 
 But suddenly–and I do mean suddenly–about three minutes in, the song takes an abrupt left turn.
 
-> *Seems kinda hard to believe that I'm going home at last*
-> *They say that things have changed, well I guess a lot of time has passed*
-> *And just a few more miles and a little more time before you know it I'll be there*
-> *And I'll be waltzing arm in arm with my darling electric chair*
+> *Seems kinda hard to believe that I'm going home at last*<br>
+> *They say that things have changed, well I guess a lot of time has passed*<br>
+> *And just a few more miles and a little more time before you know it I'll be there*<br>
+> *And I'll be waltzing arm in arm with my darling electric chair*<br>
 
 Now this certainly won't be the last time that Bruce introduces a plot twist in a song, but he'll certainly get a lot more graceful about it. As it stands, this one lands with a bewildering thud.
 
@@ -66,9 +66,9 @@ The problem's in the execution.
 [Watch on Youtube: Steel Mill - The Train Song (Live At The Matrix 1970)](https://www.youtube.com/watch?v=BM7k_WmzfIM)
 
 **The Train Song**<br>
-**Recorded** February 22, 1970  
+**Recorded** February 22, 1970<br>
 **Never released**<br>
-**First performed:** January 13, 1970 (San Francisco, CA)
-**Last performed:** January 13, 1970 (San Francisco, CA)
+**First performed:** January 13, 1970 (San Francisco, CA)<br>
+**Last performed:** January 13, 1970 (San Francisco, CA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

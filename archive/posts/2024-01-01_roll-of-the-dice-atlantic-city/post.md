@@ -1,5 +1,5 @@
-> *Everything dies, baby, that's a fact.  
-But maybe everything that dies someday comes back.*
+> *Everything dies, baby, that's a fact.*<br>
+> *But maybe everything that dies someday comes back.*<br>
 
 That's one of the finest couplets Bruce has ever written.
 
@@ -39,61 +39,61 @@ Bruce Springsteen's "Atlantic City" is set in the early years of the casino era�
 
 The opening lines of the song set the stage:
 
-> *Well they blew up the chicken man in Philly last night*
-> *Now they blew up his house too*
+> *Well they blew up the chicken man in Philly last night*<br>
+> *Now they blew up his house too*<br>
 
 The Chicken Man was Philip Testa, a local Philly mob boss who had indeed been murdered (by a bomb) by an underling in March 1981, shortly before Bruce wrote "Atlantic City," suggesting that Bruce was catalyzed by the event to write the song. Testa's death ignited a violent mob war that played out over more than a decade across the metropolitan area.
 
-> *Down on the boardwalk they're getting ready for a fight*
-> *Gonna see what them racket boys can do*
-> *Now there's trouble busting in from outta state*
-> *And the D.A. can't get no relief*
-> *Gonna be a rumble out on the promenade*
-> *And the gambling commissions hanging on by the skin of its teeth*
+> *Down on the boardwalk they're getting ready for a fight*<br>
+> *Gonna see what them racket boys can do*<br>
+> *Now there's trouble busting in from outta state*<br>
+> *And the D.A. can't get no relief*<br>
+> *Gonna be a rumble out on the promenade*<br>
+> *And the gambling commissions hanging on by the skin of its teeth*<br>
 
 The scene is clearly set–we are contemporaneously in the early casino days, the South Philly mafia proving too strong for the overpowered local law and gaming commissions (the latter of which was itself facing a federal corruption investigation).
 
 And now, the song's chorus and key theme appears:
 
-> *Well now everything dies baby that's a fact*
-> *But maybe everything that dies someday comes back*
-> *Put your makeup on, fix your hair up pretty*
-> *And meet me tonight in Atlantic City*
+> *Well now everything dies baby that's a fact*<br>
+> *But maybe everything that dies someday comes back*<br>
+> *Put your makeup on, fix your hair up pretty*<br>
+> *And meet me tonight in Atlantic City*<br>
 
 So it's the city itself that dies and then came back! At this point in the song, it seems that the narrator is referring to the town's premise and promise that gambling would restore the city's vitality, and he's determined and excited to be a part of it. But maybe that's not all…
 
-> *Well I got a job and tried to put my money away*
-> *But I got debts that no honest man can pay*
-> *So I drew what I had from the Central Trust*
-> *And I bought us two tickets on that Coast City bus*
+> *Well I got a job and tried to put my money away*<br>
+> *But I got debts that no honest man can pay*<br>
+> *So I drew what I had from the Central Trust*<br>
+> *And I bought us two tickets on that Coast City bus*<br>
 
-> *Now baby everything dies baby that's a fact*
-> *But maybe everything that dies someday comes back*
-> *Put your makeup on, fix your hair up pretty*
-> *And meet me tonight in Atlantic City*
+> *Now baby everything dies baby that's a fact*<br>
+> *But maybe everything that dies someday comes back*<br>
+> *Put your makeup on, fix your hair up pretty*<br>
+> *And meet me tonight in Atlantic City*<br>
 
 Ah… so it's not just the town; it's also our protagonist's fortunes that have died. His debts that no honest man can pay (a line that sounds like foreshadowing even if you don't recognize that line from another song about an outlaw) are leading him to Atlantic City, where he hopes he can gamble his way back to life.
 
-> *Now our luck may have died and our love may be cold*
-> *But with you forever I'll stay*
-> *We're going out where the sand's turning to gold*
-> *So put on your stockings, baby, 'cause the night's getting cold*
+> *Now our luck may have died and our love may be cold*<br>
+> *But with you forever I'll stay*<br>
+> *We're going out where the sand's turning to gold*<br>
+> *So put on your stockings, baby, 'cause the night's getting cold*<br>
 
 Wait… so now he's got romantic problems as well? His relationship has died, but if all goes well where the sand turns to gold (a wonderful line), maybe that will come back to life, too.
 
 So now we have *three* different layers to death and resurrection. But Bruce isn't done yet:
 
-> *Now I've been looking for a job but it's hard to find*
-> *Down here it's just winners and losers and don't get caught on the wrong side of that line*
-> *Well I'm tired of coming out on this losing end*
-> *So honey last night I met this guy and I'm gonna do a little favor for him*
+> *Now I've been looking for a job but it's hard to find*<br>
+> *Down here it's just winners and losers and don't get caught on the wrong side of that line*<br>
+> *Well I'm tired of coming out on this losing end*<br>
+> *So honey last night I met this guy and I'm gonna do a little favor for him*<br>
 
 Bam! That devastating last line makes everything crystal clear: our hero isn't going to A.C. to try his luck on the slots; he's taken a contract from the mob. And he knows full well the danger:
 
-> *Well I guess everything dies baby that's a fact*
-> *But maybe everything that dies someday comes back*
-> *Put your makeup on, fix your hair up pretty*
-> *And meet me tonight in Atlantic City*
+> *Well I guess everything dies baby that's a fact*<br>
+> *But maybe everything that dies someday comes back*<br>
+> *Put your makeup on, fix your hair up pretty*<br>
+> *And meet me tonight in Atlantic City*<br>
 
 He's accepted his fate. He knows full well the risk he's taking, but hey–if everything that dies some day comes back, maybe he will, too.
 
@@ -137,8 +137,8 @@ In any arrangement, in any setting, "Atlantic City" remains one of Bruce's crown
 
 **Atlantic City**<br>
 **Recorded:** December 1981 – January 1982  
-**Released:** *Nebraska* (1982), *In Concert/MTV Plugged* (1993), *Greatest Hits* (1995), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007)
-**First performed:** June 29, 1984 (St. Louis, MO)
-**Last performed:** September 3, 2023 (East Rutherford, NJ)
+**Released:** *Nebraska* (1982), *In Concert/MTV Plugged* (1993), *Greatest Hits* (1995), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007)<br>
+**First performed:** June 29, 1984 (St. Louis, MO)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

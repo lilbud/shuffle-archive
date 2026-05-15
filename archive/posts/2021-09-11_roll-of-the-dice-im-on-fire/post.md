@@ -40,27 +40,27 @@ So maybe it's the lyrics. Unlike "[Hungry Heart](https://estreetshuffle.com/inde
 
 It's almost silly to try and analyze "I'm on Fire," so blatant are its lyrics.
 
-> *Hey little girl is your daddy home*
-> *Did he go away and leave you all alone*
-> *I got a bad desire*
-> *Oh I'm on fire*
+> *Hey little girl is your daddy home*<br>
+> *Did he go away and leave you all alone*<br>
+> *I got a bad desire*<br>
+> *Oh I'm on fire*<br>
 
-> *Tell me now baby is he good to you*
-> *Can he do to you the things that I do*
-> *I can take you higher*
-> *Oh I'm on fire*
+> *Tell me now baby is he good to you*<br>
+> *Can he do to you the things that I do*<br>
+> *I can take you higher*<br>
+> *Oh I'm on fire*<br>
 
-> *Sometimes it's like someone took a knife baby edgy and dull*
-> *And cut a six-inch valley through the middle of my soul*
+> *Sometimes it's like someone took a knife baby edgy and dull*<br>
+> *And cut a six-inch valley through the middle of my soul*<br>
 
-> *At night I wake up with the sheets soaking wet*
-> *And a freight train running through the middle of my head*
-> *Only you can cool my desire*
-> *Oh I'm on fire*
+> *At night I wake up with the sheets soaking wet*<br>
+> *And a freight train running through the middle of my head*<br>
+> *Only you can cool my desire*<br>
+> *Oh I'm on fire*<br>
 
 The entire song boils down to:
 
-> *I'm completely obsessed with you, and you should really be with me because I'm way better in bed than that guy you're with.*
+> *I'm completely obsessed with you, and you should really be with me because I'm way better in bed than that guy you're with.*<br>
 
 There's really nothing else left to comment on, except perhaps for the "skull/soul" debate. (He sings the former on both vinyl and stage despite clearly writing the latter in every printed source, including his official web site to this day. This is a more substantial difference than the "sways/waves" thing). Or perhaps we could debate whether the sheets are soaking wet from sweat or some other nocturnal emission.
 
@@ -101,9 +101,9 @@ But in a nice bit of circle closure, shortly before his death Johnny Cash record
 [Watch on Youtube: I'm On Fire By Johnny Cash - Music Video](https://www.youtube.com/watch?v=VN9RKaL1wD4)
 
 **I'm on Fire**<br>
-**Recorded** May 11, 1982  
-**Released:** *Born in the U.S.A.* (1984)
-**First performed:** June 29, 1984 (Saint Paul, MN)
-**Last performed:** July 2, 2023 (Oslo, Norway)
+**Recorded** May 11, 1982<br>
+**Released:** *Born in the U.S.A.* (1984)<br>
+**First performed:** June 29, 1984 (Saint Paul, MN)<br>
+**Last performed:** July 2, 2023 (Oslo, Norway)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

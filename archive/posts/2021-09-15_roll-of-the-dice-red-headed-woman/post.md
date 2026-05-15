@@ -2,21 +2,21 @@
 >
 >
 >
-> — *Bruce Springsteen introducing "Red Headed Woman," September 25, 1996*
+> — *Bruce Springsteen introducing "Red Headed Woman," September 25, 1996*<br>
 
 Ladies and gentlemen, the comedy stylings of Mr. Bruce Springsteen:
 
-> *"If you can pronounce it, you can probably do it. ‘Cunnilingus!' See? You're ready!"*
+> *"If you can pronounce it, you can probably do it. ‘Cunnilingus!' See? You're ready!"*<br>
 
-> *"I got a lot of theories about cunnilingus. I got a political theory, which is that if Bob Dole hadn't pushed that 15 percent tax cut and instead promoted cunnilingus in place of it, he might be president right now. So my theory is that's how Bill Clinton got elected: he's the only candidate people could actually imagine practicing cunnilingus!"*
+> *"I got a lot of theories about cunnilingus. I got a political theory, which is that if Bob Dole hadn't pushed that 15 percent tax cut and instead promoted cunnilingus in place of it, he might be president right now. So my theory is that's how Bill Clinton got elected: he's the only candidate people could actually imagine practicing cunnilingus!"*<br>
 
-> *"I do mean practicing though, because it's not as easy as it looks. It takes a lot of practice, a lot of attention and craft and detail, it takes a lot of patience, patience, and more patience."*
+> *"I do mean practicing though, because it's not as easy as it looks. It takes a lot of practice, a lot of attention and craft and detail, it takes a lot of patience, patience, and more patience."*<br>
 
-> *"The upside is you score a lot of big points with the missus. Next time you do something stupid, you can always stand back and say ‘Darling, remember that lovely evening when we practiced cunnilingus?' And she'll say ‘If you think that makes a difference… actually that was pretty nice, let's do that again.'"*
+> *"The upside is you score a lot of big points with the missus. Next time you do something stupid, you can always stand back and say ‘Darling, remember that lovely evening when we practiced cunnilingus?' And she'll say ‘If you think that makes a difference… actually that was pretty nice, let's do that again.'"*<br>
 
-> *"If there´s any children left in the auditorium, ´cunnilingus´ is Latin for ‘Keep your room very clean'."*
+> *"If there´s any children left in the auditorium, ´cunnilingus´ is Latin for ‘Keep your room very clean'."*<br>
 
-> *"It's a metaphor for true love, just a metaphor!"*
+> *"It's a metaphor for true love, just a metaphor!"*<br>
 
 This may be the only time I ever compare Bruce Springteen to ALF, but I have to believe that every time Bruce performs "Red Headed Woman" (and at least when he talks about it) he's gotta be thinking, "I kill me!" Depending on your predisposition, there's very little more endearing or eye roll-inducing than watching Bruce Springsteen crack himself up on stage.
 
@@ -34,40 +34,40 @@ Now if it was just that pair of off-tour performances, "Red Headed Woman" might 
 
 So what possessed Bruce to focus his songwriting talents in that particular direction? All I can offer is a little historical context. If Bruce debuted "Red Headed Woman" in November 1990, he likely wrote it shortly before–perhaps shortly after the birth of the eldest Springsteen child over the summer. One might assume that marital relations had resumed in the Springsteen/Scialfa household, and all was right with the world.
 
-> *Well brunettes are fine man*
-> *And blondes are fun*
-> *But when it comes to getting the dirty job done*
-> *I'll take a red headed woman*
-> *A red headed woman*
-> *Yeah a red headed woman*
-> *Sure can get that job done*
+> *Well brunettes are fine man*<br>
+> *And blondes are fun*<br>
+> *But when it comes to getting the dirty job done*<br>
+> *I'll take a red headed woman*<br>
+> *A red headed woman*<br>
+> *Yeah a red headed woman*<br>
+> *Sure can get that job done*<br>
 
-> *Well listen up stud*
-> *Your life's been wasted*
-> *‘Til you've been down on your knees on and tasted*
-> *A red headed woman*
-> *A red headed woman*
-> *Yeah a red headed woman*
-> *Sure gets a dirty job done*
+> *Well listen up stud*<br>
+> *Your life's been wasted*<br>
+> *‘Til you've been down on your knees on and tasted*<br>
+> *A red headed woman*<br>
+> *A red headed woman*<br>
+> *Yeah a red headed woman*<br>
+> *Sure gets a dirty job done*<br>
 
-> *Yeah well tight skirt, strawberry hair*
-> *Tell me what you've got baby, waiting under there*
-> *Big green eyes that look like sun*
-> *They can see every cheap thing that you ever done*
+> *Yeah well tight skirt, strawberry hair*<br>
+> *Tell me what you've got baby, waiting under there*<br>
+> *Big green eyes that look like sun*<br>
+> *They can see every cheap thing that you ever done*<br>
 
-> *Well I don't care how many girls you've dated*
-> *You ain't lived till you've had your tires rotated*
-> *By a red headed woman*
-> *A red headed woman*
-> *A red headed woman*
-> *Sure can get the job done*
+> *Well I don't care how many girls you've dated*<br>
+> *You ain't lived till you've had your tires rotated*<br>
+> *By a red headed woman*<br>
+> *A red headed woman*<br>
+> *A red headed woman*<br>
+> *Sure can get the job done*<br>
 
-> *Well now all you girls out there tonight sure look fine*
-> *But my heart and soul and this body of mine*
-> *Is a red headed woman's*
-> *Belongs to a red headed woman*
-> *Yeah a red headed woman*
-> *Sure gets the dirty job done*
+> *Well now all you girls out there tonight sure look fine*<br>
+> *But my heart and soul and this body of mine*<br>
+> *Is a red headed woman's*<br>
+> *Belongs to a red headed woman*<br>
+> *Yeah a red headed woman*<br>
+> *Sure gets the dirty job done*<br>
 
 Now, if you're expecting my usual deep song analysis, I will sadly disappoint today–not because I'm a prude, but rather because there no depths to plumb here. "Red Headed Woman" is about exactly what Bruce has always proclaimed it to be about, and that's all there really is to say about it.
 
@@ -77,10 +77,10 @@ Like, seriously: there are only two verses that focus on oral sex, and each love
 
 It's true that in later years, Bruce added a verse to tilt the song a little more toward his partner, but even so…
 
-> *Well push come to shove*
-> *And shove come to push*
-> *I was Moses kneeling for the burning bush*
-> *Of a red headed woman*
+> *Well push come to shove*<br>
+> *And shove come to push*<br>
+> *I was Moses kneeling for the burning bush*<br>
+> *Of a red headed woman*<br>
 
 [Watch on Youtube: Springsteen - Red Headed Woman (Clip from Springsteen & I) .... Cunnilingus Intro!!!!!!](https://www.youtube.com/watch?v=s94HqnK6RQE)
 
@@ -101,9 +101,9 @@ Oh, and not just Bonnie, but also Bruce Hornsby, Mary Chapin Carpenter, Shawn Co
 [Watch on Youtube: Bruce Springsteen - Red Headed Woman [Washington September 3, 1999]](https://www.youtube.com/watch?v=34cYMiXkFOE)
 
 **Red Headed Woman**<br>
-**Recorded** Late 1990  
+**Recorded** Late 1990<br>
 **Never released**<br>
 **Frist performed:** November 16, 1990 (Los Angeles, CA)
-**Last performed:** March 26, 2013 (Melbourne, Australia)
+**Last performed:** March 26, 2013 (Melbourne, Australia)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

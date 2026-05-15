@@ -6,24 +6,24 @@ The result is a carefully crafted song that gradually builds instrumental intens
 
 [Watch on Youtube: Valentine's Day](https://www.youtube.com/watch?v=h5XgjPfL8KM)
 
-> *I'm driving a big lazy car rushin' up the highway in the dark*
+> *I'm driving a big lazy car rushin' up the highway in the dark*<br>
 
 At first, it does indeed sound like we're out for an evening drive–there's a relaxing, ambling tempo that belies what Bruce sings next:
 
-> *I got one hand steady on the wheel and one hand's tremblin' over my heart*
-> *It's pounding baby like it's gonna bust right on through*
-> *And it ain't gonna stop till I'm alone again with you*
+> *I got one hand steady on the wheel and one hand's tremblin' over my heart*<br>
+> *It's pounding baby like it's gonna bust right on through*<br>
+> *And it ain't gonna stop till I'm alone again with you*<br>
 
 Now *that's* how you set a scene.
 
 We're instantly plunged into the middle of a story. What happened right before we got here to make our protagonist so consumed by adrenaline?
 
-> *A friend of mine became a father last night*
-> *When we spoke in his voice I could hear the light*
-> *Of the skies and the rivers, the timberwolf in the pines*
-> *And that great jukebox out on Route 39*
-> *They say he travels fastest who travels alone*
-> *But tonight I miss my girl, mister tonight I miss my home*
+> *A friend of mine became a father last night*<br>
+> *When we spoke in his voice I could hear the light*<br>
+> *Of the skies and the rivers, the timberwolf in the pines*<br>
+> *And that great jukebox out on Route 39*<br>
+> *They say he travels fastest who travels alone*<br>
+> *But tonight I miss my girl, mister tonight I miss my home*<br>
 
 Aha–we still don't know where we was, but we do know that his encounter with a new father (in real life, Bruce was inspired by Jon Landau's recent entry into fatherhood) has shaken him to his core. As any father knows, those first moments with your child are transformative: in a heartbeat, your life has a new purpose, and that first day as a parent–I remember mine well–is more vivid and indelible than any day prior or since.
 
@@ -31,23 +31,23 @@ Our narrator picks up on that by osmosis. His friend is so altered, so heightene
 
 He may be racing home, but he isn't able to outrun his experience. His thoughts–still noticing every sight and sound–are counterpoint to the leisurely pace of the music.
 
-> *Is it the sound of the leaves left blown by the wayside*
-> *That's got me out here on this spooky old highway tonight*
-> *Is it the cry of the river with the moonlight shining through*
-> *That ain't what scares me baby, what scares me is losing you*
+> *Is it the sound of the leaves left blown by the wayside*<br>
+> *That's got me out here on this spooky old highway tonight*<br>
+> *Is it the cry of the river with the moonlight shining through*<br>
+> *That ain't what scares me baby, what scares me is losing you*<br>
 
 And there it is: he's realized that while he doesn't have a child, he does have someone who fills life with the same color, the same vividness as his friend's new child, and the power of that tie, that bond, pulls him homeward. And that pull is irresistible.
 
 The final verse in this chorus-less song lays it all bare with a meta-wink from Bruce to his fans:
 
-> *They say if you die in your dreams, you really die in your bed*
-> *But honey last night I dreamed my eyes rolled straight back in my head*
-> *And God's light came shinin' on through*
-> *I woke up in the darkness scared and breathin' and born anew*
-> *It wasn't the cold river bottom I felt rushing over me*
-> *It wasn't the bitterness of a dream that didn't come true*
-> *It wasn't the wind in the grey fields I felt rushing through my arms*
-> *No no baby, baby it was you*
+> *They say if you die in your dreams, you really die in your bed*<br>
+> *But honey last night I dreamed my eyes rolled straight back in my head*<br>
+> *And God's light came shinin' on through*<br>
+> *I woke up in the darkness scared and breathin' and born anew*<br>
+> *It wasn't the cold river bottom I felt rushing over me*<br>
+> *It wasn't the bitterness of a dream that didn't come true*<br>
+> *It wasn't the wind in the grey fields I felt rushing through my arms*<br>
+> *No no baby, baby it was you*<br>
 
 Could it be a coincidence that Bruce pairs imagery of a river with a callback ("the bitterness of a dream that didn't come true") to the very song of his that bears its name? I suppose it could be. But I doubt it–the contrast is too powerful to be accidental.
 
@@ -57,8 +57,8 @@ I'm absolutely convinced that "Valentine's Day" is meant to be a counterpoint to
 
 In fact, the narrator's last words, just before the car vanishes off into the horizon, almost make one wonder whether these are in fact the same characters from "The River."
 
-> *So hold me close honey, say you're forever mine*
-> *And tell me you'll be my lonely valentine*
+> *So hold me close honey, say you're forever mine*<br>
+> *And tell me you'll be my lonely valentine*<br>
 
 Interesting choice of words, there: "my *lonely* valentine." Perhaps these aren't star-crossed lovers. Perhaps they've grown distant, their love cooler. But there's clearly a bond between them, and it's powerful–a different kind of power than the heat of young love, but a strong pull nonetheless.
 
@@ -77,8 +77,8 @@ When Bruce performed "Valentine's Day" in Portland, he received a mid-set standi
 "Valentine's Day" has gone missing since that tour, however–it's been absent now for almost as long as it went unperformed originally. But if the cards hold another acoustic tour in Bruce's future, I suspect we haven't heard the last of it.
 
 **Valentine's Day****Recorded:** early 1987  
-**Released:** *Tunnel of Love* (1987)
-**First performed:** July 23, 2005 (Atlanta, GA)
-**Last performed:** October 21, 2005 (Providence, RI)
+**Released:** *Tunnel of Love* (1987)<br>
+**First performed:** July 23, 2005 (Atlanta, GA)<br>
+**Last performed:** October 21, 2005 (Providence, RI)<br>
 
 (c) June 12, 2018

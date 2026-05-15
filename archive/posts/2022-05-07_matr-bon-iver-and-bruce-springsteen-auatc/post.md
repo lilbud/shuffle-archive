@@ -12,7 +12,7 @@ Bon Iver was one of the first bands to release new music during the great pandem
 
 "AUATC" was another benefit single, in this case more against than for a cause. "AUATC" is decidedly anti-capitalist in theme, and to ensure that the somewhat cryptic lyrics didn't go over listeners' heads, the band issued a statement when they released the song.
 
-> *We are calling attention to the fight against capitalism and our collective participation in its dominant institutions. Bon Iver acknowledges our own position within and use of capitalistic practices. It is with recognition of our privilege that we are fully committed to using our unique platform to challenge and change capitalism within our industry, and far beyond.*
+> *We are calling attention to the fight against capitalism and our collective participation in its dominant institutions. Bon Iver acknowledges our own position within and use of capitalistic practices. It is with recognition of our privilege that we are fully committed to using our unique platform to challenge and change capitalism within our industry, and far beyond.*<br>
 
 The song's theme apparently resonated with other artists, too–because among the background vocals are the voices of Jenny Lewis, Jenn Wasner, and Bruce Springsteen.
 
@@ -21,6 +21,6 @@ Bruce, of course, has been known to speak out against the excesses and abuses of
 Presumably that's by intent, in keeping with the song's theme. But for hardcore Springsteen fans like us, eager to hear our guy's contributions stand out, we'll have to look (and listen) elsewhere.
 
 **AUATC**<br>
-**Recorded** 2020  
-**Released:** *AUATC* (single) (August 5, 2020)
+**Recorded** 2020<br>
+**Released:** *AUATC* (single) (August 5, 2020)<br>
 **Never performed**<br>

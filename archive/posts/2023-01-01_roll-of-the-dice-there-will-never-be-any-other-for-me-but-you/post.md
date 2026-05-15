@@ -16,10 +16,10 @@ But as the tour wore on, it seemed like Bruce grew bored: "[Sell It and They Wil
 
 But let's give it a shot anyway.
 
-> *Princess Di may find another man*
-> *Prince Charles may want to live his life as a tampon in another woman's underpants*
-> *I know what he feels like, I've been there too*
-> *But there will never be any other for me but you*
+> *Princess Di may find another man*<br>
+> *Prince Charles may want to live his life as a tampon in another woman's underpants*<br>
+> *I know what he feels like, I've been there too*<br>
+> *But there will never be any other for me but you*<br>
 
 If that first couplet has you scratching your head, you probably weren't of an age to pay attention to the gossip columns in 1993. Suffice it to say that the royal prince had been captured on tape confessing to his paramour his wish to be reincarnated as… well, google "tampongate" if you want to learn more.
 
@@ -27,24 +27,24 @@ Why this was still on Bruce's mind three years later, I can't explain. But while
 
 Let's move on to the second verse, which at least was current at the time:
 
-> *Will Elizabeth Taylor get married again, buddy, that's the question*
-> *Poor Larry Fortensky got busted on his Harley for illegal weapons possession*
-> *I've been that down, I've been that crazy, I've been that much of a fool*
-> *But there will never be any other for me but you*
+> *Will Elizabeth Taylor get married again, buddy, that's the question*<br>
+> *Poor Larry Fortensky got busted on his Harley for illegal weapons possession*<br>
+> *I've been that down, I've been that crazy, I've been that much of a fool*<br>
+> *But there will never be any other for me but you*<br>
 
 Elizabeth Taylor was in the sunset of her career in 1996, but her romantic entanglements still made the news. Larry Fortensky was her eighth husband, but not for long, it seemed–he'd recently been arrested for illegal weapons and substance possession while in the company of another woman. Again, another example of the extremes one may go to when trapped in the wrong relationship.
 
-> *A love that's real is a love that's hard*
-> *Like a pit bull on your ass in a very small backyard*
-> *A love that's hard can be a love that's true*
-> *But there will never be any other for me but you*
+> *A love that's real is a love that's hard*<br>
+> *Like a pit bull on your ass in a very small backyard*<br>
+> *A love that's hard can be a love that's true*<br>
+> *But there will never be any other for me but you*<br>
 
 Despite the crass metaphor, that bridge actually contains surprisingly deep and true insight for a man who'd only been (re-)married for about five years at that point. The notion that a relationship can be both challenging and natural at the same time is a realization many of us come to over a much longer period of time.
 
-> *Sean and Madonna, Donald and Ivana*
-> *They said they'd have a love that would forever and ever be true*
-> *Once I said those words… I meant 'em, too*
-> *But there will never be any other for me but you*
+> *Sean and Madonna, Donald and Ivana*<br>
+> *They said they'd have a love that would forever and ever be true*<br>
+> *Once I said those words… I meant 'em, too*<br>
+> *But there will never be any other for me but you*<br>
 
 Bruce actually swapped famous names in and out for that verse. Depending on the night and the mood, he might name check Elvis and Priscilla, Jim and Tammy Faye Bakker, Pamela Anderson and Tommy Lee, or "your name here" and Madonna. (He'd change up the second line too, in order to rhyme with whoever he decided to "honor" that night.)
 
@@ -57,7 +57,7 @@ Hearing the song for the first time in concert, did his fans understand the true
 **There Will Never Be Any Other for Me But You**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** September 19, 1996 (Providence, RI)
-**Last performed:** May 10, 1997 (Warsaw, Poland)
+**First performed:** September 19, 1996 (Providence, RI)<br>
+**Last performed:** May 10, 1997 (Warsaw, Poland)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -48,6 +48,6 @@ Bruce clearly enjoys playing "Jesse James" and since he's found an arrangement t
 **Recorded:** November 2, 1997<br>
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
-**Last performed:** May 16, 2015 (Asbury Park, NJ)
+**Last performed:** May 16, 2015 (Asbury Park, NJ)<br>
 
 © July 10, 2019

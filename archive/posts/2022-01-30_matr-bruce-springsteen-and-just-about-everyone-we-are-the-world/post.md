@@ -1,4 +1,4 @@
-> "Anytime somebody asks you to take one night of your time to stop people starving to death... you can't say no." — *Bruce Springsteen, January 28, 1985*
+> "Anytime somebody asks you to take one night of your time to stop people starving to death... you can't say no." — *Bruce Springsteen, January 28, 1985*<br>
 
 In late November 1984, the biggest names in British and Irish popular music banded together in the studio to record "Do They Know It's Christmas," which became an instant smash hit and raised more than £8 million for African famine relief in the song's first year.
 

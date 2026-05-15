@@ -68,7 +68,7 @@ Nevertheless, it offers a fascinating peek into Bruce's songwriting process, and
 
 **Bring on the Night**  
 **Recorded:** June 13, 1979  
-**Released:** *Tracks* (1998)
+**Released:** *Tracks* (1998)<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

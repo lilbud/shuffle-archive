@@ -18,19 +18,19 @@ The entire E Street Band is as tight during these three and a half minutes as we
 
 But "Dollhouse" has lyrics, too, so let's check them out.
 
-> *Ever since you were a little girl*
-> *You set the rules in your little world*
-> *But girls grow up and throw their toys away*
-> *You're a big girl now, but you still wanna play*
+> *Ever since you were a little girl*<br>
+> *You set the rules in your little world*<br>
+> *But girls grow up and throw their toys away*<br>
+> *You're a big girl now, but you still wanna play*<br>
 
-> *(Girl we're living) You dress them up the way you want to*
-> *(Girl we're living) You make them do just what you want them to do*
-> *(Girl we're living) Once I thought we had a love that was true*
-> *(Girl we're living, living, living, living) But I'm just another doll in your dollhouse to you*
-> *We're living in a dollhouse*
-> *Oh we're living in a dollhouse*
-> *Girl, we're living in a dollhouse*
-> *You may feel safe and sound but your dollhouse, girl, is falling down*
+> *(Girl we're living) You dress them up the way you want to*<br>
+> *(Girl we're living) You make them do just what you want them to do*<br>
+> *(Girl we're living) Once I thought we had a love that was true*<br>
+> *(Girl we're living, living, living, living) But I'm just another doll in your dollhouse to you*<br>
+> *We're living in a dollhouse*<br>
+> *Oh we're living in a dollhouse*<br>
+> *Girl, we're living in a dollhouse*<br>
+> *You may feel safe and sound but your dollhouse, girl, is falling down*<br>
 
 "Dollhouse" is one of Bruce's earlier relationship songs–if we can label it as such, because this is not a very healthy relationship.
 
@@ -38,41 +38,41 @@ This is a love affair gone south, and our narrator harbors some resentment towar
 
 Bruce never lets go of the metaphor throughout the entire song. It's clear that our narrator is bitter and has at least one foot out the door. (Notably, he hasn't left yet, though–the song is written in the present tense.)
 
-> *It's all been neatly arranged in your mind*
-> *Every detail fits your own design*
-> *Every room is perfectly in place*
-> *But I can see the sadness, baby, on your face*
+> *It's all been neatly arranged in your mind*<br>
+> *Every detail fits your own design*<br>
+> *Every room is perfectly in place*<br>
+> *But I can see the sadness, baby, on your face*<br>
 
-> *(Girl we're living) You had a plan and darling like a child*
-> *(Girl we're living) You thought it's down to fashion, down to style*
-> *(Girl we're living) But your little dream house is running wild*
-> *(Girl we're living, living, living, living) Before your very eyes we're shrinking down to size*
-> *We're living in a dollhouse*
-> *Oh we're living in a dollhouse*
-> *Girl, we're living in a dollhouse*
-> *We may feel safe and sound*
-> *But our dollhouse, girl, is falling down*
+> *(Girl we're living) You had a plan and darling like a child*<br>
+> *(Girl we're living) You thought it's down to fashion, down to style*<br>
+> *(Girl we're living) But your little dream house is running wild*<br>
+> *(Girl we're living, living, living, living) Before your very eyes we're shrinking down to size*<br>
+> *We're living in a dollhouse*<br>
+> *Oh we're living in a dollhouse*<br>
+> *Girl, we're living in a dollhouse*<br>
+> *We may feel safe and sound*<br>
+> *But our dollhouse, girl, is falling down*<br>
 
 In the second verse, Bruce sneaks in a crucial piece of information–the girl isn't happy, either. That new fact–plus the "baby" that accompanies and softens it–tempers the bitterness of the first verse with a modicum of sympathy.
 
 Also notice how the last line of the chorus switches from "your dollhouse" to "our dollhouse," implying that our narrator is still trying to save the relationship.
 
-> *Everything's as you dreamed it would be*
-> *But there's something wrong that you can't see*
-> *Room by room you're looking for some little flaw*
-> *A crack somewhere in your dollhouse wall*
+> *Everything's as you dreamed it would be*<br>
+> *But there's something wrong that you can't see*<br>
+> *Room by room you're looking for some little flaw*<br>
+> *A crack somewhere in your dollhouse wall*<br>
 
-> *(Girl we're living) Something, girl, that will explain away*
-> *(Girl we're living) The hurt you feel, darling, when we play*
-> *(Girl we're living) Your little dolls they got a grip on you*
-> *(Girl we're living) Your little dolls they got a grip on you*
-> *(Girl we're living) Your little dolls they got a grip on you*
-> *(Girl we're living, living, living, living) Until you're just another doll in your dollhouse too*
-> *We're living in a dollhouse*
-> *Oh we're living in a dollhouse*
-> *Girl, we're living in a dollhouse*
-> *We may feel safe and sound*
-> *But our dollhouse, girl, is falling down*
+> *(Girl we're living) Something, girl, that will explain away*<br>
+> *(Girl we're living) The hurt you feel, darling, when we play*<br>
+> *(Girl we're living) Your little dolls they got a grip on you*<br>
+> *(Girl we're living) Your little dolls they got a grip on you*<br>
+> *(Girl we're living) Your little dolls they got a grip on you*<br>
+> *(Girl we're living, living, living, living) Until you're just another doll in your dollhouse too*<br>
+> *We're living in a dollhouse*<br>
+> *Oh we're living in a dollhouse*<br>
+> *Girl, we're living in a dollhouse*<br>
+> *We may feel safe and sound*<br>
+> *But our dollhouse, girl, is falling down*<br>
 
 If we're looking for a key line in "Dollhouse," we'll find it in the warning Bruce makes in the third verse: *Your little dolls they got a grip on you, until you're just another doll in your dollhouse, too.* If you have to control the people in your life, if you have to set the terms of your interactions and relationships, then you're essentially just an actor in a play, a doll's tea party.
 
@@ -95,10 +95,10 @@ Even before "Dollhouse" was finally released (almost 20 years after it was recor
 
 But there's one new section that stands out for those of us familiar with the studio version:
 
-> *You got your dolls with your pretty lace and frills*
-> *You just can't hold your little red pills*
-> *You need to keep your fears safe and sound*
-> *I'd like to burn your dollhouse down*
+> *You got your dolls with your pretty lace and frills*<br>
+> *You just can't hold your little red pills*<br>
+> *You need to keep your fears safe and sound*<br>
+> *I'd like to burn your dollhouse down*<br>
 
 Not only did that excised verse break the song's spell by abandoning the metaphor in the second line, that last line tips the narrator into unsympathetic terrain. Both are likely reasons for the verse being ultimately discarded.
 
@@ -107,9 +107,9 @@ Not only did that excised verse break the song's spell by abandoning the metapho
 [Watch on Youtube: Bruce Springsteen Living in A Doll House AKA Dollhouse](https://www.youtube.com/watch?v=QfndficoGvg)
 
 **Dollhouse**<br>
-**Recorded** August 20-21, 1979  
-**Released:** *Tracks* (1998); *The Ties That Bind* (2015)
-**First performed:** April 24, 1999 (Vienna, Austria)
-**Last performed:** April 25, 1999 (Vienna, Austria)
+**Recorded** August 20-21, 1979<br>
+**Released:** *Tracks* (1998); *The Ties That Bind* (2015)<br>
+**First performed:** April 24, 1999 (Vienna, Austria)<br>
+**Last performed:** April 25, 1999 (Vienna, Austria)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

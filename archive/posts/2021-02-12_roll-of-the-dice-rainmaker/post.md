@@ -1,4 +1,4 @@
-> "[Rainmaker] was sort of the one that stood in for the album I didn't make." *–Bruce Springsteen to Brian Hiatt, Rolling Stone, September 20, 2020*
+> "[Rainmaker] was sort of the one that stood in for the album I didn't make." *–Bruce Springsteen to Brian Hiatt, Rolling Stone, September 20, 2020*<br>
 
 I'm not one hundred percent certain, but I think Bruce meant that literally.
 
@@ -42,55 +42,55 @@ He'd made the rain, hadn't he?
 
 Bruce's rainmaker could easily be Hatfield, so neatly do his lyrics fit the story. But like I wrote earlier, the rainmaker is a metaphor for politicians and civic figures who prey on people's fear and desperation to fleece them for money and power.
 
-> *Parched crops dying ‘neath a dead sun*
-> *We've been praying but no good comes*
-> *The dog's howling, home's stripped bare*
-> *We've been worried but now we're scared*
+> *Parched crops dying ‘neath a dead sun*<br>
+> *We've been praying but no good comes*<br>
+> *The dog's howling, home's stripped bare*<br>
+> *We've been worried but now we're scared*<br>
 
 That's when the rainmaker strikes: when worry turns to fear, and need becomes desperation.
 
-> *People come for comfort or just to come*
-> *Taste the dark sticky potion or hear the drums*
-> *Hands raised to Yahweh to bring the rain down*
-> *He comes crawling ‘cross the dry fields like a dark shroud*
+> *People come for comfort or just to come*<br>
+> *Taste the dark sticky potion or hear the drums*<br>
+> *Hands raised to Yahweh to bring the rain down*<br>
+> *He comes crawling ‘cross the dry fields like a dark shroud*<br>
 
 "Rainmaker" features the strongest lyrics on *Letter to You*, and this second verse is a great example. Bruce nails the political rainmaking phenomenon–a core of need surrounded by a crowd of curiosity. What magic is this that can draw rain from the heavens?
 
 The rainmaker's arrival is as ominous as the dark clouds of a thunderstorm.
 
-> *Rainmaker, a little faith for hire*
-> *Rainmaker, the house is on fire*
-> *Rainmaker, take everything you have*
-> *Sometimes folks need to believe in something so bad, so bad, so bad*
-> *They'll hire a rainmaker*
+> *Rainmaker, a little faith for hire*<br>
+> *Rainmaker, the house is on fire*<br>
+> *Rainmaker, take everything you have*<br>
+> *Sometimes folks need to believe in something so bad, so bad, so bad*<br>
+> *They'll hire a rainmaker*<br>
 
 The chorus of "Rainmaker" is the secret to the rainmaker's success: when you have no water, you have no crops and therefore no food or money. When your situation is as dire as a house on fire, that's when you're most susceptible to false hope.
 
 Bruce has stated that he originally wrote "Rainmaker" about former U.S. President George W. Bush, but of course the obvious comparison is to Donald Trump, who famously came to power as a populist by validating fears that were already present, instilling ones that weren't, and promising in true rainmaker fashion that he alone could fix it.
 
-> *Rainmaker says white's black and black's white*
-> *Says night's day and day's night*
-> *Says close your eyes and go to sleep now*
-> *I'm in a burning field unloading buckshot into low clouds*
+> *Rainmaker says white's black and black's white*<br>
+> *Says night's day and day's night*<br>
+> *Says close your eyes and go to sleep now*<br>
+> *I'm in a burning field unloading buckshot into low clouds*<br>
 
 Bruce's third verse reveals the con. We might think it extreme exaggeration to suggest that the rainmaker's marks can't distinguish between night and day, but hey: he's shooting at a cloud and they're buying that. (And if you can't believe that anyone would believe you could produce rain with buckshot, a whole lot of people thought you could do it by boiling a kettle of chemicals, so…)
 
 In the fourth verse, Bruce drops all pretense and embraces the political subtext:
 
-> *Slow moving wagon drawing through a dry town*
-> *Painted rainbow, crescent moon and dark clouds*
-> *Brother patriot come forth and lay it down*
-> *Your blood brother for king and crown*
-> *For your rainmaker*
+> *Slow moving wagon drawing through a dry town*<br>
+> *Painted rainbow, crescent moon and dark clouds*<br>
+> *Brother patriot come forth and lay it down*<br>
+> *Your blood brother for king and crown*<br>
+> *For your rainmaker*<br>
 
 Most rainmakers didn't travel with a sideshow, but politicians sure do. Here Bruce shines a light on the cult of personality that surrounds the political rainmaker, and the Trump comparison couldn't be any starker. The rainmaker demands tribute from "patriots" and likens himself to "king and crown."
 
 It's the fifth verse that's the most devastating, however.
 
-> *They come for the smile, the firm handshake*
-> *They come for the raw chance of a fair shake*
-> *Some come to make damn sure, my friend*
-> *This mean season's got nothing to do with them*
+> *They come for the smile, the firm handshake*<br>
+> *They come for the raw chance of a fair shake*<br>
+> *Some come to make damn sure, my friend*<br>
+> *This mean season's got nothing to do with them*<br>
 
 The deeply empathetic first couplet reminds us of "[American Land,](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" earning our sympathy for the rainmaker's followers who are motivated by trust, hope, and the promise of a chance–just a chance–to lift themselves out of their circumstances.
 
@@ -98,10 +98,10 @@ But the second couplet is the damning one: here, Bruce spotlights the enablers, 
 
 In his final verse, Bruce reveals the root cause that opens a people to a rainmaker's manipulation:
 
-> *They come 'cause they can't stand the pain*
-> *Of another long hot day of no rain*
-> *‘Cause they don't care or understand*
-> *What it really takes for the sky to open up the land*
+> *They come 'cause they can't stand the pain*<br>
+> *Of another long hot day of no rain*<br>
+> *‘Cause they don't care or understand*<br>
+> *What it really takes for the sky to open up the land*<br>
 
 There are no quick fixes for curing a drought, just like there are no easy solutions for the ills that keep a society's population down.
 
@@ -120,7 +120,7 @@ Given his outspokenness about the Trump administration, we can imagine how sorel
 What an album that might have been.
 
 **Rainmaker**<br>
-**Recorded** 2003-2020  
+**Recorded** 2003-2020<br>
 **Released:** *Letter to You* (2020)
 **Never performed**<br>
 

@@ -40,7 +40,7 @@ Bruce has never performed it in concert, and I wouldn't lay odds of him doing so
 
 **Someday (We'll Be Together)**<br>
 **Recorded** September 26-30, 1977 (backing track), 2010 (vocals and modern elements)
-**Released:** *The Promise* (2010)
+**Released:** *The Promise* (2010)<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

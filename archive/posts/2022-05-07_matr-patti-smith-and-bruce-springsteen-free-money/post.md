@@ -21,7 +21,7 @@ Bruce played three more Patti Smith originals during that late show ("[Land](htt
 That one's coming soon.
 
 **Free Money**<br>
-**First performed:** November 26, 1976 (New York City, NY)
-**Last performed:** November 26, 1976 (New York City, NY)
+**First performed:** November 26, 1976 (New York City, NY)<br>
+**Last performed:** November 26, 1976 (New York City, NY)<br>
 
 

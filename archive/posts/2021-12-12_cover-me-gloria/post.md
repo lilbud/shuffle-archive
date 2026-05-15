@@ -19,6 +19,6 @@ Here's the original 1964 B-side(!) by Them.
 December 26, 1975 (New York City, NY)
 May 1, 2014 (Tampa, FL)
 
-**Gloria** **First performed:** <br>
+**Gloria** **First performed:**<br>
 
 **Last performed:**<br>

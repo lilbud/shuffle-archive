@@ -107,8 +107,8 @@ You can bet "You Can Look" will be around for a long time to come.
 
 **You Can Look (But You Better Not Touch)**<br>
 **Recorded** August 24-25 1979 (rockabilly version), February 17-23, 1980 (album version)
-**Released:** *The River* (1980, album version), *The River: Single Album* (2015, rockabilly version)
-**First performed:** October 7, 1980 (Richfield, OH)
-**Last performed:** February 18, 2017 (Hunter Valley, Australia)
+**Released:** *The River* (1980, album version), *The River: Single Album* (2015, rockabilly version)<br>
+**First performed:** October 7, 1980 (Richfield, OH)<br>
+**Last performed:** February 18, 2017 (Hunter Valley, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

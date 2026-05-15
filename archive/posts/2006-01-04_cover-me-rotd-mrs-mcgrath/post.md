@@ -49,8 +49,8 @@ Whether Bruce will ever sing it again remains to be seen. But someone surely wil
 
 **Mrs. McGrath**  
 **Recorded:** March 19, 2005  
-**Released:** *We Shall Overcome: The Seeger Sessions* (2006)
-**First performed:** April 20, 2006 (Asbury Park, NJ)
-**Last performed:** November 21, 2006 (Belfast, Ireland)
+**Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
+**First performed:** April 20, 2006 (Asbury Park, NJ)<br>
+**Last performed:** November 21, 2006 (Belfast, Ireland)<br>
 
 © May 26, 2019

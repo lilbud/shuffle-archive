@@ -81,7 +81,7 @@ But where "Tenth Avenue Freeze-Out" is romantic and celebratory, Bruce uses almo
 It's a sad story, and one that never saw print–but it paved the way to greater and more enduring things to come.
 
 **Jazz Musician**<br>
-**Recorded** June 27, 1972  
+**Recorded** June 27, 1972<br>
 **Never released**  
 **Never performed**<br>
 

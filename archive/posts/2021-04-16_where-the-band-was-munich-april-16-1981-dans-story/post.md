@@ -4,7 +4,7 @@ Editor's Note
 
 *Dan French is the founder of one of the very first Springsteen fanzines: Point Blank, first published in 1980. Point Blank published ten issues (and a couple of specials) through 1992; today, it lives on as a vibrant* *[Facebook community](https://www.facebook.com/groups/290908270798)**.*
 
-> *Dan's story has to be read (and re-read) to be believed, so without further ado, Dan's adventure continues.*
+> *Dan's story has to be read (and re-read) to be believed, so without further ado, Dan's adventure continues.*<br>
 
 The next morning we had a late breakfast, took photos outside the hotel, and left – but not before I encountered Roy by the postcards and asked him for a scribble. 'Sure,' he smiled. 'Take it easy.' No one else was there.
 
@@ -40,7 +40,7 @@ No sign of any posters or ads for the show, but we walked up the drive as far as
 
 Quickly I borrowed some money from John (which was to take me six months to repay!) and we bought three extra tickets for each show, plus one for John for the Sunday night; we knew that Geoff N and Kristina V were coming and didn't have tickets. We couldn't believe our luck! I was going to see Bruce twice more before I had to go back!
 
-> *To be concluded…*
+> *To be concluded…*<br>
 
 What's your story?
 

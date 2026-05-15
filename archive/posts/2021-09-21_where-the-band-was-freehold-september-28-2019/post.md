@@ -34,7 +34,7 @@ Under the big tent were the silent auction items, including signed, famed photos
 
 ![](https://www.backstreets.com/Assets/Images/2019/newsSHHscrapbook.jpg)The exhibit itself held even greater treasures — whether you're interested in tour and album cover props, song lyrics, old newspaper clippings, or the Springsteen family tree, there's more to learn than one can reasonably take in during a single visit, especially for partygoers who were admitted through the evening in sequential 45-minute windows. I now know about the accomplishments and life events of Springsteens dating back to the American Revolution (which threatens to widen the scope of my ["Kingdom of Days" blog posts](https://estreetshuffle.com/index.php/category/kingdom-of-days/) to a frightening degree).
 
-> *Photograph by Lisa Iannucci*
+> *Photograph by Lisa Iannucci*<br>
 
 Between the auction, the vehicles, the on-stage entertainment, and the museum exhibit itself, it was easy to get overwhelmed at times. If you didn't know where to look next, however, you could always socialize with fellow party-goers. It was the kind of night where fans mixed and mingled with notables like Vini Lopez, Danny Clinch, Kevin Buell, and Tinker West. (However, Brian Williams, who had been announced as the host for the evening, did not appear to be present.)
 

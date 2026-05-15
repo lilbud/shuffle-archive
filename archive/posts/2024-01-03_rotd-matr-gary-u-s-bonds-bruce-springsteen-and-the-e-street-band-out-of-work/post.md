@@ -14,46 +14,46 @@ That's not the only aspect of "Out of Work" that rings familiar, though: that's 
 
 Lyrically, "Out of Work" is sneaky: it starts out like an homage to the doo wop classic "Get a Job" but takes a sudden political turn in the last verse.
 
-> *8 A.M., I'm up and my feet beating on the sidewalk*
-> *Down at the unemployment agency, all I get's talk*
-> *I check the want ads but there just ain't nobody hiring*
-> *What's a man supposed to do when he's down and*
+> *8 A.M., I'm up and my feet beating on the sidewalk*<br>
+> *Down at the unemployment agency, all I get's talk*<br>
+> *I check the want ads but there just ain't nobody hiring*<br>
+> *What's a man supposed to do when he's down and*<br>
 
-> *Out of work*
-> *I need a job, I'm out of work*
-> *I'm unemployed, I'm out of work*
-> *I need a job, I'm out of work*
+> *Out of work*<br>
+> *I need a job, I'm out of work*<br>
+> *I'm unemployed, I'm out of work*<br>
+> *I need a job, I'm out of work*<br>
 
-> *I go to pick my girl up*
-> *Her name is Linda Brown*
-> *Her dad invites me in*
-> *He tells me to sit down*
-> *The small talk that we're making*
-> *Is going pretty smooth*
-> *But then he drops a bomb*
-> *"Son, what d'ya do?"*
+> *I go to pick my girl up*<br>
+> *Her name is Linda Brown*<br>
+> *Her dad invites me in*<br>
+> *He tells me to sit down*<br>
+> *The small talk that we're making*<br>
+> *Is going pretty smooth*<br>
+> *But then he drops a bomb*<br>
+> *"Son, what d'ya do?"*<br>
 
-> *I'm out of work*
-> *I need a job, I'm out of work*
-> *I'm unemployed, I'm out of work*
-> *I need a job, I'm out of work*
-> *Yeah, yeah, yeah*
+> *I'm out of work*<br>
+> *I need a job, I'm out of work*<br>
+> *I'm unemployed, I'm out of work*<br>
+> *I need a job, I'm out of work*<br>
+> *Yeah, yeah, yeah*<br>
 
-> *Hey, Mr. President, I know you got your plans*
-> *You're doing all you can now to aid the little man*
-> *We got to do our best to whip that inflation down*
-> *Maybe you got a job for me just driving you around*
+> *Hey, Mr. President, I know you got your plans*<br>
+> *You're doing all you can now to aid the little man*<br>
+> *We got to do our best to whip that inflation down*<br>
+> *Maybe you got a job for me just driving you around*<br>
 
-> *(I'm out of work)*
-> *These tough times, they're enough*
-> *To make a man lose his mind*
-> *(I'm out of work)*
-> *Up there you got a job but down here below*
+> *(I'm out of work)*<br>
+> *These tough times, they're enough*<br>
+> *To make a man lose his mind*<br>
+> *(I'm out of work)*<br>
+> *Up there you got a job but down here below*<br>
 
-> *I'm out of work*
-> *I need a job, I'm out of work*
-> *I'm unemployed, I'm out of work*
-> *I need a job, I'm out of work*
+> *I'm out of work*<br>
+> *I need a job, I'm out of work*<br>
+> *I'm unemployed, I'm out of work*<br>
+> *I need a job, I'm out of work*<br>
 
 A few months ago, we traced the evolution of "[The River,](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" starting with Bruce's unreleased 1979 outtake "[Oh Angelyne](https://estreetshuffle.com/index.php/2021/02/16/roll-of-the-dice-oh-angelyne/)." That was where we first heard the influence of the rapidly receding economy on Bruce's songwriting.
 
@@ -69,7 +69,7 @@ Fans who caught it no doubt had the same laughing-through-tears reaction as radi
 
 **Out of Work**<br>
 **Recorded:** Early 1982  
-**Released:** *On the Line* (1982)
+**Released:** *On the Line* (1982)<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

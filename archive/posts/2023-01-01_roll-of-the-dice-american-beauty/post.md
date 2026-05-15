@@ -32,26 +32,26 @@ There's something *there*.
 
 But "American Beauty" takes it even a step further. Listen to (or read) the lyrics closely:
 
-> *Everything in your shadow turns to vapor*
-> *You pierce my heart like it was paper*
-> *Radio's crackling with the headlines*
-> *Something on your shoulder, winds in the phone line*
-> *American beauty will you be mine*
-> *Out on this highway counting white lines*
+> *Everything in your shadow turns to vapor*<br>
+> *You pierce my heart like it was paper*<br>
+> *Radio's crackling with the headlines*<br>
+> *Something on your shoulder, winds in the phone line*<br>
+> *American beauty will you be mine*<br>
+> *Out on this highway counting white lines*<br>
 
-> *Hot and bloody summer, drifting blue eyes*
-> *We're in the high grass, I finger your hemline*
-> *Boot heels click clacking, honey, when you shine*
-> *Autumn blue skies, hair sweet as the southern pines*
-> *American beauty forever in time*
-> *Out on this highway counting white lines*
+> *Hot and bloody summer, drifting blue eyes*<br>
+> *We're in the high grass, I finger your hemline*<br>
+> *Boot heels click clacking, honey, when you shine*<br>
+> *Autumn blue skies, hair sweet as the southern pines*<br>
+> *American beauty forever in time*<br>
+> *Out on this highway counting white lines*<br>
 
-> *Your hand cups your breast, pledging your time*
-> *Things we carried, shining skylines*
-> *Falling sparrow, sky torn apart*
-> *Dark shining arrow, your kiss pierces my heart*
-> *American beauty forever mine*
-> *Out on this highway counting white lines*
+> *Your hand cups your breast, pledging your time*<br>
+> *Things we carried, shining skylines*<br>
+> *Falling sparrow, sky torn apart*<br>
+> *Dark shining arrow, your kiss pierces my heart*<br>
+> *American beauty forever mine*<br>
+> *Out on this highway counting white lines*<br>
 
 What is the American Beauty that Bruce is singing of?
 
@@ -77,8 +77,8 @@ So come on, Bruce: Bring "American Beauty" to the stage on your next tour. You c
 
 **American Beauty**<br>
 **Recorded:** early 2013  
-**Released:** *American Beauty* (2014)
-**First performed:** April 19, 2014 (soundcheck only)
-**Last performed:** April 19, 2014 (soundcheck only)
+**Released:** *American Beauty* (2014)<br>
+**First performed:** April 19, 2014 (soundcheck only)<br>
+**Last performed:** April 19, 2014 (soundcheck only)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

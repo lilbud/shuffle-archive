@@ -24,8 +24,8 @@ July 23, 1975 (Lenox, MA)
 August 8, 1975 (Akron, OH)
 
 **Funk Song**<br>
-**Recorded:** <br>
+**Recorded:**<br>
 
-**Released:** <br>
+**Released:**<br>
 **First performed:**<br>
 **Last performed:**<br>

@@ -78,9 +78,9 @@ That performance, too, pales beside the original album version. "Dry Lightning" 
 I haven't given up hope of hearing one someday.
 
 **Dry Lightning**<br>
-**Recorded** April-June 1995  
-**Released:** *The Ghost of Tom Joad* (1995)
-**First performed:** November 21, 1995 (New Brunswick, NJ)
-**Last performed:** May 14, 2005 (Fairfax, VA)
+**Recorded** April-June 1995<br>
+**Released:** *The Ghost of Tom Joad* (1995)<br>
+**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Last performed:** May 14, 2005 (Fairfax, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

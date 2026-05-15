@@ -65,9 +65,9 @@ Musically, "All That Heaven Will Allow" is a solo number. With the exception of 
 …but even though it's made fifteen appearances since the Tunnel of Love era, the E Street Band hasn't had a crack at their 1988 set piece in almost 35 years. Will we see an encore appearance for "All That Heaven Will Allow" on stage next year? Only time will tell.
 
 **All That Heaven Will Allow**<br>
-**Recorded** January – April 1987  
-**Released:** *Tunnel of Love* (1987)
-**First performed:** February 25, 1988 (Worcester, MA)
-**Last performed:** April 29, 2013 (Oslo, Norway)
+**Recorded** January – April 1987<br>
+**Released:** *Tunnel of Love* (1987)<br>
+**First performed:** February 25, 1988 (Worcester, MA)<br>
+**Last performed:** April 29, 2013 (Oslo, Norway)<br>
 
 (c) August 5, 2022

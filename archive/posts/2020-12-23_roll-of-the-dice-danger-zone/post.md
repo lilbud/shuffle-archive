@@ -14,25 +14,25 @@ Those latter two songs–one still unreleased, the other now a classic–center 
 
 While not explicitly stated such, "Danger Zone" at the very least implies some potential age-related impropriety.
 
-> *Baby, you are a big girl*
-> *Yeah there ain't no doubt of that*
-> *Baby you can't even walk around here*
-> *And I know what's on your mind*
-> *And even if she's the first to turn out the lights*
-> *Man you're messing in a danger zone*
+> *Baby, you are a big girl*<br>
+> *Yeah there ain't no doubt of that*<br>
+> *Baby you can't even walk around here*<br>
+> *And I know what's on your mind*<br>
+> *And even if she's the first to turn out the lights*<br>
+> *Man you're messing in a danger zone*<br>
 
 Perhaps if Bruce completed the song, we would have learned more about the situation, but I suspect he meant to leave room for ambiguity. I can't help but picture the protagonist singing about his best friend's kid sister, someone he's known all her life but who suddenly seems very grown up.
 
 Our hero is tempted–sorely tempted–when the girl makes her interest known, but he knows the right thing to do.
 
-> *Let the girl go home, let the girl go home*
-> *She ain't ??? to be around here*
-> *Let the girl go home, the girl go home*
-> *You don't know what you feel*
-> *Let the girl go home, let the girl go home*
-> *Let her go back home this time*
-> *Let the girl go home, let the girl go home*
-> *Let her go back home*
+> *Let the girl go home, let the girl go home*<br>
+> *She ain't ??? to be around here*<br>
+> *Let the girl go home, the girl go home*<br>
+> *You don't know what you feel*<br>
+> *Let the girl go home, let the girl go home*<br>
+> *Let her go back home this time*<br>
+> *Let the girl go home, let the girl go home*<br>
+> *Let her go back home*<br>
 
 Bruce keeps his narrator on the path of angels, but only through the constant exhortation of his conscience. (I can't make out that muffled section in the second line of the chorus, but I suspect it's something along the line of "old enough" or "grown enough.")
 

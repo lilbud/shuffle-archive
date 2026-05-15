@@ -1,4 +1,4 @@
-> I told Steve "Tomorrow night, 'Staying Alive,'" and he goes, "You got me on that one. I don't know how we're gonna do it." And Tom Morello said, "I don't want to have any other ideas. Because I want to see how you're gonna pull that one off." Steve's going, "I can't imagine it." I go okay, I'm not going to be able to sing it where they sang it, so I have to think about Marvin Gaye on *What's* *Going* *On* and *Trouble Man* and I'm thinking of blaxploitation pictures. I thought, if I bring this thing down to my key and I play it like a blues, this is inner-city blues; it could slip right on to *What's* *Going On*. I had to find my voice in it. I got the lyrics up on the computer and just started to sing it. When it sounded believable to me I knew we'd be fine. It was like, "Okay, I can be this person in this song." *–Bruce Springsteen, Rolling Stone, March 11, 2014*
+> I told Steve "Tomorrow night, 'Staying Alive,'" and he goes, "You got me on that one. I don't know how we're gonna do it." And Tom Morello said, "I don't want to have any other ideas. Because I want to see how you're gonna pull that one off." Steve's going, "I can't imagine it." I go okay, I'm not going to be able to sing it where they sang it, so I have to think about Marvin Gaye on *What's* *Going* *On* and *Trouble Man* and I'm thinking of blaxploitation pictures. I thought, if I bring this thing down to my key and I play it like a blues, this is inner-city blues; it could slip right on to *What's* *Going On*. I had to find my voice in it. I got the lyrics up on the computer and just started to sing it. When it sounded believable to me I knew we'd be fine. It was like, "Okay, I can be this person in this song." *–Bruce Springsteen, Rolling Stone, March 11, 2014*<br>
 
 The 1977 original is instantly recognizable.
 
@@ -28,7 +28,7 @@ Many fans (this one included) consider "Stayin' Alive" to be one of Bruce's best
 Three months later, Gibb would return the favor. Check out his [cover](https://estreetshuffle.com/index.php/2019/07/05/cover-me-barry-gibb-im-on-fire/) of Bruce's "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)".
 
 **Stayin' Alive**<br>
-**First performed:** February 26, 2014 (Brisbane, Australia)
-**Last performed:** May 17, 2014 (Uncasville, CT)
+**First performed:** February 26, 2014 (Brisbane, Australia)<br>
+**Last performed:** May 17, 2014 (Uncasville, CT)<br>
 
 

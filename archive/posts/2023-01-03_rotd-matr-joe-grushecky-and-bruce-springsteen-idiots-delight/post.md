@@ -36,6 +36,6 @@ Will we hear it performed live again someday? Well, this past year would have be
 **Recorded:** Unknown<br>
 **Released:** *Coming Home* (1997) (Joe's version); Unreleased (Bruce's version)<br>
 **First performed:** March 2, 1998 (Pittsburgh, PA)<br>
-**Last performed:** October 28, 2005 (Boston, MA)
+**Last performed:** October 28, 2005 (Boston, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -21,9 +21,9 @@ Well, not exactly by herself. From Cash's album, *The List*, here's "Sea of Hear
 Rosanne and Bruce performed "Sea of Heartbreak" together just once, at Rosanne's show in Durham, North Carolina in 2010. No recording circulates from that performance.
 
 **Sea of Heartbreak**<br>
-**Recorded** ?  
-**Released:** *The List* (2009)
-**First performed:** April 15, 2010 (Durham, NC)
-**Last performed:** April 15, 2010 (Durham, NC)
+**Recorded** ?<br>
+**Released:** *The List* (2009)<br>
+**First performed:** April 15, 2010 (Durham, NC)<br>
+**Last performed:** April 15, 2010 (Durham, NC)<br>
 
 

@@ -47,8 +47,8 @@ The arrangement is identical, the vocals are clearer, and the song is just as fe
 
 **Code of Silence**  
 **Recorded:** June 29, 2000 (live version)
-**Released:** *The Essential Bruce Springsteen* (2003, live version), *A Good Life* (2006, studio version)
-**First performed:** June 12, 2000 (New York City, NY)
-**Last performed:** July 18, 2015 (Asbury Park, NJ)
+**Released:** *The Essential Bruce Springsteen* (2003, live version), *A Good Life* (2006, studio version)<br>
+**First performed:** June 12, 2000 (New York City, NY)<br>
+**Last performed:** July 18, 2015 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

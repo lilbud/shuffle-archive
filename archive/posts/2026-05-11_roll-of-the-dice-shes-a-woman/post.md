@@ -12,21 +12,21 @@ Lyrically, we can make out enough of "She's a Woman" to get a sense of the song.
 
 Whoever this woman is, Bruce seems more obsessed by her effect on him rather than on anything about the woman herself. "She's a Woman" is more about wordplay and guitar jams than it is a tale, romantic or otherwise.
 
-> *She brings me down, she sends me down*
-> *She brings me down, she's my woman*
-> *Now she'll pick me up, she picks me up on Saturday*
-> *She drinks me up, oh but my woman…*
+> *She brings me down, she sends me down*<br>
+> *She brings me down, she's my woman*<br>
+> *Now she'll pick me up, she picks me up on Saturday*<br>
+> *She drinks me up, oh but my woman…*<br>
 
-> *She lays me down, she plays me down, she weighs me down*
-> *She's my woman, she's my queen, she's my woman*
+> *She lays me down, she plays me down, she weighs me down*<br>
+> *She's my woman, she's my queen, she's my woman*<br>
 
-> *She makes me smile, she drives me wild*
-> *She ???, she's my woman*
-> *She cries "Where you been?"*
-> *She can make you grin*
-> *She can put you in, I'm her partner*
+> *She makes me smile, she drives me wild*<br>
+> *She ???, she's my woman*<br>
+> *She cries "Where you been?"*<br>
+> *She can make you grin*<br>
+> *She can put you in, I'm her partner*<br>
 
-> *She weighs me down, she blows me down, she slays me down…*
+> *She weighs me down, she blows me down, she slays me down…*<br>
 
 (I'm certain many of these lyrics are at least partially incorrect, so feel free to take your own stab at them.)
 
@@ -37,7 +37,7 @@ Anyone wanna hook me up? 🙂
 **She's a Woman  
 **Never recorded**<br>
 **Never released**  
-**First performed:** December 17, 1971 (New Brunswick, NJ)  
-**Last performed:** February 17, 1972 (Freehold, NJ)
+**First performed:** December 17, 1971 (New Brunswick, NJ)<br>
+**Last performed:** February 17, 1972 (Freehold, NJ)<br>
 
 © January 24, 2020

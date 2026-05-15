@@ -178,8 +178,8 @@ Today Bruce lives ten minutes from his hometown, which tells us all we need to k
 
 **My Hometown**<br>
 **Recorded:** June 29, 1983  
-**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995)
-**First performed:** June 8, 1984 (Asbury Park, NJ)
-**Last performed:** July 11, 2023 (Copenhagen, Denmark)
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995)<br>
+**First performed:** June 8, 1984 (Asbury Park, NJ)<br>
+**Last performed:** July 11, 2023 (Copenhagen, Denmark)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

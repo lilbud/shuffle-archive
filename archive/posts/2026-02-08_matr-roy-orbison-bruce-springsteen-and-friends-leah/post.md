@@ -13,7 +13,7 @@ Enjoy this gorgeous one-time-only assemblage of talent performing "Leah" at the 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZusfsE4F5SE)
 
 **Leah**<br>
-**First performed:** September 30, 1987 (Los Angeles, CA)
-**Last performed:** September 30, 1987 (Los Angeles, CA)
+**First performed:** September 30, 1987 (Los Angeles, CA)<br>
+**Last performed:** September 30, 1987 (Los Angeles, CA)<br>
 
 © April 8, 2019

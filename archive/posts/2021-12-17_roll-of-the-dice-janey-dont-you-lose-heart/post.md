@@ -14,41 +14,41 @@ Not so here. If I had to sum up Bruce's vocal in "Janey, Don't You Lose Heart" w
 
 We don't really learn much about Janey, but we can sense that she's been having a rough go of it. Whatever punches life has landed on her, Bruce is steadfast in his reassurance that she can roll with them and in his promise to stand by her side.
 
-> *You got your book baby with all your fears*
-> *Oh let me, honey, and I'll catch your tears, ah no no no no*
-> *I'll take your sorrow if you want me to, no no no no no*
-> *Yeah come tomorrow that's what I'll do*
-> *Listen to me*
+> *You got your book baby with all your fears*<br>
+> *Oh let me, honey, and I'll catch your tears, ah no no no no*<br>
+> *I'll take your sorrow if you want me to, no no no no no*<br>
+> *Yeah come tomorrow that's what I'll do*<br>
+> *Listen to me*<br>
 
-> *Janey don't you lose heart, no no no no*
-> *Janey don't you lose heart, no no no no*
-> *Janey don't you lose heart, no no no no*
-> *Janey don't you lose heart*
+> *Janey don't you lose heart, no no no no*<br>
+> *Janey don't you lose heart, no no no no*<br>
+> *Janey don't you lose heart, no no no no*<br>
+> *Janey don't you lose heart*<br>
 
 It's all in the "no no no no no" — specifically, the way Bruce uses a descending progression of notes to de-escalate Janey's tension, to bring her emotional state back down to earth.
 
 In fact, if we look and listen carefully, "Janey, Don't You Lose Heart" is replete with such calming devices, from compassionate "ohs" and "ahs" to gentle "listen to me" directives:
 
-> *Well you say you got no new dreams to touch*
-> *Ah, you feel like a stranger, babe, who knows too much, oh no no no no*
-> *When you come home late and get undressed, oh no no no no*
-> *You lie in bed and feel this emptiness*
-> *Well, listen to me:*
+> *Well you say you got no new dreams to touch*<br>
+> *Ah, you feel like a stranger, babe, who knows too much, oh no no no no*<br>
+> *When you come home late and get undressed, oh no no no no*<br>
+> *You lie in bed and feel this emptiness*<br>
+> *Well, listen to me:*<br>
 
-> *Janey don't you lose heart, no no no no*
-> *Janey don't you lose heart, no no no no*
-> *Janey don't you lose heart, no no no no*
-> *Janey don't you lose heart*
+> *Janey don't you lose heart, no no no no*<br>
+> *Janey don't you lose heart, no no no no*<br>
+> *Janey don't you lose heart, no no no no*<br>
+> *Janey don't you lose heart*<br>
 
 And of course there's a sax solo, because in the Springsteen universe, there's no truer declaration of love than a sax solo.
 
 But go back and listen again, and this time notice how the onset of Clarence's solo overlaps with Bruce's "alright!" and how the end of it overlaps with the beginning of the final verse. That's a deliberate device that serves to maintain the connection and continuity of Bruce's unbreakable belief in Janey–it isn't a distraction or a breather from the song's message, it's an underlining of it, which Bruce makes overt in he final verse:
 
-> *Yeah, 'til every river baby it runs dry*
-> *Until the sun, honey, is torn from the sky, no no no no no*
-> *‘Til every fear you've felt burst free, no no no no no*
-> *Is gone tumbling down into the sea*
-> *Listen to me*
+> *Yeah, 'til every river baby it runs dry*<br>
+> *Until the sun, honey, is torn from the sky, no no no no no*<br>
+> *‘Til every fear you've felt burst free, no no no no no*<br>
+> *Is gone tumbling down into the sea*<br>
+> *Listen to me*<br>
 
 That's an unshakable friend right there. In fact, by the end of the song we notice that not once during the entire song has Bruce offered to solve Janey's problems for her. He's offered to share her emotional burden, but he's made it clear that he believes in her own power to lift herself up. In that regard, "Janey, Don't You Lose Heart" is like a more intimate, more selfless "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)."
 
@@ -112,8 +112,8 @@ Whatever form she takes, a setlist appearance by "Janey, Don't You Lose Heart" i
 
 **Janey, Don't You Lose Heart**<br>
 **Recorded:** June 16, 1983  
-**Released:** *I'm Goin' Down* (single, 1985)*,Tracks* (1998), *18 Tracks* (1999)
-**First performed:** September 27, 1985 (Los Angeles, CA)
-**Last performed:** February 14, 2017 (Brisbane, Australia)
+**Released:** *I'm Goin' Down* (single, 1985)*,Tracks* (1998), *18 Tracks* (1999)<br>
+**First performed:** September 27, 1985 (Los Angeles, CA)<br>
+**Last performed:** February 14, 2017 (Brisbane, Australia)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

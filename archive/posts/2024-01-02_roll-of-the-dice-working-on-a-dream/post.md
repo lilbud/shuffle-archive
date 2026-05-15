@@ -34,36 +34,36 @@ And when we watch the official video below, it's clear that's exactly what Bruce
 
 Insert your own dream below–I guarantee the song works with it:
 
-> *Out here the nights are long, the days are lonely*
-> *I think of you and I'm working on a dream*
-> *I'm working on a dream*
+> *Out here the nights are long, the days are lonely*<br>
+> *I think of you and I'm working on a dream*<br>
+> *I'm working on a dream*<br>
 
-> *Now the cards I've drawn's a rough hand, darlin'*
-> *I straighten my back and I'm working on a dream*
-> *I'm working on a dream*
+> *Now the cards I've drawn's a rough hand, darlin'*<br>
+> *I straighten my back and I'm working on a dream*<br>
+> *I'm working on a dream*<br>
 
-> *I'm working on a dream*
-> *Though sometimes it feels so far away*
-> *I'm working on a dream*
-> *And how it will be mine someday*
+> *I'm working on a dream*<br>
+> *Though sometimes it feels so far away*<br>
+> *I'm working on a dream*<br>
+> *And how it will be mine someday*<br>
 
-> *Rain pourin' down, I swing my hammer*
-> *My hands are rough from working on a dream*
-> *From working on a dream*
+> *Rain pourin' down, I swing my hammer*<br>
+> *My hands are rough from working on a dream*<br>
+> *From working on a dream*<br>
 
-> *I'm working on a dream*
-> *Though trouble can feel like it's here to stay*
-> *I'm working on a dream*
-> *Our love will chase the trouble away*
+> *I'm working on a dream*<br>
+> *Though trouble can feel like it's here to stay*<br>
+> *I'm working on a dream*<br>
+> *Our love will chase the trouble away*<br>
 
-> *I'm working on a dream*
-> *Though it can feel so far away*
-> *I'm working on a dream*
-> *And our love will make it real someday*
+> *I'm working on a dream*<br>
+> *Though it can feel so far away*<br>
+> *I'm working on a dream*<br>
+> *And our love will make it real someday*<br>
 
-> *Sunrise come, I climb the ladder*
-> *The new day breaks and I'm working on a dream*
-> *I'm working on a dream*
+> *Sunrise come, I climb the ladder*<br>
+> *The new day breaks and I'm working on a dream*<br>
+> *I'm working on a dream*<br>
 
 The lyrics speak for themselves, so there's not much point in my customary analysis. But I will at least draw your attention to the significance of the imagery and metaphors that Bruce employs: hammer-swinging, ladder-climbing, up and at 'em at daybreak, and rough hands in the rain. Bruce isn't just appreciating what he's built, he's also taking pride in the work that went into it, and that's significant.
 
@@ -78,9 +78,9 @@ And in concert, throughout the entire 2009 tour, he took a mid-song break to mak
 Unfortunately, like most of the *Working on a Dream* album, the title track has mostly disappeared since the end of the 2009 tour. Bruce brings it out only rarely these days, as if to remind us from time to time that he is still very much working on his dream.
 
 **Working on a Dream**<br>
-**Recorded** 2007-2008  
+**Recorded** 2007-2008<br>
 **Released:** *Working on a Dream* (2009), *The Essential Bruce Springsteen* (2015)
-**First performed:** November 2, 2008 (Cleveland, OH)
-**Last performed:** June 5, 2022 (East Rutherford, NJ)
+**First performed:** November 2, 2008 (Cleveland, OH)<br>
+**Last performed:** June 5, 2022 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

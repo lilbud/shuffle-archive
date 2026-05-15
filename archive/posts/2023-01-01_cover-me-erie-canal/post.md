@@ -28,6 +28,6 @@ Here's the penultimate performance of "Erie Canal" to date, from the final Seege
 **Recorded:** March 19, 2005<br>
 **Released:** *[We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*(2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
-**Last performed:** November 21, 2006 (Belfast, Northern Ireland)
+**Last performed:** November 21, 2006 (Belfast, Northern Ireland)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

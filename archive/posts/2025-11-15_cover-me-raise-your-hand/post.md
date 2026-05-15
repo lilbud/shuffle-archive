@@ -1,5 +1,5 @@
-> "I met Bruce in Memphis and he wanted me to come to his show, and I did go, and I went on stage, but I sung both of the songs, and he didn't really sing them with me. But after, I saw his version [of "Raise Your Hand"] is *so close* to mine as far as performance… I see Bruce's version of it doing it the very same way, dropping down on his knees and all the way up. Back in Memphis, I didn't know he did all that." — *Eddie Floyd, American Songwriter Spotlight on Songwriters, Episode 148 (2020)*
-> "Mr. Eddie Floyd! The great Eddie Floyd! That's the man that wrote the book! Oh yeah, goddamn, that's the man that wrote the book!" *— Bruce Springsteen, Memphis, Tennessee, April 29, 1976*
+> "I met Bruce in Memphis and he wanted me to come to his show, and I did go, and I went on stage, but I sung both of the songs, and he didn't really sing them with me. But after, I saw his version [of "Raise Your Hand"] is *so close* to mine as far as performance… I see Bruce's version of it doing it the very same way, dropping down on his knees and all the way up. Back in Memphis, I didn't know he did all that." — *Eddie Floyd, American Songwriter Spotlight on Songwriters, Episode 148 (2020)*<br>
+> "Mr. Eddie Floyd! The great Eddie Floyd! That's the man that wrote the book! Oh yeah, goddamn, that's the man that wrote the book!" *— Bruce Springsteen, Memphis, Tennessee, April 29, 1976*<br>
 
 How much of an influence was Eddie Floyd on Bruce Springsteen?
 
@@ -46,7 +46,7 @@ And while it's now been more than seven years since Bruce last uttered those imm
 [Watch Video Highlight](https://videopress.com/embed/GFBm1mrR)
 
 **Raise Your Hand**<br>
-**First performed:** March 21, 1976 (Asbury Park, NJ)
-**Last performed:** October 26, 2025 (Asbury Park, NJ)
+**First performed:** March 21, 1976 (Asbury Park, NJ)<br>
+**Last performed:** October 26, 2025 (Asbury Park, NJ)<br>
 
 (c) May 21, 2021

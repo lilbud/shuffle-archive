@@ -88,7 +88,7 @@ I'm not ashamed to admit that I tear up when I listen to "Family Song." Bruce ta
 [Watch Video Highlight](https://videopress.com/embed/fxxfruGh)
 
 **Family Song**<br>
-**Recorded** March 1972  
+**Recorded** March 1972<br>
 **Never released**<br>
 **Never performed**<br>
 

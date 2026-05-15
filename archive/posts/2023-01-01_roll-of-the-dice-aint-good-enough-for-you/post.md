@@ -16,30 +16,30 @@ Bruce wrote literally dozens of songs for the sessions that yielded [*Darkness o
 
 Set against a backing track that features the E Street Band at their most ebullient (Roy in particular gets a workout on this track, Clarence carries the tune on his sauntering sax, and the entire band provides raucous party rock backing vocals a la "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)"), "Ain't Good Enough For You" is about a shallow a song as we'll find in Bruce's catalog. The lyrics essentially amount to: *get off my case, woman.*
 
-> *Well you don't like, don't like the way I walk*
-> *And you don't like, don't like the way I talk*
-> *You criticize about me endlessly*
-> *Logic defies how you get stuck with me*
-> *And you complain about the clothes I wear*
-> *And you explain there's other boys out there*
-> *You complain my car makes too much noise*
-> *And you cry I'm always out with the boys*
+> *Well you don't like, don't like the way I walk*<br>
+> *And you don't like, don't like the way I talk*<br>
+> *You criticize about me endlessly*<br>
+> *Logic defies how you get stuck with me*<br>
+> *And you complain about the clothes I wear*<br>
+> *And you explain there's other boys out there*<br>
+> *You complain my car makes too much noise*<br>
+> *And you cry I'm always out with the boys*<br>
 
-> *Whoa whoa (whoa whoa whoa whoa)*
-> *I give up little darling (whoa whoa little darling)*
-> *Yeah no matter what I do, girl you know it's true*
-> *Ain't good enough for you*
+> *Whoa whoa (whoa whoa whoa whoa)*<br>
+> *I give up little darling (whoa whoa little darling)*<br>
+> *Yeah no matter what I do, girl you know it's true*<br>
+> *Ain't good enough for you*<br>
 
 Poor guy: his girl picks on the way he walks, talks, dresses, and drives. For a twenty-something rock star, is it possible to get any closer to the bone? Oh yeah:
 
-> *You complain the way I love you at night*
-> *You explain I'm really not your type*
-> *If we go out, you say I'm such a bore*
-> *If we stay in, you say what are we living for*
-> *I don't understand, there's nothing I can do*
-> *There ain't no way I can satisfy you*
-> *End of the night I lean in for a kiss*
-> *Here comes the pitch: a swing and a miss*
+> *You complain the way I love you at night*<br>
+> *You explain I'm really not your type*<br>
+> *If we go out, you say I'm such a bore*<br>
+> *If we stay in, you say what are we living for*<br>
+> *I don't understand, there's nothing I can do*<br>
+> *There ain't no way I can satisfy you*<br>
+> *End of the night I lean in for a kiss*<br>
+> *Here comes the pitch: a swing and a miss*<br>
 
 Ouch.
 
@@ -59,14 +59,14 @@ Yes, it's funny. And yes, it's amazing that all these years later, we all know w
 
 Because that ad-libbed verse saves the song. It's only because of these new lyrics that we can see that our protagonist is a romantic rather than a jerk:
 
-> *I tried to change, I got a job in sales*
-> *I bought a shirt uptown in Bloomingdales*
-> *And babe I tried to make the latest scene*
-> *Hitting cool just like Jimmy Iovine*
-> *I bought a record with all the latest grooves*
-> *A book of love with all the latest moves*
-> *I bought some flowers and I waited at your door*
-> *And you came out, didn't want to see me no more*
+> *I tried to change, I got a job in sales*<br>
+> *I bought a shirt uptown in Bloomingdales*<br>
+> *And babe I tried to make the latest scene*<br>
+> *Hitting cool just like Jimmy Iovine*<br>
+> *I bought a record with all the latest grooves*<br>
+> *A book of love with all the latest moves*<br>
+> *I bought some flowers and I waited at your door*<br>
+> *And you came out, didn't want to see me no more*<br>
 
 He's still a loser, mind you, but for the first time in the song, we can at least see that he's truly fond of his girl, and we sympathize with him even if we're fortunate enough to never have had the life experience to empathize with him.
 
@@ -91,7 +91,7 @@ European fans have been a bit more fortunate: Bruce played the song three times 
 **Ain't Good Enough For You**<br>
 **Recorded:** January 1978  
 **Released:** *The Promise* (2010)
-**First performed:** December 7, 2010 (Asbury Park, NJ)
-**Last performed:** June 26, 2013 (Gijon, Spain)
+**First performed:** December 7, 2010 (Asbury Park, NJ)<br>
+**Last performed:** June 26, 2013 (Gijon, Spain)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

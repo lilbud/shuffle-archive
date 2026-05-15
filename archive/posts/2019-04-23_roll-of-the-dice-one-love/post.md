@@ -57,7 +57,7 @@ Perhaps Bruce worked on the song a bit more after recording the home demo above.
 But as it stands now, the best we can say about "One Love" is that it's a simple but earnest, bouncy love song that probably wouldn't have stood the test of time had it been released as a B-side as intended back in the mid-eighties.
 
 **One Love**<br>
-**Recorded** January 19, 1983  
+**Recorded** January 19, 1983<br>
 **Never released**<br>
 **Never performed**<br>
 

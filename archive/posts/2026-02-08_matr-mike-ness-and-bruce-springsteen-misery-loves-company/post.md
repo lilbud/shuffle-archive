@@ -10,13 +10,13 @@ When Ness recorded his first solo album, *Cheating at Solitaire*, in 1999, Bruce
 
 As for why Bruce took to this particular song… well, looking at the lyrics, it's not hard to see the resonance:
 
-> *I used to think that I was a king*
-> *Fancy cars, fancy clothes and diamond rings*
-> *Yeah but happiness it's a funny thing*
-> *And misery just loves company*
+> *I used to think that I was a king*<br>
+> *Fancy cars, fancy clothes and diamond rings*<br>
+> *Yeah but happiness it's a funny thing*<br>
+> *And misery just loves company*<br>
 
-> *Don't even try to understand what goes on inside this man*
-> *As a boy I used to dream 'cause sometimes life ain't what it seems…*
+> *Don't even try to understand what goes on inside this man*<br>
+> *As a boy I used to dream 'cause sometimes life ain't what it seems…*<br>
 
 In May of 2008–almost a decade after the song's release–Ness played a show at The Stone Pony in Asbury Park, and Bruce showed up to join him on stage for four songs, including their one and only collaboration. But sadly no recording circulates from that performance, so fans of both artists had to wait for more than another decade to get another chance to catch "Misery Loves Company" by the original artists.
 
@@ -25,9 +25,9 @@ Thankfully, that last performance (At Sea. Hear. Now. in September 2018) not onl
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=loIfsQ8RmAc)
 
 **Misery Loves Company**<br>
-**Recorded** December 29, 1998  
+**Recorded** December 29, 1998<br>
 **Released:** *Cheating at Solitaire* (1999)
-**First performed:** May 17, 2008 (Asbury Park, NJ)
-**Last performed:** September 30, 2018 (Asbury Park, NJ)
+**First performed:** May 17, 2008 (Asbury Park, NJ)<br>
+**Last performed:** September 30, 2018 (Asbury Park, NJ)<br>
 
 © January 22, 2020

@@ -14,8 +14,7 @@ Reports first surfaced of Bruce's separation from Julianne Phillips, his first w
 
 Today, we know their relationship was on the rocks long before. While Bruce has never explicitly addressed when he and Patti first hooked up, he's dropped several breadcrumbs over the years. In his 2016 autobiography, Bruce wrote:
 
-> *It was a September night, the moon a slim fingernail in the western sky over the silhouetted  
-wood that bordered the backyard…. After seventeen years of sporadically bumping into each other, then two of working side by side, somewhat flirtatiously, there came a moment when I looked at Patti and saw something different, something new, something I'd missed and hadn't experienced before…. So, it started.*
+> *It was a September night, the moon a slim fingernail in the western sky over the silhouetted wood that bordered the backyard….After seventeen years of sporadically bumping into each other, then two of working side by side, somewhat flirtatiously, there came a moment when I looked at Patti and saw something different, something new, something I'd missed and hadn't experienced before…. So, it started.*
 
 Since Patti joined the E Street Band just a few days prior to the Born in the U.S.A. Tour in June 1984, that would put us in September 1986. Bruce continued:
 
@@ -117,9 +116,9 @@ But don't count out future appearances. "Tunnel of Love" is too significant a tr
 
 
 **Tunnel of Love**<br>
-**Recorded** June-July, 1987  
-**Released:** *Tunnel of Love* (1987), *The Essential Bruce Springsteen* (2003)
-**First performed:** February 25, 1988 (Worcester, MA)
-**Last performed:** June 25, 2016 (Gothenburg, Sweden)
+**Recorded** June-July, 1987<br>
+**Released:** *Tunnel of Love* (1987), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** February 25, 1988 (Worcester, MA)<br>
+**Last performed:** June 25, 2016 (Gothenburg, Sweden)<br>
 
 (c) June 15, 2021

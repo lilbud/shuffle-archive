@@ -30,41 +30,41 @@ It quickly went viral, picked up by newspapers across the young country, and by 
 
 The song quickly and firmly entrenched itself in the American zeitgeist and refused to leave–the first verse, at least. Key's song originally had four verses, but today most Americans know only the first:
 
-> *Oh, say can you see by the dawn's early light*
-> *What so proudly we hailed at the twilight's last gleaming?*
+> *Oh, say can you see by the dawn's early light*<br>
+> *What so proudly we hailed at the twilight's last gleaming?*<br>
 > *Whose broad stripes and bright stars thru the perilous fight*,
-> *O'er the ramparts we watched were so gallantly streaming?*
+> *O'er the ramparts we watched were so gallantly streaming?*<br>
 > *And the rocket's red glare, the bombs bursting in air*,
-> *Gave proof through the night that our flag was still there.*
-> *Oh, say does that star-spangled banner yet wave*
-> *O'er the land of the free and the home of the brave?*
+> *Gave proof through the night that our flag was still there.*<br>
+> *Oh, say does that star-spangled banner yet wave*<br>
+> *O'er the land of the free and the home of the brave?*<br>
 
 > *On the shore, dimly seen through the mists of the deep*,
 > *Where the foe's haughty host in dread silence reposes*,
 > *What is that which the breeze, o'er the towering steep*,
-> *As it fitfully blows, half conceals, half discloses?*
+> *As it fitfully blows, half conceals, half discloses?*<br>
 > *Now it catches the gleam of the morning's first beam*,
-> *In full glory reflected now shines in the stream:*
-> *'Tis the star-spangled banner! Oh long may it wave*
-> *O'er the land of the free and the home of the brave!*
+> *In full glory reflected now shines in the stream:*<br>
+> *'Tis the star-spangled banner! Oh long may it wave*<br>
+> *O'er the land of the free and the home of the brave!*<br>
 
-> *And where is that band who so vauntingly swore*
+> *And where is that band who so vauntingly swore*<br>
 > *That the havoc of war and the battle's confusion*,
-> *A home and a country should leave us no more!*
-> *Their blood has washed out their foul footsteps' pollution.*
-> *No refuge could save the hireling and slave*
-> *From the terror of flight, or the gloom of the grave:*
-> *And the star-spangled banner in triumph doth wave*
-> *O'er the land of the free and the home of the brave!*
+> *A home and a country should leave us no more!*<br>
+> *Their blood has washed out their foul footsteps' pollution.*<br>
+> *No refuge could save the hireling and slave*<br>
+> *From the terror of flight, or the gloom of the grave:*<br>
+> *And the star-spangled banner in triumph doth wave*<br>
+> *O'er the land of the free and the home of the brave!*<br>
 
-> *Oh! thus be it ever, when freemen shall stand*
-> *Between their loved home and the war's desolation!*
-> *Blest with victory and peace, may the heav'n rescued land*
-> *Praise the Power that hath made and preserved us a nation.*
+> *Oh! thus be it ever, when freemen shall stand*<br>
+> *Between their loved home and the war's desolation!*<br>
+> *Blest with victory and peace, may the heav'n rescued land*<br>
+> *Praise the Power that hath made and preserved us a nation.*<br>
 > *Then conquer we must, when our cause it is just*,
-> *And this be our motto: "In God is our trust."*
-> *And the star-spangled banner in triumph shall wave*
-> *O'er the land of the free and the home of the brave!*
+> *And this be our motto: "In God is our trust."*<br>
+> *And the star-spangled banner in triumph shall wave*<br>
+> *O'er the land of the free and the home of the brave!*<br>
 
 In 1931, an act of Congress made "The Star-Spangled Banner" America's first and only national anthem, and to this day it is proudly performed before events both civic and sporting, although few likely give much thought to the events that inspired it.
 
@@ -89,7 +89,7 @@ Play it, Bruce.
 [Watch on Youtube: Bruce Springsteen - Star Spangled Banner](https://www.youtube.com/watch?v=eCDBfSWyhiY)
 
 **The Star-Spangled Banner**<br>
-**First performed:** October 1, 2004 (Philadelphia, PA)
-**Last performed:** October 13, 2004 (East Rutherford, NJ)
+**First performed:** October 1, 2004 (Philadelphia, PA)<br>
+**Last performed:** October 13, 2004 (East Rutherford, NJ)<br>
 
 

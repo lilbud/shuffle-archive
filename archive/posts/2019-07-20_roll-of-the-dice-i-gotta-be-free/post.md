@@ -24,7 +24,7 @@ Bruce's lyrics are pretty spare–just two verses and a one-line chorus–and co
 **I Gotta Be Free**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** November 27, 1970 (Asbury Park, NJ)
-**Last performed:** January 22, 1971 (Asbury Park, NJ)
+**First performed:** November 27, 1970 (Asbury Park, NJ)<br>
+**Last performed:** January 22, 1971 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

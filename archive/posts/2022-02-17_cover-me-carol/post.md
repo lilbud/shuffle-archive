@@ -34,6 +34,6 @@ Bruce's ease and familiarity with Berry's song is evident in every performance, 
 
 **Carol  
 First performed:** July 26, 1975 (Kutztown, PA)
-**Last performed:** July 23, 1989 (Asbury Park, NJ)
+**Last performed:** July 23, 1989 (Asbury Park, NJ)<br>
 
  

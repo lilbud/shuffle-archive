@@ -14,12 +14,12 @@ We know which one ultimately won out, of course, so we may never find out just w
 
 It's a great set-up, though (even if it pales beside the first verse of "Growin' Up"):
 
-> *Well, what power of God does a nun use to hold a parish priest*
-> *And what makes a good cop let go a beautiful thief*
-> *Oh, and how does a queen know she can hold that man with honey*
-> *Oh, and what makes an old woman give a young man all her money*
-> *Well, late in the night ‘neath the pale moonlight that power comes over me*
-> *And it's all Eloise, yeah*
+> *Well, what power of God does a nun use to hold a parish priest*<br>
+> *And what makes a good cop let go a beautiful thief*<br>
+> *Oh, and how does a queen know she can hold that man with honey*<br>
+> *Oh, and what makes an old woman give a young man all her money*<br>
+> *Well, late in the night ‘neath the pale moonlight that power comes over me*<br>
+> *And it's all Eloise, yeah*<br>
 
 **Eloise****Recorded:** April-May 1972  
 **Never released**<br>

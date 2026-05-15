@@ -1,4 +1,4 @@
-> "The ultimate test for any self-respecting guitar player is: could you play ‘Jeff's Boogie–which you could not. You could fake your way through ‘Jeff's Boogie', but you couldn't actually play it." *–Bruce Springsteen, Little Steven's Underground Garage, April 8, 2011*
+> "The ultimate test for any self-respecting guitar player is: could you play ‘Jeff's Boogie–which you could not. You could fake your way through ‘Jeff's Boogie', but you couldn't actually play it." *–Bruce Springsteen, Little Steven's Underground Garage, April 8, 2011*<br>
 
 No kidding. The B-side to The Yardbirds' 1996 hit single "Over Under Sideways Down" is jaw-droppingly impressive enough to intimidate even the most accomplished guitar players.
 
@@ -27,7 +27,7 @@ Bruce would try "Jeff's Boogie" again on at least one other occasion in 1971, bu
 But thankfully we have that 1967 recording of an aspiring rock star full of spit and fire and nothing at all to fear.
 
 **Jeff's Boogie**<br>
-**First performed:** September 16, 1967 (Freehold, NJ)
-**Last performed:** November 23, 1971 (Linden, NJ)
+**First performed:** September 16, 1967 (Freehold, NJ)<br>
+**Last performed:** November 23, 1971 (Linden, NJ)<br>
 
 

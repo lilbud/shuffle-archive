@@ -4,9 +4,9 @@ The story goes something like this: Peter Fonda wanted to use a Bob Dylan song f
 
 After seeing the movie, however, Dylan wanted nothing to do with the project for reasons that vary depending on whose account you read. After repeated cajoling from Fonda, Dylan scratched out a few lines on a napkin:
 
-> *The river flows, it flows to the sea*
-> *Wherever that river goes, that's where I want to be*
-> *Flow, river, flow*
+> *The river flows, it flows to the sea*<br>
+> *Wherever that river goes, that's where I want to be*<br>
+> *Flow, river, flow*<br>
 
 Dylan gave the napkin to Fonda along with his blessing for another songwriter to take it from there.
 
@@ -27,7 +27,7 @@ Tucked into the encores that night, Bruce's version of "Ballad of Easy Rider" wa
 But if he was only ever going to play it once, he certainly made sure that performance was a stunner.
 
 **Ballad of Easy Rider**<br>
-**First performed:** August 20, 1981 (Los Angeles, CA)
-**Last performed:** August 20, 1981 (Los Angeles, CA)
+**First performed:** August 20, 1981 (Los Angeles, CA)<br>
+**Last performed:** August 20, 1981 (Los Angeles, CA)<br>
 
 

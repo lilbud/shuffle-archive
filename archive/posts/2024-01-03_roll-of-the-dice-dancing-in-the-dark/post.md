@@ -6,7 +6,7 @@
 >
 >
 >
-> That's all I remember thinking: if I wanted to I could do something right now that would change the whole thing…" *–Bruce Springsteen to Bill Flanagan, April 1987*
+> That's all I remember thinking: if I wanted to I could do something right now that would change the whole thing…" *–Bruce Springsteen to Bill Flanagan, April 1987*<br>
 
 The next time you're stuck in a rut, take a lesson from Bruce Springsteen. He changed the whole thing, and his life would never be the same again.
 
@@ -32,26 +32,26 @@ In one of the most ironic successes in rock history, "Dancing in the Dark" becam
 
 His opening verse takes its inspiration from John Prine's 1971 classic, "Angel From Montgomery." In Prine's song about a middle-aged woman intensely dissatisfied with her life, her marriage, and her unrealized dreams, she voices her frustration about her husband, a "child who's grown old":
 
-> *How the hell can a person*
-> *Go to work in the morning*
-> *Then come home in the evening*
-> *And have nothing to say?*
+> *How the hell can a person*<br>
+> *Go to work in the morning*<br>
+> *Then come home in the evening*<br>
+> *And have nothing to say?*<br>
 
 [Watch on Youtube: Angel from Montgomery](https://www.youtube.com/watch?v=U6cagWYTGCY)
 
 Bruce started with Prine's lyrics about life passing you by while you sit around getting older, but quickly realized they didn't ring true. He was a rock star, after all, and rock stars do *not* go to work in the morning. They go to work at night. So he inverted the conceit, and he was off to the races.
 
-> *I get up in the evening and I ain't got nothing to say*
-> *I come home in the morning, I go to bed feeling the same way*
-> *I ain't nothing but tired, man I'm just tired and bored with myself*
-> *Hey there baby, I could use just a little help*
+> *I get up in the evening and I ain't got nothing to say*<br>
+> *I come home in the morning, I go to bed feeling the same way*<br>
+> *I ain't nothing but tired, man I'm just tired and bored with myself*<br>
+> *Hey there baby, I could use just a little help*<br>
 
 Bruce takes Prine's notion a step further. It's not just that he has nothing to say at home; he's got nothing to say at work, either. He's blocked, jaded, bored, tired. (Let's not even pretend we're listening to a fictional narrator here; this is straight up Bruce.) And like Prine's protagonist, he's resentful for being stuck in a trap of his own making. He'd written dozens of songs, and his well is dry.
 
 He's just *done*.
 
-> *You can't start a fire, you can't start a fire without a spark*
-> *This gun's for hire even if we're just dancing in the dark*
+> *You can't start a fire, you can't start a fire without a spark*<br>
+> *This gun's for hire even if we're just dancing in the dark*<br>
 
 This is a dark chorus. Channeling his inner frustration, Bruce casts about looking for inspiration. Won't anybody give him some?
 
@@ -63,10 +63,10 @@ It's a neat trick, and for what I'm sure was at least 99% of Bruce's audience, i
 
 Bruce was ready to swing toward a tour when he wrote "Dancing in the Dark." The action wasn't in his head anymore, it was out there… *somewhere*. And he was going stir crazy trying to get there.
 
-> *Message just keep getting clearer, radio's on and I'm moving 'round my place*
-> *I check my look in the mirror, I wanna change my clothes, my hair, my face*
-> *Man, I ain't getting nowhere, I'm just living in a dump like this*
-> *There's something happening somewhere, baby I just know that there is*
+> *Message just keep getting clearer, radio's on and I'm moving 'round my place*<br>
+> *I check my look in the mirror, I wanna change my clothes, my hair, my face*<br>
+> *Man, I ain't getting nowhere, I'm just living in a dump like this*<br>
+> *There's something happening somewhere, baby I just know that there is*<br>
 
 Many if not most critics read those lines as Bruce revealing insecurities about his appearance. I think that's too shallow a read, although I certainly think Bruce chose that metaphor deliberately.
 
@@ -74,23 +74,23 @@ This verse is about a rock star trying to finish an album while pop culture move
 
 He was getting nowhere with his endless tinkering. He needed to finish the job and get out on the road, where at least something was happening.
 
-> *You sit around getting older, there's a joke here somewhere and it's on me*
-> *I'll shake this world off my shoulders, come on baby this laugh's on me*
+> *You sit around getting older, there's a joke here somewhere and it's on me*<br>
+> *I'll shake this world off my shoulders, come on baby this laugh's on me*<br>
 
 The bridge holds the song's turning point: fully aware that the world is moving on without him while he waffles with his album, he summons the will to… let it go. He shakes it it off his shoulders and accepts that it's long past time for him to have done so.
 
 From this point forward, "Dancing in the Dark" is about action rather than inaction.
 
-> *Stay on the streets of this town and they'll be carving you up alright*
-> *They say you gotta stay hungry, hey baby, I'm just about starving tonight*
-> *I'm dying for some action, I'm sick of sitting 'round here trying to write this book*
-> *I need a love reaction, come on now baby gimme just one look*
+> *Stay on the streets of this town and they'll be carving you up alright*<br>
+> *They say you gotta stay hungry, hey baby, I'm just about starving tonight*<br>
+> *I'm dying for some action, I'm sick of sitting 'round here trying to write this book*<br>
+> *I need a love reaction, come on now baby gimme just one look*<br>
 
-> *You can't start a fire sitting 'round crying over a broken heart*
-> *This gun's for hire even if we're just dancing in the dark*
-> *You can't start a fire worrying about your little world falling apart*
-> *This gun's for hire even if we're just dancing in the dark*
-> *Even if we're just dancing in the dark*
+> *You can't start a fire sitting 'round crying over a broken heart*<br>
+> *This gun's for hire even if we're just dancing in the dark*<br>
+> *You can't start a fire worrying about your little world falling apart*<br>
+> *This gun's for hire even if we're just dancing in the dark*<br>
+> *Even if we're just dancing in the dark*<br>
 
 It was time for Bruce to move forward. The album was done. He had no appetite for any more work on that "book." What he did hunger for was some action. A love reaction: the stage, the arena.
 
@@ -187,9 +187,9 @@ With luck, Bruce and the E Street Band will be back out on the road next year, a
 [Watch on Youtube: Bruce Springsteen performing](https://www.youtube.com/watch?v=g_9_r4r4nFI)
 
 **Dancing in the Dark**<br>
-**Recorded** February 14 – March 8, 1984  
-**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
-**First performed:** May 26, 1984 (Asbury Park, NJ)
-**Last performed:** November 6, 2023 (New York City, NY)
+**Recorded** February 14 – March 8, 1984<br>
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** May 26, 1984 (Asbury Park, NJ)<br>
+**Last performed:** November 6, 2023 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

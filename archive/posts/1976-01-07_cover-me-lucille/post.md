@@ -1,4 +1,4 @@
-Bruce has been covering Little Richard's "Lucille" in concert for decades, but you'd be forgiven for not knowing it: believe it or not, he performed it more than *forty times* in bar and club shows between the 35 years that separated his first two E Street Band performances.*
+Bruce has been covering Little Richard's "Lucille" in concert for decades, but you'd be forgiven for not knowing it: believe it or not, he performed it more than *forty times* in bar and club shows between the 35 years that separated his first two E Street Band performances.
 
 Here's one of the earliest times: Bruce with Beaver Brown on stage at Big Man's West in Red Bank in the summer of 1982.
 

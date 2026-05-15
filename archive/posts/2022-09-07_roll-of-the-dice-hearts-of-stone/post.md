@@ -34,18 +34,18 @@ But DNA typing isn't the only challenge we're presented with when analyzing "Hea
 
 "Hearts of Stone" is an affair song. Or rather, a post-affair song, sung by the one who returns to his partner, to the paramour who still pines for him. And it's hard to work up sympathy for him.
 
-> *You stare in the mirror at the lines in your face*
-> *And you try to see, girl*
-> *The way things were when we were at your place*
-> *In the days it was just you and me, girl*
-> *And you cry because things ain't like before*
-> *Well don't you know they can't be that way anymore*
-> *But don't worry baby*
+> *You stare in the mirror at the lines in your face*<br>
+> *And you try to see, girl*<br>
+> *The way things were when we were at your place*<br>
+> *In the days it was just you and me, girl*<br>
+> *And you cry because things ain't like before*<br>
+> *Well don't you know they can't be that way anymore*<br>
+> *But don't worry baby*<br>
 
-> *But I can't talk now, I'm not alone*
-> *So put your ear close to the phone*
-> *‘Cause this is the last dance*
-> *This is the last chance for hearts of stone*
+> *But I can't talk now, I'm not alone*<br>
+> *So put your ear close to the phone*<br>
+> *‘Cause this is the last dance*<br>
+> *This is the last chance for hearts of stone*<br>
 
 We're given to think that this is not a young couple. The unnamed, offscreen woman that Bruce sings to stares at the wrinkles on her face, as aware of her advancing age as she is of her loneliness.
 
@@ -59,13 +59,13 @@ The title plays on the different kind of mettle required by each ex-lover: he fe
 
 Bruce softens his narrator a bit in the second verse, his veneer cracking a bit as he almost pleads with her to understand. He doesn't accept responsibility, though, and he urges her to take solace in her vivid memories of their time together.
 
-> *If there was something, baby, that I could do*
-> *Something that would last, honey, I would*
-> *But we all know, girl, especially you do*
-> *How you can't return to your past, no*
-> *So girl close your eyes and I'll be there*
-> *Hold me once more and we can go anywhere*
-> *Ah, we could babe*
+> *If there was something, baby, that I could do*<br>
+> *Something that would last, honey, I would*<br>
+> *But we all know, girl, especially you do*<br>
+> *How you can't return to your past, no*<br>
+> *So girl close your eyes and I'll be there*<br>
+> *Hold me once more and we can go anywhere*<br>
+> *Ah, we could babe*<br>
 
 I imagine she takes very little comfort from that, but if there's any to be found at all, it's in The Big Man's swooningly soulful sax solo. If your heart doesn't break a bit when listening to it, it's probably made of, well, stone.
 
@@ -101,10 +101,10 @@ Bruce gave "Hearts of Stone" its E Street stage debut the following year on the 
 Since then, "Hearts of Stone" has made a few more appearances at benefit performances with Joe Grushecky, but it missed the last E Street Band tour entirely. It's one of the songs I'm hoping to hear again at least once more on the next tour, though, because it's too strong a song to stay unsung.
 
 **Hearts of Stone**<br>
-**Recorded** October 14, 1977, 1998  
-**Released:** *Hearts of Stone* (1978) (Southside Johnny vocal); *Tracks* (1998) (Bruce Springsteen vocal)
-**First performed:** November 26, 1988 (San Francisco, CA)
-**Last performed:** January 17, 2015 (Asbury Park, NJ)
+**Recorded** October 14, 1977, 1998<br>
+**Released:** *Hearts of Stone* (1978) (Southside Johnny vocal); *Tracks* (1998) (Bruce Springsteen vocal)<br>
+**First performed:** November 26, 1988 (San Francisco, CA)<br>
+**Last performed:** January 17, 2015 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 

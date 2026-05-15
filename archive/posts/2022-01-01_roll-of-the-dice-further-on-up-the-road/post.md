@@ -21,9 +21,9 @@ But "Further On (Up the Road)" is none of those things. It's simply a song of re
 In fairness, though, this is not one of Bruce's most accessible songs. It demands a close, attentive listen, especially if (as was the case at the time) you're not accustomed to hearing Bruce sing about such themes.
 
  *Where the road is dark and the seed is sowed*
-> *Where the gun is cocked and the bullet's cold*
-> *Where the miles are marked in blood and gold*
-> *I'll meet you further on up the road*
+> *Where the gun is cocked and the bullet's cold*<br>
+> *Where the miles are marked in blood and gold*<br>
+> *I'll meet you further on up the road*<br>
 
 Where the road is dark and seed is sowed–that's the future. That place we can't see now but that we know waits for us, along with the consequences of all of our decisions and actions.
 
@@ -33,20 +33,20 @@ Where the miles are marked in blood and gold–that's the measure of a life. The
 
 And no matter where we are on that road, we are always moving forward, ever forward.
 
-> *Got on my dead man's suit and my smiling skull ring*
-> *My lucky graveyard boots and a song to sing*
-> *I got a song to sing to keep me out of the cold*
-> *And I'll meet you further on up the road*
+> *Got on my dead man's suit and my smiling skull ring*<br>
+> *My lucky graveyard boots and a song to sing*<br>
+> *I got a song to sing to keep me out of the cold*<br>
+> *And I'll meet you further on up the road*<br>
 
 That's a great first couplet–so great that Bruce used it verbatim in "[Maria's Bed](https://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/)" as well. Our narrator is telling us he's not afraid of death. He knows it's out there waiting for him, and he's ready for it whenever it comes. In the meantime, he's got a life to live, a song to sing (a neat metaphor that works particularly well for those inclined to read a personal statement into Bruce's lyrics). Because if you're living, you're not dying.
 
 The chorus is where Bruce gets explicit, acknowledging the inevitability of death. But even here, listen carefully to what he sings:
 
-> *Further on up the road*
-> *Further on up the road*
-> *Where the way is dark and the night is cold*
-> *One sunny morning we'll rise I know*
-> *And I'll meet you further on up the road*
+> *Further on up the road*<br>
+> *Further on up the road*<br>
+> *Where the way is dark and the night is cold*<br>
+> *One sunny morning we'll rise I know*<br>
+> *And I'll meet you further on up the road*<br>
 
 One day I will die, but death is not the end. We will rise and meet again, further up the road–in the afterlife, if you're so inclined to believe, or in your dreams.
 
@@ -56,12 +56,12 @@ https://www.youtube.com/watch?v=QTkJO_qq7hM
 
 Let's continue with our road trip:
 
-> *Now I been out in the desert just doing my time*
-> *Searching through the dust looking for a sign*
-> *If there's a light up ahead, well brother I don't know*
-> *But I got this fever burning in my soul*
-> *So let's take the good times as they go*
-> *And I'll meet you further on up the road*
+> *Now I been out in the desert just doing my time*<br>
+> *Searching through the dust looking for a sign*<br>
+> *If there's a light up ahead, well brother I don't know*<br>
+> *But I got this fever burning in my soul*<br>
+> *So let's take the good times as they go*<br>
+> *And I'll meet you further on up the road*<br>
 
 The desert is metaphor as well: our search for meaning and purpose in a world that doesn't readily serve either to us on a platter. But if our narrator lacks those things, he at least has the drive to *live*. To experience. To make the most of the limited time we're given to travel on this road. So he'll gladly embrace the joys that life provides in this moment, even as he moves ever forward to the next one.
 
@@ -91,9 +91,9 @@ With his more sentimental "I'll See You in My Dreams" rewrite now firmly establi
 But you never know… the road is long.
 
 **Further On (Up the Road)**<br>
-**Recorded** Early 2002  
+**Recorded** Early 2002<br>
 **Released:** *The Rising* (2002)
-**First performed:** June 4, 2000 (Atlanta, GA)
-**Last performed:** May 23, 2014 (Pittsburgh, PA)
+**First performed:** June 4, 2000 (Atlanta, GA)<br>
+**Last performed:** May 23, 2014 (Pittsburgh, PA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

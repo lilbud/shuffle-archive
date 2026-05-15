@@ -18,31 +18,31 @@ The fifty-plus-year-old soundboard recording above is astoundingly clear, allowi
 
 As for the lyrics… well, like much of the Steel Mill and early Bruce Springsteen Band material, they're sort of beside the point. They're also a bit hard to decipher, but the fine folks at Springsteenlyrics.com gave it a shot and managed to get most of them. Several lines are still tough to hear, but like "One Way Out," there's not meant to be much substance here. "Last Night in Texas" is much more of a traditional blues (albeit in a rock arrangement) than Williamson's original.
 
-> *I said it's the last night in Texas*
-> *Movin' down to San Antone*
-> *It's my last night in Texas*
-> *Then I'm out of San Antone*
-> *???*
-> *Going to leave old Texas and me alone*
+> *I said it's the last night in Texas*<br>
+> *Movin' down to San Antone*<br>
+> *It's my last night in Texas*<br>
+> *Then I'm out of San Antone*<br>
+> *???*<br>
+> *Going to leave old Texas and me alone*<br>
 
-> *Well in South Dakota*
-> *Well I met ???*
-> *South Dakota yeah yeah*
-> *???*
-> *???*
-> *Spend the nights just ???*
+> *Well in South Dakota*<br>
+> *Well I met ???*<br>
+> *South Dakota yeah yeah*<br>
+> *???*<br>
+> *???*<br>
+> *Spend the nights just ???*<br>
 
-> *Well I'm moving on the westbound*
-> *Moving on the westbound train*
-> *Said I'm moving on the westbound*
-> *I'm on the westbound train*
-> *Once I get out of this town*
-> *Gonna never come back to Texas again*
+> *Well I'm moving on the westbound*<br>
+> *Moving on the westbound train*<br>
+> *Said I'm moving on the westbound*<br>
+> *I'm on the westbound train*<br>
+> *Once I get out of this town*<br>
+> *Gonna never come back to Texas again*<br>
 
-> *Last night in Texas and I'm on to San Antoine*
-> *Got no woman to treat me, no woman to call my own*
-> *???*
-> *God knows she won't leave it alone*
+> *Last night in Texas and I'm on to San Antoine*<br>
+> *Got no woman to treat me, no woman to call my own*<br>
+> *???*<br>
+> *God knows she won't leave it alone*<br>
 
 "Last Night in Texas" was hardly Bruce's best or most original work (even for the time period) but it's a fun rarity that was only captured on tape once.
 
@@ -51,7 +51,7 @@ Summer's only just beginning, though, and we'll have some stronger Bruce Springs
 **Last Night in Texas**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** May 15, 1971 (Union, NJ)
-**Last performed:** May 15, 1971 (Union, NJ)
+**First performed:** May 15, 1971 (Union, NJ)<br>
+**Last performed:** May 15, 1971 (Union, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

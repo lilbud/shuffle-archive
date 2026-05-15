@@ -12,31 +12,31 @@ Bruce's solo gigs at the Coffee House started just days later in May and continu
 
 But even at nineteen, Bruce's empathy is remarkable. Although he never served in uniform, he paints the landscape as if he had.
 
-> *Barren land unto me*
-> *Hungry faces in my dreams*
-> *Got a rifle slung over his brown shoulder*
-> *Only fifteen and a veteran soldier*
+> *Barren land unto me*<br>
+> *Hungry faces in my dreams*<br>
+> *Got a rifle slung over his brown shoulder*<br>
+> *Only fifteen and a veteran soldier*<br>
 
-> *Bloodthirsty cries pierce the night*
-> *Killing children, is it right*
-> *And is it for freedom that they fight*
-> *Or the will to live and the fear to die*
+> *Bloodthirsty cries pierce the night*<br>
+> *Killing children, is it right*<br>
+> *And is it for freedom that they fight*<br>
+> *Or the will to live and the fear to die*<br>
 
-> *Body's sweatin' out all the inborn hate*
-> *Live for that moment in the shade*
-> *Or to get out of the tarred sun*
-> *Bodies I know droppin' one by one*
+> *Body's sweatin' out all the inborn hate*<br>
+> *Live for that moment in the shade*<br>
+> *Or to get out of the tarred sun*<br>
+> *Bodies I know droppin' one by one*<br>
 
-> *Thousands come one and all*
-> *Hear the sound of the battle call*
-> *The big men say boys you all have to go*
-> *Ask any question and you face the wall*
+> *Thousands come one and all*<br>
+> *Hear the sound of the battle call*<br>
+> *The big men say boys you all have to go*<br>
+> *Ask any question and you face the wall*<br>
 
-> *Listen now what I tell you boy*
-> *There's got to be some changes*
-> *And they have to be made now*
-> *Hear the sound of the battle call*
-> *Soon you won't hear no sound at all*
+> *Listen now what I tell you boy*<br>
+> *There's got to be some changes*<br>
+> *And they have to be made now*<br>
+> *Hear the sound of the battle call*<br>
+> *Soon you won't hear no sound at all*<br>
 
 Because "The War Song" is so on the nose, there's not a lot I can add to what you'll glean simply by reading the lyrics. Bruce is clearly grappling with the horrors expected of, inflicted on and committed by American soldiers in Vietnam, young men pressed into and unable to refuse service.
 
@@ -45,6 +45,6 @@ The last verse is a haunting one–Bruce clearly recognizes the need for those a
 **The War Song**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** 1968 (unconfirmed)**Last performed:** 1968 (unconfirmed)
+**First performed:** 1968 (unconfirmed)**Last performed:** 1968 (unconfirmed)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

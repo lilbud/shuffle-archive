@@ -14,7 +14,7 @@ Elvis recorded six songs for the movie, four of which were released on a soundtr
 
 (Little known but true story: during the filming of *Follow That Dream*, a crew member named Earl Jernigan brought his ten-year-old nephew to the set to meet The King. The boy had little interest in rock and roll, but he loved movies and jumped at chance to see one being made. Elvis noticed the young set visitor and spent a few minutes talking to him, igniting a new passion in the boy. From that day forward, little Tom Petty vowed to be a rock and roll star when he grew up.)
 
-"Follow That Dream" (the original version) is sun-drenched and care-free, a paean to persistence and a prayer for companionship along the way. The song's intro and outro set the tone: *Keep a-moving, move along!*
+"Follow That Dream" (the original version) is sun-drenched and care-free, a paean to persistence and a prayer for companionship along the way. The song's intro and outro set the tone: *Keep a-moving, move along!*<br>
 
 And of course, that's exactly what Elvis did–along with American pop culture. The Beatles arrived in America two years after *Follow That Dream*, and by the late 1960s, Elvis' popularity started to decline. A comeback television special re-established him, but his body couldn't meet the demands his touring schedule placed on it.
 
@@ -40,9 +40,9 @@ Bruce debuted the song as a show opener(!), undoubtedly surprising his French fa
 
 Bruce changed more than the arrangement–he also heavily altered the lyrics, significantly adding to the weight for the song.
 
-Elvis gave advice to weary travelers: "*When your heart gets restless, time to move along. When your heart gets weary, time to sing a song."*
+Elvis gave advice to weary travelers: "*When your heart gets restless, time to move along. When your heart gets weary, time to sing a song."*<br>
 
-Bruce, by contrast, offers a diagnosis for the broken-hearted and exhausted: "*If your heart is restless from waiting so long, if you're tired and weary and you can't go on."*
+Bruce, by contrast, offers a diagnosis for the broken-hearted and exhausted: "*If your heart is restless from waiting so long, if you're tired and weary and you can't go on."*<br>
 
 Bruce also ups the stakes of Elvis' search for "*someone to look for my dream with me*," instead aching for "*a love I can trust*."
 
@@ -50,10 +50,10 @@ While the central anchor of "Follow that dream wherever it may lead" may be inta
 
 Springsteen also adds an entirely new verse:
 
-> *Now every man has the right to live  
-The right to a chance to give what he has to give*
-> *The right to fight for the things he believes  
-For things that come to him in dreams*
+> *Now every man has the right to live*<br>
+> *The right to a chance to give what he has to give*<br>
+> *The right to fight for the things he believes*<br>
+> *For things that come to him in dreams*<br>
 
 Those last words in that last line–*in dreams**–*are another noteworthy Springsteen addition to the song. a quote of sorts from Roy Orbison's *In Dreams* that threads through the song, lending it an otherworldly ambience.
 
@@ -80,9 +80,9 @@ While fans would have to wait until 2025 to hear the official studio recording, 
 [Watch on Youtube: Follow That Dream - Bruce Springsteen - Brisbane - 16th February 2017](https://www.youtube.com/watch?v=fJNqfH_m7EM)
 
 **Follow That Dream**<br>
-**Recorded** January 30, 1983  
+**Recorded** January 30, 1983<br>
 **Released:** *L.A. Garage Sessions '83* (2025)
-**First performed:** April 19, 1981 (Paris, France)
-**Last performed:** February 16, 2017 (Brisbane, Australia)
+**First performed:** April 19, 1981 (Paris, France)<br>
+**Last performed:** February 16, 2017 (Brisbane, Australia)<br>
 
 © January 18, 2026

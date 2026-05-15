@@ -2,7 +2,7 @@ Editor's Note
 
 ***Editor's Note:*** *I wasn't planning on having another guest blogger so soon, but a funny thing happened after I published [Sandi Pederson's Where the Band Was report](https://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/) from Bruce's "Dancing in the Dark" video shoot and opening Born in the U.S.A. Tour shows the other day: Another fan who was there for both the shoot and those opening shows read Sandi's article and reached out to me with more detail about the video shoot and some absolutely stunning photos from those shows.*
 
-> *Kevin Doyle was one of the 200 or so extras behind the stage… at least at first. How he got there and where he ended up is his story to tell, so without further ado, here's Kevin's first-hand account of that historic day in St. Paul, interspersed with his incredible photos from the shows that followed during the opening St. Paul Stand.*
+> *Kevin Doyle was one of the 200 or so extras behind the stage… at least at first. How he got there and where he ended up is his story to tell, so without further ado, here's Kevin's first-hand account of that historic day in St. Paul, interspersed with his incredible photos from the shows that followed during the opening St. Paul Stand.*<br>
 
 In 1984, there was no internet, no cell phones. You communicated by landline and letters, so when I left the house on that fateful Thursday afternoon, there was no personal communication.
 

@@ -74,9 +74,9 @@ But while Bruce may have kept "Linda" in the vault until 1998, he liberated her 
 (I have no idea why he thought they were written twenty years apart though. It was five at most.)
 
 **Linda Let Me Be The One**<br>
-**Recorded** May-July, 1975  
+**Recorded** May-July, 1975<br>
 **Released:** *Tracks* (1998)
-**First performed:** April 29, 2014 (Sunrise, FL)
-**Last performed:** April 29, 2014 (Sunrise, FL)
+**First performed:** April 29, 2014 (Sunrise, FL)<br>
+**Last performed:** April 29, 2014 (Sunrise, FL)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

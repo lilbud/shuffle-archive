@@ -21,5 +21,5 @@ What's the holiday connection? Beats the heck out of me.
 All I know is we got a one-time (well, two-time) pairing on a gorgeous song, and that's good enough for me.
 
 **The End of the Innocence**<br>
-**First performed:** December 7, 2001 (Asbury Park, NJ)
-**Last performed:** December 8, 2001 (Asbury Park, NJ)
+**First performed:** December 7, 2001 (Asbury Park, NJ)<br>
+**Last performed:** December 8, 2001 (Asbury Park, NJ)<br>

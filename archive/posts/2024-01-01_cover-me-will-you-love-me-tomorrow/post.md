@@ -22,6 +22,6 @@ May 15, 1971 (Union, NJ)
 January 17, 1990 (New York City, NY)
 
 **Will You Love Me Tomorrow**<br>
-**First performed:** <br>
+**First performed:**<br>
 
 **Last performed:**<br>

@@ -30,5 +30,5 @@ October 4, 1975 (Detroit, MI)
 July 16, 2013 (Limerick, Ireland)
 
 **Ain't Too Proud to Beg**<br>
-**First performed:** <br>
+**First performed:**<br>
 **Last performed:**<br>

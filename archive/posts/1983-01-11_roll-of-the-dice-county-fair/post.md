@@ -88,8 +88,8 @@ This is one of the rare instances, however, where a live Bruce Springsteen perfo
 
 **County Fair**<br>
 **Recorded:** early 1983
-**Released:** *The Essential Bruce Springsteen* (2003), *L.A. Garage Sessions* (2025)
-**First performed:** September 20, 2003 (Darien, NY)
-**Last performed:** August 6, 2005 (St. Louis, MO)
+**Released:** *The Essential Bruce Springsteen* (2003), *L.A. Garage Sessions* (2025)<br>
+**First performed:** September 20, 2003 (Darien, NY)<br>
+**Last performed:** August 6, 2005 (St. Louis, MO)<br>
 
 © February 17, 2018

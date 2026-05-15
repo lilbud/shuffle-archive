@@ -36,14 +36,14 @@ The result was one of the only official tracks where Bruce Springsteen is outshi
 
 Although it was never released as a single, "Man's Job" became one of the standout tracks of Bruce's *Human Touch* album in 1992. For its first half, it plays like a straight-up Stax classic, reimagined for a more modern, less macho era.
 
-> *Well you can go out with him, play with all of his toys*
-> *But taking care of you darling ain't for one of the boys*
-> *Oh there's something in your soul that he's gonna rob*
-> *And loving you baby, loving you darling*
-> *Loving you woman is a man's man's job*
+> *Well you can go out with him, play with all of his toys*<br>
+> *But taking care of you darling ain't for one of the boys*<br>
+> *Oh there's something in your soul that he's gonna rob*<br>
+> *And loving you baby, loving you darling*<br>
+> *Loving you woman is a man's man's job*<br>
 
-> *Loving you's a man's job baby*
-> *Loving you's a man's job*
+> *Loving you's a man's job baby*<br>
+> *Loving you's a man's job*<br>
 
 The conceit of "Man's Job" is the play on the title phrase. Bruce liberates a term commonly used to gender stereotype physical labor and instead applies it to the hard emotional work required to forge and maintain a loving, supportive relationship.
 
@@ -51,28 +51,28 @@ The conceit of "Man's Job" is the play on the title phrase. Bruce liberates a te
 
 The second verse travels similar ground as the first:
 
-> *Well now his kisses may thrill those other girls that he likes*
-> *But when it comes to treating a real woman right*
-> *Well of all of his tricks no they won't be enough*
-> *‘Cause loving you baby, loving you woman*
-> *Loving you darling is a man's man's job*
+> *Well now his kisses may thrill those other girls that he likes*<br>
+> *But when it comes to treating a real woman right*<br>
+> *Well of all of his tricks no they won't be enough*<br>
+> *‘Cause loving you baby, loving you woman*<br>
+> *Loving you darling is a man's man's job*<br>
 
 But as usual, it's the bridge that gives away the game.
 
-> *You're dancing with him, he's holding you tight*
-> *I'm standing here waiting to catch your eye*
-> *Your hand's on his neck as the music sways*
-> *All my illusions slip away*
+> *You're dancing with him, he's holding you tight*<br>
+> *I'm standing here waiting to catch your eye*<br>
+> *Your hand's on his neck as the music sways*<br>
+> *All my illusions slip away*<br>
 
 Notice how Bruce's warm, smooth vocals slip away as he enters the bridge, along with his narrator's cool confidence. His voice arches with anxiety as we discover that the entire song until this point has been the narrator's inner monologue as he watches from the sidelines as his love interest draws close to another.
 
 If he's trying to psych himself up, it's not working. Our would-be hero is rooted in place, unable to work up the courage to ask her to dance let alone prove his love.
 
-> *Now if you're looking for a hero, someone to save the day*
-> *Well darling my feet they're made of clay*
-> *But I've got something in my soul I wanna give it up*
-> *But getting up the nerve, getting up the nerve*
-> *Getting up the nerve is a man's man's job*
+> *Now if you're looking for a hero, someone to save the day*<br>
+> *Well darling my feet they're made of clay*<br>
+> *But I've got something in my soul I wanna give it up*<br>
+> *But getting up the nerve, getting up the nerve*<br>
+> *Getting up the nerve is a man's man's job*<br>
 
 The last lines leave us with a cliffhanger: he seems poised to move, but will he? Bruce seems content to let us decide for ourselves.
 
@@ -95,9 +95,9 @@ With the benefit of the E Street Horns (an essential Stax element) and a fully p
 "Man's Job" flies under the radar in E Street Nation. It doesn't surface on many "Best of" lists, and you'll rarely spot it on a request sign. But it's a sweet, infectious trifle that deserves more recognition (and outings) than it gets.
 
 **Man's Job**<br>
-**Recorded** December 1989-January 1990  
-**Released:** *Human Touch* (1992)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** July 13, 1992 (Werchter, Belgium)
+**Recorded** December 1989-January 1990<br>
+**Released:** *Human Touch* (1992)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** July 13, 1992 (Werchter, Belgium)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

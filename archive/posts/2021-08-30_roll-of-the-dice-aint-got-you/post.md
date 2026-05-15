@@ -30,39 +30,39 @@ There's a rueful irony at play in "Ain't Got You," although his fans didn't know
 
 It did, of course, but only obliquely. With the benefit of time and hindsight (and the knowledge that Bruce and Patti were probably several months into their affair by the time Bruce recorded the song), it's likely that "Ain't Got You" is addressed to Bruce's second wife, not his first.
 
-> *I got the fortunes of heaven in diamonds and gold*
-> *I got all the bonds baby that the bank could hold*
-> *Well I got houses ‘cross the country honey end to end*
-> *And everybody buddy wants to be my friend*
-> *Well I got all the riches baby any man ever knew*
-> *But the only thing I ain't got honey I ain't got you*
+> *I got the fortunes of heaven in diamonds and gold*<br>
+> *I got all the bonds baby that the bank could hold*<br>
+> *Well I got houses ‘cross the country honey end to end*<br>
+> *And everybody buddy wants to be my friend*<br>
+> *Well I got all the riches baby any man ever knew*<br>
+> *But the only thing I ain't got honey I ain't got you*<br>
 
-> *I got a house full of Rembrandt and priceless art*
-> *And all the little girls they wanna tear me apart*
-> *When I walk down the street people stop and stare*
-> *Well you'd think I might be thrilled but baby I don't care*
-> *‘Cause I got more good luck honey than old King Farouk*
-> *But the only thing I ain't got baby I ain't got you*
+> *I got a house full of Rembrandt and priceless art*<br>
+> *And all the little girls they wanna tear me apart*<br>
+> *When I walk down the street people stop and stare*<br>
+> *Well you'd think I might be thrilled but baby I don't care*<br>
+> *‘Cause I got more good luck honey than old King Farouk*<br>
+> *But the only thing I ain't got baby I ain't got you*<br>
 
 Bruce so distracts with his boasts of exaggerated riches (even in these immediately post-*Born in the U.S.A.* years Bruce wasn't buying a string of houses or bedecking himself in bling) and unexaggerated fame that it's easy to miss or dismiss his narrator's longing. But the bridge should make it clear:
 
-> *I got a big diamond watch sitting on my wrist*
-> *I try to tempt you baby but you just resist*
-> *I made a deal with the devil babe I won't deny*
-> *Until I got you in my arms I can't be satisfied*
+> *I got a big diamond watch sitting on my wrist*<br>
+> *I try to tempt you baby but you just resist*<br>
+> *I made a deal with the devil babe I won't deny*<br>
+> *Until I got you in my arms I can't be satisfied*<br>
 
 Let's linger on that "deal with the devil" line a moment, because it may be the most significant line in the song. Superficially, it suggests that the narrator chose a life of fame at the cost of true love, and the song works just fine that way. But while Bruce would never then or now characterize his first wife as a devil, it's easy to understand how someone who discovered their soulmate only after marrying someone else might view his marriage as an irrevocable and regrettable deal (especially someone as steeped in a Catholic upbringing as Bruce).
 
 Bruce drives it home in the second half of the final verse, in lyrics as autobiographical as anything he's ever written:
 
-> *I got a pound of caviar sitting home on ice*
-> *I got a fancy foreign car that rides like paradise*
-> *I got a hundred pretty women knocking down my door*
-> *And folks wanna kiss me I ain't even seen before*
-> *I been around the world and all across the seven seas*
-> *Been paid a king's ransom for doing what comes naturally*
-> *But I'm still the biggest fool honey this world ever knew*
-> *‘Cause the only thing I ain't got baby I ain't got you*
+> *I got a pound of caviar sitting home on ice*<br>
+> *I got a fancy foreign car that rides like paradise*<br>
+> *I got a hundred pretty women knocking down my door*<br>
+> *And folks wanna kiss me I ain't even seen before*<br>
+> *I been around the world and all across the seven seas*<br>
+> *Been paid a king's ransom for doing what comes naturally*<br>
+> *But I'm still the biggest fool honey this world ever knew*<br>
+> *‘Cause the only thing I ain't got baby I ain't got you*<br>
 
 *I'm still the biggest fool, honey.* Those sound very much like the words of a man who thought he knew what love is before learning too late.
 
@@ -90,9 +90,9 @@ It's been sixteen years since we last heard from "Ain't Got You" in a Springstee
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WQYKWveDFWY)
 
 **Ain't Got You  
-Recorded:** January – April 1987  
-**Released:** *Tunnel of Love* (1987)
-**First performed:** March 26, 1988 (Lexington, KY)
-**Last performed:** November 19, 2005 (Hollywood, FL)
+**Recorded:** January – April 1987  
+**Released:** *Tunnel of Love* (1987)<br>
+**First performed:** March 26, 1988 (Lexington, KY)<br>
+**Last performed:** November 19, 2005 (Hollywood, FL)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

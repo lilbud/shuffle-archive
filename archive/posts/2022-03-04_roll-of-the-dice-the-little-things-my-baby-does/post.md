@@ -16,38 +16,38 @@ This is a love letter to the girl groups of the 1960s, from Max's abrupt, machin
 
 It's a gorgeous track from any angle, so let's not diminish it by analyzing the lyrics, because they're secondary at best. There's not a lot to analyze, anyway:
 
-> *The way she kisses so tenderly*
-> *The way she gives her love to me*
-> *I been felt by the graces and angels up above*
-> *The little things my baby does*
-> *The little things my baby does*
-> *The little things my baby does*
-> *That make me love her*
+> *The way she kisses so tenderly*<br>
+> *The way she gives her love to me*<br>
+> *I been felt by the graces and angels up above*<br>
+> *The little things my baby does*<br>
+> *The little things my baby does*<br>
+> *The little things my baby does*<br>
+> *That make me love her*<br>
 
-> *The way she sighs when I hold her tight*
-> *Good times and bad will be alright*
-> *Faces on the street they push hard and they shove*
-> *Disappear with the little things my baby does*
-> *The little things my baby does*
-> *The little things my baby does*
-> *I know I love her*
+> *The way she sighs when I hold her tight*<br>
+> *Good times and bad will be alright*<br>
+> *Faces on the street they push hard and they shove*<br>
+> *Disappear with the little things my baby does*<br>
+> *The little things my baby does*<br>
+> *The little things my baby does*<br>
+> *I know I love her*<br>
 
-> *The soft summer breeze fills her every sigh*
-> *Her eyes are bluer than the summer sky*
+> *The soft summer breeze fills her every sigh*<br>
+> *Her eyes are bluer than the summer sky*<br>
 
-> *I been felt by the graces and angels up above*
-> *The little things my baby does*
-> *The little things my baby does*
-> *The little things my baby does*
-> *That make me love her*
+> *I been felt by the graces and angels up above*<br>
+> *The little things my baby does*<br>
+> *The little things my baby does*<br>
+> *The little things my baby does*<br>
+> *That make me love her*<br>
 
-> *And when the night closes in*
-> *I'm drifting and I can't find a friend*
-> *On the wings of the angels I'm saved by her love*
-> *The little things my baby does*
-> *The little things my baby does*
-> *The little things my baby does*
-> *That make me love her*
+> *And when the night closes in*<br>
+> *I'm drifting and I can't find a friend*<br>
+> *On the wings of the angels I'm saved by her love*<br>
+> *The little things my baby does*<br>
+> *The little things my baby does*<br>
+> *The little things my baby does*<br>
+> *That make me love her*<br>
 
 If there's anything of interest here, it's the similarity in content and structure to another of Bruce's contemporaneous songs, "[The Way](https://estreetshuffle.com/index.php/2021/08/06/roll-of-the-dice-the-way/)." Recorded only a couple of months apart, an argument can be made for the evolution of "The Little Things (My Baby Does)" into "The Way," even though there are no actual common lyrics or melodic elements.
 
@@ -55,7 +55,7 @@ Locked in the vault for decades, Bruce finally released "The Little Things (My B
 
 **The Little Things (My Baby Does)**<br>
 **Recorded** August 15, 1977 (core track), July 2010 (vocals)
-**Released:** *The Promise* (2010)
+**Released:** *The Promise* (2010)<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

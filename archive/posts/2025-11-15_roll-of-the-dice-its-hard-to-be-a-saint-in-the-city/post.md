@@ -8,12 +8,12 @@ So let's start off by listening to the original mix, and turn the volume way up 
 
 Yeah, that's Bruce rapping his way out of the song as the music fades:
 
-> *Walking down some side street*
-> *With your back flat jacked up against some wall*
-> *A-cutting down the corner with the wind*
-> *She cuts your car, she cuts your car, the wind, she cuts your car*
-> *Well the way the black ash flow through*
-> *Well can you, the black ash flow through*
+> *Walking down some side street*<br>
+> *With your back flat jacked up against some wall*<br>
+> *A-cutting down the corner with the wind*<br>
+> *She cuts your car, she cuts your car, the wind, she cuts your car*<br>
+> *Well the way the black ash flow through*<br>
+> *Well can you, the black ash flow through*<br>
 
 Is it significant? Does it change the meaning of the song? Nah–it's just cool, and this song is nothing if not a celebration of and a struggle to be (or maybe keep) cool.
 
@@ -23,17 +23,17 @@ He was the lookout for a local pimp relying on his gift of gab, which is serious
 
 *With my **blackjack** and **jack**et and hair slicked sweet*
 *Silver star **studs** on my **duds** like a Harley in heat*
-> *When I strut down the street I could feel the heartbeat*
+> *When I strut down the street I could feel the heartbeat*<br>
 
 Holy cow, that's some hotshot writing!
 
 And then one day, he gambles in a street game over a steam vent and loses–but then something miraculous happens:
 
-> *And when the heat came down and it was left on the ground*
-> *Devil appeared like Jesus through the steam in the street*
-> *Showin' me a hand I knew even the cops couldn't beat*
-> *I felt his hot breath on my neck as I dove into the heat*
-> *It's so hard to be a saint when you're just a boy out on the street*
+> *And when the heat came down and it was left on the ground*<br>
+> *Devil appeared like Jesus through the steam in the street*<br>
+> *Showin' me a hand I knew even the cops couldn't beat*<br>
+> *I felt his hot breath on my neck as I dove into the heat*<br>
+> *It's so hard to be a saint when you're just a boy out on the street*<br>
 
 The police arrive on the scene, and the players scatter, abandoning their cards and their cash. And through the chaos, our "hero" sees his opportunity–he dives for the cash, feeling the Devil's breath in the steam from the vent, and makes a run for it.
 
@@ -55,27 +55,27 @@ The lyrics are also subtly different between the two versions. For the first hal
 
 But about two thirds of the way through, the small changes start having a bigger impact. Let's pick up the story where we left off:
 
-> *It's too hot in these tunnels, you can get hit up by the heat*
-> *I get up to get out at the next stop but they push me down in the seat*
-> *My heart starts beatin' faster as I struggle to my feet*
-> *And I get out of that hole and I'm back up on the street*
+> *It's too hot in these tunnels, you can get hit up by the heat*<br>
+> *I get up to get out at the next stop but they push me down in the seat*<br>
+> *My heart starts beatin' faster as I struggle to my feet*<br>
+> *And I get out of that hole and I'm back up on the street*<br>
 
-> *And them south side sisters sure look pretty*
-> *Oh, and the cripple on the corner knows I don't pay for no pity*
-> *And them gasoline boys, yeah, they sure talk gritty*
-> *It's so hard to be a saint in the city*
+> *And them south side sisters sure look pretty*<br>
+> *Oh, and the cripple on the corner knows I don't pay for no pity*<br>
+> *And them gasoline boys, yeah, they sure talk gritty*<br>
+> *It's so hard to be a saint in the city*<br>
 
 …becomes:
 
-> *But it's too hot in these tunnels, you can get hit up by the heat*
+> *But it's too hot in these tunnels, you can get hit up by the heat*<br>
 ***You** get up to get out at **your** next stop but they push **you** back down in **your** seat*
 ***Your** heart starts beatin' faster as **you** struggle to **your** feet*
 *And **you're** out of that hole, back up on the street*
 
-> *And them south side sisters sure look pretty*
+> *And them south side sisters sure look pretty*<br>
 *The cripple on the corner cries out, "**Nickels for your pity**"*
-> *Them downtown boys, they sure talk gritty*
-> *It's so hard to be a saint in the city*
+> *Them downtown boys, they sure talk gritty*<br>
+> *It's so hard to be a saint in the city*<br>
 
 In other words, Bruce took an intensely personal song and made it more inclusive by changing the perspective mid-song from first- to second-person. It's a deliberate technique that Bruce uses from time to time to trick us into identifying with the main character of the song. It's sneaky, and it almost always works.
 
@@ -108,9 +108,9 @@ For my money the song still works best acoustically. I haven't been lucky enough
 [Watch on Youtube: It's Hard to Be a Saint in the City (Live at Paramount Theatre, Asbury Park, NJ - 11/26/1996)](https://www.youtube.com/watch?v=EPiO9KtIVr0)
 
 **It's Hard to Be a Saint in the City**<br>
-**Recorded** June-October 1972  
-**Released:** *[Greetings from Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*(1973), *Tracks* (1998) (Demo version)
-**First performed:** May 2, 1972 (New York City, NY)
-**Last performed:** April 3, 2023 (Brooklyn, NY)
+**Recorded** June-October 1972<br>
+**Released:** *[Greetings from Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*(1973), *Tracks* (1998) (Demo version)<br>
+**First performed:** May 2, 1972 (New York City, NY)<br>
+**Last performed:** April 3, 2023 (Brooklyn, NY)<br>
 
 © October 21, 2018

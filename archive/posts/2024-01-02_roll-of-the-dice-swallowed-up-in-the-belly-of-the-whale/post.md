@@ -28,40 +28,40 @@ Musically, there's a lot going on: the simulated ocean waves, the somber bass dr
 
 The lyrics pave more familiar ground, employing biblical metaphor (in this case, the story of Jonah and the whale) for secular purpose.
 
-> *I fell asleep on a dark and starless sea*
-> *With nothing but the cloak of God's mercy over me*
-> *I come upon strange earth and a great black cave*
-> *I dreamt I awoke as if buried in my grave*
+> *I fell asleep on a dark and starless sea*<br>
+> *With nothing but the cloak of God's mercy over me*<br>
+> *I come upon strange earth and a great black cave*<br>
+> *I dreamt I awoke as if buried in my grave*<br>
 
-> *We've been swallowed up*
-> *We've been swallowed up*
-> *Disappeared from this world*
-> *We've been swallowed up*
+> *We've been swallowed up*<br>
+> *We've been swallowed up*<br>
+> *Disappeared from this world*<br>
+> *We've been swallowed up*<br>
 
 Now, it certainly possible to interpret "Swallowed Up" in a broader context than purely economic, especially with only the first verse and chorus to reflect on. The notion of a great black cave that swallows one whole is a pretty apt way to describe depression.
 
 But there's something about that third line in the chorus–"Disappeared from this world"–that suggests something more. The second verse suggests as much, too:
 
-> *The bones of sailors from the north and sailors from the east*
-> *Lay high in a pyre in the belly of a beast*
-> *A beast should you wander in its path upon your ship and your flesh he'll sup*
-> *You'll disappear from this world 'til you've been swallowed up*
+> *The bones of sailors from the north and sailors from the east*<br>
+> *Lay high in a pyre in the belly of a beast*<br>
+> *A beast should you wander in its path upon your ship and your flesh he'll sup*<br>
+> *You'll disappear from this world 'til you've been swallowed up*<br>
 
 Besides what must be Bruce's most awkward syntactical construction, that verse implies that this isn't an inner demon, and it isn't a personal one: it's claimed the lives of the narrator's countrymen, and it claims as its prize not just your soul but your home.
 
 But as is often the case with Bruce, it comes down to a single couplet to drive the message home:
 
-> *We trusted our skills and our good sails*
-> *Put our faith that with God the righteous in this world prevail*
+> *We trusted our skills and our good sails*<br>
+> *Put our faith that with God the righteous in this world prevail*<br>
 
 And that's the song's heart and torment in a nutshell: we're raised to believe that with strong skill, persistence, values, and faith, we'll find a path in this world–if not to riches, then at least to security.
 
 But that's no longer the case, if it ever was:
 
-> *But we've been swallowed up*
-> *We've been swallowed up*
-> *Disappeared from this world*
-> *We've been swallowed up*
+> *But we've been swallowed up*<br>
+> *We've been swallowed up*<br>
+> *Disappeared from this world*<br>
+> *We've been swallowed up*<br>
 
 There may be opportunity out there. But there's also a beast, a whale that feeds on smaller creatures to survive. And each time the whale feeds, it grows bigger, stronger, more dangerous.
 
@@ -76,7 +76,7 @@ It's so potent that I almost postponed writing this article when the dice turned
 That's some pretty great art.
 
 **Swallowed Up (In the Belly of the Whale)**<br>
-**Recorded** 2011  
+**Recorded** 2011<br>
 **Released:** *Wrecking Ball* (2012)
 **Never performed**<br>
 

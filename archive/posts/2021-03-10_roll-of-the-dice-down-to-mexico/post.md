@@ -48,7 +48,7 @@ I think not.
 **Down to Mexico**<br>
 Never recorded  
 Never released  
-**First performed:** February 4, 1972 (Richmond, VA)
-**Last performed:** February 26, 1972 (Richmond, VA)
+**First performed:** February 4, 1972 (Richmond, VA)<br>
+**Last performed:** February 26, 1972 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

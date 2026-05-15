@@ -137,7 +137,7 @@ As far as we know, he's never recorded "Freehold" in the studio. It remains a co
 
 **Freehold**<br>
 **Never recorded or released**<br>
-**First performed:** November 8, 1996 (Freehold, NJ)
-**Last performed:** February 20, 2003 (Somerville, MA)
+**First performed:** November 8, 1996 (Freehold, NJ)<br>
+**Last performed:** February 20, 2003 (Somerville, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

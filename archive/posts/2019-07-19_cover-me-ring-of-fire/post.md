@@ -37,5 +37,5 @@ I bring that last one up because the one other time that Bruce performed "Ring o
 [Watch on Youtube: Social Distortion w/ Bruce Springsteen - Ring of Fire - 9/30/18 - Asbury Park NJ - Sea.Hear.Now](https://www.youtube.com/watch?v=MKWlQy9d2Ug)
 
 **Ring of Fire**<br>
-**First performed:** March 13, 1973 (Boston, MA)
-**Last performed:** September 30, 2018 (Asbury Park, NJ)
+**First performed:** March 13, 1973 (Boston, MA)<br>
+**Last performed:** September 30, 2018 (Asbury Park, NJ)<br>

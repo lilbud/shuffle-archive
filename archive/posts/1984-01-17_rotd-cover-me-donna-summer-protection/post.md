@@ -74,7 +74,7 @@ Despite Summer's inclusion of it on her own album, "Protection" was at one point
 
 **Protection**<br>
 **Recorded** February 23, 1982 (E Street Band version); March 1982 (Donna Summer version)
-**Released:** *Donna Summer* (1982)
+**Released:** *Donna Summer* (1982)<br>
 **Never performed**<br>
 
 © December 26, 2021

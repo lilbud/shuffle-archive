@@ -40,6 +40,6 @@ The Gotham Playboys (the core and inspiration of the Sessions Band) were the eve
 **Recorded:** November 2, 1997<br>
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
-**Last performed:** May 16, 2015 (New York City, NY)
+**Last performed:** May 16, 2015 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

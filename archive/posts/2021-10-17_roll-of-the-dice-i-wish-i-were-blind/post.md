@@ -32,23 +32,23 @@ I realized with surprise that like "[Real World](https://estreetshuffle.com/inde
 
 "I Wish I Were Blind" works best (and possibly only) as a solo performance. I mean *of course* it does–just listen to the lyrics:
 
-> *I love to see the cottonwood blossom in the early spring*
-> *I love to see the message of love that the bluebird brings*
-> *But when I see you walking with him down along the strand*
-> *I wish I were blind when I see you with your man*
+> *I love to see the cottonwood blossom in the early spring*<br>
+> *I love to see the message of love that the bluebird brings*<br>
+> *But when I see you walking with him down along the strand*<br>
+> *I wish I were blind when I see you with your man*<br>
 
-> *I love to see your hair shining in the long summer's light*
-> *I love to watch the stars fill the sky on a summer night*
-> *The music plays, you take his hand, I watch how you touch him as you start to dance*
-> *And I wish I were blind when I see you with your man*
+> *I love to see your hair shining in the long summer's light*<br>
+> *I love to watch the stars fill the sky on a summer night*<br>
+> *The music plays, you take his hand, I watch how you touch him as you start to dance*<br>
+> *And I wish I were blind when I see you with your man*<br>
 
-> *We struggle here but all our love's in vain*
-> *Oh these eyes that once filled me with your beauty now fill me with pain*
-> *And the light that once entered here is banished from me*
-> *Oh and this darkness is all baby that my heart sees*
+> *We struggle here but all our love's in vain*<br>
+> *Oh these eyes that once filled me with your beauty now fill me with pain*<br>
+> *And the light that once entered here is banished from me*<br>
+> *Oh and this darkness is all baby that my heart sees*<br>
 
-> *And though this world is filled with the grace and beauty of God's hand*
-> *Oh I wish I were blind when I see you with your man*
+> *And though this world is filled with the grace and beauty of God's hand*<br>
+> *Oh I wish I were blind when I see you with your man*<br>
 
 We are listening to the torment of a man who found true love, lost true love, and now has to watch true love pair with somebody else. Even when he's not alone, he's alone. That loneliness is underscored when this song is performed solo and underplayed when with a band.
 
@@ -67,10 +67,10 @@ Just make sure you turn to the solo version.
 [Watch on Youtube: Bruce Springsteen - I Wish I Were Blind (Herning 2013-05-16)](https://www.youtube.com/watch?v=23abo1QRmfo)
 
 **I Wish I Were Blind**<br>
-**Recorded** September 1989 – March 1991  
-**Released:** *Human Touch* (1992)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** February 23, 2014 (Hunter Valley, Australia)
+**Recorded** September 1989 – March 1991<br>
+**Released:** *Human Touch* (1992)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** February 23, 2014 (Hunter Valley, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 

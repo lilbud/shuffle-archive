@@ -10,7 +10,7 @@
 >
 >
 >
-> *— Bruce Springsteen, Born to Run*
+> *— Bruce Springsteen, Born to Run*<br>
 
 At first listen, "Border Guard" is an introspective, contemplative musing on the toll taken by an unforgiving job. But there's more going on here than meets the ear, I think.
 
@@ -28,53 +28,53 @@ At six-and-a-half minutes long with no instrumental breaks, "Border Guard" was n
 
 "Border Guard" is typical of Bruce's early work in that it lacks a verse/chorus framework, but it stands out in its simplicity of language and basic parallel couplet structure. There's no internal rhyming or clever wordplay here; Bruce writes with uncharacteristic (for the time) economy.
 
-> *Bless on the border guard so cold and alone*
-> *Bless on the child so far from his home*
+> *Bless on the border guard so cold and alone*<br>
+> *Bless on the child so far from his home*<br>
 
-> *Pity the border guard who feels like a woman to cry*
-> *Pity the border guard whose life guards the line*
+> *Pity the border guard who feels like a woman to cry*<br>
+> *Pity the border guard whose life guards the line*<br>
 
-> *A line is a funny thing, a border sometimes*
-> *A line is a hurting thing used only to divide*
+> *A line is a funny thing, a border sometimes*<br>
+> *A line is a hurting thing used only to divide*<br>
 
 If Bruce intended to hide a personal subtext, he tips his hand in that third couplet–although for anyone familiar with his story, it's hard not to read into his lyrics from the outset. The emotionally distant border guard and the far-from-home child seem like pretty on-point proxies for the elder and younger Springsteens.
 
-> *I pity the refugee whose home lies behind*
-> *I pity the border guard and his border line*
+> *I pity the refugee whose home lies behind*<br>
+> *I pity the border guard and his border line*<br>
 
-> *He keeps his machine gun nose pointed to the sky*
-> *The night time is his master*
-> *And you know the dawn light brings his captor*
+> *He keeps his machine gun nose pointed to the sky*<br>
+> *The night time is his master*<br>
+> *And you know the dawn light brings his captor*<br>
 
-> *I pity the border guard as he walks his own*
-> *The echo of his footsteps is all a friend would know*
+> *I pity the border guard as he walks his own*<br>
+> *The echo of his footsteps is all a friend would know*<br>
 
 That middle section is revealing, as well. As Bruce would reveal much later in song and on stage, he viewed his father as trapped by his job during the day, steeping in silence and drink at home during the night.
 
-> *A home is a funny thing, you get tied to the earth*
-> *Like love is a crazy thing in the eyes of a child*
-> *I pity the border guard, his soul taken captive at birth*
-> *May the sweet rain set him free and show him how to be so wild*
+> *A home is a funny thing, you get tied to the earth*<br>
+> *Like love is a crazy thing in the eyes of a child*<br>
+> *I pity the border guard, his soul taken captive at birth*<br>
+> *May the sweet rain set him free and show him how to be so wild*<br>
 
 It seems clear that Bruce is more than simply waxing philosophical about the significance of land and borders. There's an empathy on display here for the guard, even if Bruce expresses it condescendingly as pity.
 
 And that empathy blooms into something more in the song's final lines:
 
-> *Yes, a line is a funny thing, a border sometimes*
-> *A line is a hurting thing used only to divide*
+> *Yes, a line is a funny thing, a border sometimes*<br>
+> *A line is a hurting thing used only to divide*<br>
 
-> *He who made the open plains and the world one and all*
-> *Could not have conceived of a barbed wire brace for the building of the wall*
+> *He who made the open plains and the world one and all*<br>
+> *Could not have conceived of a barbed wire brace for the building of the wall*<br>
 
-> *And at night I keep my fire bright that I may be safe when I sleep*
-> *Till I wake on that wonderful morning when no more lines will there be*
+> *And at night I keep my fire bright that I may be safe when I sleep*<br>
+> *Till I wake on that wonderful morning when no more lines will there be*<br>
 
 That last couplet is heartbreaking: a son's refusal to surrender to his father's darkness paired with a stubborn hope for their reconciliation. If Bruce hadn't yet found a way to reach his father by talking to him, it seems like he was at least able to express his feelings through song.
 
 Bruce would revisit the California/Mexico border in song decades later, this time with a true focus on it. As for his reconciliation with his father, that would take a while yet. But his unreleased "Border Guard" reveals he was at least working his way towards it.
 
 **Border Guard**<br>
-**Recorded** April 1972  
+**Recorded** April 1972<br>
 **Never released**<br>
 **Never performed**<br>
 

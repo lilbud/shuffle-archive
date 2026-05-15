@@ -1,4 +1,4 @@
-> "Man, when I´d wake up in the middle of the night, I´d put that record on and drive everybody in the house fucking *nuts*. I'd just wake up and slam that thing on, man, and turn it on 10, and *shit!*‘" *–Bruce Springsteen, October 29, 1976*
+> "Man, when I´d wake up in the middle of the night, I´d put that record on and drive everybody in the house fucking *nuts*. I'd just wake up and slam that thing on, man, and turn it on 10, and *shit!*‘" *–Bruce Springsteen, October 29, 1976*<br>
 
 Of the more than a thousand songs Bruce Springsteen is known to have covered on stage, few loom larger than Gary U.S. Bonds' "Quarter to Three."
 
@@ -76,6 +76,6 @@ Now 95 years old, Daddy G still performs from time to time, and when he does, he
 
 **Quarter to Three  
 First performed:** October 4, 1974 (New York City, NY)
-**Last performed:** May 17, 2014 (Uncasville, CT)
+**Last performed:** May 17, 2014 (Uncasville, CT)<br>
 
  

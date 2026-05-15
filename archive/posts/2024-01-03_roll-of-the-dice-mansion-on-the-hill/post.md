@@ -2,7 +2,7 @@
 >
 >
 >
-> Now when I dream, sometimes I'm outside the gates looking in, and sometimes I'm the man inside." — *Bruce Springsteen, June 29, 1984*
+> Now when I dream, sometimes I'm outside the gates looking in, and sometimes I'm the man inside." — *Bruce Springsteen, June 29, 1984*<br>
 
 In 1886, a Nebraska banker and businessman named Leonidas Brandhoefer was seriously wooing his intended bride-to-be, who lived in Chicago. Determined to impress her with a life of luxury beyond what he could afford in the big city, Brandhoefer moved to the town of Ogallala, where land was cheap and plentiful.
 
@@ -24,25 +24,25 @@ Eighty years after Brandhoefer sold his heartbreak house, the great American sin
 
 [Watch on Youtube: Hank Williams - Mansion On The Hill (ORIGINAL) - (1947).](https://www.youtube.com/watch?v=pKKSMIwKfvQ)
 
-> *Tonight down here in the valley*
-> *I'm lonesome and O how I feel*
-> *As I sit here alone in my cabin*
-> *I can see your mansion on the hill*
+> *Tonight down here in the valley*<br>
+> *I'm lonesome and O how I feel*<br>
+> *As I sit here alone in my cabin*<br>
+> *I can see your mansion on the hill*<br>
 
-> *Do you recall when we parted*
-> *The story to me you revealed*
-> *You said you could live without loving*
-> *In your loveless mansion on the hill*
+> *Do you recall when we parted*<br>
+> *The story to me you revealed*<br>
+> *You said you could live without loving*<br>
+> *In your loveless mansion on the hill*<br>
 
-> *I've waited all through the years love*
-> *To give you a heart true and real*
-> *Cause I know you're living in sorrow*
-> *In your loveless mansion on the hill*
+> *I've waited all through the years love*<br>
+> *To give you a heart true and real*<br>
+> *Cause I know you're living in sorrow*<br>
+> *In your loveless mansion on the hill*<br>
 
-> *The light shine bright from yer window*
-> *The trees stand so silent and still*
-> *I know you're alone with your pride dear*
-> *In your loveless mansion on the hill*
+> *The light shine bright from yer window*<br>
+> *The trees stand so silent and still*<br>
+> *I know you're alone with your pride dear*<br>
+> *In your loveless mansion on the hill*<br>
 
 If something in your brain tugged at you while reading those lyrics, there's a good reason for that. While it's pretty commonly acknowledged that Bruce Springsteen lifted the title from Hank's 1947 recording for a song he recorded for his 1982 *Nebraska* album, Williams' influence goes way beyond the song's name.
 
@@ -58,29 +58,29 @@ But while Bruce may owe his central conceit and construction to Hank, the story 
 
 In his first two verses, Bruce establishes the metaphor: a grand house surrounded by gates of hardened steel–the symbol of a life off-limits and unattainable to those not born into it.
 
-> *There's a place out on the edge of town, sir*
-> *Rising above the factories and the fields*
-> *Now ever since I was a child I can remember*
-> *That mansion on the hill*
+> *There's a place out on the edge of town, sir*<br>
+> *Rising above the factories and the fields*<br>
+> *Now ever since I was a child I can remember*<br>
+> *That mansion on the hill*<br>
 
-> *In the day you can see the children playing*
-> *On the road that leads to those gates of hardened steel*
-> *Steel gates that completely surround, sir*
-> *The mansion on the hill*
+> *In the day you can see the children playing*<br>
+> *On the road that leads to those gates of hardened steel*<br>
+> *Steel gates that completely surround, sir*<br>
+> *The mansion on the hill*<br>
 
 The house stands above the factories and the fields, always visible to the workers below. Children play on the road that leads to it, but they're never allowed inside.
 
 The mansion is a source of mystery and fascination. Behind its gates, inside its walls, there's music, light, and laughter–the elements of an easy life, free of care and trouble. (The phrase, "people laughing all the time" is key–it's how we know this vignette strikes a deeper chord with the narrator than he otherwise reveals.) The lively mansion grounds stand in stark contrast to the somber, silent and still streets of the town.
 
-> *At night my daddy'd take me and we'd ride*
-> *Through the streets of a town so silent and still*
-> *Park on a back road along the highway side*
-> *Look up at that mansion on the hill*
+> *At night my daddy'd take me and we'd ride*<br>
+> *Through the streets of a town so silent and still*<br>
+> *Park on a back road along the highway side*<br>
+> *Look up at that mansion on the hill*<br>
 
-> *In the summer all the lights would shine*
-> *There'd be music playing, people laughing all the time*
-> *Me and my sister we'd hide out in the tall corn fields*
-> *Sit and listen to the mansion on the hill*
+> *In the summer all the lights would shine*<br>
+> *There'd be music playing, people laughing all the time*<br>
+> *Me and my sister we'd hide out in the tall corn fields*<br>
+> *Sit and listen to the mansion on the hill*<br>
 
 In a nightly ritual, father and son spend their summer evenings looking up at the mansion, imagining an unimaginable life. There's an implicit statement here, one that recurs often in Bruce's work: as it is with the father, so shall it be with the son. (We'll witness a similar ritual a year or so later in "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).") Our narrator is destined to live his life on the outside of those gates, just like his father before him.
 
@@ -88,10 +88,10 @@ Or is he?
 
 Because in his last verse, the famously specific songwriter introduces just enough ambiguity to make us wonder.
 
-> *Tonight down here in Linden Town*
-> *I watch the cars rushing by home from the mill*
-> *There's a beautiful full moon rising*
-> *Above the mansion on the hill*
+> *Tonight down here in Linden Town*<br>
+> *I watch the cars rushing by home from the mill*<br>
+> *There's a beautiful full moon rising*<br>
+> *Above the mansion on the hill*<br>
 
 There are two ways to hear this verse. Common to both of them is a flash forward to the present–we're now listening to the grown narrator at the end of a working day. But is he following in his father's footsteps, a worker looking up at the mansion from down in the town, dreaming of a life of luxury? Or is he now the man in the mansion, far removed from his beginnings but unable to forget them?
 
@@ -118,9 +118,9 @@ After four decades of living in the mansion, Bruce's song has become a rarity, w
 And as for the original Mansion on the Hill, it still stands in its original location at 10th and Spruce, listed on the National Register of Historic Places since 1973. It's a museum today, open to the public should you ever find yourself driving through Ogallala.
 
 **Mansion on the Hill**<br>
-**Recorded** December 1981-January 1982  
-**Released:** *Nebraska* (1982)
-**First performed:** June 29, 1984 (St. Paul, MN)
-**Last performed:** February 7, 2016 (Hollywood, FL)
+**Recorded** December 1981-January 1982<br>
+**Released:** *Nebraska* (1982)<br>
+**First performed:** June 29, 1984 (St. Paul, MN)<br>
+**Last performed:** February 7, 2016 (Hollywood, FL)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -14,20 +14,20 @@ Why did he pull it? That I can't answer, although I suspect it has at least a li
 
 But while this ferocious track (which ultimately saw release as the flipside to "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)") may have been inspired by the gas crisis, that's not what it's really about. Bruce uses current events as a jump-off point for the song, but it quickly–everything about this song is quick–establishes a more timeless theme.
 
-> *I was out driving, just a-taking it slow*
-> *Looked at my tank, it was reading low*
-> *Pulled in an Exxon station out on Highway One*
-> *Held up without a gun*
+> *I was out driving, just a-taking it slow*<br>
+> *Looked at my tank, it was reading low*<br>
+> *Pulled in an Exxon station out on Highway One*<br>
+> *Held up without a gun*<br>
 
-> *Some damn fool with a guitar walks in off the street*
-> *Ain't got nowhere to go, ain't got nothing to eat*
-> *Man with a cigar says "sign here, son"*
-> *Held up without a gun*
+> *Some damn fool with a guitar walks in off the street*<br>
+> *Ain't got nowhere to go, ain't got nothing to eat*<br>
+> *Man with a cigar says "sign here, son"*<br>
+> *Held up without a gun*<br>
 
-> *Now it's a sin and it oughta be a crime*
-> *You know it happens buddy all the time*
-> *Trying to make a living, trying to have a little fun*
-> *Held up without a gun*
+> *Now it's a sin and it oughta be a crime*<br>
+> *You know it happens buddy all the time*<br>
+> *Trying to make a living, trying to have a little fun*<br>
+> *Held up without a gun*<br>
 
 Don't let that second verse fly past you–it's the key to the song.
 
@@ -50,9 +50,9 @@ It would be more than 27 years before Bruce performed it again in concert, but w
 <https://estreetshuffle.com/wp-content/uploads/2021/10/114-Held-Up-Without-A-Gun.mp3>
 
 **Held Up Without a Gun**<br>
-**Recorded** February 23 – April 1, 1980  
+**Recorded** February 23 – April 1, 1980<br>
 **Released:** *The River: Outtakes* (2015)
-**First performed:** December 31, 1980 (Uniondale, NY)
-**Last performed:** October 25, 2012 (Hartford, CT)
+**First performed:** December 31, 1980 (Uniondale, NY)<br>
+**Last performed:** October 25, 2012 (Hartford, CT)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

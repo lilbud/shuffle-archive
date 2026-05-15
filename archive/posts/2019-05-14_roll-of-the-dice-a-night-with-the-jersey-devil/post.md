@@ -28,43 +28,43 @@ Now that we're versed in the history of the Jersey Devil, we can see that the fi
 
 Bruce seems lost in thought (and a really poor lip-syncher) as he tells his tale:
 
-> *Hear me now!*
-> *I was born 13th child, ‘neath the 13th moon*
-> *Spit out hungry and born anew*
-> *Daddy drag me to the river, tie me in rocks*
-> *Throw me in where it's deep and wide*
-> *I go down, I don't die*
-> *Hole in the river bottom, I crawl through*
-> *Come back kill six brothers and sisters, kill Papa too*
-> *Sway down Mama, sway down low*
-> *They gonna know me wherever I go*
+> *Hear me now!*<br>
+> *I was born 13th child, ‘neath the 13th moon*<br>
+> *Spit out hungry and born anew*<br>
+> *Daddy drag me to the river, tie me in rocks*<br>
+> *Throw me in where it's deep and wide*<br>
+> *I go down, I don't die*<br>
+> *Hole in the river bottom, I crawl through*<br>
+> *Come back kill six brothers and sisters, kill Papa too*<br>
+> *Sway down Mama, sway down low*<br>
+> *They gonna know me wherever I go*<br>
 
-> *Into my bed with her kerosene my mama creep*
-> *Set my flesh to burning, whilst I sleep*
-> *I burn, burn, burn, till my soul burn black*
-> *Black rains fall, I come back, I come back*
+> *Into my bed with her kerosene my mama creep*<br>
+> *Set my flesh to burning, whilst I sleep*<br>
+> *I burn, burn, burn, till my soul burn black*<br>
+> *Black rains fall, I come back, I come back*<br>
 
 Creepy, yes. But basically a first-person Jersey Devil origin story with a Muddy Waters blues riff and the bullet microphone that Bruce grew so fond of during the Devils & Dust Tour (almost certainly a coincidence, but who knows).
 
 But then the song takes a sudden turn: Bruce's voice is sinister now (and his lip-synching much better); his eyes lock onto ours as if he's finally registered our presence. He's done retelling history–now he's making a promise directly to us:
 
-> *Get down Mama, get down low*
-> *They gonna know me wherever I go  
-16 witches cast 16 spells*
-> *Make me guitar outta skin and human skull*
-> *Sing you a song like the wind in the sandy loam*
-> *Bring you baby out your happy home*
+> *Get down Mama, get down low*<br>
+> *They gonna know me wherever I go*<br>
+> *16 witches cast 16 spells*<br>
+> *Make me guitar outta skin and human skull*<br>
+> *Sing you a song like the wind in the sandy loam*<br>
+> *Bring you baby out your happy home*<br>
 
 And this is where we realize that something strange has happened, because the myth of the Jersey Devil has just merged with the legend of Bruce Springsteen. They're now one and the same. Fiendish demon or rock star–is there a difference? Perhaps not in the mind of the singer, he seems to be saying. At least not tonight.
 
-> *Ram's head, forked tail, clove hoof, love's my trail*
-> *I sup on your body, sip on your blood like wine*
-> *Out world theirs, this world mine*
-> *So kiss me baby till it hurts*
-> *God lost in heaven, we lost on earth*
-> *Sway down Mama, sway down low*
-> *They gonna know me wherever I go*
-> *Wherever I go, wherever I go*
+> *Ram's head, forked tail, clove hoof, love's my trail*<br>
+> *I sup on your body, sip on your blood like wine*<br>
+> *Out world theirs, this world mine*<br>
+> *So kiss me baby till it hurts*<br>
+> *God lost in heaven, we lost on earth*<br>
+> *Sway down Mama, sway down low*<br>
+> *They gonna know me wherever I go*<br>
+> *Wherever I go, wherever I go*<br>
 
 And now comes the punchline: Bruce seamlessly segues into the first verse and chorus from Gene Vincent's 1958 single, "Baby Blue," a song with basically the same riff but lyrically the polar opposite of "A Night With the Jersey Devil." (So much of the song is used, in fact, that Bruce credits Gene Vincent and Robert Jones as his co-songwriters.)
 
@@ -78,9 +78,10 @@ Pretty clever, all in all, but it's hard to imagine an album that it would fit o
 
 [Watch on Youtube: Bruce Springsteen - Night with the Jersey Devil - Rochester, NY 10-31-12](https://www.youtube.com/watch?v=I-cRhE4diyk)
 
-**A Night With the Jersey Devil****Recorded:** 2007-2008  
-**Released:** Digital Download (2008), *What Love Can Do* (b-side, 2009)
-**First performed:** October 31, 2012 (Rochester, NY)
-**Last performed:** October 31, 2012 (Rochester, NY)
+**A Night With the Jersey Devil**<br>
+**Recorded:** 2007-2008<br>
+**Released:** Digital Download (2008), *What Love Can Do* (b-side, 2009)<br>
+**First performed:** October 31, 2012 (Rochester, NY)<br>
+**Last performed:** October 31, 2012 (Rochester, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

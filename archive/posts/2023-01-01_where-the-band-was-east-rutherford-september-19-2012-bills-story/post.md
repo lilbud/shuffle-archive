@@ -103,7 +103,7 @@ Racing in the Street
 The Rising
 Badlands
 Land of Hope and Dreams
-* * *
+* **
 We Are Alive
 Thunder Road
 Born to Run

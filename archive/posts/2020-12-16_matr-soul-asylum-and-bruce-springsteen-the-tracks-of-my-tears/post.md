@@ -19,5 +19,5 @@ That was the only time Bruce has ever played Smokey's classic in full, but he di
 [Watch on Youtube: track of my tears / the tears of a clown ( cover Smokey Robinson )](https://www.youtube.com/watch?v=D8xQGYjuqzw)
 
 **The Tracks of My Tears**<br>
-**First performed:** March 6, 1995 (New York City, NY)
-**Last performed:** March 6, 1995 (New York City, NY)
+**First performed:** March 6, 1995 (New York City, NY)<br>
+**Last performed:** March 6, 1995 (New York City, NY)<br>

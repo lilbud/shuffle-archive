@@ -60,7 +60,7 @@ But "I'm Turning Into Elvis" was where it started. One wonders just how many oth
 **I'm Turning Into Elvis**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** April 5, 1995 (New York City, NY)
-**Last performed:** November 19, 1996 (Memphis, TN)
+**First performed:** April 5, 1995 (New York City, NY)<br>
+**Last performed:** November 19, 1996 (Memphis, TN)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

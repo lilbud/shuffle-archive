@@ -16,27 +16,27 @@ The irony of "Outside Looking In," however, is that content-wise it's the invers
 
 "Peggy Sue" is a doe-eyed, devotional mash note of a song; "Outside Looking In"… well, let's just say the narrator's girl left him feeling a different kind of blue.
 
-> *It's all over now, the things we had*
-> *I ain't sorry, girl, I just feel mad*
-> *You walk real pretty and you talk real fine*
-> *But night after night babe I'm on the line*
-> *My life's the same story, again and again*
-> *I'm on the outside looking in*
+> *It's all over now, the things we had*<br>
+> *I ain't sorry, girl, I just feel mad*<br>
+> *You walk real pretty and you talk real fine*<br>
+> *But night after night babe I'm on the line*<br>
+> *My life's the same story, again and again*<br>
+> *I'm on the outside looking in*<br>
 
-> *Well every day just brings the same*
-> *You go out looking for some strange new games*
-> *Pretty soon them games ain't fun anymore*
-> *And it's something else that you're looking for*
-> *You've got all the answers, you and your friends*
-> *And I'm on the outside looking in*
+> *Well every day just brings the same*<br>
+> *You go out looking for some strange new games*<br>
+> *Pretty soon them games ain't fun anymore*<br>
+> *And it's something else that you're looking for*<br>
+> *You've got all the answers, you and your friends*<br>
+> *And I'm on the outside looking in*<br>
 
-> *Now you've got the pretty things you want*
-> *The sins of the angels baby they will haunt*
-> *Those pretty eyes that they all adore*
-> *But baby not me, not anymore*
+> *Now you've got the pretty things you want*<br>
+> *The sins of the angels baby they will haunt*<br>
+> *Those pretty eyes that they all adore*<br>
+> *But baby not me, not anymore*<br>
 > *I do what I want to*,
-> *I'll be what I am*
-> *I'm on the outside looking in*
+> *I'll be what I am*<br>
+> *I'm on the outside looking in*<br>
 
 Now if you're a romantic, feel free to interpret Bruce's lyrics as giving up on an emotionally distant girl who refuses to let her guard down. It's certainly possible to read the song that way.
 
@@ -48,12 +48,12 @@ The only thing that's crystal clear is that our narrator has had enough of tryin
 
 (An earlier take of the song included a verse that makes the narrator appear a bit vulnerable, but it also made him appear a bit of a victim. Bruce wisely decided to jettison it from the final version.)
 
-> *Hey, you may believe it ain't real*
-> *I don't doubt the way I feel*
-> *You walk real pretty and you talk real sweet*
-> *Well baby I was born in the driving seat*
-> *My life's the same story, again and again*
-> *I'm on the outside looking in*
+> *Hey, you may believe it ain't real*<br>
+> *I don't doubt the way I feel*<br>
+> *You walk real pretty and you talk real sweet*<br>
+> *Well baby I was born in the driving seat*<br>
+> *My life's the same story, again and again*<br>
+> *I'm on the outside looking in*<br>
 
 [Watch on Youtube: Bruce Springsteen - Outside Lookin' In](https://www.youtube.com/watch?v=Ye66WuPgyJo)
 
@@ -62,9 +62,9 @@ The only thing that's crystal clear is that our narrator has had enough of tryin
 Bruce was wise to leave it off of *Darkness* but equally wise to dust it off three decades later for *The Promise*, his 2010 influence-wearing sleeve of an album.
 
 **Outside Looking In**<br>
-**Recorded** September 27, 1977  
-**Released:** *The Promise* (2010)
-**First performed:** December 7, 2010 (Asbury Park, NJ)
-**Last performed:** December 7, 2010 (Asbury Park, NJ)
+**Recorded** September 27, 1977<br>
+**Released:** *The Promise* (2010)<br>
+**First performed:** December 7, 2010 (Asbury Park, NJ)<br>
+**Last performed:** December 7, 2010 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

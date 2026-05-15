@@ -46,31 +46,31 @@ When Bruce first cut "Real World," he was newly in love, about a year into his r
 
 In fact, if we're to be completely honest, even in its solo incarnation, it's Bruce's warm, vulnerable vocals that stand out more than his lyrics. Lyrically, "Real World" is a mess of metaphors. Let's look at just the first verse:
 
-> *Mister Trouble come walking this way*
-> *Year gone by feels like one long day but I'm alive*
-> *And I'm feeling all right*
-> *Well I run that hard road outta heartbreak city*
-> *Built a roadside carnival out of hurt and self-pity*
-> *It was all wrong, well now I'm moving on*
+> *Mister Trouble come walking this way*<br>
+> *Year gone by feels like one long day but I'm alive*<br>
+> *And I'm feeling all right*<br>
+> *Well I run that hard road outta heartbreak city*<br>
+> *Built a roadside carnival out of hurt and self-pity*<br>
+> *It was all wrong, well now I'm moving on*<br>
 
 In just that one verse, Bruce gives us anthropomorphized trouble, urbanized heartbreak, and a carnival of hurt. There's still a shrine of fool's gold, a river of doubt, a party dress of bravery, and tumbling dice (hey, it worked in "Roll of the Dice") yet to come.
 
 But if the verses are chock full of mixed metaphors, the chorus is simple and direct:
 
-> *Ain't no church bells ringing, ain't no flags unfurled*
-> *Just me and you and the love we're bringing into the real world*
-> *Into the real world*
+> *Ain't no church bells ringing, ain't no flags unfurled*<br>
+> *Just me and you and the love we're bringing into the real world*<br>
+> *Into the real world*<br>
 
 Some read these lines as a reference to Springsteen and Scialfa's nuptial eschewal (surely a public wedding featuring the still-superstar Springsteen would have been treated as a noteworthy pop culture event), but that's missing the buried lede: *the love we're bringing into the real world*. That's Evan James Springsteen he's referring to.
 
 There's nothing like expectant parenthood for releasing one's grip on the past, something Bruce admits to in the second verse.
 
-> *I built a shrine in my heart it wasn't pretty to see*
-> *Made out of fool's gold, memory, and tears cried*
-> *Now I'm heading over the rise*
-> *I'm searching for one clear moment of love and truth*
-> *I still got a little faith but what I need is some proof tonight*
-> *I'm looking for it in your eyes*
+> *I built a shrine in my heart it wasn't pretty to see*<br>
+> *Made out of fool's gold, memory, and tears cried*<br>
+> *Now I'm heading over the rise*<br>
+> *I'm searching for one clear moment of love and truth*<br>
+> *I still got a little faith but what I need is some proof tonight*<br>
+> *I'm looking for it in your eyes*<br>
 
 Dice aren't the only metaphor in "Real World" that shows up in another *Human Touch-*era song. We'll see "[Over the Rise](https://estreetshuffle.com/index.php/2020/07/12/roll-of-the-dice-over-the-rise/)" again, too. But that's not the noteworthy line in this verse. That honor belongs to: *I still got a little faith but what I need is some proof tonight.*
 
@@ -78,26 +78,26 @@ That line is almost certainly a callback to "Thunder Road" and the bravado and f
 
 There comes a time when we need proof of love to have proof of life, and that moment–the moment when two people realize they're going to bring a new life into the real world–that moment creates a bond more unbreakable than any wedding ever could.
 
-> *Ain't no church bells ringing, ain't no flags unfurled*
-> *Just me and you and the faith we're bringing here into the real world*
-> *Here into the real world*
+> *Ain't no church bells ringing, ain't no flags unfurled*<br>
+> *Just me and you and the faith we're bringing here into the real world*<br>
+> *Here into the real world*<br>
 
 Our narrator may be moving forward, but the bridge tells us there's still a step back for every two steps up.
 
-> *Well tonight well I just wanna shout*
-> *Feel my soul waist deep and sinking into this black river of doubt*
-> *And I, well I just wanna rise and walk along the riverside*
-> *When the morning comes baby I don't wanna hide*
-> *I'll stand right at your side with my arms open wide*
+> *Well tonight well I just wanna shout*<br>
+> *Feel my soul waist deep and sinking into this black river of doubt*<br>
+> *And I, well I just wanna rise and walk along the riverside*<br>
+> *When the morning comes baby I don't wanna hide*<br>
+> *I'll stand right at your side with my arms open wide*<br>
 
 The love and support of one's partner may be potent vaccination against self-doubt, but that doesn't mean there won't be breakthrough infections–particularly if one has grappled with depression throughout one's adult life. Sometimes the best medicine is simply a reason to keep moving through it. And maybe a little therapy:
 
-> *Oh I wanna find some answers, I wanna ask for some help*
-> *I'm tired of running scared, baby now let's get our bags packed*
-> *We'll take it here to hell and heaven and back*
-> *And if love is hopeless, hopeless at best*
-> *Come on put on your party dress*
-> *It's ours tonight, we're going with the tumbling dice*
+> *Oh I wanna find some answers, I wanna ask for some help*<br>
+> *I'm tired of running scared, baby now let's get our bags packed*<br>
+> *We'll take it here to hell and heaven and back*<br>
+> *And if love is hopeless, hopeless at best*<br>
+> *Come on put on your party dress*<br>
+> *It's ours tonight, we're going with the tumbling dice*<br>
 
 *If love is hopeless at best, put on your party dress*. There's no sure thing, Bruce is telling us, no guaranteed happy ending. If you wait for one before committing to it, you're in for a long wait. So make the most of the opportunity, and revel in the gamble. That's love, and it's also parenthood.
 
@@ -118,9 +118,9 @@ Bruce seems to have surrendered "Real World" to its original incarnation, a deci
 We may yet hear it again when Bruce steps back out into the real world.
 
 **Real World**<br>
-**Recorded** December 1989 – January 1990  
-**Released:** *Human Touch* (1992)
-**First performed:** November 16, 1990 (Los Angeles, CA)
-**Last performed:** July 18, 2013 (Cork, Ireland)
+**Recorded** December 1989 – January 1990<br>
+**Released:** *Human Touch* (1992)<br>
+**First performed:** November 16, 1990 (Los Angeles, CA)<br>
+**Last performed:** July 18, 2013 (Cork, Ireland)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

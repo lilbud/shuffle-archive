@@ -2,12 +2,12 @@
 >
 >
 >
-> It seemed that the one thing that we had in common was that we didn't have enough information. We didn't have enough knowledge about the things and the forces that were controlling our lives. And I watched my old man end up a victim and he didn´t even know it." — **Bruce Springsteen, May 7, 1981**
+> It seemed that the one thing that we had in common was that we didn't have enough information. We didn't have enough knowledge about the things and the forces that were controlling our lives. And I watched my old man end up a victim and he didn´t even know it." — **Bruce Springsteen, May 7, 1981**<br>
 > "When I was sixteen or seventeen, it was hard for me to understand what [my father's] life was like. How he'd gotten married so young. When I was living at home… he wasn't much older than I am right now, and he'd been working in this factory for ten years already. He had to put up with all the humiliation the world puts you through living like that. When I moved away when I was eighteen, I was sure that I was never gonna miss him. And for a long time I never did.
 >
 >
 >
-> It took us 30 years just to be able to tell each other that we loved each other. And it's just silly to wait that long. If you got folks at home, you oughta try talking to them sometime. They probably need it, you know." — **Bruce Springsteen, May 8, 1981**
+> It took us 30 years just to be able to tell each other that we loved each other. And it's just silly to wait that long. If you got folks at home, you oughta try talking to them sometime. They probably need it, you know." — **Bruce Springsteen, May 8, 1981**<br>
 
 There's a famous optical illusion called "My Wife and My Mother-in-Law."
 
@@ -33,10 +33,10 @@ But he released it on *The River*, and it exemplifies that album's theme, too: t
 
 "Independence Day" is a song of farewell. It's the last conversation–for a while–between father and son, as they sit facing each other in their living room, desirous but unable to bridge the gap between them, both aware that the gap is necessary for their relationship's survival.
 
-> *Well Papa go to bed now, it's getting late*
-> *Nothing we can say is gonna change anything now*
-> *I'll be leaving in the morning from St. Mary's Gate*
-> *We wouldn't change this thing even if we could somehow*
+> *Well Papa go to bed now, it's getting late*<br>
+> *Nothing we can say is gonna change anything now*<br>
+> *I'll be leaving in the morning from St. Mary's Gate*<br>
+> *We wouldn't change this thing even if we could somehow*<br>
 
 There's a bit of role reversal at play in the opening line: the son offering the line typically uttered by the father. "It's getting late" holds deeper meaning here, though. It's not just the end of the day–it's the end of the narrator's childhood, and the end of a certain stage of their relationship.
 
@@ -46,62 +46,62 @@ The music also plays a storytelling role here. It opens with the establishment o
 
 There's a sense of fatalism at work throughout "Independence Day," established in the very first couplet. But in the second verse, Bruce infuses a vein of defiance, firmly (and a bit on-the-nose) rooting the song in his *Darkness* songwriting period.
 
-> *‘Cause the darkness of this house has got the best of us*
-> *There's a darkness in this town that's got us too*
-> *But they can't touch me now and you can't touch me now*
-> *They ain't gonna do to me what I watched them do to you*
+> *‘Cause the darkness of this house has got the best of us*<br>
+> *There's a darkness in this town that's got us too*<br>
+> *But they can't touch me now and you can't touch me now*<br>
+> *They ain't gonna do to me what I watched them do to you*<br>
 
 In fact, at least in lyrics we hear echoes of the [opening](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/) and [closing](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/) tracks of *Darkness on the Edge of Town*, but whereas those tracks are self-centered anthems of actualization, the narrator of "Independence Day" is more focused on what he's leaving behind than on where he's going.
 
 We never get a hint of what's drawing him away from home–there's no dream, no mission, no job, no girl. He's running away, not toward–something Bruce makes explicit in the second chorus. And what he's running from is an existential threat: if he doesn't leave now, he'll end up defeated and broken like his father, consigned to a "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" life.
 
-> *So say goodbye, it's Independence Day*
-> *It's Independence Day all down the line*
-> *Just say goodbye, it's Independence Day*
-> *It's Independence Day this time*
+> *So say goodbye, it's Independence Day*<br>
+> *It's Independence Day all down the line*<br>
+> *Just say goodbye, it's Independence Day*<br>
+> *It's Independence Day this time*<br>
 
 In title and chorus, Bruce plays off of the American holiday of Independence Day, a time of celebration over a hard-won rebellion. But there's no celebration in this song… and in fact, it's not even clear from Bruce's pleading vocals whether his choruses are addressed to the father or the son. (I suspect the latter.)
 
 The verses are all about the father, though–and it's clear that even though he's desperate to escape his father's fate, our narrator feels their bond, as immutable as in "Adam Raised a Cain." That's not a coincidence: the two songs share the same narrator, the first two chapters of Bruce's "[Daddy Trilogy](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)" that he would complete years later with "[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)."
 
-> *Now I don't know what it always was with us*
-> *We chose the words and, yeah, we drew the lines*
-> *There was just no way this house could hold the two of us*
-> *I guess that we were just too much of the same kind*
+> *Now I don't know what it always was with us*<br>
+> *We chose the words and, yeah, we drew the lines*<br>
+> *There was just no way this house could hold the two of us*<br>
+> *I guess that we were just too much of the same kind*<br>
 
-> *Well say goodbye, it's Independence Day*
-> *It's Independence Day, all boys must run away*
-> *So say goodbye, it's Independence Day*
-> *All men must make their way come Independence Day*
+> *Well say goodbye, it's Independence Day*<br>
+> *It's Independence Day, all boys must run away*<br>
+> *So say goodbye, it's Independence Day*<br>
+> *All men must make their way come Independence Day*<br>
 
 As in many of Bruce's most emotional songs, he lets Clarence say with his saxophone the things his characters can't find the words for. His solo in "Independence Day" is warm, nostalgic, rueful, and loving–the promise of a someday that our narrator can't allow himself to contemplate in the moment.
 
 In the final verses, Bruce makes it clear that it isn't just familial forces driving the son away–there are societal and possibly economic forces, too.
 
-> *Now the rooms are all empty down at Frankie's joint*
-> *And the highway she's deserted, clear down to Breaker's Point*
-> *There's a lot of people leaving town now, leaving their friends, their homes*
-> *At night they walk that dark and dusty highway all alone*
+> *Now the rooms are all empty down at Frankie's joint*<br>
+> *And the highway she's deserted, clear down to Breaker's Point*<br>
+> *There's a lot of people leaving town now, leaving their friends, their homes*<br>
+> *At night they walk that dark and dusty highway all alone*<br>
 
-> *Well Papa go to bed now, it's getting late*
-> *Nothing we can say can change anything now*
-> *Because there's just different people coming down here now and they see things in different ways*
-> *And soon everything we've known will just be swept away*
+> *Well Papa go to bed now, it's getting late*<br>
+> *Nothing we can say can change anything now*<br>
+> *Because there's just different people coming down here now and they see things in different ways*<br>
+> *And soon everything we've known will just be swept away*<br>
 
 There's a wave of social change washing over the town, and our narrator knows he can either rise above it or drown in it. I've never been certain how I feel about Bruce's inclusion of these verses. On one hand, it dilutes the father/son dysfunction with external forces; would the son be leaving home if the town was carrying on as it had been throughout his life? But it also helps us imagine the scene from the father's point of view: we suspect he knows his son has to leave because we trust that fathers want the best for their sons.
 
 We all want the best for our children, the way our parents wanted the best for us. But the paradox of parenthood is that we compromise their promise to us for our promise to our own kids. That's something most of us don't realize until we're parents ourselves. Bruce Springsteen did, though, and that empathy imbues the final lines of "Independence Day" with a poignant, throat-catching final chorus.
 
-> *So say goodbye, it's Independence Day*
-> *Papa now I know the things you wanted that you could not say*
-> *But won't you just say goodbye, it's Independence Day*
-> *I swear I never meant to take those things away*
+> *So say goodbye, it's Independence Day*<br>
+> *Papa now I know the things you wanted that you could not say*<br>
+> *But won't you just say goodbye, it's Independence Day*<br>
+> *I swear I never meant to take those things away*<br>
 
 I was twelve years old when I first listened to those lines; I was a parent the first time I really heard them.
 
 *The things we want that we cannot say*. Every parent has those things, I suspect, and every child comes to someday sense them, though we try our hardest for them not to. The compromises we make in life, in love, in work to provide our kids the opportunities we chose to forgo for them.
 
-> *I was young and I didn't know what to do when I saw your best steps stolen away from you.*
+> *I was young and I didn't know what to do when I saw your best steps stolen away from you.*<br>
 
 We compromise, and we learn to live with those compromises. And in doing so, we begin to understand our own parents a bit better, and for the first time we wonder: *who would they have been if not for us?*
 
@@ -143,9 +143,9 @@ My favorite performances, though, are when Bruce plays it alone at the piano. "I
 [Watch on Youtube: Bruce Springsteen-Independence Day from "Ties" Documentary](https://www.youtube.com/watch?v=xouTzlWWpa4)
 
 **Independence Day**<br>
-**Recorded** Autumn 1977 – April 1980  
-**Released:** *The River* (1980)
+**Recorded** Autumn 1977 – April 1980<br>
+**Released:** *The River* (1980)<br>
 **First performed: J**uly 7, 1978 (Los Angeles, CA)
-**Last performed:** August 23, 2016 (East Rutherford, NJ)
+**Last performed:** August 23, 2016 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

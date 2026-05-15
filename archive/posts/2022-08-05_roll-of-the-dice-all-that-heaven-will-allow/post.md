@@ -16,31 +16,31 @@ Bruce is notorious for borrowing film titles for his songs, but rarely do the so
 
 If we pay attention though, Bruce gives us just enough context clues to establish that the link to Sirk's 1955 film is more than just titular.
 
-> *I got a dollar in my pocket, there ain't a cloud up above*
-> *I got a picture in a locket that says baby I love you*
-> *Well if you didn't look then boys then fellas don't go looking now*
-> *Well here she comes a-walking, yeah all that heaven will allow*
+> *I got a dollar in my pocket, there ain't a cloud up above*<br>
+> *I got a picture in a locket that says baby I love you*<br>
+> *Well if you didn't look then boys then fellas don't go looking now*<br>
+> *Well here she comes a-walking, yeah all that heaven will allow*<br>
 
-> *Say hey there mister bouncer now all I wanna do is dance*
-> *But I swear I left my wallet back home in my working pants*
-> *C'mon Slim slip me in, man, I'll make it up to you somehow*
-> *I can't be late I got a date with all that heaven will allow*
+> *Say hey there mister bouncer now all I wanna do is dance*<br>
+> *But I swear I left my wallet back home in my working pants*<br>
+> *C'mon Slim slip me in, man, I'll make it up to you somehow*<br>
+> *I can't be late I got a date with all that heaven will allow*<br>
 
 Our narrator has a dollar in his pocket–a modest sum signifying a man of modest means. Whatever other money he may have is in his working pants, a detail meant to paint him as a laborer like Hudson's character in *All That Heaven Allows*.
 
 Bruce's character is a bit more carefree, though. He's in love, and while there's nothing explicitly stated in Bruce's lyrics that establishes his love interest in a higher social stratum, he certainly signals his awareness that the road ahead for them is not a smooth one:
 
-> *Rain and storm and dark skies, well now they don't mean a thing*
-> *If you got a girl that loves you and who wants to wear your ring*
-> *So c'mon Mister Trouble, we'll make it through you somehow*
-> *We'll fill this house with all the love and all that heaven will allow*
+> *Rain and storm and dark skies, well now they don't mean a thing*<br>
+> *If you got a girl that loves you and who wants to wear your ring*<br>
+> *So c'mon Mister Trouble, we'll make it through you somehow*<br>
+> *We'll fill this house with all the love and all that heaven will allow*<br>
 
 If it was just the bridge's reference to dark skies and Mister Trouble, we might assume that Bruce is simply referring to the inevitable travails that life throws any couple's way, but the last verse takes a strange turn.
 
-> *Now some may wanna die young, man, young and gloriously*
-> *Get it straight now, mister, hey buddy that ain't me*
-> *‘Cause I got something on my mind, yeah, that sets me straight and walking proud*
-> *And I want all the time, yeah all that heaven will allow*
+> *Now some may wanna die young, man, young and gloriously*<br>
+> *Get it straight now, mister, hey buddy that ain't me*<br>
+> *‘Cause I got something on my mind, yeah, that sets me straight and walking proud*<br>
+> *And I want all the time, yeah all that heaven will allow*<br>
 
 Bruce swiped that first couplet from his *Darkness* outtake "[City of Night](https://estreetshuffle.com/index.php/2020/06/28/roll-of-the-dice-city-of-night/)." He certainly could have written new lyrics if he'd wanted to, so we have to assume he raided his notebook for those specific lines for a reason.
 
@@ -65,9 +65,9 @@ Musically, "All That Heaven Will Allow" is a solo number. With the exception of 
 …but even though it's made fifteen appearances since the Tunnel of Love era, the E Street Band hasn't had a crack at their 1988 set piece in almost 35 years. Will we see an encore appearance for "All That Heaven Will Allow" on stage next year? Only time will tell.
 
 **All That Heaven Will Allow  
-Recorded:** January – April 1987  
-**Released:** *Tunnel of Love* (1987)
-**First performed:** February 25, 1988 (Worcester, MA)
-**Last performed:** April 29, 2013 (Oslo, Norway)
+**Recorded:** January – April 1987  
+**Released:** *Tunnel of Love* (1987)<br>
+**First performed:** February 25, 1988 (Worcester, MA)<br>
+**Last performed:** April 29, 2013 (Oslo, Norway)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

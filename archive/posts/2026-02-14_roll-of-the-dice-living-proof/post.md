@@ -1,4 +1,4 @@
-> "When I wrote ["Living Proof"], I said: ‘Yeah *that's* what I'm trying to say. That's how I feel.' And that was a big moment, because I landed hard in the present, and that was where I wanted to be. I'd spent a lot of my life writing about my past, real and imagined… This is what's important in my life *right now*.'" *–Bruce Springsteen to James Henke, Rolling Stone, August 6, 1992*
+> "When I wrote ["Living Proof"], I said: ‘Yeah *that's* what I'm trying to say. That's how I feel.' And that was a big moment, because I landed hard in the present, and that was where I wanted to be. I'd spent a lot of my life writing about my past, real and imagined… This is what's important in my life *right now*.'" *–Bruce Springsteen to James Henke, Rolling Stone, August 6, 1992*<br>
 
 Ask any fan for a short-list of Bruce Springsteen's most "important" songs, and I doubt "Living Proof" will be on most of those lists.
 
@@ -7,7 +7,7 @@ And yet Bruce certainly seems to think it should be: "Living Proof" has had not 
 "Living Proof" was the first song Bruce wrote for the album that became *Lucky Town.* It's the demarcation in Bruce's catalog between songs focused on his past and inner self and songs focused on his present, future, and outer life. "Living Proof" paved the way for songs like "Long Time Comin'" and "[Kingdom of Days.](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)" In short, "Living Proof" is the moment Bruce fully embraced his adulthood.
 
 It's also one of the most uplifting songs in his catalog. And what sparked it was the birth of his first child, Evan James, born in the summer of 1990. Bruce wrote and recorded "Living Proof" when Evan was just a year old and his daughter Jessica was still a few months away, finally allowing himself to examine the changes that fatherhood had wrought on him:
-> "The night my son was born, I got close to a feeling of real, pure, unconditional love with all the walls down. All of a sudden, what was happening was so immense that it just stomped all the fear away for a little while and I remember feeling overwhelmed. But I also understood why you're so frightened. When that world of love comes rushing in, a world of fear comes with it. To open yourself up to one thing, you've got to embrace the other thing as well… My music over the last five years has dealt with those almost primitive issues; it's about somebody walking through that world of fear so that he can live in the world of love." *–Bruce Springsteen to David Hepworth, Q Magazine, August 1992*
+> "The night my son was born, I got close to a feeling of real, pure, unconditional love with all the walls down. All of a sudden, what was happening was so immense that it just stomped all the fear away for a little while and I remember feeling overwhelmed. But I also understood why you're so frightened. When that world of love comes rushing in, a world of fear comes with it. To open yourself up to one thing, you've got to embrace the other thing as well… My music over the last five years has dealt with those almost primitive issues; it's about somebody walking through that world of fear so that he can live in the world of love." *–Bruce Springsteen to David Hepworth, Q Magazine, August 1992*<br>
 
 "Living Proof" is the declaration of a man who has made peace with his world of fear and embraced his world of love. Garry Mallaber's drumbeat allows for no pause or hesitation, and from the moment we hear Bruce's guitar enter, we know there will be no doubt expressed in the vocals, either.
 
@@ -15,12 +15,12 @@ It's also one of the most uplifting songs in his catalog. And what sparked it wa
 
 The legend would have us believe that "Living Proof" came to Bruce in a burst of inspiration as his emotional dam broke. But in truth, he'd been on that vector for at least several months. Only the verses that bookend the song were new–and not coincidentally, those are the verses that most directly refer to his family.
 
-> *Well now on a summer night in a dusky room*
-> *Come a little piece of the Lord's undying light, crying like he swallowed the fiery moon*
-> *In his mother's arms it was all the beauty I could take*
-> *Like the missing words to some prayer that I could never make*
-> *In a world so hard and dirty, so fouled and confused*
-> *Searching for a little bit of God's mercy, I found living proof*
+> *Well now on a summer night in a dusky room*<br>
+> *Come a little piece of the Lord's undying light, crying like he swallowed the fiery moon*<br>
+> *In his mother's arms it was all the beauty I could take*<br>
+> *Like the missing words to some prayer that I could never make*<br>
+> *In a world so hard and dirty, so fouled and confused*<br>
+> *Searching for a little bit of God's mercy, I found living proof*<br>
 
 There's a lot going on in this verse, and almost all of it revolves around the duality Bruce spoke of above: fear versus love, the dusky room pierced by the Lord's light, the innocence of a child in a hard and dirty world.
 
@@ -28,78 +28,78 @@ Bruce is no stranger to employing religious metaphor in his songwriting, but her
 
 The second verse is a more introspective counter-example to the first verse.
 
-> *Well I put my heart and soul, babe, I put 'em high upon a shelf*
-> *Right next to the faith, the faith that I'd lost in myself*
-> *I went down into the desert city just trying so hard to shed my skin*
-> *I crawled deep into some kind of darkness, looking to burn out every trace of who I'd been*
-> *You do some sad, sad things baby when it's you you're trying to lose*
-> *You do some sad and hurtful things, I seen living proof*
+> *Well I put my heart and soul, babe, I put 'em high upon a shelf*<br>
+> *Right next to the faith, the faith that I'd lost in myself*<br>
+> *I went down into the desert city just trying so hard to shed my skin*<br>
+> *I crawled deep into some kind of darkness, looking to burn out every trace of who I'd been*<br>
+> *You do some sad, sad things baby when it's you you're trying to lose*<br>
+> *You do some sad and hurtful things, I seen living proof*<br>
 
 If this seems a like a relapse to the more self-critical lyrics Bruce had been penning for the past five years, that's because these particular lyrics hail from that period–or at least the tail end of it. We hear very similar lyrics in "Goin' Cali," which Bruce recorded at the very beginning of 1991, at least six months before "Living Proof":
 
-> *So he pulled his heart and soul down off the shelf*
-> *Packed them next to the faith that he'd lost in himself*
+> *So he pulled his heart and soul down off the shelf*<br>
+> *Packed them next to the faith that he'd lost in himself*<br>
 
-> *He went down to the desert city where the rattlesnakes play*
-> *And left his dead skin by the roadside in the noon of day*
-> *Sun got so hot it almost felt like a friend*
-> *It could burn out every trace of where you been*
+> *He went down to the desert city where the rattlesnakes play*<br>
+> *And left his dead skin by the roadside in the noon of day*<br>
+> *Sun got so hot it almost felt like a friend*<br>
+> *It could burn out every trace of where you been*<br>
 
 There's a theme of personal re-birth and redemption at work in "Goin' Cali" that makes for a clever parallel to the birth of his son in "Living Proof," so it makes sense that Bruce would borrow those lyrics from the former and repurpose them for the latter.
 
 More than just a theme, Bruce seemed to have been positively *fixated* on the metaphor of a snake shedding its skin during that period. He used it for "Trouble River" in the summer of 1990–
 
-> *Snakes crawling in the house, I'm stuck in muddy ground*
-> *Tonight I'm gonna shed this skin 'cause water's rising and I'm going down to*
+> *Snakes crawling in the house, I'm stuck in muddy ground*<br>
+> *Tonight I'm gonna shed this skin 'cause water's rising and I'm going down to*<br>
 
 He used it in "Goin' Cali" in January 1991:
 
-> *He went down to the desert city where the rattlesnakes play*
-> *And left his dead skin by the roadside in the noon of day*
+> *He went down to the desert city where the rattlesnakes play*<br>
+> *And left his dead skin by the roadside in the noon of day*<br>
 
 He even used it in "[Happy](https://estreetshuffle.com/index.php/2019/07/28/roll-of-the-dice-happy/)" in early 1992:
 
-> *Man, woman circle each other in a cage*
-> *A cage that's been handed down the line*
-> *Lost and running 'neath a million dead stars*
-> *Tonight let's shed our skins and slip these bars*
+> *Man, woman circle each other in a cage*<br>
+> *A cage that's been handed down the line*<br>
+> *Lost and running 'neath a million dead stars*<br>
+> *Tonight let's shed our skins and slip these bars*<br>
 
 It's easy to understand why Bruce would have been so fond of it–the snake metaphor represents the ability to shed the weight of one's past and start anew in the present. It seems clear that this was the focus of Bruce's personal journey in the early days of the nineties.
 
 Oh, and that cage metaphor from "Happy"–that's another commonality with "Living Proof," this time in the bridge:
 
-> *You shot through my anger and rage*
-> *To show me my prison was just an open cage*
-> *There were no keys, no guards*
-> *Just one frightened man and some old shadows for bars*
+> *You shot through my anger and rage*<br>
+> *To show me my prison was just an open cage*<br>
+> *There were no keys, no guards*<br>
+> *Just one frightened man and some old shadows for bars*<br>
 
 I'd argue that this bridge is actually the heart of the song–it brilliantly underlines Bruce's theme with a cautionary reminder: it's easy to get stuck in the world of fear and forget that we're only walking through it to live in the world of love. No one keeps us from it but ourselves.
 
 It's also clear by this point that while Evan may have inspired the song, it's Patti to whom Bruce sings. "Living Proof" is more a celebration of family than it is of a child. As the song concludes, Bruce finds peace and takes quiet satisfaction in his new family as they lie in bed with him–even as he acknowledges their fragility:
 
-> *Well now all that's sure on the boulevard*
-> *Is that life is just a house of cards*
-> *As fragile as each and every breath*
-> *Of this boy sleeping in our bed*
+> *Well now all that's sure on the boulevard*<br>
+> *Is that life is just a house of cards*<br>
+> *As fragile as each and every breath*<br>
+> *Of this boy sleeping in our bed*<br>
 
 It's an amazing personal journey for a man who barely a decade before penned these lyrics:
 
-> *Sometimes I sit up in the darkness*
-> *And I watch my baby as she sleeps*
-> *Then I climb in bed and I hold her tight*
-> *I just lay there awake in the middle of the night*
-> *Thinking 'bout the wreck on the highway*
+> *Sometimes I sit up in the darkness*<br>
+> *And I watch my baby as she sleeps*<br>
+> *Then I climb in bed and I hold her tight*<br>
+> *I just lay there awake in the middle of the night*<br>
+> *Thinking 'bout the wreck on the highway*<br>
 
 Two starkly similar scenes; two very different states of mind.
 
 The closing lines of "Living Proof" reveal just how fortunate Bruce now views himself, and just how long a time that particular fortune was in coming:
 
-> *Tonight let's lie beneath the eaves, babe*
-> *It's just a close band of happy thieves*
-> *And when that train comes we'll get on board*
-> *And steal what we can from the treasures of the Lord*
-> *It's been a long, long drought baby, tonight the rain's pouring down on our roof*
-> *Oh looking for a little bit of God's mercy, I found living proof*
+> *Tonight let's lie beneath the eaves, babe*<br>
+> *It's just a close band of happy thieves*<br>
+> *And when that train comes we'll get on board*<br>
+> *And steal what we can from the treasures of the Lord*<br>
+> *It's been a long, long drought baby, tonight the rain's pouring down on our roof*<br>
+> *Oh looking for a little bit of God's mercy, I found living proof*<br>
 
 Bruce recorded "Living Proof" essentially as a solo effort–Garry Mallaber's drums and Roy Bittan's keyboards are the only non-Springsteen contributions to the track. Apropos to its theme, however, "Living Proof" comes alive when performed by a band. In particular, it proved to be exceptionally well-suited to Bruce's 1992-1993 touring band, and their MTV Plugged performance was one of the highlights from that show.
 
@@ -132,9 +132,9 @@ These days, "Living Proof" is considered a rarity. Bruce has only played it a do
 [Watch Video Highlight](https://videopress.com/embed/uJ7EeWz5)
 
 **Living Proof**<br>
-**Recorded** July-December 1991  
+**Recorded** July-December 1991<br>
 **Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** August 30, 2016 (East Rutherford, NJ)
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** August 30, 2016 (East Rutherford, NJ)<br>
 
 © March 18, 2020

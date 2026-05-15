@@ -1,4 +1,4 @@
-> "There have been many tough guys. There have been contenders and there have been pretenders, but there is only one king: Elvis Presley." *–Bruce Springsteen, introducing "Wear My Ring Around Your Neck," March 8, 1975*
+> "There have been many tough guys. There have been contenders and there have been pretenders, but there is only one king: Elvis Presley." *–Bruce Springsteen, introducing "Wear My Ring Around Your Neck," March 8, 1975*<br>
 
 It's far from Elvis' best song. In fact, if "Wear My Ring Around Your Neck" is notable for anything, it's for breaking Elvis' remarkable streak of ten consecutive #1 hits. (Although to be fair, it did reach #2.)
 
@@ -16,6 +16,6 @@ Other than a one-off performance with Rickie Lee Jones and Boz Scaggs in 1979 (f
 
 **Wear My Ring Around Your Neck  
 First performed:** November 16, 1974 (Washington, DC)
-**Last performed:** June 3, 1979 (West Hollywood, CA)
+**Last performed:** June 3, 1979 (West Hollywood, CA)<br>
 
  

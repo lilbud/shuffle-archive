@@ -1,4 +1,4 @@
-> All through the summers of '64, '65, '66 and '67 I'd hitchhiked the twenty miles from Freehold to Manasquan and back almost every day. I'd ridden with concerned moms, drunk drivers, truckers, street racers eager to show off what they had under the hood, traveling businessmen, and only one middle-aged salesman who was a little too interested in me. I'd hopped in with guys who had souped-up sound systems with echo chambers connected to their AM radios, "in-car" 45 record players set on springs under the dash near the shifter. Every sort of rube, redneck, responsible citizen and hell-raiser the Jersey Shore had to offer, I rode with 'em. I loved hitchhiking and meeting people. I miss it today. — *Bruce Springsteen, Born to Run*
+> All through the summers of '64, '65, '66 and '67 I'd hitchhiked the twenty miles from Freehold to Manasquan and back almost every day. I'd ridden with concerned moms, drunk drivers, truckers, street racers eager to show off what they had under the hood, traveling businessmen, and only one middle-aged salesman who was a little too interested in me. I'd hopped in with guys who had souped-up sound systems with echo chambers connected to their AM radios, "in-car" 45 record players set on springs under the dash near the shifter. Every sort of rube, redneck, responsible citizen and hell-raiser the Jersey Shore had to offer, I rode with 'em. I loved hitchhiking and meeting people. I miss it today. — *Bruce Springsteen, Born to Run*<br>
 
 There's an argument to be made (and I would make it) that *Western Stars* is Bruce Springsteen's most cinematic album. If so, "Hitch Hikin'" is its overture.
 
@@ -8,15 +8,15 @@ It isn't quite accurate to say "Hitch Hikin'" is a song devoid of plot; there ar
 
 Our narrator is blissfully free of such tethers. He has no destination in mind, and if he's even aware of where he is at the moment, he doesn't care enough to let us in on it. Bruce even declines to offer us a musical introduction; we simply join our hitchhiker mid-journey as he takes his next breath.
 
-> *Thumb stuck out as I go*
-> *I'm just traveling up the road*
-> *Maps don't do much for me, friend*
-> *I follow the weather and the wind*
+> *Thumb stuck out as I go*<br>
+> *I'm just traveling up the road*<br>
+> *Maps don't do much for me, friend*<br>
+> *I follow the weather and the wind*<br>
 
-> *I'm hitch hiking all day long*
-> *Got what I can carry and my song*
-> *I'm a rolling stone just rolling on*
-> *Catch me now 'cause tomorrow I'll be gone*
+> *I'm hitch hiking all day long*<br>
+> *Got what I can carry and my song*<br>
+> *I'm a rolling stone just rolling on*<br>
+> *Catch me now 'cause tomorrow I'll be gone*<br>
 
 Bruce devotes the first two verses to establishing his character, an unusual amount of real estate for a songwriter known for his economy. That's not laziness, though–Bruce is deliberately subverting our expectations as a way of saying *that's all there is, there's nothing more to learn about me.*
 
@@ -28,20 +28,20 @@ However, it's notable that the musical hitchhikers hop in but never hop out. Bru
 
 Enough about our hitchers, though–let's meet our drivers.
 
-> *Family man gives me a ride*
-> *Got his pregnant Sally at his side*
-> *Yes indeed, sir, children are a gift*
-> *Thank you kindly for the lift*
+> *Family man gives me a ride*<br>
+> *Got his pregnant Sally at his side*<br>
+> *Yes indeed, sir, children are a gift*<br>
+> *Thank you kindly for the lift*<br>
 
-> *Trucker gears his engine down*
-> *Says, "Climb on up, son, I'm highway bound"*
-> *Dashboard picture of a pretty girl*
-> *I'm riding high on top of the world*
+> *Trucker gears his engine down*<br>
+> *Says, "Climb on up, son, I'm highway bound"*<br>
+> *Dashboard picture of a pretty girl*<br>
+> *I'm riding high on top of the world*<br>
 
-> *Gearhead in a souped-up '72*
-> *Wants to show a kid just what this thing'll do*
-> *Telephone poles and trees go whizzing by*
-> *Thank you pal, she sure can fly*
+> *Gearhead in a souped-up '72*<br>
+> *Wants to show a kid just what this thing'll do*<br>
+> *Telephone poles and trees go whizzing by*<br>
+> *Thank you pal, she sure can fly*<br>
 
 These verses may seem like insubstantial vignettes, but each is carefully constructed to highlight something that our drifter lacks and that most people value: family, a job, possessions.
 
@@ -65,9 +65,9 @@ The differences are subtle but significant, like the extended introduction that 
 [Watch on Youtube: Hitch Hikin' - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=fdN4NXt414o)
 
 **Hitch Hikin'**<br>
-**Recorded** 2010-2018  
-**Released:** *Western Stars* (2019)
-**First performed:** April 2019 (Colts Neck, NJ)
-**Last performed:** April 2019 (Colts Neck, NJ)
+**Recorded** 2010-2018<br>
+**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -8,20 +8,20 @@ Patti Scialfa recorded "Town Called Heartbreak" for her 2007 album, *Play It As 
 
 "Town Called Heartbreak" isn't a title you'd expect for a love song, and frankly its lyrics don't scream romance either.
 
-> *They say love*
-> *A love has its very own light*
-> *That can shine through the darkest night*
-> *That we've heard of*
-> *And that light*
-> *That you may want so much*
-> *Well maybe you can never touch*
-> *Though you may try*
-> *Now at night I dream*
-> *I'm all alone*
-> *Big sledgehammer and a cold dark stone*
-> *Man swing the hammer*
-> *World begin to shake*
-> *I'm just living in a town called Heartbreak*
+> *They say love*<br>
+> *A love has its very own light*<br>
+> *That can shine through the darkest night*<br>
+> *That we've heard of*<br>
+> *And that light*<br>
+> *That you may want so much*<br>
+> *Well maybe you can never touch*<br>
+> *Though you may try*<br>
+> *Now at night I dream*<br>
+> *I'm all alone*<br>
+> *Big sledgehammer and a cold dark stone*<br>
+> *Man swing the hammer*<br>
+> *World begin to shake*<br>
+> *I'm just living in a town called Heartbreak*<br>
 
 And yet in a way, "Town Called Heartbreak" very much is a love song. It's about the reality of love, rather than the cliche of it. Maybe we can't be complete without our partners, but they're not all it takes to make us complete.
 
@@ -58,8 +58,8 @@ That's too bad, because the E Street version is gloriously gritty and features s
 
 **Town Called Heartbreak**<br>
 **Recorded:** Early 2007  
-**Released:** *Play It As It Lays* (2007)
-**First performed:** September 25, 2007 (Asbury Park, NJ)
-**Last performed:** November 12, 2007 (Washington, DC)
+**Released:** *Play It As It Lays* (2007)<br>
+**First performed:** September 25, 2007 (Asbury Park, NJ)<br>
+**Last performed:** November 12, 2007 (Washington, DC)<br>
 
 © August 9, 2020

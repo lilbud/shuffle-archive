@@ -1,4 +1,4 @@
-> "Whenever I'm paging through magazines and there's like a compendium of your records… you know, "The Bruce to Buy" and "The Bruce Not to Buy"… [*Human Touch*] is always sort of star-challenged. And perhaps unfairly!" — *Bruce Springsteen, August 10, 2005*
+> "Whenever I'm paging through magazines and there's like a compendium of your records… you know, "The Bruce to Buy" and "The Bruce Not to Buy"… [*Human Touch*] is always sort of star-challenged. And perhaps unfairly!" — *Bruce Springsteen, August 10, 2005*<br>
 
 Or perhaps not.
 
@@ -16,31 +16,31 @@ Take, for example, "Soul Driver." One of the earliest songs written and recorded
 
 As originally presented to the public, "Soul Driver" was an intimate, moody, devotional that married biblical metaphor with carnival imagery to moving effect.
 
-> *Rode through forty nights of the gospels' rain*
-> *Black sky pouring snakes, frogs and love in vain*
-> *You were down where the river grows wider*
-> *Baby let me be your soul driver*
+> *Rode through forty nights of the gospels' rain*<br>
+> *Black sky pouring snakes, frogs and love in vain*<br>
+> *You were down where the river grows wider*<br>
+> *Baby let me be your soul driver*<br>
 
-> *Well if something in the air feels a little unkind*
-> *Don't worry darling, oh it'll slip your mind*
-> *I'll be your gypsy joker, your shotgun rider*
-> *Baby let me be your soul driver*
+> *Well if something in the air feels a little unkind*<br>
+> *Don't worry darling, oh it'll slip your mind*<br>
+> *I'll be your gypsy joker, your shotgun rider*<br>
+> *Baby let me be your soul driver*<br>
 
 As in much of his best work, Bruce's narrator doesn't pretend to know the future, and he carries no false confidence. He simply pledges to be a true companion, riding shotgun with his lover (we'll let the titular metaphor contradiction pass without comment) through the Great Flood, the Egyptian plagues, and whatever life throws their way. In essence, "Soul Driver" is a wisened "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" by a wizened songwriter.
 
 As always, the heart of the song lies in the bridge:
 
-> *Now no one knows which way love's wheel turns*
-> *Will we hit it rich or crash and burn*
-> *Does fortune wait or just the black hand of fate*
-> *This love potion's all we've got, one toast before it's too late*
+> *Now no one knows which way love's wheel turns*<br>
+> *Will we hit it rich or crash and burn*<br>
+> *Does fortune wait or just the black hand of fate*<br>
+> *This love potion's all we've got, one toast before it's too late*<br>
 
 Fortune or fate? Both are fickle. Love is the only constant–if you choose correctly and commit fully. Even if life's road leads to ruin, at least you'll have a companion for the drive.
 
-> *If the angels are unkind or the season is dark*
-> *Or if in the end love just falls apart*
-> *Well then here's to our destruction*
-> *Baby let me be your soul driver*
+> *If the angels are unkind or the season is dark*<br>
+> *Or if in the end love just falls apart*<br>
+> *Well then here's to our destruction*<br>
+> *Baby let me be your soul driver*<br>
 
 "Soul Driver" ends on a sobering note: our narrator admits uncertainty even about whether their love will last. And that's what makes the song so romantic: he pledges himself even though there's no guarantee things will work out in his favor. That's devotion.
 
@@ -71,9 +71,9 @@ If only he'd realized that when recording the album.
 [Watch on Youtube: Bruce Springsteen - Soul Driver (rehearsal)](https://www.youtube.com/watch?v=ziVw8itIXVU)
 
 **Soul Driver**<br>
-**Recorded** January 1990  
+**Recorded** January 1990<br>
 **Released:** *Human Touch* (1992)
-**First performed:** November 17, 1990 (Los Angeles, CA)
-**Last performed:** August 10, 2005 (Portland, OR)
+**First performed:** November 17, 1990 (Los Angeles, CA)<br>
+**Last performed:** August 10, 2005 (Portland, OR)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -16,45 +16,45 @@ The titular window is a metaphor, representing the personal lens through which w
 
 Through a series of vignettes, Bruce rejects the petty pundits, redirecting the conversation to the evils of war, lynching, homelessness and hunger. He'll only engage with those who bring empathy, love, and truth to the table, but as the song progresses, our narrator's resolve begins to waver as he realizes that his faith won't help him make sense of the world. He's left to his own devices.
 
-> *The sea is pounding at my window*
-> *Wants to baptize my mind*
-> *There's a thousand politicians at my back door*
-> *Blinding me with their lies*
+> *The sea is pounding at my window*<br>
+> *Wants to baptize my mind*<br>
+> *There's a thousand politicians at my back door*<br>
+> *Blinding me with their lies*<br>
 
-> *Don't tell me your problems my friend*
-> *I've heard them time and time and time and time again*
-> *Get on your plastic words and fly*
-> *If you don't have the truth friend, then I don't have the time*
+> *Don't tell me your problems my friend*<br>
+> *I've heard them time and time and time and time again*<br>
+> *Get on your plastic words and fly*<br>
+> *If you don't have the truth friend, then I don't have the time*<br>
 
-> *The earth is trembling beneath me*
-> *And I don't know what's to come*
-> *The foreign soldier fires his weapon*
-> *And a tear runs down the lonely ???*
+> *The earth is trembling beneath me*<br>
+> *And I don't know what's to come*<br>
+> *The foreign soldier fires his weapon*<br>
+> *And a tear runs down the lonely ???*<br>
 
-> *Don't tell me your problems my friend*
-> *I've heard them time and time and time and time again*
-> *Get on your plastic words and fly*
-> *If you don't have a heart friend, then I don't have the time*
+> *Don't tell me your problems my friend*<br>
+> *I've heard them time and time and time and time again*<br>
+> *Get on your plastic words and fly*<br>
+> *If you don't have a heart friend, then I don't have the time*<br>
 
-> *I've traveled through the seasons so many times*
-> *The saddest sight that I could see*
-> *Was the youngest brother being hung*
-> *‘Neath the weeping willow tree*
+> *I've traveled through the seasons so many times*<br>
+> *The saddest sight that I could see*<br>
+> *Was the youngest brother being hung*<br>
+> *‘Neath the weeping willow tree*<br>
 
-> *I've sat ‘neath that weeping willow tree*
-> *Trying to decide wrong from right*
-> *The ancient scriptures that lay beside me*
-> *Vanished with God into the night*
+> *I've sat ‘neath that weeping willow tree*<br>
+> *Trying to decide wrong from right*<br>
+> *The ancient scriptures that lay beside me*<br>
+> *Vanished with God into the night*<br>
 
-> *The sea is pounding at my window*
-> *Should I let it in*
-> *There's a hungry tramp at my back door*
-> *Can I turn my eyes from him*
+> *The sea is pounding at my window*<br>
+> *Should I let it in*<br>
+> *There's a hungry tramp at my back door*<br>
+> *Can I turn my eyes from him*<br>
 
-> *Don't tell me your problems my friend*
-> *I've heard them time and time and time and time again*
-> *Get on your plastic words and fly*
-> *If you don't have any love friend, then I don't have the time*
+> *Don't tell me your problems my friend*<br>
+> *I've heard them time and time and time and time again*<br>
+> *Get on your plastic words and fly*<br>
+> *If you don't have any love friend, then I don't have the time*<br>
 
 These are not Bruce's strongest lyrics ("get on your plastic words and fly" doesn't exactly roll off the tongue), but remember: he was only eighteen at the time. He was already beginning to experiment with metaphor, and his liberal use of religious vocabulary and iconography was firmly established. This may be a *very* early Bruce Springsteen song, but it does indeed read like a Bruce Springsteen song.
 
@@ -63,7 +63,7 @@ No recording exists of "The Window" (that I know of, at least), but if Bruce tru
 **The Window**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** Unknown (but believed to be May 1968, Red Bank, NJ)
-**Last performed:** Unknown (but believed to be May 1968, Red Bank, NJ)
+**First performed:** Unknown (but believed to be May 1968, Red Bank, NJ)<br>
+**Last performed:** Unknown (but believed to be May 1968, Red Bank, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

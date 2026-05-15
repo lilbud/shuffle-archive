@@ -107,8 +107,8 @@ And that last time, at Hyde Park–they *nailed* it (even if Bruce truncated the
 
 **Take 'em as They Come**<br>
 **Recorded:** December 5, 1979 (backing track), April 10, 1980 (vocals)
-**Released:** *Tracks* (1998)
-**First performed:** June 15, 1999 (Offenbach, Germany)
-**Last performed:** July 14, 2012 (London, England)
+**Released:** *Tracks* (1998)<br>
+**First performed:** June 15, 1999 (Offenbach, Germany)<br>
+**Last performed:** July 14, 2012 (London, England)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -10,40 +10,40 @@ The track itself is a fun one, a honky-tonk arrangement that would make for a fi
 
 "Car Wash" is about the difficulty of hanging on to your dreams in the face of a stark reality that seems to defy them from ever being realized. In the song's sole poetic touch, Catherine refers to her job at the car wash as "doing time," a deliberate prison reference.
 
-> *Well my name is Catherine LeFevre*
-> *Work at the Astrowash on Sunset and Vine*
-> *I drop my kids at school in the morning*
-> *And I pick 'em up at Mary's just ‘fore suppertime*
+> *Well my name is Catherine LeFevre*<br>
+> *Work at the Astrowash on Sunset and Vine*<br>
+> *I drop my kids at school in the morning*<br>
+> *And I pick 'em up at Mary's just ‘fore suppertime*<br>
 
-> *Well I work down at the car wash*
-> *For a dollar and a dime*
-> *And mister, I hate my boss*
-> *It's at the car wash I'm doing my time*
+> *Well I work down at the car wash*<br>
+> *For a dollar and a dime*<br>
+> *And mister, I hate my boss*<br>
+> *It's at the car wash I'm doing my time*<br>
 
 Bruce subtly extends the comparison by likening the endless stream of cars to a chain gang. (Max even supplies a swinging sledgehammer beat to drive the point home.) Catherine doesn't know or care who the cars belong to, she just washes them down and gets closer to collecting her $1.10 an hour.
 
-> *Pick up my water bottle and my towel, sir*
-> *And I take 'em one by one*
-> *From Mercedes to VWs*
-> *I do 'em all and I don't favor none*
+> *Pick up my water bottle and my towel, sir*<br>
+> *And I take 'em one by one*<br>
+> *From Mercedes to VWs*<br>
+> *I do 'em all and I don't favor none*<br>
 
 (Gotta take a moment to admire that third line above–"From Mercedes to VWs" is a clever metrical rhyme.)
 
 Still, there's a beating heart in this song, and we find it in the last verse. Despite the endless monotony of her days, she dreams of her big break, however unlikely that might be.
 
-> *Well someday I'll sing in a night club*
-> *I'll get a million-dollar break*
-> *A handsome man will come here with a contract in his hand*
-> *And say "Catherine, this has all been some mistake"*
+> *Well someday I'll sing in a night club*<br>
+> *I'll get a million-dollar break*<br>
+> *A handsome man will come here with a contract in his hand*<br>
+> *And say "Catherine, this has all been some mistake"*<br>
 
 There's something about the over-the-top fantasy that suggests that Catherine knows full well her handsome A&R man isn't going to come and take her away, but that doesn't matter–the fantasy is enough to make the days bearable.
 
 Maybe that's why the E Street Band ends the song on a note of triumph, even as Catherine returns to her daily drudgery.
 
-> *Well I work down at the car wash*
-> *For a dollar and a dime*
-> *Well mister, I hate my boss*
-> *It's at the car wash I'm doing my time*
+> *Well I work down at the car wash*<br>
+> *For a dollar and a dime*<br>
+> *Well mister, I hate my boss*<br>
+> *It's at the car wash I'm doing my time*<br>
 
 ---
 
@@ -59,9 +59,9 @@ But one lone performance is all we've been given, so we're fortunate that it was
 Let's hope for it on the next E Street Band tour!
 
 **Car Wash**<br>
-**Recorded** May 31, 1983  
-**Released:** *Tracks* (1998)
-**First performed:** June 13, 1999 (Leipzig, Germany)
-**Last performed:** June 13, 1999 (Leipzig, Germany)
+**Recorded** May 31, 1983<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** June 13, 1999 (Leipzig, Germany)<br>
+**Last performed:** June 13, 1999 (Leipzig, Germany)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

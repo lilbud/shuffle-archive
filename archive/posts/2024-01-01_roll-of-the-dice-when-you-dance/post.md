@@ -18,27 +18,27 @@ And while the two versions are very different lyrically, they're also essentiall
 
 Bruce's version:
 
-> *When you dance, ah come on mama hold me tight*
-> *Make romance, yeah kiss me baby in the night*
-> *When you move, oh don't you know I love you so*
-> *When you groove, meet baby I'm on the lights down low*
+> *When you dance, ah come on mama hold me tight*<br>
+> *Make romance, yeah kiss me baby in the night*<br>
+> *When you move, oh don't you know I love you so*<br>
+> *When you groove, meet baby I'm on the lights down low*<br>
 
-> *When you love, you know I'll chase the heavens above*
-> *From above, and my body shaking for you love*
-> *You're so wild that I want you for my partner child*
-> *When you smile, how you move just right*
+> *When you love, you know I'll chase the heavens above*<br>
+> *From above, and my body shaking for you love*<br>
+> *You're so wild that I want you for my partner child*<br>
+> *When you smile, how you move just right*<br>
 
 Southside's version:
 
-> *When you dance, I hear the music rocking everywhere*
-> *When you dance, I see the light shining through your hair*
-> *When you dance, baby, the band is blowing like a hurricane*
-> *When you dance, you look so fine but you don't know my name*
+> *When you dance, I hear the music rocking everywhere*<br>
+> *When you dance, I see the light shining through your hair*<br>
+> *When you dance, baby, the band is blowing like a hurricane*<br>
+> *When you dance, you look so fine but you don't know my name*<br>
 
-> *When you dance, your smile hiding what you're thinking of*
-> *When you dance, your body tremble like you're making love*
-> *When you move, baby, my soul is aching and my blood run hot*
-> *Run into me now, my heart is breaking shaking what you've got*
+> *When you dance, your smile hiding what you're thinking of*<br>
+> *When you dance, your body tremble like you're making love*<br>
+> *When you move, baby, my soul is aching and my blood run hot*<br>
+> *Run into me now, my heart is breaking shaking what you've got*<br>
 
 Southside's version has more polished lyrics and a brassier arrangement, but for my ears, Bruce's guitar jam takes the prize.
 
@@ -49,7 +49,7 @@ There are a few Bruce Springsteen Band performances of "When You Dance" circulat
 <https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3>
 
 **When You Dance****Never Recorded  
-**First performed:** October 23, 1971 (Richmond, VA)
-**Last performed:** [May 13](https://estreetshuffle.com/index.php/2018/05/13/kingdom-of-days-may-13/), 1977 (Red Bank, NJ)
+**First performed:** October 23, 1971 (Richmond, VA)<br>
+**Last performed:** [May 13](https://estreetshuffle.com/index.php/2018/05/13/kingdom-of-days-may-13/), 1977 (Red Bank, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

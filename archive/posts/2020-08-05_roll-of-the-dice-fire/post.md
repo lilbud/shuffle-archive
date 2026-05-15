@@ -44,25 +44,25 @@ All the while, Bruce made "Fire" a staple of his set lists–if he was reluctant
 
 Watching Bruce's live performances, It's easy to see why. It's not because of the lyrics, which are few and cringe-inducing:
 
-> *I'm driving in my car, I turn on the radio*
-> *I'm pulling you close, you just say no*
-> *You say you don't like it, but girl I know you're a liar*
-> *‘Cause when we kiss, oh, fire*
+> *I'm driving in my car, I turn on the radio*<br>
+> *I'm pulling you close, you just say no*<br>
+> *You say you don't like it, but girl I know you're a liar*<br>
+> *‘Cause when we kiss, oh, fire*<br>
 
-> *Well late at night, I'm taking you home*
-> *I say I wanna stay, you say you wanna be alone*
-> *You say you don't love me, but you can't hide your desire*
-> *When we kiss, oh, fire*
+> *Well late at night, I'm taking you home*<br>
+> *I say I wanna stay, you say you wanna be alone*<br>
+> *You say you don't love me, but you can't hide your desire*<br>
+> *When we kiss, oh, fire*<br>
 
-> *You had a hold on me right from the start*
-> *A grip so tight I couldn't tear it apart*
-> *My nerves all jumping acting like a fool*
-> *Your kisses they burn but your heart stays cool*
+> *You had a hold on me right from the start*<br>
+> *A grip so tight I couldn't tear it apart*<br>
+> *My nerves all jumping acting like a fool*<br>
+> *Your kisses they burn but your heart stays cool*<br>
 
-> *Romeo and Juliet, Samson and Delilah*
-> *You can bet their love they couldn't deny*
-> *Your words say split, but your words they lie*
-> *When we kiss, oh, fire, fire*
+> *Romeo and Juliet, Samson and Delilah*<br>
+> *You can bet their love they couldn't deny*<br>
+> *Your words say split, but your words they lie*<br>
+> *When we kiss, oh, fire, fire*<br>
 
 No, what makes Bruce's live performances of "Fire" so great, so inspired, so head-and-shoulders above the studio version, is that he quickly realized the song's secret ingredient–the essential element that didn't make it into any of the studio recordings, including his own.
 
@@ -107,9 +107,9 @@ https://www.youtube.com/watch?v=S1oagD7dv_Q
 Still, "Fire" remains a fan favorite for those able to look past its content, or at least recognize that we don't have to admire a song's point-of-view character to appreciate a great performance.
 
 **Fire**<br>
-**Recorded** 1977 and 2010  
+**Recorded** 1977 and 2010<br>
 **Released:** *The Promise* (2010)
-**First performed:** May 23, 1978 (Buffalo, NY)
-**Last performed:** September 4, 2021 (New York City, NY)
+**First performed:** May 23, 1978 (Buffalo, NY)<br>
+**Last performed:** September 4, 2021 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

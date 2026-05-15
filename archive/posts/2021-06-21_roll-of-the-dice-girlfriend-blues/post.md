@@ -12,27 +12,27 @@ On stage with Bruce are Steve Van Zandt (on bass), Vini Lopez, and Danny Federic
 
 Bruce fashioned "Girlfriend Blues" in the classic blues mold and "my girl done left me" theme, and his lyrics clearly drew inspiration from Richard Fariña's *Been Down So Long It Looks Like Up to Me*, which captivated the countercultural imagination upon its publication four years earlier. Bruce had undoubtedly read it by this time, as he acknowledges it post-song when an audience member catches the lyrical reference.
 
-> *Been down so long*
-> *I cannot look back up to me*
+> *Been down so long*<br>
+> *I cannot look back up to me*<br>
 
-> *I've been down so long*
-> *I cannot look back up to me*
+> *I've been down so long*<br>
+> *I cannot look back up to me*<br>
 
-> *Since my honey left me*
-> *I've been so sad as any poor boy would be*
+> *Since my honey left me*<br>
+> *I've been so sad as any poor boy would be*<br>
 
-> *She said that I treated her mean*
-> *She said I got too many women on the side*
+> *She said that I treated her mean*<br>
+> *She said I got too many women on the side*<br>
 
-> *She said that I treated her mean*
-> *She said I got too many of them young girls on the side*
-> *(Oh she's sweet sixteen)*
+> *She said that I treated her mean*<br>
+> *She said I got too many of them young girls on the side*<br>
+> *(Oh she's sweet sixteen)*<br>
 
-> *Said honey it don't mean a thing to me*
-> *Oh you're the best woman that I've ever seen*
+> *Said honey it don't mean a thing to me*<br>
+> *Oh you're the best woman that I've ever seen*<br>
 
-> *It made me feel so good when you love me*
-> *I just gotta let you know all about it*
+> *It made me feel so good when you love me*<br>
+> *I just gotta let you know all about it*<br>
 
 Bruce and the band are channeling a tremendous groove here. This is a seriously and confidently powerful performance for such a young band. But what truly makes this performance so significant is Bruce's mid-song story.
 
@@ -40,11 +40,11 @@ Now, it's amazing simply to hear such an early example of Bruce's on-stage story
 
 Bruce begins:
 
-> *So I figured: to make up with her, I was gonna have to take her out. So I took her to the boardwalk. This happened about in the middle of last week some time. [laughs]*
+> *So I figured: to make up with her, I was gonna have to take her out. So I took her to the boardwalk. This happened about in the middle of last week some time. [laughs]*<br>
 
 Bruce laughs at his own cleverness at this point, and without historical context we might wonder why. But this performance is from Steel Mill's gig at Asbury Park's Sunshine In on July 17, 1970, and we know *exactly* what was going on in Asbury Park the week prior.
 
-> *So I took her on down the boardwalk, and we got about in the middle of town and all of a sudden–out in front of our car jumps 30 state troopers and 67 Asbury policemen with the helmets on and the big long sticks and the guns on their side and they're aiming a shotgun in my window.*
+> *So I took her on down the boardwalk, and we got about in the middle of town and all of a sudden–out in front of our car jumps 30 state troopers and 67 Asbury policemen with the helmets on and the big long sticks and the guns on their side and they're aiming a shotgun in my window.*<br>
 
 And this is when we realize that Bruce's story is set right in the midst of Asbury Park's race riots that rocked the seaside town to its core from July 4th through the 10th of that year and brought Asbury Park to the attention of the national news media.
 
@@ -58,11 +58,11 @@ That week of civil unrest caused more than five million dollars in property dama
 
 Let's let Bruce continue:
 
-> *"Let me see your driver's license and registration." I said, "You don't have to point that shotgun at me and jump out with all them 30 state troopers to see my license and registration, especially since I wasn't driving."*
+> *"Let me see your driver's license and registration." I said, "You don't have to point that shotgun at me and jump out with all them 30 state troopers to see my license and registration, especially since I wasn't driving."*<br>
 
-> *So anyway, we're sitting there in the middle of the street, with the 30 state troopers and everybody, and they're making all kind of cracks at us and stuff. So I said, "What's going on?" You know, me being all unaware of the situation. So anyway, they let us ride through town.*
+> *So anyway, we're sitting there in the middle of the street, with the 30 state troopers and everybody, and they're making all kind of cracks at us and stuff. So I said, "What's going on?" You know, me being all unaware of the situation. So anyway, they let us ride through town.*<br>
 
-> *From what I've seen, there must've been a bargain sale in Asbury. You know: run in as fast as you can, take what you can get, and split!*
+> *From what I've seen, there must've been a bargain sale in Asbury. You know: run in as fast as you can, take what you can get, and split!*<br>
 
 Oof. That may be Bruce Springsteen's single cringiest on-stage moment ever.
 
@@ -70,41 +70,41 @@ There's really no defending such disingenuousness and insensitivity, so I'm not 
 
 Now let's set that aside and get back to the music, which resumes with a very impressive guitar solo by Bruce. When his vocals resume, we thankfully flash forward in time. His girlfriend is long gone, and our narrator obsesses over how much he misses her.
 
-> *Oh you know I couldn't take her on down to the boardwalk*
-> *So she decided to just cut on out of town*
+> *Oh you know I couldn't take her on down to the boardwalk*<br>
+> *So she decided to just cut on out of town*<br>
 
-> *Oh, I sure miss that woman*
-> *She sure made me feel down*
+> *Oh, I sure miss that woman*<br>
+> *She sure made me feel down*<br>
 
-> *And I've been down so long*
-> *You know it looked like up to me*
+> *And I've been down so long*<br>
+> *You know it looked like up to me*<br>
 
 But wait–there might yet be hope for our lovers' reconciliation! All our narrator has to do to earn his girl back is one little favor. What could it be?
 
-> *She said, "you know, I just might forgive you honey*
-> *But please: won't you do me a favor?*
-> *Won't you do me a little favor first?*
-> *I said, won't you do me a favor?"*
+> *She said, "you know, I just might forgive you honey*<br>
+> *But please: won't you do me a favor?*<br>
+> *Won't you do me a little favor first?*<br>
+> *I said, won't you do me a favor?"*<br>
 
-> *I said, "what do you want from me?"  
-She told me that if I get into town…*
+> *I said, "what do you want from me?"*<br>
+> *She told me that if I get into town…*<br>
 
 Oh no. Don't do it, Bruce. Don't go there.
 
-> *See if I can pick her up a color TV!*
+> *See if I can pick her up a color TV!*<br>
 
 Sigh. Oh, Bruce…
 
 ![MI PRIMER VIDEO!!! íbamos TAN BIEN! - YouTube](https://i.ytimg.com/vi/5vmsIH9Lpzg/hqdefault.jpg)
 
-> *For more information on the Asbury Park riots of 1970, watch the excellent documentary, Asbury Park: Riot, Redemption, Rock ‘n' Roll — available to stream now.*
+> *For more information on the Asbury Park riots of 1970, watch the excellent documentary, Asbury Park: Riot, Redemption, Rock ‘n' Roll — available to stream now.*<br>
 
-> *(h/t to Eddy at Springsteenlyrics.com for his great work transcribing and documenting this one)*
+> *(h/t to Eddy at Springsteenlyrics.com for his great work transcribing and documenting this one)*<br>
 
 **Girlfriend Blues**<br>
 **Never recorded**<br>
 **Never released**<br>
-**First performed:** July 17, 1970 (Asbury Park, NJ)
-**Last performed:** July 17, 1970 (Asbury Park, NJ)
+**First performed:** July 17, 1970 (Asbury Park, NJ)<br>
+**Last performed:** July 17, 1970 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -78,29 +78,29 @@ The concept was deceptively simple: the youthful energy and experience of a high
 
 The verses are simple and ruminatory: decades on, a band member leafs through the pages of an old scrapbook–long enough ago that he no longer remembers who captured the faded photos.
 
-> *Faded pictures in an old scrapbook*
-> *Faded pictures that somebody took*
-> *When you were hard and young and proud*
-> *Backed against the wall running raw and loud*
+> *Faded pictures in an old scrapbook*<br>
+> *Faded pictures that somebody took*<br>
+> *When you were hard and young and proud*<br>
+> *Backed against the wall running raw and loud*<br>
 
 Losing himself in the photos and the details they reveal, he finds old memories newly stirred. We're transported back to the mid-1960s and the local circuit on the Jersey shore.
 
-> *Snakeskin vest and a sharkskin suit*
-> *Cuban heels on your boots*
-> *Kicking the band in side by side*
-> *You take the crowd on their mystery ride*
+> *Snakeskin vest and a sharkskin suit*<br>
+> *Cuban heels on your boots*<br>
+> *Kicking the band in side by side*<br>
+> *You take the crowd on their mystery ride*<br>
 
-> *Knights of Columbus and the Fireman's Ball*
-> *Friday night at the Union Hall*
-> *Black leather clubs all along Route 9*
-> *You count the names of the missing as you count off time*
+> *Knights of Columbus and the Fireman's Ball*<br>
+> *Friday night at the Union Hall*<br>
+> *Black leather clubs all along Route 9*<br>
+> *You count the names of the missing as you count off time*<br>
 
 With that last line, Bruce reveals that our narrator is both past and present. His young body stands on the stage beside his bandmates as his older soul marvels at the vitality of his long-gone friends. It's one of only two powerful lyrical tricks in an otherwise straightforward song, and the second one comes immediately after:
 
-> *Rock of ages lift me somehow*
-> *Somewhere high and hard and loud*
-> *Somewhere deep into the heart of the crowd*
-> *I'm the last man standing now*
+> *Rock of ages lift me somehow*<br>
+> *Somewhere high and hard and loud*<br>
+> *Somewhere deep into the heart of the crowd*<br>
+> *I'm the last man standing now*<br>
 
 *Rock of ages.* It could have served as the song's title, too.
 
@@ -108,24 +108,24 @@ As is his wont, Bruce uses the phrase to symbolize two things at once: the bibli
 
 It's only for the moment, though, and as the lights come up we realize that our bandleader is still at it.
 
-> *Out of school and out of work*
-> *Thrift store jeans and flannel shirt*
-> *The lights go down and we face the crowd*
-> *The last man standing now*
+> *Out of school and out of work*<br>
+> *Thrift store jeans and flannel shirt*<br>
+> *The lights go down and we face the crowd*<br>
+> *The last man standing now*<br>
 
-> *Lights come up at the Legion Hall*
-> *Pool cues go back up on the wall*
-> *You pack your guitar and have one last beer*
-> *With just the ringing in your ears*
+> *Lights come up at the Legion Hall*<br>
+> *Pool cues go back up on the wall*<br>
+> *You pack your guitar and have one last beer*<br>
+> *With just the ringing in your ears*<br>
 
 It's present day; our narrator is long since out of school and retired now as well. His bandmates are different but the venues are the same. When the lights go down he imagines himself surrounded not just by his current band but by the spirits of his fallen former bandmates, too.
 
 Once again he beseeches the divine spirits of both God and Rock and Roll for the strength to carry on–not just for himself, but for his brothers.
 
-> *Rock of ages lift me somehow*
-> *Somewhere high and hard and loud*
-> *Somewhere deep into the heart of the crowd*
-> *I'm the last man standing now*
+> *Rock of ages lift me somehow*<br>
+> *Somewhere high and hard and loud*<br>
+> *Somewhere deep into the heart of the crowd*<br>
+> *I'm the last man standing now*<br>
 
 For every great band, there's a last man standing (or there will be), and as long as he stands on stage each night, his band stands with him. Or as Springsteen put it to his audience more than four decades into his career: *if you're here, and we're here, then they're here.*
 
@@ -151,9 +151,9 @@ As the genesis for *Letter to You*, "Last Man Standing" seems like a pretty good
 [Watch on Youtube: Bruce Springsteen - Last Man Standing - St. Paul, MN - 3/5/2023](https://www.youtube.com/watch?v=loLoscZVRzI)
 
 **Last Man Standing**<br>
-**Recorded** November 18-22, 2019  
+**Recorded** November 18-22, 2019<br>
 **Released:** *Letter to You* (2020)
-**First performed:** October 27, 2020 (Colts Neck, NJ)
-**Last performed:** September 3, 2023 (East Rutherford, NJ)
+**First performed:** October 27, 2020 (Colts Neck, NJ)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
