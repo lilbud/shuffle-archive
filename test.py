@@ -47,13 +47,18 @@ with load_db() as conn, conn.cursor() as cur:
     folder = Path(r"./archive/posts")
 
     for file in folder.glob("**/*.md"):
-        print(file.parent.name)
+        # print(file.parent.name)
         content = file.read_text(encoding="utf-8")
-        content = re.sub(
-            r"\?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata",
-            "",
-            content,
-            flags=re.MULTILINE,
-        )
 
-        file.write_text(content, encoding="utf-8")
+        if re.search(r"https://www.youtube.com/embed/", content):
+            print(file.parent.name)
+            data = json.loads(
+                Path(
+                    f"./archive/posts/{file.parent.name}/meta.json",
+                ).read_text(encoding="utf-8"),
+            )
+
+            content = initial_cleanup(data["content"]["rendered"])
+            content = html_to_markdown.convert(content)
+
+            file.write_text(content, encoding="utf-8")
