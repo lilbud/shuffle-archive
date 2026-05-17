@@ -2,7 +2,7 @@ Let's reach waaay back in Joe Grushecky's catalog–all the way back to the Iron
 
 Buried in the middle of Side Two of that is one of the album's strongest tracks, "Junior's Bar," just screaming to be played live.
 
-[https://videopress.com/embed/wTGVZtrU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wTGVZtrU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wTGVZtrU](https://videopress.com/embed/wTGVZtrU)
 
 On March 23, 2014, Grushecky obliged during his joint concert with Bruce, and as a result, we have the one and only Grushecky/Springsteen performance of "Junior's Bar." Bruce hangs back on guitar for most of this one, but towards the end he steps up to the mic to provide backing vocals.
 

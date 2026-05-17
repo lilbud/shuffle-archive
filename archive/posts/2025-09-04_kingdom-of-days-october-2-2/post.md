@@ -11,9 +11,9 @@ Bruce plays his first-ever show in the state of Wisconsin, at the Uptown Theater
 
 **1975:** [Little Queenie](http://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)*very*
 
-[https://www.youtube.com/embed/NvVtJcsz7hc?feature=oembed](https://www.youtube.com/embed/NvVtJcsz7hc?feature=oembed)
+[https://www.youtube.com/embed/NvVtJcsz7hc](https://www.youtube.com/embed/NvVtJcsz7hc)
 
-[https://www.youtube.com/embed/9y_9-KI5pH4?feature=oembed](https://www.youtube.com/embed/9y_9-KI5pH4?feature=oembed)
+[https://www.youtube.com/embed/9y_9-KI5pH4](https://www.youtube.com/embed/9y_9-KI5pH4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1975-10-01-300x188.jpg?resize=744%2C466)
 
@@ -21,7 +21,7 @@ Bruce and the E Street Band bring their Lawsuit Tour to the Paramount Theater in
 
 **1976:**<br>
 
-[https://videopress.com/embed/ZHK0AYUU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZHK0AYUU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ZHK0AYUU](https://videopress.com/embed/ZHK0AYUU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1976-10-02-300x239.jpg?resize=758%2C604)
 
@@ -31,11 +31,11 @@ The marathon Born in the U.S.A. Tour finally comes to a close in Los Angeles, wi
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/Jz1mkeUE0rA?feature=oembed](https://www.youtube.com/embed/Jz1mkeUE0rA?feature=oembed)
+[https://www.youtube.com/embed/Jz1mkeUE0rA](https://www.youtube.com/embed/Jz1mkeUE0rA)
 
-[https://www.youtube.com/embed/_a5lSOyFv0s?feature=oembed](https://www.youtube.com/embed/_a5lSOyFv0s?feature=oembed)
+[https://www.youtube.com/embed/_a5lSOyFv0s](https://www.youtube.com/embed/_a5lSOyFv0s)
 
-[https://www.youtube.com/embed/xS9YRqgZZ5E?feature=oembed](https://www.youtube.com/embed/xS9YRqgZZ5E?feature=oembed)
+[https://www.youtube.com/embed/xS9YRqgZZ5E](https://www.youtube.com/embed/xS9YRqgZZ5E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-10-02a-300x298.jpg?resize=758%2C753)
 
@@ -45,7 +45,7 @@ World Tour 1992 moves on to the America West Arena in Phoenix for the first of t
 
 **1992:**<br>
 
-[https://videopress.com/embed/Ba5xlxSS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ba5xlxSS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Ba5xlxSS](https://videopress.com/embed/Ba5xlxSS)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1992-10-02a-300x300.jpg?resize=758%2C758)
 
@@ -55,7 +55,7 @@ Bruce plays a solo acoustic show at the Riverside Theater in Milwaukee, 21 years
 
 **1996:** [Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)
 
-[https://videopress.com/embed/1La8VWX2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1La8VWX2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1La8VWX2](https://videopress.com/embed/1La8VWX2)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1996-1002-300x288.jpg?resize=758%2C727)
 
@@ -63,13 +63,13 @@ The Vote for Change Tour of swing states moves on to Cleveland's Gund Arena, whe
 
 **2004:** [The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)[Bad Moon Rising](https://estreetshuffle.com/index.php/2023/01/18/matr-bruce-springsteen-and-john-fogerty-bad-moon-rising/)[Man on the Moon](https://estreetshuffle.com/index.php/2021/01/06/matr-r-e-m-and-bruce-springsteen-man-on-the-moon/)[Bad Day](https://estreetshuffle.com/index.php/2021/05/05/meeting-across-the-river-r-e-m-and-bruce-springsteen-bad-day/)[report.](http://estreetshuffle.com/index.php/2018/10/02/where-the-band-was-cleveland-october-2-2004/)*Where the Band Was*
 
-[https://www.youtube.com/embed/sZcju8_8LpA?feature=oembed](https://www.youtube.com/embed/sZcju8_8LpA?feature=oembed)
+[https://www.youtube.com/embed/sZcju8_8LpA](https://www.youtube.com/embed/sZcju8_8LpA)
 
-[https://videopress.com/embed/wHMlW3e9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wHMlW3e9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wHMlW3e9](https://videopress.com/embed/wHMlW3e9)
 
-[https://videopress.com/embed/ZFfTcrSv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZFfTcrSv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ZFfTcrSv](https://videopress.com/embed/ZFfTcrSv)
 
-[https://videopress.com/embed/ISTytCik?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ISTytCik?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ISTytCik](https://videopress.com/embed/ISTytCik)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/The_Plain_Dealer_2004_10_03_13.jpg?resize=758%2C445&amp;ssl=1)
 
@@ -77,23 +77,23 @@ Bruce's Italian tour with the Sessions Band moves on to Torino.
 
 **2006:**<br>
 
-[https://www.youtube.com/embed/S43vfTjPZ1A?feature=oembed](https://www.youtube.com/embed/S43vfTjPZ1A?feature=oembed)
+[https://www.youtube.com/embed/S43vfTjPZ1A](https://www.youtube.com/embed/S43vfTjPZ1A)
 
-[https://www.youtube.com/embed/xj35u8RUbnI?feature=oembed](https://www.youtube.com/embed/xj35u8RUbnI?feature=oembed)
+[https://www.youtube.com/embed/xj35u8RUbnI](https://www.youtube.com/embed/xj35u8RUbnI)
 
-[https://www.youtube.com/embed/qi5ikBbwZ00?feature=oembed](https://www.youtube.com/embed/qi5ikBbwZ00?feature=oembed)
+[https://www.youtube.com/embed/qi5ikBbwZ00](https://www.youtube.com/embed/qi5ikBbwZ00)
 
 Bruce and the E Street Band kick off the Magic Tour at the Hartford Civic Center with a set list that hews very closely to the rehearsal show.
 
 **2007:**<br>
 
-[https://www.youtube.com/embed/Cx2NGZgmrVs?feature=oembed](https://www.youtube.com/embed/Cx2NGZgmrVs?feature=oembed)
+[https://www.youtube.com/embed/Cx2NGZgmrVs](https://www.youtube.com/embed/Cx2NGZgmrVs)
 
-[https://www.youtube.com/embed/PqjZw1zhUIM?feature=oembed](https://www.youtube.com/embed/PqjZw1zhUIM?feature=oembed)
+[https://www.youtube.com/embed/PqjZw1zhUIM](https://www.youtube.com/embed/PqjZw1zhUIM)
 
-[https://www.youtube.com/embed/4B9k1hobd-U?feature=oembed](https://www.youtube.com/embed/4B9k1hobd-U?feature=oembed)
+[https://www.youtube.com/embed/4B9k1hobd-U](https://www.youtube.com/embed/4B9k1hobd-U)
 
-[https://www.youtube.com/embed/8F8tpuO6OKM?feature=oembed](https://www.youtube.com/embed/8F8tpuO6OKM?feature=oembed)
+[https://www.youtube.com/embed/8F8tpuO6OKM](https://www.youtube.com/embed/8F8tpuO6OKM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2007-10-02-300x228.jpg?resize=758%2C576)
 
@@ -101,11 +101,11 @@ On Night Two (of five) at Giants Stadium, Bruce plays the entire album and still
 
 **2009:** [](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness on the Edge of Town*[Jailhouse Rock](http://estreetshuffle.com/index.php/2019/10/12/matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/)[Long Walk Home](http://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)
 
-[https://videopress.com/embed/Z7igU6U2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Z7igU6U2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Z7igU6U2](https://videopress.com/embed/Z7igU6U2)
 
-[https://videopress.com/embed/Wqc8dty3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Wqc8dty3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Wqc8dty3](https://videopress.com/embed/Wqc8dty3)
 
-[https://videopress.com/embed/Wixpk3N7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Wixpk3N7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Wixpk3N7](https://videopress.com/embed/Wixpk3N7)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

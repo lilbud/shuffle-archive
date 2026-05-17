@@ -11,7 +11,7 @@ Anyway, the quality winner from last year was Renato Tammi, whose cover of "" is
 
 [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)*Nebraska* *Born in the U.S.A*,
 
-[https://www.youtube.com/embed/rLWOfmO9O1o?feature=oembed](https://www.youtube.com/embed/rLWOfmO9O1o?feature=oembed)
+[https://www.youtube.com/embed/rLWOfmO9O1o](https://www.youtube.com/embed/rLWOfmO9O1o)
 
 I would have featured Renato's cover long ago if the list of "Dancing in the Dark" covers on my to-blog list weren't so darn long.
 
@@ -23,7 +23,7 @@ Renato's latest cover is a deep cut from : Bruce's haunting morality struggle, "
 
 [](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad*[Straight Time](https://estreetshuffle.com/index.php/2022/12/05/roll-of-the-dice-straight-time/)
 
-[https://www.youtube.com/embed/uwp4Dkv1BB4?feature=oembed](https://www.youtube.com/embed/uwp4Dkv1BB4?feature=oembed)
+[https://www.youtube.com/embed/uwp4Dkv1BB4](https://www.youtube.com/embed/uwp4Dkv1BB4)
 
 Interested in entering this year's Cover Me contest? Check out the full rules and regulations .
 

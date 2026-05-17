@@ -5,9 +5,9 @@ Bruce and the E Street Band play at Avery Fisher Hall in New York City, and the 
 
 **1974:** [She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
 
-[https://www.youtube.com/embed/BZsFbz-kUoc?feature=oembed](https://www.youtube.com/embed/BZsFbz-kUoc?feature=oembed)
+[https://www.youtube.com/embed/BZsFbz-kUoc](https://www.youtube.com/embed/BZsFbz-kUoc)
 
-[https://www.youtube.com/embed/mpmNyGS33b4?feature=oembed](https://www.youtube.com/embed/mpmNyGS33b4?feature=oembed)
+[https://www.youtube.com/embed/mpmNyGS33b4](https://www.youtube.com/embed/mpmNyGS33b4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1974-10-04-291x300.jpg?resize=758%2C783)
 
@@ -15,9 +15,9 @@ Bruce cancels a sold-out show at the University of Maryland when he learns that 
 
 **1975:** *Born to Run*[Ain't Too Proud to Beg.](http://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)
 
-[https://www.youtube.com/embed/lwV9dJ2yJMs?feature=oembed](https://www.youtube.com/embed/lwV9dJ2yJMs?feature=oembed)
+[https://www.youtube.com/embed/lwV9dJ2yJMs](https://www.youtube.com/embed/lwV9dJ2yJMs)
 
-[https://www.youtube.com/embed/MciTJUnsVIg?feature=oembed](https://www.youtube.com/embed/MciTJUnsVIg?feature=oembed)
+[https://www.youtube.com/embed/MciTJUnsVIg](https://www.youtube.com/embed/MciTJUnsVIg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1975-10-04a.jpg?resize=758%2C1421&amp;ssl=1)
 
@@ -33,7 +33,7 @@ The River Tour gets rolling on Night Two, moving on to Cincinnati's Riverfront C
 
 **1980:** [The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)[Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)
 
-[https://videopress.com/embed/WUK4QUvA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/WUK4QUvA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/WUK4QUvA](https://videopress.com/embed/WUK4QUvA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1980-10-04a-239x300.jpg?resize=758%2C952)
 
@@ -45,7 +45,7 @@ Bruce speaks and performs acoustically at the dedication ceremony for a Boston b
 
 **2002:**<br>
 
-[https://videopress.com/embed/0Qzz0jXM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0Qzz0jXM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0Qzz0jXM](https://videopress.com/embed/0Qzz0jXM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2002-10-04a-250x300.jpg?resize=758%2C910)
 
@@ -55,7 +55,7 @@ That night, Bruce plays the Fleet Center, dedicating "" to Zakim and closing the
 
 [My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)[Dirty Water,](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)
 
-[https://videopress.com/embed/nYd5pwJC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nYd5pwJC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/nYd5pwJC](https://videopress.com/embed/nYd5pwJC)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2002-10-04c-74x300.jpg?resize=758%2C3073)
 
@@ -65,9 +65,9 @@ The Rising Show reaches its end with a third and final show at Shea Stadium, and
 
 **2003:** [Code of Silence](http://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)[Blood Brothers](http://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)[I Wish I Were Blind](https://estreetshuffle.com/index.php/2021/10/17/roll-of-the-dice-i-wish-i-were-blind/)[Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)[Light of Day](http://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)[Highway 61 Revisited](http://estreetshuffle.com/index.php/2018/11/07/meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/)[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)
 
-[https://www.youtube.com/embed/sooYpK4s9HI?feature=oembed](https://www.youtube.com/embed/sooYpK4s9HI?feature=oembed)
+[https://www.youtube.com/embed/sooYpK4s9HI](https://www.youtube.com/embed/sooYpK4s9HI)
 
-[https://videopress.com/embed/LcWFqpQB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/LcWFqpQB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/LcWFqpQB](https://videopress.com/embed/LcWFqpQB)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDGReH4uBsQlMqHrgMDe05t](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDGReH4uBsQlMqHrgMDe05t)
 
@@ -77,9 +77,9 @@ Bruce kicks off the final leg of his solo acoustic Devils & Dust Tour with a Red
 
 **2005:** [Idiot's Delight](https://estreetshuffle.com/index.php/2021/03/12/rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/)[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)[Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)[The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)
 
-[https://videopress.com/embed/VQcKUaZE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VQcKUaZE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VQcKUaZE](https://videopress.com/embed/VQcKUaZE)
 
-[https://videopress.com/embed/t9q10p9z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/t9q10p9z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/t9q10p9z](https://videopress.com/embed/t9q10p9z)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-10-04-300x249.jpg?resize=758%2C629)
 
@@ -87,11 +87,11 @@ Bruce tour premieres "" in a brand new arrangement at his Seeger Sessions show i
 
 **2006:** [Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)
 
-[https://www.youtube.com/embed/CN8CQNt46vc?feature=oembed](https://www.youtube.com/embed/CN8CQNt46vc?feature=oembed)
+[https://www.youtube.com/embed/CN8CQNt46vc](https://www.youtube.com/embed/CN8CQNt46vc)
 
-[https://www.youtube.com/embed/XSWz7vSO62U?feature=oembed](https://www.youtube.com/embed/XSWz7vSO62U?feature=oembed)
+[https://www.youtube.com/embed/XSWz7vSO62U](https://www.youtube.com/embed/XSWz7vSO62U)
 
-[https://www.youtube.com/embed/rvxYiudnnKk?feature=oembed](https://www.youtube.com/embed/rvxYiudnnKk?feature=oembed)
+[https://www.youtube.com/embed/rvxYiudnnKk](https://www.youtube.com/embed/rvxYiudnnKk)
 
 [https://www.youtube.com/embed/y2JOWKSyUA4?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;start=2342&amp;wmode=transparent](https://www.youtube.com/embed/y2JOWKSyUA4?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;start=2342&amp;wmode=transparent)
 
@@ -101,11 +101,11 @@ Bruce kicks off a solo mini-tour in support of presidential candidate Barack Oba
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/xFnCc20E87g?feature=oembed](https://www.youtube.com/embed/xFnCc20E87g?feature=oembed)
+[https://www.youtube.com/embed/xFnCc20E87g](https://www.youtube.com/embed/xFnCc20E87g)
 
-[https://www.youtube.com/embed/0RQC8482gxI?feature=oembed](https://www.youtube.com/embed/0RQC8482gxI?feature=oembed)
+[https://www.youtube.com/embed/0RQC8482gxI](https://www.youtube.com/embed/0RQC8482gxI)
 
-[https://www.youtube.com/embed/KksSao637Cg?feature=oembed](https://www.youtube.com/embed/KksSao637Cg?feature=oembed)
+[https://www.youtube.com/embed/KksSao637Cg](https://www.youtube.com/embed/KksSao637Cg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2008-10-04a-300x127.jpg?resize=758%2C321)
 
@@ -119,7 +119,7 @@ Bruce appears at Powell's City of Books in Portland, Oregon, promoting his new b
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/MgBsRyBfk2k?feature=oembed](https://www.youtube.com/embed/MgBsRyBfk2k?feature=oembed)
+[https://www.youtube.com/embed/MgBsRyBfk2k](https://www.youtube.com/embed/MgBsRyBfk2k)
 
 Previews continue for at the Walter Kerr Theater in New York City.
 

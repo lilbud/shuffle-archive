@@ -7,7 +7,7 @@ Whether tackling guitar hero challenges like "" and "" or covering the Indian-in
 
 Released in 1965, "See My Friends" by The Kinks was one of the first songs to introduce the Indian raga sound to rock music, using an electric guitar drone to approximate a sitar to pretty decent effect.
 
-[https://www.youtube.com/embed/ZMtDYAJ2UtU?feature=oembed](https://www.youtube.com/embed/ZMtDYAJ2UtU?feature=oembed)
+[https://www.youtube.com/embed/ZMtDYAJ2UtU](https://www.youtube.com/embed/ZMtDYAJ2UtU)
 
 To a young band in the mid-1960s, it must have sounded completely and fascinatingly new.
 
@@ -15,7 +15,7 @@ By 1967, The Castiles were including it in their sets. We know of only one perfo
 
 Take a listen to their performance and you'll see what I mean.
 
-[https://www.youtube.com/embed/M-y9W65eLXA?feature=oembed](https://www.youtube.com/embed/M-y9W65eLXA?feature=oembed)
+[https://www.youtube.com/embed/M-y9W65eLXA](https://www.youtube.com/embed/M-y9W65eLXA)
 
 Bruce's guitar couldn't quite synthesize the sitar effect; the vocals are muddy even with the recording quality taken into account; and the mid-song instrumental break loses all coherence.
 

@@ -23,7 +23,7 @@ At the first of two River Tour nights at the Richfield Coliseum, Bruce and the E
 
 **1980:**[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)
 
-[https://www.youtube.com/embed/Zv_GJ52eQf0?feature=oembed](https://www.youtube.com/embed/Zv_GJ52eQf0?feature=oembed)
+[https://www.youtube.com/embed/Zv_GJ52eQf0](https://www.youtube.com/embed/Zv_GJ52eQf0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/The_Plain_Dealer_1980_10_08_75.jpg?resize=758%2C551&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/The_Akron_Beacon_Journal_1980_10_07_Page_19.jpg?w=758&amp;ssl=1)
 
@@ -31,7 +31,7 @@ Bruce and his new touring band play a show at Sacramento's Arco Arena on World T
 
 **1992:**<br>
 
-[https://videopress.com/embed/wNaquumN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wNaquumN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wNaquumN](https://videopress.com/embed/wNaquumN)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1992-10-06a-300x110.jpg?resize=758%2C278)
 
@@ -45,13 +45,13 @@ As the first American leg of the Rising Tour starts to wind down, Bruce starts p
 
 **2002:**[Does This Bus Stop at 82nd Street](http://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
 
-[https://videopress.com/embed/ElTp7Vvc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ElTp7Vvc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ElTp7Vvc](https://videopress.com/embed/ElTp7Vvc)
 
-[https://www.youtube.com/embed/wic_mm_K9EQ?feature=oembed](https://www.youtube.com/embed/wic_mm_K9EQ?feature=oembed)
+[https://www.youtube.com/embed/wic_mm_K9EQ](https://www.youtube.com/embed/wic_mm_K9EQ)
 
-[https://www.youtube.com/embed/7DoXu2W4hm8?feature=oembed](https://www.youtube.com/embed/7DoXu2W4hm8?feature=oembed)
+[https://www.youtube.com/embed/7DoXu2W4hm8](https://www.youtube.com/embed/7DoXu2W4hm8)
 
-[https://www.youtube.com/embed/cCbnRRn84QQ?feature=oembed](https://www.youtube.com/embed/cCbnRRn84QQ?feature=oembed)
+[https://www.youtube.com/embed/cCbnRRn84QQ](https://www.youtube.com/embed/cCbnRRn84QQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2002-10-06a-300x166.jpg?resize=758%2C420)
 
@@ -61,7 +61,7 @@ Bruce must have his father on his mind, as he plays "," "" and the tour premiere
 
 **2005:** [My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)
 
-[https://videopress.com/embed/JgQkSLq4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JgQkSLq4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/JgQkSLq4](https://videopress.com/embed/JgQkSLq4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2005-10-06.jpg?resize=652%2C3762&amp;ssl=1)
 
@@ -69,27 +69,27 @@ It may be early in the Magic Tour, but Philadelphia still gets its special show 
 
 **2007:** [Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Cadillac Ranch](http://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[Town Called Heartbreak](http://estreetshuffle.com/index.php/2020/08/09/matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/)
 
-[https://www.youtube.com/embed/8WuOoMztbz4?feature=oembed](https://www.youtube.com/embed/8WuOoMztbz4?feature=oembed)
+[https://www.youtube.com/embed/8WuOoMztbz4](https://www.youtube.com/embed/8WuOoMztbz4)
 
-[https://www.youtube.com/embed/Ai0N7XbamLw?feature=oembed](https://www.youtube.com/embed/Ai0N7XbamLw?feature=oembed)
+[https://www.youtube.com/embed/Ai0N7XbamLw](https://www.youtube.com/embed/Ai0N7XbamLw)
 
-[https://www.youtube.com/embed/3QFpXgCG2XE?feature=oembed](https://www.youtube.com/embed/3QFpXgCG2XE?feature=oembed)
+[https://www.youtube.com/embed/3QFpXgCG2XE](https://www.youtube.com/embed/3QFpXgCG2XE)
 
-[https://www.youtube.com/embed/no0fJTRuBbg?feature=oembed](https://www.youtube.com/embed/no0fJTRuBbg?feature=oembed)
+[https://www.youtube.com/embed/no0fJTRuBbg](https://www.youtube.com/embed/no0fJTRuBbg)
 
-[https://videopress.com/embed/KbnAzPjC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KbnAzPjC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/KbnAzPjC](https://videopress.com/embed/KbnAzPjC)
 
 Bruce travels to Ypsilanti, Michigan to join presidential candidate Barack Obama at a campaign rally.
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/g3TcRbsm5xc?feature=oembed](https://www.youtube.com/embed/g3TcRbsm5xc?feature=oembed)
+[https://www.youtube.com/embed/g3TcRbsm5xc](https://www.youtube.com/embed/g3TcRbsm5xc)
 
-[https://www.youtube.com/embed/sqISKZbV9FU?feature=oembed](https://www.youtube.com/embed/sqISKZbV9FU?feature=oembed)
+[https://www.youtube.com/embed/sqISKZbV9FU](https://www.youtube.com/embed/sqISKZbV9FU)
 
-[https://www.youtube.com/embed/uLOWFeC9puc?feature=oembed](https://www.youtube.com/embed/uLOWFeC9puc?feature=oembed)
+[https://www.youtube.com/embed/uLOWFeC9puc](https://www.youtube.com/embed/uLOWFeC9puc)
 
-[https://www.youtube.com/embed/0j60L7ZsFLs?feature=oembed](https://www.youtube.com/embed/0j60L7ZsFLs?feature=oembed)
+[https://www.youtube.com/embed/0j60L7ZsFLs](https://www.youtube.com/embed/0j60L7ZsFLs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2008-10-06.jpg?resize=758%2C899&amp;ssl=1)
 

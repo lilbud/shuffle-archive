@@ -17,7 +17,7 @@ Bruce releases "," his latest single from the box set collection.
 
 **1987:** [Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)*Live 1975-85*
 
-[https://www.youtube.com/embed/grhe4slilF8?feature=oembed](https://www.youtube.com/embed/grhe4slilF8?feature=oembed)
+[https://www.youtube.com/embed/grhe4slilF8](https://www.youtube.com/embed/grhe4slilF8)
 
 On the first day of the new millennium, host Casey Kasem recounts the most memorable hits and events in rock and roll history, including Bruce Springsteen's ""
 

@@ -11,17 +11,17 @@ At his home studio in Holmdel, Bruce and the E Street Band rehearse "Restless Ni
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/KsosBOD17_0?feature=oembed](https://www.youtube.com/embed/KsosBOD17_0?feature=oembed)
+[https://www.youtube.com/embed/KsosBOD17_0](https://www.youtube.com/embed/KsosBOD17_0)
 
 Bruce releases Arthur Baker's 12-inch "Freedom Mix" of ""
 
 **1985:** [Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
-[https://www.youtube.com/embed/DsNQb0KO5Zo?feature=oembed](https://www.youtube.com/embed/DsNQb0KO5Zo?feature=oembed)
+[https://www.youtube.com/embed/DsNQb0KO5Zo](https://www.youtube.com/embed/DsNQb0KO5Zo)
 
 That night, the Born in the U.S.A. Tour stops in Louisville at Freedom Hall.
 
-[https://videopress.com/embed/MzSZ6D7E?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MzSZ6D7E?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/MzSZ6D7E](https://videopress.com/embed/MzSZ6D7E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1985-01-10b.png?resize=758%2C642&amp;ssl=1)
 
@@ -29,7 +29,7 @@ Bruce records "" at his home studio in Rumson.
 
 **1987:** [When You Need Me](https://estreetshuffle.com/index.php/2020/01/30/roll-of-the-dice-when-you-need-me/)
 
-[https://www.youtube.com/embed/mimaPIQVUjI?feature=oembed](https://www.youtube.com/embed/mimaPIQVUjI?feature=oembed)
+[https://www.youtube.com/embed/mimaPIQVUjI](https://www.youtube.com/embed/mimaPIQVUjI)
 
 Bruce debuts a new song, "," at the first of two nights at the Fox Theater in Detroit. Suffice it to say it's not among the deeper songs in Bruce's catalog. Check out the world premiere of this still unreleased song below. Bruce tour premieres "" tonight as well.
 
@@ -59,4 +59,4 @@ Bruce visits the set of , filming today in downtown Freehold. After filming wrap
 
 **2025:** *Deliver Me From Nowhere*
 
-[https://www.youtube.com/embed/mr0wFBWDKx0?feature=oembed](https://www.youtube.com/embed/mr0wFBWDKx0?feature=oembed)
+[https://www.youtube.com/embed/mr0wFBWDKx0](https://www.youtube.com/embed/mr0wFBWDKx0)

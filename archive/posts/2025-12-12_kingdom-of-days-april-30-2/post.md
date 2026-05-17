@@ -17,7 +17,7 @@ MTV premieres a new documentary, .
 
 **1988:** *Inside the Tunnel of Love*
 
-[https://videopress.com/embed/pXf5J7uB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pXf5J7uB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/pXf5J7uB](https://videopress.com/embed/pXf5J7uB)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-30.jpg?resize=758%2C413&amp;ssl=1)
 
@@ -41,9 +41,9 @@ Bruce brings his solo acoustic tour to Strasbourg, France.
 
 **2000:**<br>
 
-[https://www.youtube.com/embed/z22ca5w4cdU?feature=oembed](https://www.youtube.com/embed/z22ca5w4cdU?feature=oembed)
+[https://www.youtube.com/embed/z22ca5w4cdU](https://www.youtube.com/embed/z22ca5w4cdU)
 
-[https://www.youtube.com/embed/YQfHdjKujP4?feature=oembed](https://www.youtube.com/embed/YQfHdjKujP4?feature=oembed)
+[https://www.youtube.com/embed/YQfHdjKujP4](https://www.youtube.com/embed/YQfHdjKujP4)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAcxJ3pnXVufsDoJGZGVmm1](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAcxJ3pnXVufsDoJGZGVmm1)
 
@@ -57,11 +57,11 @@ Nils Lofgren makes a guest appearance on a gorgeous "This Hard Land" at Bruce's 
 
 **2005:**<br>
 
-[https://videopress.com/embed/Io7Odebr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Io7Odebr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Io7Odebr](https://videopress.com/embed/Io7Odebr)
 
-[https://videopress.com/embed/iXCqUPGO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iXCqUPGO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/iXCqUPGO](https://videopress.com/embed/iXCqUPGO)
 
-[https://videopress.com/embed/MsLsmces?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MsLsmces?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/MsLsmces](https://videopress.com/embed/MsLsmces)
 
 In the aftermath of Hurricane Katrina, Bruce and the Sessions Band kick off their tour with an emotional, legendary show at New Orleans Jazz Fest. This show is available as part of Bruce's official archive series.
 
@@ -75,7 +75,7 @@ Bruce opens with a rare "Loose Ends" when the Magic Tour stops for a night at th
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/TaVWfsMuO18?feature=oembed](https://www.youtube.com/embed/TaVWfsMuO18?feature=oembed)
+[https://www.youtube.com/embed/TaVWfsMuO18](https://www.youtube.com/embed/TaVWfsMuO18)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Daily_Progress_Thu__May_1__2008_.jpg?resize=758%2C699&amp;ssl=1)
 
@@ -83,13 +83,13 @@ Night Two in Oslo starts off strong with the tour premiere of "Leap of Faith."
 
 **2013:**<br>
 
-[https://www.youtube.com/embed/6aX28r8nxzc?feature=oembed](https://www.youtube.com/embed/6aX28r8nxzc?feature=oembed)
+[https://www.youtube.com/embed/6aX28r8nxzc](https://www.youtube.com/embed/6aX28r8nxzc)
 
-[https://www.youtube.com/embed/jmm4AL0gLnA?feature=oembed](https://www.youtube.com/embed/jmm4AL0gLnA?feature=oembed)
+[https://www.youtube.com/embed/jmm4AL0gLnA](https://www.youtube.com/embed/jmm4AL0gLnA)
 
-[https://www.youtube.com/embed/lHZCGII66hM?feature=oembed](https://www.youtube.com/embed/lHZCGII66hM?feature=oembed)
+[https://www.youtube.com/embed/lHZCGII66hM](https://www.youtube.com/embed/lHZCGII66hM)
 
-[https://www.youtube.com/embed/U7tAOJ-da-U?feature=oembed](https://www.youtube.com/embed/U7tAOJ-da-U?feature=oembed)
+[https://www.youtube.com/embed/U7tAOJ-da-U](https://www.youtube.com/embed/U7tAOJ-da-U)
 
 Bruce and the E Street Band attend the funeral of Lenore Travis, wife of concert producer and long-time friend George Travis. Bruce, Nils and Patti perform "I Wanna Marry You" and "If I Should Fall Behind."
 
@@ -101,6 +101,6 @@ Night Two of the European leg of Bruce's 2023 World Tour kicks off with the tour
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/4XOvr5Ro2xk?feature=oembed](https://www.youtube.com/embed/4XOvr5Ro2xk?feature=oembed)
+[https://www.youtube.com/embed/4XOvr5Ro2xk](https://www.youtube.com/embed/4XOvr5Ro2xk)
 
-[https://www.youtube.com/embed/YMW9SeQTfE0?feature=oembed](https://www.youtube.com/embed/YMW9SeQTfE0?feature=oembed)
+[https://www.youtube.com/embed/YMW9SeQTfE0](https://www.youtube.com/embed/YMW9SeQTfE0)

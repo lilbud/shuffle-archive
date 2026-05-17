@@ -5,13 +5,13 @@ At 914 Sound Studios in Blauvelt, New York, Bruce completes "," "," "," and ""
 
 **1972:** [It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[The Angel.](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)
 
-[https://www.youtube.com/embed/B2Rju9FVE2M?feature=oembed](https://www.youtube.com/embed/B2Rju9FVE2M?feature=oembed)
+[https://www.youtube.com/embed/B2Rju9FVE2M](https://www.youtube.com/embed/B2Rju9FVE2M)
 
-[https://www.youtube.com/embed/hFEeqfqoTSY?feature=oembed](https://www.youtube.com/embed/hFEeqfqoTSY?feature=oembed)
+[https://www.youtube.com/embed/hFEeqfqoTSY](https://www.youtube.com/embed/hFEeqfqoTSY)
 
-[https://www.youtube.com/embed/rdP3y4k2KKU?feature=oembed](https://www.youtube.com/embed/rdP3y4k2KKU?feature=oembed)
+[https://www.youtube.com/embed/rdP3y4k2KKU](https://www.youtube.com/embed/rdP3y4k2KKU)
 
-[https://www.youtube.com/embed/s-pdQKRQ_qY?feature=oembed](https://www.youtube.com/embed/s-pdQKRQ_qY?feature=oembed)
+[https://www.youtube.com/embed/s-pdQKRQ_qY](https://www.youtube.com/embed/s-pdQKRQ_qY)
 
 Bruce and the as-yet-unnamed E Street Band headline a show for Hobart & William Smith College at the Geneva Theater in Geneva, New York.
 
@@ -23,7 +23,7 @@ Bruce and the E Street Band play a gig at the Julia Sanderson Theater in Springf
 
 **1974:**<br>
 
-[https://www.youtube.com/embed/tBn8f0qhBkE?feature=oembed](https://www.youtube.com/embed/tBn8f0qhBkE?feature=oembed)
+[https://www.youtube.com/embed/tBn8f0qhBkE](https://www.youtube.com/embed/tBn8f0qhBkE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/10/Valley_Advocate_Amherst_1974_10_30_page_14.jpg?resize=758%2C761&amp;ssl=1)
 
@@ -47,11 +47,11 @@ Bruce and the E Street Band rehearse for the upcoming and final leg of the Darkn
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/4-llKqR-wgE?feature=oembed](https://www.youtube.com/embed/4-llKqR-wgE?feature=oembed)
+[https://www.youtube.com/embed/4-llKqR-wgE](https://www.youtube.com/embed/4-llKqR-wgE)
 
-[https://www.youtube.com/embed/MRjeKjvQK2Q?feature=oembed](https://www.youtube.com/embed/MRjeKjvQK2Q?feature=oembed)
+[https://www.youtube.com/embed/MRjeKjvQK2Q](https://www.youtube.com/embed/MRjeKjvQK2Q)
 
-[https://www.youtube.com/embed/xcIMAzYLWME?feature=oembed](https://www.youtube.com/embed/xcIMAzYLWME?feature=oembed)
+[https://www.youtube.com/embed/xcIMAzYLWME](https://www.youtube.com/embed/xcIMAzYLWME)
 
 At The Hit Factory in New York City, Bruce records "Shut Down" and "100 Miles From Jackson." Neither have ever been released.
 
@@ -67,19 +67,19 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 [California Sun](http://estreetshuffle.com/index.php/2020/06/10/cover-me-california-sun/)[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
-[https://www.youtube.com/embed/CijvNHFY058?feature=oembed](https://www.youtube.com/embed/CijvNHFY058?feature=oembed)
+[https://www.youtube.com/embed/CijvNHFY058](https://www.youtube.com/embed/CijvNHFY058)
 
 Bruce and his new band bring World Tour 1992 to the McNichols Sports Arena in Denver.
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/oDCcsSc9BTc?feature=oembed](https://www.youtube.com/embed/oDCcsSc9BTc?feature=oembed)
+[https://www.youtube.com/embed/oDCcsSc9BTc](https://www.youtube.com/embed/oDCcsSc9BTc)
 
 Bruce plays a solo acoustic benefit show for the John Steinbeck Research Center at San Jose State University, featuring an extensive Steinbeck reading before "" Steinbeck's widow Elaine presents Bruce with a signed copy of .
 
 **1996:** [Across the Border.](http://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)*The Grapes of Wrath*
 
-[https://www.youtube.com/embed/sCBAPAwx1eo?feature=oembed](https://www.youtube.com/embed/sCBAPAwx1eo?feature=oembed)
+[https://www.youtube.com/embed/sCBAPAwx1eo](https://www.youtube.com/embed/sCBAPAwx1eo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-26a-239x300.png?resize=758%2C951)
 
@@ -91,7 +91,7 @@ Bruce and the reunited E Street Band play their second of three shows at the Oak
 
 **1999:**<br>
 
-[https://videopress.com/embed/3YHZqkbJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3YHZqkbJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/3YHZqkbJ](https://videopress.com/embed/3YHZqkbJ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Record_Searchlight_1999_10_28_38-scaled.jpg?resize=758%2C387&amp;ssl=1)
 
@@ -125,10 +125,10 @@ Promotional appearances for continue: Bruce is today's guest on , and .
 
 **2020:**[](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)*Letter to You**Conan O'Brien Needs a Friend**T**he Daily Show With Trevor Noah*, *Triple M*<https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3>
 
-[https://www.youtube.com/embed/QZuBEO-ilg4?feature=oembed](https://www.youtube.com/embed/QZuBEO-ilg4?feature=oembed)
+[https://www.youtube.com/embed/QZuBEO-ilg4](https://www.youtube.com/embed/QZuBEO-ilg4)
 
-[https://www.youtube.com/embed/9M1_aZ-qp9w?feature=oembed](https://www.youtube.com/embed/9M1_aZ-qp9w?feature=oembed)
+[https://www.youtube.com/embed/9M1_aZ-qp9w](https://www.youtube.com/embed/9M1_aZ-qp9w)
 
-[https://www.youtube.com/embed/a6guQyabaJI?feature=oembed](https://www.youtube.com/embed/a6guQyabaJI?feature=oembed)
+[https://www.youtube.com/embed/a6guQyabaJI](https://www.youtube.com/embed/a6guQyabaJI)
 
-[https://www.youtube.com/embed/KOmdSb-sB8U?feature=oembed](https://www.youtube.com/embed/KOmdSb-sB8U?feature=oembed)
+[https://www.youtube.com/embed/KOmdSb-sB8U](https://www.youtube.com/embed/KOmdSb-sB8U)

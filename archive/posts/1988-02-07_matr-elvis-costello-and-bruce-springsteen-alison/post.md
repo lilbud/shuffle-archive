@@ -12,7 +12,7 @@ The run culminated in a star-studded final show that featured appearances by Bru
 
 Elvis only joined Bruce for two brief numbers, one of which was a cover. The other one, however, was "Alison," and Costello's lovely acoustic rendition–with Bruce on backing vocals–was one of the highlights of the night.
 
-[https://videopress.com/embed/yWeJgOPo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yWeJgOPo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/yWeJgOPo](https://videopress.com/embed/yWeJgOPo)
 
 (Apologies for the abrupt ending; Elvis segued into "The Tracks of My Tears" from there.)
 

@@ -5,7 +5,7 @@ Brian Wilson wrote "Surfin' U.S.A." (the lyrics at least–the melody was lifted
 
 [Sweet Little Sixteen](http://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)
 
-[https://www.youtube.com/embed/EDb303T-B1w?feature=oembed](https://www.youtube.com/embed/EDb303T-B1w?feature=oembed)
+[https://www.youtube.com/embed/EDb303T-B1w](https://www.youtube.com/embed/EDb303T-B1w)
 
 Released as both a single and the title track from their 1963 album, "Surfin' U.S.A." rocketed up the charts. It peaked at #3 but had such staying power that Billboard ranked it #1 for the entire year. Curiously, though, its radio popularity didn't translate to record sales; "Surfin' U.S.A." has never been awarded gold record status.
 
@@ -21,7 +21,7 @@ At the end of "Barbara Ann," Brian beckoned Bruce front and center, and Bruce ob
 
 Check out that performance below–"Surfin' U.S.A." starts around the one-minute mark.
 
-[https://www.youtube.com/embed/cFUsZHWVB1M?feature=oembed](https://www.youtube.com/embed/cFUsZHWVB1M?feature=oembed)
+[https://www.youtube.com/embed/cFUsZHWVB1M](https://www.youtube.com/embed/cFUsZHWVB1M)
 
 July 1, 2015 (Holmdel, NJ)
 July 1, 2015 (Holmdel, NJ)

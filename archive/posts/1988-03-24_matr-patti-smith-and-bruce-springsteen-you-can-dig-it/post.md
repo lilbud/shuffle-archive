@@ -10,7 +10,7 @@ Take a listen to both performances below, and for more Bruce and Patti from this
 
 [https://www.youtube.com/embed/NVv9bjYr6eo?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/NVv9bjYr6eo?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-[https://videopress.com/embed/xcYOkknQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xcYOkknQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xcYOkknQ](https://videopress.com/embed/xcYOkknQ)
 
 **You Can Dig It**<br>
 **First performed:** November 26, 1976 (New York City, NY)<br>

@@ -33,15 +33,15 @@ Bruce and the E Street Band play their second of two nights at the Rosemont Hori
 
 **1988:** [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
 
-[https://videopress.com/embed/iEJOIMJg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iEJOIMJg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/iEJOIMJg](https://videopress.com/embed/iEJOIMJg)
 
 On a night off from his solo tour, Bruce joins Joe Ely on stage at The Mean Fiddler in Dublin for three songs during the main set; he returns for two more in the encore. Listen to both appearances below.
 
 **1996:**<br>
 
-[https://videopress.com/embed/rys9ZuBP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/rys9ZuBP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/rys9ZuBP](https://videopress.com/embed/rys9ZuBP)
 
-[https://www.youtube.com/embed/m6cZU3iSdzY?feature=oembed](https://www.youtube.com/embed/m6cZU3iSdzY?feature=oembed)
+[https://www.youtube.com/embed/m6cZU3iSdzY](https://www.youtube.com/embed/m6cZU3iSdzY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1996-0317-300x201.jpg?resize=758%2C509)
 
@@ -51,7 +51,7 @@ a Pete Seeger tribute album, is released, featuring Bruce's cover of "," the ver
 
 **1998:** *Where Have All the Flowers Gone*, [We Shall Overcome](http://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)
 
-[https://www.youtube.com/embed/026oa4oMG5k?feature=oembed](https://www.youtube.com/embed/026oa4oMG5k?feature=oembed)
+[https://www.youtube.com/embed/026oa4oMG5k](https://www.youtube.com/embed/026oa4oMG5k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1998-03-17.png?resize=758%2C376&amp;ssl=1)
 
@@ -59,7 +59,7 @@ Richard Davis, bassist on the studio recording of "," guest-stars when Bruce and
 
 **2008:** [Meeting Across the River](http://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)
 
-[https://www.youtube.com/embed/2gnWNO0l-y4?feature=oembed](https://www.youtube.com/embed/2gnWNO0l-y4?feature=oembed)
+[https://www.youtube.com/embed/2gnWNO0l-y4](https://www.youtube.com/embed/2gnWNO0l-y4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2008-03-17.jpg?resize=497%2C1343&amp;ssl=1)
 
@@ -77,11 +77,11 @@ At Night Two (of three) at the Los Angeles Sports Arena, Bruce tour premieres ""
 
 **2016:** [Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)[American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)[report](http://estreetshuffle.com/index.php/2018/03/17/where-the-band-was-los-angeles-march-17-2016/)*Where the Band Was*
 
-[https://videopress.com/embed/vlByZSBh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vlByZSBh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/vlByZSBh](https://videopress.com/embed/vlByZSBh)
 
-[https://www.youtube.com/embed/SjhzlnVOKp8?feature=oembed](https://www.youtube.com/embed/SjhzlnVOKp8?feature=oembed)
+[https://www.youtube.com/embed/SjhzlnVOKp8](https://www.youtube.com/embed/SjhzlnVOKp8)
 
-[https://www.youtube.com/embed/TcFpvn7M0iM?feature=oembed](https://www.youtube.com/embed/TcFpvn7M0iM?feature=oembed)
+[https://www.youtube.com/embed/TcFpvn7M0iM](https://www.youtube.com/embed/TcFpvn7M0iM)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

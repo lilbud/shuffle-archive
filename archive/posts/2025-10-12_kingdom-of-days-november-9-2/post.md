@@ -27,7 +27,7 @@ The River Tour stops at the University of Texas in Austin, where Bruce plays an 
 
 **1980:**[The Price You Pay](http://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)[Waltz Across Texas](http://estreetshuffle.com/index.php/2020/07/14/cover-me-waltz-across-texas/)
 
-[https://www.youtube.com/embed/ztmhczTvKDQ?feature=oembed](https://www.youtube.com/embed/ztmhczTvKDQ?feature=oembed)
+[https://www.youtube.com/embed/ztmhczTvKDQ](https://www.youtube.com/embed/ztmhczTvKDQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/47458526171_9a81e03089_o-300x120.jpg?resize=758%2C303)
 
@@ -39,15 +39,15 @@ Bruce brings World Tour 1992 to the Nassau Coliseum in Uniondale for a two-night
 
 **1992:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
-[https://videopress.com/embed/ba1yui05?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ba1yui05?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ba1yui05](https://videopress.com/embed/ba1yui05)
 
-[https://www.youtube.com/embed/xotKfW9e9TQ?feature=oembed](https://www.youtube.com/embed/xotKfW9e9TQ?feature=oembed)
+[https://www.youtube.com/embed/xotKfW9e9TQ](https://www.youtube.com/embed/xotKfW9e9TQ)
 
 Bruce and the E Street Band bring their Reunion Tour to the Bradley Center in Milwaukee.
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/WkqV0zVzpCo?feature=oembed](https://www.youtube.com/embed/WkqV0zVzpCo?feature=oembed)
+[https://www.youtube.com/embed/WkqV0zVzpCo](https://www.youtube.com/embed/WkqV0zVzpCo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-11-09a-184x300.png?resize=758%2C1236)
 
@@ -65,21 +65,21 @@ After the return of "" after almost a quarter-century the night before, how can 
 
 **2005:** [Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)[Santa Ana](http://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)[Used Cars](http://estreetshuffle.com/index.php/2019/06/13/roll-of-the-dice-used-cars/)[Independence Day.](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)
 
-[https://www.youtube.com/embed/weWzFj8sPBQ?feature=oembed](https://www.youtube.com/embed/weWzFj8sPBQ?feature=oembed)
+[https://www.youtube.com/embed/weWzFj8sPBQ](https://www.youtube.com/embed/weWzFj8sPBQ)
 
-[https://www.youtube.com/embed/6F33TWZJ5Ic?feature=oembed](https://www.youtube.com/embed/6F33TWZJ5Ic?feature=oembed)
+[https://www.youtube.com/embed/6F33TWZJ5Ic](https://www.youtube.com/embed/6F33TWZJ5Ic)
 
-[https://www.youtube.com/embed/6gxTIvYXMEU?feature=oembed](https://www.youtube.com/embed/6gxTIvYXMEU?feature=oembed)
+[https://www.youtube.com/embed/6gxTIvYXMEU](https://www.youtube.com/embed/6gxTIvYXMEU)
 
-[https://www.youtube.com/embed/quDkCHDvLLk?feature=oembed](https://www.youtube.com/embed/quDkCHDvLLk?feature=oembed)
+[https://www.youtube.com/embed/quDkCHDvLLk](https://www.youtube.com/embed/quDkCHDvLLk)
 
 Nils Lofgren makes a guest appearance during "" when Bruce brings the Seeger Sessions Tour to the NEC Arena in Birmingham, England. Nils is the last man standing (and singing, and playing) on stage after the band exits.
 
 **2006:** [Pay Me My Money Down](http://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)
 
-[https://www.youtube.com/embed/ZV8WxevPOaY?feature=oembed](https://www.youtube.com/embed/ZV8WxevPOaY?feature=oembed)
+[https://www.youtube.com/embed/ZV8WxevPOaY](https://www.youtube.com/embed/ZV8WxevPOaY)
 
-[https://www.youtube.com/embed/kdFhvzqPoRk?feature=oembed](https://www.youtube.com/embed/kdFhvzqPoRk?feature=oembed)
+[https://www.youtube.com/embed/kdFhvzqPoRk](https://www.youtube.com/embed/kdFhvzqPoRk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Daily_Telegraph_Sat__Nov_11__2006_.jpg?resize=758%2C752&amp;ssl=1)
 
@@ -87,23 +87,23 @@ Bruce supports the Joe Torre Safe at Home benefit at Pier 60 in New York City, p
 
 **2007:** [Yankees Win](http://estreetshuffle.com/index.php/2019/06/23/roll-of-the-dice-yankees-win/)*Moving Forward*
 
-[https://www.youtube.com/embed/YHbRQgcrVPc?feature=oembed](https://www.youtube.com/embed/YHbRQgcrVPc?feature=oembed)
+[https://www.youtube.com/embed/YHbRQgcrVPc](https://www.youtube.com/embed/YHbRQgcrVPc)
 
-[https://www.youtube.com/embed/ZBWUZpd_KRw?feature=oembed](https://www.youtube.com/embed/ZBWUZpd_KRw?feature=oembed)
+[https://www.youtube.com/embed/ZBWUZpd_KRw](https://www.youtube.com/embed/ZBWUZpd_KRw)
 
-[https://www.youtube.com/embed/o_nEBHOsqRI?feature=oembed](https://www.youtube.com/embed/o_nEBHOsqRI?feature=oembed)
+[https://www.youtube.com/embed/o_nEBHOsqRI](https://www.youtube.com/embed/o_nEBHOsqRI)
 
-[https://www.youtube.com/embed/Zkr7zNayA5o?feature=oembed](https://www.youtube.com/embed/Zkr7zNayA5o?feature=oembed)
+[https://www.youtube.com/embed/Zkr7zNayA5o](https://www.youtube.com/embed/Zkr7zNayA5o)
 
 Once again, Bruce makes an appearance at Stand Up for Heroes in its 5th annual edition. Tonight, Bruce performs "," "" and "" with the Max Weinberg Big Band (Mindi Abair joins Bruce for "Spirit"), and Bruce plays a solo acoustic "" as well. As has become a tradition, Bruce auctions off a guitar (plus his shirt and harmonica) for $160,000.
 
 **2011:** [Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)[Long Tall Sally,](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)[Spirit in the Night](http://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)[Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)
 
-[https://www.youtube.com/embed/LliLpmgnbyM?feature=oembed](https://www.youtube.com/embed/LliLpmgnbyM?feature=oembed)
+[https://www.youtube.com/embed/LliLpmgnbyM](https://www.youtube.com/embed/LliLpmgnbyM)
 
-[https://www.youtube.com/embed/CrC1hQHwOqc?feature=oembed](https://www.youtube.com/embed/CrC1hQHwOqc?feature=oembed)
+[https://www.youtube.com/embed/CrC1hQHwOqc](https://www.youtube.com/embed/CrC1hQHwOqc)
 
-[https://www.youtube.com/embed/oRyqrvuKzj8?feature=oembed](https://www.youtube.com/embed/oRyqrvuKzj8?feature=oembed)
+[https://www.youtube.com/embed/oRyqrvuKzj8](https://www.youtube.com/embed/oRyqrvuKzj8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2011-11-09-300x124.png?resize=758%2C313)
 
@@ -129,6 +129,6 @@ Bruce and the E Street Band continue their Canadian tour with a show at Canadian
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/KAHjGaCZzEM?feature=oembed](https://www.youtube.com/embed/KAHjGaCZzEM?feature=oembed)
+[https://www.youtube.com/embed/KAHjGaCZzEM](https://www.youtube.com/embed/KAHjGaCZzEM)
 
-[https://www.youtube.com/embed/7IwoCOQXe68?feature=oembed](https://www.youtube.com/embed/7IwoCOQXe68?feature=oembed)
+[https://www.youtube.com/embed/7IwoCOQXe68](https://www.youtube.com/embed/7IwoCOQXe68)

@@ -51,13 +51,13 @@ This year's holiday shows are at Harry's Roadhouse in Asbury Park, and although 
 
 **2004:** [The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)
 
-[https://videopress.com/embed/Q3QRdapp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Q3QRdapp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Q3QRdapp](https://videopress.com/embed/Q3QRdapp)
 
-[https://www.youtube.com/embed/xq68Mt4B3Bo?feature=oembed](https://www.youtube.com/embed/xq68Mt4B3Bo?feature=oembed)
+[https://www.youtube.com/embed/xq68Mt4B3Bo](https://www.youtube.com/embed/xq68Mt4B3Bo)
 
-[https://www.youtube.com/embed/SRSNPH7ZaT8?feature=oembed](https://www.youtube.com/embed/SRSNPH7ZaT8?feature=oembed)
+[https://www.youtube.com/embed/SRSNPH7ZaT8](https://www.youtube.com/embed/SRSNPH7ZaT8)
 
-[https://www.youtube.com/embed/xI_hMnTdEQ4?feature=oembed](https://www.youtube.com/embed/xI_hMnTdEQ4?feature=oembed)
+[https://www.youtube.com/embed/xI_hMnTdEQ4](https://www.youtube.com/embed/xI_hMnTdEQ4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2004-12-19a.png?resize=758%2C790&amp;ssl=1)
 
@@ -69,13 +69,13 @@ The first European leg of the Magic Tour wraps up in London at the O2 Arena.
 
 **2007:**<br>
 
-[https://www.youtube.com/embed/kLNytdIyfFg?feature=oembed](https://www.youtube.com/embed/kLNytdIyfFg?feature=oembed)
+[https://www.youtube.com/embed/kLNytdIyfFg](https://www.youtube.com/embed/kLNytdIyfFg)
 
-[https://www.youtube.com/embed/R_NS4krc6Ys?feature=oembed](https://www.youtube.com/embed/R_NS4krc6Ys?feature=oembed)
+[https://www.youtube.com/embed/R_NS4krc6Ys](https://www.youtube.com/embed/R_NS4krc6Ys)
 
-[https://www.youtube.com/embed/Mbm9I-FXaGo?feature=oembed](https://www.youtube.com/embed/Mbm9I-FXaGo?feature=oembed)
+[https://www.youtube.com/embed/Mbm9I-FXaGo](https://www.youtube.com/embed/Mbm9I-FXaGo)
 
-[https://www.youtube.com/embed/1FNZ72sLUNw?feature=oembed](https://www.youtube.com/embed/1FNZ72sLUNw?feature=oembed)
+[https://www.youtube.com/embed/1FNZ72sLUNw](https://www.youtube.com/embed/1FNZ72sLUNw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/The_Independent_Sat__Dec_22__2007_-scaled.jpg?resize=758%2C124&amp;ssl=1)
 
@@ -83,13 +83,13 @@ Bruce and the E Street Band perform on where Bruce debuts "." They also play ","
 
 **2015:** *Saturday Night Live*, [Meet Me in the City](https://estreetshuffle.com/index.php/2020/08/23/roll-of-the-dice-meet-me-in-the-city/)[The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)
 
-[https://www.youtube.com/embed/i86lXf1MDsY?feature=oembed](https://www.youtube.com/embed/i86lXf1MDsY?feature=oembed)
+[https://www.youtube.com/embed/i86lXf1MDsY](https://www.youtube.com/embed/i86lXf1MDsY)
 
-[https://www.youtube.com/embed/Ld1cXemQ3UQ?feature=oembed](https://www.youtube.com/embed/Ld1cXemQ3UQ?feature=oembed)
+[https://www.youtube.com/embed/Ld1cXemQ3UQ](https://www.youtube.com/embed/Ld1cXemQ3UQ)
 
-[https://www.youtube.com/embed/KHMIIKK8oMM?feature=oembed](https://www.youtube.com/embed/KHMIIKK8oMM?feature=oembed)
+[https://www.youtube.com/embed/KHMIIKK8oMM](https://www.youtube.com/embed/KHMIIKK8oMM)
 
-[https://videopress.com/embed/wgMv5f36?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wgMv5f36?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wgMv5f36](https://videopress.com/embed/wgMv5f36)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Meryl Streep and Jamie Foxx.
 
@@ -103,4 +103,4 @@ Bruce calls the E Street Radio studio to discuss his newly released streaming vi
 
 **2018:** *Springsteen on Broadway*
 
-[https://www.youtube.com/embed/DyNyLbQLPaY?feature=oembed](https://www.youtube.com/embed/DyNyLbQLPaY?feature=oembed)
+[https://www.youtube.com/embed/DyNyLbQLPaY](https://www.youtube.com/embed/DyNyLbQLPaY)

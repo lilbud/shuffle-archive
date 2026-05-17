@@ -35,7 +35,7 @@ Bruce and Bob Dylan make a guest appearance with Tom Petty and the Heartbreakers
 
 **1990:**<br>
 
-[https://www.youtube.com/embed/LG2mygv6WPs?feature=oembed](https://www.youtube.com/embed/LG2mygv6WPs?feature=oembed)
+[https://www.youtube.com/embed/LG2mygv6WPs](https://www.youtube.com/embed/LG2mygv6WPs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1990-03-01.jpg?resize=438%2C1314&amp;ssl=1)
 
@@ -43,21 +43,21 @@ At the Grammy Awards, Bruce appears with B.B. King, Bonnie Raitt, Steve Winwood 
 
 **1994:**<br>
 
-[https://www.youtube.com/embed/AjM2KHrNUxk?feature=oembed](https://www.youtube.com/embed/AjM2KHrNUxk?feature=oembed)
+[https://www.youtube.com/embed/AjM2KHrNUxk](https://www.youtube.com/embed/AjM2KHrNUxk)
 
 Bruce performs "" and wins Grammys for Best Rock Song, Best Male Rock Vocal Performance, Song of the Year, and Best Song Written Specifically for a Motion Picture or for Television. The only nomination for which he doesn't take home the award is for Record of the Year. Check out the footage of the awards, post-ceremony interviews and more below.
 
 **1995:**[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
-[https://videopress.com/embed/HclHJdZx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HclHJdZx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/HclHJdZx](https://videopress.com/embed/HclHJdZx)
 
-[https://www.youtube.com/embed/5_cloJH4slM?feature=oembed](https://www.youtube.com/embed/5_cloJH4slM?feature=oembed)
+[https://www.youtube.com/embed/5_cloJH4slM](https://www.youtube.com/embed/5_cloJH4slM)
 
-[https://www.youtube.com/embed/W5OExj0BakE?feature=oembed](https://www.youtube.com/embed/W5OExj0BakE?feature=oembed)
+[https://www.youtube.com/embed/W5OExj0BakE](https://www.youtube.com/embed/W5OExj0BakE)
 
-[https://videopress.com/embed/KNpyCgB4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KNpyCgB4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/KNpyCgB4](https://videopress.com/embed/KNpyCgB4)
 
-[https://www.youtube.com/embed/g8k45X2-0Wg?feature=oembed](https://www.youtube.com/embed/g8k45X2-0Wg?feature=oembed)
+[https://www.youtube.com/embed/g8k45X2-0Wg](https://www.youtube.com/embed/g8k45X2-0Wg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1995-03-01.png?resize=758%2C351&amp;ssl=1)
 
@@ -77,13 +77,13 @@ Bruce plays the first of two shows in Auckland, New Zealand. He opens with an ac
 
 **2014:**[Royals](https://estreetshuffle.com/index.php/2020/04/25/cover-me-royals/)[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)*Born in the U.S.A.* *For the Working Class Man*
 
-[https://www.youtube.com/embed/n7PagtsHHbs?feature=oembed](https://www.youtube.com/embed/n7PagtsHHbs?feature=oembed)
+[https://www.youtube.com/embed/n7PagtsHHbs](https://www.youtube.com/embed/n7PagtsHHbs)
 
-[https://videopress.com/embed/eYWAhM3R?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eYWAhM3R?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/eYWAhM3R](https://videopress.com/embed/eYWAhM3R)
 
-[https://www.youtube.com/embed/OBIAKHw5y4Q?feature=oembed](https://www.youtube.com/embed/OBIAKHw5y4Q?feature=oembed)
+[https://www.youtube.com/embed/OBIAKHw5y4Q](https://www.youtube.com/embed/OBIAKHw5y4Q)
 
-[https://www.youtube.com/embed/IdDmH_pbcHQ?feature=oembed](https://www.youtube.com/embed/IdDmH_pbcHQ?feature=oembed)
+[https://www.youtube.com/embed/IdDmH_pbcHQ](https://www.youtube.com/embed/IdDmH_pbcHQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/41634022365_69d16ee614_o-300x198.jpg?resize=758%2C500)
 

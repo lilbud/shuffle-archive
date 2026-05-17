@@ -25,13 +25,13 @@ Bruce and the E Street Band take the Born to Run Tour to C.W. Post College in Gr
 
 **1975:** [It's My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[here](https://live.brucespringsteen.net/live-music/0,28028/Bruce-Springsteen-mp3-flac-download-12-12-1975-Post-Dome-CW-Post-College-Greenvale-NY.html)
 
-[https://www.youtube.com/embed/fLI-vMZ4HEw?feature=oembed](https://www.youtube.com/embed/fLI-vMZ4HEw?feature=oembed)
+[https://www.youtube.com/embed/fLI-vMZ4HEw](https://www.youtube.com/embed/fLI-vMZ4HEw)
 
-[https://www.youtube.com/embed/fCAf-mWrpW8?feature=oembed](https://www.youtube.com/embed/fCAf-mWrpW8?feature=oembed)
+[https://www.youtube.com/embed/fCAf-mWrpW8](https://www.youtube.com/embed/fCAf-mWrpW8)
 
-[https://www.youtube.com/embed/351dEutLEDQ?feature=oembed](https://www.youtube.com/embed/351dEutLEDQ?feature=oembed)
+[https://www.youtube.com/embed/351dEutLEDQ](https://www.youtube.com/embed/351dEutLEDQ)
 
-[https://www.youtube.com/embed/m2SvNksQ-eQ?feature=oembed](https://www.youtube.com/embed/m2SvNksQ-eQ?feature=oembed)
+[https://www.youtube.com/embed/m2SvNksQ-eQ](https://www.youtube.com/embed/m2SvNksQ-eQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/Newsday_Suffolk_Edition__1975_12_15_87.jpg?w=758&amp;ssl=1)
 
@@ -43,7 +43,7 @@ is certified platinum by the Recording Industry Association of America. That eve
 
 **1980:***The River*
 
-[https://www.youtube.com/embed/5Br1-TK1B8Y?feature=oembed](https://www.youtube.com/embed/5Br1-TK1B8Y?feature=oembed)
+[https://www.youtube.com/embed/5Br1-TK1B8Y](https://www.youtube.com/embed/5Br1-TK1B8Y)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1980-12-12.png?resize=758%2C1763&amp;ssl=1)
 
@@ -51,7 +51,7 @@ Bruce brings his solo acoustic tour to the Beacon Theater in New York City for t
 
 **1995:**<br>
 
-[https://www.youtube.com/embed/zunmq9enbZs?feature=oembed](https://www.youtube.com/embed/zunmq9enbZs?feature=oembed)
+[https://www.youtube.com/embed/zunmq9enbZs](https://www.youtube.com/embed/zunmq9enbZs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-12-12.png?resize=758%2C561&amp;ssl=1)
 
@@ -59,7 +59,7 @@ Patti and Soozie make several guest appearances throughout Bruce's solo acoustic
 
 **1996:**<br>
 
-[https://videopress.com/embed/uosEtWY7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uosEtWY7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uosEtWY7](https://videopress.com/embed/uosEtWY7)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-12-12.png?resize=545%2C2973&amp;ssl=1)
 
@@ -67,9 +67,9 @@ Bruce closes the show at Bobby Bandiera's All-Star Holiday Concert at the Count 
 
 **2006:**<br>
 
-[https://videopress.com/embed/4ERUSA81?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4ERUSA81?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4ERUSA81](https://videopress.com/embed/4ERUSA81)
 
-[https://videopress.com/embed/Cu0TqnCR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Cu0TqnCR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Cu0TqnCR](https://videopress.com/embed/Cu0TqnCR)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3>
 
@@ -79,9 +79,9 @@ Bruce tour premieres "Because the Night" at his Magic Tour stop in Antwerp.
 
 **2007:**<br>
 
-[https://www.youtube.com/embed/0O-p-K2tO9k?feature=oembed](https://www.youtube.com/embed/0O-p-K2tO9k?feature=oembed)
+[https://www.youtube.com/embed/0O-p-K2tO9k](https://www.youtube.com/embed/0O-p-K2tO9k)
 
-[https://www.youtube.com/embed/eA3-z9SI0ec?feature=oembed](https://www.youtube.com/embed/eA3-z9SI0ec?feature=oembed)
+[https://www.youtube.com/embed/eA3-z9SI0ec](https://www.youtube.com/embed/eA3-z9SI0ec)
 
 Bruce takes his daughter Jessica and friends to the Z100 Jingle Ball at Madison Square Garden and meets Lady Gaga for the first time backstage.
 
@@ -91,13 +91,13 @@ Bruce and the E Street Band join a line-up of stellar talent at Madison Square G
 
 **2012:** [Who Says You Can't Go Home](https://estreetshuffle.com/index.php/2019/06/22/matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/)
 
-[https://www.youtube.com/embed/NQWFklgKA_E?feature=oembed](https://www.youtube.com/embed/NQWFklgKA_E?feature=oembed)
+[https://www.youtube.com/embed/NQWFklgKA_E](https://www.youtube.com/embed/NQWFklgKA_E)
 
-[https://www.youtube.com/embed/M1i5lyNLmNM?feature=oembed](https://www.youtube.com/embed/M1i5lyNLmNM?feature=oembed)
+[https://www.youtube.com/embed/M1i5lyNLmNM](https://www.youtube.com/embed/M1i5lyNLmNM)
 
-[https://www.youtube.com/embed/jAzczH-AwnM?feature=oembed](https://www.youtube.com/embed/jAzczH-AwnM?feature=oembed)
+[https://www.youtube.com/embed/jAzczH-AwnM](https://www.youtube.com/embed/jAzczH-AwnM)
 
-[https://www.youtube.com/embed/OgBVpttagJc?feature=oembed](https://www.youtube.com/embed/OgBVpttagJc?feature=oembed)
+[https://www.youtube.com/embed/OgBVpttagJc](https://www.youtube.com/embed/OgBVpttagJc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2012-12-12a.png?resize=758%2C1143&amp;ssl=1)
 
@@ -119,9 +119,9 @@ Still in the midst of the pandemic, Bruce and most of the E Street Band (minus G
 
 **2020:** [Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)*Saturday Night Live*
 
-[https://videopress.com/embed/2OZScE6v?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2OZScE6v?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2OZScE6v](https://videopress.com/embed/2OZScE6v)
 
-[https://videopress.com/embed/Ia5NayNl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ia5NayNl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Ia5NayNl](https://videopress.com/embed/Ia5NayNl)
 
 Bruce's scheduled show in San Francisco (already postponed once this year) is moved again to the following March due to his peptic ulcer disease.
 

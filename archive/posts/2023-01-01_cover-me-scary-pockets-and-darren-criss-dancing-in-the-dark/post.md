@@ -13,4 +13,4 @@ I know I've been going to the "Dancing in the Dark" well pretty often of late, b
 
 Oh, and wait for it…
 
-[https://www.youtube.com/embed/b5rySSphFO0?feature=oembed](https://www.youtube.com/embed/b5rySSphFO0?feature=oembed)
+[https://www.youtube.com/embed/b5rySSphFO0](https://www.youtube.com/embed/b5rySSphFO0)

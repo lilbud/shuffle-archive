@@ -3,9 +3,9 @@
 
 **1957***Springsteen on Broadway*
 
-[https://www.youtube.com/embed/54rUaRSGCCU?feature=oembed](https://www.youtube.com/embed/54rUaRSGCCU?feature=oembed)
+[https://www.youtube.com/embed/54rUaRSGCCU](https://www.youtube.com/embed/54rUaRSGCCU)
 
-[https://www.youtube.com/embed/CpKyFTYvhpU?feature=oembed](https://www.youtube.com/embed/CpKyFTYvhpU?feature=oembed)
+[https://www.youtube.com/embed/CpKyFTYvhpU](https://www.youtube.com/embed/CpKyFTYvhpU)
 
 Bruce play two shows at the legendary Main Point in Bryn Mawr, Pennsylvania, opening for Travis Shook and The Club Wow.
 
@@ -15,17 +15,17 @@ Bruce play two shows at the legendary Main Point in Bryn Mawr, Pennsylvania, ope
 
 **1974**<br>
 
-[https://www.youtube.com/embed/8xv3BmHjXww?feature=oembed](https://www.youtube.com/embed/8xv3BmHjXww?feature=oembed)
+[https://www.youtube.com/embed/8xv3BmHjXww](https://www.youtube.com/embed/8xv3BmHjXww)
 
-[https://www.youtube.com/embed/-hWXPCdQOvA?feature=oembed](https://www.youtube.com/embed/-hWXPCdQOvA?feature=oembed)
+[https://www.youtube.com/embed/-hWXPCdQOvA](https://www.youtube.com/embed/-hWXPCdQOvA)
 
-[https://www.youtube.com/embed/NOvFyNBkfhs?feature=oembed](https://www.youtube.com/embed/NOvFyNBkfhs?feature=oembed)
+[https://www.youtube.com/embed/NOvFyNBkfhs](https://www.youtube.com/embed/NOvFyNBkfhs)
 
 That afternoon, before the show, Bruce and the band rehearse "" with the intent for a full take to air on a local telethon. That rehearsal recording will surface decades later and can be found on the essential bootleg compilation.
 
 [Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)*Odds & Sods*
 
-[https://www.youtube.com/embed/5Cv4GcquJoY?feature=oembed](https://www.youtube.com/embed/5Cv4GcquJoY?feature=oembed)
+[https://www.youtube.com/embed/5Cv4GcquJoY](https://www.youtube.com/embed/5Cv4GcquJoY)
 
 A newly published telephone poll reveals that 27% of all American adults (+/- 3 points) consider themselves Springsteen fans, and 46% have a positive opinion about him.
 

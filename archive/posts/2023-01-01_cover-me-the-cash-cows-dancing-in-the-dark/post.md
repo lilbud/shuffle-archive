@@ -11,4 +11,4 @@ But does the world need a "Dancing in the Dark" cover propelled by upright bass 
 
 Yes. Yes, I think we do. Watch and enjoy–I won't tell if you can't resist dancing.
 
-[https://www.youtube.com/embed/z-Ed09PZl1c?feature=oembed](https://www.youtube.com/embed/z-Ed09PZl1c?feature=oembed)
+[https://www.youtube.com/embed/z-Ed09PZl1c](https://www.youtube.com/embed/z-Ed09PZl1c)

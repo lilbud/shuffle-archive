@@ -3,7 +3,7 @@ Bruce and the band eventually known as E Street open a six-night, two-shows-nigh
 
 **1973:**[Bishop Danced](https://estreetshuffle.com/index.php/2021/05/18/roll-of-the-dice-bishop-danced/)*Tracks*
 
-[https://www.youtube.com/embed/j3k_B-pvusI?feature=oembed](https://www.youtube.com/embed/j3k_B-pvusI?feature=oembed)
+[https://www.youtube.com/embed/j3k_B-pvusI](https://www.youtube.com/embed/j3k_B-pvusI)
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1B1rEajyYdvaWwLHODyBt1n](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1B1rEajyYdvaWwLHODyBt1n)
 
@@ -11,9 +11,9 @@ The late show was recorded, too–but only the first two songs have surfaced. Bu
 
 [Song for Orphans](http://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)
 
-[https://www.youtube.com/embed/L7_6l2W3ybo?feature=oembed](https://www.youtube.com/embed/L7_6l2W3ybo?feature=oembed)
+[https://www.youtube.com/embed/L7_6l2W3ybo](https://www.youtube.com/embed/L7_6l2W3ybo)
 
-[https://www.youtube.com/embed/voGU6hwjmiw?feature=oembed](https://www.youtube.com/embed/voGU6hwjmiw?feature=oembed)
+[https://www.youtube.com/embed/voGU6hwjmiw](https://www.youtube.com/embed/voGU6hwjmiw)
 
 Bruce and the band enjoy their second day off in the Twin Cities (except for Roy, who has an ear infection). Bruce spends the evening playing pool and pinball at a bar called Zoogies, where he catches a local band called The Suburbs.
 
@@ -23,7 +23,7 @@ is released on VHS, the first collection of Bruce's music videos.
 
 **1989:***Video Anthology 1978-88*
 
-[https://www.youtube.com/embed/pWQsmTe_DuU?feature=oembed](https://www.youtube.com/embed/pWQsmTe_DuU?feature=oembed)
+[https://www.youtube.com/embed/pWQsmTe_DuU](https://www.youtube.com/embed/pWQsmTe_DuU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1989-01-31a.png?resize=758%2C929&amp;ssl=1)
 
@@ -33,19 +33,19 @@ Bruce records "" at The Record Plant in Los Angeles.
 
 **1991:** [Loose Change](http://estreetshuffle.com/index.php/2019/11/24/roll-of-the-dice-loose-change/)
 
-[https://www.youtube.com/embed/a6-0mHMgnag?feature=oembed](https://www.youtube.com/embed/a6-0mHMgnag?feature=oembed)
+[https://www.youtube.com/embed/a6-0mHMgnag](https://www.youtube.com/embed/a6-0mHMgnag)
 
 Bruce plays his final of four solo acoustic shows in Tokyo. He won't perform in Japan again (at least to date).
 
 **1997:**<br>
 
-[https://videopress.com/embed/kHAishzR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kHAishzR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/kHAishzR](https://videopress.com/embed/kHAishzR)
 
 a special benefit concert for the Sergeant Patrick King Memorial Fund, gathers Bruce, Jon Bon Jovi, Little Steven, Southside Johnny, Max Weinberg, Bobby Bandiera and others at the Count Basie Theater in Red Bank, New Jersey. King was a police officer from Long Branch who was killed two months prior while on duty.
 
 **1998:** *Come Together*,
 
-[https://www.youtube.com/embed/cwoiZmmK1Ag?feature=oembed](https://www.youtube.com/embed/cwoiZmmK1Ag?feature=oembed)
+[https://www.youtube.com/embed/cwoiZmmK1Ag](https://www.youtube.com/embed/cwoiZmmK1Ag)
 
 [https://www.youtube.com/embed/BcYpR2hBYbg?list=PLnbVaK2f4ragU1imlJsn3u_BpNNLzfo7l](https://www.youtube.com/embed/BcYpR2hBYbg?list=PLnbVaK2f4ragU1imlJsn3u_BpNNLzfo7l)
 
@@ -65,13 +65,13 @@ The River Tour (2016 edition) makes a stop at the Prudential Center in Newark, w
 
 **2016:** [Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)[Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)
 
-[https://www.youtube.com/embed/SBz7CTnx6gw?feature=oembed](https://www.youtube.com/embed/SBz7CTnx6gw?feature=oembed)
+[https://www.youtube.com/embed/SBz7CTnx6gw](https://www.youtube.com/embed/SBz7CTnx6gw)
 
-[https://www.youtube.com/embed/6TlyZci9od0?feature=oembed](https://www.youtube.com/embed/6TlyZci9od0?feature=oembed)
+[https://www.youtube.com/embed/6TlyZci9od0](https://www.youtube.com/embed/6TlyZci9od0)
 
-[https://www.youtube.com/embed/UfyfbYLp64A?feature=oembed](https://www.youtube.com/embed/UfyfbYLp64A?feature=oembed)
+[https://www.youtube.com/embed/UfyfbYLp64A](https://www.youtube.com/embed/UfyfbYLp64A)
 
-[https://www.youtube.com/embed/Mhu4nDpcFfA?feature=oembed](https://www.youtube.com/embed/Mhu4nDpcFfA?feature=oembed)
+[https://www.youtube.com/embed/Mhu4nDpcFfA](https://www.youtube.com/embed/Mhu4nDpcFfA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2016-01-31a.png?resize=758%2C291&amp;ssl=1)
 
@@ -89,4 +89,4 @@ Adele Springsteen passes away at the age of 98 after a long battle with Alzheime
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/xcvUVQx1o3E?feature=oembed](https://www.youtube.com/embed/xcvUVQx1o3E?feature=oembed)
+[https://www.youtube.com/embed/xcvUVQx1o3E](https://www.youtube.com/embed/xcvUVQx1o3E)

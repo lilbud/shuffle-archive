@@ -9,4 +9,4 @@ Case in point: this lovely acoustic version of "" by Finnish duo The Lovematches
 
 Filmed in a beautiful location to frame their gorgeous harmonies, guitar, and accordion, this is a wonderful track for a quiet weekend morning.
 
-[https://www.youtube.com/embed/ol5SbwONwZE?feature=oembed](https://www.youtube.com/embed/ol5SbwONwZE?feature=oembed)
+[https://www.youtube.com/embed/ol5SbwONwZE](https://www.youtube.com/embed/ol5SbwONwZE)

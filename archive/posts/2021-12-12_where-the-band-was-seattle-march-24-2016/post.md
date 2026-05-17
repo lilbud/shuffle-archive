@@ -19,10 +19,10 @@ I had to do one more.
 
 Or maybe seven.
 
-[https://www.youtube.com/embed/xJPFIEwAhrs?feature=oembed](https://www.youtube.com/embed/xJPFIEwAhrs?feature=oembed)
+[https://www.youtube.com/embed/xJPFIEwAhrs](https://www.youtube.com/embed/xJPFIEwAhrs)
 
-[https://www.youtube.com/embed/YICpKuKKl34?feature=oembed](https://www.youtube.com/embed/YICpKuKKl34?feature=oembed)
+[https://www.youtube.com/embed/YICpKuKKl34](https://www.youtube.com/embed/YICpKuKKl34)
 
-[https://www.youtube.com/embed/rIq7IEarilU?feature=oembed](https://www.youtube.com/embed/rIq7IEarilU?feature=oembed)
+[https://www.youtube.com/embed/rIq7IEarilU](https://www.youtube.com/embed/rIq7IEarilU)
 
-[https://www.youtube.com/embed/TuyXZLdfSCQ?feature=oembed](https://www.youtube.com/embed/TuyXZLdfSCQ?feature=oembed)
+[https://www.youtube.com/embed/TuyXZLdfSCQ](https://www.youtube.com/embed/TuyXZLdfSCQ)

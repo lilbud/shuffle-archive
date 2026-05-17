@@ -11,7 +11,7 @@ Bruce and the boys play their fourth of six nights at the Palladium in New York 
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/tozpaAarzG0?feature=oembed](https://www.youtube.com/embed/tozpaAarzG0?feature=oembed)
+[https://www.youtube.com/embed/tozpaAarzG0](https://www.youtube.com/embed/tozpaAarzG0)
 
 At a recording session at the Record Plant in New York City, Bruce and the E Street Band work on "Come On (Let's Go Tonight)."
 
@@ -21,7 +21,7 @@ The final leg of the Darkness Tour picks up steam at the Capital Center in Largo
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/aRqLwWDKY9I?feature=oembed](https://www.youtube.com/embed/aRqLwWDKY9I?feature=oembed)
+[https://www.youtube.com/embed/aRqLwWDKY9I](https://www.youtube.com/embed/aRqLwWDKY9I)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Aegis_1978_11_02_17-scaled.jpg?resize=758%2C1413&amp;ssl=1)
 
@@ -29,9 +29,9 @@ Bruce and the E Street Band play their sixth of seven nights at the L.A. Memoria
 
 **1984:** [Johnny Bye-Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)
 
-[https://www.youtube.com/embed/u7W9ImOc2QI?feature=oembed](https://www.youtube.com/embed/u7W9ImOc2QI?feature=oembed)
+[https://www.youtube.com/embed/u7W9ImOc2QI](https://www.youtube.com/embed/u7W9ImOc2QI)
 
-[https://www.youtube.com/embed/ggFJmvA5EL8?feature=oembed](https://www.youtube.com/embed/ggFJmvA5EL8?feature=oembed)
+[https://www.youtube.com/embed/ggFJmvA5EL8](https://www.youtube.com/embed/ggFJmvA5EL8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-11-02a-245x300.png?resize=758%2C928)
 
@@ -41,15 +41,15 @@ Asked to contribute a song for an upcoming Pete Seeger tribute album, Bruce cont
 
 **1997:** [We Shall Overcome](http://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)[My Oklahoma Home](http://estreetshuffle.com/index.php/2020/03/04/cover-me-my-oklahoma-home/)[Jesse James](http://estreetshuffle.com/index.php/2019/07/10/roll-of-the-dice-cover-me-jesse-james/)[Hobo's Lullaby](http://estreetshuffle.com/?p=20113)
 
-[https://www.youtube.com/embed/ULYpA_Z4yx8?feature=oembed](https://www.youtube.com/embed/ULYpA_Z4yx8?feature=oembed)
+[https://www.youtube.com/embed/ULYpA_Z4yx8](https://www.youtube.com/embed/ULYpA_Z4yx8)
 
-[https://www.youtube.com/embed/FbiiRUSdUyg?feature=oembed](https://www.youtube.com/embed/FbiiRUSdUyg?feature=oembed)
+[https://www.youtube.com/embed/FbiiRUSdUyg](https://www.youtube.com/embed/FbiiRUSdUyg)
 
 Bruce makes his by now expected appearance at the third annual Light of Day benefit at Tradewinds in Sea Bright, once again joining Joe Grushecky and The Houserockers for an hour of their set. Garland Jeffreys and Bob Benjamin join in the fun, as does Gary U.S. Bonds, who plays a set of his own later that night. Around midnight, Bruce returned to the stage with Bonds to play "" and "."
 
 **2002:** [Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)
 
-[https://videopress.com/embed/Y0ntYYJs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Y0ntYYJs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Y0ntYYJs](https://videopress.com/embed/Y0ntYYJs)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/11/2002-11-02-Bonds__Merged.mp3>
 
@@ -61,11 +61,11 @@ The Magic Tour treks east, stopping for a night at the Xcel Energy Center in St.
 
 **2007:**<br>
 
-[https://www.youtube.com/embed/P9G941oRZxY?feature=oembed](https://www.youtube.com/embed/P9G941oRZxY?feature=oembed)
+[https://www.youtube.com/embed/P9G941oRZxY](https://www.youtube.com/embed/P9G941oRZxY)
 
-[https://www.youtube.com/embed/fabcwzv0jhA?feature=oembed](https://www.youtube.com/embed/fabcwzv0jhA?feature=oembed)
+[https://www.youtube.com/embed/fabcwzv0jhA](https://www.youtube.com/embed/fabcwzv0jhA)
 
-[https://www.youtube.com/embed/RXf-FTdg7AE?feature=oembed](https://www.youtube.com/embed/RXf-FTdg7AE?feature=oembed)
+[https://www.youtube.com/embed/RXf-FTdg7AE](https://www.youtube.com/embed/RXf-FTdg7AE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/Star_Tribune_2007_11_03_B5.jpg?resize=758%2C2108&amp;ssl=1)
 
@@ -73,11 +73,11 @@ Bruce debuts a brand-new song, "," at a rally for U.S. presidential candidate Ba
 
 **2008:** [Working on a Dream](http://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)
 
-[https://www.youtube.com/embed/Y8GrRO6z7I0?feature=oembed](https://www.youtube.com/embed/Y8GrRO6z7I0?feature=oembed)
+[https://www.youtube.com/embed/Y8GrRO6z7I0](https://www.youtube.com/embed/Y8GrRO6z7I0)
 
-[https://www.youtube.com/embed/XfKF5i_h3eQ?feature=oembed](https://www.youtube.com/embed/XfKF5i_h3eQ?feature=oembed)
+[https://www.youtube.com/embed/XfKF5i_h3eQ](https://www.youtube.com/embed/XfKF5i_h3eQ)
 
-[https://www.youtube.com/embed/riB6-UsMidc?feature=oembed](https://www.youtube.com/embed/riB6-UsMidc?feature=oembed)
+[https://www.youtube.com/embed/riB6-UsMidc](https://www.youtube.com/embed/riB6-UsMidc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/11/The_Plain_Dealer_2008_11_03_4.jpg?resize=758%2C1470&amp;ssl=1)
 
@@ -85,15 +85,15 @@ It's the final outing for "" (for five years at least) and the tour premiere of 
 
 **2009:** [Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/)[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)*Born to Run* [Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)
 
-[https://www.youtube.com/embed/ugqNQGTnyEc?feature=oembed](https://www.youtube.com/embed/ugqNQGTnyEc?feature=oembed)
+[https://www.youtube.com/embed/ugqNQGTnyEc](https://www.youtube.com/embed/ugqNQGTnyEc)
 
 Bruce and the E Street Band headline a national telethon for Hurricane Sandy relief from Studio 6A at Rockefeller Center. They only perform "" (shortened at that), but Bruce also makes a guest appearance earlier in the night with Billy Joel, Steven Tyler, and Jimmy Fallon on ""
 
 **2012:** [Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)[Under the Boardwalk.](http://estreetshuffle.com/index.php/2018/05/04/meeting-across-the-river-bruce-springsteen-and-bobby-bandiera-under-the-boardwalk/)
 
-[https://www.youtube.com/embed/lPqDw4VtOJ4?feature=oembed](https://www.youtube.com/embed/lPqDw4VtOJ4?feature=oembed)
+[https://www.youtube.com/embed/lPqDw4VtOJ4](https://www.youtube.com/embed/lPqDw4VtOJ4)
 
-[https://www.youtube.com/embed/Ok1KxwaSfQc?feature=oembed](https://www.youtube.com/embed/Ok1KxwaSfQc?feature=oembed)
+[https://www.youtube.com/embed/Ok1KxwaSfQc](https://www.youtube.com/embed/Ok1KxwaSfQc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2012-11-02b-300x145.png?resize=758%2C367)
 
@@ -109,4 +109,4 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 
 **2018:** *Springsteen on Broadway* *Springsteen on Broadway*[Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)
 
-[https://www.youtube.com/embed/oPPeJgJAXqk?feature=oembed](https://www.youtube.com/embed/oPPeJgJAXqk?feature=oembed)
+[https://www.youtube.com/embed/oPPeJgJAXqk](https://www.youtube.com/embed/oPPeJgJAXqk)

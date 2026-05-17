@@ -17,7 +17,7 @@ Bruce tour premieres "" by request at his Darkness show in Pittsburgh. Elsewhere
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/RS2B.png?resize=758%2C1008&amp;ssl=1)
 
-[https://www.youtube.com/embed/2TlTowM3kkA?feature=oembed](https://www.youtube.com/embed/2TlTowM3kkA?feature=oembed)
+[https://www.youtube.com/embed/2TlTowM3kkA](https://www.youtube.com/embed/2TlTowM3kkA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1978-08-28-300x122.png?resize=758%2C308)
 
@@ -27,27 +27,27 @@ At the final show of a six-night River Tour stand at the Los Angeles Sports Aren
 
 **1981:** [Deportee (Plane Wreck at Los Gatos)](http://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://www.youtube.com/embed/WnXIhhkINpM?feature=oembed](https://www.youtube.com/embed/WnXIhhkINpM?feature=oembed)
+[https://www.youtube.com/embed/WnXIhhkINpM](https://www.youtube.com/embed/WnXIhhkINpM)
 
-[https://www.youtube.com/embed/Ay4AEpEynuc?feature=oembed](https://www.youtube.com/embed/Ay4AEpEynuc?feature=oembed)
+[https://www.youtube.com/embed/Ay4AEpEynuc](https://www.youtube.com/embed/Ay4AEpEynuc)
 
-[https://www.youtube.com/embed/PTekyM4SET8?feature=oembed](https://www.youtube.com/embed/PTekyM4SET8?feature=oembed)
+[https://www.youtube.com/embed/PTekyM4SET8](https://www.youtube.com/embed/PTekyM4SET8)
 
 At Night Three (of four) at Washington DC's Capital Center in the pre-teleprompter days of the Born in the U.S.A. Tour, Bruce tour premieres "" and forgets the lyrics to "," leading to a comically and painfully awkward pause in the proceedings.
 
 **1984:** [Wooly Bully](http://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)
 
-[https://www.youtube.com/embed/9Dt1W6kxZlo?feature=oembed](https://www.youtube.com/embed/9Dt1W6kxZlo?feature=oembed)
+[https://www.youtube.com/embed/9Dt1W6kxZlo](https://www.youtube.com/embed/9Dt1W6kxZlo)
 
 World Tour 1992 moves on to Philadelphia for the first of two shows at The Spectrum, where "" makes its full-band debut.
 
 **1992:** [Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)
 
-[https://www.youtube.com/embed/6dmP2rKyTo0?feature=oembed](https://www.youtube.com/embed/6dmP2rKyTo0?feature=oembed)
+[https://www.youtube.com/embed/6dmP2rKyTo0](https://www.youtube.com/embed/6dmP2rKyTo0)
 
-[https://www.youtube.com/embed/D123CSW-bTk?feature=oembed](https://www.youtube.com/embed/D123CSW-bTk?feature=oembed)
+[https://www.youtube.com/embed/D123CSW-bTk](https://www.youtube.com/embed/D123CSW-bTk)
 
-[https://www.youtube.com/embed/KXb1s92lNoY?feature=oembed](https://www.youtube.com/embed/KXb1s92lNoY?feature=oembed)
+[https://www.youtube.com/embed/KXb1s92lNoY](https://www.youtube.com/embed/KXb1s92lNoY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-28a-300x205.png?resize=758%2C518)
 
@@ -63,13 +63,13 @@ The Rising Tour stadium leg returns to Giants Stadium, where Bruce and the E Str
 
 **2003:** [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)
 
-[https://videopress.com/embed/dY427w6M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dY427w6M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/dY427w6M](https://videopress.com/embed/dY427w6M)
 
 Bruce releases the lead single for his upcoming album, "" and announces a tour in support of the album.
 
 **2007:** *Magic*[Radio Nowhere,](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)
 
-[https://www.youtube.com/embed/2f3XaoHqQuQ?feature=oembed](https://www.youtube.com/embed/2f3XaoHqQuQ?feature=oembed)
+[https://www.youtube.com/embed/2f3XaoHqQuQ](https://www.youtube.com/embed/2f3XaoHqQuQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2007-08-28-174x300.png?resize=758%2C1307)
 
@@ -77,15 +77,15 @@ Bruce's ten-show River Tour victory lap continues with a stop at the United Cent
 
 **2016:** [Jack of All Trades](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)[None But the Brave](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)
 
-[https://www.youtube.com/embed/Ninx4g1oiLI?feature=oembed](https://www.youtube.com/embed/Ninx4g1oiLI?feature=oembed)
+[https://www.youtube.com/embed/Ninx4g1oiLI](https://www.youtube.com/embed/Ninx4g1oiLI)
 
-[https://www.youtube.com/embed/MSvT_lFu53s?feature=oembed](https://www.youtube.com/embed/MSvT_lFu53s?feature=oembed)
+[https://www.youtube.com/embed/MSvT_lFu53s](https://www.youtube.com/embed/MSvT_lFu53s)
 
-[https://www.youtube.com/embed/s2oe-jypwXM?feature=oembed](https://www.youtube.com/embed/s2oe-jypwXM?feature=oembed)
+[https://www.youtube.com/embed/s2oe-jypwXM](https://www.youtube.com/embed/s2oe-jypwXM)
 
-[https://www.youtube.com/embed/-CrjxA_n-Xw?feature=oembed](https://www.youtube.com/embed/-CrjxA_n-Xw?feature=oembed)
+[https://www.youtube.com/embed/-CrjxA_n-Xw](https://www.youtube.com/embed/-CrjxA_n-Xw)
 
-[https://www.youtube.com/embed/3cEW15zaeb4?feature=oembed](https://www.youtube.com/embed/3cEW15zaeb4?feature=oembed)
+[https://www.youtube.com/embed/3cEW15zaeb4](https://www.youtube.com/embed/3cEW15zaeb4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2016-08-28a-244x300.png?resize=758%2C932)
 

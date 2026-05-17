@@ -27,37 +27,37 @@ Bruce and the E Street Band play their second of two Tunnel of Love Express show
 
 **1988:**<br>
 
-[https://videopress.com/embed/HHgVWkOa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HHgVWkOa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/HHgVWkOa](https://videopress.com/embed/HHgVWkOa)
 
-[https://videopress.com/embed/4VNnCD69?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4VNnCD69?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4VNnCD69](https://videopress.com/embed/4VNnCD69)
 
-[https://www.youtube.com/embed/9wopuObCeV0?feature=oembed](https://www.youtube.com/embed/9wopuObCeV0?feature=oembed)
+[https://www.youtube.com/embed/9wopuObCeV0](https://www.youtube.com/embed/9wopuObCeV0)
 
 The Garden State Film Festival premieres a biographical film about Clarence Clemons, at the Paramount Theater in Asbury Park. Meanwhile, Bruce joins local Asbury musicians (including Southside Johnny, Vini Lopez, Ed Manion, and more) at a panel and Nicky Addeo concert at the Wonder Bar. Watch the complete panel discussion below and concert highlights below.
 
 **2011:** *Who Do I Think I Am*,
 
-[https://www.youtube.com/embed/S_LsNVa_HZ8?feature=oembed](https://www.youtube.com/embed/S_LsNVa_HZ8?feature=oembed)
+[https://www.youtube.com/embed/S_LsNVa_HZ8](https://www.youtube.com/embed/S_LsNVa_HZ8)
 
-[https://www.youtube.com/embed/U1njfWNpzKY?feature=oembed](https://www.youtube.com/embed/U1njfWNpzKY?feature=oembed)
+[https://www.youtube.com/embed/U1njfWNpzKY](https://www.youtube.com/embed/U1njfWNpzKY)
 
-[https://www.youtube.com/embed/lwCNTWnLX00?feature=oembed](https://www.youtube.com/embed/lwCNTWnLX00?feature=oembed)
+[https://www.youtube.com/embed/lwCNTWnLX00](https://www.youtube.com/embed/lwCNTWnLX00)
 
-[https://www.youtube.com/embed/6--D9952Mag?feature=oembed](https://www.youtube.com/embed/6--D9952Mag?feature=oembed)
+[https://www.youtube.com/embed/6--D9952Mag](https://www.youtube.com/embed/6--D9952Mag)
 
-[https://www.youtube.com/embed/3D5qB2tELAU?feature=oembed](https://www.youtube.com/embed/3D5qB2tELAU?feature=oembed)
+[https://www.youtube.com/embed/3D5qB2tELAU](https://www.youtube.com/embed/3D5qB2tELAU)
 
-[https://www.youtube.com/embed/pWgGGe7ozuc?feature=oembed](https://www.youtube.com/embed/pWgGGe7ozuc?feature=oembed)
+[https://www.youtube.com/embed/pWgGGe7ozuc](https://www.youtube.com/embed/pWgGGe7ozuc)
 
-[https://www.youtube.com/embed/EQEdedi_BWc?feature=oembed](https://www.youtube.com/embed/EQEdedi_BWc?feature=oembed)
+[https://www.youtube.com/embed/EQEdedi_BWc](https://www.youtube.com/embed/EQEdedi_BWc)
 
-[https://www.youtube.com/embed/JfCV1lMKp8c?feature=oembed](https://www.youtube.com/embed/JfCV1lMKp8c?feature=oembed)
+[https://www.youtube.com/embed/JfCV1lMKp8c](https://www.youtube.com/embed/JfCV1lMKp8c)
 
-[https://www.youtube.com/embed/3mBASCpD06g?feature=oembed](https://www.youtube.com/embed/3mBASCpD06g?feature=oembed)
+[https://www.youtube.com/embed/3mBASCpD06g](https://www.youtube.com/embed/3mBASCpD06g)
 
-[https://www.youtube.com/embed/eKmbOZuR9NU?feature=oembed](https://www.youtube.com/embed/eKmbOZuR9NU?feature=oembed)
+[https://www.youtube.com/embed/eKmbOZuR9NU](https://www.youtube.com/embed/eKmbOZuR9NU)
 
-[https://www.youtube.com/embed/lDmD6K13Jdk?feature=oembed](https://www.youtube.com/embed/lDmD6K13Jdk?feature=oembed)
+[https://www.youtube.com/embed/lDmD6K13Jdk](https://www.youtube.com/embed/lDmD6K13Jdk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2011-04-02a.jpg?resize=758%2C1506&amp;ssl=1)
 

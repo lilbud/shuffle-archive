@@ -15,7 +15,7 @@ On stage, there were almost as many backup singers as musicians, and while you'r
 
 *Tapestry**Tapestry*
 
-[https://www.youtube.com/embed/WMGBcS0h-Ng?feature=oembed](https://www.youtube.com/embed/WMGBcS0h-Ng?feature=oembed)
+[https://www.youtube.com/embed/WMGBcS0h-Ng](https://www.youtube.com/embed/WMGBcS0h-Ng)
 
 May 15, 1971 (Union, NJ)
 January 17, 1990 (New York City, NY)

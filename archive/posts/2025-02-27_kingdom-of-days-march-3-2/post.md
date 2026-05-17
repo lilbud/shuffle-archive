@@ -13,19 +13,19 @@ Bruce and the band play two shows at Georgetown University in Washington, DC. Th
 
 **1974:** *Wild & Innocent*[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
-[https://www.youtube.com/embed/QKt4kLHbLHk?feature=oembed](https://www.youtube.com/embed/QKt4kLHbLHk?feature=oembed)
+[https://www.youtube.com/embed/QKt4kLHbLHk](https://www.youtube.com/embed/QKt4kLHbLHk)
 
 Bruce shoots the video for "" with director John Sayles in Hollywood.
 
 **1985:**[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
 
-[https://www.youtube.com/embed/lrpXArn3hII?feature=oembed](https://www.youtube.com/embed/lrpXArn3hII?feature=oembed)
+[https://www.youtube.com/embed/lrpXArn3hII](https://www.youtube.com/embed/lrpXArn3hII)
 
 : The Tunnel of Love Express Tour rolls on to the University of North Carolina in Chapel Hill for the first of two nights.
 
 **1988**<br>
 
-[https://videopress.com/embed/blKVO3cW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/blKVO3cW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/blKVO3cW](https://videopress.com/embed/blKVO3cW)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-03-03a-297x300.jpg?resize=758%2C763)
 
@@ -37,11 +37,11 @@ Bruce plays "" for the first time ever in Europe at a solo acoustic show at Edin
 
 **1996:** [The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)
 
-[https://videopress.com/embed/mAa91Y33?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mAa91Y33?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/mAa91Y33](https://videopress.com/embed/mAa91Y33)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDa-7AWBN4J-ncjJyFHwD9g](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDa-7AWBN4J-ncjJyFHwD9g)
 
-[https://www.youtube.com/embed/hHsmVtM9YBA?feature=oembed](https://www.youtube.com/embed/hHsmVtM9YBA?feature=oembed)
+[https://www.youtube.com/embed/hHsmVtM9YBA](https://www.youtube.com/embed/hHsmVtM9YBA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Airdrie_and_Coatbridge_Advertiser_1996_03_06_14.jpg?w=758&amp;ssl=1)
 
@@ -49,9 +49,9 @@ The Magic Tour comes to the Copps Coliseum in Hamilton, Ontario.
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/c8oJxq0rw0Q?feature=oembed](https://www.youtube.com/embed/c8oJxq0rw0Q?feature=oembed)
+[https://www.youtube.com/embed/c8oJxq0rw0Q](https://www.youtube.com/embed/c8oJxq0rw0Q)
 
-[https://www.youtube.com/embed/OFFoDKpDAlY?feature=oembed](https://www.youtube.com/embed/OFFoDKpDAlY?feature=oembed)
+[https://www.youtube.com/embed/OFFoDKpDAlY](https://www.youtube.com/embed/OFFoDKpDAlY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Hamilton_Spectator_Tue__Mar_4__2008_-scaled.jpg?resize=758%2C1448&amp;ssl=1)
 
@@ -59,17 +59,17 @@ The River Tour (2016 edition) moves on to Milwaukee and the BMO Harris Bradley C
 
 **2016:** *The Essential Bruce Springsteen*
 
-[https://www.youtube.com/embed/Bc-crXhNaJQ?feature=oembed](https://www.youtube.com/embed/Bc-crXhNaJQ?feature=oembed)
+[https://www.youtube.com/embed/Bc-crXhNaJQ](https://www.youtube.com/embed/Bc-crXhNaJQ)
 
-[https://www.youtube.com/embed/9rKxnkQWcck?feature=oembed](https://www.youtube.com/embed/9rKxnkQWcck?feature=oembed)
+[https://www.youtube.com/embed/9rKxnkQWcck](https://www.youtube.com/embed/9rKxnkQWcck)
 
-[https://www.youtube.com/embed/Z4Gh9fbT95I?feature=oembed](https://www.youtube.com/embed/Z4Gh9fbT95I?feature=oembed)
+[https://www.youtube.com/embed/Z4Gh9fbT95I](https://www.youtube.com/embed/Z4Gh9fbT95I)
 
-[https://www.youtube.com/embed/IjTbMqGZh8U?feature=oembed](https://www.youtube.com/embed/IjTbMqGZh8U?feature=oembed)
+[https://www.youtube.com/embed/IjTbMqGZh8U](https://www.youtube.com/embed/IjTbMqGZh8U)
 
-[https://www.youtube.com/embed/d1v6H1u4U8Q?feature=oembed](https://www.youtube.com/embed/d1v6H1u4U8Q?feature=oembed)
+[https://www.youtube.com/embed/d1v6H1u4U8Q](https://www.youtube.com/embed/d1v6H1u4U8Q)
 
-[https://www.youtube.com/embed/QZQ9sQT0Vmk?feature=oembed](https://www.youtube.com/embed/QZQ9sQT0Vmk?feature=oembed)
+[https://www.youtube.com/embed/QZQ9sQT0Vmk](https://www.youtube.com/embed/QZQ9sQT0Vmk)
 
 At tonight's performance of , Bruce discovers the one attendee who can electrify the crowd as much as the star of the show: former president Barack Obama. Dion DiMucci is in attendance as well.
 

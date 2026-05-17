@@ -19,7 +19,7 @@ The Lawsuit Tour is in full swing with a stop at the Fox Theater in St. Louis.
 
 **1977:**<br>
 
-[https://videopress.com/embed/yaloJxcB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yaloJxcB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/yaloJxcB](https://videopress.com/embed/yaloJxcB)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/46881393554_83cda3fa2c_o-218x300.jpg?resize=758%2C1043)
 
@@ -27,7 +27,7 @@ Bruce and the band bring the River Tour to the Coliseum in Greensboro, North Car
 
 **1981:**<br>
 
-[https://videopress.com/embed/Tcamyiqp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Tcamyiqp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Tcamyiqp](https://videopress.com/embed/Tcamyiqp)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Johnson_City_Press_Chronicle_Sat__Mar_7__1981_.jpg?resize=758%2C1060&amp;ssl=1)
 
@@ -43,13 +43,13 @@ MTV airs the results of Rolling Stone Magazine's Readers Poll for 1985. Bruce wi
 
 **1986:**<br>
 
-[https://www.youtube.com/embed/PHGJEwpSzNc?feature=oembed](https://www.youtube.com/embed/PHGJEwpSzNc?feature=oembed)
+[https://www.youtube.com/embed/PHGJEwpSzNc](https://www.youtube.com/embed/PHGJEwpSzNc)
 
 The opening stand of the Tunnel of Love Express Tour continues with the second of three shows at the Centrum in Worcester. Bruce is still a little rusty: he forgets the opening line to "Born to Run" (played acoustically on this tour) and has to restart it.
 
 **1988:**<br>
 
-[https://videopress.com/embed/VXq5DyXB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VXq5DyXB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VXq5DyXB](https://videopress.com/embed/VXq5DyXB)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-02-28a-300x300.jpg?resize=758%2C758)
 
@@ -71,7 +71,7 @@ Bruce's solo acoustic tour moves on to the Apollo Theater in Manchester, England
 
 **1996:**<br>
 
-[https://videopress.com/embed/fpaePJsI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fpaePJsI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fpaePJsI](https://videopress.com/embed/fpaePJsI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Manchester_Evening_News_Thu__Feb_29__1996_-scaled.jpg?resize=758%2C1094&amp;ssl=1)
 
@@ -79,7 +79,7 @@ The Reunion Tour resumes with a show at Penn State University, featuring the U.S
 
 **2000:** [Lion's Den](http://estreetshuffle.com/index.php/2019/06/21/roll-of-the-dice-lions-den/)
 
-[https://videopress.com/embed/YNMmA6Ua?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YNMmA6Ua?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/YNMmA6Ua](https://videopress.com/embed/YNMmA6Ua)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2000-02-28.png?resize=758%2C1184&amp;ssl=1)
 
@@ -87,7 +87,7 @@ The second leg of The Rising Tour kicks off at the Arena at Gwinnett Center in D
 
 **2003:***The Rising*
 
-[https://www.youtube.com/embed/Vpu4nE1BYrE?feature=oembed](https://www.youtube.com/embed/Vpu4nE1BYrE?feature=oembed)
+[https://www.youtube.com/embed/Vpu4nE1BYrE](https://www.youtube.com/embed/Vpu4nE1BYrE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2003-02-28a.jpg?resize=522%2C1161&amp;ssl=1)
 
@@ -103,17 +103,17 @@ The Magic Tour resumes at the Hartford Civic Center with the tour premiere of "S
 
 **2008:** [Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)[Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)
 
-[https://www.youtube.com/embed/Qau5lULCMgE?feature=oembed](https://www.youtube.com/embed/Qau5lULCMgE?feature=oembed)
+[https://www.youtube.com/embed/Qau5lULCMgE](https://www.youtube.com/embed/Qau5lULCMgE)
 
-[https://www.youtube.com/embed/ty3GubA_kGw?feature=oembed](https://www.youtube.com/embed/ty3GubA_kGw?feature=oembed)
+[https://www.youtube.com/embed/ty3GubA_kGw](https://www.youtube.com/embed/ty3GubA_kGw)
 
-[https://www.youtube.com/embed/oeyf-apBj6o?feature=oembed](https://www.youtube.com/embed/oeyf-apBj6o?feature=oembed)
+[https://www.youtube.com/embed/oeyf-apBj6o](https://www.youtube.com/embed/oeyf-apBj6o)
 
-[https://www.youtube.com/embed/qZe921L_sM8?feature=oembed](https://www.youtube.com/embed/qZe921L_sM8?feature=oembed)
+[https://www.youtube.com/embed/qZe921L_sM8](https://www.youtube.com/embed/qZe921L_sM8)
 
-[https://www.youtube.com/embed/WUSzBJQNKPE?feature=oembed](https://www.youtube.com/embed/WUSzBJQNKPE?feature=oembed)
+[https://www.youtube.com/embed/WUSzBJQNKPE](https://www.youtube.com/embed/WUSzBJQNKPE)
 
-[https://www.youtube.com/embed/db2VjMiKGJE?feature=oembed](https://www.youtube.com/embed/db2VjMiKGJE?feature=oembed)
+[https://www.youtube.com/embed/db2VjMiKGJE](https://www.youtube.com/embed/db2VjMiKGJE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2008-02-28-300x90.jpg?resize=758%2C227)
 

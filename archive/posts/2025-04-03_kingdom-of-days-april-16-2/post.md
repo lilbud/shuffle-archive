@@ -19,9 +19,9 @@ The River Tour continues its European leg with a show in Munich, where "" receiv
 
 **1981:** [The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)[here](https://estreetshuffle.com/index.php/2021/04/16/where-the-band-was-munich-april-16-1981-dans-story/)
 
-[https://videopress.com/embed/r86O6U5P?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/r86O6U5P?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/r86O6U5P](https://videopress.com/embed/r86O6U5P)
 
-[https://videopress.com/embed/IahVMWyt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IahVMWyt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/IahVMWyt](https://videopress.com/embed/IahVMWyt)
 
 Bruce joins Clarence Clemons and the Red Bank Rockers for "" at Big Man's West.
 
@@ -35,19 +35,19 @@ The final night of five in Tokyo on the Born in the U.S.A. Tour.
 
 **1985:**<br>
 
-[https://videopress.com/embed/IW12P88W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IW12P88W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/IW12P88W](https://videopress.com/embed/IW12P88W)
 
 At Night Two in Sheffield, Bruce honors a request and plays a one-off (for the tour) acoustic "." It's a lovely, unique arrangement and very worth a listen.
 
 **1993:** [Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
 
-[https://videopress.com/embed/uFt2pexl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uFt2pexl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uFt2pexl](https://videopress.com/embed/uFt2pexl)
 
 Bruce plays the first of two shows at Royal Albert Hall in London and premieres the dubious classic, "." This show was rescheduled from its original scheduled date in March.
 
 **1996:** [Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/)
 
-[https://videopress.com/embed/xlOP1Ixx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xlOP1Ixx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xlOP1Ixx](https://videopress.com/embed/xlOP1Ixx)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1996-04-16a-1.jpg?resize=758%2C906&amp;ssl=1)
 
@@ -63,19 +63,19 @@ At Night Two at the L.A. Sports Arena, Mike Ness guest stars on "" and "." Makin
 
 **2009:** [Bad Luck](https://estreetshuffle.com/index.php/2020/06/25/matr-bruce-springsteen-and-mike-ness-bad-luck/)[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)[Candy's Room,](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)[Adam Raised a Cain,](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
 
-[https://www.youtube.com/embed/NCHI_PBXRvk?feature=oembed](https://www.youtube.com/embed/NCHI_PBXRvk?feature=oembed)
+[https://www.youtube.com/embed/NCHI_PBXRvk](https://www.youtube.com/embed/NCHI_PBXRvk)
 
-[https://www.youtube.com/embed/_Ak-xNSsbzw?feature=oembed](https://www.youtube.com/embed/_Ak-xNSsbzw?feature=oembed)
+[https://www.youtube.com/embed/_Ak-xNSsbzw](https://www.youtube.com/embed/_Ak-xNSsbzw)
 
-[https://www.youtube.com/embed/x8RqRx7ftd0?feature=oembed](https://www.youtube.com/embed/x8RqRx7ftd0?feature=oembed)
+[https://www.youtube.com/embed/x8RqRx7ftd0](https://www.youtube.com/embed/x8RqRx7ftd0)
 
 Albany's Wrecking Ball show includes a rare, solo acoustic "" played by request, and the tour premieres of "" and "." Watch the entire show below.
 
 **2012:** [Janey, Don't You Lose Heart,](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)
 
-[https://videopress.com/embed/QeL22Nwg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QeL22Nwg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/QeL22Nwg](https://videopress.com/embed/QeL22Nwg)
 
-[https://videopress.com/embed/c0DmZePn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/c0DmZePn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/c0DmZePn](https://videopress.com/embed/c0DmZePn)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G1-scaled.jpg?resize=758%2C1666&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3.jpg?resize=758%2C1228&amp;ssl=1)
 

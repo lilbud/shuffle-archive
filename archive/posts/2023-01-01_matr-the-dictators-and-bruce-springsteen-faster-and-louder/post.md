@@ -15,6 +15,6 @@ So when it turned out the band was recording their third album in the same build
 
 Blink and you'll miss it, but at about the 2:10 mark, listen closely and you'll hear Bruce count the band back in for the final chorus.
 
-[https://www.youtube.com/embed/kMTAatF6FOI?feature=oembed](https://www.youtube.com/embed/kMTAatF6FOI?feature=oembed)
+[https://www.youtube.com/embed/kMTAatF6FOI](https://www.youtube.com/embed/kMTAatF6FOI)
 
 So yeah, it's fleeting, but it's a cool moment in the only collaboration between Bruce Springsteen and The Dictators.

@@ -25,17 +25,17 @@ Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena's 
 
 **1981:** [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)*Live 1975-85*
 
-[https://www.youtube.com/embed/GSPNMNO5Enc?feature=oembed](https://www.youtube.com/embed/GSPNMNO5Enc?feature=oembed)
+[https://www.youtube.com/embed/GSPNMNO5Enc](https://www.youtube.com/embed/GSPNMNO5Enc)
 
-[https://www.youtube.com/embed/hcZFiBWrK4c?feature=oembed](https://www.youtube.com/embed/hcZFiBWrK4c?feature=oembed)
+[https://www.youtube.com/embed/hcZFiBWrK4c](https://www.youtube.com/embed/hcZFiBWrK4c)
 
-[https://www.youtube.com/embed/dCILTxWFsow?feature=oembed](https://www.youtube.com/embed/dCILTxWFsow?feature=oembed)
+[https://www.youtube.com/embed/dCILTxWFsow](https://www.youtube.com/embed/dCILTxWFsow)
 
 Night Two in Cincinnati on the Born in the U.S.A. Tour. Listen in on the soundcheck below, including a never-played "The Good, The Bad, and The Ugly."
 
 **1984:**<br>
 
-[https://videopress.com/embed/mB3khd4m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mB3khd4m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/mB3khd4m](https://videopress.com/embed/mB3khd4m)
 
 Bruce and the E Street Band close out their Wembley Stadium stand with their third of three nights in London. Steve Van Zandt makes his third consecutive encore appearance. Also in attendance tonight: Phil Collins, Mark Knopfler, Roger Taylor, and John Entwhistle.
 
@@ -59,7 +59,7 @@ Bruce and his new touring band kick off a five-night stand at Wembley Arena in L
 
 **1992:** [With Every Wish.](http://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/)
 
-[https://videopress.com/embed/AzSUcXXM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AzSUcXXM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/AzSUcXXM](https://videopress.com/embed/AzSUcXXM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1992-0706-300x192.jpg?resize=758%2C485)
 
@@ -67,17 +67,17 @@ Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with 
 
 **2019:**[Dirty Rotten Shame](https://estreetshuffle.com/index.php/2021/08/05/matr-garry-tallent-and-bruce-springsteen-dirty-rotten-shame/)
 
-[https://www.youtube.com/embed/mO5tTJvyA30?feature=oembed](https://www.youtube.com/embed/mO5tTJvyA30?feature=oembed)
+[https://www.youtube.com/embed/mO5tTJvyA30](https://www.youtube.com/embed/mO5tTJvyA30)
 
-[https://www.youtube.com/embed/eu9j35DrYTo?feature=oembed](https://www.youtube.com/embed/eu9j35DrYTo?feature=oembed)
+[https://www.youtube.com/embed/eu9j35DrYTo](https://www.youtube.com/embed/eu9j35DrYTo)
 
-[https://www.youtube.com/embed/yLy4Df41z0k?feature=oembed](https://www.youtube.com/embed/yLy4Df41z0k?feature=oembed)
+[https://www.youtube.com/embed/yLy4Df41z0k](https://www.youtube.com/embed/yLy4Df41z0k)
 
-[https://www.youtube.com/embed/eZ2TOsR-imQ?feature=oembed](https://www.youtube.com/embed/eZ2TOsR-imQ?feature=oembed)
+[https://www.youtube.com/embed/eZ2TOsR-imQ](https://www.youtube.com/embed/eZ2TOsR-imQ)
 
-[https://www.youtube.com/embed/DpW738Y9FoE?feature=oembed](https://www.youtube.com/embed/DpW738Y9FoE?feature=oembed)
+[https://www.youtube.com/embed/DpW738Y9FoE](https://www.youtube.com/embed/DpW738Y9FoE)
 
-[https://www.youtube.com/embed/At_NGkleZUI?feature=oembed](https://www.youtube.com/embed/At_NGkleZUI?feature=oembed)
+[https://www.youtube.com/embed/At_NGkleZUI](https://www.youtube.com/embed/At_NGkleZUI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/2019-07-06a.jpg?resize=758%2C1143&amp;ssl=1)
 
@@ -91,6 +91,6 @@ Peter Gabriel, Billy Joel, and Jon Bon Jovi are among the fans in attendance at 
 
 **2023:** [here](https://live.brucespringsteen.net/live-music/0,31089/Bruce-Springsteen-mp3-flac-download-7-6-2023-BST-Hyde-Park-London-UK.html)
 
-[https://www.youtube.com/embed/qs_vbgeV2-Q?feature=oembed](https://www.youtube.com/embed/qs_vbgeV2-Q?feature=oembed)
+[https://www.youtube.com/embed/qs_vbgeV2-Q](https://www.youtube.com/embed/qs_vbgeV2-Q)
 
-[https://www.youtube.com/embed/PeAhFEkCGfA?feature=oembed](https://www.youtube.com/embed/PeAhFEkCGfA?feature=oembed)
+[https://www.youtube.com/embed/PeAhFEkCGfA](https://www.youtube.com/embed/PeAhFEkCGfA)

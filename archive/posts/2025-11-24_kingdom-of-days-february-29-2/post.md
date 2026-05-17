@@ -3,7 +3,7 @@ Bruce and the E Street Band wrap up their three-night opening stand for the Tunn
 
 **1988:** [Love Me Tender](http://estreetshuffle.com/index.php/2019/03/02/cover-me-love-me-tender/)
 
-[https://videopress.com/embed/n84nCVDi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/n84nCVDi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/n84nCVDi](https://videopress.com/embed/n84nCVDi)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-02-29-300x262.jpg?resize=758%2C662)
 
@@ -21,8 +21,8 @@ Bruce and the E Street Band bring the River Redux Tour to St. Paul.
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/Y45YyJYF30s?feature=oembed](https://www.youtube.com/embed/Y45YyJYF30s?feature=oembed)
+[https://www.youtube.com/embed/Y45YyJYF30s](https://www.youtube.com/embed/Y45YyJYF30s)
 
-[https://www.youtube.com/embed/GT37oE_GtAY?feature=oembed](https://www.youtube.com/embed/GT37oE_GtAY?feature=oembed)
+[https://www.youtube.com/embed/GT37oE_GtAY](https://www.youtube.com/embed/GT37oE_GtAY)
 
-[https://www.youtube.com/embed/InascGTbEac?feature=oembed](https://www.youtube.com/embed/InascGTbEac?feature=oembed)
+[https://www.youtube.com/embed/InascGTbEac](https://www.youtube.com/embed/InascGTbEac)

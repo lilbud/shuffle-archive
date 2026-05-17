@@ -7,17 +7,17 @@ Anywhere in the world, people can name that tune in just its opening three bass 
 
 So why the heck hasn't Bruce Springsteen–a famously avowed Motown fan–ever covered "My Girl" properly in concert?
 
-[https://www.youtube.com/embed/8Ff2Z0Dq2sg?feature=oembed](https://www.youtube.com/embed/8Ff2Z0Dq2sg?feature=oembed)
+[https://www.youtube.com/embed/8Ff2Z0Dq2sg](https://www.youtube.com/embed/8Ff2Z0Dq2sg)
 
 "My Girl" was the second number one hit for its songwriter, Smokey Robinson. (The first was the song he was answering: "My Guy," written for Mary Wells.)
 
-[https://www.youtube.com/embed/4WT7nBGX5eU?feature=oembed](https://www.youtube.com/embed/4WT7nBGX5eU?feature=oembed)
+[https://www.youtube.com/embed/4WT7nBGX5eU](https://www.youtube.com/embed/4WT7nBGX5eU)
 
 "My Guy" was the bigger hit of the pair, but "My Girl" is the more enduring. In 1998, it was inducted into the Grammy Hall of Fame. In 2017, the U.S. Library of Congress enshrined it in the National Recording Registry for its cultural, historical, and artistic significance.
 
 In 1989, The Temptations received their due honor when they were inducted into the Rock and Roll Hall of Fame. When the assembled luminaries gathered on stage for the now-customary all-star jam session, everyone wanted to get in on the "My Girl" action–including an unusually reserved Bruce Springsteen, who can be seen supplying rhythm guitar stage right.
 
-[https://www.youtube.com/embed/eQ6xLX6sFog?feature=oembed](https://www.youtube.com/embed/eQ6xLX6sFog?feature=oembed)
+[https://www.youtube.com/embed/eQ6xLX6sFog](https://www.youtube.com/embed/eQ6xLX6sFog)
 
 I suppose one could technically argue that was Bruce's first public performance of "My Girl," but it's pretty tough to pick out his contribution among the pantheon of rock royalty on stage.
 
@@ -31,7 +31,7 @@ Bruce's appearance was heavy on classic rock and roll covers, including a few on
 
 Bruce is clearly enjoying himself in that recording, so again we wonder: why haven't we seen him perform it on the E Street stage? Maybe it's because the last time he tried cozying up to Patti with it on stage… well, let's just say he didn't get the reaction he was hoping for.
 
-[https://videopress.com/embed/pxiim0oC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pxiim0oC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/pxiim0oC](https://videopress.com/embed/pxiim0oC)
 
 He never attempted it on stage again.
 

@@ -9,4 +9,4 @@ Here's their live version of Bruce's "" (with a bit of "Desire" thrown in–mayb
 
 [She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
 
-[https://www.youtube.com/embed/lhYIQg_GsEM?feature=oembed](https://www.youtube.com/embed/lhYIQg_GsEM?feature=oembed)
+[https://www.youtube.com/embed/lhYIQg_GsEM](https://www.youtube.com/embed/lhYIQg_GsEM)

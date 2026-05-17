@@ -3,7 +3,7 @@ If Bruce was only ever going to perform U2's "Where the Streets Have No Name" on
 
 After all, that's what made U2's original Grammy-winning video so memorable.
 
-[https://www.youtube.com/embed/GzZWSrr5wFI?feature=oembed](https://www.youtube.com/embed/GzZWSrr5wFI?feature=oembed)
+[https://www.youtube.com/embed/GzZWSrr5wFI](https://www.youtube.com/embed/GzZWSrr5wFI)
 
 That amazing video (staged as a tribute to The Beatles famous rooftop concert) was conceived and directed by Meiert Avis, who also directed some of Bruce's best videos ("," "," "," "," "Born to Run" (the acoustic version), "," and "").
 
@@ -21,7 +21,7 @@ Bruce and U2 performed two songs together: "" which they'd played together a cou
 
 [I Still Haven't Found What I'm Looking For,](http://estreetshuffle.com/index.php/2019/02/25/matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/)
 
-[https://www.youtube.com/embed/r4amdEdc76o?feature=oembed](https://www.youtube.com/embed/r4amdEdc76o?feature=oembed)
+[https://www.youtube.com/embed/r4amdEdc76o](https://www.youtube.com/embed/r4amdEdc76o)
 
 This time the band's performance of "Streets" went off without a hint of disruption, and the crowd-pleasing performance proved to be the highlight of an event full of them.
 

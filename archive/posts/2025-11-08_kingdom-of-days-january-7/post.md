@@ -7,7 +7,7 @@ Bruce and his band finish a four-night, two-shows-nightly stand opening for Trav
 
 **1985**<br>
 
-[https://videopress.com/embed/u6P0Qra6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u6P0Qra6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/u6P0Qra6](https://videopress.com/embed/u6P0Qra6)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Indianapolis_Star_1985_01_08_Page_14.jpg?resize=758%2C1554&amp;ssl=1)
 
@@ -19,13 +19,13 @@ Bruce plays an acoustic set at Salle Wilfrid-Pelletier in Montreal.
 
 **1996:**<br>
 
-[https://videopress.com/embed/BajA8CC1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BajA8CC1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/BajA8CC1](https://videopress.com/embed/BajA8CC1)
 
-[https://videopress.com/embed/pEU1H6gx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pEU1H6gx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/pEU1H6gx](https://videopress.com/embed/pEU1H6gx)
 
-[https://videopress.com/embed/LEvBa7FU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/LEvBa7FU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/LEvBa7FU](https://videopress.com/embed/LEvBa7FU)
 
-[https://videopress.com/embed/NDBz2bh5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NDBz2bh5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/NDBz2bh5](https://videopress.com/embed/NDBz2bh5)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1996-01-07.png?resize=758%2C1006&amp;ssl=1)
 
@@ -41,13 +41,13 @@ On Apple Music's show, host Tim McGraw interviews Bruce about his latest album, 
 
 **2021:** *Beyond the Influence Radio**Letter to You*
 
-[https://www.youtube.com/embed/7OMTyppnWLM?feature=oembed](https://www.youtube.com/embed/7OMTyppnWLM?feature=oembed)
+[https://www.youtube.com/embed/7OMTyppnWLM](https://www.youtube.com/embed/7OMTyppnWLM)
 
 The first of a series of scholarly symposiums is convened at Monmouth University to celebrate the golden anniversary of Panelists include Mike Appel, Vini Lopez, Garry Tallent, David Sancious, and more.
 
 **2023:** [Greetings From Asbury Park, N.J.](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1973-0105-album.jpg?w=500&ssl=1)
 
-[https://www.youtube.com/embed/eJ4BWxKjyqI?feature=oembed](https://www.youtube.com/embed/eJ4BWxKjyqI?feature=oembed)
+[https://www.youtube.com/embed/eJ4BWxKjyqI](https://www.youtube.com/embed/eJ4BWxKjyqI)
 
 Bruce and Patti attend the Golden Globe Awards in Beverly Hills, where he is nominated for (but doesn't win) the Best Original Song, Motion Picture award for "Addicted to Romance."
 

@@ -11,7 +11,7 @@ Steel Mill headlines a show at Virginia Commonwealth University in Richmond. Whe
 
 **1970:**<br>
 
-[https://www.youtube.com/embed/yTJtPogqgCc?feature=oembed](https://www.youtube.com/embed/yTJtPogqgCc?feature=oembed)
+[https://www.youtube.com/embed/yTJtPogqgCc](https://www.youtube.com/embed/yTJtPogqgCc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1970-0523-194x300.jpg?resize=731%2C1133)
 
@@ -23,9 +23,9 @@ The Darkness on the Edge of Town Tour begins at Shea's Buffalo Theater in Buffal
 
 **1978:** [Paradise by the ‘C'](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)[Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)
 
-[https://videopress.com/embed/IL3IeSg9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IL3IeSg9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/IL3IeSg9](https://videopress.com/embed/IL3IeSg9)
 
-[https://www.youtube.com/embed/uK3_QRYf9FU?feature=oembed](https://www.youtube.com/embed/uK3_QRYf9FU?feature=oembed)
+[https://www.youtube.com/embed/uK3_QRYf9FU](https://www.youtube.com/embed/uK3_QRYf9FU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-23-164x300.jpg?resize=758%2C1387)
 
@@ -39,7 +39,7 @@ Bruce and the E Street Band complete "" at recording sessions at The Hit Factory
 
 **1983:** [County Fair](https://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/)*Born in the U.S.A.*
 
-[https://www.youtube.com/embed/yltKgMyWLH0?feature=oembed](https://www.youtube.com/embed/yltKgMyWLH0?feature=oembed)
+[https://www.youtube.com/embed/yltKgMyWLH0](https://www.youtube.com/embed/yltKgMyWLH0)
 
 Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
 
@@ -49,15 +49,15 @@ The final night of the American leg of the Tunnel of Love Express Tour at Madiso
 
 **1988:** [here](http://live.brucespringsteen.net/live-music/0,20937/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-5-23-1988-Madison-Square-Garden-New-York-NY.html)
 
-[https://www.youtube.com/embed/SxbVieRyZYI?feature=oembed](https://www.youtube.com/embed/SxbVieRyZYI?feature=oembed)
+[https://www.youtube.com/embed/SxbVieRyZYI](https://www.youtube.com/embed/SxbVieRyZYI)
 
-[https://www.youtube.com/embed/WnRC2_Fjgu4?feature=oembed](https://www.youtube.com/embed/WnRC2_Fjgu4?feature=oembed)
+[https://www.youtube.com/embed/WnRC2_Fjgu4](https://www.youtube.com/embed/WnRC2_Fjgu4)
 
-[https://www.youtube.com/embed/moQnUqRDI_E?feature=oembed](https://www.youtube.com/embed/moQnUqRDI_E?feature=oembed)
+[https://www.youtube.com/embed/moQnUqRDI_E](https://www.youtube.com/embed/moQnUqRDI_E)
 
-[https://www.youtube.com/embed/-G-W1hOl2II?feature=oembed](https://www.youtube.com/embed/-G-W1hOl2II?feature=oembed)
+[https://www.youtube.com/embed/-G-W1hOl2II](https://www.youtube.com/embed/-G-W1hOl2II)
 
-[https://www.youtube.com/embed/3U1FlASDnaY?feature=oembed](https://www.youtube.com/embed/3U1FlASDnaY?feature=oembed)
+[https://www.youtube.com/embed/3U1FlASDnaY](https://www.youtube.com/embed/3U1FlASDnaY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1988-05-23.jpg?resize=758%2C351&amp;ssl=1)
 
@@ -69,37 +69,37 @@ Bruce and the E Street Band play their final show of a four-night Reunion stand 
 
 **1999:**<br>
 
-[https://videopress.com/embed/tfHxIasd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tfHxIasd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/tfHxIasd](https://videopress.com/embed/tfHxIasd)
 
 Night 2 of 3 at RDS Arena in Dublin on the final European leg of the Magic Tour.
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/SjddQEIqOkg?feature=oembed](https://www.youtube.com/embed/SjddQEIqOkg?feature=oembed)
+[https://www.youtube.com/embed/SjddQEIqOkg](https://www.youtube.com/embed/SjddQEIqOkg)
 
-[https://www.youtube.com/embed/1SkVTUNWxvo?feature=oembed](https://www.youtube.com/embed/1SkVTUNWxvo?feature=oembed)
+[https://www.youtube.com/embed/1SkVTUNWxvo](https://www.youtube.com/embed/1SkVTUNWxvo)
 
 The final show of the first American leg of the Working on a Dream Tour in East Rutherford features the tour premieres of "S" "," and "."
 
 **2009:** [omething in the Night,](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)
 
-[https://videopress.com/embed/94aBB87m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/94aBB87m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/94aBB87m](https://videopress.com/embed/94aBB87m)
 
-[https://videopress.com/embed/1RzGyEPo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1RzGyEPo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1RzGyEPo](https://videopress.com/embed/1RzGyEPo)
 
-[https://videopress.com/embed/VmPqXxmW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VmPqXxmW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VmPqXxmW](https://videopress.com/embed/VmPqXxmW)
 
-[https://videopress.com/embed/tUH8szlY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tUH8szlY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/tUH8szlY](https://videopress.com/embed/tUH8szlY)
 
-[https://videopress.com/embed/cEYUIH2l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cEYUIH2l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cEYUIH2l](https://videopress.com/embed/cEYUIH2l)
 
 The Wrecking Ball Tour stops in Naples for a show at the Piazza del Plebiscito, where the band opens with "O Sole Mio." During the sign request collection, a fan actually requests "," and it's hard to tell if Bruce remembered that's an actual song he'd (partially, at least) written. (He plays "Rosalita (Come Out Tonight)" instead.)
 
 **2013:** [Crazy Rocker](http://estreetshuffle.com/index.php/2019/03/10/roll-of-the-dice-crazy-rocker/)
 
-[https://www.youtube.com/embed/X-NYkLOguTM?feature=oembed](https://www.youtube.com/embed/X-NYkLOguTM?feature=oembed)
+[https://www.youtube.com/embed/X-NYkLOguTM](https://www.youtube.com/embed/X-NYkLOguTM)
 
-[https://www.youtube.com/embed/ihyPeWDR55M?feature=oembed](https://www.youtube.com/embed/ihyPeWDR55M?feature=oembed)
+[https://www.youtube.com/embed/ihyPeWDR55M](https://www.youtube.com/embed/ihyPeWDR55M)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zClsrGQNJMvyH672fGlpumC](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zClsrGQNJMvyH672fGlpumC)
 
@@ -107,17 +107,17 @@ Bruce and Joe Grushecky play their second of two shows at Soldiers & Sailors Mem
 
 **2014:** [Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/)[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[Save My Love](http://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/)[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)[I'll Work For Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)[Savin' Up](http://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/)
 
-[https://www.youtube.com/embed/GQvnGb6YpaQ?feature=oembed](https://www.youtube.com/embed/GQvnGb6YpaQ?feature=oembed)
+[https://www.youtube.com/embed/GQvnGb6YpaQ](https://www.youtube.com/embed/GQvnGb6YpaQ)
 
-[https://www.youtube.com/embed/qGXuPFhviRw?feature=oembed](https://www.youtube.com/embed/qGXuPFhviRw?feature=oembed)
+[https://www.youtube.com/embed/qGXuPFhviRw](https://www.youtube.com/embed/qGXuPFhviRw)
 
-[https://www.youtube.com/embed/DdPGM_-lXSQ?feature=oembed](https://www.youtube.com/embed/DdPGM_-lXSQ?feature=oembed)
+[https://www.youtube.com/embed/DdPGM_-lXSQ](https://www.youtube.com/embed/DdPGM_-lXSQ)
 
-[https://www.youtube.com/embed/Hns2xnDb4eo?feature=oembed](https://www.youtube.com/embed/Hns2xnDb4eo?feature=oembed)
+[https://www.youtube.com/embed/Hns2xnDb4eo](https://www.youtube.com/embed/Hns2xnDb4eo)
 
-[https://www.youtube.com/embed/bI5dCtKSXYI?feature=oembed](https://www.youtube.com/embed/bI5dCtKSXYI?feature=oembed)
+[https://www.youtube.com/embed/bI5dCtKSXYI](https://www.youtube.com/embed/bI5dCtKSXYI)
 
-[https://www.youtube.com/embed/4fhpheyJKeI?feature=oembed](https://www.youtube.com/embed/4fhpheyJKeI?feature=oembed)
+[https://www.youtube.com/embed/4fhpheyJKeI](https://www.youtube.com/embed/4fhpheyJKeI)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -127,8 +127,8 @@ Paul McCartney inducts Bruce into the Fellowship of the Ivors Academy at Grosven
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/ezRI-nIyEHA?feature=oembed](https://www.youtube.com/embed/ezRI-nIyEHA?feature=oembed)
+[https://www.youtube.com/embed/ezRI-nIyEHA](https://www.youtube.com/embed/ezRI-nIyEHA)
 
-[https://www.youtube.com/embed/N8GsdNIBiD8?feature=oembed](https://www.youtube.com/embed/N8GsdNIBiD8?feature=oembed)
+[https://www.youtube.com/embed/N8GsdNIBiD8](https://www.youtube.com/embed/N8GsdNIBiD8)
 
-[https://www.youtube.com/embed/aHvuDHl4xhY?feature=oembed](https://www.youtube.com/embed/aHvuDHl4xhY?feature=oembed)
+[https://www.youtube.com/embed/aHvuDHl4xhY](https://www.youtube.com/embed/aHvuDHl4xhY)

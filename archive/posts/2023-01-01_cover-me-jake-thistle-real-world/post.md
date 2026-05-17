@@ -11,6 +11,6 @@ Jake Thistle may only be fifteen years old, but the New Jersey teen is already a
 
 Watch this one–it's an amazingly heartfelt and accomplished performance.
 
-[https://www.youtube.com/embed/uZW_EaxYC8E?feature=oembed](https://www.youtube.com/embed/uZW_EaxYC8E?feature=oembed)
+[https://www.youtube.com/embed/uZW_EaxYC8E](https://www.youtube.com/embed/uZW_EaxYC8E)
 
 There aren't many covers of this particular song out there, but I have a feeling Jake's version would be at the top of the heap even if there were.

@@ -9,4 +9,4 @@ So it's great to see and hear her take the reins on the full song, supported by 
 
 Enjoy this performance from "Thunder Road Thursday," a Bruce birthday celebration at the Freehold Acoustic Lounge on September 26, 2013.
 
-[https://www.youtube.com/embed/PTAT3HJOdhs?feature=oembed](https://www.youtube.com/embed/PTAT3HJOdhs?feature=oembed)
+[https://www.youtube.com/embed/PTAT3HJOdhs](https://www.youtube.com/embed/PTAT3HJOdhs)

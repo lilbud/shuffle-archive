@@ -29,13 +29,13 @@ Bruce works on "Cynthia" at his home studio in Los Angeles.
 
 **1983:**<br>
 
-[https://www.youtube.com/embed/Ky7XO1Jliv4?feature=oembed](https://www.youtube.com/embed/Ky7XO1Jliv4?feature=oembed)
+[https://www.youtube.com/embed/Ky7XO1Jliv4](https://www.youtube.com/embed/Ky7XO1Jliv4)
 
 The Tunnel of Love Express Tour moves on to Denver for a show a the McNichols Sports Arena.
 
 **1988:**<br>
 
-[https://videopress.com/embed/29cLHNnJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/29cLHNnJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/29cLHNnJ](https://videopress.com/embed/29cLHNnJ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1988-04-20.jpg?resize=758%2C993&amp;ssl=1)
 
@@ -43,27 +43,27 @@ The second of two nights in Rotterdam for Bruce's World Tour 1993.
 
 **1993:**<br>
 
-[https://videopress.com/embed/VX775UJx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VX775UJx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VX775UJx](https://videopress.com/embed/VX775UJx)
 
 Bruce plays a solo acoustic show in Antwerp, rescheduled from March.
 
 **1996:**<br>
 
-[https://videopress.com/embed/bNxmQ6UM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bNxmQ6UM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bNxmQ6UM](https://videopress.com/embed/bNxmQ6UM)
 
 Another live debut for Milan at Night Two in the Fila Forum: Bruce opens with the first-ever performance of "I Wanna Be With You." This is only the second Night Two of the tour, and Bruce breaks the set list open with the first performances of "Atlantic City," "Factory," "Sherry Darling," "Cadillac Ranch," and "This Hard Land" of the Reunion era.
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/tHNbxq82eYI?feature=oembed](https://www.youtube.com/embed/tHNbxq82eYI?feature=oembed)
+[https://www.youtube.com/embed/tHNbxq82eYI](https://www.youtube.com/embed/tHNbxq82eYI)
 
-[https://www.youtube.com/embed/kaXzROxzJJA?feature=oembed](https://www.youtube.com/embed/kaXzROxzJJA?feature=oembed)
+[https://www.youtube.com/embed/kaXzROxzJJA](https://www.youtube.com/embed/kaXzROxzJJA)
 
-[https://www.youtube.com/embed/Qdk7sjcxc8g?feature=oembed](https://www.youtube.com/embed/Qdk7sjcxc8g?feature=oembed)
+[https://www.youtube.com/embed/Qdk7sjcxc8g](https://www.youtube.com/embed/Qdk7sjcxc8g)
 
-[https://www.youtube.com/embed/AnEnTad7aMs?feature=oembed](https://www.youtube.com/embed/AnEnTad7aMs?feature=oembed)
+[https://www.youtube.com/embed/AnEnTad7aMs](https://www.youtube.com/embed/AnEnTad7aMs)
 
-[https://www.youtube.com/embed/7g6N7hFIaPc?feature=oembed](https://www.youtube.com/embed/7g6N7hFIaPc?feature=oembed)
+[https://www.youtube.com/embed/7g6N7hFIaPc](https://www.youtube.com/embed/7g6N7hFIaPc)
 
 At the Paramount Theater in Asbury Park, Bruce holds his final rehearsal before beginning his solo acoustic tour.
 
@@ -73,13 +73,13 @@ The first public warm-up show for the Seeger Sessions Tour features the premiere
 
 **2006:**<br>
 
-[https://videopress.com/embed/rGqntUpa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/rGqntUpa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/rGqntUpa](https://videopress.com/embed/rGqntUpa)
 
-[https://videopress.com/embed/8v7l8WLQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8v7l8WLQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/8v7l8WLQ](https://videopress.com/embed/8v7l8WLQ)
 
-[https://videopress.com/embed/giA2Tm3Z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/giA2Tm3Z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/giA2Tm3Z](https://videopress.com/embed/giA2Tm3Z)
 
-[https://videopress.com/embed/NW38i8Um?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NW38i8Um?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/NW38i8Um](https://videopress.com/embed/NW38i8Um)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2006-04-20a.jpg?resize=484%2C959&amp;ssl=1)
 
@@ -93,13 +93,13 @@ At Baltimore's River show, "I Wanna Marry You" features one of what turns into s
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/2909CodHLiE?feature=oembed](https://www.youtube.com/embed/2909CodHLiE?feature=oembed)
+[https://www.youtube.com/embed/2909CodHLiE](https://www.youtube.com/embed/2909CodHLiE)
 
-[https://www.youtube.com/embed/vN_TxoPNCDY?feature=oembed](https://www.youtube.com/embed/vN_TxoPNCDY?feature=oembed)
+[https://www.youtube.com/embed/vN_TxoPNCDY](https://www.youtube.com/embed/vN_TxoPNCDY)
 
-[https://www.youtube.com/embed/sy2zCHpU_Zs?feature=oembed](https://www.youtube.com/embed/sy2zCHpU_Zs?feature=oembed)
+[https://www.youtube.com/embed/sy2zCHpU_Zs](https://www.youtube.com/embed/sy2zCHpU_Zs)
 
-[https://www.youtube.com/embed/aKOnfrWtI_Q?feature=oembed](https://www.youtube.com/embed/aKOnfrWtI_Q?feature=oembed)
+[https://www.youtube.com/embed/aKOnfrWtI_Q](https://www.youtube.com/embed/aKOnfrWtI_Q)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. Eddie Vedder, Steven Tyler and actress Connie Britton are in attendance tonight for the last show before a two-week break.
 

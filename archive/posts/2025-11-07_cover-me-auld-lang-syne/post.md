@@ -3,7 +3,7 @@
 
 Scholars have traced and interpreted its lyrics for generations; luckily for me, I don't have to concern myself with the lyrics, because Bruce and the E Street Band have only covered it instrumentally. That's probably because most Americans are familiar with the song through Guy Lombardo's 1939 instrumental version, played during the Times Square ball-dropping ceremony on New Years Eve for decades.
 
-[https://www.youtube.com/embed/nyt2qg0AkHM?feature=oembed](https://www.youtube.com/embed/nyt2qg0AkHM?feature=oembed)
+[https://www.youtube.com/embed/nyt2qg0AkHM](https://www.youtube.com/embed/nyt2qg0AkHM)
 
 Bruce and the band covered "Auld Lang Syne" one time only, on December 31, 1980, back in the days when they would work on New Years Eve.
 
@@ -11,7 +11,7 @@ They'd flirted with the song before, playing a snippet on New Years Eve 1978, an
 
 Their arrangement is not exactly traditional, though—listen and enjoy.
 
-[https://www.youtube.com/embed/MHrleDUNw7c?feature=oembed](https://www.youtube.com/embed/MHrleDUNw7c?feature=oembed)
+[https://www.youtube.com/embed/MHrleDUNw7c](https://www.youtube.com/embed/MHrleDUNw7c)
 
 Happy new year to you, your family, and your community. Thanks for reading!
 

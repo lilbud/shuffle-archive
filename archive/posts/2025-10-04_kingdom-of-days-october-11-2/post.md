@@ -5,9 +5,9 @@ Steel Mill opens for The Ike and Tina Turner Revue at a shockingly (at least in 
 
 **1970:**<br>
 
-[https://www.youtube.com/embed/DojVK_-EKpg?feature=oembed](https://www.youtube.com/embed/DojVK_-EKpg?feature=oembed)
+[https://www.youtube.com/embed/DojVK_-EKpg](https://www.youtube.com/embed/DojVK_-EKpg)
 
-[https://www.youtube.com/embed/qKtES3Edw44?feature=oembed](https://www.youtube.com/embed/qKtES3Edw44?feature=oembed)
+[https://www.youtube.com/embed/qKtES3Edw44](https://www.youtube.com/embed/qKtES3Edw44)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/Richmond_Times_Dispatch_1970_10_12_35.jpg?resize=758%2C1257&amp;ssl=1)
 
@@ -17,7 +17,7 @@ Bruce and the E Street Band headline at the Shady Grove Music Fair in Gaithersbu
 
 **1974:**<br>
 
-[https://www.youtube.com/embed/ekMTaEFIgfU?feature=oembed](https://www.youtube.com/embed/ekMTaEFIgfU?feature=oembed)
+[https://www.youtube.com/embed/ekMTaEFIgfU](https://www.youtube.com/embed/ekMTaEFIgfU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1974-1011-300x208.jpg?resize=758%2C526)
 
@@ -39,13 +39,13 @@ Bruce records "" with the E Street Band at The Power Station in New York City.
 
 **1979:** [Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)
 
-[https://www.youtube.com/embed/zDN8pvyKYkU?feature=oembed](https://www.youtube.com/embed/zDN8pvyKYkU?feature=oembed)
+[https://www.youtube.com/embed/zDN8pvyKYkU](https://www.youtube.com/embed/zDN8pvyKYkU)
 
 At Night Two at Chicago's Uptown Theater on the River Tour, Bruce tour premieres "" and "," and "" features a new introduction (actually an older unreleased song) called "." Bruce will resurrect this introduction more than 35 years later on the River Tour's sequel.
 
 **1980:** [For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Good Rockin' Tonight](http://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)[Here She Comes Walkin'](http://estreetshuffle.com/index.php/2020/09/24/roll-of-the-dice-here-she-comes-walkin/)
 
-[https://videopress.com/embed/rrBFWpm2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/rrBFWpm2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/rrBFWpm2](https://videopress.com/embed/rrBFWpm2)
 
 Bruce celebrates his birthday belatedly with a private party at his house. The Gotham Playboys–several members of whom will form the core of the Seeger Sessions Band–are the entertainment for the evening, and Steve, Max, Jon Bon Jovi, and Sheryl Crow are among the guests.
 
@@ -55,11 +55,11 @@ The Vote for Change Tour officially wraps at the MCI Center in Washington, DC. (
 
 **2004:**<br>
 
-[https://www.youtube.com/embed/M93fX5P7x-0?feature=oembed](https://www.youtube.com/embed/M93fX5P7x-0?feature=oembed)
+[https://www.youtube.com/embed/M93fX5P7x-0](https://www.youtube.com/embed/M93fX5P7x-0)
 
-[https://www.youtube.com/embed/qLFNghBijuU?feature=oembed](https://www.youtube.com/embed/qLFNghBijuU?feature=oembed)
+[https://www.youtube.com/embed/qLFNghBijuU](https://www.youtube.com/embed/qLFNghBijuU)
 
-[https://www.youtube.com/embed/oFJ8SzLsyi0?feature=oembed](https://www.youtube.com/embed/oFJ8SzLsyi0?feature=oembed)
+[https://www.youtube.com/embed/oFJ8SzLsyi0](https://www.youtube.com/embed/oFJ8SzLsyi0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2004-10-11-238x300.jpg?resize=758%2C956)
 
@@ -67,7 +67,7 @@ One final tweak during the last preview performance of "" and "" return to their
 
 **2017:** *Springsteen on Broadway:* [Long Walk Home](http://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)
 
-[https://videopress.com/embed/8HmDEFpr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8HmDEFpr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/8HmDEFpr](https://videopress.com/embed/8HmDEFpr)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -77,6 +77,6 @@ Bruce attends the BFI London Film Festival, where he introduces his new film and
 
 **2019:** *Western Stars*
 
-[https://www.youtube.com/embed/wXzmRnGuyS8?feature=oembed](https://www.youtube.com/embed/wXzmRnGuyS8?feature=oembed)
+[https://www.youtube.com/embed/wXzmRnGuyS8](https://www.youtube.com/embed/wXzmRnGuyS8)
 
-[https://www.youtube.com/embed/aLo9wcYn3nE?feature=oembed](https://www.youtube.com/embed/aLo9wcYn3nE?feature=oembed)
+[https://www.youtube.com/embed/aLo9wcYn3nE](https://www.youtube.com/embed/aLo9wcYn3nE)

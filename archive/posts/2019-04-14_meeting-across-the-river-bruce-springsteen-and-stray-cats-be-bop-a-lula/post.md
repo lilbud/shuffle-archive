@@ -5,7 +5,7 @@ https://youtu.be/DkAH2uo9sjU
 
 This is the only time Bruce is known to have played this classic, made famous in 1956 by Gene Vincent and His Blue Caps.
 
-[https://www.youtube.com/embed/O4_5593-skQ?feature=oembed](https://www.youtube.com/embed/O4_5593-skQ?feature=oembed)
+[https://www.youtube.com/embed/O4_5593-skQ](https://www.youtube.com/embed/O4_5593-skQ)
 
 July 23, 1982 (Asbury Park, NJ)
 July 23, 1982 (Asbury Park, NJ)

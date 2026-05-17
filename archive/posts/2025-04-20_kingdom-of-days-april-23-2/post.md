@@ -23,7 +23,7 @@ Bruce works on "" at his home studio in Los Angeles. As of this writing, the son
 
 **1983:** [Richfield Whistle](https://estreetshuffle.com/index.php/2022/12/01/roll-of-the-dice-richfield-whistle/)
 
-[https://www.youtube.com/embed/Gn1OcjnKDsw?feature=oembed](https://www.youtube.com/embed/Gn1OcjnKDsw?feature=oembed)
+[https://www.youtube.com/embed/Gn1OcjnKDsw](https://www.youtube.com/embed/Gn1OcjnKDsw)
 
 Bruce concludes his first Japanese tour with a second show in Osaka.
 
@@ -35,17 +35,17 @@ At Night Two in Los Angeles on the Tunnel of Love Express Tour, Bruce debuts "" 
 
 **1988:** [Have Love Will Travel](http://estreetshuffle.com/index.php/2019/12/20/cover-me-have-love-will-travel/)[Sweet Soul Music](http://estreetshuffle.com/index.php/2019/11/01/cover-me-sweet-soul-music/)[here](http://live.brucespringsteen.net/live-music/0,12676/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-4-23-1988-Los-Angeles-Sports-Arena-Los-Angeles-CA.html)
 
-[https://www.youtube.com/embed/Cnz_eKxTOwI?feature=oembed](https://www.youtube.com/embed/Cnz_eKxTOwI?feature=oembed)
+[https://www.youtube.com/embed/Cnz_eKxTOwI](https://www.youtube.com/embed/Cnz_eKxTOwI)
 
-[https://www.youtube.com/embed/PQOaUQTM55E?feature=oembed](https://www.youtube.com/embed/PQOaUQTM55E?feature=oembed)
+[https://www.youtube.com/embed/PQOaUQTM55E](https://www.youtube.com/embed/PQOaUQTM55E)
 
-[https://www.youtube.com/embed/KKtjKvGs6ZY?feature=oembed](https://www.youtube.com/embed/KKtjKvGs6ZY?feature=oembed)
+[https://www.youtube.com/embed/KKtjKvGs6ZY](https://www.youtube.com/embed/KKtjKvGs6ZY)
 
-[https://www.youtube.com/embed/PS29t4U8rOw?feature=oembed](https://www.youtube.com/embed/PS29t4U8rOw?feature=oembed)
+[https://www.youtube.com/embed/PS29t4U8rOw](https://www.youtube.com/embed/PS29t4U8rOw)
 
-[https://www.youtube.com/embed/8Bmw6lWxz-A?feature=oembed](https://www.youtube.com/embed/8Bmw6lWxz-A?feature=oembed)
+[https://www.youtube.com/embed/8Bmw6lWxz-A](https://www.youtube.com/embed/8Bmw6lWxz-A)
 
-[https://www.youtube.com/embed/UQVhs7LL2A4?feature=oembed](https://www.youtube.com/embed/UQVhs7LL2A4?feature=oembed)
+[https://www.youtube.com/embed/UQVhs7LL2A4](https://www.youtube.com/embed/UQVhs7LL2A4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-22-1-242x300.jpg?resize=758%2C939)
 
@@ -63,19 +63,19 @@ Bruce's World Tour 1993 arrives in Belgium for the first of two nights at Flande
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/Ja7PoZlgvWo?feature=oembed](https://www.youtube.com/embed/Ja7PoZlgvWo?feature=oembed)
+[https://www.youtube.com/embed/Ja7PoZlgvWo](https://www.youtube.com/embed/Ja7PoZlgvWo)
 
 The Reunion Tour makes a stop at Donau Arena in Regensburg, Germany.
 
 **1999:**<br>
 
-[https://videopress.com/embed/AnphOexP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AnphOexP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/AnphOexP](https://videopress.com/embed/AnphOexP)
 
 Bruce's episode of premieres on VH1.
 
 **2005:** *VH1 Storytellers*
 
-[https://www.youtube.com/embed/oxAas5MEbmU?feature=oembed](https://www.youtube.com/embed/oxAas5MEbmU?feature=oembed)
+[https://www.youtube.com/embed/oxAas5MEbmU](https://www.youtube.com/embed/oxAas5MEbmU)
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5paM5xf3_yZM1agDxaMC_2Xu](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5paM5xf3_yZM1agDxaMC_2Xu)
 
@@ -87,11 +87,11 @@ Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with 
 
 **2008:** [Blood Brothers](http://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)[Turn! Turn! Turn!](https://estreetshuffle.com/index.php/2021/06/09/matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/)[Mr. Tambourine Man](http://estreetshuffle.com/index.php/2019/12/28/matr-bruce-springsteen-and-roger-mcguinn-mr-tambourine-man/)*Magic Tour Highlights* [Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)[here](https://www.nugs.net/04-11-2025-archive-release-bruce-springsteen-and-the-e-street-band-amway-arena-orlando-florida-april-23-2008.html)
 
-[https://www.youtube.com/embed/j9a_xcfrxqk?feature=oembed](https://www.youtube.com/embed/j9a_xcfrxqk?feature=oembed)
+[https://www.youtube.com/embed/j9a_xcfrxqk](https://www.youtube.com/embed/j9a_xcfrxqk)
 
-[https://www.youtube.com/embed/HZx-QYNBTug?feature=oembed](https://www.youtube.com/embed/HZx-QYNBTug?feature=oembed)
+[https://www.youtube.com/embed/HZx-QYNBTug](https://www.youtube.com/embed/HZx-QYNBTug)
 
-[https://www.youtube.com/embed/LEjTY92QbpA?feature=oembed](https://www.youtube.com/embed/LEjTY92QbpA?feature=oembed)
+[https://www.youtube.com/embed/LEjTY92QbpA](https://www.youtube.com/embed/LEjTY92QbpA)
 
 [https://videopress.com/embed/Ifqqc6cS?hd=0&amp;cover=1](https://videopress.com/embed/Ifqqc6cS?hd=0&amp;cover=1)
 
@@ -103,19 +103,19 @@ As the U.S. leg of the River Tour (2016 edition) comes to a close, Bruce opens t
 
 **2016:** [Purple Rain](https://estreetshuffle.com/index.php/2021/03/03/cover-me-purple-rain/)
 
-[https://www.youtube.com/embed/sAYhtbp5Br8?feature=oembed](https://www.youtube.com/embed/sAYhtbp5Br8?feature=oembed)
+[https://www.youtube.com/embed/sAYhtbp5Br8](https://www.youtube.com/embed/sAYhtbp5Br8)
 
-[https://www.youtube.com/embed/s375rKW4PKY?feature=oembed](https://www.youtube.com/embed/s375rKW4PKY?feature=oembed)
+[https://www.youtube.com/embed/s375rKW4PKY](https://www.youtube.com/embed/s375rKW4PKY)
 
-[https://www.youtube.com/embed/Cs8gSSxy_dk?feature=oembed](https://www.youtube.com/embed/Cs8gSSxy_dk?feature=oembed)
+[https://www.youtube.com/embed/Cs8gSSxy_dk](https://www.youtube.com/embed/Cs8gSSxy_dk)
 
-[https://www.youtube.com/embed/eyPtFqV-f3w?feature=oembed](https://www.youtube.com/embed/eyPtFqV-f3w?feature=oembed)
+[https://www.youtube.com/embed/eyPtFqV-f3w](https://www.youtube.com/embed/eyPtFqV-f3w)
 
 At the premiere for the new Patti Smith concert documentary Bruce makes a surprise appearance, joining Patti for "Because the Night" and both Patti and Michael Stipe for ""
 
 **2018:** *Horses: Patti Smith and Her Band*,[People Have the Power.](http://estreetshuffle.com/index.php/2020/01/09/matr-patti-smith-bruce-springsteen-and-michael-stipe-people-have-the-power/)
 
-[https://www.youtube.com/embed/5iOLJTm6YNA?feature=oembed](https://www.youtube.com/embed/5iOLJTm6YNA?feature=oembed)
+[https://www.youtube.com/embed/5iOLJTm6YNA](https://www.youtube.com/embed/5iOLJTm6YNA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2018-04-23.jpg?resize=758%2C1467&amp;ssl=1)
 

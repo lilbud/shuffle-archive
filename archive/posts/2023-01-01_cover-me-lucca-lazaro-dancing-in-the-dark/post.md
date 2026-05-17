@@ -7,4 +7,4 @@ So turn up the volume and get moving to this impossible-to-resist cover remix of
 
 Better days ahead.
 
-[https://www.youtube.com/embed/Z4eTmjL1LdE?feature=oembed](https://www.youtube.com/embed/Z4eTmjL1LdE?feature=oembed)
+[https://www.youtube.com/embed/Z4eTmjL1LdE](https://www.youtube.com/embed/Z4eTmjL1LdE)

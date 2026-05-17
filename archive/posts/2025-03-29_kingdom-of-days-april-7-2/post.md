@@ -23,7 +23,7 @@ Bruce and the E Street Band bring the Chicken Scratch Tour to Cleveland for the 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/The_Plain_Dealer_1976_04_09_94.jpg?w=758&amp;ssl=1)
 
-[https://www.youtube.com/embed/Om03JLiBgok?feature=oembed](https://www.youtube.com/embed/Om03JLiBgok?feature=oembed)
+[https://www.youtube.com/embed/Om03JLiBgok](https://www.youtube.com/embed/Om03JLiBgok)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/The_Plain_Dealer_1976_04_09_76-scaled.jpg?resize=758%2C192&amp;ssl=1)
 
@@ -33,25 +33,25 @@ The European leg of The River Tour finally kicks off with Bruce's first-ever sho
 
 **1981:**<br>
 
-[https://videopress.com/embed/0J18Oql6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0J18Oql6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0J18Oql6](https://videopress.com/embed/0J18Oql6)
 
 Bruce's World Tour 1993 stops in Zurich for the first of two shows.
 
 **1993:**<br>
 
-[https://videopress.com/embed/US34fizl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/US34fizl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/US34fizl](https://videopress.com/embed/US34fizl)
 
-[https://videopress.com/embed/J7gKKYBn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/J7gKKYBn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/J7gKKYBn](https://videopress.com/embed/J7gKKYBn)
 
 An interview with Australian journalist Molly Meldrum goes off the rails: scheduled as a fifteen-minute conversation at Sony Studios in New York as part of the promotional plan for , Meldrum pushes forward tenaciously for a full ninety minutes, pressing Bruce for insights on his catalog with the deep knowledge and command of minutiae that only an obsessive fan could draw from. The result is fascinating–an essential listen for any serious Bruce fan.
 
 **1995:** *Greatest Hits*
 
-[https://videopress.com/embed/IBm32YRu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IBm32YRu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/IBm32YRu](https://videopress.com/embed/IBm32YRu)
 
 …and that interview isn't the only one Bruce does today. I don't know if it's before or after, but Bruce also sits down with MTV's Kurt Loder for an interview that will air the following month on MTV's Week in Rock. (You can tell from the same shirt he's wearing in the video below.)
 
-[https://videopress.com/embed/ibrpkquF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ibrpkquF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ibrpkquF](https://videopress.com/embed/ibrpkquF)
 
 debuts on HBO.
 
@@ -71,13 +71,13 @@ Tom Morello makes a guest appearance at the Magic Tour stop in Anaheim. The new 
 
 **2008:** [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)*High Hopes* *Magic Tour Highlights*[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)[American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)
 
-[https://www.youtube.com/embed/B-c6GphpAeY?feature=oembed](https://www.youtube.com/embed/B-c6GphpAeY?feature=oembed)
+[https://www.youtube.com/embed/B-c6GphpAeY](https://www.youtube.com/embed/B-c6GphpAeY)
 
 Bruce and the E Street Band return to Oklahoma after an absence of more than three decades. Their Working on a Dream show at the Bok Center in Tulsa features the tour premieres of "" and "."
 
 **2009:** [I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
 
-[https://www.youtube.com/embed/vCw2vOUKZzY?feature=oembed](https://www.youtube.com/embed/vCw2vOUKZzY?feature=oembed)
+[https://www.youtube.com/embed/vCw2vOUKZzY](https://www.youtube.com/embed/vCw2vOUKZzY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/2009-04-07.jpg?resize=490%2C1294&amp;ssl=1)
 
@@ -85,7 +85,7 @@ The River Tour (2016 edition) moves on to the Sprint Center in Kansas City.
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/uQRzIrBXKdU?feature=oembed](https://www.youtube.com/embed/uQRzIrBXKdU?feature=oembed)
+[https://www.youtube.com/embed/uQRzIrBXKdU](https://www.youtube.com/embed/uQRzIrBXKdU)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "" and "" in place of "" and ""
 
@@ -95,24 +95,24 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 
 **2023:** [Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)
 
-[https://www.youtube.com/embed/Hrp4t0v7TqI?feature=oembed](https://www.youtube.com/embed/Hrp4t0v7TqI?feature=oembed)
+[https://www.youtube.com/embed/Hrp4t0v7TqI](https://www.youtube.com/embed/Hrp4t0v7TqI)
 
-[https://www.youtube.com/embed/Q_dgl4Wr5Yc?feature=oembed](https://www.youtube.com/embed/Q_dgl4Wr5Yc?feature=oembed)
+[https://www.youtube.com/embed/Q_dgl4Wr5Yc](https://www.youtube.com/embed/Q_dgl4Wr5Yc)
 
 Art imitates life (or maybe the other way around, given when the episode was filmed) when Bruce gets COVID on a new episode of .
 
 **2024:** *Curb Your Enthusiasm*
 
-[https://www.youtube.com/embed/QkWnKUcL0fs?feature=oembed](https://www.youtube.com/embed/QkWnKUcL0fs?feature=oembed)
+[https://www.youtube.com/embed/QkWnKUcL0fs](https://www.youtube.com/embed/QkWnKUcL0fs)
 
-[https://www.youtube.com/embed/qAttAmaM3rs?feature=oembed](https://www.youtube.com/embed/qAttAmaM3rs?feature=oembed)
+[https://www.youtube.com/embed/qAttAmaM3rs](https://www.youtube.com/embed/qAttAmaM3rs)
 
 Thankfully, real-life Bruce Springsteen is hale and healthy tonight, performing his second show at Kia Forum in Inglewood, California. He opens with the tour premiere of "t," and Tom Morello makes a guest appearance for the tour premieres of "American Skin (41 Shots)" and "The Ghost of Tom Joad."
 
 [Open All Nigh](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)
 
-[https://www.youtube.com/embed/SY0wogqnMQk?feature=oembed](https://www.youtube.com/embed/SY0wogqnMQk?feature=oembed)
+[https://www.youtube.com/embed/SY0wogqnMQk](https://www.youtube.com/embed/SY0wogqnMQk)
 
-[https://www.youtube.com/embed/Gp-j3nf9iDc?feature=oembed](https://www.youtube.com/embed/Gp-j3nf9iDc?feature=oembed)
+[https://www.youtube.com/embed/Gp-j3nf9iDc](https://www.youtube.com/embed/Gp-j3nf9iDc)
 
-[https://www.youtube.com/embed/hyyLrZdE71k?feature=oembed](https://www.youtube.com/embed/hyyLrZdE71k?feature=oembed)
+[https://www.youtube.com/embed/hyyLrZdE71k](https://www.youtube.com/embed/hyyLrZdE71k)

@@ -17,15 +17,15 @@ At Night Two at Atlanta's Fox Theater on the Darkness Tour, Bruce opens with his
 
 **1978:** [The Last Time](http://estreetshuffle.com/index.php/2020/07/24/cover-me-the-last-time/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)[It's My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)
 
-[https://www.youtube.com/embed/2F75-2luv7M?feature=oembed](https://www.youtube.com/embed/2F75-2luv7M?feature=oembed)
+[https://www.youtube.com/embed/2F75-2luv7M](https://www.youtube.com/embed/2F75-2luv7M)
 
-[https://www.youtube.com/embed/DzwijTHccLg?feature=oembed](https://www.youtube.com/embed/DzwijTHccLg?feature=oembed)
+[https://www.youtube.com/embed/DzwijTHccLg](https://www.youtube.com/embed/DzwijTHccLg)
 
-[https://www.youtube.com/embed/0dUlu4AuReQ?feature=oembed](https://www.youtube.com/embed/0dUlu4AuReQ?feature=oembed)
+[https://www.youtube.com/embed/0dUlu4AuReQ](https://www.youtube.com/embed/0dUlu4AuReQ)
 
-[https://www.youtube.com/embed/qsjFM8W1jKY?feature=oembed](https://www.youtube.com/embed/qsjFM8W1jKY?feature=oembed)
+[https://www.youtube.com/embed/qsjFM8W1jKY](https://www.youtube.com/embed/qsjFM8W1jKY)
 
-[https://www.youtube.com/embed/IpRa_vLl3No?feature=oembed](https://www.youtube.com/embed/IpRa_vLl3No?feature=oembed)
+[https://www.youtube.com/embed/IpRa_vLl3No](https://www.youtube.com/embed/IpRa_vLl3No)
 
 The San Mateo Times publishes the only interview Bruce's dad is known to have ever given. (Bruce's parents are local residents.)
 
@@ -37,7 +37,7 @@ The television series (starring Alan Thicke, an ardent Springsteen fan) airs an 
 
 **1985:** *Growing Pains*
 
-[https://videopress.com/embed/ArcLpCVN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ArcLpCVN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ArcLpCVN](https://videopress.com/embed/ArcLpCVN)
 
 Southside Johnny releases his album, featuring a Springsteen original ("") and Bruce's vocals (along with Southside and Steve Van Zandt) on "It's Been a Long Time."
 
@@ -49,7 +49,7 @@ Bruce takes his solo acoustic tour to the Braden Auditorium in Normal, Illinois.
 
 **1996:**<br>
 
-[https://videopress.com/embed/LCKzTo7T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/LCKzTo7T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/LCKzTo7T](https://videopress.com/embed/LCKzTo7T)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1996-10-01-300x268.jpg?resize=758%2C677)
 
@@ -57,17 +57,17 @@ The Rising Tour's last stand kicks off with the first of three shows at Shea Sta
 
 **2003:** [Johnny 99](http://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)
 
-[https://www.youtube.com/embed/-jFoJw4iKrI?feature=oembed](https://www.youtube.com/embed/-jFoJw4iKrI?feature=oembed)
+[https://www.youtube.com/embed/-jFoJw4iKrI](https://www.youtube.com/embed/-jFoJw4iKrI)
 
-[https://www.youtube.com/embed/vqMRzCYP_J0?feature=oembed](https://www.youtube.com/embed/vqMRzCYP_J0?feature=oembed)
+[https://www.youtube.com/embed/vqMRzCYP_J0](https://www.youtube.com/embed/vqMRzCYP_J0)
 
-[https://www.youtube.com/embed/10dX9NseeGw?feature=oembed](https://www.youtube.com/embed/10dX9NseeGw?feature=oembed)
+[https://www.youtube.com/embed/10dX9NseeGw](https://www.youtube.com/embed/10dX9NseeGw)
 
-[https://www.youtube.com/embed/dNo9Qe7ywaU?feature=oembed](https://www.youtube.com/embed/dNo9Qe7ywaU?feature=oembed)
+[https://www.youtube.com/embed/dNo9Qe7ywaU](https://www.youtube.com/embed/dNo9Qe7ywaU)
 
-[https://www.youtube.com/embed/NrjvABzAs3E?feature=oembed](https://www.youtube.com/embed/NrjvABzAs3E?feature=oembed)
+[https://www.youtube.com/embed/NrjvABzAs3E](https://www.youtube.com/embed/NrjvABzAs3E)
 
-[https://www.youtube.com/embed/uaf_kDW3qoM?feature=oembed](https://www.youtube.com/embed/uaf_kDW3qoM?feature=oembed)
+[https://www.youtube.com/embed/uaf_kDW3qoM](https://www.youtube.com/embed/uaf_kDW3qoM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2003-10-01a.jpg?resize=758%2C1777&amp;ssl=1)
 
@@ -77,9 +77,9 @@ The Vote for Change Tour kicks off at the Wachovia Center in Philadelphia, with 
 
 **2004:** [Man on the Moon](https://estreetshuffle.com/index.php/2021/01/06/matr-r-e-m-and-bruce-springsteen-man-on-the-moon/)[Star-Spangled Banner,](https://estreetshuffle.com/index.php/2021/01/20/cover-me-the-star-spangled-banner/)
 
-[https://www.youtube.com/embed/50tR73_yNVM?feature=oembed](https://www.youtube.com/embed/50tR73_yNVM?feature=oembed)
+[https://www.youtube.com/embed/50tR73_yNVM](https://www.youtube.com/embed/50tR73_yNVM)
 
-[https://videopress.com/embed/dHep8GzG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dHep8GzG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/dHep8GzG](https://videopress.com/embed/dHep8GzG)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2004-10-01a-236x300.jpg?resize=758%2C963)
 
@@ -89,25 +89,25 @@ Bruce and the Sessions Band kick off the final leg of the Seeger Sessions Tour w
 
 **2006:** [The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)[This Little Light of Mine](http://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)[American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)
 
-[https://videopress.com/embed/O7hJWw9Y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/O7hJWw9Y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/O7hJWw9Y](https://videopress.com/embed/O7hJWw9Y)
 
-[https://www.youtube.com/embed/BvdT1GmSVac?feature=oembed](https://www.youtube.com/embed/BvdT1GmSVac?feature=oembed)
+[https://www.youtube.com/embed/BvdT1GmSVac](https://www.youtube.com/embed/BvdT1GmSVac)
 
-[https://www.youtube.com/embed/MpsOJbMCVwA?feature=oembed](https://www.youtube.com/embed/MpsOJbMCVwA?feature=oembed)
+[https://www.youtube.com/embed/MpsOJbMCVwA](https://www.youtube.com/embed/MpsOJbMCVwA)
 
-[https://www.youtube.com/embed/RciO3LPCsS4?feature=oembed](https://www.youtube.com/embed/RciO3LPCsS4?feature=oembed)
+[https://www.youtube.com/embed/RciO3LPCsS4](https://www.youtube.com/embed/RciO3LPCsS4)
 
-[https://www.youtube.com/embed/VHHrOaey5ak?feature=oembed](https://www.youtube.com/embed/VHHrOaey5ak?feature=oembed)
+[https://www.youtube.com/embed/VHHrOaey5ak](https://www.youtube.com/embed/VHHrOaey5ak)
 
 Bruce joins Sting, Lady Gaga, Billy Joel, Stevie Wonder, will.i.am, Branford Marsalis, Rufus Wainwright, Mary J. Blige, and Bryn Terfel at Sting and Trudie Styler's Rainforest Fund benefit concert and 60th birthday party for Sting. Bruce plays a short set of Sting and The Police covers, including "" "," "," and "."
 
 **2011:** [I Hung My Head,](http://estreetshuffle.com/index.php/2020/03/02/cover-me-i-hung-my-head/)[Fields of Gold](http://estreetshuffle.com/index.php/2018/06/16/cover-me-fields-of-gold/)[Can't Stand Losing You](http://estreetshuffle.com/index.php/2018/02/28/matr-bruce-springsteen-and-sting-cant-stand-losing-you/)[Every Breath You Take](http://estreetshuffle.com/index.php/2019/04/07/matr-sting-and-bruce-springsteen-every-breath-you-take/)
 
-[https://www.youtube.com/embed/OoXSAYnFOCY?feature=oembed](https://www.youtube.com/embed/OoXSAYnFOCY?feature=oembed)
+[https://www.youtube.com/embed/OoXSAYnFOCY](https://www.youtube.com/embed/OoXSAYnFOCY)
 
-[https://www.youtube.com/embed/xFec5-aClzc?feature=oembed](https://www.youtube.com/embed/xFec5-aClzc?feature=oembed)
+[https://www.youtube.com/embed/xFec5-aClzc](https://www.youtube.com/embed/xFec5-aClzc)
 
-[https://www.youtube.com/embed/AQi9YTbYzoM?feature=oembed](https://www.youtube.com/embed/AQi9YTbYzoM?feature=oembed)
+[https://www.youtube.com/embed/AQi9YTbYzoM](https://www.youtube.com/embed/AQi9YTbYzoM)
 
 Bruce brings his promotional book tour to the west coast, starting with an appearance at Elliott Bay Book Company in Seattle, where he meets the author of this blog at 2 minutes and 35 seconds before the end of this video!
 
@@ -117,12 +117,12 @@ Bruce and Jake join The Killers for "," "Dustland," and "Born to Run" at Madison
 
 **2022:** [Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)
 
-[https://www.youtube.com/embed/QgIXt_mi9qA?feature=oembed](https://www.youtube.com/embed/QgIXt_mi9qA?feature=oembed)
+[https://www.youtube.com/embed/QgIXt_mi9qA](https://www.youtube.com/embed/QgIXt_mi9qA)
 
-[https://www.youtube.com/embed/vxJ4RnMW9MM?feature=oembed](https://www.youtube.com/embed/vxJ4RnMW9MM?feature=oembed)
+[https://www.youtube.com/embed/vxJ4RnMW9MM](https://www.youtube.com/embed/vxJ4RnMW9MM)
 
 At Roberto's Grill in Freehold, Bruce films a passionate endorsement for Vice President Kamala Harris as the next president of the United States of America.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/7FDFj5SgDYc?feature=oembed](https://www.youtube.com/embed/7FDFj5SgDYc?feature=oembed)
+[https://www.youtube.com/embed/7FDFj5SgDYc](https://www.youtube.com/embed/7FDFj5SgDYc)

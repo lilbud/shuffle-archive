@@ -7,19 +7,19 @@ But "Trapped" isn't the only Jimmy Cliff song Bruce has covered over the years�
 
 Here's Jimmy's original 1969 version, written and recorded at the age of 21. It's the song of a frustrated would-be artist striving to keep his faith in himself and his will to persist, even when those around him abandon him and basic subsistence becomes a struggle.
 
-[https://www.youtube.com/embed/QvBEpwcGM2o?feature=oembed](https://www.youtube.com/embed/QvBEpwcGM2o?feature=oembed)
+[https://www.youtube.com/embed/QvBEpwcGM2o](https://www.youtube.com/embed/QvBEpwcGM2o)
 
 Bruce's version retains the soulfulness of Jimmy's original arrangement–if anything, he ratchets it up, adding a gospel element with his backing singers.
 
 Interestingly, though, Bruce alters the lyrics–most notably by completely dropping the final verse in which the protagonist is so desperate that he's tempted into "committing some dreadful crime." Bruce also changes the narrator's reaction to his woman leaving him from "Well, I guess I have to try" to "All I can do now is cry."
 
-[https://www.youtube.com/embed/UuCzgtKoqos?feature=oembed](https://www.youtube.com/embed/UuCzgtKoqos?feature=oembed)
+[https://www.youtube.com/embed/UuCzgtKoqos](https://www.youtube.com/embed/UuCzgtKoqos)
 
 The result of the lyrical changes: a more traditional ballad of lost love than a down-on-his-luck musician. Why make the change? Who knows–maybe it was more in keeping with the relationships theme of the 1992-93 tour; maybe Bruce felt he'd have more authenticity this way. Or maybe this aspect of the song resonated more with him.
 
 Regardless, it remains a World Tour 1993 highlight. Bruce played it only one time since, at SxSW in 2012 with the original artist. Here's Bruce and Jimmy performing it together (with the original lyrics) for the first and only time.
 
-[https://www.youtube.com/embed/zEMwQVGIcW0?feature=oembed](https://www.youtube.com/embed/zEMwQVGIcW0?feature=oembed)
+[https://www.youtube.com/embed/zEMwQVGIcW0](https://www.youtube.com/embed/zEMwQVGIcW0)
 
 April 3, 1994 (Dortmund, German)
 March 15, 2012 (Austin, TX)

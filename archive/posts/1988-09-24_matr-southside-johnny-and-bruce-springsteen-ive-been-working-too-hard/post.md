@@ -14,7 +14,7 @@ But that didn't stop him from performing it with Southside in concert on two occ
 
 The latter of those two times was caught on video–and while the quality is rough, it's still a joy to watch. From May 27, 2001 (three days shy of the 25th anniversary of Southside's radio broadcast from The Stone Pony), here's Southside and Bruce (with Graham Parker) singing "I've Been Working Too Hard."
 
-[https://videopress.com/embed/d2Z88t4f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/d2Z88t4f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/d2Z88t4f](https://videopress.com/embed/d2Z88t4f)
 
 **I've Been Working Too Hard**<br>
 **First performed:** July 16, 1994 (Asbury Park, NJ)<br>

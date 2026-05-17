@@ -15,13 +15,13 @@ Bruce and most of the band drop by WMMR-FM in Philadelphia for a stint as guest 
 
 **1975:** [Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)
 
-[https://www.youtube.com/embed/YBV95EFNLSo?feature=oembed](https://www.youtube.com/embed/YBV95EFNLSo?feature=oembed)
+[https://www.youtube.com/embed/YBV95EFNLSo](https://www.youtube.com/embed/YBV95EFNLSo)
 
 It's the world premiere of "Because the Night," played for the very first time at CBGB in New York City–by Bruce and Patti Smith. Patti's recording of the song is in the can but still months away from release; when Bruce drops by her show tonight, Patti decides to premiere it, and Bruce lends his guitar and backing vocals. Perhaps Bruce might have joined Patti and her band on another song or two if not for the fire inspectors who prematurely halt the show.
 
 **1977:***both*
 
-[https://www.youtube.com/embed/UUhmhPSeH5M?feature=oembed](https://www.youtube.com/embed/UUhmhPSeH5M?feature=oembed)
+[https://www.youtube.com/embed/UUhmhPSeH5M](https://www.youtube.com/embed/UUhmhPSeH5M)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/46685559725_88b299cdb8-198x300.jpg?resize=758%2C1148)
 
@@ -31,7 +31,7 @@ Bruce and the E Street Band near the end of the Darkness Tour, but before they d
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/YGNP5Fkutlk?feature=oembed](https://www.youtube.com/embed/YGNP5Fkutlk?feature=oembed)
+[https://www.youtube.com/embed/YGNP5Fkutlk](https://www.youtube.com/embed/YGNP5Fkutlk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1978-12-30.png?resize=758%2C872&amp;ssl=1)
 
@@ -39,13 +39,13 @@ Bruce and Patti welcome Jessica Rae Springsteen into the world, and Little Steve
 
 **1991:**<br>
 
-[https://www.youtube.com/embed/tc9IFFMNskY?feature=oembed](https://www.youtube.com/embed/tc9IFFMNskY?feature=oembed)
+[https://www.youtube.com/embed/tc9IFFMNskY](https://www.youtube.com/embed/tc9IFFMNskY)
 
 The soundtrack for the film is released, featuring a song Bruce wrote for the movie, "." It will soon win him an Oscar.
 
 **1993:** *Philadelphia* [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
-[https://www.youtube.com/embed/4z2DtNW79sQ?feature=oembed](https://www.youtube.com/embed/4z2DtNW79sQ?feature=oembed)
+[https://www.youtube.com/embed/4z2DtNW79sQ](https://www.youtube.com/embed/4z2DtNW79sQ)
 
 continues its theatrical run at the Walter Kerr Theater in New York City, still using the "B" set list due to Patti's illness. In attendance tonight: shoe designer Faryl Morse.
 

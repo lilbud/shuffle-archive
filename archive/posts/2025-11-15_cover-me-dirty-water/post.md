@@ -1,7 +1,7 @@
 
 If you're gonna rock in Boston, sooner or later you've got to play "Dirty Water."
 
-[https://www.youtube.com/embed/62XRy-jFCm8?feature=oembed](https://www.youtube.com/embed/62XRy-jFCm8?feature=oembed)
+[https://www.youtube.com/embed/62XRy-jFCm8](https://www.youtube.com/embed/62XRy-jFCm8)
 
 "Dirty Water" was the one and only hit from The Standells, a garage rock band based in (where else?) Los Angeles. Released in late 1965, the song climbed the charts the following year, peaking at #11 on the Billboard Hot 100 after breaking out and becoming wildly popular in (where else?) Orlando.
 
@@ -13,13 +13,13 @@ By the 21st century, however, "Dirty Water" had been lovingly embraced by sports
 
 Which is exactly where Bruce next played it: at the FleetCenter (formerly the Boston Garden) with hometown hero Peter Wolf joining Bruce and the E Street Band on stage for a special final encore on the Rising Tour in 2002.
 
-[https://videopress.com/embed/aJw4ucuO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aJw4ucuO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/aJw4ucuO](https://videopress.com/embed/aJw4ucuO)
 
 But it wasn't just the local hockey fans who adopted "Dirty Water" as their anthem–Red Sox fans laid claim to it too, and pretty soon "Dirty Water" was being played after home team victories at Fenway Park. So when Bruce made his debut appearance at the ballpark in 2003, both "Dirty Water" and Peter Wolf were on hand once again for the occasion.
 
 After three consecutive Boston shows over the course of a year featured "Dirty Water" as the final song of the night, it seemed Bruce had established a new Beantown tradition, and "Dirty Water" would go on to make regular appearances for years to follow. Even when Bruce was on a solo acoustic tour…
 
-[https://www.youtube.com/embed/BUhL-cFfAUA?feature=oembed](https://www.youtube.com/embed/BUhL-cFfAUA?feature=oembed)
+[https://www.youtube.com/embed/BUhL-cFfAUA](https://www.youtube.com/embed/BUhL-cFfAUA)
 
 …or the Americana-influenced Sessions Band Tour (once again with partner-in-crime Peter Wolf).
 
@@ -27,11 +27,11 @@ After three consecutive Boston shows over the course of a year featured "Dirty W
 
 Bruce played it once more in a return appearance at Fenway Park in 2012 (no Peter Wolf this time, though)…
 
-[https://www.youtube.com/embed/YGyGU8Hc9Cw?feature=oembed](https://www.youtube.com/embed/YGyGU8Hc9Cw?feature=oembed)
+[https://www.youtube.com/embed/YGyGU8Hc9Cw](https://www.youtube.com/embed/YGyGU8Hc9Cw)
 
 …and then again over a decade later when World Tour 2023 came to Boston.
 
-[https://www.youtube.com/embed/JZCsXUXU_xo?feature=oembed](https://www.youtube.com/embed/JZCsXUXU_xo?feature=oembed)
+[https://www.youtube.com/embed/JZCsXUXU_xo](https://www.youtube.com/embed/JZCsXUXU_xo)
 
 As long as Bruce keeps returning to Boston, it's a good bet we haven't heard the end of "Dirty Water."
 

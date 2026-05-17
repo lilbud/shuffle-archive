@@ -13,13 +13,13 @@ At the Record Plant in New York City, Bruce and his studio team complete the mix
 
 **1978:** [Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)
 
-[https://www.youtube.com/embed/3YuEJ_XolkM?feature=oembed](https://www.youtube.com/embed/3YuEJ_XolkM?feature=oembed)
+[https://www.youtube.com/embed/3YuEJ_XolkM](https://www.youtube.com/embed/3YuEJ_XolkM)
 
 Bruce records multiple takes of "," just six days after the Three Mile Island accident that inspired it.
 
 **1979:**[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)
 
-[https://www.youtube.com/embed/_QWRFI3M0mo?feature=oembed](https://www.youtube.com/embed/_QWRFI3M0mo?feature=oembed)
+[https://www.youtube.com/embed/_QWRFI3M0mo](https://www.youtube.com/embed/_QWRFI3M0mo)
 
 Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.
 
@@ -31,7 +31,7 @@ Bruce and the E Street Band play their first of two shows in Melbourne, Australi
 
 **1985:** *Born in the U.S.A.*[Johnny Bye-Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)
 
-[https://videopress.com/embed/9ND97yT2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9ND97yT2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9ND97yT2](https://videopress.com/embed/9ND97yT2)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Age_Thu__Apr_4__1985_.jpg?resize=758%2C370&amp;ssl=1)
 
@@ -45,17 +45,17 @@ Bruce brings his World Tour 1993 to Dortmund, Germany, where he debuts his cover
 
 **1993:** [Many Rivers to Cross](https://estreetshuffle.com/index.php/2018/07/28/cover-me-many-rivers-to-cross/)[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
-[https://videopress.com/embed/fUeXizaZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fUeXizaZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fUeXizaZ](https://videopress.com/embed/fUeXizaZ)
 
 The Reunion Tour hits the Pacific Northwest, starting with a single show at Portland's Rose Garden that features the tour premiere of "‘."
 
 **2000:** [Dead Man Walkin](http://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/)
 
-[https://videopress.com/embed/QMqRCigT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QMqRCigT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/QMqRCigT](https://videopress.com/embed/QMqRCigT)
 
-[https://videopress.com/embed/qnkwPZT4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qnkwPZT4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/qnkwPZT4](https://videopress.com/embed/qnkwPZT4)
 
-[https://videopress.com/embed/lUa1zb5B?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lUa1zb5B?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/lUa1zb5B](https://videopress.com/embed/lUa1zb5B)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Columbian_Tue__Apr_4__2000_-scaled.jpg?resize=758%2C2438&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Columbian_Tue__Apr_4__2000_-1.jpg?resize=758%2C934&amp;ssl=1)
 
@@ -71,7 +71,7 @@ In Glendale, Night Two on the Working on a Dream Tour brings six set list change
 
 **2009:** [Night](http://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)
 
-[https://www.youtube.com/embed/emnJ4gJGdM0?feature=oembed](https://www.youtube.com/embed/emnJ4gJGdM0?feature=oembed)
+[https://www.youtube.com/embed/emnJ4gJGdM0](https://www.youtube.com/embed/emnJ4gJGdM0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/El_Paso_Times_2009_04_07_21-scaled.jpg?resize=291%2C2560&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/El_Paso_Times_2009_04_07_22.jpg?resize=758%2C147&amp;ssl=1)
 
@@ -79,13 +79,13 @@ The Wrecking Ball Tour stops at the Izod Center in East Rutherford for the first
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/e8XRY1Cfr0k?feature=oembed](https://www.youtube.com/embed/e8XRY1Cfr0k?feature=oembed)
+[https://www.youtube.com/embed/e8XRY1Cfr0k](https://www.youtube.com/embed/e8XRY1Cfr0k)
 
-[https://www.youtube.com/embed/Ew3wmdvVPqc?feature=oembed](https://www.youtube.com/embed/Ew3wmdvVPqc?feature=oembed)
+[https://www.youtube.com/embed/Ew3wmdvVPqc](https://www.youtube.com/embed/Ew3wmdvVPqc)
 
-[https://www.youtube.com/embed/FxrpEK5yZ9c?feature=oembed](https://www.youtube.com/embed/FxrpEK5yZ9c?feature=oembed)
+[https://www.youtube.com/embed/FxrpEK5yZ9c](https://www.youtube.com/embed/FxrpEK5yZ9c)
 
-[https://www.youtube.com/embed/ySez8aX8Pe0?feature=oembed](https://www.youtube.com/embed/ySez8aX8Pe0?feature=oembed)
+[https://www.youtube.com/embed/ySez8aX8Pe0](https://www.youtube.com/embed/ySez8aX8Pe0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2012-04-03-300x234.jpg?resize=758%2C591)
 
@@ -97,11 +97,11 @@ The new River Tour stops at the Chesapeake Energy arena in Oklahoma City.
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/ts-sQIQuk9k?feature=oembed](https://www.youtube.com/embed/ts-sQIQuk9k?feature=oembed)
+[https://www.youtube.com/embed/ts-sQIQuk9k](https://www.youtube.com/embed/ts-sQIQuk9k)
 
-[https://www.youtube.com/embed/7-CYhkB7U9I?feature=oembed](https://www.youtube.com/embed/7-CYhkB7U9I?feature=oembed)
+[https://www.youtube.com/embed/7-CYhkB7U9I](https://www.youtube.com/embed/7-CYhkB7U9I)
 
-[https://www.youtube.com/embed/mQzGg5pRTxQ?feature=oembed](https://www.youtube.com/embed/mQzGg5pRTxQ?feature=oembed)
+[https://www.youtube.com/embed/mQzGg5pRTxQ](https://www.youtube.com/embed/mQzGg5pRTxQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2016-04-03-300x244.jpg?resize=758%2C617)
 
@@ -109,8 +109,8 @@ Another tour premiere for New York fans: Bruce surprises with "" at Barclays Cen
 
 **2023:** [It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)
 
-[https://www.youtube.com/embed/9Iz9bA8NHbc?feature=oembed](https://www.youtube.com/embed/9Iz9bA8NHbc?feature=oembed)
+[https://www.youtube.com/embed/9Iz9bA8NHbc](https://www.youtube.com/embed/9Iz9bA8NHbc)
 
-[https://www.youtube.com/embed/kau7-97Jfsc?feature=oembed](https://www.youtube.com/embed/kau7-97Jfsc?feature=oembed)
+[https://www.youtube.com/embed/kau7-97Jfsc](https://www.youtube.com/embed/kau7-97Jfsc)
 
-[https://www.youtube.com/embed/SqarsPK_Cvs?feature=oembed](https://www.youtube.com/embed/SqarsPK_Cvs?feature=oembed)
+[https://www.youtube.com/embed/SqarsPK_Cvs](https://www.youtube.com/embed/SqarsPK_Cvs)

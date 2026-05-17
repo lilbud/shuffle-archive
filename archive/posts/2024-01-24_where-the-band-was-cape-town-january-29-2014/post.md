@@ -7,15 +7,15 @@ But it was also a night of premieres (including the first ever performance of ""
 
 [This is Your Sword,](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
 
-[https://www.youtube.com/embed/PQLUN4h3KpA?feature=oembed](https://www.youtube.com/embed/PQLUN4h3KpA?feature=oembed)
+[https://www.youtube.com/embed/PQLUN4h3KpA](https://www.youtube.com/embed/PQLUN4h3KpA)
 
-[https://www.youtube.com/embed/XQk0U18h4m8?feature=oembed](https://www.youtube.com/embed/XQk0U18h4m8?feature=oembed)
+[https://www.youtube.com/embed/XQk0U18h4m8](https://www.youtube.com/embed/XQk0U18h4m8)
 
 All three Cape Town shows were unusual in that they were a throwback to the old "first-come, first-in" pit system, instead of the lottery system that had been in place for a decade by this point. Since I'd never been to Cape Town before (and didn't know if I'd ever make it back), I decided to spend my days seeing the city instead of waiting in the pit line–so for the first two shows, I wasn't anywhere close to the stage.
 
 But for this last show, I was determined to be up front, so I spent the day making friends in line and got a prime spot leaning on the stage–and had a great vantage point for moments like this:
 
-[https://www.youtube.com/embed/J1VYHhK1b6w?feature=oembed](https://www.youtube.com/embed/J1VYHhK1b6w?feature=oembed)
+[https://www.youtube.com/embed/J1VYHhK1b6w](https://www.youtube.com/embed/J1VYHhK1b6w)
 
 While the High Hopes Tour would go on to soar to much greater heights than these opening shows, I'll always remember these three among my favorites–from days spent hiking and exploring with fellow fans to standout performances and surprises each night, for me, this was a very special run of shows.
 

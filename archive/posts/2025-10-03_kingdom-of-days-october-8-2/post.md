@@ -21,19 +21,19 @@ Bruce and the E Street Band record "" at The Power Station in New York City. It 
 
 **1979:** [Party Lights](https://estreetshuffle.com/index.php/2019/11/14/roll-of-the-dice-party-lights/)
 
-[https://www.youtube.com/embed/S2WWQAvS_6I?feature=oembed](https://www.youtube.com/embed/S2WWQAvS_6I?feature=oembed)
+[https://www.youtube.com/embed/S2WWQAvS_6I](https://www.youtube.com/embed/S2WWQAvS_6I)
 
 Fresh off the fifteen-month Born in the U.S.A. Tour, Nils appears on
 
 **1985:** *Late Night with David Letterman.*
 
-[https://www.youtube.com/embed/Sm-860N8T1w?feature=oembed](https://www.youtube.com/embed/Sm-860N8T1w?feature=oembed)
+[https://www.youtube.com/embed/Sm-860N8T1w](https://www.youtube.com/embed/Sm-860N8T1w)
 
 Bruce films the video for "" at Fort Hancock in Sandy Hook, New Jersey, singing the vocal live over the album's instrumental track for a remarkable 24 takes. Meiert Avis directs the shoot and the video, and we are fortunate to have of the events.
 
 **1987:** [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[his lengthy and fascinating recollection](http://meiertavis.com/archives/1215)
 
-[https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed](https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed)
+[https://www.youtube.com/embed/idnJnjV_8rg](https://www.youtube.com/embed/idnJnjV_8rg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1987-1008-300x206.jpg?resize=744%2C510)
 
@@ -41,7 +41,7 @@ That evening, Bruce joins Little Steven and the Disciples of Soul at The Ritz in
 
 [Native American](http://estreetshuffle.com/index.php/2019/10/25/matr-little-steven-and-bruce-springsteen-native-american/)
 
-[https://www.youtube.com/embed/WkJkooAjDrg?feature=oembed](https://www.youtube.com/embed/WkJkooAjDrg?feature=oembed)
+[https://www.youtube.com/embed/WkJkooAjDrg](https://www.youtube.com/embed/WkJkooAjDrg)
 
 A scheduled show at Mountain View's Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.
 
@@ -63,36 +63,36 @@ The Vote for Change Tour stops in Orlando, where Tracy Chapman joins Bruce on st
 
 [https://www.youtube.com/embed/imXUy4RyuNw?start=3&amp;feature=oembed](https://www.youtube.com/embed/imXUy4RyuNw?start=3&amp;feature=oembed)
 
-[https://www.youtube.com/embed/ZfxMHXJZdnU?feature=oembed](https://www.youtube.com/embed/ZfxMHXJZdnU?feature=oembed)
+[https://www.youtube.com/embed/ZfxMHXJZdnU](https://www.youtube.com/embed/ZfxMHXJZdnU)
 
-[https://www.youtube.com/embed/kTduOCEP8Es?feature=oembed](https://www.youtube.com/embed/kTduOCEP8Es?feature=oembed)
+[https://www.youtube.com/embed/kTduOCEP8Es](https://www.youtube.com/embed/kTduOCEP8Es)
 
-[https://www.youtube.com/embed/Okem2CboVhM?feature=oembed](https://www.youtube.com/embed/Okem2CboVhM?feature=oembed)
+[https://www.youtube.com/embed/Okem2CboVhM](https://www.youtube.com/embed/Okem2CboVhM)
 
 Bruce and the Sessions Band play a show at Palamaggio in Caserta, Italy.
 
 **2006:**<br>
 
-[https://www.youtube.com/embed/oh4pznAPHkg?feature=oembed](https://www.youtube.com/embed/oh4pznAPHkg?feature=oembed)
+[https://www.youtube.com/embed/oh4pznAPHkg](https://www.youtube.com/embed/oh4pznAPHkg)
 
-[https://www.youtube.com/embed/QY14JREQrUM?feature=oembed](https://www.youtube.com/embed/QY14JREQrUM?feature=oembed)
+[https://www.youtube.com/embed/QY14JREQrUM](https://www.youtube.com/embed/QY14JREQrUM)
 
-[https://www.youtube.com/embed/mWKhbNVX9L0?feature=oembed](https://www.youtube.com/embed/mWKhbNVX9L0?feature=oembed)
+[https://www.youtube.com/embed/mWKhbNVX9L0](https://www.youtube.com/embed/mWKhbNVX9L0)
 
 At Night Four of five at Giants Stadium on the Working on a Dream Tour, Bruce and the E Street Band perform the entire album, during which Jake Clemons makes an early E Street appearance with Ed Manion and Curt Ramm on "."
 
 **2009:** *Born to Run* [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-[https://www.youtube.com/embed/wSNy8KR9dZc?feature=oembed](https://www.youtube.com/embed/wSNy8KR9dZc?feature=oembed)
+[https://www.youtube.com/embed/wSNy8KR9dZc](https://www.youtube.com/embed/wSNy8KR9dZc)
 
-[https://www.youtube.com/embed/0khn6CH9JVA?feature=oembed](https://www.youtube.com/embed/0khn6CH9JVA?feature=oembed)
+[https://www.youtube.com/embed/0khn6CH9JVA](https://www.youtube.com/embed/0khn6CH9JVA)
 
-[https://www.youtube.com/embed/nUQIhK5hrIM?feature=oembed](https://www.youtube.com/embed/nUQIhK5hrIM?feature=oembed)
+[https://www.youtube.com/embed/nUQIhK5hrIM](https://www.youtube.com/embed/nUQIhK5hrIM)
 
-[https://www.youtube.com/embed/riZd29bvuls?feature=oembed](https://www.youtube.com/embed/riZd29bvuls?feature=oembed)
+[https://www.youtube.com/embed/riZd29bvuls](https://www.youtube.com/embed/riZd29bvuls)
 
 Ben Stiller reprises his impeccable Bruce Springsteen impression when he guest-hosts and pitches a box set that in all honesty many fans would probably buy. (I know I would.)
 
 **2011:** *Saturday Night Live*
 
-[https://videopress.com/embed/osGXxOxb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/osGXxOxb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/osGXxOxb](https://videopress.com/embed/osGXxOxb)

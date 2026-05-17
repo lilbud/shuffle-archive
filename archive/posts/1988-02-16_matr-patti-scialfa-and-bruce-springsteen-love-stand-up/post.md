@@ -14,7 +14,7 @@ There's an arc across her catalog that makes it clear that her shared love with 
 
 Patti actually debuted "Love (Stand Up)" in concert years before it debuted on disc. Throughout Bruce's sophomore Asbury Park holiday show stand in 2001, Patti performed it each night, with her husband and the Max Weinberg 7 providing their instrumental support. Here's her debut performance:
 
-[https://videopress.com/embed/hAJymwks?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hAJymwks?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/hAJymwks](https://videopress.com/embed/hAJymwks)
 
 Patti's definitive performance of "Love (Stand Up)," however, came during her brief promotional tour for *23rd Street Lullaby*.
 
@@ -24,7 +24,7 @@ Oh, and her husband was there, too.
 
 Start your Valentine's Day with this wonderfully filmed, beautifully performed, but rarely seen version of "Love (Stand Up)."
 
-[https://videopress.com/embed/UmMKcToe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UmMKcToe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/UmMKcToe](https://videopress.com/embed/UmMKcToe)
 
 **Love (Stand Up)**<br>
 **Recorded:** January 2004<br>

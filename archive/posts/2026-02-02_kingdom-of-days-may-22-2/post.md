@@ -15,7 +15,7 @@ Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at
 
 **1988**<br>
 
-[https://www.youtube.com/embed/Ds9KR6GIIn0?feature=oembed](https://www.youtube.com/embed/Ds9KR6GIIn0?feature=oembed)
+[https://www.youtube.com/embed/Ds9KR6GIIn0](https://www.youtube.com/embed/Ds9KR6GIIn0)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD_0qbZ6tPm02uPd4dUaeRf](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD_0qbZ6tPm02uPd4dUaeRf)
 
@@ -23,15 +23,15 @@ Bruce's World Tour 1993 makes a stop at The National Bowl in Milton Keynes, Engl
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/rycHB4XH76w?feature=oembed](https://www.youtube.com/embed/rycHB4XH76w?feature=oembed)
+[https://www.youtube.com/embed/rycHB4XH76w](https://www.youtube.com/embed/rycHB4XH76w)
 
-[https://www.youtube.com/embed/YwSo8RWkij8?feature=oembed](https://www.youtube.com/embed/YwSo8RWkij8?feature=oembed)
+[https://www.youtube.com/embed/YwSo8RWkij8](https://www.youtube.com/embed/YwSo8RWkij8)
 
-[https://www.youtube.com/embed/srTyn4kCJ7U?feature=oembed](https://www.youtube.com/embed/srTyn4kCJ7U?feature=oembed)
+[https://www.youtube.com/embed/srTyn4kCJ7U](https://www.youtube.com/embed/srTyn4kCJ7U)
 
-[https://www.youtube.com/embed/l5-gULA_nX8?feature=oembed](https://www.youtube.com/embed/l5-gULA_nX8?feature=oembed)
+[https://www.youtube.com/embed/l5-gULA_nX8](https://www.youtube.com/embed/l5-gULA_nX8)
 
-[https://www.youtube.com/embed/Fwzy8DzpSLo?feature=oembed](https://www.youtube.com/embed/Fwzy8DzpSLo?feature=oembed)
+[https://www.youtube.com/embed/Fwzy8DzpSLo](https://www.youtube.com/embed/Fwzy8DzpSLo)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zA9F6yQQh4oOTgQnVsCP9ku](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zA9F6yQQh4oOTgQnVsCP9ku)
 
@@ -41,19 +41,19 @@ Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the
 
 **1997:**<br>
 
-[https://www.youtube.com/embed/zij-yhyGwO4?feature=oembed](https://www.youtube.com/embed/zij-yhyGwO4?feature=oembed)
+[https://www.youtube.com/embed/zij-yhyGwO4](https://www.youtube.com/embed/zij-yhyGwO4)
 
-[https://www.youtube.com/embed/KsQcmfghM70?feature=oembed](https://www.youtube.com/embed/KsQcmfghM70?feature=oembed)
+[https://www.youtube.com/embed/KsQcmfghM70](https://www.youtube.com/embed/KsQcmfghM70)
 
 The E Street Band plays "Roll of the Dice" for the very first time and tour premieres "Gloria" at the second of two Reunion shows in Anaheim. This show is available as part of Bruce's official archive series–get it here.
 
 **2000:**<br>
 
-[https://www.youtube.com/embed/mc6fmduuvNg?feature=oembed](https://www.youtube.com/embed/mc6fmduuvNg?feature=oembed)
+[https://www.youtube.com/embed/mc6fmduuvNg](https://www.youtube.com/embed/mc6fmduuvNg)
 
-[https://www.youtube.com/embed/akhaVmN0A0k?feature=oembed](https://www.youtube.com/embed/akhaVmN0A0k?feature=oembed)
+[https://www.youtube.com/embed/akhaVmN0A0k](https://www.youtube.com/embed/akhaVmN0A0k)
 
-[https://www.youtube.com/embed/p8s8nvzmbKo?feature=oembed](https://www.youtube.com/embed/p8s8nvzmbKo?feature=oembed)
+[https://www.youtube.com/embed/p8s8nvzmbKo](https://www.youtube.com/embed/p8s8nvzmbKo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2000-05-22.jpg?resize=443%2C960&amp;ssl=1)
 
@@ -61,17 +61,17 @@ The Rising Tour stops at Arena Aufschalke in Gelsenkirchen, Germany.
 
 **2003:**<br>
 
-[https://www.youtube.com/embed/3dchRxgo_aE?feature=oembed](https://www.youtube.com/embed/3dchRxgo_aE?feature=oembed)
+[https://www.youtube.com/embed/3dchRxgo_aE](https://www.youtube.com/embed/3dchRxgo_aE)
 
 The second European leg of the Magic Tour kicks off with the first of three shows at RDS Arena in Dublin.
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/nmlnbQp2mtk?feature=oembed](https://www.youtube.com/embed/nmlnbQp2mtk?feature=oembed)
+[https://www.youtube.com/embed/nmlnbQp2mtk](https://www.youtube.com/embed/nmlnbQp2mtk)
 
-[https://www.youtube.com/embed/UV4boUARXi8?feature=oembed](https://www.youtube.com/embed/UV4boUARXi8?feature=oembed)
+[https://www.youtube.com/embed/UV4boUARXi8](https://www.youtube.com/embed/UV4boUARXi8)
 
-[https://www.youtube.com/embed/EcX1ECHblrU?feature=oembed](https://www.youtube.com/embed/EcX1ECHblrU?feature=oembed)
+[https://www.youtube.com/embed/EcX1ECHblrU](https://www.youtube.com/embed/EcX1ECHblrU)
 
 : Bruce and Patti perform at a benefit show (along with Jon Stewart) for Gateway Schools at the Nokia Theater in New York City.
 
@@ -81,21 +81,21 @@ Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers fo
 
 **2014:**<br>
 
-[https://www.youtube.com/embed/sOAq73Dv6_I?feature=oembed](https://www.youtube.com/embed/sOAq73Dv6_I?feature=oembed)
+[https://www.youtube.com/embed/sOAq73Dv6_I](https://www.youtube.com/embed/sOAq73Dv6_I)
 
-[https://www.youtube.com/embed/Sv31KH_Q2YQ?feature=oembed](https://www.youtube.com/embed/Sv31KH_Q2YQ?feature=oembed)
+[https://www.youtube.com/embed/Sv31KH_Q2YQ](https://www.youtube.com/embed/Sv31KH_Q2YQ)
 
-[https://www.youtube.com/embed/NxNjNCnh1SU?feature=oembed](https://www.youtube.com/embed/NxNjNCnh1SU?feature=oembed)
+[https://www.youtube.com/embed/NxNjNCnh1SU](https://www.youtube.com/embed/NxNjNCnh1SU)
 
-[https://www.youtube.com/embed/Bg3S2UU4tsQ?feature=oembed](https://www.youtube.com/embed/Bg3S2UU4tsQ?feature=oembed)
+[https://www.youtube.com/embed/Bg3S2UU4tsQ](https://www.youtube.com/embed/Bg3S2UU4tsQ)
 
-[https://www.youtube.com/embed/P2aUYR4R3Qo?feature=oembed](https://www.youtube.com/embed/P2aUYR4R3Qo?feature=oembed)
+[https://www.youtube.com/embed/P2aUYR4R3Qo](https://www.youtube.com/embed/P2aUYR4R3Qo)
 
-[https://www.youtube.com/embed/B8NvUQmihTw?feature=oembed](https://www.youtube.com/embed/B8NvUQmihTw?feature=oembed)
+[https://www.youtube.com/embed/B8NvUQmihTw](https://www.youtube.com/embed/B8NvUQmihTw)
 
-[https://www.youtube.com/embed/-NFLuggl9Ag?feature=oembed](https://www.youtube.com/embed/-NFLuggl9Ag?feature=oembed)
+[https://www.youtube.com/embed/-NFLuggl9Ag](https://www.youtube.com/embed/-NFLuggl9Ag)
 
-[https://www.youtube.com/embed/B8NvUQmihTw?feature=oembed](https://www.youtube.com/embed/B8NvUQmihTw?feature=oembed)
+[https://www.youtube.com/embed/B8NvUQmihTw](https://www.youtube.com/embed/B8NvUQmihTw)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -105,12 +105,12 @@ Bruce opens a rainy show in Sunderland with the tour premiere of "Waitin' on a S
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/VMZJMttAMms?feature=oembed](https://www.youtube.com/embed/VMZJMttAMms?feature=oembed)
+[https://www.youtube.com/embed/VMZJMttAMms](https://www.youtube.com/embed/VMZJMttAMms)
 
-[https://www.youtube.com/embed/W3C_Npr-YGQ?feature=oembed](https://www.youtube.com/embed/W3C_Npr-YGQ?feature=oembed)
+[https://www.youtube.com/embed/W3C_Npr-YGQ](https://www.youtube.com/embed/W3C_Npr-YGQ)
 
 At the Ivors Awards in London, Bruce presents the Special International Award to Brandon Flowers.
 
 **2025:**<br>
 
-[https://www.youtube.com/embed/hDoXY6nput0?feature=oembed](https://www.youtube.com/embed/hDoXY6nput0?feature=oembed)
+[https://www.youtube.com/embed/hDoXY6nput0](https://www.youtube.com/embed/hDoXY6nput0)

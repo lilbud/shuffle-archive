@@ -21,7 +21,7 @@ Bruce and the E Street Band play their first-ever show in Vermont, at the Burlin
 
 **1974:**<br>
 
-[https://www.youtube.com/embed/XlB14zFL3a4?feature=oembed](https://www.youtube.com/embed/XlB14zFL3a4?feature=oembed)
+[https://www.youtube.com/embed/XlB14zFL3a4](https://www.youtube.com/embed/XlB14zFL3a4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1974-12-08a.png?resize=758%2C1161&amp;ssl=1)
 
@@ -35,7 +35,7 @@ Bruce and the E Street Band bring the Darkness Tour to The Summit in Houston, wh
 
 [https://www.youtube.com/embed/LlvzAnYDCjc?list=PLJ3gKh8Ty5pbPagh86u0V1A-eeUwzul1Z](https://www.youtube.com/embed/LlvzAnYDCjc?list=PLJ3gKh8Ty5pbPagh86u0V1A-eeUwzul1Z)
 
-[https://www.youtube.com/embed/i0Xz99joV2Y?feature=oembed](https://www.youtube.com/embed/i0Xz99joV2Y?feature=oembed)
+[https://www.youtube.com/embed/i0Xz99joV2Y](https://www.youtube.com/embed/i0Xz99joV2Y)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/12/The_Houston_Chronicle_1978_12_09_36.jpg?resize=758%2C1425&amp;ssl=1)
 
@@ -45,7 +45,7 @@ Bruce and the boys play their second of three River Tour nights at the Philadelp
 
 [https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F236345246&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F236345246&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
 
-[https://www.youtube.com/embed/6gn4E2g70iw?feature=oembed](https://www.youtube.com/embed/6gn4E2g70iw?feature=oembed)
+[https://www.youtube.com/embed/6gn4E2g70iw](https://www.youtube.com/embed/6gn4E2g70iw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1980-12-08.png?resize=758%2C415&amp;ssl=1)
 
@@ -53,17 +53,17 @@ On Night Two in Philadelphia, Bruce debuts a new song (sort of) when nature call
 
 **1992:** [Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)
 
-[https://www.youtube.com/embed/CC2hnnUR9VM?feature=oembed](https://www.youtube.com/embed/CC2hnnUR9VM?feature=oembed)
+[https://www.youtube.com/embed/CC2hnnUR9VM](https://www.youtube.com/embed/CC2hnnUR9VM)
 
-[https://videopress.com/embed/kc4U9SJP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kc4U9SJP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/kc4U9SJP](https://videopress.com/embed/kc4U9SJP)
 
 Bruce's solo acoustic performance at Philadelphia's Tower Theater is recorded. Much of it will be broadcast on the Columbia Records Radio Hour the following week.
 
 **1995:**<br>
 
-[https://www.youtube.com/embed/NJHhXqGfSvc?feature=oembed](https://www.youtube.com/embed/NJHhXqGfSvc?feature=oembed)
+[https://www.youtube.com/embed/NJHhXqGfSvc](https://www.youtube.com/embed/NJHhXqGfSvc)
 
-[https://www.youtube.com/embed/7FFtfmvmG7U?feature=oembed](https://www.youtube.com/embed/7FFtfmvmG7U?feature=oembed)
+[https://www.youtube.com/embed/7FFtfmvmG7U](https://www.youtube.com/embed/7FFtfmvmG7U)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1995-12-08.png?resize=758%2C1166&amp;ssl=1)
 
@@ -71,7 +71,7 @@ Continuing his European media blitz, Bruce appears on a Swedish talk show, perfo
 
 **1998:**<br>
 
-[https://www.youtube.com/embed/iajdfmZVcLE?feature=oembed](https://www.youtube.com/embed/iajdfmZVcLE?feature=oembed)
+[https://www.youtube.com/embed/iajdfmZVcLE](https://www.youtube.com/embed/iajdfmZVcLE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1998-12-08.png?resize=758%2C2274&amp;ssl=1)
 
@@ -79,17 +79,17 @@ Bruce, The Max Weinberg 7 and a host of friends play their fifth and final holid
 
 **2001:**<br>
 
-[https://videopress.com/embed/jrfYsRuK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jrfYsRuK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jrfYsRuK](https://videopress.com/embed/jrfYsRuK)
 
 Bruce and the E Street Band bring the Rising Tour to the Charlotte Coliseum, where the set list features a rare outing for "."
 
 **2002:** [Where the Bands Are](http://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)
 
-[https://videopress.com/embed/YYmGDuYj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YYmGDuYj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/YYmGDuYj](https://videopress.com/embed/YYmGDuYj)
 
-[https://www.youtube.com/embed/oUi0Gr3y2uY?feature=oembed](https://www.youtube.com/embed/oUi0Gr3y2uY?feature=oembed)
+[https://www.youtube.com/embed/oUi0Gr3y2uY](https://www.youtube.com/embed/oUi0Gr3y2uY)
 
-[https://videopress.com/embed/cS3pgwTL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cS3pgwTL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cS3pgwTL](https://videopress.com/embed/cS3pgwTL)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-08.png?resize=758%2C1278&amp;ssl=1)
 
@@ -97,17 +97,17 @@ Bruce, the Max Weinberg 7, and a host of friends hold their third of a three-pac
 
 **2003:**<br>
 
-[https://videopress.com/embed/AIyBV1Xu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AIyBV1Xu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/AIyBV1Xu](https://videopress.com/embed/AIyBV1Xu)
 
-[https://videopress.com/embed/R4R19Exe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/R4R19Exe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/R4R19Exe](https://videopress.com/embed/R4R19Exe)
 
 Bruce tour premieres "The River" when the Magic Tour stops for a night in Copenhagen.
 
 **2007:**<br>
 
-[https://videopress.com/embed/l0nE1YSr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/l0nE1YSr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/l0nE1YSr](https://videopress.com/embed/l0nE1YSr)
 
-[https://www.youtube.com/embed/BFmivpSBvBo?feature=oembed](https://www.youtube.com/embed/BFmivpSBvBo?feature=oembed)
+[https://www.youtube.com/embed/BFmivpSBvBo](https://www.youtube.com/embed/BFmivpSBvBo)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

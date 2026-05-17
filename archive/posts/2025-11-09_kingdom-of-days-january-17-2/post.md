@@ -15,9 +15,9 @@ On a "rest" day during the Born in the U.S.A. Tour, Bruce and Nils stop by the R
 
 **1990**[Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
 
-[https://videopress.com/embed/xqFLtRiw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xqFLtRiw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xqFLtRiw](https://videopress.com/embed/xqFLtRiw)
 
-[https://www.youtube.com/embed/rSb63bh1WVU?feature=oembed](https://www.youtube.com/embed/rSb63bh1WVU?feature=oembed)
+[https://www.youtube.com/embed/rSb63bh1WVU](https://www.youtube.com/embed/rSb63bh1WVU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1990-01-17.png?resize=758%2C601&amp;ssl=1)
 
@@ -25,31 +25,31 @@ Bruce plays the second of two acoustic shows at the Cleveland Music Hall.
 
 **1996:**<br>
 
-[https://videopress.com/embed/CkoS0nnL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CkoS0nnL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/CkoS0nnL](https://videopress.com/embed/CkoS0nnL)
 
 Bruce rehearses at the Lincoln Memorial for his upcoming performance at Barack Obama's presidential inauguration.
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/7IqJ-yR41Hs?feature=oembed](https://www.youtube.com/embed/7IqJ-yR41Hs?feature=oembed)
+[https://www.youtube.com/embed/7IqJ-yR41Hs](https://www.youtube.com/embed/7IqJ-yR41Hs)
 
 Another "surprise" Light of Day appearance. Bruce plays with Willie Nile, La Bamba's Big Band and Friends, Southside Johnny, and Joe Grushecky and the Houserockers. A highlight of the show: a rare and gorgeous solo performance of "."
 
 **2015:** [Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)
 
-[https://www.youtube.com/embed/lwYr6N4JExc?feature=oembed](https://www.youtube.com/embed/lwYr6N4JExc?feature=oembed)
+[https://www.youtube.com/embed/lwYr6N4JExc](https://www.youtube.com/embed/lwYr6N4JExc)
 
-[https://www.youtube.com/embed/KVXWsen8Lzo?feature=oembed](https://www.youtube.com/embed/KVXWsen8Lzo?feature=oembed)
+[https://www.youtube.com/embed/KVXWsen8Lzo](https://www.youtube.com/embed/KVXWsen8Lzo)
 
-[https://www.youtube.com/embed/psQRJ9pacaY?feature=oembed](https://www.youtube.com/embed/psQRJ9pacaY?feature=oembed)
+[https://www.youtube.com/embed/psQRJ9pacaY](https://www.youtube.com/embed/psQRJ9pacaY)
 
-[https://www.youtube.com/embed/7wsOGTxPDF0?feature=oembed](https://www.youtube.com/embed/7wsOGTxPDF0?feature=oembed)
+[https://www.youtube.com/embed/7wsOGTxPDF0](https://www.youtube.com/embed/7wsOGTxPDF0)
 
-[https://www.youtube.com/embed/AHZiEJCQRgE?feature=oembed](https://www.youtube.com/embed/AHZiEJCQRgE?feature=oembed)
+[https://www.youtube.com/embed/AHZiEJCQRgE](https://www.youtube.com/embed/AHZiEJCQRgE)
 
-[https://www.youtube.com/embed/wzpf-Y8M7tU?feature=oembed](https://www.youtube.com/embed/wzpf-Y8M7tU?feature=oembed)
+[https://www.youtube.com/embed/wzpf-Y8M7tU](https://www.youtube.com/embed/wzpf-Y8M7tU)
 
-[https://videopress.com/embed/aiLMllsi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aiLMllsi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/aiLMllsi](https://videopress.com/embed/aiLMllsi)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Herald_News_2015_01_19_B1.jpg?w=758&amp;ssl=1)
 
@@ -63,7 +63,7 @@ Bruce and Patti chair the U.S. Equestrian Team Foundation's fundraising gala. Af
 
 **2020:**<br>
 
-[https://www.youtube.com/embed/61HO5agQlIs?feature=oembed](https://www.youtube.com/embed/61HO5agQlIs?feature=oembed)
+[https://www.youtube.com/embed/61HO5agQlIs](https://www.youtube.com/embed/61HO5agQlIs)
 
 Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. The opening block of the setlist is now firmly in place.
 

@@ -11,9 +11,9 @@ Bruce and the E Street Band play their first of two nights at Philadelphia's Tow
 
 **1974:** [Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Spanish Harlem](http://estreetshuffle.com/index.php/2018/01/23/cover-me-spanish-harlem/)[It's Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)
 
-[https://www.youtube.com/embed/BFVhLd8EXOk?feature=oembed](https://www.youtube.com/embed/BFVhLd8EXOk?feature=oembed)
+[https://www.youtube.com/embed/BFVhLd8EXOk](https://www.youtube.com/embed/BFVhLd8EXOk)
 
-[https://www.youtube.com/embed/5_6rbaCSVik?feature=oembed](https://www.youtube.com/embed/5_6rbaCSVik?feature=oembed)
+[https://www.youtube.com/embed/5_6rbaCSVik](https://www.youtube.com/embed/5_6rbaCSVik)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1974-11-01-300x189.png?resize=758%2C478)
 
@@ -21,17 +21,17 @@ Bruce and the boys bring the Born to Run Tour to the University of California at
 
 **1975:**<br>
 
-[https://videopress.com/embed/7LA0rFNW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7LA0rFNW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/7LA0rFNW](https://videopress.com/embed/7LA0rFNW)
 
 The final leg of the Darkness Tour kicks off at Princeton University, where rambunctious fans cause damage to the host gymnasium and an early version of "" receives its world premiere. Check out that first performance, plus the show's soundcheck below.
 
 **1978:** [The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)
 
-[https://www.youtube.com/embed/FjpvTgu7qpU?feature=oembed](https://www.youtube.com/embed/FjpvTgu7qpU?feature=oembed)
+[https://www.youtube.com/embed/FjpvTgu7qpU](https://www.youtube.com/embed/FjpvTgu7qpU)
 
-[https://www.youtube.com/embed/9gwdqU99jP0?feature=oembed](https://www.youtube.com/embed/9gwdqU99jP0?feature=oembed)
+[https://www.youtube.com/embed/9gwdqU99jP0](https://www.youtube.com/embed/9gwdqU99jP0)
 
-[https://videopress.com/embed/UialDtrj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UialDtrj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/UialDtrj](https://videopress.com/embed/UialDtrj)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/11/The_Central_New_Jersey_Home_News_1978_11_12_52.jpg?w=758&amp;ssl=1)
 
@@ -39,9 +39,9 @@ Bruce officially lands his first Number One album when reaches the top of the al
 
 **1980:** *The River*[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)[Fade Away](http://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)[Sweet Little Sixteen](http://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)[The Price You Pay](http://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)
 
-[https://videopress.com/embed/JQgFuHY7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JQgFuHY7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/JQgFuHY7](https://videopress.com/embed/JQgFuHY7)
 
-[https://www.youtube.com/embed/YCObGm0etTQ?feature=oembed](https://www.youtube.com/embed/YCObGm0etTQ?feature=oembed)
+[https://www.youtube.com/embed/YCObGm0etTQ](https://www.youtube.com/embed/YCObGm0etTQ)
 
 is certified 10x multi-platinum by the Recording Industry Association of America.
 
@@ -53,7 +53,7 @@ Bruce makes his fourth straight annual appearance at Light of Day IV at The Ston
 
 **2003:** [Light of Day](http://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)
 
-[https://videopress.com/embed/JL3UesHO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JL3UesHO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/JL3UesHO](https://videopress.com/embed/JL3UesHO)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2003-11-01-300x193.png?resize=758%2C488)
 
@@ -61,7 +61,7 @@ Bruce performs three songs at a political rally for U.S. presidential candidate 
 
 **2004:** [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)
 
-[https://www.youtube.com/embed/MIPO7B51iMw?feature=oembed](https://www.youtube.com/embed/MIPO7B51iMw?feature=oembed)
+[https://www.youtube.com/embed/MIPO7B51iMw](https://www.youtube.com/embed/MIPO7B51iMw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/2004-11-01.png?resize=758%2C732&amp;ssl=1)
 
@@ -85,19 +85,19 @@ Bruce appears at the Rome Film Festival to promote his new film, .
 
 **2010:** *The Promise: The Making of Darkness on the Edge of Town*
 
-[https://www.youtube.com/embed/zfikSZVx6i4?feature=oembed](https://www.youtube.com/embed/zfikSZVx6i4?feature=oembed)
+[https://www.youtube.com/embed/zfikSZVx6i4](https://www.youtube.com/embed/zfikSZVx6i4)
 
 An amazing Wrecking Ball show at Penn State University–Bruce opens with only the fifth-ever performance of "," plays a rare "," and closes the show with his very first "regular" concert performance of "."
 
 **2012:** [Lion's Den](http://estreetshuffle.com/index.php/2019/06/21/roll-of-the-dice-lions-den/)[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)[Shout](http://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/)
 
-[https://www.youtube.com/embed/Mg6QewZ61pE?feature=oembed](https://www.youtube.com/embed/Mg6QewZ61pE?feature=oembed)
+[https://www.youtube.com/embed/Mg6QewZ61pE](https://www.youtube.com/embed/Mg6QewZ61pE)
 
-[https://www.youtube.com/embed/lnKLAXlC7to?feature=oembed](https://www.youtube.com/embed/lnKLAXlC7to?feature=oembed)
+[https://www.youtube.com/embed/lnKLAXlC7to](https://www.youtube.com/embed/lnKLAXlC7to)
 
-[https://www.youtube.com/embed/8jJqkVP-2nU?feature=oembed](https://www.youtube.com/embed/8jJqkVP-2nU?feature=oembed)
+[https://www.youtube.com/embed/8jJqkVP-2nU](https://www.youtube.com/embed/8jJqkVP-2nU)
 
-[https://www.youtube.com/embed/VhbqyzbFpZE?feature=oembed](https://www.youtube.com/embed/VhbqyzbFpZE?feature=oembed)
+[https://www.youtube.com/embed/VhbqyzbFpZE](https://www.youtube.com/embed/VhbqyzbFpZE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2012-11-01a-300x119.png?resize=758%2C301)
 
@@ -107,11 +107,11 @@ Bruce makes another appearance at Stand Up for Heroes, this time joining Jon Ste
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/KseCLTBeW_4?feature=oembed](https://www.youtube.com/embed/KseCLTBeW_4?feature=oembed)
+[https://www.youtube.com/embed/KseCLTBeW_4](https://www.youtube.com/embed/KseCLTBeW_4)
 
-[https://www.youtube.com/embed/dDbD-N4vZCU?feature=oembed](https://www.youtube.com/embed/dDbD-N4vZCU?feature=oembed)
+[https://www.youtube.com/embed/dDbD-N4vZCU](https://www.youtube.com/embed/dDbD-N4vZCU)
 
-[https://www.youtube.com/embed/PgSoiZA_2WM?feature=oembed](https://www.youtube.com/embed/PgSoiZA_2WM?feature=oembed)
+[https://www.youtube.com/embed/PgSoiZA_2WM](https://www.youtube.com/embed/PgSoiZA_2WM)
 
 continues its run at the Walter Kerr Theater in New York City. In attendance tonight: Clive Davis.
 

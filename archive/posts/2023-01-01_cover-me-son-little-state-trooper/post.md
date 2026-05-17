@@ -7,7 +7,7 @@ His cover of "" will give you chills, which is entirely appropriate given that B
 
 [State Trooper](http://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)*Nebraska*
 
-[https://www.youtube.com/embed/xXM4qpzwATU?feature=oembed](https://www.youtube.com/embed/xXM4qpzwATU?feature=oembed)
+[https://www.youtube.com/embed/xXM4qpzwATU](https://www.youtube.com/embed/xXM4qpzwATU)
 
 Little released the track on his Soundcloud page in August 2016 without any fanfare or commentary, so we're left to guess at why this track speaks to him and why he chose to cover and release it.
 

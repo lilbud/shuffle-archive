@@ -5,7 +5,7 @@ Bruce stops by KLOL-FM in Houston in the afternoon for an interview with DJ Ed B
 
 **1974:**<br>
 
-[https://www.youtube.com/embed/kzXpb_tv7-0?feature=oembed](https://www.youtube.com/embed/kzXpb_tv7-0?feature=oembed)
+[https://www.youtube.com/embed/kzXpb_tv7-0](https://www.youtube.com/embed/kzXpb_tv7-0)
 
 That evening, Bruce and the (still unnamed) E Street Band play two shows at Liberty Hall.
 
@@ -13,7 +13,7 @@ The first of two nights at DAR Constitution Hall in Washington, DC.
 
 **1975:**<br>
 
-[https://videopress.com/embed/4B0zuMOh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4B0zuMOh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4B0zuMOh](https://videopress.com/embed/4B0zuMOh)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1975-0308.jpg?resize=758%2C1236&amp;ssl=1)
 
@@ -21,13 +21,13 @@ In a Los Angeles recording studio, Bruce gives his song "" to Donna Summer and p
 
 **1982:** [Protection](https://estreetshuffle.com/index.php/2021/12/26/rotd-cover-me-donna-summer-protection/)
 
-[https://www.youtube.com/embed/hBzoIJdPiZI?feature=oembed](https://www.youtube.com/embed/hBzoIJdPiZI?feature=oembed)
+[https://www.youtube.com/embed/hBzoIJdPiZI](https://www.youtube.com/embed/hBzoIJdPiZI)
 
 The Tunnel of Love Express Tour stops in Philadelphia for the first of two nights.
 
 **1988:**<br>
 
-[https://videopress.com/embed/kJVz376X?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kJVz376X?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/kJVz376X](https://videopress.com/embed/kJVz376X)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-08a.jpg?resize=758%2C959&amp;ssl=1)
 
@@ -37,9 +37,9 @@ Bruce plays with The Wallflowers at Tradewinds in Sea Bright, New Jersey. Fan fo
 
 **1997:** [Brand New Cadillac](http://estreetshuffle.com/index.php/2019/02/07/matr-bruce-springsteen-and-the-wallflowers-brand-new-cadillac/)
 
-[https://www.youtube.com/embed/naXXxj6IGqY?feature=oembed](https://www.youtube.com/embed/naXXxj6IGqY?feature=oembed)
+[https://www.youtube.com/embed/naXXxj6IGqY](https://www.youtube.com/embed/naXXxj6IGqY)
 
-[https://www.youtube.com/embed/l5K3p6FWeEY?feature=oembed](https://www.youtube.com/embed/l5K3p6FWeEY?feature=oembed)
+[https://www.youtube.com/embed/l5K3p6FWeEY](https://www.youtube.com/embed/l5K3p6FWeEY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1997-03-08-300x178.jpg?resize=758%2C450)
 
@@ -69,6 +69,6 @@ At the Fire Department Building in his hometown of Freehold, Bruce appears at a 
 
 **2022:** *My Hometown: The Bruce Springsteen Story Center*,
 
-[https://www.youtube.com/embed/L8QCaf28KRU?feature=oembed](https://www.youtube.com/embed/L8QCaf28KRU?feature=oembed)
+[https://www.youtube.com/embed/L8QCaf28KRU](https://www.youtube.com/embed/L8QCaf28KRU)
 
-[https://www.youtube.com/embed/GN5IqJloo4Q?feature=oembed](https://www.youtube.com/embed/GN5IqJloo4Q?feature=oembed)
+[https://www.youtube.com/embed/GN5IqJloo4Q](https://www.youtube.com/embed/GN5IqJloo4Q)

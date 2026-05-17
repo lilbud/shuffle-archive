@@ -3,4 +3,4 @@ Ed Sheeran hails from pretty far away from , but that doesn't stop him from turn
 
 [Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)*Nebraska*
 
-[https://www.youtube.com/embed/tXGqhViirVE?feature=oembed](https://www.youtube.com/embed/tXGqhViirVE?feature=oembed)
+[https://www.youtube.com/embed/tXGqhViirVE](https://www.youtube.com/embed/tXGqhViirVE)

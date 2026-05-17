@@ -5,11 +5,11 @@ Bruce counts Buddy Holly among his big influences, so it's not surprising that B
 
 Here's the last performance from that tour, from the August 4, 1978 show in Charleston, West Virginia.
 
-[https://www.youtube.com/embed/KVtZ8m3fyZY?feature=oembed](https://www.youtube.com/embed/KVtZ8m3fyZY?feature=oembed)
+[https://www.youtube.com/embed/KVtZ8m3fyZY](https://www.youtube.com/embed/KVtZ8m3fyZY)
 
 You're probably familiar with Buddy Holly's version already–so here's the Sonny West original.
 
-[https://www.youtube.com/embed/TlcjdSJwI5k?feature=oembed](https://www.youtube.com/embed/TlcjdSJwI5k?feature=oembed)
+[https://www.youtube.com/embed/TlcjdSJwI5k](https://www.youtube.com/embed/TlcjdSJwI5k)
 
 July 29, 1978 (St. Petersburg, FL)
 March 17, 1996 (Dublin, Ireland)

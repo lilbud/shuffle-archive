@@ -13,13 +13,13 @@ Bruce records "Night" at the Record Plant in New York City.
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/MMuFg-ntDKI?feature=oembed](https://www.youtube.com/embed/MMuFg-ntDKI?feature=oembed)
+[https://www.youtube.com/embed/MMuFg-ntDKI](https://www.youtube.com/embed/MMuFg-ntDKI)
 
 Night Two at the Municipal Auditorium Theater in Mobile, Alabama on the Chicken Scratch Tour.
 
 **1976:**<br>
 
-[https://videopress.com/embed/1U5KUucD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1U5KUucD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1U5KUucD](https://videopress.com/embed/1U5KUucD)
 
 Less than a month before the release of , Bruce is at the Record Plant in New York city, working on mixing and overdubs.
 
@@ -29,19 +29,19 @@ Bruce records "Wages of Sin" at the Power Station in New York City. It won't see
 
 **1982:**<br>
 
-[https://www.youtube.com/embed/U5i69qRqL_0?feature=oembed](https://www.youtube.com/embed/U5i69qRqL_0?feature=oembed)
+[https://www.youtube.com/embed/U5i69qRqL_0](https://www.youtube.com/embed/U5i69qRqL_0)
 
 Bruce plays "Cautious Man" for the very first time (and the very last for 17 years) at Night Two in Bloomington. This show also features the premiere of "Boom Boom."
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/4VtfZH44nqk?feature=oembed](https://www.youtube.com/embed/4VtfZH44nqk?feature=oembed)
+[https://www.youtube.com/embed/4VtfZH44nqk](https://www.youtube.com/embed/4VtfZH44nqk)
 
 [https://videopress.com/embed/NKEsi6O4?hd=0&amp;cover=1](https://videopress.com/embed/NKEsi6O4?hd=0&amp;cover=1)
 
-[https://www.youtube.com/embed/QENXHalKvSc?feature=oembed](https://www.youtube.com/embed/QENXHalKvSc?feature=oembed)
+[https://www.youtube.com/embed/QENXHalKvSc](https://www.youtube.com/embed/QENXHalKvSc)
 
-[https://www.youtube.com/embed/HNUqIApF_pA?feature=oembed](https://www.youtube.com/embed/HNUqIApF_pA?feature=oembed)
+[https://www.youtube.com/embed/HNUqIApF_pA](https://www.youtube.com/embed/HNUqIApF_pA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-10a.jpg?resize=758%2C485&amp;ssl=1)
 
@@ -51,27 +51,27 @@ Night Two for Bruce in Warsaw during his first visit to Poland features the fina
 
 **1997:**<br>
 
-[https://videopress.com/embed/I8Terzq8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/I8Terzq8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/I8Terzq8](https://videopress.com/embed/I8Terzq8)
 
 The Rising tour moves on to Ludwigshafen, Germany, where Bruce opens the show with an acoustic "This Hard Land."
 
 **2003:**<br>
 
-[https://videopress.com/embed/CWBvkuN4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CWBvkuN4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/CWBvkuN4](https://videopress.com/embed/CWBvkuN4)
 
-[https://www.youtube.com/embed/-uokhJWDSw8?feature=oembed](https://www.youtube.com/embed/-uokhJWDSw8?feature=oembed)
+[https://www.youtube.com/embed/-uokhJWDSw8](https://www.youtube.com/embed/-uokhJWDSw8)
 
-[https://www.youtube.com/embed/hr5z5mutux8?feature=oembed](https://www.youtube.com/embed/hr5z5mutux8?feature=oembed)
+[https://www.youtube.com/embed/hr5z5mutux8](https://www.youtube.com/embed/hr5z5mutux8)
 
-[https://www.youtube.com/embed/9y4MNfcnTYk?feature=oembed](https://www.youtube.com/embed/9y4MNfcnTYk?feature=oembed)
+[https://www.youtube.com/embed/9y4MNfcnTYk](https://www.youtube.com/embed/9y4MNfcnTYk)
 
-[https://www.youtube.com/embed/0fEpHXcFNUk?feature=oembed](https://www.youtube.com/embed/0fEpHXcFNUk?feature=oembed)
+[https://www.youtube.com/embed/0fEpHXcFNUk](https://www.youtube.com/embed/0fEpHXcFNUk)
 
 At his solo acoustic show at the Xcel Energy Center in St. Paul, Bruce performs "A Good Man is Hard to Find (Pittsburgh)" for the very first time, in honor of fallen Sgt. Gerald Vick, who was killed in the line of duty a few days earlier. "Paradise" is a tour premiere, along with the electric piano on which Bruce plays it.
 
 **2005:**<br>
 
-[https://www.youtube.com/embed/AjEjoHqz4LA?feature=oembed](https://www.youtube.com/embed/AjEjoHqz4LA?feature=oembed)
+[https://www.youtube.com/embed/AjEjoHqz4LA](https://www.youtube.com/embed/AjEjoHqz4LA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/Star_Tribune_2005_05_11_B5.jpg?resize=758%2C826&amp;ssl=1)
 
@@ -79,20 +79,20 @@ The Seeger Sessions Tour moves on to Paris, where Bruce premieres "Bring ‘Em H
 
 **2006:**<br>
 
-[https://www.youtube.com/embed/aTMpLFLVjJI?feature=oembed](https://www.youtube.com/embed/aTMpLFLVjJI?feature=oembed)
+[https://www.youtube.com/embed/aTMpLFLVjJI](https://www.youtube.com/embed/aTMpLFLVjJI)
 
-[https://www.youtube.com/embed/y9-xdvCWCi8?feature=oembed](https://www.youtube.com/embed/y9-xdvCWCi8?feature=oembed)
+[https://www.youtube.com/embed/y9-xdvCWCi8](https://www.youtube.com/embed/y9-xdvCWCi8)
 
-[https://www.youtube.com/embed/4x2g9s9-kRU?feature=oembed](https://www.youtube.com/embed/4x2g9s9-kRU?feature=oembed)
+[https://www.youtube.com/embed/4x2g9s9-kRU](https://www.youtube.com/embed/4x2g9s9-kRU)
 
-[https://www.youtube.com/embed/uWvDD6Fy48Y?feature=oembed](https://www.youtube.com/embed/uWvDD6Fy48Y?feature=oembed)
+[https://www.youtube.com/embed/uWvDD6Fy48Y](https://www.youtube.com/embed/uWvDD6Fy48Y)
 
-[https://videopress.com/embed/JHwPAK0b?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JHwPAK0b?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/JHwPAK0b](https://videopress.com/embed/JHwPAK0b)
 
-[https://videopress.com/embed/laV0TcCl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/laV0TcCl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/laV0TcCl](https://videopress.com/embed/laV0TcCl)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-[https://videopress.com/embed/uGGWtaZo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uGGWtaZo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uGGWtaZo](https://videopress.com/embed/uGGWtaZo)

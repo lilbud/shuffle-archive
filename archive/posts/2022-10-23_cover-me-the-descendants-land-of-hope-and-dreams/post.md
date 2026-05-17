@@ -7,6 +7,6 @@ And when it comes to covers, they don't get more inspirational than Bruce Spring
 
 [Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)
 
-[https://www.youtube.com/embed/ofXAxQ8Dsmc?feature=oembed](https://www.youtube.com/embed/ofXAxQ8Dsmc?feature=oembed)
+[https://www.youtube.com/embed/ofXAxQ8Dsmc](https://www.youtube.com/embed/ofXAxQ8Dsmc)
 
 Their version (recorded live) starts simply and acoustically, but just past the halfway point the song opens up, and the band takes off and never looks back. It's a fine addition to the collection of covers of one of Bruce's very best songs.

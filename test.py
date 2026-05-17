@@ -49,6 +49,11 @@ with load_db() as conn, conn.cursor() as cur:
     for file in folder.glob("**/*.md"):
         print(file.parent.name)
         content = file.read_text(encoding="utf-8")
-        content = re.sub(r"'\]", "", content, flags=re.MULTILINE)
+        content = re.sub(
+            r"\?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata",
+            "",
+            content,
+            flags=re.MULTILINE,
+        )
 
         file.write_text(content, encoding="utf-8")

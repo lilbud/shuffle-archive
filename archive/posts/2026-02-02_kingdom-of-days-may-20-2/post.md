@@ -9,13 +9,13 @@ Bruce and his new touring band rehearse for their upcoming tour on a Hollywood s
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed](https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed)
+[https://www.youtube.com/embed/V8GA_hlYbzg](https://www.youtube.com/embed/V8GA_hlYbzg)
 
 Not one but two guest-stars when Bruce's World Tour 1993 stops at the RDS Arena in Dublin: Joe Ely joins Bruce for Joe's "Settle for Love" (which the two played at Joe's show the night before), and Jerry Lee Lewis joined Bruce for encores of "Great Balls of Fire" and "Whole Lotta Shakin' Goin' On." Despite the special guests, the show is poorly reviewed by local press.
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/JkrlvfNoivc?feature=oembed](https://www.youtube.com/embed/JkrlvfNoivc?feature=oembed)
+[https://www.youtube.com/embed/JkrlvfNoivc](https://www.youtube.com/embed/JkrlvfNoivc)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDzppKusEmmORcXq2EtkfRa](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDzppKusEmmORcXq2EtkfRa)
 
@@ -47,4 +47,4 @@ Bruce and the E Street Band play their last of three nights at Co-op Live in Man
 
 **2025:**<br>
 
-[https://www.youtube.com/embed/IAVJ1nh2gzg?feature=oembed](https://www.youtube.com/embed/IAVJ1nh2gzg?feature=oembed)
+[https://www.youtube.com/embed/IAVJ1nh2gzg](https://www.youtube.com/embed/IAVJ1nh2gzg)

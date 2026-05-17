@@ -3,4 +3,4 @@ Oklahoma singer-songwriter John Moreland's gruff voice makes him a natural fit f
 
 Here's his take on it, recorded in the studio in 2015.
 
-[https://www.youtube.com/embed/Jub6cg_UhcQ?feature=oembed](https://www.youtube.com/embed/Jub6cg_UhcQ?feature=oembed)
+[https://www.youtube.com/embed/Jub6cg_UhcQ](https://www.youtube.com/embed/Jub6cg_UhcQ)

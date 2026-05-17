@@ -5,7 +5,7 @@ Italian conductor Luigi Caiola arranged an orchestral overlay and recorded the t
 
 The result was an absolutely gorgeous and romantic piece of music, officially released on a Morricone tribute album in February 2007.
 
-[https://www.youtube.com/embed/CBTy5EF7upk?feature=oembed](https://www.youtube.com/embed/CBTy5EF7upk?feature=oembed)
+[https://www.youtube.com/embed/CBTy5EF7upk](https://www.youtube.com/embed/CBTy5EF7upk)
 
 July-August 2006
 (2007)

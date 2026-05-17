@@ -5,9 +5,9 @@ Bruce and the band play the Agora in Cleveland. The show is recorded by WMMS-FM 
 
 **1974:** [You Never Can Tell](https://www.youtube.com/watch?v=cAhFjk05aaM)[Let the Four Winds Blow](https://estreetshuffle.com/index.php/2022/02/24/cover-me-let-the-four-winds-blow/)
 
-[https://www.youtube.com/embed/Clmk7R1mlTI?feature=oembed](https://www.youtube.com/embed/Clmk7R1mlTI?feature=oembed)
+[https://www.youtube.com/embed/Clmk7R1mlTI](https://www.youtube.com/embed/Clmk7R1mlTI)
 
-[https://www.youtube.com/embed/V_MSbAcVExM?feature=oembed](https://www.youtube.com/embed/V_MSbAcVExM?feature=oembed)
+[https://www.youtube.com/embed/V_MSbAcVExM](https://www.youtube.com/embed/V_MSbAcVExM)
 
 Recording continues for Bruce's fourth album. Today the band works on "," "," and "."
 
@@ -17,7 +17,7 @@ The Darkness Tour stops at the Nassau Coliseum in Uniondale, New York. Bruce tou
 
 **1978:** [4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
-[https://videopress.com/embed/hOUDtFAd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hOUDtFAd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/hOUDtFAd](https://videopress.com/embed/hOUDtFAd)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1978-0603.jpg?resize=758%2C1249&amp;ssl=1)
 
@@ -37,11 +37,11 @@ Reunion Night Two in Paris brings a setlist shake-up, featuring the first-ever p
 
 **1999:** [Lion's Den](http://estreetshuffle.com/index.php/2019/06/21/roll-of-the-dice-lions-den/)[Loose Ends,](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)
 
-[https://www.youtube.com/embed/l7GHh5unGfg?feature=oembed](https://www.youtube.com/embed/l7GHh5unGfg?feature=oembed)
+[https://www.youtube.com/embed/l7GHh5unGfg](https://www.youtube.com/embed/l7GHh5unGfg)
 
-[https://www.youtube.com/embed/8CgiUjpqmQY?feature=oembed](https://www.youtube.com/embed/8CgiUjpqmQY?feature=oembed)
+[https://www.youtube.com/embed/8CgiUjpqmQY](https://www.youtube.com/embed/8CgiUjpqmQY)
 
-[https://videopress.com/embed/KajRzjKw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KajRzjKw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/KajRzjKw](https://videopress.com/embed/KajRzjKw)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDmiDy9PJp1SFjbNX61zqmq](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDmiDy9PJp1SFjbNX61zqmq)
 
@@ -49,7 +49,7 @@ The Reunion Tour enters its final month with the first of two nights at Philips 
 
 **2000:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-[https://videopress.com/embed/jyjJsCaU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jyjJsCaU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jyjJsCaU](https://videopress.com/embed/jyjJsCaU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-06-02-300x284.jpg?resize=758%2C718)
 
@@ -57,11 +57,11 @@ Nils guest-stars on "" (and enjoys the show from the pit!) when the Seeger Sessi
 
 **2006:** [Pay Me My Money Down](http://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)[report](http://estreetshuffle.com/index.php/2018/06/03/where-the-band-was-glendale-june-3-2006/)*Where the Band Was*
 
-[https://videopress.com/embed/4kABHXOv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4kABHXOv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4kABHXOv](https://videopress.com/embed/4kABHXOv)
 
-[https://videopress.com/embed/1qRVUZKR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1qRVUZKR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1qRVUZKR](https://videopress.com/embed/1qRVUZKR)
 
-[https://www.youtube.com/embed/rV8Coai6W0k?feature=oembed](https://www.youtube.com/embed/rV8Coai6W0k?feature=oembed)
+[https://www.youtube.com/embed/rV8Coai6W0k](https://www.youtube.com/embed/rV8Coai6W0k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/06/The_Arizona_Republic_2006_06_07_Page_458-scaled.jpg?resize=758%2C900&amp;ssl=1)
 
@@ -69,27 +69,27 @@ In Lisbon's Bela Vista Park, Bruce and the E Street Band headline Rock in Rio. (
 
 **2012:**<br>
 
-[https://videopress.com/embed/KbsRPLnm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KbsRPLnm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/KbsRPLnm](https://videopress.com/embed/KbsRPLnm)
 
-[https://www.youtube.com/embed/4xz4QdYeTDM?feature=oembed](https://www.youtube.com/embed/4xz4QdYeTDM?feature=oembed)
+[https://www.youtube.com/embed/4xz4QdYeTDM](https://www.youtube.com/embed/4xz4QdYeTDM)
 
 Bruce plays San Siro in Milan, always the site of amazing shows. Bruce delivers a full album performance of along with the tour premiere of "."
 
 **2013:** *Born in the U.S.A.*, [Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
 
-[https://videopress.com/embed/AMvoPOh4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AMvoPOh4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/AMvoPOh4](https://videopress.com/embed/AMvoPOh4)
 
-[https://videopress.com/embed/Xbgy7LJ6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Xbgy7LJ6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Xbgy7LJ6](https://videopress.com/embed/Xbgy7LJ6)
 
 A stunning River show in Coventry, England: Bruce opens with the tour premieres of "" and "," and tour premieres "," "Travelin' Band," and "" as well.
 
 **2016:** [For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[Save My Love](http://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/)[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)
 
-[https://www.youtube.com/embed/QWZTduaV8vY?feature=oembed](https://www.youtube.com/embed/QWZTduaV8vY?feature=oembed)
+[https://www.youtube.com/embed/QWZTduaV8vY](https://www.youtube.com/embed/QWZTduaV8vY)
 
-[https://www.youtube.com/embed/yVI_YWnlTmI?feature=oembed](https://www.youtube.com/embed/yVI_YWnlTmI?feature=oembed)
+[https://www.youtube.com/embed/yVI_YWnlTmI](https://www.youtube.com/embed/yVI_YWnlTmI)
 
-[https://www.youtube.com/embed/qsosWEaYqwg?feature=oembed](https://www.youtube.com/embed/qsosWEaYqwg?feature=oembed)
+[https://www.youtube.com/embed/qsosWEaYqwg](https://www.youtube.com/embed/qsosWEaYqwg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Penarth_Times_Thu__Jun_9__2016_-scaled.jpg?resize=758%2C1394&amp;ssl=1)
 

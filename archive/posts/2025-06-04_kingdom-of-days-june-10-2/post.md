@@ -15,9 +15,9 @@ When the Darkness Tour stops in Bloomington, Minnesota, snippets of several song
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/m0EoHOCSym4?feature=oembed](https://www.youtube.com/embed/m0EoHOCSym4?feature=oembed)
+[https://www.youtube.com/embed/m0EoHOCSym4](https://www.youtube.com/embed/m0EoHOCSym4)
 
-[https://www.youtube.com/embed/LH4de0n_t9U?feature=oembed](https://www.youtube.com/embed/LH4de0n_t9U?feature=oembed)
+[https://www.youtube.com/embed/LH4de0n_t9U](https://www.youtube.com/embed/LH4de0n_t9U)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-06-10a-266x300.jpg?resize=758%2C855)
 
@@ -39,15 +39,15 @@ Bruce and the E Street Band play a warm-up set at Stadio Comunale in Turin, the 
 
 **2003:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)
 
-[https://www.youtube.com/embed/vyyQCkZul3I?feature=oembed](https://www.youtube.com/embed/vyyQCkZul3I?feature=oembed)
+[https://www.youtube.com/embed/vyyQCkZul3I](https://www.youtube.com/embed/vyyQCkZul3I)
 
-[https://www.youtube.com/embed/EhgTAmIdbZM?feature=oembed](https://www.youtube.com/embed/EhgTAmIdbZM?feature=oembed)
+[https://www.youtube.com/embed/EhgTAmIdbZM](https://www.youtube.com/embed/EhgTAmIdbZM)
 
-[https://www.youtube.com/embed/R6mW7rhr37c?feature=oembed](https://www.youtube.com/embed/R6mW7rhr37c?feature=oembed)
+[https://www.youtube.com/embed/R6mW7rhr37c](https://www.youtube.com/embed/R6mW7rhr37c)
 
-[https://videopress.com/embed/AToQ8tHh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AToQ8tHh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/AToQ8tHh](https://videopress.com/embed/AToQ8tHh)
 
-[https://www.youtube.com/embed/D2GwqWnz8Dk?feature=oembed](https://www.youtube.com/embed/D2GwqWnz8Dk?feature=oembed)
+[https://www.youtube.com/embed/D2GwqWnz8Dk](https://www.youtube.com/embed/D2GwqWnz8Dk)
 
 Also on this date in 2003: the BBC premieres a three-part series narrated by Johnnie Walker, profiling Bruce's life and career.
 
@@ -57,9 +57,9 @@ The Seeger Sessions Tour stops at the Wells Fargo Arena in Des Moines, Iowa.
 
 **2006:**<br>
 
-[https://videopress.com/embed/DrAHXxgk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DrAHXxgk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/DrAHXxgk](https://videopress.com/embed/DrAHXxgk)
 
-[https://videopress.com/embed/opayhzP9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/opayhzP9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/opayhzP9](https://videopress.com/embed/opayhzP9)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2006-06-10-269x300.jpg?resize=758%2C846)
 
@@ -67,31 +67,31 @@ At Night Two in Bergen on the Working on a Dream Tour, Bruce treats Norwegian fa
 
 **2009:** [Boom Boom](http://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)[Two Hearts.](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)
 
-[https://www.youtube.com/embed/FqnIxkrtA48?feature=oembed](https://www.youtube.com/embed/FqnIxkrtA48?feature=oembed)
+[https://www.youtube.com/embed/FqnIxkrtA48](https://www.youtube.com/embed/FqnIxkrtA48)
 
-[https://www.youtube.com/embed/6rSQee5iRsk?feature=oembed](https://www.youtube.com/embed/6rSQee5iRsk?feature=oembed)
+[https://www.youtube.com/embed/6rSQee5iRsk](https://www.youtube.com/embed/6rSQee5iRsk)
 
 The Italian leg of the Wrecking Ball Tour continues with a show at Stadio Artemio Franchi in Florence, where fans witness the tour premieres of "" and "."
 
 **2012:** [Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)[Burning Love](http://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/)
 
-[https://www.youtube.com/embed/lUSZtl0sQPo?feature=oembed](https://www.youtube.com/embed/lUSZtl0sQPo?feature=oembed)
+[https://www.youtube.com/embed/lUSZtl0sQPo](https://www.youtube.com/embed/lUSZtl0sQPo)
 
-[https://www.youtube.com/embed/D-wa_zByHMw?feature=oembed](https://www.youtube.com/embed/D-wa_zByHMw?feature=oembed)
+[https://www.youtube.com/embed/D-wa_zByHMw](https://www.youtube.com/embed/D-wa_zByHMw)
 
-[https://www.youtube.com/embed/j9U-OV0Jmm4?feature=oembed](https://www.youtube.com/embed/j9U-OV0Jmm4?feature=oembed)
+[https://www.youtube.com/embed/j9U-OV0Jmm4](https://www.youtube.com/embed/j9U-OV0Jmm4)
 
 Bruce arrives in London for his Wrecking Ball show and sings "" (in support of ONE) with an acoustic guitar from the balcony of MTV Networks Europe. Watch the performance below–the video is wonderfully shot and recorded.
 
 **2013:** [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
 
-[https://www.youtube.com/embed/NtAlPiVtqD0?feature=oembed](https://www.youtube.com/embed/NtAlPiVtqD0?feature=oembed)
+[https://www.youtube.com/embed/NtAlPiVtqD0](https://www.youtube.com/embed/NtAlPiVtqD0)
 
 Bruce receives a special Tony Award from Billy Joel for . He performs "" at the televised ceremonies (introduced by Robert De Niro), along with an abridged version of its introduction from the show.
 
 **2018:** *Springsteen on Broadway*[My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
 
-[https://videopress.com/embed/VuOKNznQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VuOKNznQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VuOKNznQ](https://videopress.com/embed/VuOKNznQ)
 
 Bruce phones in to E Street Radio and talks about the upcoming return of .
 

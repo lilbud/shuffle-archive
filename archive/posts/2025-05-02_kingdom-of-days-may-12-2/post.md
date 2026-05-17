@@ -17,7 +17,7 @@ When Southside Johnny takes ill and can't perform, Steve Van Zandt transforms th
 
 **1977:**<br>
 
-[https://www.youtube.com/embed/9lkVrhUwyAU?feature=oembed](https://www.youtube.com/embed/9lkVrhUwyAU?feature=oembed)
+[https://www.youtube.com/embed/9lkVrhUwyAU](https://www.youtube.com/embed/9lkVrhUwyAU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1977-05-12a-300x137.jpg?resize=758%2C346)
 
@@ -35,13 +35,13 @@ The BBC premieres a new documentary on Bruce, entitled . It's well worth a watch
 
 **1987:** *Glory Days*
 
-[https://videopress.com/embed/6s57razJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6s57razJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/6s57razJ](https://videopress.com/embed/6s57razJ)
 
 Also today, Little Steven releases his third solo album, . Bruce contributes vocals to one track, "."
 
 *Freedom–No Compromise*[Native American](http://estreetshuffle.com/index.php/2019/10/25/matr-little-steven-and-bruce-springsteen-native-american/)
 
-[https://www.youtube.com/embed/_2CmMfqwVn8?feature=oembed](https://www.youtube.com/embed/_2CmMfqwVn8?feature=oembed)
+[https://www.youtube.com/embed/_2CmMfqwVn8](https://www.youtube.com/embed/_2CmMfqwVn8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1987-05-12.jpg?resize=758%2C1173&amp;ssl=1)
 
@@ -49,11 +49,11 @@ Bruce plays his first-ever show in the Czech Republic, an acoustic show at Pragu
 
 **1997:**<br>
 
-[https://www.youtube.com/embed/eMbKtLHR_9A?feature=oembed](https://www.youtube.com/embed/eMbKtLHR_9A?feature=oembed)
+[https://www.youtube.com/embed/eMbKtLHR_9A](https://www.youtube.com/embed/eMbKtLHR_9A)
 
-[https://www.youtube.com/embed/Yl1jZh9yCkU?feature=oembed](https://www.youtube.com/embed/Yl1jZh9yCkU?feature=oembed)
+[https://www.youtube.com/embed/Yl1jZh9yCkU](https://www.youtube.com/embed/Yl1jZh9yCkU)
 
-[https://videopress.com/embed/xuNzuoki?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xuNzuoki?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xuNzuoki](https://videopress.com/embed/xuNzuoki)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC36AplaadJ9eWS7-rQOSpb](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC36AplaadJ9eWS7-rQOSpb)
 
@@ -65,27 +65,27 @@ The Rising Tour makes a stop in Brussels, and Bruce pulls out the tour premiere 
 
 **2003:** [4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
 
-[https://videopress.com/embed/zFmXQFNE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/zFmXQFNE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/zFmXQFNE](https://videopress.com/embed/zFmXQFNE)
 
-[https://www.youtube.com/embed/3UyaIHDMex0?feature=oembed](https://www.youtube.com/embed/3UyaIHDMex0?feature=oembed)
+[https://www.youtube.com/embed/3UyaIHDMex0](https://www.youtube.com/embed/3UyaIHDMex0)
 
 Bruce and the Sessions Band deliver one of the best shows of the early Seeger Sessions Tour in Milan. Check out highlights below, including the tour premiere of "" and a beautiful "."
 
 **2006:** [Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
-[https://videopress.com/embed/Z15AQne0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Z15AQne0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Z15AQne0](https://videopress.com/embed/Z15AQne0)
 
-[https://www.youtube.com/embed/fn2BWMpm5_I?feature=oembed](https://www.youtube.com/embed/fn2BWMpm5_I?feature=oembed)
+[https://www.youtube.com/embed/fn2BWMpm5_I](https://www.youtube.com/embed/fn2BWMpm5_I)
 
-[https://www.youtube.com/embed/9OCnm6cdZvQ?feature=oembed](https://www.youtube.com/embed/9OCnm6cdZvQ?feature=oembed)
+[https://www.youtube.com/embed/9OCnm6cdZvQ](https://www.youtube.com/embed/9OCnm6cdZvQ)
 
-[https://www.youtube.com/embed/RvwKQkzSUlM?feature=oembed](https://www.youtube.com/embed/RvwKQkzSUlM?feature=oembed)
+[https://www.youtube.com/embed/RvwKQkzSUlM](https://www.youtube.com/embed/RvwKQkzSUlM)
 
 At a benefit show for the Count Basie Theater Foundation in Red Bank, Bruce joins Brian Wilson on stage for "Barbara Ann" and "."
 
 **2007:** [Love and Mercy](https://estreetshuffle.com/index.php/2022/03/09/matr-brian-wilson-and-bruce-springsteen-love-and-mercy/)
 
-[https://www.youtube.com/embed/u4dlmQwN64c?feature=oembed](https://www.youtube.com/embed/u4dlmQwN64c?feature=oembed)
+[https://www.youtube.com/embed/u4dlmQwN64c](https://www.youtube.com/embed/u4dlmQwN64c)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2007-05-12a.jpg?resize=444%2C2960&amp;ssl=1)
 
@@ -95,9 +95,9 @@ At the United Center in Chicago, fans witness the E Street Band premiere of "."
 
 **2009:** [Mony Mony](https://estreetshuffle.com/index.php/2021/03/18/cover-me-mony-mony/)
 
-[https://www.youtube.com/embed/yVdKRebTKx4?feature=oembed](https://www.youtube.com/embed/yVdKRebTKx4?feature=oembed)
+[https://www.youtube.com/embed/yVdKRebTKx4](https://www.youtube.com/embed/yVdKRebTKx4)
 
-[https://www.youtube.com/embed/qbl7Dfzv0jU?feature=oembed](https://www.youtube.com/embed/qbl7Dfzv0jU?feature=oembed)
+[https://www.youtube.com/embed/qbl7Dfzv0jU](https://www.youtube.com/embed/qbl7Dfzv0jU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2009-05-12a-300x128.jpg?resize=758%2C323)
 
@@ -107,17 +107,17 @@ Bruce and Patti attend Jessica's equestrian competition in Windsor, England.
 
 **2011:**<br>
 
-[https://www.youtube.com/embed/Vf0CH2Bn6vU?feature=oembed](https://www.youtube.com/embed/Vf0CH2Bn6vU?feature=oembed)
+[https://www.youtube.com/embed/Vf0CH2Bn6vU](https://www.youtube.com/embed/Vf0CH2Bn6vU)
 
 Bruce and the band play a short warm-up show/soundcheck in Seville before kicking off the European leg of the Wrecking Ball Tour.
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/Cc_f-UPwTgY?feature=oembed](https://www.youtube.com/embed/Cc_f-UPwTgY?feature=oembed)
+[https://www.youtube.com/embed/Cc_f-UPwTgY](https://www.youtube.com/embed/Cc_f-UPwTgY)
 
-[https://www.youtube.com/embed/3i0dEl9pTB0?feature=oembed](https://www.youtube.com/embed/3i0dEl9pTB0?feature=oembed)
+[https://www.youtube.com/embed/3i0dEl9pTB0](https://www.youtube.com/embed/3i0dEl9pTB0)
 
-[https://www.youtube.com/embed/5m-srS5arMo?feature=oembed](https://www.youtube.com/embed/5m-srS5arMo?feature=oembed)
+[https://www.youtube.com/embed/5m-srS5arMo](https://www.youtube.com/embed/5m-srS5arMo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Daily_Telegraph_Tue__May_15__2012_-scaled.jpg?resize=758%2C515&amp;ssl=1)
 
@@ -129,4 +129,4 @@ Bruce opens his show in Kilkenny with his first-ever performance of "A Rainy Nig
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/JRB1_f_NgME?feature=oembed](https://www.youtube.com/embed/JRB1_f_NgME?feature=oembed)
+[https://www.youtube.com/embed/JRB1_f_NgME](https://www.youtube.com/embed/JRB1_f_NgME)

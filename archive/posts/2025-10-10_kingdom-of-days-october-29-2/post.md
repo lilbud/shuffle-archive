@@ -19,7 +19,7 @@ Bruce and the band headline at the Boston Music Hall, with Dr. John opening. Bru
 
 **1974:** [Cupid](https://estreetshuffle.com/index.php/2020/03/06/cover-me-cupid/)
 
-[https://www.youtube.com/embed/FxSh2S4iW4I?feature=oembed](https://www.youtube.com/embed/FxSh2S4iW4I?feature=oembed)
+[https://www.youtube.com/embed/FxSh2S4iW4I](https://www.youtube.com/embed/FxSh2S4iW4I)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1974-10-29-300x235.png?resize=758%2C594)
 
@@ -35,9 +35,9 @@ Bruce and the E Street Band play to a small crowd (only 1,400 people out of 4,40
 
 **1976:** [Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)
 
-[https://www.youtube.com/embed/3dm5sFJJ7do?feature=oembed](https://www.youtube.com/embed/3dm5sFJJ7do?feature=oembed)
+[https://www.youtube.com/embed/3dm5sFJJ7do](https://www.youtube.com/embed/3dm5sFJJ7do)
 
-[https://www.youtube.com/embed/tjN8PnM6otU?feature=oembed](https://www.youtube.com/embed/tjN8PnM6otU?feature=oembed)
+[https://www.youtube.com/embed/tjN8PnM6otU](https://www.youtube.com/embed/tjN8PnM6otU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/32690199977_6e909f7e65_o-300x200.jpg?resize=758%2C505)
 
@@ -45,7 +45,7 @@ On Night Four of seven at the L.A. Sports Arena, "" makes its one and only appea
 
 **1984:** [Night](http://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)
 
-[https://www.youtube.com/embed/N9A7TwlUhks?feature=oembed](https://www.youtube.com/embed/N9A7TwlUhks?feature=oembed)
+[https://www.youtube.com/embed/N9A7TwlUhks](https://www.youtube.com/embed/N9A7TwlUhks)
 
 Bruce jams with Tom Petty and the Heartbreakers at Tom's house in the San Fernando Valley. Roger McGuinn and Jeff Lynne are present as well.
 
@@ -55,7 +55,7 @@ Bruce wraps up the west coast leg of his solo acoustic tour at the Paramount The
 
 **1996:**<br>
 
-[https://videopress.com/embed/Sbn9vscb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Sbn9vscb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Sbn9vscb](https://videopress.com/embed/Sbn9vscb)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-29a-184x300.png?resize=758%2C1236)
 
@@ -65,7 +65,7 @@ Bruce performs at a rally for presidential candidate John Kerry at the Bayfront 
 
 **2004:**<br>
 
-[https://www.youtube.com/embed/t-QMTqC3tF4?feature=oembed](https://www.youtube.com/embed/t-QMTqC3tF4?feature=oembed)
+[https://www.youtube.com/embed/t-QMTqC3tF4](https://www.youtube.com/embed/t-QMTqC3tF4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2004-10-29-300x275.png?resize=758%2C695)
 
@@ -73,19 +73,19 @@ The Seeger Sessions Tour continues its Scandinavian swing with a stop at the Osl
 
 **2006:**<br>
 
-[https://www.youtube.com/embed/V49QZlX-Dws?feature=oembed](https://www.youtube.com/embed/V49QZlX-Dws?feature=oembed)
+[https://www.youtube.com/embed/V49QZlX-Dws](https://www.youtube.com/embed/V49QZlX-Dws)
 
 Bruce and the E Street Band play their first of two nights at the L.A. Memorial Sports Arena on the Magic Tour.
 
 **2007:**<br>
 
-[https://www.youtube.com/embed/epEjwVqdkV8?feature=oembed](https://www.youtube.com/embed/epEjwVqdkV8?feature=oembed)
+[https://www.youtube.com/embed/epEjwVqdkV8](https://www.youtube.com/embed/epEjwVqdkV8)
 
-[https://www.youtube.com/embed/RhDrl2Llul4?feature=oembed](https://www.youtube.com/embed/RhDrl2Llul4?feature=oembed)
+[https://www.youtube.com/embed/RhDrl2Llul4](https://www.youtube.com/embed/RhDrl2Llul4)
 
-[https://www.youtube.com/embed/lsDP1ek16vg?feature=oembed](https://www.youtube.com/embed/lsDP1ek16vg?feature=oembed)
+[https://www.youtube.com/embed/lsDP1ek16vg](https://www.youtube.com/embed/lsDP1ek16vg)
 
-[https://www.youtube.com/embed/VWX-312F1E0?feature=oembed](https://www.youtube.com/embed/VWX-312F1E0?feature=oembed)
+[https://www.youtube.com/embed/VWX-312F1E0](https://www.youtube.com/embed/VWX-312F1E0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2007-10-29a.png?resize=758%2C1370&amp;ssl=1)
 
@@ -95,13 +95,13 @@ Bruce and the E Street Band headline the first night of the Rock and Roll Hall o
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/5QzCKhGINog?feature=oembed](https://www.youtube.com/embed/5QzCKhGINog?feature=oembed)
+[https://www.youtube.com/embed/5QzCKhGINog](https://www.youtube.com/embed/5QzCKhGINog)
 
-[https://www.youtube.com/embed/YAY8U3Ul7Z8?feature=oembed](https://www.youtube.com/embed/YAY8U3Ul7Z8?feature=oembed)
+[https://www.youtube.com/embed/YAY8U3Ul7Z8](https://www.youtube.com/embed/YAY8U3Ul7Z8)
 
-[https://www.youtube.com/embed/e9f-F1CAB24?feature=oembed](https://www.youtube.com/embed/e9f-F1CAB24?feature=oembed)
+[https://www.youtube.com/embed/e9f-F1CAB24](https://www.youtube.com/embed/e9f-F1CAB24)
 
-[https://www.youtube.com/embed/l2BvmL2MMJ8?feature=oembed](https://www.youtube.com/embed/l2BvmL2MMJ8?feature=oembed)
+[https://www.youtube.com/embed/l2BvmL2MMJ8](https://www.youtube.com/embed/l2BvmL2MMJ8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2009-10-29-284x300.png?resize=758%2C801)
 
@@ -109,9 +109,9 @@ Bruce turns up at the National Film Theater in London for the premiere of
 
 **2010:** *The Promise.*
 
-[https://www.youtube.com/embed/WkkUCI0-NRM?feature=oembed](https://www.youtube.com/embed/WkkUCI0-NRM?feature=oembed)
+[https://www.youtube.com/embed/WkkUCI0-NRM](https://www.youtube.com/embed/WkkUCI0-NRM)
 
-[https://www.youtube.com/embed/cvR_FMJALh0?feature=oembed](https://www.youtube.com/embed/cvR_FMJALh0?feature=oembed)
+[https://www.youtube.com/embed/cvR_FMJALh0](https://www.youtube.com/embed/cvR_FMJALh0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/10/The_Independent_Sun__Oct_31__2010_-scaled.jpg?resize=758%2C2560&amp;ssl=1)
 
@@ -119,12 +119,12 @@ Bruce appears with former President Barack Obama (in a pre-recorded interview) o
 
 **2021:** *The Graham Norton Show*
 
-[https://www.youtube.com/embed/3W2ZCalmCi4?feature=oembed](https://www.youtube.com/embed/3W2ZCalmCi4?feature=oembed)
+[https://www.youtube.com/embed/3W2ZCalmCi4](https://www.youtube.com/embed/3W2ZCalmCi4)
 
 Bruce inducts Patti Scialfa into the New Jersey Hall of Fame and joins a roster of New Jersey luminaries on stage for a show-closing performance of "."
 
 **2023:** [With a Little Help From My Friends](https://estreetshuffle.com/index.php/2018/06/03/matr-ringo-starrs-all-starr-band-bruce-springsteen-and-john-candy-with-a-little-help-from-my-friends/)
 
-[https://www.youtube.com/embed/TzCZFj0FPAY?feature=oembed](https://www.youtube.com/embed/TzCZFj0FPAY?feature=oembed)
+[https://www.youtube.com/embed/TzCZFj0FPAY](https://www.youtube.com/embed/TzCZFj0FPAY)
 
-[https://www.youtube.com/embed/oHCmVOZ2Bm4?feature=oembed](https://www.youtube.com/embed/oHCmVOZ2Bm4?feature=oembed)
+[https://www.youtube.com/embed/oHCmVOZ2Bm4](https://www.youtube.com/embed/oHCmVOZ2Bm4)

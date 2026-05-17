@@ -9,11 +9,11 @@ Johnny Cash's superb version of Bruce's "" is one such cover. (You might have he
 
 [Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)*From My Home to Yours*
 
-[https://www.youtube.com/embed/bKpqRbxk4Yk?feature=oembed](https://www.youtube.com/embed/bKpqRbxk4Yk?feature=oembed)
+[https://www.youtube.com/embed/bKpqRbxk4Yk](https://www.youtube.com/embed/bKpqRbxk4Yk)
 
 Mary G, the front man for The Spring Folk Orchestra, was inspired by Cash's cover to arrange a version of his own. As with the best covers, Mary makes the song sound fresh and new.
 
-[https://www.youtube.com/embed/JRxI0oEzbsQ?feature=oembed](https://www.youtube.com/embed/JRxI0oEzbsQ?feature=oembed)
+[https://www.youtube.com/embed/JRxI0oEzbsQ](https://www.youtube.com/embed/JRxI0oEzbsQ)
 
 What I love most about this version of "Further On (Up the Road)" is how we can clearly hear the influence of both Bruce's and Johnny's arrangements, yet it stands as a distinct arrangement all its own.
 

@@ -5,9 +5,9 @@ Bruce and the E Street Band play their fifth of six shows at London's Wembley Ar
 
 **1981:** [here](https://live.brucespringsteen.net/live-music/0,29124/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-4-1981-Wembley-Arena-London-UK.html)
 
-[https://www.youtube.com/embed/AD-C22noboo?feature=oembed](https://www.youtube.com/embed/AD-C22noboo?feature=oembed)
+[https://www.youtube.com/embed/AD-C22noboo](https://www.youtube.com/embed/AD-C22noboo)
 
-[https://www.youtube.com/embed/gxcHkOEU-9Y?feature=oembed](https://www.youtube.com/embed/gxcHkOEU-9Y?feature=oembed)
+[https://www.youtube.com/embed/gxcHkOEU-9Y](https://www.youtube.com/embed/gxcHkOEU-9Y)
 
 Bruce releases his seventh studio album,
 
@@ -21,13 +21,13 @@ The European leg of the Born in the U.S.A. Tour continues at the first of two ni
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/yluGYwh_Ceo?feature=oembed](https://www.youtube.com/embed/yluGYwh_Ceo?feature=oembed)
+[https://www.youtube.com/embed/yluGYwh_Ceo](https://www.youtube.com/embed/yluGYwh_Ceo)
 
-[https://videopress.com/embed/f6IjxMxG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/f6IjxMxG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/f6IjxMxG](https://videopress.com/embed/f6IjxMxG)
 
-[https://videopress.com/embed/cpa0ELFo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cpa0ELFo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cpa0ELFo](https://videopress.com/embed/cpa0ELFo)
 
-[https://videopress.com/embed/e5UqTSP0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/e5UqTSP0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/e5UqTSP0](https://videopress.com/embed/e5UqTSP0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Daily_Post__Merseyside_ed___Wed__Jun_5__1985_.jpg?resize=758%2C414&amp;ssl=1)
 
@@ -35,11 +35,11 @@ A momentous Reunion show in Atlanta, featuring the world premieres of "," which 
 
 **2000:** [Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)
 
-[https://videopress.com/embed/Wx7WRyqt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Wx7WRyqt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Wx7WRyqt](https://videopress.com/embed/Wx7WRyqt)
 
-[https://www.youtube.com/embed/KSGwtfg9nd8?feature=oembed](https://www.youtube.com/embed/KSGwtfg9nd8?feature=oembed)
+[https://www.youtube.com/embed/KSGwtfg9nd8](https://www.youtube.com/embed/KSGwtfg9nd8)
 
-[https://www.youtube.com/embed/I9murpiJQ3k?feature=oembed](https://www.youtube.com/embed/I9murpiJQ3k?feature=oembed)
+[https://www.youtube.com/embed/I9murpiJQ3k](https://www.youtube.com/embed/I9murpiJQ3k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2000-06-04.jpg?resize=743%2C2322&amp;ssl=1)
 
@@ -47,23 +47,23 @@ The Devils & Dust solo acoustic tour moves on to Italy, where this first show in
 
 **2005:** [My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)
 
-[https://www.youtube.com/embed/daRsdZKxBlU?feature=oembed](https://www.youtube.com/embed/daRsdZKxBlU?feature=oembed)
+[https://www.youtube.com/embed/daRsdZKxBlU](https://www.youtube.com/embed/daRsdZKxBlU)
 
-[https://www.youtube.com/embed/UouW3EzEQxI?feature=oembed](https://www.youtube.com/embed/UouW3EzEQxI?feature=oembed)
+[https://www.youtube.com/embed/UouW3EzEQxI](https://www.youtube.com/embed/UouW3EzEQxI)
 
-[https://www.youtube.com/embed/lNtOzTcLnek?feature=oembed](https://www.youtube.com/embed/lNtOzTcLnek?feature=oembed)
+[https://www.youtube.com/embed/lNtOzTcLnek](https://www.youtube.com/embed/lNtOzTcLnek)
 
-[https://www.youtube.com/embed/2Loi0ScfFw4?feature=oembed](https://www.youtube.com/embed/2Loi0ScfFw4?feature=oembed)
+[https://www.youtube.com/embed/2Loi0ScfFw4](https://www.youtube.com/embed/2Loi0ScfFw4)
 
-[https://www.youtube.com/embed/v65zWmgyt9A?feature=oembed](https://www.youtube.com/embed/v65zWmgyt9A?feature=oembed)
+[https://www.youtube.com/embed/v65zWmgyt9A](https://www.youtube.com/embed/v65zWmgyt9A)
 
 Night One of three in Stockholm opens with the tour premiere of "" and features the final performance to date of "."
 
 **2009:** [Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)
 
-[https://www.youtube.com/embed/kg5hvBT3Ef0?feature=oembed](https://www.youtube.com/embed/kg5hvBT3Ef0?feature=oembed)
+[https://www.youtube.com/embed/kg5hvBT3Ef0](https://www.youtube.com/embed/kg5hvBT3Ef0)
 
-[https://www.youtube.com/embed/Iub8BOWu8RU?feature=oembed](https://www.youtube.com/embed/Iub8BOWu8RU?feature=oembed)
+[https://www.youtube.com/embed/Iub8BOWu8RU](https://www.youtube.com/embed/Iub8BOWu8RU)
 
 Bruce drops by The Asbury Hotel to check out Danny Clinch's new photo exhibition, "Transparent."
 

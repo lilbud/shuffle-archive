@@ -17,13 +17,13 @@ We ventured in and made no real effort to get up close, which left us plenty of 
 
 [Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)
 
-[https://www.youtube.com/embed/g8ZHOZDKlRQ?feature=oembed](https://www.youtube.com/embed/g8ZHOZDKlRQ?feature=oembed)
+[https://www.youtube.com/embed/g8ZHOZDKlRQ](https://www.youtube.com/embed/g8ZHOZDKlRQ)
 
 "" replaced it later in the set, where Bruce likes to duet a bit with Patti. "Easy Money" hadn't been played since she poofed from the tour. I prefer "Easy Money" overall, so bonus my way.
 
 [Easy Money](https://estreetshuffle.com/index.php/2021/06/10/roll-of-the-dice-easy-money/)
 
-[https://www.youtube.com/embed/us5zEGOQXIs?feature=oembed](https://www.youtube.com/embed/us5zEGOQXIs?feature=oembed)
+[https://www.youtube.com/embed/us5zEGOQXIs](https://www.youtube.com/embed/us5zEGOQXIs)
 
 "" was revived in an affecting version with nice guitar work that gave Patti some vocal spotlights.
 
@@ -35,19 +35,19 @@ https://youtu.be/M28EVxPs5wQ
 
 [Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)
 
-[https://www.youtube.com/embed/f4pSkj6ZsXs?feature=oembed](https://www.youtube.com/embed/f4pSkj6ZsXs?feature=oembed)
+[https://www.youtube.com/embed/f4pSkj6ZsXs](https://www.youtube.com/embed/f4pSkj6ZsXs)
 
 Otherwise, my holy grail of the ‘78 version of "" has become something of a regular these days – all good there, with bookend guitar raves – and while I have considered "" more of a rarity in its appearances, it got its 2nd straight showing, having been played in DC as well – and in typical majestic fashion, with that brilliant ending coda.
 
 [Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)
 
-[https://www.youtube.com/embed/nq8dRzSUJiM?feature=oembed](https://www.youtube.com/embed/nq8dRzSUJiM?feature=oembed)
+[https://www.youtube.com/embed/nq8dRzSUJiM](https://www.youtube.com/embed/nq8dRzSUJiM)
 
 Mad Dog Vinni Lopez made an appearance to play his shambolic drums on "T."
 
 [he E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)
 
-[https://www.youtube.com/embed/kdypt1cQNI0?feature=oembed](https://www.youtube.com/embed/kdypt1cQNI0?feature=oembed)
+[https://www.youtube.com/embed/kdypt1cQNI0](https://www.youtube.com/embed/kdypt1cQNI0)
 
 and Steven Van Zandt had a nice twang to his guitar filling out "."
 
@@ -55,7 +55,7 @@ and Steven Van Zandt had a nice twang to his guitar filling out "."
 
 It was during the encores – where DeRose in particular was pumped for "Rosalita" – that the Growlers provided me the fodder to let the spirit of Bruce even more completely take hold of me.
 
-[https://www.youtube.com/embed/uXIv7tqap8g?feature=oembed](https://www.youtube.com/embed/uXIv7tqap8g?feature=oembed)
+[https://www.youtube.com/embed/uXIv7tqap8g](https://www.youtube.com/embed/uXIv7tqap8g)
 
 The incredible energy and sense of inclusiveness that exuded from the stage found its way deep into my being, and I briefly joined a group of teenage girls as they danced altogether in front of us. They themselves were wrapped up enough in the fun to be kind to me (though they likely made much fun of me later), but these shows appeal to so many because they make you feel young, and alive, and part of something. It can be corny and old-fashioned in these tough and cynical times, but it works, if only for those 3.5+ hours.
 
@@ -65,7 +65,7 @@ I do have one more video clip for you, one that shows a few minutes of the Bruce
 
 [Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)
 
-[https://www.youtube.com/embed/ZXntp14dP3I?feature=oembed](https://www.youtube.com/embed/ZXntp14dP3I?feature=oembed)
+[https://www.youtube.com/embed/ZXntp14dP3I](https://www.youtube.com/embed/ZXntp14dP3I)
 
 What's your story?
 

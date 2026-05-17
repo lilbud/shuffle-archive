@@ -13,7 +13,7 @@ Bruce and the E Street Band bring the Darkness Tour to the Richfield Coliseum. A
 
 **1978:** *PM Magazine*
 
-[https://www.youtube.com/embed/NuJ-g62ekzc?feature=oembed](https://www.youtube.com/embed/NuJ-g62ekzc?feature=oembed)
+[https://www.youtube.com/embed/NuJ-g62ekzc](https://www.youtube.com/embed/NuJ-g62ekzc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1978-08-30-300x256.png?resize=758%2C647)
 
@@ -21,7 +21,7 @@ Later that night–so late that it's technically the following day, August 31–
 
 [The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)[I Don't Want to Go Home,](http://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)[Having a Party](https://estreetshuffle.com/index.php/2021/12/31/matr-bruce-springsteen-and-southside-johnny-having-a-party/)
 
-[https://www.youtube.com/embed/eBhlLGi3lRI?feature=oembed](https://www.youtube.com/embed/eBhlLGi3lRI?feature=oembed)
+[https://www.youtube.com/embed/eBhlLGi3lRI](https://www.youtube.com/embed/eBhlLGi3lRI)
 
 [https://www.youtube.com/embed/4OllWaG9HZQ?start=6&amp;feature=oembed](https://www.youtube.com/embed/4OllWaG9HZQ?start=6&amp;feature=oembed)
 
@@ -47,7 +47,7 @@ The Rising Tour moves on to the Savvis Center in St. Louis. The set list is slow
 
 **2002:** [Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)
 
-[https://videopress.com/embed/sA1EzJjX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/sA1EzJjX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/sA1EzJjX](https://videopress.com/embed/sA1EzJjX)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2002-08-30-298x300.png?resize=758%2C763)
 
@@ -55,27 +55,27 @@ An outstanding Night Nine (of ten) at Giants Stadium on the Rising Tour opens wi
 
 **2003:** [Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)[Across the Border,](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)[Raise Your Hand,](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)[Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)
 
-[https://www.youtube.com/embed/JWgi0SwOr0I?feature=oembed](https://www.youtube.com/embed/JWgi0SwOr0I?feature=oembed)
+[https://www.youtube.com/embed/JWgi0SwOr0I](https://www.youtube.com/embed/JWgi0SwOr0I)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3>
 
-[https://www.youtube.com/embed/yi7DO6uBlXM?feature=oembed](https://www.youtube.com/embed/yi7DO6uBlXM?feature=oembed)
+[https://www.youtube.com/embed/yi7DO6uBlXM](https://www.youtube.com/embed/yi7DO6uBlXM)
 
-[https://www.youtube.com/embed/35gqbd3yZ3A?feature=oembed](https://www.youtube.com/embed/35gqbd3yZ3A?feature=oembed)
+[https://www.youtube.com/embed/35gqbd3yZ3A](https://www.youtube.com/embed/35gqbd3yZ3A)
 
-[https://www.youtube.com/embed/9ITR7lyaCPE?feature=oembed](https://www.youtube.com/embed/9ITR7lyaCPE?feature=oembed)
+[https://www.youtube.com/embed/9ITR7lyaCPE](https://www.youtube.com/embed/9ITR7lyaCPE)
 
-[https://www.youtube.com/embed/jGOuUpIBAwk?feature=oembed](https://www.youtube.com/embed/jGOuUpIBAwk?feature=oembed)
+[https://www.youtube.com/embed/jGOuUpIBAwk](https://www.youtube.com/embed/jGOuUpIBAwk)
 
 An epilogue for the Magic Tour: Bruce and the E Street Band headline the Harley Davidson 105th Anniversary Festival at The Roadhouse at The Lakefront in Milwaukee. "" is a fitting opener, and "" bookends it as the final encore. "" is a mid-set tour premiere (its first appearance in 23 years), and Danny Federici's son Jason plays his dad's part on "."
 
 **2008:** [Gypsy Biker](http://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)[Born to Be Wild](http://estreetshuffle.com/index.php/2020/05/20/cover-me-born-to-be-wild/)[Wooly Bully](http://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
-[https://www.youtube.com/embed/WdPr0MDd9kE?feature=oembed](https://www.youtube.com/embed/WdPr0MDd9kE?feature=oembed)
+[https://www.youtube.com/embed/WdPr0MDd9kE](https://www.youtube.com/embed/WdPr0MDd9kE)
 
-[https://www.youtube.com/embed/F5qtnWWbDDk?feature=oembed](https://www.youtube.com/embed/F5qtnWWbDDk?feature=oembed)
+[https://www.youtube.com/embed/F5qtnWWbDDk](https://www.youtube.com/embed/F5qtnWWbDDk)
 
-[https://www.youtube.com/embed/KFe9i8x4x6w?feature=oembed](https://www.youtube.com/embed/KFe9i8x4x6w?feature=oembed)
+[https://www.youtube.com/embed/KFe9i8x4x6w](https://www.youtube.com/embed/KFe9i8x4x6w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2008-08-30-109x300.png?resize=758%2C2086)
 
@@ -91,17 +91,17 @@ Jaws drop and the Internet breaks: Bruce and the E Street Band break their U.S. 
 
 [https://www.youtube.com/embed/videoseries?list=PLrNIMOwexdz95YpVOZNuDZ_qAqPt2D4Vj](https://www.youtube.com/embed/videoseries?list=PLrNIMOwexdz95YpVOZNuDZ_qAqPt2D4Vj)
 
-[https://www.youtube.com/embed/SMc8jc1kgXs?feature=oembed](https://www.youtube.com/embed/SMc8jc1kgXs?feature=oembed)
+[https://www.youtube.com/embed/SMc8jc1kgXs](https://www.youtube.com/embed/SMc8jc1kgXs)
 
-[https://www.youtube.com/embed/l-CpUBixLEs?feature=oembed](https://www.youtube.com/embed/l-CpUBixLEs?feature=oembed)
+[https://www.youtube.com/embed/l-CpUBixLEs](https://www.youtube.com/embed/l-CpUBixLEs)
 
-[https://www.youtube.com/embed/_wGnI0Us_N0?feature=oembed](https://www.youtube.com/embed/_wGnI0Us_N0?feature=oembed)
+[https://www.youtube.com/embed/_wGnI0Us_N0](https://www.youtube.com/embed/_wGnI0Us_N0)
 
-[https://www.youtube.com/embed/OryAFEYMjIc?feature=oembed](https://www.youtube.com/embed/OryAFEYMjIc?feature=oembed)
+[https://www.youtube.com/embed/OryAFEYMjIc](https://www.youtube.com/embed/OryAFEYMjIc)
 
-[https://www.youtube.com/embed/ISH9xghWpqs?feature=oembed](https://www.youtube.com/embed/ISH9xghWpqs?feature=oembed)
+[https://www.youtube.com/embed/ISH9xghWpqs](https://www.youtube.com/embed/ISH9xghWpqs)
 
-[https://www.youtube.com/embed/qoAPf-6_x_8?feature=oembed](https://www.youtube.com/embed/qoAPf-6_x_8?feature=oembed)
+[https://www.youtube.com/embed/qoAPf-6_x_8](https://www.youtube.com/embed/qoAPf-6_x_8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2016-08-30a.png?resize=758%2C875&amp;ssl=1)
 
@@ -117,15 +117,15 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 **2023:** [Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)
 
-[https://www.youtube.com/embed/Bz-h5JY74j0?feature=oembed](https://www.youtube.com/embed/Bz-h5JY74j0?feature=oembed)
+[https://www.youtube.com/embed/Bz-h5JY74j0](https://www.youtube.com/embed/Bz-h5JY74j0)
 
-[https://www.youtube.com/embed/PYWjyw-gAxE?feature=oembed](https://www.youtube.com/embed/PYWjyw-gAxE?feature=oembed)
+[https://www.youtube.com/embed/PYWjyw-gAxE](https://www.youtube.com/embed/PYWjyw-gAxE)
 
-[https://www.youtube.com/embed/zCMgZwR3Y2E?feature=oembed](https://www.youtube.com/embed/zCMgZwR3Y2E?feature=oembed)
+[https://www.youtube.com/embed/zCMgZwR3Y2E](https://www.youtube.com/embed/zCMgZwR3Y2E)
 
-[https://www.youtube.com/embed/FxPO8u0C39I?feature=oembed](https://www.youtube.com/embed/FxPO8u0C39I?feature=oembed)
+[https://www.youtube.com/embed/FxPO8u0C39I](https://www.youtube.com/embed/FxPO8u0C39I)
 
-[https://www.youtube.com/embed/rIIxe2KojjA?feature=oembed](https://www.youtube.com/embed/rIIxe2KojjA?feature=oembed)
+[https://www.youtube.com/embed/rIIxe2KojjA](https://www.youtube.com/embed/rIIxe2KojjA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/Asbury_Park_Press_2023_09_01_A1.jpg?resize=758%2C1499&amp;ssl=1)
 

@@ -33,15 +33,15 @@ Bruce plays his third of five solo acoustic nights at Sydney's Capitol Theater.
 
 **1997:**<br>
 
-[https://videopress.com/embed/MEFuhDtd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MEFuhDtd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/MEFuhDtd](https://videopress.com/embed/MEFuhDtd)
 
 Bruce scores three Grammy Awards: two for "" (Best Solo Rock Vocal Performance and Best Rock Song) and one for "" (Best Rock Instrumental Performance). Bruce's current album, , is also nominated for Best Rock Album but does not win.
 
 **2008:** [Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)[Once Upon a Time in the West](http://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/)*Magic*
 
-[https://www.youtube.com/embed/2f3XaoHqQuQ?feature=oembed](https://www.youtube.com/embed/2f3XaoHqQuQ?feature=oembed)
+[https://www.youtube.com/embed/2f3XaoHqQuQ](https://www.youtube.com/embed/2f3XaoHqQuQ)
 
-[https://www.youtube.com/embed/CBTy5EF7upk?feature=oembed](https://www.youtube.com/embed/CBTy5EF7upk?feature=oembed)
+[https://www.youtube.com/embed/CBTy5EF7upk](https://www.youtube.com/embed/CBTy5EF7upk)
 
 Bruce and the E Street Band rehearse for their upcoming Grammy Awards performance of "."
 
@@ -55,17 +55,17 @@ In Hartford's XL Center, Bruce and the band play "" for the first time on the ne
 
 **2016:** [Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)
 
-[https://www.youtube.com/embed/6J9EtXyqgd8?feature=oembed](https://www.youtube.com/embed/6J9EtXyqgd8?feature=oembed)
+[https://www.youtube.com/embed/6J9EtXyqgd8](https://www.youtube.com/embed/6J9EtXyqgd8)
 
-[https://www.youtube.com/embed/4X3JCEs2Czs?feature=oembed](https://www.youtube.com/embed/4X3JCEs2Czs?feature=oembed)
+[https://www.youtube.com/embed/4X3JCEs2Czs](https://www.youtube.com/embed/4X3JCEs2Czs)
 
-[https://www.youtube.com/embed/iKYu6e29PNY?feature=oembed](https://www.youtube.com/embed/iKYu6e29PNY?feature=oembed)
+[https://www.youtube.com/embed/iKYu6e29PNY](https://www.youtube.com/embed/iKYu6e29PNY)
 
-[https://www.youtube.com/embed/GwFWmbWZvq8?feature=oembed](https://www.youtube.com/embed/GwFWmbWZvq8?feature=oembed)
+[https://www.youtube.com/embed/GwFWmbWZvq8](https://www.youtube.com/embed/GwFWmbWZvq8)
 
-[https://www.youtube.com/embed/7t_HpRjcgwg?feature=oembed](https://www.youtube.com/embed/7t_HpRjcgwg?feature=oembed)
+[https://www.youtube.com/embed/7t_HpRjcgwg](https://www.youtube.com/embed/7t_HpRjcgwg)
 
-[https://www.youtube.com/embed/dM_BDvIvmcM?feature=oembed](https://www.youtube.com/embed/dM_BDvIvmcM?feature=oembed)
+[https://www.youtube.com/embed/dM_BDvIvmcM](https://www.youtube.com/embed/dM_BDvIvmcM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2016-02-10.png?resize=758%2C2186&amp;ssl=1)
 
@@ -73,9 +73,9 @@ At the American Airlines Center in Dallas, Soozie is still down for the count wi
 
 **2023:** [Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
-[https://www.youtube.com/embed/XqA3NOz52gM?feature=oembed](https://www.youtube.com/embed/XqA3NOz52gM?feature=oembed)
+[https://www.youtube.com/embed/XqA3NOz52gM](https://www.youtube.com/embed/XqA3NOz52gM)
 
-[https://www.youtube.com/embed/mRFr28PyO64?feature=oembed](https://www.youtube.com/embed/mRFr28PyO64?feature=oembed)
+[https://www.youtube.com/embed/mRFr28PyO64](https://www.youtube.com/embed/mRFr28PyO64)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Fort_Worth_Star_Telegram_Sun__Feb_12__2023_-scaled.jpg?resize=758%2C2278&amp;ssl=1)
 

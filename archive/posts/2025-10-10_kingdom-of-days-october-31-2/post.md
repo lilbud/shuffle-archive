@@ -13,9 +13,9 @@ Bruce and the band headline two shows on their last of three nights at The Main 
 
 **1973:**<br>
 
-[https://videopress.com/embed/EV8aeqkx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/EV8aeqkx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/EV8aeqkx](https://videopress.com/embed/EV8aeqkx)
 
-[https://www.youtube.com/embed/xF78hFYM1Ng?feature=oembed](https://www.youtube.com/embed/xF78hFYM1Ng?feature=oembed)
+[https://www.youtube.com/embed/xF78hFYM1Ng](https://www.youtube.com/embed/xF78hFYM1Ng)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1973-10-31-300x182.jpg?resize=758%2C460)
 
@@ -31,11 +31,11 @@ A special Halloween show at the Los Angeles Memorial Sports Arena, with Bruce en
 
 **1980:** [Haunted House](https://estreetshuffle.com/index.php/2021/10/30/cover-me-haunted-house/)[The Price You Pay](http://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)[Out of Limits](https://estreetshuffle.com/index.php/2021/10/14/cover-me-out-of-limits/)[Growin' Up.](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)
 
-[https://www.youtube.com/embed/UsOUjoYIy8s?feature=oembed](https://www.youtube.com/embed/UsOUjoYIy8s?feature=oembed)
+[https://www.youtube.com/embed/UsOUjoYIy8s](https://www.youtube.com/embed/UsOUjoYIy8s)
 
-[https://www.youtube.com/embed/L9PylOkfRwM?feature=oembed](https://www.youtube.com/embed/L9PylOkfRwM?feature=oembed)
+[https://www.youtube.com/embed/L9PylOkfRwM](https://www.youtube.com/embed/L9PylOkfRwM)
 
-[https://www.youtube.com/embed/72_lUSEeIJg?feature=oembed](https://www.youtube.com/embed/72_lUSEeIJg?feature=oembed)
+[https://www.youtube.com/embed/72_lUSEeIJg](https://www.youtube.com/embed/72_lUSEeIJg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/47405496152_2e55f8097c_o-300x256.jpg?resize=758%2C647)
 
@@ -45,7 +45,7 @@ Back at the Los Angeles Sports Arena for another Halloween show, Bruce opens the
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBZa4jga5O6SpQaGoKBkVdT](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBZa4jga5O6SpQaGoKBkVdT)
 
-[https://www.youtube.com/embed/SMIyXGmUR1w?feature=oembed](https://www.youtube.com/embed/SMIyXGmUR1w?feature=oembed)
+[https://www.youtube.com/embed/SMIyXGmUR1w](https://www.youtube.com/embed/SMIyXGmUR1w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Simi_Valley_Star_1984_11_02_21-scaled.jpg?resize=733%2C2560&amp;ssl=1)
 
@@ -53,15 +53,15 @@ Forbes Magazine lists Bruce as the third highest-earning American entertainer at
 
 **1987:** [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[Tougher Than the Rest](http://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)
 
-[https://videopress.com/embed/bSuRxEka?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bSuRxEka?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bSuRxEka](https://videopress.com/embed/bSuRxEka)
 
-[https://www.youtube.com/embed/CL-qWBgaIkw?feature=oembed](https://www.youtube.com/embed/CL-qWBgaIkw?feature=oembed)
+[https://www.youtube.com/embed/CL-qWBgaIkw](https://www.youtube.com/embed/CL-qWBgaIkw)
 
 Bruce and his new touring band bring World Tour 1992 to the Target Center in Minneapolis for a Halloween show, where Bruce celebrates by opening with an unusual arrangement of "." Earlier in the day, Bruce goes shopping at Bloomingdale's.
 
 **1992:** [Spirit in the Night](http://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)
 
-[https://www.youtube.com/embed/9qv1mKFw7T0?feature=oembed](https://www.youtube.com/embed/9qv1mKFw7T0?feature=oembed)
+[https://www.youtube.com/embed/9qv1mKFw7T0](https://www.youtube.com/embed/9qv1mKFw7T0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-10-31a-250x300.png?resize=758%2C909)
 
@@ -71,7 +71,7 @@ Bruce releases a new song on his website: "."
 
 **2008:** [A Night with the Jersey Devil](http://estreetshuffle.com/index.php/2019/05/14/roll-of-the-dice-a-night-with-the-jersey-devil/)
 
-[https://www.youtube.com/embed/l6leNRGhOqA?feature=oembed](https://www.youtube.com/embed/l6leNRGhOqA?feature=oembed)
+[https://www.youtube.com/embed/l6leNRGhOqA](https://www.youtube.com/embed/l6leNRGhOqA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2008-10-31-300x146.png?resize=758%2C369)
 
@@ -79,13 +79,13 @@ Four years to the day after its release, Bruce performs "A Night With the Jersey
 
 **2012:** [Monster Mash](http://estreetshuffle.com/index.php/2019/10/29/cover-me-monster-mash/)
 
-[https://www.youtube.com/embed/I-cRhE4diyk?feature=oembed](https://www.youtube.com/embed/I-cRhE4diyk?feature=oembed)
+[https://www.youtube.com/embed/I-cRhE4diyk](https://www.youtube.com/embed/I-cRhE4diyk)
 
-[https://www.youtube.com/embed/2B-9GgbK9dk?feature=oembed](https://www.youtube.com/embed/2B-9GgbK9dk?feature=oembed)
+[https://www.youtube.com/embed/2B-9GgbK9dk](https://www.youtube.com/embed/2B-9GgbK9dk)
 
-[https://www.youtube.com/embed/Pwcq0N4Fmhc?feature=oembed](https://www.youtube.com/embed/Pwcq0N4Fmhc?feature=oembed)
+[https://www.youtube.com/embed/Pwcq0N4Fmhc](https://www.youtube.com/embed/Pwcq0N4Fmhc)
 
-[https://www.youtube.com/embed/R8Y9CAwRURU?feature=oembed](https://www.youtube.com/embed/R8Y9CAwRURU?feature=oembed)
+[https://www.youtube.com/embed/R8Y9CAwRURU](https://www.youtube.com/embed/R8Y9CAwRURU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2012-10-31.png?resize=758%2C3296&amp;ssl=1)
 
@@ -97,7 +97,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-[https://videopress.com/embed/NfMZVin7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NfMZVin7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/NfMZVin7](https://videopress.com/embed/NfMZVin7)
 
 Bruce joins Howard Stern for a long, insightful interview at SiriusXM Studio in New York City. The interview is broadcast live and is filmed for future video release.
 
@@ -107,6 +107,6 @@ Bruce and the E Street Band kick off the Canadian leg of World Tour '24 in Montr
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/c-vpHs9FiRQ?feature=oembed](https://www.youtube.com/embed/c-vpHs9FiRQ?feature=oembed)
+[https://www.youtube.com/embed/c-vpHs9FiRQ](https://www.youtube.com/embed/c-vpHs9FiRQ)
 
-[https://www.youtube.com/embed/Oc9WEaBWNe0?feature=oembed](https://www.youtube.com/embed/Oc9WEaBWNe0?feature=oembed)
+[https://www.youtube.com/embed/Oc9WEaBWNe0](https://www.youtube.com/embed/Oc9WEaBWNe0)

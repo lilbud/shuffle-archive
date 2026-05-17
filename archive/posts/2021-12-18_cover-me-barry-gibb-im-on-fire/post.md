@@ -17,6 +17,6 @@ At his tour opener (and at many of the shows thereafter), Barry's set included a
 
 [I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
 
-[https://www.youtube.com/embed/R81FXrQ6aiQ?feature=oembed](https://www.youtube.com/embed/R81FXrQ6aiQ?feature=oembed)
+[https://www.youtube.com/embed/R81FXrQ6aiQ](https://www.youtube.com/embed/R81FXrQ6aiQ)
 
 I suspect Barry chose the song to show off that famous falsetto of his, and based on the crowd's reaction it was an inspired choice.

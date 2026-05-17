@@ -7,6 +7,6 @@ Never released, never performed: Bruce Springsteen's "," performed in San Diego 
 
 [Unsatisfied Heart](https://estreetshuffle.com/index.php/2018/09/12/roll-of-the-dice-unsatisfied-heart/)
 
-[https://www.youtube.com/embed/j_6GKhHBhjQ?feature=oembed](https://www.youtube.com/embed/j_6GKhHBhjQ?feature=oembed)
+[https://www.youtube.com/embed/j_6GKhHBhjQ](https://www.youtube.com/embed/j_6GKhHBhjQ)
 
 © May 6, 2018

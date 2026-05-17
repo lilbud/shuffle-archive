@@ -37,7 +37,7 @@ Bruce and his new touring band bring World Tour 1992 to the Boston area for the 
 
 **1992:**<br>
 
-[https://videopress.com/embed/ZTTosGqD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZTTosGqD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ZTTosGqD](https://videopress.com/embed/ZTTosGqD)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1992-08-13a-68x300.png?resize=758%2C3344)
 
@@ -47,7 +47,7 @@ The Rising Tour's stadium leg moves on to U.S. Cellular Field in Chicago, where 
 
 **2003:** [Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)[Where the Bands Are.](http://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)
 
-[https://videopress.com/embed/iuSfc17q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iuSfc17q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/iuSfc17q](https://videopress.com/embed/iuSfc17q)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2003-08-13-300x159.png?resize=758%2C402)
 
@@ -57,9 +57,9 @@ Bruce wraps up his solo "summer extravaganza" at GM Place in Vancouver, BC, tour
 
 [https://www.youtube.com/embed/PxtqtXjKuSo?list=PLnbVaK2f4rag5C9NKr6BBJqJ78CeJTqSg](https://www.youtube.com/embed/PxtqtXjKuSo?list=PLnbVaK2f4rag5C9NKr6BBJqJ78CeJTqSg)
 
-[https://www.youtube.com/embed/qjnAIIAbok8?feature=oembed](https://www.youtube.com/embed/qjnAIIAbok8?feature=oembed)
+[https://www.youtube.com/embed/qjnAIIAbok8](https://www.youtube.com/embed/qjnAIIAbok8)
 
-[https://www.youtube.com/embed/Ee4wJU4-COE?feature=oembed](https://www.youtube.com/embed/Ee4wJU4-COE?feature=oembed)
+[https://www.youtube.com/embed/Ee4wJU4-COE](https://www.youtube.com/embed/Ee4wJU4-COE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2005-08-13a-300x297.png?resize=758%2C750)
 
@@ -69,4 +69,4 @@ Bruce and the E Street Band rehearse for the final American leg of the Wrecking 
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/WqcEh_6ls8M?feature=oembed](https://www.youtube.com/embed/WqcEh_6ls8M?feature=oembed)
+[https://www.youtube.com/embed/WqcEh_6ls8M](https://www.youtube.com/embed/WqcEh_6ls8M)

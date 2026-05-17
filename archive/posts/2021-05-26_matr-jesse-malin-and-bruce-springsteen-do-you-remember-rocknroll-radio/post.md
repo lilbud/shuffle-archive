@@ -3,11 +3,11 @@ It amazes me that Bruce has only covered this once, at Light of Day 2014–this 
 
 For now, though, we'll have to be content with Bruce and Jesse Malin teaming up for The Ramones' "Do You Remember Rock'n'Roll Radio?"
 
-[https://www.youtube.com/embed/fx7TEDtp5u8?feature=oembed](https://www.youtube.com/embed/fx7TEDtp5u8?feature=oembed)
+[https://www.youtube.com/embed/fx7TEDtp5u8](https://www.youtube.com/embed/fx7TEDtp5u8)
 
 Here's the original for good measure–because there's no such thing as too much airplay for the classics.
 
-[https://www.youtube.com/embed/Gi9a7IdRiBI?feature=oembed](https://www.youtube.com/embed/Gi9a7IdRiBI?feature=oembed)
+[https://www.youtube.com/embed/Gi9a7IdRiBI](https://www.youtube.com/embed/Gi9a7IdRiBI)
 
 January 18, 2014 (Asbury Park, NJ)
 January 18, 2014 (Asbury Park, NJ)

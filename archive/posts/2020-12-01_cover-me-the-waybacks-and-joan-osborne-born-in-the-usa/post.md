@@ -7,4 +7,4 @@ So here's another reinvention of a classic Springsteen song, from a concert albu
 
 *This*[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
-[https://www.youtube.com/embed/m5SHAY3nAjE?feature=oembed](https://www.youtube.com/embed/m5SHAY3nAjE?feature=oembed)
+[https://www.youtube.com/embed/m5SHAY3nAjE](https://www.youtube.com/embed/m5SHAY3nAjE)

@@ -5,7 +5,7 @@ Apparently not, because it remains the only instrumental ever to be banned from 
 
 Wray originally recorded the song under the name "Oddball." Sources differ on who suggested the name "Rumble" (wikipedia credits Phil Everly, but I've read other accounts that credit Wray's producer's daughter), but all accounts seem to derive from the fact that the song sounds exactly like a soundtrack to a gang fight.
 
-[https://www.youtube.com/embed/ucTg6rZJCu4?feature=oembed](https://www.youtube.com/embed/ucTg6rZJCu4?feature=oembed)
+[https://www.youtube.com/embed/ucTg6rZJCu4](https://www.youtube.com/embed/ucTg6rZJCu4)
 
 Regardless of who named it in why, "Rumble" was certainly groundbreaking for its use of distortion, which Wray created by punching holes in his amp. The effect blew the minds of young and aspiring musicians, including Pete Townshend, Iggy Pop, Jimmy Page, and of course, Bruce Springsteen.
 
@@ -17,7 +17,7 @@ But Bruce never took the opportunity to cover Wray's signature song until after 
 
 Watch and listen below. (Bruce is in the shadows most of the time, but isn't that appropriate for this song?)
 
-[https://www.youtube.com/embed/0j1xapvKBx8?feature=oembed](https://www.youtube.com/embed/0j1xapvKBx8?feature=oembed)
+[https://www.youtube.com/embed/0j1xapvKBx8](https://www.youtube.com/embed/0j1xapvKBx8)
 
 November 21, 2005 (Trenton, NJ)
 November 22, 2005 (Trenton, NJ)

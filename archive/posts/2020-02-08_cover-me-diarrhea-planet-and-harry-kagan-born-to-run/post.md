@@ -7,7 +7,7 @@ But add Music Band's Harry Kagan on lead vocals, and the incredible Ross Holmes 
 
 Seriously: turn up the volume, switch to full screen mode, and just take it all in:
 
-[https://www.youtube.com/embed/jYHiTyBsdHI?feature=oembed](https://www.youtube.com/embed/jYHiTyBsdHI?feature=oembed)
+[https://www.youtube.com/embed/jYHiTyBsdHI](https://www.youtube.com/embed/jYHiTyBsdHI)
 
 See what I mean? Sadly, Diarrhea Planet is no more–the band broke up in 2018. But at least we have this incredible performance to remember them by.
 

@@ -23,9 +23,9 @@ Bruce places a famous ad in the Village Voice classifieds. Among the respondents
 
 **1975:** [Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)[Then She Kissed Me](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/)
 
-[https://videopress.com/embed/D1aamrTq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/D1aamrTq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/D1aamrTq](https://videopress.com/embed/D1aamrTq)
 
-[https://www.youtube.com/embed/S9bQHNVtfvA?feature=oembed](https://www.youtube.com/embed/S9bQHNVtfvA?feature=oembed)
+[https://www.youtube.com/embed/S9bQHNVtfvA](https://www.youtube.com/embed/S9bQHNVtfvA)
 
 A planned Darkness Tour stop at Ryserson University in Toronto is cancelled.
 
@@ -35,19 +35,19 @@ Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park f
 
 **1982:** [Ready Teddy,](http://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)[Come On, Let's Go,](http://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/)[Come On Over to My Place](http://estreetshuffle.com/index.php/2018/04/12/matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/)
 
-[https://videopress.com/embed/GZQFnl9z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GZQFnl9z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/GZQFnl9z](https://videopress.com/embed/GZQFnl9z)
 
 Bruce and the E Street Band play their third of ten nights at the Brendan Byrne Arena in East Rutherford on the Born in the U.S.A. Tour.
 
 **1984:**<br>
 
-[https://videopress.com/embed/qUtloRcX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qUtloRcX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/qUtloRcX](https://videopress.com/embed/qUtloRcX)
 
 Bruce and the E Street Band play their first of three Rising Tour nights at Lincoln Financial Field in Philadelphia, where fans enjoy the first full-band "" of the tour.
 
 **2003:** [Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)
 
-[https://videopress.com/embed/RC0F6oBf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RC0F6oBf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/RC0F6oBf](https://videopress.com/embed/RC0F6oBf)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2003-08-08a.png?resize=499%2C2339&amp;ssl=1)
 

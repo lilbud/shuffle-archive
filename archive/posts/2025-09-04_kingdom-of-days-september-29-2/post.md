@@ -9,9 +9,9 @@ Bruce and the as-yet-unnamed E Street Band play a gig at Waynesburg College in P
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/Q4pJ5hDqxTA?feature=oembed](https://www.youtube.com/embed/Q4pJ5hDqxTA?feature=oembed)
+[https://www.youtube.com/embed/Q4pJ5hDqxTA](https://www.youtube.com/embed/Q4pJ5hDqxTA)
 
-[https://www.youtube.com/embed/4IL4uob4KjE?feature=oembed](https://www.youtube.com/embed/4IL4uob4KjE?feature=oembed)
+[https://www.youtube.com/embed/4IL4uob4KjE](https://www.youtube.com/embed/4IL4uob4KjE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1976-09-29-300x201.jpg?resize=758%2C508)
 
@@ -21,15 +21,15 @@ Bruce records "" and "" at The Record Plant in New York City. They will remain i
 
 **1977:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)
 
-[https://www.youtube.com/embed/0ena3tWYo-g?feature=oembed](https://www.youtube.com/embed/0ena3tWYo-g?feature=oembed)
+[https://www.youtube.com/embed/0ena3tWYo-g](https://www.youtube.com/embed/0ena3tWYo-g)
 
-[https://www.youtube.com/embed/ZKFREGdtncg?feature=oembed](https://www.youtube.com/embed/ZKFREGdtncg?feature=oembed)
+[https://www.youtube.com/embed/ZKFREGdtncg](https://www.youtube.com/embed/ZKFREGdtncg)
 
 The Darkness Tour moves on to Boutwell Memorial Auditorium in Birmingham.
 
 **1978:** (Photo credit: William E. Allen)
 
-[https://videopress.com/embed/PNdFeC4l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PNdFeC4l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PNdFeC4l](https://videopress.com/embed/PNdFeC4l)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Birmingham_Post_Herald_1978_09_30_19.jpg?w=758&amp;ssl=1)
 
@@ -43,7 +43,7 @@ Bruce and the E Street Band play their second of four shows at the final stand o
 
 **1985:** *Growing Pains*
 
-[https://videopress.com/embed/Tu2dlnHp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Tu2dlnHp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Tu2dlnHp](https://videopress.com/embed/Tu2dlnHp)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1985-09-29.jpg?resize=758%2C1068&amp;ssl=1)
 
@@ -55,7 +55,7 @@ Bruce makes a pit-stop at Matt's Saloon in Prescott, Arizona while on a motorcyc
 
 **1989:**<br>
 
-[https://www.youtube.com/embed/ordKJO1_Rxg?feature=oembed](https://www.youtube.com/embed/ordKJO1_Rxg?feature=oembed)
+[https://www.youtube.com/embed/ordKJO1_Rxg](https://www.youtube.com/embed/ordKJO1_Rxg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1989-0929-166x300.jpg?resize=758%2C1370)
 
@@ -67,21 +67,21 @@ Bruce and his new band play the San Diego Sports Arena on World Tour 1992.
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/c-IWG0XJeWk?feature=oembed](https://www.youtube.com/embed/c-IWG0XJeWk?feature=oembed)
+[https://www.youtube.com/embed/c-IWG0XJeWk](https://www.youtube.com/embed/c-IWG0XJeWk)
 
-[https://www.youtube.com/embed/96jehWdf8BM?feature=oembed](https://www.youtube.com/embed/96jehWdf8BM?feature=oembed)
+[https://www.youtube.com/embed/96jehWdf8BM](https://www.youtube.com/embed/96jehWdf8BM)
 
 Bruce plays with Pete Seeger for the very first time at a Woody Guthrie tribute concert in Cleveland, along with Joe Ely, Arlo Guthrie, Ani DiFranco, the Indigo Girls, and more.
 
 **1996:**<br>
 
-[https://www.youtube.com/embed/0G8dDlLkG7c?feature=oembed](https://www.youtube.com/embed/0G8dDlLkG7c?feature=oembed)
+[https://www.youtube.com/embed/0G8dDlLkG7c](https://www.youtube.com/embed/0G8dDlLkG7c)
 
-[https://www.youtube.com/embed/_56dNOn0mIw?feature=oembed](https://www.youtube.com/embed/_56dNOn0mIw?feature=oembed)
+[https://www.youtube.com/embed/_56dNOn0mIw](https://www.youtube.com/embed/_56dNOn0mIw)
 
-[https://www.youtube.com/embed/-HPnNUUC-ww?feature=oembed](https://www.youtube.com/embed/-HPnNUUC-ww?feature=oembed)
+[https://www.youtube.com/embed/-HPnNUUC-ww](https://www.youtube.com/embed/-HPnNUUC-ww)
 
-[https://www.youtube.com/embed/FbiiRUSdUyg?feature=oembed](https://www.youtube.com/embed/FbiiRUSdUyg?feature=oembed)
+[https://www.youtube.com/embed/FbiiRUSdUyg](https://www.youtube.com/embed/FbiiRUSdUyg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1996-09-29.jpg?resize=758%2C1277&amp;ssl=1)
 
@@ -89,7 +89,7 @@ Bruce tour premieres "" when the Rising Tour stops at the Fargodome in North Dak
 
 **2002:** [Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
-[https://videopress.com/embed/VydrrUiL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VydrrUiL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VydrrUiL](https://videopress.com/embed/VydrrUiL)
 
 Bruce, the E Street Band, and John Fogerty rehearse at Asbury Park's Convention Hall for their upcoming Vote for Change Tour.
 
@@ -99,7 +99,7 @@ Bruce makes a book tour appearance at the Free Library of Philadelphia to promot
 
 **2016:** *Born to Run*
 
-[https://www.youtube.com/embed/fUZnsrgbojQ?feature=oembed](https://www.youtube.com/embed/fUZnsrgbojQ?feature=oembed)
+[https://www.youtube.com/embed/fUZnsrgbojQ](https://www.youtube.com/embed/fUZnsrgbojQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/2016-0929-300x169.jpg?resize=758%2C427)
 
@@ -123,7 +123,7 @@ Bruce announces his twenty-first studio album, , and releases a video for the al
 
 **2022:** *Only the Strong Survive*
 
-[https://www.youtube.com/embed/O0jBwk71Qcw?feature=oembed](https://www.youtube.com/embed/O0jBwk71Qcw?feature=oembed)
+[https://www.youtube.com/embed/O0jBwk71Qcw](https://www.youtube.com/embed/O0jBwk71Qcw)
 
 That evening, Bruce and Patti perform "" at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
 
@@ -133,7 +133,7 @@ View this post on Instagram
 
 [A post shared by covenant- alex (@borntorunboss1)](https://www.instagram.com/tv/CjTHuJAtR9O/?utm_source=ig_embed&utm_campaign=loading)
 
-[https://www.youtube.com/embed/yhCl8la_aeU?feature=oembed](https://www.youtube.com/embed/yhCl8la_aeU?feature=oembed)
+[https://www.youtube.com/embed/yhCl8la_aeU](https://www.youtube.com/embed/yhCl8la_aeU)
 
 Bruce's scheduled show at Nationals Park in Washington D.C.–already rescheduled once from a month earlier–is postponed for almost another a full year.
 

@@ -9,7 +9,7 @@ Here's installment #3: Lynda "Wonder Woman" Carter's gentle country arrangement 
 
 [I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
 
-[https://www.youtube.com/embed/K86HGZQ4i4I?feature=oembed](https://www.youtube.com/embed/K86HGZQ4i4I?feature=oembed)
+[https://www.youtube.com/embed/K86HGZQ4i4I](https://www.youtube.com/embed/K86HGZQ4i4I)
 
 Can't say I'm a fan of this particular arrangement–I think it entirely loses the heat at the heart of the song–but it's a valiant attempt, and hey, it's Wonder Woman.
 

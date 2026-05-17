@@ -23,7 +23,7 @@ The still-young Darkness Tour reaches Boston for the first of three nights. This
 
 **1978:** [Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)
 
-[https://videopress.com/embed/XXl8vEEQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XXl8vEEQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/XXl8vEEQ](https://videopress.com/embed/XXl8vEEQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-29-158x300.jpg?resize=758%2C1439)
 
@@ -35,13 +35,13 @@ Bruce and the E Street Band work on "" and "" at the Power Station in New York C
 
 **1979:** [Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)
 
-[https://www.youtube.com/embed/tHkii-j_Cac?feature=oembed](https://www.youtube.com/embed/tHkii-j_Cac?feature=oembed)
+[https://www.youtube.com/embed/tHkii-j_Cac](https://www.youtube.com/embed/tHkii-j_Cac)
 
 At the first of six River shows at London's Wembley Arena, Bruce performs "" for the very first time.
 
 **1981:** [Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)
 
-[https://www.youtube.com/embed/RpGVwh0NkY4?feature=oembed](https://www.youtube.com/embed/RpGVwh0NkY4?feature=oembed)
+[https://www.youtube.com/embed/RpGVwh0NkY4](https://www.youtube.com/embed/RpGVwh0NkY4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1981-05-29.jpg?resize=758%2C513&amp;ssl=1)
 
@@ -51,7 +51,7 @@ Bruce and Southside Johnny join Beaver Brown on stage at Big Man's West in Red B
 
 **1982:**<br>
 
-[https://videopress.com/embed/oqbaupOb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oqbaupOb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/oqbaupOb](https://videopress.com/embed/oqbaupOb)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1982-05-29.jpg?resize=758%2C495&amp;ssl=1)
 
@@ -75,9 +75,9 @@ Bruce makes one of his most unusual guest appearances with The Rock Bottom Remai
 
 **1994:** [Gloria](http://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/)
 
-[https://www.youtube.com/embed/c1wzfR82-7c?feature=oembed](https://www.youtube.com/embed/c1wzfR82-7c?feature=oembed)
+[https://www.youtube.com/embed/c1wzfR82-7c](https://www.youtube.com/embed/c1wzfR82-7c)
 
-[https://www.youtube.com/embed/8tifOAGe0Is?feature=oembed](https://www.youtube.com/embed/8tifOAGe0Is?feature=oembed)
+[https://www.youtube.com/embed/8tifOAGe0Is](https://www.youtube.com/embed/8tifOAGe0Is)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1994-05-29-276x300.jpg?resize=758%2C824)
 
@@ -85,13 +85,13 @@ Bruce and the E Street Band deliver a typical Night One show at the first of two
 
 **1999:**<br>
 
-[https://videopress.com/embed/3HRnAU3V?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3HRnAU3V?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/3HRnAU3V](https://videopress.com/embed/3HRnAU3V)
 
 When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays "" for the first time in 19 years.
 
 **2000:** [It's Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)
 
-[https://videopress.com/embed/7evt8l2F?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7evt8l2F?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/7evt8l2F](https://videopress.com/embed/7evt8l2F)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29a-300x228.jpg?resize=758%2C576)
 
@@ -107,9 +107,9 @@ Bruce makes a guest appearance on "" with The Rolling Stones at Rock in Rio in L
 
 **2014:** [Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/)
 
-[https://www.youtube.com/embed/YQ9a6lh9sps?feature=oembed](https://www.youtube.com/embed/YQ9a6lh9sps?feature=oembed)
+[https://www.youtube.com/embed/YQ9a6lh9sps](https://www.youtube.com/embed/YQ9a6lh9sps)
 
-[https://www.youtube.com/embed/GVPGA9gI_Dw?feature=oembed](https://www.youtube.com/embed/GVPGA9gI_Dw?feature=oembed)
+[https://www.youtube.com/embed/GVPGA9gI_Dw](https://www.youtube.com/embed/GVPGA9gI_Dw)
 
 Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acoustic piano "" followed by a three-pack. The entire U2 band is at the show, and Bono joins Bruce on stage for "Because the Night."
 
@@ -117,18 +117,18 @@ Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acou
 
 [https://www.youtube.com/embed/GCYKxpavmyM?start=92&amp;feature=oembed](https://www.youtube.com/embed/GCYKxpavmyM?start=92&amp;feature=oembed)
 
-[https://www.youtube.com/embed/bjwjKtev0-s?feature=oembed](https://www.youtube.com/embed/bjwjKtev0-s?feature=oembed)
+[https://www.youtube.com/embed/bjwjKtev0-s](https://www.youtube.com/embed/bjwjKtev0-s)
 
-[https://www.youtube.com/embed/KSOa2fRFG_Q?feature=oembed](https://www.youtube.com/embed/KSOa2fRFG_Q?feature=oembed)
+[https://www.youtube.com/embed/KSOa2fRFG_Q](https://www.youtube.com/embed/KSOa2fRFG_Q)
 
-[https://www.youtube.com/embed/cgF00A17LwQ?feature=oembed](https://www.youtube.com/embed/cgF00A17LwQ?feature=oembed)
+[https://www.youtube.com/embed/cgF00A17LwQ](https://www.youtube.com/embed/cgF00A17LwQ)
 
-[https://www.youtube.com/embed/dYl5h2vAxOs?feature=oembed](https://www.youtube.com/embed/dYl5h2vAxOs?feature=oembed)
+[https://www.youtube.com/embed/dYl5h2vAxOs](https://www.youtube.com/embed/dYl5h2vAxOs)
 
 Bruce makes one of his strangest pandemic appearances, remotely joining Dropkick Murphys on "Rose Tattoo" and "" in their empty stadium performance at Fenway Park.
 
 **2020:** [American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)
 
-[https://www.youtube.com/embed/0I4SBPyGD9g?feature=oembed](https://www.youtube.com/embed/0I4SBPyGD9g?feature=oembed)
+[https://www.youtube.com/embed/0I4SBPyGD9g](https://www.youtube.com/embed/0I4SBPyGD9g)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2020-05-29.jpg?resize=758%2C452&amp;ssl=1)

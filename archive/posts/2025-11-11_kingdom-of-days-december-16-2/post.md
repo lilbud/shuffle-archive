@@ -9,7 +9,7 @@ Bruce and the E Street Band bring the now red-hot Born to Run Tour to the State 
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/sRQcszLVROs?feature=oembed](https://www.youtube.com/embed/sRQcszLVROs?feature=oembed)
+[https://www.youtube.com/embed/sRQcszLVROs](https://www.youtube.com/embed/sRQcszLVROs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1975-12-16.png?resize=758%2C356&amp;ssl=1)
 
@@ -19,19 +19,19 @@ Less famous than its Night One counterpart, Bruce's second Darkness show at the 
 
 **1978:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[his cover](http://estreetshuffle.com/index.php/2018/07/17/cover-me-greg-kihn-band-rendezvous/)[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)*Live 1975-85*[here](https://live.brucespringsteen.net/live-music/0,23724/Bruce-Springsteen-mp3-flac-download-12-16-1978-Winterland-Arena-San-Francisco-CA.html)
 
-[https://www.youtube.com/embed/YX4hAJEQ3Co?feature=oembed](https://www.youtube.com/embed/YX4hAJEQ3Co?feature=oembed)
+[https://www.youtube.com/embed/YX4hAJEQ3Co](https://www.youtube.com/embed/YX4hAJEQ3Co)
 
 At Night Two at the Boston Garden on the original River Tour, Bruce tour premieres "" and plays "" for the last time for 28 years.
 
 **1980:** [Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)[Crush on You](http://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)
 
-[https://www.youtube.com/embed/PA-dLR83MhI?feature=oembed](https://www.youtube.com/embed/PA-dLR83MhI?feature=oembed)
+[https://www.youtube.com/embed/PA-dLR83MhI](https://www.youtube.com/embed/PA-dLR83MhI)
 
 Bruce and the E Street Band start their last Born in the U.S.A. stand of the year at The Omni in Atlanta, where Little Steven guest stars for the entire encore set.
 
 **1984:**<br>
 
-[https://www.youtube.com/embed/AJ5y99Cucz4?feature=oembed](https://www.youtube.com/embed/AJ5y99Cucz4?feature=oembed)
+[https://www.youtube.com/embed/AJ5y99Cucz4](https://www.youtube.com/embed/AJ5y99Cucz4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1984-12-16.png?resize=758%2C440&amp;ssl=1)
 
@@ -39,7 +39,7 @@ Joe Grushecky joins Bruce and his new touring band for "‘ and "" when World To
 
 **1992:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
-[https://videopress.com/embed/DzFye1yV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DzFye1yV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/DzFye1yV](https://videopress.com/embed/DzFye1yV)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-16.png?resize=758%2C298&amp;ssl=1)
 
@@ -49,9 +49,9 @@ At Night Two at the Orpheum Theater in Boston on the Ghost of Tom Joad Tour, Bru
 
 **1995:** [Brothers Under the Bridge](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
 
-[https://www.youtube.com/embed/mdNEGaautJw?feature=oembed](https://www.youtube.com/embed/mdNEGaautJw?feature=oembed)
+[https://www.youtube.com/embed/mdNEGaautJw](https://www.youtube.com/embed/mdNEGaautJw)
 
-[https://www.youtube.com/embed/fTbt94xmkIY?feature=oembed](https://www.youtube.com/embed/fTbt94xmkIY?feature=oembed)
+[https://www.youtube.com/embed/fTbt94xmkIY](https://www.youtube.com/embed/fTbt94xmkIY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1995-12-16.png?resize=758%2C419&amp;ssl=1)
 
@@ -63,15 +63,15 @@ Bruce and the E Street Band bring the Rising Tour to the Value City Arena in Col
 
 **2002:** [If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)[Hang on Sloopy](https://estreetshuffle.com/index.php/2020/04/07/cover-me-hang-on-sloopy/)
 
-[https://videopress.com/embed/Kr7eHWGX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Kr7eHWGX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Kr7eHWGX](https://videopress.com/embed/Kr7eHWGX)
 
-[https://videopress.com/embed/44CBegiw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/44CBegiw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/44CBegiw](https://videopress.com/embed/44CBegiw)
 
 Bruce releases "," the third single from his upcoming album,
 
 **2008:**[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)*Working on a Dream.*
 
-[https://videopress.com/embed/mOPjCZv9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mOPjCZv9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/mOPjCZv9](https://videopress.com/embed/mOPjCZv9)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: actress Laura Dern.
 
@@ -83,7 +83,7 @@ At the stroke of midnight, Netflix starts the day by releasing the streaming vid
 
 **2018:** *Springsteen on Broadway.*
 
-[https://www.youtube.com/embed/M1xDzgob1JI?feature=oembed](https://www.youtube.com/embed/M1xDzgob1JI?feature=oembed)
+[https://www.youtube.com/embed/M1xDzgob1JI](https://www.youtube.com/embed/M1xDzgob1JI)
 
 E Street Radio premieres Volume 16 of Bruce's radio show, entitled "Hits of the Week."
 

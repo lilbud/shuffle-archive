@@ -5,4 +5,4 @@ I'm not the biggest Cher fan, and the whole "bar in the sky" thing is a bit over
 
 Also: Darlene Love! She classes up any act.
 
-[https://www.youtube.com/embed/Kdg4FejMAZA?feature=oembed](https://www.youtube.com/embed/Kdg4FejMAZA?feature=oembed)
+[https://www.youtube.com/embed/Kdg4FejMAZA](https://www.youtube.com/embed/Kdg4FejMAZA)

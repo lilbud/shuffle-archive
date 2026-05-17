@@ -41,17 +41,17 @@ As show time neared, the contest winners were right back up front. The show was 
 -
 [If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
-[https://videopress.com/embed/eUV8Hd1P?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eUV8Hd1P?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/eUV8Hd1P](https://videopress.com/embed/eUV8Hd1P)
 
 - (w/ Little Steven): This was a rocked up version similar to the SNL version, but extended with audio of news reports related to the L.A. riots, including chants of "No justice, no peace!" at the beginning, and "Prejudice hurts!" at the end.
 [57 Channels](http://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)
 
-[https://videopress.com/embed/LQZeF5Jg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/LQZeF5Jg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/LQZeF5Jg](https://videopress.com/embed/LQZeF5Jg)
 
 - : Primarily Bruce on electric guitar, with Roy and the band coming in during the song
 [The Big Muddy](http://estreetshuffle.com/index.php/2019/01/29/roll-of-the-dice-the-big-muddy/)
 
-[https://videopress.com/embed/eD05kswB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eD05kswB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/eD05kswB](https://videopress.com/embed/eD05kswB)
 
 -
 [Living Poof](http://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)-
@@ -59,26 +59,26 @@ As show time neared, the contest winners were right back up front. The show was 
 -
 [Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)
 
-[https://videopress.com/embed/sE7K2fDS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/sE7K2fDS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/sE7K2fDS](https://videopress.com/embed/sE7K2fDS)
 
 - (an extended version that showed off the background singers)
 [Roll of the Dice](http://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)
 
-[https://www.youtube.com/embed/yGaDOwpyocA?feature=oembed](https://www.youtube.com/embed/yGaDOwpyocA?feature=oembed)
+[https://www.youtube.com/embed/yGaDOwpyocA](https://www.youtube.com/embed/yGaDOwpyocA)
 
 - , with Patti joining to sing backup
 [Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)
 
-[https://videopress.com/embed/K2A6d4DI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/K2A6d4DI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/K2A6d4DI](https://videopress.com/embed/K2A6d4DI)
 
 - , with Little Steven
 [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
-[https://videopress.com/embed/er94Z6vt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/er94Z6vt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/er94Z6vt](https://videopress.com/embed/er94Z6vt)
 
 - and an acoustic "Hungry Heart"
 
-[https://videopress.com/embed/71qk28wQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/71qk28wQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/71qk28wQ](https://videopress.com/embed/71qk28wQ)
 
 Then when the broadcast ended, he said that he was going to take a short break and come out and play some more just for those of us there.
 

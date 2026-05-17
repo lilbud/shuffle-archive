@@ -5,11 +5,11 @@ Bruce's take on the song is quieter, slower and more taut than the original, wit
 
 Here's Bruce's first of only three performances ever of "Run Through the Jungle."
 
-[https://www.youtube.com/embed/3XZjhZWbB34?feature=oembed](https://www.youtube.com/embed/3XZjhZWbB34?feature=oembed)
+[https://www.youtube.com/embed/3XZjhZWbB34](https://www.youtube.com/embed/3XZjhZWbB34)
 
 Interestingly, Bruce's version has extra verses, presumably written by him. Compare with the original Creedence Clearwater Revival version:
 
-[https://www.youtube.com/embed/_7PUPNxsRQ0?feature=oembed](https://www.youtube.com/embed/_7PUPNxsRQ0?feature=oembed)
+[https://www.youtube.com/embed/_7PUPNxsRQ0](https://www.youtube.com/embed/_7PUPNxsRQ0)
 
 A couple of those new lyrics would turn up later in the year in a new song Bruce was working on but was never released: ""
 

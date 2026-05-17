@@ -43,15 +43,15 @@ Bruce and the E Street Band play one of their best shows of the Darkness Tour at
 
 **1978:** [here](http://live.brucespringsteen.net/live-music/0,11757/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-9-1978-The-Agora-Cleveland-OH.html)
 
-[https://www.youtube.com/embed/C0B_oQVd4X4?feature=oembed](https://www.youtube.com/embed/C0B_oQVd4X4?feature=oembed)
+[https://www.youtube.com/embed/C0B_oQVd4X4](https://www.youtube.com/embed/C0B_oQVd4X4)
 
-[https://www.youtube.com/embed/Jic6a-PYQJU?feature=oembed](https://www.youtube.com/embed/Jic6a-PYQJU?feature=oembed)
+[https://www.youtube.com/embed/Jic6a-PYQJU](https://www.youtube.com/embed/Jic6a-PYQJU)
 
-[https://www.youtube.com/embed/C1Qbfo56_Dw?feature=oembed](https://www.youtube.com/embed/C1Qbfo56_Dw?feature=oembed)
+[https://www.youtube.com/embed/C1Qbfo56_Dw](https://www.youtube.com/embed/C1Qbfo56_Dw)
 
-[https://www.youtube.com/embed/IY9Y8aPrmR4?feature=oembed](https://www.youtube.com/embed/IY9Y8aPrmR4?feature=oembed)
+[https://www.youtube.com/embed/IY9Y8aPrmR4](https://www.youtube.com/embed/IY9Y8aPrmR4)
 
-[https://www.youtube.com/embed/aam-TrgtCWI?feature=oembed](https://www.youtube.com/embed/aam-TrgtCWI?feature=oembed)
+[https://www.youtube.com/embed/aam-TrgtCWI](https://www.youtube.com/embed/aam-TrgtCWI)
 
 Bruce's scheduled River Tour gig in Detroit is postponed by three days.
 
@@ -63,15 +63,15 @@ At Night Four of Ten at the Meadowlands during the Born in the U.S.A. Tour, J. T
 
 **1984:** [A Woman's Got the Power](http://estreetshuffle.com/index.php/2018/03/01/cover-me-a-womans-got-the-power/)
 
-[https://videopress.com/embed/t5cDigsh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/t5cDigsh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/t5cDigsh](https://videopress.com/embed/t5cDigsh)
 
 The Born in the U.S.A. stadium tour lands at Soldier Field in Chicago, and the show is captured in stellar quality.
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/l-IRmIGFCnc?feature=oembed](https://www.youtube.com/embed/l-IRmIGFCnc?feature=oembed)
+[https://www.youtube.com/embed/l-IRmIGFCnc](https://www.youtube.com/embed/l-IRmIGFCnc)
 
-[https://videopress.com/embed/MKWi66OU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MKWi66OU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/MKWi66OU](https://videopress.com/embed/MKWi66OU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1985-08-09a.png?resize=758%2C1624&amp;ssl=1)
 
@@ -81,7 +81,7 @@ Bruce and the E Street Band play a mostly-covers set at The Stone Pony in Asbury
 
 **1987:**<br>
 
-[https://videopress.com/embed/MVKuXisC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MVKuXisC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/MVKuXisC](https://videopress.com/embed/MVKuXisC)
 
 is certified 11x multi-platinum by the Recording Industry Association of America.
 
@@ -107,11 +107,11 @@ Night Thirteen of fifteen at the Meadowlands sees the Reunion Tour premiere and 
 
 **1999:** [Frankie](http://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)
 
-[https://videopress.com/embed/R5VjRrxz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/R5VjRrxz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/R5VjRrxz](https://videopress.com/embed/R5VjRrxz)
 
-[https://www.youtube.com/embed/zJN-z0HPSFk?feature=oembed](https://www.youtube.com/embed/zJN-z0HPSFk?feature=oembed)
+[https://www.youtube.com/embed/zJN-z0HPSFk](https://www.youtube.com/embed/zJN-z0HPSFk)
 
-[https://videopress.com/embed/tPOid8Zg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tPOid8Zg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/tPOid8Zg](https://videopress.com/embed/tPOid8Zg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1999-08-09a.png?resize=454%2C1946&amp;ssl=1)
 
@@ -121,7 +121,7 @@ Bruce and the band play their second of three nights at Philadelphia's Lincoln F
 
 **2003:**<br>
 
-[https://videopress.com/embed/X1CpfvCE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/X1CpfvCE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/X1CpfvCE](https://videopress.com/embed/X1CpfvCE)
 
 is certified gold by the Recording Industry Association of America.
 
@@ -145,8 +145,8 @@ Bruce and E Street Band kick off the second domestic leg of their 2023 World Tou
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/1hI3bwtVBYg?feature=oembed](https://www.youtube.com/embed/1hI3bwtVBYg?feature=oembed)
+[https://www.youtube.com/embed/1hI3bwtVBYg](https://www.youtube.com/embed/1hI3bwtVBYg)
 
 [https://www.youtube.com/embed/xPWHcaFm_Eg?list=PLnbVaK2f4rahU_DvtqxkeNNFNbeaN6tG6](https://www.youtube.com/embed/xPWHcaFm_Eg?list=PLnbVaK2f4rahU_DvtqxkeNNFNbeaN6tG6)
 
-[https://www.youtube.com/embed/XACFAhXviyQ?feature=oembed](https://www.youtube.com/embed/XACFAhXviyQ?feature=oembed)
+[https://www.youtube.com/embed/XACFAhXviyQ](https://www.youtube.com/embed/XACFAhXviyQ)

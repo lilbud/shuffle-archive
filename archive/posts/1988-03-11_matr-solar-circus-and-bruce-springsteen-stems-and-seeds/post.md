@@ -16,7 +16,7 @@ In true Springsteen fashion, a couple of songs turned into five; in true Dead fa
 
 Bruce doesn't sing in the recording below (since this was an impromptu performance, we can assume that he wasn't familiar enough with the band's original songs), but we can hear his prominent guitar throughout, especially when he takes a solo about five minutes in.
 
-[https://videopress.com/embed/wvkjqrYF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wvkjqrYF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wvkjqrYF](https://videopress.com/embed/wvkjqrYF)
 
 That was the first and only time Bruce performed with Solar Circus.
 

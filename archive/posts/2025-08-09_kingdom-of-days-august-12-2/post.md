@@ -39,7 +39,7 @@ Bruce and the E Street Band play their second of two nights at Detroit's Joe Lou
 
 **1981:** [Detroit Medley.](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
-[https://videopress.com/embed/O8YUTq5R?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/O8YUTq5R?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/O8YUTq5R](https://videopress.com/embed/O8YUTq5R)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zA1TFgf6jVO6s3jMFbLoHkt](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zA1TFgf6jVO6s3jMFbLoHkt)
 
@@ -47,15 +47,15 @@ Southside Johnny guest-stars on "Twist and Shout" at Night Six of a ten-night Me
 
 **1984:**<br>
 
-[https://www.youtube.com/embed/xQWHgkEPO6M?feature=oembed](https://www.youtube.com/embed/xQWHgkEPO6M?feature=oembed)
+[https://www.youtube.com/embed/xQWHgkEPO6M](https://www.youtube.com/embed/xQWHgkEPO6M)
 
-[https://www.youtube.com/embed/ltFmBMtLr3A?feature=oembed](https://www.youtube.com/embed/ltFmBMtLr3A?feature=oembed)
+[https://www.youtube.com/embed/ltFmBMtLr3A](https://www.youtube.com/embed/ltFmBMtLr3A)
 
 Bruce takes in a Yankees game and stops by the clubhouse to sign a guitar.
 
 **1998:**<br>
 
-[https://www.youtube.com/embed/59rOfptTacI?feature=oembed](https://www.youtube.com/embed/59rOfptTacI?feature=oembed)
+[https://www.youtube.com/embed/59rOfptTacI](https://www.youtube.com/embed/59rOfptTacI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1998-08-11a-300x197.png?resize=758%2C497)
 
@@ -65,11 +65,11 @@ Bruce and the E Street Band wrap up their astounding fifteen-night Reunion stand
 
 **1999:** [Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://www.youtube.com/embed/DNzLnlxJh20?feature=oembed](https://www.youtube.com/embed/DNzLnlxJh20?feature=oembed)
+[https://www.youtube.com/embed/DNzLnlxJh20](https://www.youtube.com/embed/DNzLnlxJh20)
 
-[https://www.youtube.com/embed/tp5QXKa6DIU?feature=oembed](https://www.youtube.com/embed/tp5QXKa6DIU?feature=oembed)
+[https://www.youtube.com/embed/tp5QXKa6DIU](https://www.youtube.com/embed/tp5QXKa6DIU)
 
-[https://videopress.com/embed/kGzGDIv0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kGzGDIv0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/kGzGDIv0](https://videopress.com/embed/kGzGDIv0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1999-08-12-244x300.png?resize=758%2C932)
 
@@ -77,9 +77,9 @@ Bruce and the E Street Band bring the Rising Tour to Madison Square Garden, wher
 
 **2002:** [Countin' on a Miracle](http://estreetshuffle.com/index.php/2019/02/05/roll-of-the-dice-countin-on-a-miracle/)
 
-[https://www.youtube.com/embed/bFys3yQTPIc?feature=oembed](https://www.youtube.com/embed/bFys3yQTPIc?feature=oembed)
+[https://www.youtube.com/embed/bFys3yQTPIc](https://www.youtube.com/embed/bFys3yQTPIc)
 
-[https://videopress.com/embed/pNq9JhnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pNq9JhnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/pNq9JhnV](https://videopress.com/embed/pNq9JhnV)
 
 [https://geo.dailymotion.com/player.html?video=x2netx&amp;](https://geo.dailymotion.com/player.html?video=x2netx&amp;)
 

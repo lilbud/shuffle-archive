@@ -7,13 +7,13 @@ Bruce had "special guests" join him for parts of the set each night, and by the 
 
 One of the many highlights from that final night: Steve Van Zandt joining Bruce for a unique arrangement of "I Don't Want to Go Home," backed by Danny Federici on accordion, Richard Blackwell on congas, and Patti Scialfa and Soozie Tyrell on backing vocals.
 
-[https://www.youtube.com/embed/auJMMvuPV7k?feature=oembed](https://www.youtube.com/embed/auJMMvuPV7k?feature=oembed)
+[https://www.youtube.com/embed/auJMMvuPV7k](https://www.youtube.com/embed/auJMMvuPV7k)
 
 There are so many great versions of this Stevie-penned classic to choose highlight here, and it was tempting to go with one of the many team-ups between Bruce and Southside Johnny. But in the end, I always come back to this version as my favorite. Bruce and Steve's camaraderie and joy in playing together shines through this infectious arrangement.
 
 And as always, here's the original for comparison.
 
-[https://www.youtube.com/embed/tRVkS6Owp9Q?feature=oembed](https://www.youtube.com/embed/tRVkS6Owp9Q?feature=oembed)
+[https://www.youtube.com/embed/tRVkS6Owp9Q](https://www.youtube.com/embed/tRVkS6Owp9Q)
 
 July 22, 1976 (Los Angeles, CA)
 July 6, 2019 (Asbury Park, NJ)

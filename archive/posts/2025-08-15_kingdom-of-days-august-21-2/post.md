@@ -33,7 +33,7 @@ Bruce and the boys kick off a three-night Darkness Tour stand at Madison Square 
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/5AJeDj3og0A?feature=oembed](https://www.youtube.com/embed/5AJeDj3og0A?feature=oembed)
+[https://www.youtube.com/embed/5AJeDj3og0A](https://www.youtube.com/embed/5AJeDj3og0A)
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1BMGlg5htzeREH7csgj0guB](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1BMGlg5htzeREH7csgj0guB)
 
@@ -43,7 +43,7 @@ Bruce records "" with the E Street Band at The Power Station in New York City. I
 
 **1979:** [Dollhouse](https://estreetshuffle.com/index.php/2020/08/15/roll-of-the-dice-dollhouse/)
 
-[https://www.youtube.com/embed/HpF_i71cqVQ?feature=oembed](https://www.youtube.com/embed/HpF_i71cqVQ?feature=oembed)
+[https://www.youtube.com/embed/HpF_i71cqVQ](https://www.youtube.com/embed/HpF_i71cqVQ)
 
 At the second of six nights at the Los Angeles Memorial Sports Arena on the River Tour, Flo and Eddie guest-star on "." (They also provided backing vocals on the original album track.)
 
@@ -51,25 +51,25 @@ At the second of six nights at the Los Angeles Memorial Sports Arena on the Rive
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBsoSImHtGzvLwx-Z_eDw-P](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBsoSImHtGzvLwx-Z_eDw-P)
 
-[https://www.youtube.com/embed/xwVaag7j2KI?feature=oembed](https://www.youtube.com/embed/xwVaag7j2KI?feature=oembed)
+[https://www.youtube.com/embed/xwVaag7j2KI](https://www.youtube.com/embed/xwVaag7j2KI)
 
 At the third of a four-night Giants Stadium stand (there will be two more later in the summer), "" is recorded and eventually released on .
 
 **1985:** [Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)*Live 1975-85*
 
-[https://www.youtube.com/embed/HsgPJoBLbFU?feature=oembed](https://www.youtube.com/embed/HsgPJoBLbFU?feature=oembed)
+[https://www.youtube.com/embed/HsgPJoBLbFU](https://www.youtube.com/embed/HsgPJoBLbFU)
 
 Bruce and Stevie share a stage again, when Bruce joins Steve and The Disciples of Soul at their Stone Pony gig for "" and "Sun City."
 
 **1987:** [Native American](http://estreetshuffle.com/index.php/2019/10/25/matr-little-steven-and-bruce-springsteen-native-american/)
 
-[https://www.youtube.com/embed/63bxYb-NsOw?feature=oembed](https://www.youtube.com/embed/63bxYb-NsOw?feature=oembed)
+[https://www.youtube.com/embed/63bxYb-NsOw](https://www.youtube.com/embed/63bxYb-NsOw)
 
 Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for "" and ""
 
 **1988:** [Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)[Around and Around.](http://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)(Photo credit: Debra Rothenberg)
 
-[https://videopress.com/embed/38uvJMi5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/38uvJMi5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/38uvJMi5](https://videopress.com/embed/38uvJMi5)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1988-08-21-153x300.png?resize=758%2C1487)
 
@@ -85,7 +85,7 @@ Bruce and his 1992-93 touring band bring World Tour 1992 to the Richfield Colise
 
 **1992:**<br>
 
-[https://videopress.com/embed/aiv7ziZl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aiv7ziZl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/aiv7ziZl](https://videopress.com/embed/aiv7ziZl)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-21a-300x268.png?resize=758%2C677)
 
@@ -95,9 +95,9 @@ Bruce and the reunited E Street Band kick off a five-night Boston stand at the F
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/DU1Af39FXks?feature=oembed](https://www.youtube.com/embed/DU1Af39FXks?feature=oembed)
+[https://www.youtube.com/embed/DU1Af39FXks](https://www.youtube.com/embed/DU1Af39FXks)
 
-[https://videopress.com/embed/tmIPLdJI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tmIPLdJI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/tmIPLdJI](https://videopress.com/embed/tmIPLdJI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1999-0821-201x300.jpg?resize=758%2C1131)
 
@@ -107,9 +107,9 @@ Bruce debuts the modern-day rock arrangement of "" at his Rising Tour show in Ta
 
 **2002:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)[](http://estreetshuffle.com/index.php/2018/08/21/where-the-band-was-tacoma-august-21-2002/)*Where the Band Was*[report.](http://estreetshuffle.com/index.php/2018/08/21/where-the-band-was-tacoma-august-21-2002/)
 
-[https://www.youtube.com/embed/EtJH29n-76Y?feature=oembed](https://www.youtube.com/embed/EtJH29n-76Y?feature=oembed)
+[https://www.youtube.com/embed/EtJH29n-76Y](https://www.youtube.com/embed/EtJH29n-76Y)
 
-[https://www.youtube.com/embed/POE4Ab8EDzQ?feature=oembed](https://www.youtube.com/embed/POE4Ab8EDzQ?feature=oembed)
+[https://www.youtube.com/embed/POE4Ab8EDzQ](https://www.youtube.com/embed/POE4Ab8EDzQ)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCglog4rO23DhkYFmSYQjxS](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCglog4rO23DhkYFmSYQjxS)
 
@@ -121,11 +121,11 @@ Bruce takes a Magic Tour victory lap this week, with each show bringing its own 
 
 **2008:** [Good Rockin' Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)[I Fought the Law.](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)[here](https://www.youtube.com/playlist?list=PLJTyL9twk3zCglog4rO23DhkYFmSYQjxS)
 
-[https://www.youtube.com/embed/UGXQoUmXRWo?feature=oembed](https://www.youtube.com/embed/UGXQoUmXRWo?feature=oembed)
+[https://www.youtube.com/embed/UGXQoUmXRWo](https://www.youtube.com/embed/UGXQoUmXRWo)
 
-[https://www.youtube.com/embed/4I3xFM6r5I8?feature=oembed](https://www.youtube.com/embed/4I3xFM6r5I8?feature=oembed)
+[https://www.youtube.com/embed/4I3xFM6r5I8](https://www.youtube.com/embed/4I3xFM6r5I8)
 
-[https://www.youtube.com/embed/tvDBEz9WmPM?feature=oembed](https://www.youtube.com/embed/tvDBEz9WmPM?feature=oembed)
+[https://www.youtube.com/embed/tvDBEz9WmPM](https://www.youtube.com/embed/tvDBEz9WmPM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2008-08-21.png?resize=758%2C1120&amp;ssl=1)
 
@@ -139,7 +139,7 @@ Bruce sends a pre-recorded birthday video for a Save Our Stages benefit in honor
 
 **2020:**<br>
 
-[https://www.youtube.com/embed/PvOFyHs_P3k?feature=oembed](https://www.youtube.com/embed/PvOFyHs_P3k?feature=oembed)
+[https://www.youtube.com/embed/PvOFyHs_P3k](https://www.youtube.com/embed/PvOFyHs_P3k)
 
 Bruce is scheduled to perform "Because the Night" with Patti Smith at Clive Davis' a post-COVID (we thought) celebration of the return of "normal." A storm builds, however, and the event is cancelled before Bruce and Patti are able to take the stage.
 
@@ -159,6 +159,6 @@ More than a year after its originally scheduled date, Bruce and the E Street Ban
 
 **2024:** [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
-[https://www.youtube.com/embed/XgzhV-a0Yiw?feature=oembed](https://www.youtube.com/embed/XgzhV-a0Yiw?feature=oembed)
+[https://www.youtube.com/embed/XgzhV-a0Yiw](https://www.youtube.com/embed/XgzhV-a0Yiw)
 
-[https://www.youtube.com/embed/dRRbXXZXx_Y?feature=oembed](https://www.youtube.com/embed/dRRbXXZXx_Y?feature=oembed)
+[https://www.youtube.com/embed/dRRbXXZXx_Y](https://www.youtube.com/embed/dRRbXXZXx_Y)

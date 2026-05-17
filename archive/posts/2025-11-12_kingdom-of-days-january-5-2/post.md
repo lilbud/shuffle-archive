@@ -45,7 +45,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 **1985**<br>
 
-[https://videopress.com/embed/uLsPLzGo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uLsPLzGo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uLsPLzGo](https://videopress.com/embed/uLsPLzGo)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3>
 
@@ -63,4 +63,4 @@ Bruce releases a video commemorating the 50th anniversary of
 
 **2023:** *Greetings From Asbury Park, N.J.*
 
-[https://www.youtube.com/embed/c0m-nCI1B3E?feature=oembed](https://www.youtube.com/embed/c0m-nCI1B3E?feature=oembed)
+[https://www.youtube.com/embed/c0m-nCI1B3E](https://www.youtube.com/embed/c0m-nCI1B3E)

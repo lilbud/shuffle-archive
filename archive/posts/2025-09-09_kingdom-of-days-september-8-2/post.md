@@ -19,9 +19,9 @@ The River Tour arrives in Chicago for the first of three nights at the Rosemont 
 
 **1981:**<br>
 
-[https://videopress.com/embed/G9I9gL8f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/G9I9gL8f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/G9I9gL8f](https://videopress.com/embed/G9I9gL8f)
 
-[https://www.youtube.com/embed/VhRhyFda0zA?feature=oembed](https://www.youtube.com/embed/VhRhyFda0zA?feature=oembed)
+[https://www.youtube.com/embed/VhRhyFda0zA](https://www.youtube.com/embed/VhRhyFda0zA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1981-09-08-281x300.jpg?resize=758%2C809)
 
@@ -29,23 +29,23 @@ At Night Two in Hartford on the Born in the U.S.A. Tour, Bruce plays "" for the 
 
 **1984:** [State Trooper](http://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)
 
-[https://www.youtube.com/embed/54ioyqhbVPQ?feature=oembed](https://www.youtube.com/embed/54ioyqhbVPQ?feature=oembed)
+[https://www.youtube.com/embed/54ioyqhbVPQ](https://www.youtube.com/embed/54ioyqhbVPQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Hartford_Courant_1984_09_13_Page_111.jpg?resize=758%2C540&amp;ssl=1)
 
 After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio special. It won't be broadcast until December, but you can listen to it below. (The interview is interspersed between and within songs, so be careful if you skip ahead.)
 
-[https://videopress.com/embed/TnYc9num?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/TnYc9num?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/TnYc9num](https://videopress.com/embed/TnYc9num)
 
-[https://videopress.com/embed/ihqPmtmL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ihqPmtmL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ihqPmtmL](https://videopress.com/embed/ihqPmtmL)
 
 The Human Rights Now! Tour continues its global trek, arriving in Italy for one show in Turin.
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/8DBwoLQ0yKE?feature=oembed](https://www.youtube.com/embed/8DBwoLQ0yKE?feature=oembed)
+[https://www.youtube.com/embed/8DBwoLQ0yKE](https://www.youtube.com/embed/8DBwoLQ0yKE)
 
-[https://www.youtube.com/embed/wjnDast_iRo?feature=oembed](https://www.youtube.com/embed/wjnDast_iRo?feature=oembed)
+[https://www.youtube.com/embed/wjnDast_iRo](https://www.youtube.com/embed/wjnDast_iRo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-08-279x300.jpg?resize=758%2C815)
 
@@ -59,9 +59,9 @@ Bruce wins the MTV Video Music Award for Best Video from a Film for "" (although
 
 **1994:** [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
-[https://www.youtube.com/embed/9Wk02N6bcIw?feature=oembed](https://www.youtube.com/embed/9Wk02N6bcIw?feature=oembed)
+[https://www.youtube.com/embed/9Wk02N6bcIw](https://www.youtube.com/embed/9Wk02N6bcIw)
 
-[https://www.youtube.com/embed/LamPI5XMWUw?feature=oembed](https://www.youtube.com/embed/LamPI5XMWUw?feature=oembed)
+[https://www.youtube.com/embed/LamPI5XMWUw](https://www.youtube.com/embed/LamPI5XMWUw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1994-09-08.jpg?resize=758%2C2013&amp;ssl=1)
 
@@ -69,7 +69,7 @@ Bruce and the reunited E Street Band play their first of two shows at The Palace
 
 **1999:**<br>
 
-[https://videopress.com/embed/DjhQvXvh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DjhQvXvh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/DjhQvXvh](https://videopress.com/embed/DjhQvXvh)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1999-09-08-300x89.jpg?resize=758%2C225)
 
@@ -79,24 +79,24 @@ On Night Two at Wrigley Field, Eddie Vedder and Tom Morello reprise their guest 
 
 **2012:** [This Depression](http://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)
 
-[https://www.youtube.com/embed/_TRdkkamG5o?feature=oembed](https://www.youtube.com/embed/_TRdkkamG5o?feature=oembed)
+[https://www.youtube.com/embed/_TRdkkamG5o](https://www.youtube.com/embed/_TRdkkamG5o)
 
-[https://www.youtube.com/embed/8QQ3tSgOXpA?feature=oembed](https://www.youtube.com/embed/8QQ3tSgOXpA?feature=oembed)
+[https://www.youtube.com/embed/8QQ3tSgOXpA](https://www.youtube.com/embed/8QQ3tSgOXpA)
 
-[https://www.youtube.com/embed/9ZZyYFa7slQ?feature=oembed](https://www.youtube.com/embed/9ZZyYFa7slQ?feature=oembed)
+[https://www.youtube.com/embed/9ZZyYFa7slQ](https://www.youtube.com/embed/9ZZyYFa7slQ)
 
-[https://www.youtube.com/embed/jEmqXs-oG8w?feature=oembed](https://www.youtube.com/embed/jEmqXs-oG8w?feature=oembed)
+[https://www.youtube.com/embed/jEmqXs-oG8w](https://www.youtube.com/embed/jEmqXs-oG8w)
 
-[https://www.youtube.com/embed/5lnHz00pha8?feature=oembed](https://www.youtube.com/embed/5lnHz00pha8?feature=oembed)
+[https://www.youtube.com/embed/5lnHz00pha8](https://www.youtube.com/embed/5lnHz00pha8)
 
-[https://www.youtube.com/embed/qHpX0jNbGcs?feature=oembed](https://www.youtube.com/embed/qHpX0jNbGcs?feature=oembed)
+[https://www.youtube.com/embed/qHpX0jNbGcs](https://www.youtube.com/embed/qHpX0jNbGcs)
 
 Bruce is the star attraction at the premiere of at the Toronto Film Festival. Following the screening, he joins Little Steven, Thom Zimny, and Jon Landau for a panel discussion of the film.
 
 **2024:** *Road Diary*
 
-[https://www.youtube.com/embed/Tt4-RtJjkJo?feature=oembed](https://www.youtube.com/embed/Tt4-RtJjkJo?feature=oembed)
+[https://www.youtube.com/embed/Tt4-RtJjkJo](https://www.youtube.com/embed/Tt4-RtJjkJo)
 
-[https://www.youtube.com/embed/tN5h_AhI7PQ?feature=oembed](https://www.youtube.com/embed/tN5h_AhI7PQ?feature=oembed)
+[https://www.youtube.com/embed/tN5h_AhI7PQ](https://www.youtube.com/embed/tN5h_AhI7PQ)
 
-[https://www.youtube.com/embed/Ss2xIDQ6uOU?feature=oembed](https://www.youtube.com/embed/Ss2xIDQ6uOU?feature=oembed)
+[https://www.youtube.com/embed/Ss2xIDQ6uOU](https://www.youtube.com/embed/Ss2xIDQ6uOU)

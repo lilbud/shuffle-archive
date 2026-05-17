@@ -17,7 +17,7 @@ Quite the Independence Day for Bruce in Los Angeles: the day starts off with a t
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/38Z52NrRFb4?feature=oembed](https://www.youtube.com/embed/38Z52NrRFb4?feature=oembed)
+[https://www.youtube.com/embed/38Z52NrRFb4](https://www.youtube.com/embed/38Z52NrRFb4)
 
 After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sweeten the offer with a song dedication. But in the meantime, a loose Bruce, Clarence and Garry hit the town and leave their mark–literally–on a Sunset Strip billboard:
 
@@ -27,7 +27,7 @@ Bruce and the E Street Band complete "The Man Who Got Away" at the Power Station
 
 **1979:**<br>
 
-[https://www.youtube.com/embed/Xqc_s3sOOUE?feature=oembed](https://www.youtube.com/embed/Xqc_s3sOOUE?feature=oembed)
+[https://www.youtube.com/embed/Xqc_s3sOOUE](https://www.youtube.com/embed/Xqc_s3sOOUE)
 
 Bruce spends the holiday on the water: friend and fan Obie Dziedzic charters the 70-foot for a three hour cruise for Bruce, the band, and members of Bruce's gym. After watching the fireworks over Asbury Park, Bruce and company head to The Stone Pony.
 
@@ -39,11 +39,11 @@ At a rare July 4th concert, Bruce opens his second of three nights at London's W
 
 **1985:** [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)
 
-[https://www.youtube.com/embed/VT8tSFZ8QWs?feature=oembed](https://www.youtube.com/embed/VT8tSFZ8QWs?feature=oembed)
+[https://www.youtube.com/embed/VT8tSFZ8QWs](https://www.youtube.com/embed/VT8tSFZ8QWs)
 
-[https://www.youtube.com/embed/2Epn-TJSqIM?feature=oembed](https://www.youtube.com/embed/2Epn-TJSqIM?feature=oembed)
+[https://www.youtube.com/embed/2Epn-TJSqIM](https://www.youtube.com/embed/2Epn-TJSqIM)
 
-[https://www.youtube.com/embed/Tw-KDhmlE5k?feature=oembed](https://www.youtube.com/embed/Tw-KDhmlE5k?feature=oembed)
+[https://www.youtube.com/embed/Tw-KDhmlE5k](https://www.youtube.com/embed/Tw-KDhmlE5k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1985-07-04.jpg?resize=758%2C610&amp;ssl=1)
 
@@ -53,19 +53,19 @@ Bruce and his new touring band play their second night at Plaza Monumental in Ba
 
 **1992:**<br>
 
-[https://videopress.com/embed/3ZRVC8EG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3ZRVC8EG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/3ZRVC8EG](https://videopress.com/embed/3ZRVC8EG)
 
-[https://videopress.com/embed/bLdOUBZb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bLdOUBZb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bLdOUBZb](https://videopress.com/embed/bLdOUBZb)
 
-[https://videopress.com/embed/QSb0VzF1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QSb0VzF1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/QSb0VzF1](https://videopress.com/embed/QSb0VzF1)
 
 Bruce and the E Street Band play their first of two nights at Ullevi in Gothenburg on the Magic Tour. Bruce acknowledges the date by opening the show with the tour premiere of ""
 
 **2008:** [Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
-[https://videopress.com/embed/dkSKEfXZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dkSKEfXZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/dkSKEfXZ](https://videopress.com/embed/dkSKEfXZ)
 
-[https://www.youtube.com/embed/VtTZ8V7czFg?feature=oembed](https://www.youtube.com/embed/VtTZ8V7czFg?feature=oembed)
+[https://www.youtube.com/embed/VtTZ8V7czFg](https://www.youtube.com/embed/VtTZ8V7czFg)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBF2CkbbRvghJhqt8OJ1AhD](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBF2CkbbRvghJhqt8OJ1AhD)
 
@@ -73,8 +73,8 @@ Bruce plays an Independence Day-themed set at Bercy in Paris, featuring the tour
 
 **2012:** [4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)[American Land.](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)[here](https://live.brucespringsteen.net/packages/2,1226/Bruce-Springsteen-Paris-2012.html)
 
-[https://www.youtube.com/embed/c_vd5ZTMpNw?feature=oembed](https://www.youtube.com/embed/c_vd5ZTMpNw?feature=oembed)
+[https://www.youtube.com/embed/c_vd5ZTMpNw](https://www.youtube.com/embed/c_vd5ZTMpNw)
 
-[https://www.youtube.com/embed/SKzOHemAFPw?feature=oembed](https://www.youtube.com/embed/SKzOHemAFPw?feature=oembed)
+[https://www.youtube.com/embed/SKzOHemAFPw](https://www.youtube.com/embed/SKzOHemAFPw)
 
-[https://www.youtube.com/embed/u_BdarUIwz4?feature=oembed](https://www.youtube.com/embed/u_BdarUIwz4?feature=oembed)
+[https://www.youtube.com/embed/u_BdarUIwz4](https://www.youtube.com/embed/u_BdarUIwz4)

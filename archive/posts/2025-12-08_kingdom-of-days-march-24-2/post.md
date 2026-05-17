@@ -21,7 +21,7 @@ At the Power Station in New York City, Bruce and the E Street Band work on "Hung
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/boJhWtw-6Gg?feature=oembed](https://www.youtube.com/embed/boJhWtw-6Gg?feature=oembed)
+[https://www.youtube.com/embed/boJhWtw-6Gg](https://www.youtube.com/embed/boJhWtw-6Gg)
 
 Bruce postpones a scheduled show in Manchester in order to recover from the first two legs of the River Tour.
 
@@ -31,13 +31,13 @@ In his home studio in Los Angeles, Bruce records "County Fair." It will remain u
 
 **1983:**<br>
 
-[https://www.youtube.com/embed/yltKgMyWLH0?feature=oembed](https://www.youtube.com/embed/yltKgMyWLH0?feature=oembed)
+[https://www.youtube.com/embed/yltKgMyWLH0](https://www.youtube.com/embed/yltKgMyWLH0)
 
 Night Three of five in Sydney on the Born in the U.S.A. Tour.
 
 **1985:**<br>
 
-[https://videopress.com/embed/BtcDRPOX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BtcDRPOX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/BtcDRPOX](https://videopress.com/embed/BtcDRPOX)
 
 Bruce joins The Blasters on stage at the House of Blues in West Hollywood, backing the band on guitar for two numbers.
 
@@ -49,9 +49,9 @@ Bruce plays "You'll Be Comin' Down" for the first and only time when the Magic T
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/xp71N3OTQ4g?feature=oembed](https://www.youtube.com/embed/xp71N3OTQ4g?feature=oembed)
+[https://www.youtube.com/embed/xp71N3OTQ4g](https://www.youtube.com/embed/xp71N3OTQ4g)
 
-[https://www.youtube.com/embed/ZhcOV4f3xho?feature=oembed](https://www.youtube.com/embed/ZhcOV4f3xho?feature=oembed)
+[https://www.youtube.com/embed/ZhcOV4f3xho](https://www.youtube.com/embed/ZhcOV4f3xho)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2008-03-24.jpg?resize=660%2C822&amp;ssl=1)
 
@@ -59,7 +59,7 @@ The second and final rehearsal show for the Working on a Dream Tour features the
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/aHGw8t9zoGM?feature=oembed](https://www.youtube.com/embed/aHGw8t9zoGM?feature=oembed)
+[https://www.youtube.com/embed/aHGw8t9zoGM](https://www.youtube.com/embed/aHGw8t9zoGM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2009-03-24.jpg?resize=430%2C823&amp;ssl=1)
 
@@ -67,17 +67,17 @@ The Australian leg of the Wrecking Ball Tour moves on to Melbourne for the first
 
 **2013:**<br>
 
-[https://www.youtube.com/embed/2Oca7f4hxDM?feature=oembed](https://www.youtube.com/embed/2Oca7f4hxDM?feature=oembed)
+[https://www.youtube.com/embed/2Oca7f4hxDM](https://www.youtube.com/embed/2Oca7f4hxDM)
 
-[https://www.youtube.com/embed/G6RuCkjsUR4?feature=oembed](https://www.youtube.com/embed/G6RuCkjsUR4?feature=oembed)
+[https://www.youtube.com/embed/G6RuCkjsUR4](https://www.youtube.com/embed/G6RuCkjsUR4)
 
 The revived River Tour finally loosens up in Seattle when Bruce takes sign requests for much of the post-album set and tour premieres "Adam Raised a Cain." Eddie Vedder joins Bruce for "b" in the encores.
 
 **2016:** [Bo](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)[by Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)
 
-[https://www.youtube.com/embed/TuyXZLdfSCQ?feature=oembed](https://www.youtube.com/embed/TuyXZLdfSCQ?feature=oembed)
+[https://www.youtube.com/embed/TuyXZLdfSCQ](https://www.youtube.com/embed/TuyXZLdfSCQ)
 
-[https://www.youtube.com/embed/rIq7IEarilU?feature=oembed](https://www.youtube.com/embed/rIq7IEarilU?feature=oembed)
+[https://www.youtube.com/embed/rIq7IEarilU](https://www.youtube.com/embed/rIq7IEarilU)
 
 continues its theatrical run at the Walter Kerr Theater in New York City, where Bruce acknowledges the protesters who marched in demonstration throughout the U.S. earlier that day.
 
@@ -87,10 +87,10 @@ Bruce appears in a promotional video to announce the launch of the New Jersey Pa
 
 **2020:**<br>
 
-[https://www.youtube.com/embed/uHGGh5mFJng?feature=oembed](https://www.youtube.com/embed/uHGGh5mFJng?feature=oembed)
+[https://www.youtube.com/embed/uHGGh5mFJng](https://www.youtube.com/embed/uHGGh5mFJng)
 
 Bruce sends a video message out to remember Austalian promotor Michael Gudiski, who passed away on March 2nd, and dedicates "I'll See You in My Dreams" to him.
 
 **2021:**<br>
 
-[https://www.youtube.com/embed/n_MP_Iq5uGo?feature=oembed](https://www.youtube.com/embed/n_MP_Iq5uGo?feature=oembed)
+[https://www.youtube.com/embed/n_MP_Iq5uGo](https://www.youtube.com/embed/n_MP_Iq5uGo)

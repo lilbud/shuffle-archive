@@ -7,7 +7,7 @@ Bruce and the E Street Band wrap the first leg of the Tour at the Carrier Dome i
 
 **1985:***Born in the U.S.A.*
 
-[https://videopress.com/embed/oIAPRV7U?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oIAPRV7U?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/oIAPRV7U](https://videopress.com/embed/oIAPRV7U)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Ithaca_Journal_1985_01_28_Page_1.jpg?resize=758%2C1093&amp;ssl=1)
 
@@ -17,11 +17,11 @@ Bruce wins three American Music Awards: Favorite Pop/Rock Male Artist, Favorite 
 
 **1986:** *Born in the U.S.A.*
 
-[https://www.youtube.com/embed/BbB4dkQ5xFc?feature=oembed](https://www.youtube.com/embed/BbB4dkQ5xFc?feature=oembed)
+[https://www.youtube.com/embed/BbB4dkQ5xFc](https://www.youtube.com/embed/BbB4dkQ5xFc)
 
-[https://www.youtube.com/embed/YzXsgSu3fRk?feature=oembed](https://www.youtube.com/embed/YzXsgSu3fRk?feature=oembed)
+[https://www.youtube.com/embed/YzXsgSu3fRk](https://www.youtube.com/embed/YzXsgSu3fRk)
 
-[https://www.youtube.com/embed/_DSPk3PM1w8?feature=oembed](https://www.youtube.com/embed/_DSPk3PM1w8?feature=oembed)
+[https://www.youtube.com/embed/_DSPk3PM1w8](https://www.youtube.com/embed/_DSPk3PM1w8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1986-01-27.png?resize=758%2C369&amp;ssl=1)
 
@@ -29,7 +29,7 @@ Bruce debuts "" at the AIDS benefit in Los Angeles.
 
 **1994:** [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)*Commitment to Life*
 
-[https://www.youtube.com/embed/lhL-btWA-o4?feature=oembed](https://www.youtube.com/embed/lhL-btWA-o4?feature=oembed)
+[https://www.youtube.com/embed/lhL-btWA-o4](https://www.youtube.com/embed/lhL-btWA-o4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1994-01-27-104x300.jpg?resize=758%2C2187)
 
@@ -37,13 +37,13 @@ Bruce takes his solo tour to Tokyo, playing the first of four shows at the Inter
 
 **1997:**<br>
 
-[https://www.youtube.com/embed/TjXAs8LiE4E?feature=oembed](https://www.youtube.com/embed/TjXAs8LiE4E?feature=oembed)
+[https://www.youtube.com/embed/TjXAs8LiE4E](https://www.youtube.com/embed/TjXAs8LiE4E)
 
-[https://www.youtube.com/embed/eTBpPeipg-M?feature=oembed](https://www.youtube.com/embed/eTBpPeipg-M?feature=oembed)
+[https://www.youtube.com/embed/eTBpPeipg-M](https://www.youtube.com/embed/eTBpPeipg-M)
 
-[https://www.youtube.com/embed/dWPetn7eKCU?feature=oembed](https://www.youtube.com/embed/dWPetn7eKCU?feature=oembed)
+[https://www.youtube.com/embed/dWPetn7eKCU](https://www.youtube.com/embed/dWPetn7eKCU)
 
-[https://www.youtube.com/embed/wIjVa0j4N68?feature=oembed](https://www.youtube.com/embed/wIjVa0j4N68?feature=oembed)
+[https://www.youtube.com/embed/wIjVa0j4N68](https://www.youtube.com/embed/wIjVa0j4N68)
 
 : Bruce's sixteenth studio album, is released. Meanwhile, Bruce and the E Street Band rehearse for their upcoming Super Bowl halftime show at Raymond James Stadium in Tampa.
 
@@ -59,11 +59,11 @@ The River Tour (2016 Edition) moves on to Madison Square Garden, where "" makes 
 
 **2016:** [Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)
 
-[https://www.youtube.com/embed/2vkOSjgsP0s?feature=oembed](https://www.youtube.com/embed/2vkOSjgsP0s?feature=oembed)
+[https://www.youtube.com/embed/2vkOSjgsP0s](https://www.youtube.com/embed/2vkOSjgsP0s)
 
-[https://www.youtube.com/embed/K1Gb78wYysI?feature=oembed](https://www.youtube.com/embed/K1Gb78wYysI?feature=oembed)
+[https://www.youtube.com/embed/K1Gb78wYysI](https://www.youtube.com/embed/K1Gb78wYysI)
 
-[https://www.youtube.com/embed/GvpWKA6oIaY?feature=oembed](https://www.youtube.com/embed/GvpWKA6oIaY?feature=oembed)
+[https://www.youtube.com/embed/GvpWKA6oIaY](https://www.youtube.com/embed/GvpWKA6oIaY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/01/The_Journal_Times_Fri__Jan_29__2016_.jpg?resize=758%2C967&amp;ssl=1)
 
@@ -71,11 +71,11 @@ Night 3 in Perth features the first and only performance of "" in Australia to d
 
 **2017:**[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)
 
-[https://www.youtube.com/embed/tMo4WuOlqV8?feature=oembed](https://www.youtube.com/embed/tMo4WuOlqV8?feature=oembed)
+[https://www.youtube.com/embed/tMo4WuOlqV8](https://www.youtube.com/embed/tMo4WuOlqV8)
 
-[https://www.youtube.com/embed/646s35JmvTI?feature=oembed](https://www.youtube.com/embed/646s35JmvTI?feature=oembed)
+[https://www.youtube.com/embed/646s35JmvTI](https://www.youtube.com/embed/646s35JmvTI)
 
-[https://www.youtube.com/embed/R9qu7FLRe74?feature=oembed](https://www.youtube.com/embed/R9qu7FLRe74?feature=oembed)
+[https://www.youtube.com/embed/R9qu7FLRe74](https://www.youtube.com/embed/R9qu7FLRe74)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. David Crosby is in attendance tonight.
 

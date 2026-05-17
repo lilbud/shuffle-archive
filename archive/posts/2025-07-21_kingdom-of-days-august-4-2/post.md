@@ -33,7 +33,7 @@ Night Eight of eleven at the opening American stand of World Tour 1992 in East R
 
 **1992:** [Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)[Pony Boy](http://estreetshuffle.com/index.php/2019/03/01/roll-of-the-dice-cover-me-pony-boy/)
 
-[https://videopress.com/embed/TGLh27pu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/TGLh27pu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/TGLh27pu](https://videopress.com/embed/TGLh27pu)
 
 There are still five more nights to go in the opening U.S. stand of the Reunion Tour, but Night Ten will be hard to top: Bruce opens the show with the tour premiere of "" ("" gets a tour premiere as well), and "" is played for the first time ever.
 
@@ -41,10 +41,10 @@ There are still five more nights to go in the opening U.S. stand of the Reunion 
 
 [https://www.youtube.com/embed/jzSBtKAjMYw?start=66&amp;feature=oembed](https://www.youtube.com/embed/jzSBtKAjMYw?start=66&amp;feature=oembed)
 
-[https://videopress.com/embed/jX93hZxu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jX93hZxu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jX93hZxu](https://videopress.com/embed/jX93hZxu)
 
-[https://videopress.com/embed/VMlfy5Zr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VMlfy5Zr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VMlfy5Zr](https://videopress.com/embed/VMlfy5Zr)
 
-[https://videopress.com/embed/KHrzvhG7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KHrzvhG7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/KHrzvhG7](https://videopress.com/embed/KHrzvhG7)
 
-[https://videopress.com/embed/xJRZFtfc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xJRZFtfc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xJRZFtfc](https://videopress.com/embed/xJRZFtfc)

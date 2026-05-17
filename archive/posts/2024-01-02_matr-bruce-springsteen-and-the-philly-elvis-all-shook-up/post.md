@@ -9,15 +9,15 @@ This story belongs to Nick Ferraro–or as Bruce dubbed him, "The Philly Elvis."
 
 And although I was there in the pit that night only a few feet away to witness it, I couldn't possibly tell his story any better than Nick himself. So watch and listen–it's a remarkable story that will make any fan's heart race with excitement and shared joy.
 
-[https://www.youtube.com/embed/3QNMuArkrsA?feature=oembed](https://www.youtube.com/embed/3QNMuArkrsA?feature=oembed)
+[https://www.youtube.com/embed/3QNMuArkrsA](https://www.youtube.com/embed/3QNMuArkrsA)
 
 Pretty awesome, isn't it? Here's the entire performance uncut and with better sound for a more visceral experience:
 
-[https://www.youtube.com/embed/95UB4aMJdnI?feature=oembed](https://www.youtube.com/embed/95UB4aMJdnI?feature=oembed)
+[https://www.youtube.com/embed/95UB4aMJdnI](https://www.youtube.com/embed/95UB4aMJdnI)
 
 And yeah… the original 1957 version is pretty great, too.
 
-[https://www.youtube.com/embed/23zLefwiii4?feature=oembed](https://www.youtube.com/embed/23zLefwiii4?feature=oembed)
+[https://www.youtube.com/embed/23zLefwiii4](https://www.youtube.com/embed/23zLefwiii4)
 
 October 19, 2009 (Philadelphia, PA)
 October 19, 2009 (Philadelphia, PA)

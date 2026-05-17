@@ -13,13 +13,13 @@ Bruce and the band wrap up a six-night stand at the Palladium in New York City w
 
 **1976:** [Baby, I Love You](http://estreetshuffle.com/index.php/2018/09/02/meeting-across-the-river-bruce-springsteen-and-ronnie-spector-baby-i-love-you/)[Walking in the Rain](https://estreetshuffle.com/index.php/2022/01/13/matr-ronnie-spector-and-the-e-street-band-walking-in-the-rain/)[Be My Baby](http://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)[We Gotta Get Out of This Place](https://estreetshuffle.com/index.php/2022/03/17/matr-bruce-springsteen-and-eric-burdon-we-gotta-get-out-of-this-place/)[It's My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)
 
-[https://www.youtube.com/embed/VUvG1dz0X90?feature=oembed](https://www.youtube.com/embed/VUvG1dz0X90?feature=oembed)
+[https://www.youtube.com/embed/VUvG1dz0X90](https://www.youtube.com/embed/VUvG1dz0X90)
 
-[https://www.youtube.com/embed/s1Wt0esLxIw?feature=oembed](https://www.youtube.com/embed/s1Wt0esLxIw?feature=oembed)
+[https://www.youtube.com/embed/s1Wt0esLxIw](https://www.youtube.com/embed/s1Wt0esLxIw)
 
-[https://www.youtube.com/embed/FVtT5vR7Egc?feature=oembed](https://www.youtube.com/embed/FVtT5vR7Egc?feature=oembed)
+[https://www.youtube.com/embed/FVtT5vR7Egc](https://www.youtube.com/embed/FVtT5vR7Egc)
 
-[https://www.youtube.com/embed/MahC9ibSf44?feature=oembed](https://www.youtube.com/embed/MahC9ibSf44?feature=oembed)
+[https://www.youtube.com/embed/MahC9ibSf44](https://www.youtube.com/embed/MahC9ibSf44)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB-Spv7yPKl7Tl_1Rfaaas6](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB-Spv7yPKl7Tl_1Rfaaas6)
 
@@ -27,13 +27,13 @@ Bruce takes a break from the recording sessions for at the Record Plant in New Y
 
 **1977:** [](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness on the Edge of Town*
 
-[https://www.youtube.com/embed/yVQZgG2zLgc?feature=oembed](https://www.youtube.com/embed/yVQZgG2zLgc?feature=oembed)
+[https://www.youtube.com/embed/yVQZgG2zLgc](https://www.youtube.com/embed/yVQZgG2zLgc)
 
 At the recording session itself, Bruce works on "," "," and "," the last of which has never been released.
 
 [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)[Come On (Let's Go Tonight)](https://estreetshuffle.com/index.php/2020/12/05/roll-of-the-dice-come-on-lets-go-tonight/)[Break Out](https://estreetshuffle.com/index.php/2021/03/20/roll-of-the-dice-break-out/)
 
-[https://www.youtube.com/embed/Rz5BxeBz3O4?feature=oembed](https://www.youtube.com/embed/Rz5BxeBz3O4?feature=oembed)
+[https://www.youtube.com/embed/Rz5BxeBz3O4](https://www.youtube.com/embed/Rz5BxeBz3O4)
 
 Bruce and the E Street Band play a Darkness Tour show at the University of Vermont in Burlington.
 
@@ -45,7 +45,7 @@ Bruce and the band wrap up their seven-night Born in the U.S.A. Tour stand at th
 
 **1984:** [Shut Out the Light](http://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
-[https://www.youtube.com/embed/EPhWR4d3FJQ?feature=oembed](https://www.youtube.com/embed/EPhWR4d3FJQ?feature=oembed)
+[https://www.youtube.com/embed/EPhWR4d3FJQ](https://www.youtube.com/embed/EPhWR4d3FJQ)
 
 Bruce joins Clarence Clemons on stage at Club 251 in West Palm Beach, Florida, for four songs.
 
@@ -69,7 +69,7 @@ The Rising Tour moves on to Houston, where Bruce plays a rare solo piano "."
 
 **2002:**[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)
 
-[https://videopress.com/embed/wRtLFvfs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wRtLFvfs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wRtLFvfs](https://videopress.com/embed/wRtLFvfs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Houston_Chronicle_2002_11_05_24.jpg?resize=758%2C913&amp;ssl=1)
 
@@ -77,7 +77,7 @@ Tampa gets a River-heavy Devils and Dust show, with "," "" "" "," and "" all mak
 
 **2005:** [Fade Away](http://estreetshuffle.com/index.php/2018/05/03/cover-me-southside-johnny-fade-away/)[Be True,](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)[Wreck on the Highway,](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)
 
-[https://www.youtube.com/embed/EYQyjuSqfJ8?feature=oembed](https://www.youtube.com/embed/EYQyjuSqfJ8?feature=oembed)
+[https://www.youtube.com/embed/EYQyjuSqfJ8](https://www.youtube.com/embed/EYQyjuSqfJ8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-11-04a-300x178.png?resize=758%2C450)
 
@@ -89,9 +89,9 @@ Continuing east, the Magic Tour stops at Cleveland's Quicken Loans Arena, where 
 
 **2007:** [It's Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)
 
-[https://www.youtube.com/embed/sh-b29hsoIQ?feature=oembed](https://www.youtube.com/embed/sh-b29hsoIQ?feature=oembed)
+[https://www.youtube.com/embed/sh-b29hsoIQ](https://www.youtube.com/embed/sh-b29hsoIQ)
 
-[https://www.youtube.com/embed/6yWAVehXlr4?feature=oembed](https://www.youtube.com/embed/6yWAVehXlr4?feature=oembed)
+[https://www.youtube.com/embed/6yWAVehXlr4](https://www.youtube.com/embed/6yWAVehXlr4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Akron_Beacon_Journal_2007_11_06_Page_A002.jpg?resize=758%2C642&amp;ssl=1)
 
@@ -99,15 +99,15 @@ Bruce makes a return appearance at the Stand Up for Heroes benefit at Town Hall 
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/fS2M_eBbZAg?feature=oembed](https://www.youtube.com/embed/fS2M_eBbZAg?feature=oembed)
+[https://www.youtube.com/embed/fS2M_eBbZAg](https://www.youtube.com/embed/fS2M_eBbZAg)
 
 Bruce joins Joe Grushecky and The Houserockers at Soldiers & Sailors Memorial Hall in Pittsburgh for the first of two 15th anniversary shows for Bruce opens the show acoustically, with a location-appropriate "" and two other numbers before joining Joe and the band for a set that includes both Grushecky and Springsteen originals, including the very first performance of "."
 
 **2010:** *.*[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)[A Good Man is Hard to Find (Pittsburgh)](https://estreetshuffle.com/index.php/2021/04/30/roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/)[Save My Love](http://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/)
 
-[https://www.youtube.com/embed/ng8d_jYqEKQ?feature=oembed](https://www.youtube.com/embed/ng8d_jYqEKQ?feature=oembed)
+[https://www.youtube.com/embed/ng8d_jYqEKQ](https://www.youtube.com/embed/ng8d_jYqEKQ)
 
-[https://www.youtube.com/embed/-xPRUcGL3lM?feature=oembed](https://www.youtube.com/embed/-xPRUcGL3lM?feature=oembed)
+[https://www.youtube.com/embed/-xPRUcGL3lM](https://www.youtube.com/embed/-xPRUcGL3lM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2010-11-04-300x120.png?resize=758%2C303)
 
@@ -115,19 +115,19 @@ Almost one year to the days, Bruce and Joe Grushecky reprise their pair of Soldi
 
 **2011:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
-[https://www.youtube.com/embed/Np2eY9ke24s?feature=oembed](https://www.youtube.com/embed/Np2eY9ke24s?feature=oembed)
+[https://www.youtube.com/embed/Np2eY9ke24s](https://www.youtube.com/embed/Np2eY9ke24s)
 
-[https://www.youtube.com/embed/hTEo6eeyW-Q?feature=oembed](https://www.youtube.com/embed/hTEo6eeyW-Q?feature=oembed)
+[https://www.youtube.com/embed/hTEo6eeyW-Q](https://www.youtube.com/embed/hTEo6eeyW-Q)
 
-[https://www.youtube.com/embed/gHspfsNmypA?feature=oembed](https://www.youtube.com/embed/gHspfsNmypA?feature=oembed)
+[https://www.youtube.com/embed/gHspfsNmypA](https://www.youtube.com/embed/gHspfsNmypA)
 
-[https://www.youtube.com/embed/VfISQttTAFo?feature=oembed](https://www.youtube.com/embed/VfISQttTAFo?feature=oembed)
+[https://www.youtube.com/embed/VfISQttTAFo](https://www.youtube.com/embed/VfISQttTAFo)
 
-[https://www.youtube.com/embed/EeicvNe6lK8?feature=oembed](https://www.youtube.com/embed/EeicvNe6lK8?feature=oembed)
+[https://www.youtube.com/embed/EeicvNe6lK8](https://www.youtube.com/embed/EeicvNe6lK8)
 
-[https://www.youtube.com/embed/w0Oq2-9cTHQ?feature=oembed](https://www.youtube.com/embed/w0Oq2-9cTHQ?feature=oembed)
+[https://www.youtube.com/embed/w0Oq2-9cTHQ](https://www.youtube.com/embed/w0Oq2-9cTHQ)
 
-[https://www.youtube.com/embed/uFNF9-RBye4?feature=oembed](https://www.youtube.com/embed/uFNF9-RBye4?feature=oembed)
+[https://www.youtube.com/embed/uFNF9-RBye4](https://www.youtube.com/embed/uFNF9-RBye4)
 
 Bruce becomes a published author when his children's book arrives on bookstore shelves.
 
@@ -143,16 +143,16 @@ Bruce makes his customary stand-up/acoustic mini-set appearance at Stand Up For 
 
 **2019:** [Redemption Day.](https://estreetshuffle.com/index.php/2022/02/20/matr-sheryl-crow-and-bruce-springsteen-redemption-day/)
 
-[https://www.youtube.com/embed/2us2vS93Aac?feature=oembed](https://www.youtube.com/embed/2us2vS93Aac?feature=oembed)
+[https://www.youtube.com/embed/2us2vS93Aac](https://www.youtube.com/embed/2us2vS93Aac)
 
-[https://www.youtube.com/embed/juP9oc_qqAI?feature=oembed](https://www.youtube.com/embed/juP9oc_qqAI?feature=oembed)
+[https://www.youtube.com/embed/juP9oc_qqAI](https://www.youtube.com/embed/juP9oc_qqAI)
 
-[https://www.youtube.com/embed/L50sqx9fYjg?feature=oembed](https://www.youtube.com/embed/L50sqx9fYjg?feature=oembed)
+[https://www.youtube.com/embed/L50sqx9fYjg](https://www.youtube.com/embed/L50sqx9fYjg)
 
-[https://www.youtube.com/embed/QnG-5RqFLDU?feature=oembed](https://www.youtube.com/embed/QnG-5RqFLDU?feature=oembed)
+[https://www.youtube.com/embed/QnG-5RqFLDU](https://www.youtube.com/embed/QnG-5RqFLDU)
 
 Bruce visits the set of filming today in Bayonne, New Jersey.
 
 **2024:** *Springsteen: Deliver Me From Nowhere*,
 
-[https://www.youtube.com/embed/bbFBQP3SJiw?feature=oembed](https://www.youtube.com/embed/bbFBQP3SJiw?feature=oembed)
+[https://www.youtube.com/embed/bbFBQP3SJiw](https://www.youtube.com/embed/bbFBQP3SJiw)

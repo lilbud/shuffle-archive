@@ -24,7 +24,7 @@ And yet, for many, the fear of changing leaders at such a volatile time was reas
 
 As a political cause, Vote For Change was a failed endeavor, but it produced some memorable moments along the way. Bruce and Eddie's "Better Man" performance was chief among them.
 
-[https://videopress.com/embed/IvxI47QM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IvxI47QM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/IvxI47QM](https://videopress.com/embed/IvxI47QM)
 
 Who would have thought the E Street Band was so perfectly suited for a song so strongly identified with the harder, edgier Pearl Jam? Yet they were, right down to Clarence's smoking sax solo, one of his best post-Reunion on-stage moments. Bruce brought his A game, too, especially on a guitar solo of epic length and power we rarely saw from Bruce at that point of his career.
 

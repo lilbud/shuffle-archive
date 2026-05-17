@@ -1,11 +1,11 @@
 
 Jimmy Forrest recorded "Night Train" in 1952 as a sultry, earthy R&B instrumental.
 
-[https://www.youtube.com/embed/jaFWKYqGrP0?feature=oembed](https://www.youtube.com/embed/jaFWKYqGrP0?feature=oembed)
+[https://www.youtube.com/embed/jaFWKYqGrP0](https://www.youtube.com/embed/jaFWKYqGrP0)
 
 But when Bruce pulled it out of his hat during his Darkness Tour show in Atlanta, "Night Train" rocked as it hurtled down the tracks.
 
-[https://www.youtube.com/embed/JxsT8pkCmJw?feature=oembed](https://www.youtube.com/embed/JxsT8pkCmJw?feature=oembed)
+[https://www.youtube.com/embed/JxsT8pkCmJw](https://www.youtube.com/embed/JxsT8pkCmJw)
 
 What prompted the impromptu, accelerated "Night Train" performance?
 

@@ -5,7 +5,7 @@ The River Tour continues its almost month-long U.K. leg with a show at waterlogg
 
 **1981:**<br>
 
-[https://videopress.com/embed/YgclROfQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YgclROfQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/YgclROfQ](https://videopress.com/embed/YgclROfQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg?resize=758%2C533&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg?resize=758%2C789&amp;ssl=1)
 
@@ -13,13 +13,13 @@ Bruce and his new touring band rehearse for their upcoming tour on a Hollywood s
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed](https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed)
+[https://www.youtube.com/embed/V8GA_hlYbzg](https://www.youtube.com/embed/V8GA_hlYbzg)
 
 Not one but two guest-stars when Bruce's World Tour 1993 stops at the RDS Arena in Dublin: Joe Ely joins Bruce for Joe's "" (which the two played at Joe's show the night before), and Jerry Lee Lewis joined Bruce for encores of "" and "." Despite the special guests, the show is poorly reviewed by local press.
 
 **1993:** [Settle for Love](http://estreetshuffle.com/index.php/2020/04/22/matr-bruce-springsteen-and-joe-ely-settle-for-love/)[Great Balls of Fire](https://estreetshuffle.com/index.php/2022/08/10/matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/)[Whole Lotta Shakin' Goin' On](http://estreetshuffle.com/index.php/2020/05/15/matr-bruce-springsteen-and-jerry-lee-lewis-whole-lotta-shakin-goin-on/)
 
-[https://www.youtube.com/embed/JkrlvfNoivc?feature=oembed](https://www.youtube.com/embed/JkrlvfNoivc?feature=oembed)
+[https://www.youtube.com/embed/JkrlvfNoivc](https://www.youtube.com/embed/JkrlvfNoivc)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDzppKusEmmORcXq2EtkfRa](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDzppKusEmmORcXq2EtkfRa)
 
@@ -35,7 +35,7 @@ The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheu
 
 **2005:**<br>
 
-[https://videopress.com/embed/dnyKmXPH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dnyKmXPH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/dnyKmXPH](https://videopress.com/embed/dnyKmXPH)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20a-156x300.jpg?resize=758%2C1458)
 
@@ -45,7 +45,7 @@ The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheu
 
 **2006:** [Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)
 
-[https://videopress.com/embed/zHfMSVF6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/zHfMSVF6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/zHfMSVF6](https://videopress.com/embed/zHfMSVF6)
 
 Sirius XM debuts the fourth installment of Bruce's series.
 

@@ -33,7 +33,7 @@ Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at
 
 **1984:**<br>
 
-[https://videopress.com/embed/2VRaI53f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2VRaI53f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2VRaI53f](https://videopress.com/embed/2VRaI53f)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-06-21a-117x300.jpg?resize=758%2C1944)
 
@@ -41,37 +41,37 @@ Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at
 
 Wondering how that show came to happen? Watch the interview below.
 
-[https://www.youtube.com/embed/eEJjBDNGmyU?feature=oembed](https://www.youtube.com/embed/eEJjBDNGmyU?feature=oembed)
+[https://www.youtube.com/embed/eEJjBDNGmyU](https://www.youtube.com/embed/eEJjBDNGmyU)
 
 Bruce plays in Italy for the very first time, at the San Siro in Milan, home to many legendary Springsteen shows yet to come.
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/Cj7LIPEemPg?feature=oembed](https://www.youtube.com/embed/Cj7LIPEemPg?feature=oembed)
+[https://www.youtube.com/embed/Cj7LIPEemPg](https://www.youtube.com/embed/Cj7LIPEemPg)
 
-[https://www.youtube.com/embed/5BVwfeDgy1M?feature=oembed](https://www.youtube.com/embed/5BVwfeDgy1M?feature=oembed)
+[https://www.youtube.com/embed/5BVwfeDgy1M](https://www.youtube.com/embed/5BVwfeDgy1M)
 
-[https://www.youtube.com/embed/ZZBxn1E4m-A?feature=oembed](https://www.youtube.com/embed/ZZBxn1E4m-A?feature=oembed)
+[https://www.youtube.com/embed/ZZBxn1E4m-A](https://www.youtube.com/embed/ZZBxn1E4m-A)
 
-[https://www.youtube.com/embed/4_4VTSVJSRA?feature=oembed](https://www.youtube.com/embed/4_4VTSVJSRA?feature=oembed)
+[https://www.youtube.com/embed/4_4VTSVJSRA](https://www.youtube.com/embed/4_4VTSVJSRA)
 
-[https://www.youtube.com/embed/XkQhpEdDfHU?feature=oembed](https://www.youtube.com/embed/XkQhpEdDfHU?feature=oembed)
+[https://www.youtube.com/embed/XkQhpEdDfHU](https://www.youtube.com/embed/XkQhpEdDfHU)
 
-[https://videopress.com/embed/kfEuI4ZX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kfEuI4ZX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/kfEuI4ZX](https://videopress.com/embed/kfEuI4ZX)
 
-[https://videopress.com/embed/yTH4dGLJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yTH4dGLJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/yTH4dGLJ](https://videopress.com/embed/yTH4dGLJ)
 
-[https://www.youtube.com/embed/5rDGHm_JSFo?feature=oembed](https://www.youtube.com/embed/5rDGHm_JSFo?feature=oembed)
+[https://www.youtube.com/embed/5rDGHm_JSFo](https://www.youtube.com/embed/5rDGHm_JSFo)
 
-[https://www.youtube.com/embed/fKER3FQJQ3g?feature=oembed](https://www.youtube.com/embed/fKER3FQJQ3g?feature=oembed)
+[https://www.youtube.com/embed/fKER3FQJQ3g](https://www.youtube.com/embed/fKER3FQJQ3g)
 
 The Tunnel of Love Tour stops at Villa Park in Birmingham, England, for the first of two nights. "" makes its final tour appearance at this show.
 
 **1988:** [One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)
 
-[https://www.youtube.com/embed/aLPJR6LC8pg?feature=oembed](https://www.youtube.com/embed/aLPJR6LC8pg?feature=oembed)
+[https://www.youtube.com/embed/aLPJR6LC8pg](https://www.youtube.com/embed/aLPJR6LC8pg)
 
-[https://www.youtube.com/embed/eJEVlVlXDPw?feature=oembed](https://www.youtube.com/embed/eJEVlVlXDPw?feature=oembed)
+[https://www.youtube.com/embed/eJEVlVlXDPw](https://www.youtube.com/embed/eJEVlVlXDPw)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCgA3ja676YD_rnoFLX9Rh4](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCgA3ja676YD_rnoFLX9Rh4)
 
@@ -89,25 +89,25 @@ Nils celebrates his birthday on-stage with the E Street Band in Gothenburg, wher
 
 **2003:** [Mary's Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)
 
-[https://videopress.com/embed/2aeAI8cl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2aeAI8cl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2aeAI8cl](https://videopress.com/embed/2aeAI8cl)
 
-[https://www.youtube.com/embed/BjhQHD8t1gk?feature=oembed](https://www.youtube.com/embed/BjhQHD8t1gk?feature=oembed)
+[https://www.youtube.com/embed/BjhQHD8t1gk](https://www.youtube.com/embed/BjhQHD8t1gk)
 
 Promoting her new album, , Patti Scialfa plays a mini-concert on , including the title track, "," and "."
 
 **2004:** *23rd Street Lullaby**The Early Show*[You Can't Go Back](https://estreetshuffle.com/index.php/2021/10/16/matr-patti-scialfa-and-bruce-springsteen-you-cant-go-back/)[Rose](http://estreetshuffle.com/index.php/2018/03/21/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-rose/)
 
-[https://videopress.com/embed/jnPT7zjR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jnPT7zjR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jnPT7zjR](https://videopress.com/embed/jnPT7zjR)
 
 Bruce and the E Street Band bring the Magic Tour to Hamburg, where they play "" for the first time in 28 years.
 
 **2008:** [Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)
 
-[https://www.youtube.com/embed/YCnclWpvx84?feature=oembed](https://www.youtube.com/embed/YCnclWpvx84?feature=oembed)
+[https://www.youtube.com/embed/YCnclWpvx84](https://www.youtube.com/embed/YCnclWpvx84)
 
-[https://www.youtube.com/embed/9qMfAOvH2bw?feature=oembed](https://www.youtube.com/embed/9qMfAOvH2bw?feature=oembed)
+[https://www.youtube.com/embed/9qMfAOvH2bw](https://www.youtube.com/embed/9qMfAOvH2bw)
 
-[https://www.youtube.com/embed/nH9ghlSkMj8?feature=oembed](https://www.youtube.com/embed/nH9ghlSkMj8?feature=oembed)
+[https://www.youtube.com/embed/nH9ghlSkMj8](https://www.youtube.com/embed/nH9ghlSkMj8)
 
 [https://www.youtube.com/embed/Vi3j3Gl74Yw?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/Vi3j3Gl74Yw?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
@@ -115,7 +115,7 @@ At the memorial service for the late Clarence Clemons in Palm Beach, Bruce deliv
 
 **2011:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-[https://www.youtube.com/embed/lr6bSgqsCec?feature=oembed](https://www.youtube.com/embed/lr6bSgqsCec?feature=oembed)
+[https://www.youtube.com/embed/lr6bSgqsCec](https://www.youtube.com/embed/lr6bSgqsCec)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/2011-06-21.jpg?resize=758%2C936&amp;ssl=1)
 
@@ -123,9 +123,9 @@ The Wrecking Ball Tour stops at the Stadium of Light in Sunderland, England.
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/_IC9Cnwag1g?feature=oembed](https://www.youtube.com/embed/_IC9Cnwag1g?feature=oembed)
+[https://www.youtube.com/embed/_IC9Cnwag1g](https://www.youtube.com/embed/_IC9Cnwag1g)
 
-[https://www.youtube.com/embed/_sgMcFRmjIQ?feature=oembed](https://www.youtube.com/embed/_sgMcFRmjIQ?feature=oembed)
+[https://www.youtube.com/embed/_sgMcFRmjIQ](https://www.youtube.com/embed/_sgMcFRmjIQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/2012-06-21.jpg?resize=758%2C394&amp;ssl=1)
 
@@ -139,4 +139,4 @@ Bruce and the E Street Band open their show in Dusseldorf with the tour premiere
 
 **2023:** [The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)
 
-[https://www.youtube.com/embed/7WzDdeJixmU?feature=oembed](https://www.youtube.com/embed/7WzDdeJixmU?feature=oembed)
+[https://www.youtube.com/embed/7WzDdeJixmU](https://www.youtube.com/embed/7WzDdeJixmU)

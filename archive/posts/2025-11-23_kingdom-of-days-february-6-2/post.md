@@ -7,9 +7,9 @@ Hot on the heels of their historic radio broadcast the previous evening, Bruce a
 
 **1975:**<br>
 
-[https://videopress.com/embed/vbWwUyu9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vbWwUyu9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/vbWwUyu9](https://videopress.com/embed/vbWwUyu9)
 
-[https://videopress.com/embed/r9hNd4bc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/r9hNd4bc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/r9hNd4bc](https://videopress.com/embed/r9hNd4bc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1975-0206-108x300.jpg?resize=758%2C2101)
 
@@ -29,7 +29,7 @@ Bruce makes a guest appearance with Steve Earle and the Dukes at Tradewinds in S
 
 **1998:**[Johnny Come Lately](http://estreetshuffle.com/index.php/2019/01/04/matr-steve-earle-and-bruce-springsteen-johnny-come-lately/)[I Ain't Ever Satisfied](http://estreetshuffle.com/index.php/2019/07/06/matr-steve-earle-and-bruce-springsteen-i-aint-ever-satisfied/)[Guitar Town](https://estreetshuffle.com/index.php/2020/11/28/matr-steve-earle-and-bruce-springsteen-guitar-town/)[Sweet Virginia](http://estreetshuffle.com/index.php/2018/07/12/meeting-across-the-river-steve-earle-and-the-dukes-with-bruce-springsteen-sweet-virginia/)[Dead Flowers](http://estreetshuffle.com/index.php/2020/01/25/matr-steve-earle-and-bruce-springsteen-dead-flowers/)
 
-[https://www.youtube.com/embed/0TMcYy7c8d8?feature=oembed](https://www.youtube.com/embed/0TMcYy7c8d8?feature=oembed)
+[https://www.youtube.com/embed/0TMcYy7c8d8](https://www.youtube.com/embed/0TMcYy7c8d8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Citizens__Voice_Thu__Feb_12__1998_-scaled.jpg?resize=758%2C341&amp;ssl=1)
 
@@ -37,7 +37,7 @@ Bruce makes a guest appearance with Steve Earle and the Dukes at Tradewinds in S
 
 **2006**[Millworker](http://estreetshuffle.com/index.php/2020/01/12/cover-me-millworker/)
 
-[https://www.youtube.com/embed/1lNNMb_7qcE?feature=oembed](https://www.youtube.com/embed/1lNNMb_7qcE?feature=oembed)
+[https://www.youtube.com/embed/1lNNMb_7qcE](https://www.youtube.com/embed/1lNNMb_7qcE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/The_Star_Ledger_2006_02_08_36.jpg?w=758&amp;ssl=1)
 

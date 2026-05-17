@@ -29,7 +29,7 @@ The River Tour moves on to the McNichols Sports Arena in Denver.
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/auwiLX3GFwc?feature=oembed](https://www.youtube.com/embed/auwiLX3GFwc?feature=oembed)
+[https://www.youtube.com/embed/auwiLX3GFwc](https://www.youtube.com/embed/auwiLX3GFwc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/46543102155_a6488a1d3c_o-300x146.jpg?resize=758%2C369)
 
@@ -37,9 +37,9 @@ Bruce and Neil Young make a guest appearance for two songs ("" and "") at Bob Dy
 
 **1994:** [Rainy Day Women #12 & 35](http://estreetshuffle.com/index.php/2020/01/29/matr-bob-dylan-bruce-springsteen-and-neil-young-rainy-day-women-12-35/)[Highway 61 Revisited](http://estreetshuffle.com/index.php/2018/11/07/meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/)
 
-[https://www.youtube.com/embed/s3-uk7pmEFI?feature=oembed](https://www.youtube.com/embed/s3-uk7pmEFI?feature=oembed)
+[https://www.youtube.com/embed/s3-uk7pmEFI](https://www.youtube.com/embed/s3-uk7pmEFI)
 
-[https://www.youtube.com/embed/l27EiQbgi54?feature=oembed](https://www.youtube.com/embed/l27EiQbgi54?feature=oembed)
+[https://www.youtube.com/embed/l27EiQbgi54](https://www.youtube.com/embed/l27EiQbgi54)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Daily_News_1994_10_27_299-scaled.jpg?resize=758%2C298&amp;ssl=1)
 
@@ -47,15 +47,15 @@ Bruce once again joins Joe Grushecky and The Houserockers at their show at Nick'
 
 **1995:** [](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*American Babylon.*[here!](https://orcd.co/JoeGrusheckyAmericanBabylon25)
 
-[https://videopress.com/embed/EnDIW6ai?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/EnDIW6ai?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/EnDIW6ai](https://videopress.com/embed/EnDIW6ai)
 
-[https://videopress.com/embed/RJyFmgn1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RJyFmgn1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/RJyFmgn1](https://videopress.com/embed/RJyFmgn1)
 
-[https://www.youtube.com/embed/wDuFVXuJFsI?feature=oembed](https://www.youtube.com/embed/wDuFVXuJFsI?feature=oembed)
+[https://www.youtube.com/embed/wDuFVXuJFsI](https://www.youtube.com/embed/wDuFVXuJFsI)
 
-[https://www.youtube.com/embed/vIUa1yWFvHY?feature=oembed](https://www.youtube.com/embed/vIUa1yWFvHY?feature=oembed)
+[https://www.youtube.com/embed/vIUa1yWFvHY](https://www.youtube.com/embed/vIUa1yWFvHY)
 
-[https://www.youtube.com/embed/ddEQR8BYF9Q?feature=oembed](https://www.youtube.com/embed/ddEQR8BYF9Q?feature=oembed)
+[https://www.youtube.com/embed/ddEQR8BYF9Q](https://www.youtube.com/embed/ddEQR8BYF9Q)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-20a-300x258.png?resize=758%2C652)
 
@@ -65,7 +65,7 @@ At the Velodrom in Berlin on the Rising Tour, Bruce and E Street Band tour premi
 
 **2002:**<br>
 
-[https://www.youtube.com/embed/JZ1Pvyw_5Y4?feature=oembed](https://www.youtube.com/embed/JZ1Pvyw_5Y4?feature=oembed)
+[https://www.youtube.com/embed/JZ1Pvyw_5Y4](https://www.youtube.com/embed/JZ1Pvyw_5Y4)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBPOrYrpOsIh1njvBfg4Zi8](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBPOrYrpOsIh1njvBfg4Zi8)
 
@@ -75,7 +75,7 @@ Bruce tour premieres "" at his solo acoustic show at the DCU Center in Worcester
 
 **2005:** [The Fever](http://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)
 
-[https://www.youtube.com/embed/N2JJ-JyjwS8?feature=oembed](https://www.youtube.com/embed/N2JJ-JyjwS8?feature=oembed)
+[https://www.youtube.com/embed/N2JJ-JyjwS8](https://www.youtube.com/embed/N2JJ-JyjwS8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2005-10-20.png?resize=758%2C1612&amp;ssl=1)
 
@@ -83,15 +83,15 @@ Bruce plays his 36th and final show at the Philadelphia Spectrum, performing the
 
 **2009:** *Born in the U.S.A.* [The Price You Pay](http://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)[(Your Love Keeps Lifting Me) Higher and Higher](http://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/)[Spirit in the Night](http://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)[here](http://live.brucespringsteen.net/live-music/0,17344/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-10-20-2009-Wachovia-Spectrum-Philadelphia-PA.html)
 
-[https://www.youtube.com/embed/46dEVLFvze4?feature=oembed](https://www.youtube.com/embed/46dEVLFvze4?feature=oembed)
+[https://www.youtube.com/embed/46dEVLFvze4](https://www.youtube.com/embed/46dEVLFvze4)
 
-[https://www.youtube.com/embed/DytO5K0rPu8?feature=oembed](https://www.youtube.com/embed/DytO5K0rPu8?feature=oembed)
+[https://www.youtube.com/embed/DytO5K0rPu8](https://www.youtube.com/embed/DytO5K0rPu8)
 
-[https://www.youtube.com/embed/TlEjSNBDUSU?feature=oembed](https://www.youtube.com/embed/TlEjSNBDUSU?feature=oembed)
+[https://www.youtube.com/embed/TlEjSNBDUSU](https://www.youtube.com/embed/TlEjSNBDUSU)
 
-[https://www.youtube.com/embed/lYvPQxD0ORk?feature=oembed](https://www.youtube.com/embed/lYvPQxD0ORk?feature=oembed)
+[https://www.youtube.com/embed/lYvPQxD0ORk](https://www.youtube.com/embed/lYvPQxD0ORk)
 
-[https://www.youtube.com/embed/OyBHunLsELk?feature=oembed](https://www.youtube.com/embed/OyBHunLsELk?feature=oembed)
+[https://www.youtube.com/embed/OyBHunLsELk](https://www.youtube.com/embed/OyBHunLsELk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2009-10-20.png?resize=758%2C1537&amp;ssl=1)
 
@@ -99,7 +99,7 @@ As part of his promotional book tour, Bruce makes a special appearance at the Fr
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/ZzkqTT_FJHw?feature=oembed](https://www.youtube.com/embed/ZzkqTT_FJHw?feature=oembed)
+[https://www.youtube.com/embed/ZzkqTT_FJHw](https://www.youtube.com/embed/ZzkqTT_FJHw)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

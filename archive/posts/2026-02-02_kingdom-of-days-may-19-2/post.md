@@ -9,7 +9,7 @@ Bruce and the E Street Band work on what will become at the Record Plant in New 
 
 **1975:** *Born to Run*
 
-[https://www.youtube.com/embed/nwKsHpVPXs8?feature=oembed](https://www.youtube.com/embed/nwKsHpVPXs8?feature=oembed)
+[https://www.youtube.com/embed/nwKsHpVPXs8](https://www.youtube.com/embed/nwKsHpVPXs8)
 
 Bruce drops by The Stone Pony and joins The Shakes for two numbers, "Jailhouse Rock" and "Sea Cruise."
 
@@ -21,17 +21,17 @@ Bruce and the E Street Band rehearse for the upcoming Darkness Tour at the Param
 
 **1978:** *The Promise*
 
-[https://www.youtube.com/embed/_7l1ZAOtNLs?feature=oembed](https://www.youtube.com/embed/_7l1ZAOtNLs?feature=oembed)
+[https://www.youtube.com/embed/_7l1ZAOtNLs](https://www.youtube.com/embed/_7l1ZAOtNLs)
 
-[https://www.youtube.com/embed/UWLFxZDyTRg?feature=oembed](https://www.youtube.com/embed/UWLFxZDyTRg?feature=oembed)
+[https://www.youtube.com/embed/UWLFxZDyTRg](https://www.youtube.com/embed/UWLFxZDyTRg)
 
-[https://www.youtube.com/embed/2BR_NTlU4aU?feature=oembed](https://www.youtube.com/embed/2BR_NTlU4aU?feature=oembed)
+[https://www.youtube.com/embed/2BR_NTlU4aU](https://www.youtube.com/embed/2BR_NTlU4aU)
 
-[https://www.youtube.com/embed/6Z1orxaa5Nw?feature=oembed](https://www.youtube.com/embed/6Z1orxaa5Nw?feature=oembed)
+[https://www.youtube.com/embed/6Z1orxaa5Nw](https://www.youtube.com/embed/6Z1orxaa5Nw)
 
-[https://www.youtube.com/embed/mEO4HoP9Wa0?feature=oembed](https://www.youtube.com/embed/mEO4HoP9Wa0?feature=oembed)
+[https://www.youtube.com/embed/mEO4HoP9Wa0](https://www.youtube.com/embed/mEO4HoP9Wa0)
 
-[https://www.youtube.com/embed/EVKRJcJ8uo4?feature=oembed](https://www.youtube.com/embed/EVKRJcJ8uo4?feature=oembed)
+[https://www.youtube.com/embed/EVKRJcJ8uo4](https://www.youtube.com/embed/EVKRJcJ8uo4)
 
 Bruce joins Clarence Clemons and The Red Bank Rockers on stage for four songs at The Stone Pony.
 
@@ -49,7 +49,7 @@ Bruce joins Joe Ely on stage at Joe's gig at Dublin's National Stadium for three
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/AHFfjy87y8s?feature=oembed](https://www.youtube.com/embed/AHFfjy87y8s?feature=oembed)
+[https://www.youtube.com/embed/AHFfjy87y8s](https://www.youtube.com/embed/AHFfjy87y8s)
 
 [https://videopress.com/embed/SsOq1hBx?hd=0&amp;cover=1](https://videopress.com/embed/SsOq1hBx?hd=0&amp;cover=1)
 
@@ -69,21 +69,21 @@ Elliott Murphy guest-stars on "" and "Born to Run" when the Rising Tour makes a 
 
 **2003:** [Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)
 
-[https://www.youtube.com/embed/NSQGuU01YCc?feature=oembed](https://www.youtube.com/embed/NSQGuU01YCc?feature=oembed)
+[https://www.youtube.com/embed/NSQGuU01YCc](https://www.youtube.com/embed/NSQGuU01YCc)
 
 Bruce performs the tour premiere of "The Wish" at his solo acoustic show in East Rutherford.
 
 **2005:**<br>
 
-[https://www.youtube.com/embed/ufI1O9KNygg?feature=oembed](https://www.youtube.com/embed/ufI1O9KNygg?feature=oembed)
+[https://www.youtube.com/embed/ufI1O9KNygg](https://www.youtube.com/embed/ufI1O9KNygg)
 
-[https://www.youtube.com/embed/U2PKBQ5yHoM?feature=oembed](https://www.youtube.com/embed/U2PKBQ5yHoM?feature=oembed)
+[https://www.youtube.com/embed/U2PKBQ5yHoM](https://www.youtube.com/embed/U2PKBQ5yHoM)
 
-[https://www.youtube.com/embed/5qhY0mkV_4k?feature=oembed](https://www.youtube.com/embed/5qhY0mkV_4k?feature=oembed)
+[https://www.youtube.com/embed/5qhY0mkV_4k](https://www.youtube.com/embed/5qhY0mkV_4k)
 
-[https://www.youtube.com/embed/U4WKYtS4JDk?feature=oembed](https://www.youtube.com/embed/U4WKYtS4JDk?feature=oembed)
+[https://www.youtube.com/embed/U4WKYtS4JDk](https://www.youtube.com/embed/U4WKYtS4JDk)
 
-[https://www.youtube.com/embed/mJPloPHGbjc?feature=oembed](https://www.youtube.com/embed/mJPloPHGbjc?feature=oembed)
+[https://www.youtube.com/embed/mJPloPHGbjc](https://www.youtube.com/embed/mJPloPHGbjc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-19.jpg?resize=699%2C984&amp;ssl=1)
 
@@ -91,9 +91,9 @@ The first and only E Street Band performance of "Like a Rolling Stone" debuts at
 
 **2009:** [Glory Day](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
-[https://www.youtube.com/embed/YRvmZpc6P34?feature=oembed](https://www.youtube.com/embed/YRvmZpc6P34?feature=oembed)
+[https://www.youtube.com/embed/YRvmZpc6P34](https://www.youtube.com/embed/YRvmZpc6P34)
 
-[https://www.youtube.com/embed/LLRvqyV-a_M?feature=oembed](https://www.youtube.com/embed/LLRvqyV-a_M?feature=oembed)
+[https://www.youtube.com/embed/LLRvqyV-a_M](https://www.youtube.com/embed/LLRvqyV-a_M)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2009-05-19.jpg?resize=510%2C960&amp;ssl=1)
 
@@ -111,4 +111,4 @@ Bruce and the E Street Band return to Croke Park in Dublin, where they tour prem
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/Q-Gge15k4bQ?feature=oembed](https://www.youtube.com/embed/Q-Gge15k4bQ?feature=oembed)
+[https://www.youtube.com/embed/Q-Gge15k4bQ](https://www.youtube.com/embed/Q-Gge15k4bQ)

@@ -14,7 +14,7 @@ In December 2001, Bruce reprised his highly successful "…and friends" holiday/
 
 Among the songs the Bruces performed together was Hornsby and Henley's "The End of the Innocence," backed by the Max Weinberg 7. Lyrically, the song was tailor-made for both Bruces, and both turned in smooth vocals laced with poignancy and memory. Take a listen:
 
-[https://videopress.com/embed/unsLQ48f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/unsLQ48f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/unsLQ48f](https://videopress.com/embed/unsLQ48f)
 
 What's the holiday connection? Beats the heck out of me.
 

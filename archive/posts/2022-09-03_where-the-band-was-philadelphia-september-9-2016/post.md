@@ -7,47 +7,47 @@ Or would this be the exception that disproves the Night One/Night Two truism?
 
 Turns out you top it by keeping a couple of those gems, like the by-now standard "New York City Serenade" opener (that still feels so strange to write)…
 
-[https://www.youtube.com/embed/UuDAUUy4Upg?feature=oembed](https://www.youtube.com/embed/UuDAUUy4Upg?feature=oembed)
+[https://www.youtube.com/embed/UuDAUUy4Upg](https://www.youtube.com/embed/UuDAUUy4Upg)
 
 …swapping out the rest for genuine by-request wild cards (missing entirely from Night One) like "From Small Things (Big Things One Day Come)," "," and "" (played in succession early in the set)…
 
 [I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)
 
-[https://www.youtube.com/embed/SNKOQzAgFac?feature=oembed](https://www.youtube.com/embed/SNKOQzAgFac?feature=oembed)
+[https://www.youtube.com/embed/SNKOQzAgFac](https://www.youtube.com/embed/SNKOQzAgFac)
 
-[https://www.youtube.com/embed/cSZ3Kw5R2v4?feature=oembed](https://www.youtube.com/embed/cSZ3Kw5R2v4?feature=oembed)
+[https://www.youtube.com/embed/cSZ3Kw5R2v4](https://www.youtube.com/embed/cSZ3Kw5R2v4)
 
 …sharing the stage an old friend (even if he looked a little lost up there)…
 
-[https://www.youtube.com/embed/cl3fbXl_Dxc?feature=oembed](https://www.youtube.com/embed/cl3fbXl_Dxc?feature=oembed)
+[https://www.youtube.com/embed/cl3fbXl_Dxc](https://www.youtube.com/embed/cl3fbXl_Dxc)
 
 …and a young fan (who couldn't have seemed more at home)…
 
-[https://www.youtube.com/embed/76_gIYl2woo?feature=oembed](https://www.youtube.com/embed/76_gIYl2woo?feature=oembed)
+[https://www.youtube.com/embed/76_gIYl2woo](https://www.youtube.com/embed/76_gIYl2woo)
 
 …and then performing what is easily the most exquisite "" I've ever had the privilege to witness.
 
 [Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)
 
-[https://www.youtube.com/embed/DQc_HLYh_NI?feature=oembed](https://www.youtube.com/embed/DQc_HLYh_NI?feature=oembed)
+[https://www.youtube.com/embed/DQc_HLYh_NI](https://www.youtube.com/embed/DQc_HLYh_NI)
 
 And it doesn't hurt to restart my streak of getting at least one personal premiere per show going again, by playing my first "."
 
 [Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)
 
-[https://www.youtube.com/embed/yPk_tcXVVSs?feature=oembed](https://www.youtube.com/embed/yPk_tcXVVSs?feature=oembed)
+[https://www.youtube.com/embed/yPk_tcXVVSs](https://www.youtube.com/embed/yPk_tcXVVSs)
 
 I only have one regret from this show: Bruce was slated to start the encore with "" which by this point was at the very top of my chase list (this tour had knocked off pretty much everything else), but for some reason Bruce decided to play "" for a second night running.
 
 [Secret Garden](http://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
-[https://www.youtube.com/embed/qmqYhkmaCIE?feature=oembed](https://www.youtube.com/embed/qmqYhkmaCIE?feature=oembed)
+[https://www.youtube.com/embed/qmqYhkmaCIE](https://www.youtube.com/embed/qmqYhkmaCIE)
 
 I saw six of the ten shows on this final leg of the tour, and yet I still managed to miss "," which was played at 3 of the 4 shows I missed. But that's a minor complaint, and one that seems ridiculous in light of a magnificent eight-song encore that also included "" and a show-closing "" with fireworks.
 
 [Secret Garden](http://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)
 
-[https://www.youtube.com/embed/kAE5yr3enQI?feature=oembed](https://www.youtube.com/embed/kAE5yr3enQI?feature=oembed)
+[https://www.youtube.com/embed/kAE5yr3enQI](https://www.youtube.com/embed/kAE5yr3enQI)
 
 And if the show didn't set another longest-ever record, that was just fine, too: that night in Philly was one of the most humid I can remember at a show, and by the end of the night I was drenched and exhausted–it was Friday night, and I'd already seen three four-hour-ish shows that week without taking a single day off of work.
 

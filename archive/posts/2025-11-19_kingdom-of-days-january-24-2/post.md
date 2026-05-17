@@ -7,7 +7,7 @@ The Canadian leg of the River tour ends at the Ottawa Civic Center.
 
 **1981:**<br>
 
-[https://videopress.com/embed/JYL0Qbie?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JYL0Qbie?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/JYL0Qbie](https://videopress.com/embed/JYL0Qbie)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Ottawa_Citizen_1981_01_26_45.jpg?resize=758%2C1087&amp;ssl=1)
 
@@ -15,7 +15,7 @@ Night Two at the Providence Civic Center on the Tour is captured on video.
 
 **1985:***Born in the U.S.A.*
 
-[https://videopress.com/embed/F2ZyvspL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/F2ZyvspL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/F2ZyvspL](https://videopress.com/embed/F2ZyvspL)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAoqIK5IWBdce4WxieIGNxt](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAoqIK5IWBdce4WxieIGNxt)
 

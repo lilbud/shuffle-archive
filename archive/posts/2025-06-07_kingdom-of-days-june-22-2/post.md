@@ -35,23 +35,23 @@ Bruce and the E Street Band play at Max Weinberg's wedding in East Orange, New J
 
 **1981:**<br>
 
-[https://www.youtube.com/embed/BYSy8wMTC34?feature=oembed](https://www.youtube.com/embed/BYSy8wMTC34?feature=oembed)
+[https://www.youtube.com/embed/BYSy8wMTC34](https://www.youtube.com/embed/BYSy8wMTC34)
 
 At Night Two at Villa Park in Birmingham, England, on the Tunnel of Love Tour, Edwin Starr drops by to perform "" with the band.
 
 **1988:** [War](http://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)
 
-[https://videopress.com/embed/BFpYsmqK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BFpYsmqK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/BFpYsmqK](https://videopress.com/embed/BFpYsmqK)
 
-[https://www.youtube.com/embed/IWi4gO40EH0?feature=oembed](https://www.youtube.com/embed/IWi4gO40EH0?feature=oembed)
+[https://www.youtube.com/embed/IWi4gO40EH0](https://www.youtube.com/embed/IWi4gO40EH0)
 
-[https://www.youtube.com/embed/w7GBMX0rTEc?feature=oembed](https://www.youtube.com/embed/w7GBMX0rTEc?feature=oembed)
+[https://www.youtube.com/embed/w7GBMX0rTEc](https://www.youtube.com/embed/w7GBMX0rTEc)
 
 The Reunion Tour's last stand reaches its halfway point on Night Five at Madison Square Garden. Surprises continue starting with the opener: the premiere of "Another Thin Line." Late in the set, lucky fans get the tour premiere of "" as well, plus a guest appearance by Soozie Tyrell on a beautiful arrangement of "."
 
 **2000:**[Secret Garden](http://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)[The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)
 
-[https://videopress.com/embed/qRFjgNwt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qRFjgNwt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/qRFjgNwt](https://videopress.com/embed/qRFjgNwt)
 
 [https://www.youtube.com/embed/0oSrbygepJ8?list=PLI4zFovkhD6PokNndGAXuqAiUZvC9j0im](https://www.youtube.com/embed/0oSrbygepJ8?list=PLI4zFovkhD6PokNndGAXuqAiUZvC9j0im)
 
@@ -71,9 +71,9 @@ Bruce opens with the debut of a new song at his Seeger Sessions show in Madison 
 
 **2006:** [American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)*American Land*[](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*We Shall Overcome: The Seeger Sessions*
 
-[https://www.youtube.com/embed/tpeisHYbKdE?feature=oembed](https://www.youtube.com/embed/tpeisHYbKdE?feature=oembed)
+[https://www.youtube.com/embed/tpeisHYbKdE](https://www.youtube.com/embed/tpeisHYbKdE)
 
-[https://videopress.com/embed/WbnXwnwr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/WbnXwnwr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/WbnXwnwr](https://videopress.com/embed/WbnXwnwr)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2006-06-22-261x300.jpg?resize=758%2C871)
 
@@ -87,35 +87,35 @@ Bruce and the E Street Band continue the Wrecking Ball Tour's mini-leg through E
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/cAVV77kbSyc?feature=oembed](https://www.youtube.com/embed/cAVV77kbSyc?feature=oembed)
+[https://www.youtube.com/embed/cAVV77kbSyc](https://www.youtube.com/embed/cAVV77kbSyc)
 
-[https://www.youtube.com/embed/AXIMaw09zps?feature=oembed](https://www.youtube.com/embed/AXIMaw09zps?feature=oembed)
+[https://www.youtube.com/embed/AXIMaw09zps](https://www.youtube.com/embed/AXIMaw09zps)
 
-[https://www.youtube.com/embed/gpGjGE-FUjU?feature=oembed](https://www.youtube.com/embed/gpGjGE-FUjU?feature=oembed)
+[https://www.youtube.com/embed/gpGjGE-FUjU](https://www.youtube.com/embed/gpGjGE-FUjU)
 
-[https://www.youtube.com/embed/gU-b24q4zmw?feature=oembed](https://www.youtube.com/embed/gU-b24q4zmw?feature=oembed)
+[https://www.youtube.com/embed/gU-b24q4zmw](https://www.youtube.com/embed/gU-b24q4zmw)
 
 A rarity: Bruce and the E Street Band have an opening act when they play at Nijmegen in The Netherlands: Jamie N Commons and The Black Crowes kick off the night. Bruce opens his set with an acoustic "" and performs the entire album.
 
 **2013:** [The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness on the Edge of Town*
 
-[https://www.youtube.com/embed/Ln8CSmYIgJI?feature=oembed](https://www.youtube.com/embed/Ln8CSmYIgJI?feature=oembed)
+[https://www.youtube.com/embed/Ln8CSmYIgJI](https://www.youtube.com/embed/Ln8CSmYIgJI)
 
-[https://www.youtube.com/embed/mP84YtM3lfo?feature=oembed](https://www.youtube.com/embed/mP84YtM3lfo?feature=oembed)
+[https://www.youtube.com/embed/mP84YtM3lfo](https://www.youtube.com/embed/mP84YtM3lfo)
 
-[https://www.youtube.com/embed/Y97eccXdw6c?feature=oembed](https://www.youtube.com/embed/Y97eccXdw6c?feature=oembed)
+[https://www.youtube.com/embed/Y97eccXdw6c](https://www.youtube.com/embed/Y97eccXdw6c)
 
 The River Tour starts a northern European swing with a show at Telia Parken in Copenhagen, where Bruce tour premieres "," "," ," and "." This show is available to stream or purchase .
 
 **2016:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)[here](https://live.brucespringsteen.net/live-music/0,14117/Bruce-Springsteen-mp3-flac-download-6-22-2016-Telia-Parken-Copenhagen-DK.html)
 
-[https://www.youtube.com/embed/mwlCGEQVK5w?feature=oembed](https://www.youtube.com/embed/mwlCGEQVK5w?feature=oembed)
+[https://www.youtube.com/embed/mwlCGEQVK5w](https://www.youtube.com/embed/mwlCGEQVK5w)
 
-[https://www.youtube.com/embed/-c4toZuJ0K8?feature=oembed](https://www.youtube.com/embed/-c4toZuJ0K8?feature=oembed)
+[https://www.youtube.com/embed/-c4toZuJ0K8](https://www.youtube.com/embed/-c4toZuJ0K8)
 
-[https://www.youtube.com/embed/amGRRJVYmsw?feature=oembed](https://www.youtube.com/embed/amGRRJVYmsw?feature=oembed)
+[https://www.youtube.com/embed/amGRRJVYmsw](https://www.youtube.com/embed/amGRRJVYmsw)
 
-[https://www.youtube.com/embed/Oc4uORxf-Ss?feature=oembed](https://www.youtube.com/embed/Oc4uORxf-Ss?feature=oembed)
+[https://www.youtube.com/embed/Oc4uORxf-Ss](https://www.youtube.com/embed/Oc4uORxf-Ss)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -125,6 +125,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2024:** [Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)[here](https://www.nugs.net/live-download-of-bruce-springsteen-estadi-ol%C3%ADmpic-barcelona-spain-06-22-2024-mp3-flac-or-online-music-streaming/35853.html)
 
-[https://www.youtube.com/embed/wN86Ftuj2Lc?feature=oembed](https://www.youtube.com/embed/wN86Ftuj2Lc?feature=oembed)
+[https://www.youtube.com/embed/wN86Ftuj2Lc](https://www.youtube.com/embed/wN86Ftuj2Lc)
 
-[https://www.youtube.com/embed/lUZFlq5ghaA?feature=oembed](https://www.youtube.com/embed/lUZFlq5ghaA?feature=oembed)
+[https://www.youtube.com/embed/lUZFlq5ghaA](https://www.youtube.com/embed/lUZFlq5ghaA)

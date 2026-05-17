@@ -9,7 +9,7 @@ Bruce and the E Street Band play a gig at Duke University, where "Raise Your Han
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/5oWCb3rgJHA?feature=oembed](https://www.youtube.com/embed/5oWCb3rgJHA?feature=oembed)
+[https://www.youtube.com/embed/5oWCb3rgJHA](https://www.youtube.com/embed/5oWCb3rgJHA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1976-03-28.jpg?resize=758%2C669&amp;ssl=1)
 
@@ -25,23 +25,23 @@ At their fifth and final night in Sydney on the Born in the U.S.A. Tour, Bruce a
 
 **1985:**<br>
 
-[https://videopress.com/embed/Wk0wuyNr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Wk0wuyNr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Wk0wuyNr](https://videopress.com/embed/Wk0wuyNr)
 
 A rather significant show from the Tunnel of Love Express Tour in Detroit–the live recording of "Be True" that appears on hails from this date. Also, , an MTV special, will air late this year, featuring footage from this night. The entire show is available as part of Bruce's official archive series–get it . Backstage before the show, Bruce meets Gino Washington, the original recording artist for "Gino is a Coward," for the first time. (Bruce has been covering Gino's song in a transformed version called "I'm a Coward" nightly.)
 
 **1988:***Chimes of Freedom**Inside the Tunnel of Love*[here](http://live.brucespringsteen.net/live-music/0,24299/bruce-springsteen-the-e-street-band-joe-louis-arena-detroit-mi-03-28-1988-mp3-flac-or-online-music-streaming.html)
 
-[https://www.youtube.com/embed/oNjm71mWGpc?feature=oembed](https://www.youtube.com/embed/oNjm71mWGpc?feature=oembed)
+[https://www.youtube.com/embed/oNjm71mWGpc](https://www.youtube.com/embed/oNjm71mWGpc)
 
-[https://www.youtube.com/embed/QW5JKTi2FjI?feature=oembed](https://www.youtube.com/embed/QW5JKTi2FjI?feature=oembed)
+[https://www.youtube.com/embed/QW5JKTi2FjI](https://www.youtube.com/embed/QW5JKTi2FjI)
 
-[https://www.youtube.com/embed/Gk0km8Ge3Es?feature=oembed](https://www.youtube.com/embed/Gk0km8Ge3Es?feature=oembed)
+[https://www.youtube.com/embed/Gk0km8Ge3Es](https://www.youtube.com/embed/Gk0km8Ge3Es)
 
-[https://www.youtube.com/embed/6u_Z0W67eKA?feature=oembed](https://www.youtube.com/embed/6u_Z0W67eKA?feature=oembed)
+[https://www.youtube.com/embed/6u_Z0W67eKA](https://www.youtube.com/embed/6u_Z0W67eKA)
 
-[https://www.youtube.com/embed/-biwMNiBLCg?feature=oembed](https://www.youtube.com/embed/-biwMNiBLCg?feature=oembed)
+[https://www.youtube.com/embed/-biwMNiBLCg](https://www.youtube.com/embed/-biwMNiBLCg)
 
-[https://www.youtube.com/embed/Ms1q_1m69ng?feature=oembed](https://www.youtube.com/embed/Ms1q_1m69ng?feature=oembed)
+[https://www.youtube.com/embed/Ms1q_1m69ng](https://www.youtube.com/embed/Ms1q_1m69ng)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-28b.jpg?resize=758%2C395&amp;ssl=1)
 
@@ -57,9 +57,9 @@ The Magic Tour begins its Pacific Northwest swing with a show at the Rose Garden
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/xT7LMmSwdxA?feature=oembed](https://www.youtube.com/embed/xT7LMmSwdxA?feature=oembed)
+[https://www.youtube.com/embed/xT7LMmSwdxA](https://www.youtube.com/embed/xT7LMmSwdxA)
 
-[https://www.youtube.com/embed/l9TWdEzs04g?feature=oembed](https://www.youtube.com/embed/l9TWdEzs04g?feature=oembed)
+[https://www.youtube.com/embed/l9TWdEzs04g](https://www.youtube.com/embed/l9TWdEzs04g)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg?resize=758%2C1019&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg?resize=758%2C1036&amp;ssl=1)
 
@@ -67,11 +67,11 @@ At the first of two nights at the Wells Fargo Center in Philadelphia, "Seaside B
 
 **2012:**<br>
 
-[https://videopress.com/embed/xaRe5dtt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xaRe5dtt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xaRe5dtt](https://videopress.com/embed/xaRe5dtt)
 
-[https://videopress.com/embed/yWlgWPb5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yWlgWPb5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/yWlgWPb5](https://videopress.com/embed/yWlgWPb5)
 
-[https://www.youtube.com/embed/Pi-92tTOCUM?feature=oembed](https://www.youtube.com/embed/Pi-92tTOCUM?feature=oembed)
+[https://www.youtube.com/embed/Pi-92tTOCUM](https://www.youtube.com/embed/Pi-92tTOCUM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2012-03-28-scaled.jpg?resize=758%2C1226&amp;ssl=1)
 
@@ -79,11 +79,11 @@ At Madison Square Garden in NYC, Bruce breaks out the tour premiere of "Meeting 
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/HHcf30KilOI?feature=oembed](https://www.youtube.com/embed/HHcf30KilOI?feature=oembed)
+[https://www.youtube.com/embed/HHcf30KilOI](https://www.youtube.com/embed/HHcf30KilOI)
 
-[https://www.youtube.com/embed/8IhwO2QtzRM?feature=oembed](https://www.youtube.com/embed/8IhwO2QtzRM?feature=oembed)
+[https://www.youtube.com/embed/8IhwO2QtzRM](https://www.youtube.com/embed/8IhwO2QtzRM)
 
-[https://www.youtube.com/embed/jknFgrtUmnw?feature=oembed](https://www.youtube.com/embed/jknFgrtUmnw?feature=oembed)
+[https://www.youtube.com/embed/jknFgrtUmnw](https://www.youtube.com/embed/jknFgrtUmnw)
 
 reaches a milestone–the 100th show–in its theatrical run at the Walter Kerr Theater in New York City. Michael Bloomberg is in attendance tonight.
 
@@ -95,6 +95,6 @@ Bruce and the E Street Band return to San Francisco after more than two decades 
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/aDptrfS-xP4?feature=oembed](https://www.youtube.com/embed/aDptrfS-xP4?feature=oembed)
+[https://www.youtube.com/embed/aDptrfS-xP4](https://www.youtube.com/embed/aDptrfS-xP4)
 
-[https://www.youtube.com/embed/xRHJI0tsWOo?feature=oembed](https://www.youtube.com/embed/xRHJI0tsWOo?feature=oembed)
+[https://www.youtube.com/embed/xRHJI0tsWOo](https://www.youtube.com/embed/xRHJI0tsWOo)

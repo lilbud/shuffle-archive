@@ -11,7 +11,7 @@ Bruce and the E Street Band kick off a week of Texas shows with a show at the Au
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/2LuhuZw1KDA?feature=oembed](https://www.youtube.com/embed/2LuhuZw1KDA?feature=oembed)
+[https://www.youtube.com/embed/2LuhuZw1KDA](https://www.youtube.com/embed/2LuhuZw1KDA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1975-09-12a-300x106.jpg?resize=758%2C268)
 
@@ -27,13 +27,13 @@ The Darkness Tour returns to the east coast, starting with this show in Syracuse
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0912-300x262.jpg?resize=758%2C662)
 
-[https://videopress.com/embed/SLGR7g0C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SLGR7g0C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/SLGR7g0C](https://videopress.com/embed/SLGR7g0C)
 
 Bruce and the band play their second of six shows at the Philadelphia Spectrum on the Born in the U.S.A. Tour, tour premiering "."
 
 **1984:** [Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
 
-[https://videopress.com/embed/cs34IgKs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cs34IgKs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cs34IgKs](https://videopress.com/embed/cs34IgKs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1984-0912-207x300.jpg?resize=758%2C1098)
 
@@ -45,13 +45,13 @@ The Working on a Dream Tour starts a southern swing with a show at the Ford Amph
 
 **2009:** [All or Nothin' At All](http://estreetshuffle.com/index.php/2018/01/30/roll-of-the-dice-all-or-nothing-at-all/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)
 
-[https://www.youtube.com/embed/OpaaaA0M0j8?feature=oembed](https://www.youtube.com/embed/OpaaaA0M0j8?feature=oembed)
+[https://www.youtube.com/embed/OpaaaA0M0j8](https://www.youtube.com/embed/OpaaaA0M0j8)
 
-[https://www.youtube.com/embed/5Z3YpUBPDDY?feature=oembed](https://www.youtube.com/embed/5Z3YpUBPDDY?feature=oembed)
+[https://www.youtube.com/embed/5Z3YpUBPDDY](https://www.youtube.com/embed/5Z3YpUBPDDY)
 
-[https://www.youtube.com/embed/OtvirnsMSks?feature=oembed](https://www.youtube.com/embed/OtvirnsMSks?feature=oembed)
+[https://www.youtube.com/embed/OtvirnsMSks](https://www.youtube.com/embed/OtvirnsMSks)
 
-[https://www.youtube.com/embed/tuspkjm0vsM?feature=oembed](https://www.youtube.com/embed/tuspkjm0vsM?feature=oembed)
+[https://www.youtube.com/embed/tuspkjm0vsM](https://www.youtube.com/embed/tuspkjm0vsM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2009-09-12a.jpg?resize=758%2C588&amp;ssl=1)
 
@@ -61,23 +61,23 @@ The South American leg of the Wrecking Ball Tour kicks off at Movistar Arena in 
 
 **2013:** [Manifesto](https://estreetshuffle.com/index.php/2021/01/31/cover-me-manifesto/)
 
-[https://www.youtube.com/embed/JNQm1Plu63k?feature=oembed](https://www.youtube.com/embed/JNQm1Plu63k?feature=oembed)
+[https://www.youtube.com/embed/JNQm1Plu63k](https://www.youtube.com/embed/JNQm1Plu63k)
 
 [https://player.vimeo.com/video/105916463?dnt=1&amp;app_id=122963](https://player.vimeo.com/video/105916463?dnt=1&amp;app_id=122963)
 
-[https://www.youtube.com/embed/5w4YTOCD_L4?feature=oembed](https://www.youtube.com/embed/5w4YTOCD_L4?feature=oembed)
+[https://www.youtube.com/embed/5w4YTOCD_L4](https://www.youtube.com/embed/5w4YTOCD_L4)
 
 debuts at the Toronto International Film Festival, and co-directors Bruce Springsteen and Thom Zimny are there for the festivities. Bruce and Thom are interviewed on stage and take Q&A after the screening.
 
 **2019:** *Western Stars*
 
-[https://www.youtube.com/embed/nGqjav-KbDU?feature=oembed](https://www.youtube.com/embed/nGqjav-KbDU?feature=oembed)
+[https://www.youtube.com/embed/nGqjav-KbDU](https://www.youtube.com/embed/nGqjav-KbDU)
 
-[https://www.youtube.com/embed/BRVfG2pBhBA?feature=oembed](https://www.youtube.com/embed/BRVfG2pBhBA?feature=oembed)
+[https://www.youtube.com/embed/BRVfG2pBhBA](https://www.youtube.com/embed/BRVfG2pBhBA)
 
-[https://www.youtube.com/embed/blNrVyA15Rc?feature=oembed](https://www.youtube.com/embed/blNrVyA15Rc?feature=oembed)
+[https://www.youtube.com/embed/blNrVyA15Rc](https://www.youtube.com/embed/blNrVyA15Rc)
 
-[https://www.youtube.com/embed/uV5ImeeTIRc?feature=oembed](https://www.youtube.com/embed/uV5ImeeTIRc?feature=oembed)
+[https://www.youtube.com/embed/uV5ImeeTIRc](https://www.youtube.com/embed/uV5ImeeTIRc)
 
 Bruce issues a video plea for support for the Community Hospital Endowment Fund for the Kenyan city of Lwala.
 

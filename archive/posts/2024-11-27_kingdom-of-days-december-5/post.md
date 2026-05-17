@@ -17,9 +17,9 @@ Bruce and the E Street Band record a pair of Christmas greetings for WHFS in Bet
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/Xrk0-dk7L24?feature=oembed](https://www.youtube.com/embed/Xrk0-dk7L24?feature=oembed)
+[https://www.youtube.com/embed/Xrk0-dk7L24](https://www.youtube.com/embed/Xrk0-dk7L24)
 
-[https://www.youtube.com/embed/nne5anoBwXk?feature=oembed](https://www.youtube.com/embed/nne5anoBwXk?feature=oembed)
+[https://www.youtube.com/embed/nne5anoBwXk](https://www.youtube.com/embed/nne5anoBwXk)
 
 The Darkness Tour travels south to Louisiana State University in Baton Rouge.
 
@@ -31,13 +31,13 @@ Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for six songs, i
 
 **1987:** [Wooly Bully](http://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)[Little Latin Lupe Lu](http://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)
 
-[https://www.youtube.com/embed/aXcPqvpqdos?feature=oembed](https://www.youtube.com/embed/aXcPqvpqdos?feature=oembed)
+[https://www.youtube.com/embed/aXcPqvpqdos](https://www.youtube.com/embed/aXcPqvpqdos)
 
 Bruce and his new touring band bring World Tour 1992 to the Market Square Arena in Indianapolis.
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/Ee6IDenhNXk?feature=oembed](https://www.youtube.com/embed/Ee6IDenhNXk?feature=oembed)
+[https://www.youtube.com/embed/Ee6IDenhNXk](https://www.youtube.com/embed/Ee6IDenhNXk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-05a.png?resize=758%2C258&amp;ssl=1)
 
@@ -53,7 +53,7 @@ Bruce plays a solo acoustic show at Constitution Hall in Washington, DC–twenty
 
 **1995:**<br>
 
-[https://videopress.com/embed/8Dwup8kA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8Dwup8kA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/8Dwup8kA](https://videopress.com/embed/8Dwup8kA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1995-12-05.png?resize=758%2C1672&amp;ssl=1)
 
@@ -61,7 +61,7 @@ Bruce plays a solo acoustic show at the Township Auditorium in Columbia, South C
 
 **1996:**<br>
 
-[https://www.youtube.com/embed/n2SzHhtb9JM?feature=oembed](https://www.youtube.com/embed/n2SzHhtb9JM?feature=oembed)
+[https://www.youtube.com/embed/n2SzHhtb9JM](https://www.youtube.com/embed/n2SzHhtb9JM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1996-12-05.png?resize=536%2C3829&amp;ssl=1)
 
@@ -87,7 +87,7 @@ After taking a year off (due to the Rising Tour) Bruce resumes his annual Asbury
 
 **2003:** [None But the Brave](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)
 
-[https://videopress.com/embed/Xz5q8X5g?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Xz5q8X5g?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Xz5q8X5g](https://videopress.com/embed/Xz5q8X5g)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2003-12-05a.png?resize=758%2C984&amp;ssl=1)
 
@@ -99,19 +99,19 @@ Bruce is honored by John F. Kennedy Center for the Performing Arts, first at a r
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/oS1-BLl_H30?feature=oembed](https://www.youtube.com/embed/oS1-BLl_H30?feature=oembed)
+[https://www.youtube.com/embed/oS1-BLl_H30](https://www.youtube.com/embed/oS1-BLl_H30)
 
-[https://www.youtube.com/embed/TsjK6B-1zf4?feature=oembed](https://www.youtube.com/embed/TsjK6B-1zf4?feature=oembed)
+[https://www.youtube.com/embed/TsjK6B-1zf4](https://www.youtube.com/embed/TsjK6B-1zf4)
 
-[https://www.youtube.com/embed/6gww1opBRxU?feature=oembed](https://www.youtube.com/embed/6gww1opBRxU?feature=oembed)
+[https://www.youtube.com/embed/6gww1opBRxU](https://www.youtube.com/embed/6gww1opBRxU)
 
-[https://www.youtube.com/embed/ozFtHdn4ZDQ?feature=oembed](https://www.youtube.com/embed/ozFtHdn4ZDQ?feature=oembed)
+[https://www.youtube.com/embed/ozFtHdn4ZDQ](https://www.youtube.com/embed/ozFtHdn4ZDQ)
 
 [https://www.youtube.com/embed/CvMFdAtsRTg?list=PLF3BB2EA2DA4CE536](https://www.youtube.com/embed/CvMFdAtsRTg?list=PLF3BB2EA2DA4CE536)
 
-[https://www.youtube.com/embed/tmWYg4W9CaY?feature=oembed](https://www.youtube.com/embed/tmWYg4W9CaY?feature=oembed)
+[https://www.youtube.com/embed/tmWYg4W9CaY](https://www.youtube.com/embed/tmWYg4W9CaY)
 
-[https://www.youtube.com/embed/lPQZsBSskHA?feature=oembed](https://www.youtube.com/embed/lPQZsBSskHA?feature=oembed)
+[https://www.youtube.com/embed/lPQZsBSskHA](https://www.youtube.com/embed/lPQZsBSskHA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2009-12-05a.png?resize=758%2C1601&amp;ssl=1)
 

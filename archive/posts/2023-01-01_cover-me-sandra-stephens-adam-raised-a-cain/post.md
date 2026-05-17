@@ -3,7 +3,7 @@ Stop what you're doing and listen to Sandra Stephens' remarkable cover of "." If
 
 [Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)
 
-[https://www.youtube.com/embed/Tw6P5c-yc_A?feature=oembed](https://www.youtube.com/embed/Tw6P5c-yc_A?feature=oembed)
+[https://www.youtube.com/embed/Tw6P5c-yc_A](https://www.youtube.com/embed/Tw6P5c-yc_A)
 
 Prior to her collaborations with Lanny Cordola, she was known primarily for her gospel and religious recordings. But through her collaborations with Cordolla, she branched out, lending her remarkable vocals to a spectrum of musical styles, including rock and roll.
 

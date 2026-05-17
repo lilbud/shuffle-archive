@@ -9,7 +9,7 @@ You almost certainly know Of Monsters and Men–they've been riding high on the 
 
 But who knew they counted Bruce among their influences? I didn't, until they played this beautiful cover of "Dancing in the Dark" live at Sirius XM last month.
 
-[https://www.youtube.com/embed/JJsh2rZ1xhU?feature=oembed](https://www.youtube.com/embed/JJsh2rZ1xhU?feature=oembed)
+[https://www.youtube.com/embed/JJsh2rZ1xhU](https://www.youtube.com/embed/JJsh2rZ1xhU)
 
 An absolutely terrific version.
 

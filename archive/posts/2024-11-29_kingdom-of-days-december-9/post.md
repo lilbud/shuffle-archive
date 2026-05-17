@@ -21,7 +21,7 @@ Today is an emotional day for Bruce–John Lennon was murdered the night before,
 
 **1980:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)
 
-[https://www.youtube.com/embed/lGG8IuFlj0E?feature=oembed](https://www.youtube.com/embed/lGG8IuFlj0E?feature=oembed)
+[https://www.youtube.com/embed/lGG8IuFlj0E](https://www.youtube.com/embed/lGG8IuFlj0E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1980-12-09.png?resize=758%2C207&amp;ssl=1)
 
@@ -29,7 +29,7 @@ The Born in the U.S.A. Tour stops at Middle Tennessee State University in Murfre
 
 **1984:** [Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)[Guitar Town](https://estreetshuffle.com/index.php/2020/11/28/matr-steve-earle-and-bruce-springsteen-guitar-town/)
 
-[https://www.youtube.com/embed/ce7PwWx40v4?feature=oembed](https://www.youtube.com/embed/ce7PwWx40v4?feature=oembed)
+[https://www.youtube.com/embed/ce7PwWx40v4](https://www.youtube.com/embed/ce7PwWx40v4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1984-12-09.png?resize=758%2C763&amp;ssl=1)
 
@@ -37,15 +37,15 @@ At Night Two at the Tower Theater in Philadelphia on the Ghost of Tom Joad Tour,
 
 **1995:** [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
 
-[https://www.youtube.com/embed/JL5x0GNeuBY?feature=oembed](https://www.youtube.com/embed/JL5x0GNeuBY?feature=oembed)
+[https://www.youtube.com/embed/JL5x0GNeuBY](https://www.youtube.com/embed/JL5x0GNeuBY)
 
-[https://www.youtube.com/embed/Is3r4TX33Mk?feature=oembed](https://www.youtube.com/embed/Is3r4TX33Mk?feature=oembed)
+[https://www.youtube.com/embed/Is3r4TX33Mk](https://www.youtube.com/embed/Is3r4TX33Mk)
 
-[https://www.youtube.com/embed/vmQNzShFhKM?feature=oembed](https://www.youtube.com/embed/vmQNzShFhKM?feature=oembed)
+[https://www.youtube.com/embed/vmQNzShFhKM](https://www.youtube.com/embed/vmQNzShFhKM)
 
-[https://www.youtube.com/embed/E6-tA1_vTYM?feature=oembed](https://www.youtube.com/embed/E6-tA1_vTYM?feature=oembed)
+[https://www.youtube.com/embed/E6-tA1_vTYM](https://www.youtube.com/embed/E6-tA1_vTYM)
 
-[https://www.youtube.com/embed/TkOUULX78vE?feature=oembed](https://www.youtube.com/embed/TkOUULX78vE?feature=oembed)
+[https://www.youtube.com/embed/TkOUULX78vE](https://www.youtube.com/embed/TkOUULX78vE)
 
 From Stockholm to Paris: Bruce appears on French TV show , granting an interview and performing "" Also on this date: is certified platinum by the Recording Industry Association of America.
 
@@ -67,7 +67,7 @@ Bruce joins Gaslight Anthem on stage at Asbury Park's Convention Hall for "."
 
 **2011:** [American Slang](https://estreetshuffle.com/index.php/2021/06/18/matr-the-gaslight-anthem-and-bruce-springsteen-american-slang/)
 
-[https://www.youtube.com/embed/iDGRmyheya8?feature=oembed](https://www.youtube.com/embed/iDGRmyheya8?feature=oembed)
+[https://www.youtube.com/embed/iDGRmyheya8](https://www.youtube.com/embed/iDGRmyheya8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2011-12-09.png?resize=758%2C1184&amp;ssl=1)
 
@@ -75,7 +75,7 @@ Bruce phones SiriusXM for an E Street Radio interview to promote his new box set
 
 **2015:** *The Ties That Bind: The River Collection*
 
-[https://www.youtube.com/embed/Lia2zYqeXIw?feature=oembed](https://www.youtube.com/embed/Lia2zYqeXIw?feature=oembed)
+[https://www.youtube.com/embed/Lia2zYqeXIw](https://www.youtube.com/embed/Lia2zYqeXIw)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -85,11 +85,11 @@ Bruce joins Sting, John Mellencamp, James Taylor, Bob Geldof, The Eurythmics, an
 
 **2019:** [Pink Houses](https://estreetshuffle.com/index.php/2021/03/11/matr-john-mellancamp-and-bruce-springsteen-pink-houses/)[Glory Days,](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)["Don't Stop Believin'.](https://estreetshuffle.com/index.php/2020/12/20/matr-bruce-springsteen-sting-lady-gaga-elton-john-and-more-dont-stop-believin/)
 
-[https://www.youtube.com/embed/nhppxrSzQ24?feature=oembed](https://www.youtube.com/embed/nhppxrSzQ24?feature=oembed)
+[https://www.youtube.com/embed/nhppxrSzQ24](https://www.youtube.com/embed/nhppxrSzQ24)
 
-[https://www.youtube.com/embed/7FsLcprAVLc?feature=oembed](https://www.youtube.com/embed/7FsLcprAVLc?feature=oembed)
+[https://www.youtube.com/embed/7FsLcprAVLc](https://www.youtube.com/embed/7FsLcprAVLc)
 
-[https://www.youtube.com/embed/WNNOsOUyknc?feature=oembed](https://www.youtube.com/embed/WNNOsOUyknc?feature=oembed)
+[https://www.youtube.com/embed/WNNOsOUyknc](https://www.youtube.com/embed/WNNOsOUyknc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2019-12-09.png?resize=758%2C334&amp;ssl=1)
 

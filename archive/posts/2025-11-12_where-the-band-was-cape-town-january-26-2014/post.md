@@ -13,13 +13,13 @@ The "arena" itself was strange–it was actually a velodrome, basically a giant 
 
 Check out the videos, and you'll feel the mood that held for the whole evening–an exuberant celebration. The crowd wasn't quite sure what to do during some of the audience participation parts ("" was particularly funny–when Bruce asked the audience if anyone knew the question he was there to ask, he got responses like "I love you!" and "Italy!") but they figured it out pretty quick on the subsequent nights. [Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)
 
-[https://www.youtube.com/embed/FOCnZ6xwxTI?feature=oembed](https://www.youtube.com/embed/FOCnZ6xwxTI?feature=oembed)
+[https://www.youtube.com/embed/FOCnZ6xwxTI](https://www.youtube.com/embed/FOCnZ6xwxTI)
 
-[https://www.youtube.com/embed/vckWpLAFGCA?feature=oembed](https://www.youtube.com/embed/vckWpLAFGCA?feature=oembed)
+[https://www.youtube.com/embed/vckWpLAFGCA](https://www.youtube.com/embed/vckWpLAFGCA)
 
-[https://www.youtube.com/embed/oHmqNwCB2dU?feature=oembed](https://www.youtube.com/embed/oHmqNwCB2dU?feature=oembed)
+[https://www.youtube.com/embed/oHmqNwCB2dU](https://www.youtube.com/embed/oHmqNwCB2dU)
 
-[https://www.youtube.com/embed/3TjSiSFyh1U?feature=oembed](https://www.youtube.com/embed/3TjSiSFyh1U?feature=oembed)
+[https://www.youtube.com/embed/3TjSiSFyh1U](https://www.youtube.com/embed/3TjSiSFyh1U)
 
 I expected this stand to feature setlist surprises, guest-stars and memorable audience moments (and we got all of them). What I didn't expect was to get a taste of three different tours on three separate nights.
 
@@ -33,15 +33,15 @@ Sure enough, leading off the encore was "," dedicated to Seeger and to Nelson Ma
 
 [We Shall Overcome](http://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)
 
-[https://www.youtube.com/embed/PE2lhLHeDBw?feature=oembed](https://www.youtube.com/embed/PE2lhLHeDBw?feature=oembed)
+[https://www.youtube.com/embed/PE2lhLHeDBw](https://www.youtube.com/embed/PE2lhLHeDBw)
 
 But Bruce must have had Pete Seeger on his mind the whole night, because interspersed throughout the set were two other Seeger tour staples not seen since 2006: the swing arrangement of "," and "."
 
 [Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)
 
-[https://www.youtube.com/embed/HknI8UFAdbE?feature=oembed](https://www.youtube.com/embed/HknI8UFAdbE?feature=oembed)
+[https://www.youtube.com/embed/HknI8UFAdbE](https://www.youtube.com/embed/HknI8UFAdbE)
 
-[https://www.youtube.com/embed/XzIORoSqaQo?feature=oembed](https://www.youtube.com/embed/XzIORoSqaQo?feature=oembed)
+[https://www.youtube.com/embed/XzIORoSqaQo](https://www.youtube.com/embed/XzIORoSqaQo)
 
 Bruce was also much looser at this show than at the opener. On Night 1, there were no requests, and the audience interactions were awkward (it was, after all, the first show for most in the audience). By Night 2, the audience was figuring out their participation parts, and Bruce spotted and granted a few requests signs.
 
@@ -55,14 +55,14 @@ But it was also a night of premieres (including the first ever performance of ""
 
 [This is Your Sword,](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
 
-[https://www.youtube.com/embed/PQLUN4h3KpA?feature=oembed](https://www.youtube.com/embed/PQLUN4h3KpA?feature=oembed)
+[https://www.youtube.com/embed/PQLUN4h3KpA](https://www.youtube.com/embed/PQLUN4h3KpA)
 
-[https://www.youtube.com/embed/XQk0U18h4m8?feature=oembed](https://www.youtube.com/embed/XQk0U18h4m8?feature=oembed)
+[https://www.youtube.com/embed/XQk0U18h4m8](https://www.youtube.com/embed/XQk0U18h4m8)
 
 All three Cape Town shows were unusual in that they were a throwback to the old "first-come, first-in" pit system, instead of the lottery system that had been in place for a decade by this point. Since I'd never been to Cape Town before (and didn't know if I'd ever make it back), I decided to spend my days seeing the city instead of waiting in the pit line–so for the first two shows, I wasn't anywhere close to the stage.
 
 But for this last show, I was determined to be up front, so I spent the day making friends in line and got a prime spot leaning on the stage–and had a great vantage point for moments like this:
 
-[https://www.youtube.com/embed/J1VYHhK1b6w?feature=oembed](https://www.youtube.com/embed/J1VYHhK1b6w?feature=oembed)
+[https://www.youtube.com/embed/J1VYHhK1b6w](https://www.youtube.com/embed/J1VYHhK1b6w)
 
 While the High Hopes Tour would go on to soar to much greater heights than these opening shows, I'll always remember these three among my favorites–from days spent hiking and exploring with fellow fans to standout performances and surprises each night, this was a very special run of shows for me.

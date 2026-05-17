@@ -6,7 +6,7 @@ Steve Van Zandt saved the day, though–he not only fronted The Asbury Jukes for
 
 Early in the set for both the early and late shows on May 13th was Steve's own song, "Some Things Just Don't Change." Here's that standout performance from the early show:
 
-[https://videopress.com/embed/XjF2jDXs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XjF2jDXs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/XjF2jDXs](https://videopress.com/embed/XjF2jDXs)
 
 Although Steve wrote "Some Things Just Don't Change," it first appeared on Southside Johnny's new (well, at the time at least) album, *This Time It's For Real*.
 

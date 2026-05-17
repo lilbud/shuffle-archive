@@ -35,7 +35,7 @@ The original River Tour stops in Mobile, Alabama.
 
 **1981:**<br>
 
-[https://videopress.com/embed/lJzCY3iA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lJzCY3iA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/lJzCY3iA](https://videopress.com/embed/lJzCY3iA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Birmingham_Post_Herald_Fri__Feb_13__1981_.jpg?resize=758%2C676&amp;ssl=1)
 
@@ -49,52 +49,52 @@ Bruce begins his first European solo acoustic tour in Frankfurt.
 
 **1996:**<br>
 
-[https://www.youtube.com/embed/qVfDA38YmwE?feature=oembed](https://www.youtube.com/embed/qVfDA38YmwE?feature=oembed)
+[https://www.youtube.com/embed/qVfDA38YmwE](https://www.youtube.com/embed/qVfDA38YmwE)
 
 Bruce's marathon solo acoustic tour continues with a fifth and final show at the Capital Theater in Sydney, Australia.
 
 **1997:**<br>
 
-[https://videopress.com/embed/pbK3YKjI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pbK3YKjI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/pbK3YKjI](https://videopress.com/embed/pbK3YKjI)
 
 Bruce records audio and video for "" for a Johnny Cash tribute special. It will be broadcast in April.
 
 **1999:**[Give My Love to Rose](https://estreetshuffle.com/index.php/2020/10/29/cover-me-give-my-love-to-rose/)
 
-[https://www.youtube.com/embed/rF2ikBJbV5U?feature=oembed](https://www.youtube.com/embed/rF2ikBJbV5U?feature=oembed)
+[https://www.youtube.com/embed/rF2ikBJbV5U](https://www.youtube.com/embed/rF2ikBJbV5U)
 
 Bruce and the E Street Band open the Grammy Awards with the live debut of "" At the end of the show, Bruce joins an epic jam with Paul McCartney, Dave Grohl, and Joe Walsh on "" Watch both performances and behind-the-scenes footage below.
 
 **2012:**[We Take Care of Our Own.](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)[The End.](https://estreetshuffle.com/index.php/2024/07/06/matr-paul-mccartney-and-bruce-springsteen-the-end/)
 
-[https://www.youtube.com/embed/LVaV9d7U4YE?feature=oembed](https://www.youtube.com/embed/LVaV9d7U4YE?feature=oembed)
+[https://www.youtube.com/embed/LVaV9d7U4YE](https://www.youtube.com/embed/LVaV9d7U4YE)
 
-[https://videopress.com/embed/ud31M5qB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ud31M5qB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ud31M5qB](https://videopress.com/embed/ud31M5qB)
 
-[https://videopress.com/embed/0ABz94N6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0ABz94N6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0ABz94N6](https://videopress.com/embed/0ABz94N6)
 
 Night Two in Adelaide is a scorcher… literally. It was a hot day, and it prompts Bruce to open with a cover of "." This show also features the first and only (to date) performance of "."
 
 **2014:** [Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)[Hunter of Invisible Game](https://estreetshuffle.com/index.php/2022/01/18/roll-of-the-dice-hunter-of-invisible-game/)
 
-[https://www.youtube.com/embed/KBwXxxRBnJ0?feature=oembed](https://www.youtube.com/embed/KBwXxxRBnJ0?feature=oembed)
+[https://www.youtube.com/embed/KBwXxxRBnJ0](https://www.youtube.com/embed/KBwXxxRBnJ0)
 
-[https://www.youtube.com/embed/KwDdVpXdvgE?feature=oembed](https://www.youtube.com/embed/KwDdVpXdvgE?feature=oembed)
+[https://www.youtube.com/embed/KwDdVpXdvgE](https://www.youtube.com/embed/KwDdVpXdvgE)
 
-[https://www.youtube.com/embed/MoI3dMCeeWY?feature=oembed](https://www.youtube.com/embed/MoI3dMCeeWY?feature=oembed)
+[https://www.youtube.com/embed/MoI3dMCeeWY](https://www.youtube.com/embed/MoI3dMCeeWY)
 
-[https://www.youtube.com/embed/6_x8_lldjF0?feature=oembed](https://www.youtube.com/embed/6_x8_lldjF0?feature=oembed)
+[https://www.youtube.com/embed/6_x8_lldjF0](https://www.youtube.com/embed/6_x8_lldjF0)
 
 At the Wells Fargo Center in Philadelphia, Bruce gives Philly their customary special perks, adding tour premieres of "" and "Jungleland" to the post-album set. For more highlights and memories, see my .
 
 **2016:**[My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)[report](https://estreetshuffle.com/index.php/2018/02/12/where-the-band-was-philadelphia-february-12-2016/)*Where the Band Was*
 
-[https://www.youtube.com/embed/SnUHCsqDi6I?feature=oembed](https://www.youtube.com/embed/SnUHCsqDi6I?feature=oembed)
+[https://www.youtube.com/embed/SnUHCsqDi6I](https://www.youtube.com/embed/SnUHCsqDi6I)
 
-[https://www.youtube.com/embed/hBDZmpuxSI0?feature=oembed](https://www.youtube.com/embed/hBDZmpuxSI0?feature=oembed)
+[https://www.youtube.com/embed/hBDZmpuxSI0](https://www.youtube.com/embed/hBDZmpuxSI0)
 
-[https://www.youtube.com/embed/p4NBXN0hlRA?feature=oembed](https://www.youtube.com/embed/p4NBXN0hlRA?feature=oembed)
+[https://www.youtube.com/embed/p4NBXN0hlRA](https://www.youtube.com/embed/p4NBXN0hlRA)
 
-[https://www.youtube.com/embed/06X5-0OJoD4?feature=oembed](https://www.youtube.com/embed/06X5-0OJoD4?feature=oembed)
+[https://www.youtube.com/embed/06X5-0OJoD4](https://www.youtube.com/embed/06X5-0OJoD4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2016-02-12.png?resize=758%2C776&amp;ssl=1)

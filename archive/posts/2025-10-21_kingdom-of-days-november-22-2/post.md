@@ -31,7 +31,7 @@ Bruce kicks off what will prove to be a marathon-length world tour, performing s
 
 **1995:** [Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
 
-[https://www.youtube.com/embed/2xYzEjSci5Q?feature=oembed](https://www.youtube.com/embed/2xYzEjSci5Q?feature=oembed)
+[https://www.youtube.com/embed/2xYzEjSci5Q](https://www.youtube.com/embed/2xYzEjSci5Q)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-22-300x75.png?resize=758%2C190)
 
@@ -39,41 +39,41 @@ The anticipation for Bruce's upcoming show in Tampa is building, stoked by the l
 
 **2002:**<br>
 
-[https://www.youtube.com/embed/Muj_8nm8kyc?feature=oembed](https://www.youtube.com/embed/Muj_8nm8kyc?feature=oembed)
+[https://www.youtube.com/embed/Muj_8nm8kyc](https://www.youtube.com/embed/Muj_8nm8kyc)
 
 The Devils and Dust solo acoustic tour comes to a close at the Sovereign Bank Arena in Trenton, but Bruce still has surprises up his sleeve: "Zero and Blind Terry" make their return to Bruce's setlist, 31 years after their last appearance. "" and "" also make their tour premiere at the last show, and in the encores, Bruce brings his extended family on stage to join him for one last seasonal tour premiere: "" This show is available for purchase as part of Bruce's official archive series–get it .
 
 **2005:** [Fire](http://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)[Santa Claus is Comin' to Town.](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[here](http://live.brucespringsteen.net/live-music/0,21532/Bruce-Springsteen-mp3-flac-download-11-22-2005-Sovereign-Bank-Arena-Trenton-NJ.html)
 
-[https://www.youtube.com/embed/dKzarMVvALI?feature=oembed](https://www.youtube.com/embed/dKzarMVvALI?feature=oembed)
+[https://www.youtube.com/embed/dKzarMVvALI](https://www.youtube.com/embed/dKzarMVvALI)
 
-[https://www.youtube.com/embed/x4e5K2fBMR0?feature=oembed](https://www.youtube.com/embed/x4e5K2fBMR0?feature=oembed)
+[https://www.youtube.com/embed/x4e5K2fBMR0](https://www.youtube.com/embed/x4e5K2fBMR0)
 
-[https://www.youtube.com/embed/-ipv8Oaje30?feature=oembed](https://www.youtube.com/embed/-ipv8Oaje30?feature=oembed)
+[https://www.youtube.com/embed/-ipv8Oaje30](https://www.youtube.com/embed/-ipv8Oaje30)
 
-[https://www.youtube.com/embed/GP5jde4veiU?feature=oembed](https://www.youtube.com/embed/GP5jde4veiU?feature=oembed)
+[https://www.youtube.com/embed/GP5jde4veiU](https://www.youtube.com/embed/GP5jde4veiU)
 
-[https://www.youtube.com/embed/4l-vcEbedBQ?feature=oembed](https://www.youtube.com/embed/4l-vcEbedBQ?feature=oembed)
+[https://www.youtube.com/embed/4l-vcEbedBQ](https://www.youtube.com/embed/4l-vcEbedBQ)
 
-[https://www.youtube.com/embed/_6-ItUwDYmw?feature=oembed](https://www.youtube.com/embed/_6-ItUwDYmw?feature=oembed)
+[https://www.youtube.com/embed/_6-ItUwDYmw](https://www.youtube.com/embed/_6-ItUwDYmw)
 
-[https://www.youtube.com/embed/Y8wrl7Aqwhk?feature=oembed](https://www.youtube.com/embed/Y8wrl7Aqwhk?feature=oembed)
+[https://www.youtube.com/embed/Y8wrl7Aqwhk](https://www.youtube.com/embed/Y8wrl7Aqwhk)
 
-[https://www.youtube.com/embed/WkAei555KP8?feature=oembed](https://www.youtube.com/embed/WkAei555KP8?feature=oembed)
+[https://www.youtube.com/embed/WkAei555KP8](https://www.youtube.com/embed/WkAei555KP8)
 
-[https://www.youtube.com/embed/SatYbLm--N4?feature=oembed](https://www.youtube.com/embed/SatYbLm--N4?feature=oembed)
+[https://www.youtube.com/embed/SatYbLm--N4](https://www.youtube.com/embed/SatYbLm--N4)
 
 Four years later to the day, Bruce is wrapping up another tour, as the Working on a Dream Tour comes to a close in Buffalo. This show closes a much bigger chapter in Bruce's life, though–it marks the last time Clarence Clemons will grace the E Street stage for a public concert. Almost as if he knows it, Bruce plans a very special show, playing start to finish for the first and only time ever. Two tracks from that album are tour premieres–"" and "," the latter of which features lovely viola support from Joyce Hammann. The special moments keep coming: "Restless Nights" is played for the very first time ever (by request from Steve), "" is played by request (another tour debut), and since the holidays are approaching, Bruce plays "" and "Santa Claus is Comin' to Town." The encores open with a final tour premiere–an acoustic, sentimental "," very obviously a heartfelt message from Bruce to his fans. Willie Nile joins the band for "," and a final rousing rendition of "Rockin' All Over the World" closes this chapter in E Street history. The show is available as an official archive series download (get it ) and is essential for every Springsteen fan. For more highlights from this show, see my .
 
 **2009:**   [Greetings from Asbury Park](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)[The Angel](http://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)[Hang Up My Rock and Roll Shoes](http://estreetshuffle.com/index.php/2018/05/13/cover-me-hang-up-my-rock-and-roll-shoes/)*both*[Merry Christmas Baby](http://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)[I'll Work For Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)[Higher and Higher](http://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)[here](http://live.brucespringsteen.net/live-music/0,15506/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-22-2009-HSBC-Arena-Buffalo-NY.html)[report](http://estreetshuffle.com/index.php/2018/11/22/where-the-band-was-buffalo-november-22-2009/)*Where the Band Was*
 
-[https://videopress.com/embed/MRRnp34T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MRRnp34T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/MRRnp34T](https://videopress.com/embed/MRRnp34T)
 
-[https://videopress.com/embed/keQmvh77?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/keQmvh77?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/keQmvh77](https://videopress.com/embed/keQmvh77)
 
-[https://videopress.com/embed/3WSR4CKk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3WSR4CKk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/3WSR4CKk](https://videopress.com/embed/3WSR4CKk)
 
-[https://videopress.com/embed/vy8EpCQb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vy8EpCQb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/vy8EpCQb](https://videopress.com/embed/vy8EpCQb)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Buffalo_News_Mon__Nov_23__2009_.jpg?resize=758%2C608&amp;ssl=1)
 
@@ -81,7 +81,7 @@ President Barack Obama presents Bruce with the Presidential Medal of Freedom, th
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/Zag_-9Rr1vk?feature=oembed](https://www.youtube.com/embed/Zag_-9Rr1vk?feature=oembed)
+[https://www.youtube.com/embed/Zag_-9Rr1vk](https://www.youtube.com/embed/Zag_-9Rr1vk)
 
 Before the ceremony, Bruce joins the assembled honorees in the Mannequin Challenge.
 
@@ -115,4 +115,4 @@ Bruce and the E Street Band close out World Tour '24 with a festive show (their 
 
 [https://www.youtube.com/embed/NsZ5gYhDr8A?start=6&amp;feature=oembed](https://www.youtube.com/embed/NsZ5gYhDr8A?start=6&amp;feature=oembed)
 
-[https://www.youtube.com/embed/EorOcv1we4Q?feature=oembed](https://www.youtube.com/embed/EorOcv1we4Q?feature=oembed)
+[https://www.youtube.com/embed/EorOcv1we4Q](https://www.youtube.com/embed/EorOcv1we4Q)

@@ -13,7 +13,7 @@ The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a sh
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/lGkeKgZblAo?feature=oembed](https://www.youtube.com/embed/lGkeKgZblAo?feature=oembed)
+[https://www.youtube.com/embed/lGkeKgZblAo](https://www.youtube.com/embed/lGkeKgZblAo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0405.jpg?resize=610%2C1000&amp;ssl=1)
 
@@ -21,13 +21,13 @@ The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a sh
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/HzIm7Ek6Vv0?feature=oembed](https://www.youtube.com/embed/HzIm7Ek6Vv0?feature=oembed)
+[https://www.youtube.com/embed/HzIm7Ek6Vv0](https://www.youtube.com/embed/HzIm7Ek6Vv0)
 
 Night Two at the Capital Center in Largo, Maryland, along the Tunnel of Love Express Tour.
 
 **1988:**<br>
 
-[https://videopress.com/embed/v5RXcyFL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/v5RXcyFL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/v5RXcyFL](https://videopress.com/embed/v5RXcyFL)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-04-05.jpg?resize=722%2C825&amp;ssl=1)
 
@@ -35,11 +35,11 @@ A busy day for Bruce and the (temporarily) reunited E Street Band: First, they m
 
 **1995:** *The Late Show with David Letterman*,
 
-[https://www.youtube.com/embed/KLtihzJ6gdw?feature=oembed](https://www.youtube.com/embed/KLtihzJ6gdw?feature=oembed)
+[https://www.youtube.com/embed/KLtihzJ6gdw](https://www.youtube.com/embed/KLtihzJ6gdw)
 
 …and then later that night, they play a private gig at Sony Music Studios in New York City. Highlights include the debuts of "I'm Turning Into Elvis," "Blood Brothers," and the first full-band "This Hard Land."
 
-[https://videopress.com/embed/VFJF5tXA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VFJF5tXA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VFJF5tXA](https://videopress.com/embed/VFJF5tXA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1995-04-05.jpg?resize=758%2C1558&amp;ssl=1)
 
@@ -53,7 +53,7 @@ Bruce makes a surprise appearance at a Carnegie Hall benefit show, , joining Cra
 
 **2007:** *Celebrating the Music of Bruce Springsteen: Music for Youth*
 
-[https://www.youtube.com/embed/jtjPO47XIbs?feature=oembed](https://www.youtube.com/embed/jtjPO47XIbs?feature=oembed)
+[https://www.youtube.com/embed/jtjPO47XIbs](https://www.youtube.com/embed/jtjPO47XIbs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2007-04-05.jpg?resize=758%2C494&amp;ssl=1)
 
@@ -61,15 +61,15 @@ Another radio station contest to pick a song for the set list–this time "Fire"
 
 **2008:**<br>
 
-[https://videopress.com/embed/4ds7LEvR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4ds7LEvR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4ds7LEvR](https://videopress.com/embed/4ds7LEvR)
 
 Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare "I'm a Rocker" and "Sherry Darling."
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/1yChqkwXgbI?feature=oembed](https://www.youtube.com/embed/1yChqkwXgbI?feature=oembed)
+[https://www.youtube.com/embed/1yChqkwXgbI](https://www.youtube.com/embed/1yChqkwXgbI)
 
-[https://www.youtube.com/embed/T0lCBVUQguk?feature=oembed](https://www.youtube.com/embed/T0lCBVUQguk?feature=oembed)
+[https://www.youtube.com/embed/T0lCBVUQguk](https://www.youtube.com/embed/T0lCBVUQguk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2009-04-05a.jpg?resize=758%2C232&amp;ssl=1)
 
@@ -79,11 +79,11 @@ At a River Tour stop in Dallas, things get a little out of hand during "Dancing 
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/nXqgo0oSJc0?feature=oembed](https://www.youtube.com/embed/nXqgo0oSJc0?feature=oembed)
+[https://www.youtube.com/embed/nXqgo0oSJc0](https://www.youtube.com/embed/nXqgo0oSJc0)
 
-[https://www.youtube.com/embed/XLFr0WAtBSM?feature=oembed](https://www.youtube.com/embed/XLFr0WAtBSM?feature=oembed)
+[https://www.youtube.com/embed/XLFr0WAtBSM](https://www.youtube.com/embed/XLFr0WAtBSM)
 
-[https://www.youtube.com/embed/ynUvaSq_ynM?feature=oembed](https://www.youtube.com/embed/ynUvaSq_ynM?feature=oembed)
+[https://www.youtube.com/embed/ynUvaSq_ynM](https://www.youtube.com/embed/ynUvaSq_ynM)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "Long Time Comin'" and "The Ghost of Tom Joad" in place of "Brilliant Disguise" and "Tougher Than the Rest."
 
@@ -101,8 +101,8 @@ For the fourth show in a row, Bruce introduces a tour debut into his mostly stat
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/Q_whKRSfRYg?feature=oembed](https://www.youtube.com/embed/Q_whKRSfRYg?feature=oembed)
+[https://www.youtube.com/embed/Q_whKRSfRYg](https://www.youtube.com/embed/Q_whKRSfRYg)
 
-[https://www.youtube.com/embed/N9QzxUWExDc?feature=oembed](https://www.youtube.com/embed/N9QzxUWExDc?feature=oembed)
+[https://www.youtube.com/embed/N9QzxUWExDc](https://www.youtube.com/embed/N9QzxUWExDc)
 
-[https://www.youtube.com/embed/L91LYQt3s_k?feature=oembed](https://www.youtube.com/embed/L91LYQt3s_k?feature=oembed)
+[https://www.youtube.com/embed/L91LYQt3s_k](https://www.youtube.com/embed/L91LYQt3s_k)

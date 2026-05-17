@@ -15,7 +15,7 @@ Bruce wins in the Best Composer category for "" (currently charting in the form 
 
 **1977:** [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)[The Little Things (My Baby Does)](https://estreetshuffle.com/index.php/2022/03/04/roll-of-the-dice-the-little-things-my-baby-does/)*The Promise*
 
-[https://www.youtube.com/embed/pCAHAsxFVOQ?feature=oembed](https://www.youtube.com/embed/pCAHAsxFVOQ?feature=oembed)
+[https://www.youtube.com/embed/pCAHAsxFVOQ](https://www.youtube.com/embed/pCAHAsxFVOQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1977-09-15.jpg?resize=758%2C1672&amp;ssl=1)
 
@@ -23,7 +23,7 @@ Bruce and the E Street Band kick off a three-night stand at the Palladium in New
 
 **1978:** [Darkness on the Edge of Town,](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
 
-[https://videopress.com/embed/2fEPHBr6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2fEPHBr6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2fEPHBr6](https://videopress.com/embed/2fEPHBr6)
 
 Bruce and the E Street Band hold a recording session for at The Hit Factory in New York City.
 
@@ -33,7 +33,7 @@ At Night Four (of six) at the Philadelphia Spectrum, Bruce tour premieres "" and
 
 **1984:** [Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)[I'm Bad, I'm Nationwide](http://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/)
 
-[https://videopress.com/embed/bCxOau0m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bCxOau0m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bCxOau0m](https://videopress.com/embed/bCxOau0m)
 
 The night before Danny Federici's wedding, Bruce and the band celebrate Danny at the Taylor Farms Tea Room in Janesville, Wisconsin.
 
@@ -45,7 +45,7 @@ The Human Rights Now! Tour kicks off a week-long North American leg with a show 
 
 **1988:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://videopress.com/embed/JUExiFZ0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JUExiFZ0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/JUExiFZ0](https://videopress.com/embed/JUExiFZ0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-15-216x300.jpg?resize=758%2C1053)
 
@@ -53,13 +53,13 @@ The Human Rights Now! Tour kicks off a week-long North American leg with a show 
 
 **1989**[Viva Las Vegas](https://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/)
 
-[https://www.youtube.com/embed/quWs4rY-ekc?feature=oembed](https://www.youtube.com/embed/quWs4rY-ekc?feature=oembed)
+[https://www.youtube.com/embed/quWs4rY-ekc](https://www.youtube.com/embed/quWs4rY-ekc)
 
 Bruce and the E Street Band play their second of six Reunion Tour shows in Philadelphia.
 
 **1999:**<br>
 
-[https://videopress.com/embed/DF5badip?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DF5badip?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/DF5badip](https://videopress.com/embed/DF5badip)
 
 Patti plays a solo show at the Paramount Theater in Asbury Park, and Bruce backs her on guitar and vocals.
 
@@ -77,9 +77,9 @@ Bruce and Steve catch Paul McCartney's show at Madison Square Garden and join hi
 
 **2017:**<br>
 
-[https://www.youtube.com/embed/cIKDbii1vZI?feature=oembed](https://www.youtube.com/embed/cIKDbii1vZI?feature=oembed)
+[https://www.youtube.com/embed/cIKDbii1vZI](https://www.youtube.com/embed/cIKDbii1vZI)
 
-[https://www.youtube.com/embed/IX3Y_IuRWq4?feature=oembed](https://www.youtube.com/embed/IX3Y_IuRWq4?feature=oembed)
+[https://www.youtube.com/embed/IX3Y_IuRWq4](https://www.youtube.com/embed/IX3Y_IuRWq4)
 
 Bruce releases the 28th installment of on E Street Radio. This episode is entitled "Money Money."
 
@@ -89,12 +89,12 @@ Bruce has played in Asbury Park many times over the years, but never to a crowd 
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/HHhGgZ-Uz9Q?feature=oembed](https://www.youtube.com/embed/HHhGgZ-Uz9Q?feature=oembed)
+[https://www.youtube.com/embed/HHhGgZ-Uz9Q](https://www.youtube.com/embed/HHhGgZ-Uz9Q)
 
-[https://www.youtube.com/embed/0c1e7PNHtsk?feature=oembed](https://www.youtube.com/embed/0c1e7PNHtsk?feature=oembed)
+[https://www.youtube.com/embed/0c1e7PNHtsk](https://www.youtube.com/embed/0c1e7PNHtsk)
 
-[https://www.youtube.com/embed/vPzYexr61BY?feature=oembed](https://www.youtube.com/embed/vPzYexr61BY?feature=oembed)
+[https://www.youtube.com/embed/vPzYexr61BY](https://www.youtube.com/embed/vPzYexr61BY)
 
-[https://www.youtube.com/embed/rWeuo193a4c?feature=oembed](https://www.youtube.com/embed/rWeuo193a4c?feature=oembed)
+[https://www.youtube.com/embed/rWeuo193a4c](https://www.youtube.com/embed/rWeuo193a4c)
 
-[https://www.youtube.com/embed/ohogellR8jU?feature=oembed](https://www.youtube.com/embed/ohogellR8jU?feature=oembed)
+[https://www.youtube.com/embed/ohogellR8jU](https://www.youtube.com/embed/ohogellR8jU)

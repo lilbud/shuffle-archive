@@ -11,21 +11,21 @@ At Night Two in Richfield on the River Tour, Bruce and the E Street Band play ""
 
 **1980:** [You Can Look (But You Better Not Touch)](http://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)
 
-[https://videopress.com/embed/43CW31ld?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/43CW31ld?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/43CW31ld](https://videopress.com/embed/43CW31ld)
 
 Bruce makes a guest appearance with Cats on a Smooth Surface at The Stone Pony in Asbury Park for a cover-filled set, including "," "," and more.
 
 **1984:** [Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)[Little Latin Lupe Lu](http://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)
 
-[https://videopress.com/embed/Od5POU9j?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Od5POU9j?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Od5POU9j](https://videopress.com/embed/Od5POU9j)
 
 Bruce plays in Africa for the very first time at the Human Rights Now! show at Zimbabwe's National Sports Stadium in Harare, before a largely white South African audience. Watch Bruce's recollection of the show below.
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/dY4IpKtNSJk?feature=oembed](https://www.youtube.com/embed/dY4IpKtNSJk?feature=oembed)
+[https://www.youtube.com/embed/dY4IpKtNSJk](https://www.youtube.com/embed/dY4IpKtNSJk)
 
-[https://www.youtube.com/embed/PSonVspGunA?feature=oembed](https://www.youtube.com/embed/PSonVspGunA?feature=oembed)
+[https://www.youtube.com/embed/PSonVspGunA](https://www.youtube.com/embed/PSonVspGunA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-10-07-300x107.jpg?resize=758%2C270)
 
@@ -33,7 +33,7 @@ Bruce and the E Street Band close out the first leg of the Rising Tour at HSBC A
 
 **2002:** [Tougher Than the Rest](http://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)
 
-[https://www.youtube.com/embed/lTcTDFeyL78?feature=oembed](https://www.youtube.com/embed/lTcTDFeyL78?feature=oembed)
+[https://www.youtube.com/embed/lTcTDFeyL78](https://www.youtube.com/embed/lTcTDFeyL78)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2002-10-07.jpg?resize=519%2C2883&amp;ssl=1)
 
@@ -41,7 +41,7 @@ Bruce plays a stellar acoustic set at the Hartford Civic Center, opening with ""
 
 **2005:** [Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)
 
-[https://www.youtube.com/embed/hpPVKSv2m7M?feature=oembed](https://www.youtube.com/embed/hpPVKSv2m7M?feature=oembed)
+[https://www.youtube.com/embed/hpPVKSv2m7M](https://www.youtube.com/embed/hpPVKSv2m7M)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2005-10-07-300x280.jpg?resize=758%2C707)
 
@@ -49,21 +49,21 @@ Bruce's tour of Italy continues as the Sessions Band arrives in Perugia and tour
 
 **2006:** [Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)
 
-[https://www.youtube.com/embed/-uie0T55R3E?feature=oembed](https://www.youtube.com/embed/-uie0T55R3E?feature=oembed)
+[https://www.youtube.com/embed/-uie0T55R3E](https://www.youtube.com/embed/-uie0T55R3E)
 
-[https://www.youtube.com/embed/oqe2DR_v8HQ?feature=oembed](https://www.youtube.com/embed/oqe2DR_v8HQ?feature=oembed)
+[https://www.youtube.com/embed/oqe2DR_v8HQ](https://www.youtube.com/embed/oqe2DR_v8HQ)
 
-[https://www.youtube.com/embed/9eg_lEC62cw?feature=oembed](https://www.youtube.com/embed/9eg_lEC62cw?feature=oembed)
+[https://www.youtube.com/embed/9eg_lEC62cw](https://www.youtube.com/embed/9eg_lEC62cw)
 
-[https://www.youtube.com/embed/mYeiOaOluqU?feature=oembed](https://www.youtube.com/embed/mYeiOaOluqU?feature=oembed)
+[https://www.youtube.com/embed/mYeiOaOluqU](https://www.youtube.com/embed/mYeiOaOluqU)
 
-[https://www.youtube.com/embed/WYJY0cxI0KA?feature=oembed](https://www.youtube.com/embed/WYJY0cxI0KA?feature=oembed)
+[https://www.youtube.com/embed/WYJY0cxI0KA](https://www.youtube.com/embed/WYJY0cxI0KA)
 
 Bruce is interviewed by editor David Remnick and reads from his book at Town Hall in New York City as part of The New Yorker Festival.
 
 **2016:** *The New Yorker*
 
-[https://www.youtube.com/embed/i1PptJNEqIY?feature=oembed](https://www.youtube.com/embed/i1PptJNEqIY?feature=oembed)
+[https://www.youtube.com/embed/i1PptJNEqIY](https://www.youtube.com/embed/i1PptJNEqIY)
 
 Bruce tweaks his running order, swapping the positions of "" and "."
 
@@ -77,4 +77,4 @@ Later that day, Bruce records a promotional interview for with Zane Lowe. The in
 
 [https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)*Letter to You*
 
-[https://www.youtube.com/embed/PhkL4K7Esc0?feature=oembed](https://www.youtube.com/embed/PhkL4K7Esc0?feature=oembed)
+[https://www.youtube.com/embed/PhkL4K7Esc0](https://www.youtube.com/embed/PhkL4K7Esc0)

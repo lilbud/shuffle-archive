@@ -9,11 +9,11 @@ In concert, their sets often feature a terrific cover of Bruce's "," and fortuna
 
 So here's a pairing, first from their Windmill Sessions appearance in January 2016…
 
-[https://www.youtube.com/embed/QrzVmXp8vh4?feature=oembed](https://www.youtube.com/embed/QrzVmXp8vh4?feature=oembed)
+[https://www.youtube.com/embed/QrzVmXp8vh4](https://www.youtube.com/embed/QrzVmXp8vh4)
 
 …and a more confident performance just a couple months later on JOE Sessions.
 
-[https://www.youtube.com/embed/1laECHpv8BY?feature=oembed](https://www.youtube.com/embed/1laECHpv8BY?feature=oembed)
+[https://www.youtube.com/embed/1laECHpv8BY](https://www.youtube.com/embed/1laECHpv8BY)
 
 Four years later, they'd get to perform it for Bruce himself… sort of.
 
@@ -21,10 +21,10 @@ Just prior to the release of , Bruce gave a video interview to Ryan Tubridy on .
 
 [](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)*Letter to You**The Late Late Show*
 
-[https://www.youtube.com/embed/rOlAxENYtpg?feature=oembed](https://www.youtube.com/embed/rOlAxENYtpg?feature=oembed)
+[https://www.youtube.com/embed/rOlAxENYtpg](https://www.youtube.com/embed/rOlAxENYtpg)
 
 The interview aired on Release Day a week later, and to mark the occasion the show invited Heathers to perform a live, socially distanced cover of "Dancing in the Dark" (which is probably the most apt way to perform that particular song, if you think about it).
 
-[https://www.youtube.com/embed/gZNecJR_Tpw?feature=oembed](https://www.youtube.com/embed/gZNecJR_Tpw?feature=oembed)
+[https://www.youtube.com/embed/gZNecJR_Tpw](https://www.youtube.com/embed/gZNecJR_Tpw)
 
 Did Bruce get a chance to see the Macnamara sisters perform his greatest hit? Who knows, but we can hope that Ellie and Louise found a way to make a long-distance connection with their musical hero.

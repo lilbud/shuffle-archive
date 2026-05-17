@@ -9,7 +9,7 @@ Steel Mill headlines a show at Virginia Commonwealth University in Richmond. Whe
 
 **1970:**<br>
 
-[https://www.youtube.com/embed/yTJtPogqgCc?feature=oembed](https://www.youtube.com/embed/yTJtPogqgCc?feature=oembed)
+[https://www.youtube.com/embed/yTJtPogqgCc](https://www.youtube.com/embed/yTJtPogqgCc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1970-0523.jpg?resize=453%2C700&amp;ssl=1)
 
@@ -21,7 +21,7 @@ The Darkness on the Edge of Town Tour begins at Shea's Buffalo Theater in Buffal
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/uK3_QRYf9FU?feature=oembed](https://www.youtube.com/embed/uK3_QRYf9FU?feature=oembed)
+[https://www.youtube.com/embed/uK3_QRYf9FU](https://www.youtube.com/embed/uK3_QRYf9FU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-23.jpg?resize=524%2C959&amp;ssl=1)
 
@@ -35,7 +35,7 @@ Bruce and the E Street Band complete "County Fair" at recording sessions at The 
 
 **1983:** *Born in the U.S.A.*
 
-[https://www.youtube.com/embed/yltKgMyWLH0?feature=oembed](https://www.youtube.com/embed/yltKgMyWLH0?feature=oembed)
+[https://www.youtube.com/embed/yltKgMyWLH0](https://www.youtube.com/embed/yltKgMyWLH0)
 
 Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
 
@@ -45,15 +45,15 @@ The final night of the American leg of the Tunnel of Love Express Tour at Madiso
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/SxbVieRyZYI?feature=oembed](https://www.youtube.com/embed/SxbVieRyZYI?feature=oembed)
+[https://www.youtube.com/embed/SxbVieRyZYI](https://www.youtube.com/embed/SxbVieRyZYI)
 
-[https://www.youtube.com/embed/WnRC2_Fjgu4?feature=oembed](https://www.youtube.com/embed/WnRC2_Fjgu4?feature=oembed)
+[https://www.youtube.com/embed/WnRC2_Fjgu4](https://www.youtube.com/embed/WnRC2_Fjgu4)
 
-[https://www.youtube.com/embed/moQnUqRDI_E?feature=oembed](https://www.youtube.com/embed/moQnUqRDI_E?feature=oembed)
+[https://www.youtube.com/embed/moQnUqRDI_E](https://www.youtube.com/embed/moQnUqRDI_E)
 
-[https://www.youtube.com/embed/-G-W1hOl2II?feature=oembed](https://www.youtube.com/embed/-G-W1hOl2II?feature=oembed)
+[https://www.youtube.com/embed/-G-W1hOl2II](https://www.youtube.com/embed/-G-W1hOl2II)
 
-[https://www.youtube.com/embed/3U1FlASDnaY?feature=oembed](https://www.youtube.com/embed/3U1FlASDnaY?feature=oembed)
+[https://www.youtube.com/embed/3U1FlASDnaY](https://www.youtube.com/embed/3U1FlASDnaY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1988-05-23-scaled.jpg?resize=758%2C351&amp;ssl=1)
 
@@ -69,9 +69,9 @@ Night 2 of 3 at RDS Arena in Dublin on the final European leg of the Magic Tour.
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/SjddQEIqOkg?feature=oembed](https://www.youtube.com/embed/SjddQEIqOkg?feature=oembed)
+[https://www.youtube.com/embed/SjddQEIqOkg](https://www.youtube.com/embed/SjddQEIqOkg)
 
-[https://www.youtube.com/embed/1SkVTUNWxvo?feature=oembed](https://www.youtube.com/embed/1SkVTUNWxvo?feature=oembed)
+[https://www.youtube.com/embed/1SkVTUNWxvo](https://www.youtube.com/embed/1SkVTUNWxvo)
 
 The final show of the first American leg of the Working on a Dream Tour in East Rutherford features the tour premieres of "Something in the Night," "Incident on 57th Street," and "Cover Me."
 
@@ -81,9 +81,9 @@ The Wrecking Ball Tour stops in Naples for a show at the Piazza del Plebiscito, 
 
 **2013:**<br>
 
-[https://www.youtube.com/embed/X-NYkLOguTM?feature=oembed](https://www.youtube.com/embed/X-NYkLOguTM?feature=oembed)
+[https://www.youtube.com/embed/X-NYkLOguTM](https://www.youtube.com/embed/X-NYkLOguTM)
 
-[https://www.youtube.com/embed/ihyPeWDR55M?feature=oembed](https://www.youtube.com/embed/ihyPeWDR55M?feature=oembed)
+[https://www.youtube.com/embed/ihyPeWDR55M](https://www.youtube.com/embed/ihyPeWDR55M)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zClsrGQNJMvyH672fGlpumC](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zClsrGQNJMvyH672fGlpumC)
 
@@ -91,17 +91,17 @@ Bruce and Joe Grushecky play their second of two shows at Soldiers & Sailors Mem
 
 **2014:**<br>
 
-[https://www.youtube.com/embed/GQvnGb6YpaQ?feature=oembed](https://www.youtube.com/embed/GQvnGb6YpaQ?feature=oembed)
+[https://www.youtube.com/embed/GQvnGb6YpaQ](https://www.youtube.com/embed/GQvnGb6YpaQ)
 
-[https://www.youtube.com/embed/qGXuPFhviRw?feature=oembed](https://www.youtube.com/embed/qGXuPFhviRw?feature=oembed)
+[https://www.youtube.com/embed/qGXuPFhviRw](https://www.youtube.com/embed/qGXuPFhviRw)
 
-[https://www.youtube.com/embed/DdPGM_-lXSQ?feature=oembed](https://www.youtube.com/embed/DdPGM_-lXSQ?feature=oembed)
+[https://www.youtube.com/embed/DdPGM_-lXSQ](https://www.youtube.com/embed/DdPGM_-lXSQ)
 
-[https://www.youtube.com/embed/Hns2xnDb4eo?feature=oembed](https://www.youtube.com/embed/Hns2xnDb4eo?feature=oembed)
+[https://www.youtube.com/embed/Hns2xnDb4eo](https://www.youtube.com/embed/Hns2xnDb4eo)
 
-[https://www.youtube.com/embed/bI5dCtKSXYI?feature=oembed](https://www.youtube.com/embed/bI5dCtKSXYI?feature=oembed)
+[https://www.youtube.com/embed/bI5dCtKSXYI](https://www.youtube.com/embed/bI5dCtKSXYI)
 
-[https://www.youtube.com/embed/4fhpheyJKeI?feature=oembed](https://www.youtube.com/embed/4fhpheyJKeI?feature=oembed)
+[https://www.youtube.com/embed/4fhpheyJKeI](https://www.youtube.com/embed/4fhpheyJKeI)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -111,8 +111,8 @@ Paul McCartney inducts Bruce into the Fellowship of the Ivors Academy at Grosven
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/ezRI-nIyEHA?feature=oembed](https://www.youtube.com/embed/ezRI-nIyEHA?feature=oembed)
+[https://www.youtube.com/embed/ezRI-nIyEHA](https://www.youtube.com/embed/ezRI-nIyEHA)
 
-[https://www.youtube.com/embed/N8GsdNIBiD8?feature=oembed](https://www.youtube.com/embed/N8GsdNIBiD8?feature=oembed)
+[https://www.youtube.com/embed/N8GsdNIBiD8](https://www.youtube.com/embed/N8GsdNIBiD8)
 
-[https://www.youtube.com/embed/aHvuDHl4xhY?feature=oembed](https://www.youtube.com/embed/aHvuDHl4xhY?feature=oembed)
+[https://www.youtube.com/embed/aHvuDHl4xhY](https://www.youtube.com/embed/aHvuDHl4xhY)

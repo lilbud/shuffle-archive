@@ -7,7 +7,7 @@ Written in late 2012 by request from President Obama, this became the unofficial
 
 And the moral for Barack Obama was: be careful what you wish for. Because when you ask Bruce Springsteen to write a campaign song for you, and he does, you kind of have to use it at that point. Which is how we wound up with this:
 
-[https://www.youtube.com/embed/Q1W7HEaT9kw?feature=oembed](https://www.youtube.com/embed/Q1W7HEaT9kw?feature=oembed)
+[https://www.youtube.com/embed/Q1W7HEaT9kw](https://www.youtube.com/embed/Q1W7HEaT9kw)
 
 The song actually grew by a couple of lines over the three weeks and seven rallies where her performed it, but it wasn't the stronger for it. Obama won anyway.
 

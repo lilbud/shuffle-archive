@@ -17,7 +17,7 @@ Bruce and the E Street Band bring the Lawsuit Tour to Kean College in Union, New
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/dkDuGnON38Y?feature=oembed](https://www.youtube.com/embed/dkDuGnON38Y?feature=oembed)
+[https://www.youtube.com/embed/dkDuGnON38Y](https://www.youtube.com/embed/dkDuGnON38Y)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/medium.jpg?resize=758%2C758&amp;ssl=1)
 
@@ -25,13 +25,13 @@ Bruce joins Southside Johnny on stage for four songs (including "" and "") at Th
 
 **1977:** [Down in the Valley](http://estreetshuffle.com/index.php/2019/01/16/matr-bruce-springsteen-and-southside-johnny-down-in-the-valley/)[Ain't Too Proud to Beg](http://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)
 
-[https://www.youtube.com/embed/pBaV-gpRnOg?feature=oembed](https://www.youtube.com/embed/pBaV-gpRnOg?feature=oembed)
+[https://www.youtube.com/embed/pBaV-gpRnOg](https://www.youtube.com/embed/pBaV-gpRnOg)
 
 Bruce releases his fifth studio album, and The River Tour (already in progress) moves on to the St Paul Civic Center Arena for one night. Parts of the show are captured on Super-8 film.
 
 **1980:** *The River*,
 
-[https://www.youtube.com/embed/HPMEAOlLFt4?feature=oembed](https://www.youtube.com/embed/HPMEAOlLFt4?feature=oembed)
+[https://www.youtube.com/embed/HPMEAOlLFt4](https://www.youtube.com/embed/HPMEAOlLFt4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/10/The_Toronto_Star_1980_10_10_page_59-scaled.jpg?resize=758%2C1596&amp;ssl=1)
 
@@ -45,17 +45,17 @@ Neil and Pegi Young hold their first benefit for The Bridge School for children 
 
 **1986:** [Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)[Rockaway the Days](https://estreetshuffle.com/index.php/2021/03/15/roll-of-the-dice-rockaway-the-days/)[You Can Look (But You Better Not Touch)](http://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)[Teach Your Children](http://estreetshuffle.com/index.php/2018/04/14/matr-crosby-stills-nash-young-and-springsteen-teach-your-children/)[here](http://live.brucespringsteen.net/live-music/0,22746/Bruce-Springsteen---bridge-school-benefit-concert-at-shoreline-amphitheatre-mountain-view-ca-10-13-1986.html)
 
-[https://www.youtube.com/embed/kiVud8tM5_0?feature=oembed](https://www.youtube.com/embed/kiVud8tM5_0?feature=oembed)
+[https://www.youtube.com/embed/kiVud8tM5_0](https://www.youtube.com/embed/kiVud8tM5_0)
 
-[https://www.youtube.com/embed/fHpcfoVQ4eA?feature=oembed](https://www.youtube.com/embed/fHpcfoVQ4eA?feature=oembed)
+[https://www.youtube.com/embed/fHpcfoVQ4eA](https://www.youtube.com/embed/fHpcfoVQ4eA)
 
-[https://www.youtube.com/embed/bJjXGHKog04?feature=oembed](https://www.youtube.com/embed/bJjXGHKog04?feature=oembed)
+[https://www.youtube.com/embed/bJjXGHKog04](https://www.youtube.com/embed/bJjXGHKog04)
 
-[https://www.youtube.com/embed/UsaSHY6PFoM?feature=oembed](https://www.youtube.com/embed/UsaSHY6PFoM?feature=oembed)
+[https://www.youtube.com/embed/UsaSHY6PFoM](https://www.youtube.com/embed/UsaSHY6PFoM)
 
-[https://www.youtube.com/embed/eCdCbD6iA7g?feature=oembed](https://www.youtube.com/embed/eCdCbD6iA7g?feature=oembed)
+[https://www.youtube.com/embed/eCdCbD6iA7g](https://www.youtube.com/embed/eCdCbD6iA7g)
 
-[https://www.youtube.com/embed/RjT-Rk-o7zM?feature=oembed](https://www.youtube.com/embed/RjT-Rk-o7zM?feature=oembed)
+[https://www.youtube.com/embed/RjT-Rk-o7zM](https://www.youtube.com/embed/RjT-Rk-o7zM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1986-10-13-300x185.jpg?resize=758%2C470)
 
@@ -69,9 +69,9 @@ After an unplanned week off due to illness, Bruce picks World Tour 1992 back up 
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/Ja9Ha-Er8BM?feature=oembed](https://www.youtube.com/embed/Ja9Ha-Er8BM?feature=oembed)
+[https://www.youtube.com/embed/Ja9Ha-Er8BM](https://www.youtube.com/embed/Ja9Ha-Er8BM)
 
-[https://www.youtube.com/embed/iP2ktjDtoO4?feature=oembed](https://www.youtube.com/embed/iP2ktjDtoO4?feature=oembed)
+[https://www.youtube.com/embed/iP2ktjDtoO4](https://www.youtube.com/embed/iP2ktjDtoO4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-10-13-300x110.png?resize=758%2C278)
 
@@ -79,15 +79,15 @@ Bruce and Jackson Browne hold an encore concert for the Vote for Change Tour at 
 
 **2004:** [Running on Empty.](https://estreetshuffle.com/index.php/2021/03/24/matr-jackson-browne-and-bruce-springsteen-running-on-empty/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[Better Man](https://estreetshuffle.com/index.php/2022/11/10/matr-eddie-vedder-and-bruce-springsteen-better-man/)
 
-[https://www.youtube.com/embed/tXL4b44Ncds?feature=oembed](https://www.youtube.com/embed/tXL4b44Ncds?feature=oembed)
+[https://www.youtube.com/embed/tXL4b44Ncds](https://www.youtube.com/embed/tXL4b44Ncds)
 
-[https://www.youtube.com/embed/D4J54_MvGL0?feature=oembed](https://www.youtube.com/embed/D4J54_MvGL0?feature=oembed)
+[https://www.youtube.com/embed/D4J54_MvGL0](https://www.youtube.com/embed/D4J54_MvGL0)
 
-[https://www.youtube.com/embed/iaAK7UTLusA?feature=oembed](https://www.youtube.com/embed/iaAK7UTLusA?feature=oembed)
+[https://www.youtube.com/embed/iaAK7UTLusA](https://www.youtube.com/embed/iaAK7UTLusA)
 
-[https://www.youtube.com/embed/SnnL8wEDNJM?feature=oembed](https://www.youtube.com/embed/SnnL8wEDNJM?feature=oembed)
+[https://www.youtube.com/embed/SnnL8wEDNJM](https://www.youtube.com/embed/SnnL8wEDNJM)
 
-[https://www.youtube.com/embed/ZKdlVoUlm8s?feature=oembed](https://www.youtube.com/embed/ZKdlVoUlm8s?feature=oembed)
+[https://www.youtube.com/embed/ZKdlVoUlm8s](https://www.youtube.com/embed/ZKdlVoUlm8s)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2004-10-13a-300x212.png?resize=758%2C536)
 
@@ -97,23 +97,23 @@ Bruce brings his solo acoustic Devils & Dust Tour to Chicago's United Center.
 
 **2005:**<br>
 
-[https://videopress.com/embed/jjiAlqTY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jjiAlqTY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jjiAlqTY](https://videopress.com/embed/jjiAlqTY)
 
 The Seeger Sessions Tour stops in Rotterdam for a show at Sportpaleis Ahoy.
 
 **2006:**<br>
 
-[https://videopress.com/embed/80VbpEqs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/80VbpEqs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/80VbpEqs](https://videopress.com/embed/80VbpEqs)
 
-[https://www.youtube.com/embed/ATbYBBrMqjU?feature=oembed](https://www.youtube.com/embed/ATbYBBrMqjU?feature=oembed)
+[https://www.youtube.com/embed/ATbYBBrMqjU](https://www.youtube.com/embed/ATbYBBrMqjU)
 
 Bruce joins the Max Weinberg 7 for six songs during their benefit performance for the Monmouth County SPCA at Max's farm in Atlantic Highlands, New Jersey.
 
 **2007:**<br>
 
-[https://www.youtube.com/embed/O8ttwMZYuI4?feature=oembed](https://www.youtube.com/embed/O8ttwMZYuI4?feature=oembed)
+[https://www.youtube.com/embed/O8ttwMZYuI4](https://www.youtube.com/embed/O8ttwMZYuI4)
 
-[https://www.youtube.com/embed/go4-ORX38L4?feature=oembed](https://www.youtube.com/embed/go4-ORX38L4?feature=oembed)
+[https://www.youtube.com/embed/go4-ORX38L4](https://www.youtube.com/embed/go4-ORX38L4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-13a-53x300.png?resize=758%2C4291)
 
@@ -123,15 +123,15 @@ Bruce and the E Street Band kick off one final stand of four shows at the Philad
 
 **2009:** [Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)*Born to Run*[Little Bit O'Soul](https://estreetshuffle.com/index.php/2019/03/06/cover-me-little-bit-o-soul/)[The Fever](http://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)
 
-[https://www.youtube.com/embed/T7CS6kPJ9I8?feature=oembed](https://www.youtube.com/embed/T7CS6kPJ9I8?feature=oembed)
+[https://www.youtube.com/embed/T7CS6kPJ9I8](https://www.youtube.com/embed/T7CS6kPJ9I8)
 
-[https://www.youtube.com/embed/qylAN0-IdnM?feature=oembed](https://www.youtube.com/embed/qylAN0-IdnM?feature=oembed)
+[https://www.youtube.com/embed/qylAN0-IdnM](https://www.youtube.com/embed/qylAN0-IdnM)
 
-[https://www.youtube.com/embed/VL--Tr6CCKM?feature=oembed](https://www.youtube.com/embed/VL--Tr6CCKM?feature=oembed)
+[https://www.youtube.com/embed/VL--Tr6CCKM](https://www.youtube.com/embed/VL--Tr6CCKM)
 
-[https://www.youtube.com/embed/GClsxQk4q-Y?feature=oembed](https://www.youtube.com/embed/GClsxQk4q-Y?feature=oembed)
+[https://www.youtube.com/embed/GClsxQk4q-Y](https://www.youtube.com/embed/GClsxQk4q-Y)
 
-[https://www.youtube.com/embed/hlN1x52g9kk?feature=oembed](https://www.youtube.com/embed/hlN1x52g9kk?feature=oembed)
+[https://www.youtube.com/embed/hlN1x52g9kk](https://www.youtube.com/embed/hlN1x52g9kk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2009-10-13a-103x300.png?resize=758%2C2208)
 
@@ -159,9 +159,9 @@ Bruce spends the weekend at the Ham Yard Hotel in London. speaking to print and 
 
 **2019:** *Western Stars*
 
-[https://www.youtube.com/embed/1qboxvFJ3Jo?feature=oembed](https://www.youtube.com/embed/1qboxvFJ3Jo?feature=oembed)
+[https://www.youtube.com/embed/1qboxvFJ3Jo](https://www.youtube.com/embed/1qboxvFJ3Jo)
 
-[https://www.youtube.com/embed/wqB6XsBsHbM?feature=oembed](https://www.youtube.com/embed/wqB6XsBsHbM?feature=oembed)
+[https://www.youtube.com/embed/wqB6XsBsHbM](https://www.youtube.com/embed/wqB6XsBsHbM)
 
 Without fanfare, Bruce concludes his long-running radio show with Episode 29, "Let's Talk About Sex."
 

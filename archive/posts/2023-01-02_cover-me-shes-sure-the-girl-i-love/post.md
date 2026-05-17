@@ -5,7 +5,7 @@ Like "" and "," figuring out who to credit for "He's Sure the Boy I Love" isn't 
 
 Legally, the 1962 Top 20 Hit (it peaked at #11 on the Billboard Hot 100 and #18 on the Hot R&B Singles chart) was credited to The Crystals. But that was news to The Crystals, because the song was actually recorded by a group called The Blossoms, fronted by one Darlene Love.
 
-[https://www.youtube.com/embed/5fssD9Da7Xw?feature=oembed](https://www.youtube.com/embed/5fssD9Da7Xw?feature=oembed)
+[https://www.youtube.com/embed/5fssD9Da7Xw](https://www.youtube.com/embed/5fssD9Da7Xw)
 
 This wasn't even the first time The Blossoms and Crystals had crossed credits–Phil Spector had done it earlier in the year with "He's a Rebel," so Love was careful to require a credit this time around–but that didn't stop Spector from once again crediting The Crystals instead.
 
@@ -17,7 +17,7 @@ Bruce covered it once and once only, at the Monmouth Arts Center in the summer o
 
 The horns aren't featured on this song, but it's still a great encore performance. Take a listen to Bruce's one and only live performance of "She's Sure the Girl I Love," from August 1, 1976.
 
-[https://www.youtube.com/embed/hazQKc6EAEo?feature=oembed](https://www.youtube.com/embed/hazQKc6EAEo?feature=oembed)
+[https://www.youtube.com/embed/hazQKc6EAEo](https://www.youtube.com/embed/hazQKc6EAEo)
 
 August 1, 1976 (Red Bank, NJ)
 August 1, 1976 (Red Bank, NJ)

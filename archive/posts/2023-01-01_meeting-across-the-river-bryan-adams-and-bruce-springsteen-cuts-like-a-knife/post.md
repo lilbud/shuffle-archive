@@ -1,11 +1,11 @@
 
 The first time Bruce ever performed Bryan Adam's "Cuts Like a Knife" was at the eighties-themed Rainforest Fund Concert in 2010. Each artist chose their own material to cover; who knew that Bruce was a Bryan fan before that?
 
-[https://www.youtube.com/embed/VZZgzF0g9lU?feature=oembed](https://www.youtube.com/embed/VZZgzF0g9lU?feature=oembed)
+[https://www.youtube.com/embed/VZZgzF0g9lU](https://www.youtube.com/embed/VZZgzF0g9lU)
 
 It probably shouldn't have come as a surprise, though: Bryan's 1983 anthem sounds tailor-made for Bruce to cover, and I can easily imagine it being played at an E Street Band show someday.
 
-[https://www.youtube.com/embed/6VZhSkREYBc?feature=oembed](https://www.youtube.com/embed/6VZhSkREYBc?feature=oembed)
+[https://www.youtube.com/embed/6VZhSkREYBc](https://www.youtube.com/embed/6VZhSkREYBc)
 
 But it would be another seven years after that first performance before the two would have a chance to meet on stage for the first time, when both Bruce and Bryan appeared at the closing ceremony of the 2017 Invictus Games in Toronto.
 
@@ -13,7 +13,7 @@ After Bruce played his own brief acoustic set that late September night, the onl
 
 Here's that wonderfully filmed Bruce and Bryan performance of "Cuts Like a Knife" from Invictus Games 2017.
 
-[https://www.youtube.com/embed/AUTmqptb-XY?feature=oembed](https://www.youtube.com/embed/AUTmqptb-XY?feature=oembed)
+[https://www.youtube.com/embed/AUTmqptb-XY](https://www.youtube.com/embed/AUTmqptb-XY)
 
 May 13, 2010 (New York City, NY)
 September 30, 2017 (Toronto, ON)

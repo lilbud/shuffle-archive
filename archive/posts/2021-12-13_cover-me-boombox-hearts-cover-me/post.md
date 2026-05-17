@@ -9,4 +9,4 @@ Self-described "melancholy lo-fi indie" band The Boombox Hearts takes the latter
 
 Plus: when's the last time you heard someone add a trombone solo when covering a Springsteen song?
 
-[https://www.youtube.com/embed/0cECsZXs2EI?feature=oembed](https://www.youtube.com/embed/0cECsZXs2EI?feature=oembed)
+[https://www.youtube.com/embed/0cECsZXs2EI](https://www.youtube.com/embed/0cECsZXs2EI)

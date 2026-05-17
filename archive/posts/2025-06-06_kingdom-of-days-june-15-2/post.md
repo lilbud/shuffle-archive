@@ -31,13 +31,13 @@ At The Hit Factory in New York City, Bruce records "" and "" The former won't be
 
 **1983:** [Cynthia](http://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)[Don't Back Down.](https://estreetshuffle.com/index.php/2022/01/06/roll-of-the-dice-dont-back-down/)
 
-[https://www.youtube.com/embed/wzCpphwK8vk?feature=oembed](https://www.youtube.com/embed/wzCpphwK8vk?feature=oembed)
+[https://www.youtube.com/embed/wzCpphwK8vk](https://www.youtube.com/embed/wzCpphwK8vk)
 
 The Born in the U.S.A. Tour moves on to West Germany for two nights, starting with a show in Frankfurt.
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/TK3GxeQpP1w?feature=oembed](https://www.youtube.com/embed/TK3GxeQpP1w?feature=oembed)
+[https://www.youtube.com/embed/TK3GxeQpP1w](https://www.youtube.com/embed/TK3GxeQpP1w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/frankfurt-300x244.jpg?resize=758%2C616)
 
@@ -47,11 +47,11 @@ The Born in the U.S.A. Tour moves on to West Germany for two nights, starting wi
 
 **1988:** [Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)
 
-[https://www.youtube.com/embed/TY8qIOyupTs?feature=oembed](https://www.youtube.com/embed/TY8qIOyupTs?feature=oembed)
+[https://www.youtube.com/embed/TY8qIOyupTs](https://www.youtube.com/embed/TY8qIOyupTs)
 
-[https://www.youtube.com/embed/39n56E3cxYQ?feature=oembed](https://www.youtube.com/embed/39n56E3cxYQ?feature=oembed)
+[https://www.youtube.com/embed/39n56E3cxYQ](https://www.youtube.com/embed/39n56E3cxYQ)
 
-[https://www.youtube.com/embed/mrTntXBu9sQ?feature=oembed](https://www.youtube.com/embed/mrTntXBu9sQ?feature=oembed)
+[https://www.youtube.com/embed/mrTntXBu9sQ](https://www.youtube.com/embed/mrTntXBu9sQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/7ab1b174cfb3545ff0ea7a43b1923906-tunnel-of-love-bruce-springsteen-300x233.jpg?resize=758%2C589)
 
@@ -59,13 +59,13 @@ World Tour 1992 kicks off with the first of two shows at the Globe Arena in Stoc
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/DQiBMawuHE0?feature=oembed](https://www.youtube.com/embed/DQiBMawuHE0?feature=oembed)
+[https://www.youtube.com/embed/DQiBMawuHE0](https://www.youtube.com/embed/DQiBMawuHE0)
 
-[https://www.youtube.com/embed/DD1TSwFDyRI?feature=oembed](https://www.youtube.com/embed/DD1TSwFDyRI?feature=oembed)
+[https://www.youtube.com/embed/DD1TSwFDyRI](https://www.youtube.com/embed/DD1TSwFDyRI)
 
-[https://www.youtube.com/embed/ycetI2UqaIQ?feature=oembed](https://www.youtube.com/embed/ycetI2UqaIQ?feature=oembed)
+[https://www.youtube.com/embed/ycetI2UqaIQ](https://www.youtube.com/embed/ycetI2UqaIQ)
 
-[https://videopress.com/embed/UmQMQHKN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UmQMQHKN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/UmQMQHKN](https://videopress.com/embed/UmQMQHKN)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1992-06-15.jpg?resize=758%2C501&amp;ssl=1)
 
@@ -73,29 +73,29 @@ World Tour 1992 kicks off with the first of two shows at the Globe Arena in Stoc
 
 **1999:** [Take 'em as They Come](http://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)
 
-[https://videopress.com/embed/wGZfQBl3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wGZfQBl3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wGZfQBl3](https://videopress.com/embed/wGZfQBl3)
 
-[https://www.youtube.com/embed/s9Afum2mp5E?feature=oembed](https://www.youtube.com/embed/s9Afum2mp5E?feature=oembed)
+[https://www.youtube.com/embed/s9Afum2mp5E](https://www.youtube.com/embed/s9Afum2mp5E)
 
 Night Two of the final ten-night stand of the Reunion Tour opens with "" at Madison Square Garden and features another powerful "American Skin (41 Shots)."
 
 **2000:** [Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)
 
-[https://videopress.com/embed/Jwv1hB7x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Jwv1hB7x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Jwv1hB7x](https://videopress.com/embed/Jwv1hB7x)
 
-[https://videopress.com/embed/EOBmU7ZO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/EOBmU7ZO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/EOBmU7ZO](https://videopress.com/embed/EOBmU7ZO)
 
-[https://www.youtube.com/embed/Mn4-NPZtctc?feature=oembed](https://www.youtube.com/embed/Mn4-NPZtctc?feature=oembed)
+[https://www.youtube.com/embed/Mn4-NPZtctc](https://www.youtube.com/embed/Mn4-NPZtctc)
 
-[https://www.youtube.com/embed/PqCTGEuqI-4?feature=oembed](https://www.youtube.com/embed/PqCTGEuqI-4?feature=oembed)
+[https://www.youtube.com/embed/PqCTGEuqI-4](https://www.youtube.com/embed/PqCTGEuqI-4)
 
 Patti Scialfa releases her long-awaited second album, and plays a promotional free mini-concert in New York City for NBC's . Watch her full performance below.
 
 **2004:** *23rd Street Lullaby* *Today*
 
-[https://videopress.com/embed/lX9FEdbt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lX9FEdbt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/lX9FEdbt](https://videopress.com/embed/lX9FEdbt)
 
-[https://videopress.com/embed/PPu63YUC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PPu63YUC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PPu63YUC](https://videopress.com/embed/PPu63YUC)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2004-06-15a-207x300.jpg?resize=758%2C1099)
 
@@ -105,9 +105,9 @@ The Devils & Dust Tour moves on to Frankfurt, where Bruce tour premieres "."
 
 **2005:** [Countin' on a Miracle](http://estreetshuffle.com/index.php/2019/02/05/roll-of-the-dice-countin-on-a-miracle/)
 
-[https://www.youtube.com/embed/wm_jQkeLGxM?feature=oembed](https://www.youtube.com/embed/wm_jQkeLGxM?feature=oembed)
+[https://www.youtube.com/embed/wm_jQkeLGxM](https://www.youtube.com/embed/wm_jQkeLGxM)
 
-[https://www.youtube.com/embed/jiRXwCXeLZ8?feature=oembed](https://www.youtube.com/embed/jiRXwCXeLZ8?feature=oembed)
+[https://www.youtube.com/embed/jiRXwCXeLZ8](https://www.youtube.com/embed/jiRXwCXeLZ8)
 
 Bruce makes his first appearance at the new Wembley Stadium, where he plays the album from start to finish.
 

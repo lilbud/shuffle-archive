@@ -18,7 +18,7 @@ But while Bruce might have never played "Old Time Rock and Roll" with the song's
 
 That performance is a lot harder to find than the 2011, but here it is for your listening pleasure. From Sunday night, July 23, 1989, check out Bruce Springsteen with Cats on a Smooth Surface playing Bruce's very first performance of "Old Time Rock and Roll." It's incomplete, but it's still a fun listen.
 
-[https://videopress.com/embed/bLlxnLzl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bLlxnLzl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bLlxnLzl](https://videopress.com/embed/bLlxnLzl)
 
 **Old Time Rock and Roll**<br>
 **First performed:** July 23, 1989 (Asbury Park, NJ)<br>

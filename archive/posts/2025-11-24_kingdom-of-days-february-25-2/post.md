@@ -29,7 +29,7 @@ Grammy-nominated "" loses the Record of the Year award to "" (which at least fea
 
 **1986:** [Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)[We Are the World](https://estreetshuffle.com/index.php/2022/01/30/matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/)
 
-[https://www.youtube.com/embed/9AjkUyX0rVw?feature=oembed](https://www.youtube.com/embed/9AjkUyX0rVw?feature=oembed)
+[https://www.youtube.com/embed/9AjkUyX0rVw](https://www.youtube.com/embed/9AjkUyX0rVw)
 
 The Tunnel of Love Express Tour kicks off in Worcester, Massachusetts. Most songs receive their first concert airings, and old standards are played with new arrangements. Unheard outtakes and covers round out a tightly thematic set list and a very different Springsteen show than most fans have ever heard. The Miami Horns join the E Street Band for this tour, temporarily renamed The Horns of Love.
 
@@ -37,21 +37,21 @@ The Tunnel of Love Express Tour kicks off in Worcester, Massachusetts. Most song
 
 Listen in on the soundcheck…
 
-[https://videopress.com/embed/ty4DZGd4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ty4DZGd4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ty4DZGd4](https://videopress.com/embed/ty4DZGd4)
 
 ..while the media covers the anticipation for and reaction to tonight's tour opener:
 
-[https://www.youtube.com/embed/CwePYvMQ3UA?feature=oembed](https://www.youtube.com/embed/CwePYvMQ3UA?feature=oembed)
+[https://www.youtube.com/embed/CwePYvMQ3UA](https://www.youtube.com/embed/CwePYvMQ3UA)
 
-[https://www.youtube.com/embed/u8rFHJACNA4?feature=oembed](https://www.youtube.com/embed/u8rFHJACNA4?feature=oembed)
+[https://www.youtube.com/embed/u8rFHJACNA4](https://www.youtube.com/embed/u8rFHJACNA4)
 
-[https://www.youtube.com/embed/OkS_rAX-9K8?feature=oembed](https://www.youtube.com/embed/OkS_rAX-9K8?feature=oembed)
+[https://www.youtube.com/embed/OkS_rAX-9K8](https://www.youtube.com/embed/OkS_rAX-9K8)
 
-[https://videopress.com/embed/s6aaBOyo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/s6aaBOyo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/s6aaBOyo](https://videopress.com/embed/s6aaBOyo)
 
-[https://www.youtube.com/embed/OajP-LaDv1U?feature=oembed](https://www.youtube.com/embed/OajP-LaDv1U?feature=oembed)
+[https://www.youtube.com/embed/OajP-LaDv1U](https://www.youtube.com/embed/OajP-LaDv1U)
 
-[https://www.youtube.com/embed/l3sXrRs6Xm4?feature=oembed](https://www.youtube.com/embed/l3sXrRs6Xm4?feature=oembed)
+[https://www.youtube.com/embed/l3sXrRs6Xm4](https://www.youtube.com/embed/l3sXrRs6Xm4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1988-02-25a.jpg?resize=758%2C1362&amp;ssl=1)
 
@@ -65,7 +65,7 @@ Bruce plays a solo acoustic show in Rotterdam.
 
 **1996:**<br>
 
-[https://videopress.com/embed/Mn7BVXOQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Mn7BVXOQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Mn7BVXOQ](https://videopress.com/embed/Mn7BVXOQ)
 
 Nominated for the Best Male Rock Vocal Performance Grammy for "Thunder Road," Bruce loses to Bob Dylan's "Cold Irons Bound."
 
@@ -79,7 +79,7 @@ Bruce wins the Grammy Award for Best Solo Rock Vocal Performance for "."
 
 **2005:** [Code of Silence](http://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)
 
-[https://www.youtube.com/embed/qmliFFBFQAQ?feature=oembed](https://www.youtube.com/embed/qmliFFBFQAQ?feature=oembed)
+[https://www.youtube.com/embed/qmliFFBFQAQ](https://www.youtube.com/embed/qmliFFBFQAQ)
 
 Bruce and the E Street Band rehearse for the next leg of the Magic Tour at Convention Hall in Asbury Park.
 
@@ -89,23 +89,23 @@ Bruce makes a surprise appearance at an Asbury Park benefit concert in memory of
 
 **2012:** [Could Die Young Tonight](https://estreetshuffle.com/index.php/2020/06/01/matr-michael-strollo-and-bruce-springsteen-could-die-young-tonight/)
 
-[https://www.youtube.com/embed/d9Lw3sUj-Q8?feature=oembed](https://www.youtube.com/embed/d9Lw3sUj-Q8?feature=oembed)
+[https://www.youtube.com/embed/d9Lw3sUj-Q8](https://www.youtube.com/embed/d9Lw3sUj-Q8)
 
 …and then he plays a cover-heavy set with Boccigalupe and the Badboys:
 
-[https://www.youtube.com/embed/TbyKaYQKKQQ?feature=oembed](https://www.youtube.com/embed/TbyKaYQKKQQ?feature=oembed)
+[https://www.youtube.com/embed/TbyKaYQKKQQ](https://www.youtube.com/embed/TbyKaYQKKQQ)
 
-[https://www.youtube.com/embed/yIULt1TeNgo?feature=oembed](https://www.youtube.com/embed/yIULt1TeNgo?feature=oembed)
+[https://www.youtube.com/embed/yIULt1TeNgo](https://www.youtube.com/embed/yIULt1TeNgo)
 
-[https://www.youtube.com/embed/b-o6L7l6LG4?feature=oembed](https://www.youtube.com/embed/b-o6L7l6LG4?feature=oembed)
+[https://www.youtube.com/embed/b-o6L7l6LG4](https://www.youtube.com/embed/b-o6L7l6LG4)
 
-[https://www.youtube.com/embed/x6FOAnDbmr0?feature=oembed](https://www.youtube.com/embed/x6FOAnDbmr0?feature=oembed)
+[https://www.youtube.com/embed/x6FOAnDbmr0](https://www.youtube.com/embed/x6FOAnDbmr0)
 
-[https://www.youtube.com/embed/MP5SviT-8Ik?feature=oembed](https://www.youtube.com/embed/MP5SviT-8Ik?feature=oembed)
+[https://www.youtube.com/embed/MP5SviT-8Ik](https://www.youtube.com/embed/MP5SviT-8Ik)
 
-[https://www.youtube.com/embed/MWf_16SHa2E?feature=oembed](https://www.youtube.com/embed/MWf_16SHa2E?feature=oembed)
+[https://www.youtube.com/embed/MWf_16SHa2E](https://www.youtube.com/embed/MWf_16SHa2E)
 
-[https://www.youtube.com/embed/aqme4-5OBw4?feature=oembed](https://www.youtube.com/embed/aqme4-5OBw4?feature=oembed)
+[https://www.youtube.com/embed/aqme4-5OBw4](https://www.youtube.com/embed/aqme4-5OBw4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2012-02-25-191x300.jpg?resize=758%2C1190)
 
@@ -113,9 +113,9 @@ The River Tour (2016 Edition) moves on to the First Niagara Center in Buffalo, w
 
 **2016:** [It's Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)
 
-[https://www.youtube.com/embed/RZ7_HRv0_CA?feature=oembed](https://www.youtube.com/embed/RZ7_HRv0_CA?feature=oembed)
+[https://www.youtube.com/embed/RZ7_HRv0_CA](https://www.youtube.com/embed/RZ7_HRv0_CA)
 
-[https://www.youtube.com/embed/O9O50k59vrA?feature=oembed](https://www.youtube.com/embed/O9O50k59vrA?feature=oembed)
+[https://www.youtube.com/embed/O9O50k59vrA](https://www.youtube.com/embed/O9O50k59vrA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/The_Buffalo_News_2016_02_26_14.jpg?resize=758%2C913&amp;ssl=1)
 
@@ -123,14 +123,14 @@ The Summer 2017 Tour ends in Auckland with a solo performance of "Thunder Road."
 
 **2017:**<br>
 
-[https://www.youtube.com/embed/lDwzH92dZhI?feature=oembed](https://www.youtube.com/embed/lDwzH92dZhI?feature=oembed)
+[https://www.youtube.com/embed/lDwzH92dZhI](https://www.youtube.com/embed/lDwzH92dZhI)
 
 The E Street Choir is short-handed tonight, with both Lisa Lowell and Curtis King down for the count with COVID-19. Still, Bruce and the band deliver a great show at the Moda Center in Portland, tour premiering ""
 
 **2023:** [I'm on Fire.](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
 
-[https://www.youtube.com/embed/rLY9_P57_kE?feature=oembed](https://www.youtube.com/embed/rLY9_P57_kE?feature=oembed)
+[https://www.youtube.com/embed/rLY9_P57_kE](https://www.youtube.com/embed/rLY9_P57_kE)
 
-[https://www.youtube.com/embed/jCQH8NRuLVg?feature=oembed](https://www.youtube.com/embed/jCQH8NRuLVg?feature=oembed)
+[https://www.youtube.com/embed/jCQH8NRuLVg](https://www.youtube.com/embed/jCQH8NRuLVg)
 
 [https://www.youtube.com/embed/xmaKw7uL2yU?start=1&amp;feature=oembed](https://www.youtube.com/embed/xmaKw7uL2yU?start=1&amp;feature=oembed)

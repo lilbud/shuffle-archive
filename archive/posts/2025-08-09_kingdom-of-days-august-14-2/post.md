@@ -13,9 +13,9 @@ Steel Mill plays an outdoor show under the stars, on the parking deck at 7th and
 
 **1970:** [The War is Over](http://estreetshuffle.com/index.php/2019/03/23/roll-of-the-dice-the-war-is-over/)[Sherlock Goes Home](http://estreetshuffle.com/index.php/2018/09/21/roll-of-the-dice-sherlock-goes-holmes/)[KT-88](http://estreetshuffle.com/index.php/2018/03/12/roll-of-the-dice-kt-88/)[here](https://richmond.com/entertainment/music/lohmann-50-years-ago-springsteens-band-steel-mill-headlined-a-concert-atop-a-richmond-parking/article_0c3ad978-a46b-5910-93d4-b22dd8b6dcb6.html)
 
-[https://www.youtube.com/embed/7-AMJV5EDRI?feature=oembed](https://www.youtube.com/embed/7-AMJV5EDRI?feature=oembed)
+[https://www.youtube.com/embed/7-AMJV5EDRI](https://www.youtube.com/embed/7-AMJV5EDRI)
 
-[https://www.youtube.com/embed/lc9sXe0tCyQ?feature=oembed](https://www.youtube.com/embed/lc9sXe0tCyQ?feature=oembed)
+[https://www.youtube.com/embed/lc9sXe0tCyQ](https://www.youtube.com/embed/lc9sXe0tCyQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1970-08-14-187x300.jpg?resize=758%2C1216)
 
@@ -55,7 +55,7 @@ The Darkness Tour descends on the Hampton Roads Coliseum in Hampton, Virginia, w
 
 **1978:** [High School Confidential](http://estreetshuffle.com/index.php/2020/05/04/cover-me-high-school-confidential/)
 
-[https://videopress.com/embed/yodpb4X6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yodpb4X6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/yodpb4X6](https://videopress.com/embed/yodpb4X6)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1978-08-14-300x126.png?resize=758%2C318)
 
@@ -63,7 +63,7 @@ Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park.
 
 **1983:** (Photo credit: Dari)
 
-[https://videopress.com/embed/fpPKsCCn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fpPKsCCn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fpPKsCCn](https://videopress.com/embed/fpPKsCCn)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1983-0814.jpg?resize=758%2C935)
 
@@ -71,23 +71,23 @@ In the U.S., there's arguably no city more fervent in their Bruce fandom than Ph
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/vnhG9efJc_Q?feature=oembed](https://www.youtube.com/embed/vnhG9efJc_Q?feature=oembed)
+[https://www.youtube.com/embed/vnhG9efJc_Q](https://www.youtube.com/embed/vnhG9efJc_Q)
 
 The show itself is a scorcher–literally, with the temperature topping 100 degrees–and it's captured on video for bootleg posterity.
 
-[https://videopress.com/embed/yyrK9G4Q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yyrK9G4Q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/yyrK9G4Q](https://videopress.com/embed/yyrK9G4Q)
 
-[https://videopress.com/embed/WwNd66f8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/WwNd66f8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/WwNd66f8](https://videopress.com/embed/WwNd66f8)
 
-[https://videopress.com/embed/SjfBzOAm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SjfBzOAm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/SjfBzOAm](https://videopress.com/embed/SjfBzOAm)
 
-[https://videopress.com/embed/AgypE4CD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AgypE4CD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/AgypE4CD](https://videopress.com/embed/AgypE4CD)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zByePnIHPj0gzfR8gjaiLYi](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zByePnIHPj0gzfR8gjaiLYi)
 
 You'd be forgiven for thinking nothing else happened in the news today–here's almost a half hour of newly uploaded news footage covering the event.
 
-[https://www.youtube.com/embed/BfvMvjikgJM?feature=oembed](https://www.youtube.com/embed/BfvMvjikgJM?feature=oembed)
+[https://www.youtube.com/embed/BfvMvjikgJM](https://www.youtube.com/embed/BfvMvjikgJM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-14a-257x300.png?resize=758%2C885)
 
@@ -107,9 +107,9 @@ Bruce and his new touring band play their second of two World Tour 1992 shows at
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/os7f3vSxQrY?feature=oembed](https://www.youtube.com/embed/os7f3vSxQrY?feature=oembed)
+[https://www.youtube.com/embed/os7f3vSxQrY](https://www.youtube.com/embed/os7f3vSxQrY)
 
-[https://videopress.com/embed/1XXRtozr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1XXRtozr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1XXRtozr](https://videopress.com/embed/1XXRtozr)
 
 Bruce joins Ronnie Mack and the Barndance Band on stage at Jack's Sugar Shack in Hollywood.
 
@@ -123,7 +123,7 @@ The Rising Tour stops in Cleveland for a show at Gund Arena, where the set list 
 
 **2002:**<br>
 
-[https://videopress.com/embed/CBudoNB4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CBudoNB4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/CBudoNB4](https://videopress.com/embed/CBudoNB4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2002-08-14-276x300.png?resize=758%2C824)
 
@@ -131,21 +131,21 @@ Bruce attends Little Steven's International Underground Garage Festival in New Y
 
 **2004:**<br>
 
-[https://www.youtube.com/embed/9CdgAf-_MQU?feature=oembed](https://www.youtube.com/embed/9CdgAf-_MQU?feature=oembed)
+[https://www.youtube.com/embed/9CdgAf-_MQU](https://www.youtube.com/embed/9CdgAf-_MQU)
 
-[https://www.youtube.com/embed/tTu4jTzl_pI?feature=oembed](https://www.youtube.com/embed/tTu4jTzl_pI?feature=oembed)
+[https://www.youtube.com/embed/tTu4jTzl_pI](https://www.youtube.com/embed/tTu4jTzl_pI)
 
 Bruce and the E Street Band return to Boston's Fenway Park to kick off the final American leg of the Wrecking Ball Tour. While Bruce tour premieres "" mid-set and "" in the encores, the set is otherwise fairly standard. The following night would more than make up for it. For more highlights from this show, see my
 
 **2012:** [Boom Boom](http://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)[report.](http://estreetshuffle.com/index.php/2018/08/14/where-the-band-was-boston-august-14-2012/)*Where the Band Was*
 
-[https://www.youtube.com/embed/-PW-ajAH9Ik?feature=oembed](https://www.youtube.com/embed/-PW-ajAH9Ik?feature=oembed)
+[https://www.youtube.com/embed/-PW-ajAH9Ik](https://www.youtube.com/embed/-PW-ajAH9Ik)
 
-[https://www.youtube.com/embed/Jgs3AJF9c34?feature=oembed](https://www.youtube.com/embed/Jgs3AJF9c34?feature=oembed)
+[https://www.youtube.com/embed/Jgs3AJF9c34](https://www.youtube.com/embed/Jgs3AJF9c34)
 
-[https://www.youtube.com/embed/YGyGU8Hc9Cw?feature=oembed](https://www.youtube.com/embed/YGyGU8Hc9Cw?feature=oembed)
+[https://www.youtube.com/embed/YGyGU8Hc9Cw](https://www.youtube.com/embed/YGyGU8Hc9Cw)
 
-[https://www.youtube.com/embed/iZzV_oV--Y8?feature=oembed](https://www.youtube.com/embed/iZzV_oV--Y8?feature=oembed)
+[https://www.youtube.com/embed/iZzV_oV--Y8](https://www.youtube.com/embed/iZzV_oV--Y8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2012-08-14-300x180.png?resize=758%2C455)
 

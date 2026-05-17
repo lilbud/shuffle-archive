@@ -1,7 +1,7 @@
 
 Sometime in the autumn of 1979, at his home in Holmdel, Bruce recorded this little ditty:
 
-[https://www.youtube.com/embed/KOya_GIgR-I?feature=oembed](https://www.youtube.com/embed/KOya_GIgR-I?feature=oembed)
+[https://www.youtube.com/embed/KOya_GIgR-I](https://www.youtube.com/embed/KOya_GIgR-I)
 
 What's it about?
 

@@ -9,13 +9,13 @@ Harrison wrote "Something" for The Beatles' album, and when it was issued as a s
 
 *Abbey Road*[Come Together](https://estreetshuffle.com/index.php/2018/01/15/meeting-across-the-river-bruce-springsteen-and-axl-rose/)
 
-[https://www.youtube.com/embed/UelDrZ1aFeY?feature=oembed](https://www.youtube.com/embed/UelDrZ1aFeY?feature=oembed)
+[https://www.youtube.com/embed/UelDrZ1aFeY](https://www.youtube.com/embed/UelDrZ1aFeY)
 
 "Something" quickly became The Beatles' second most-covered song (after "Yesterday") and the 17th most-performed song of the 20th century. Bruce made sure it was carried into the 21st as well.
 
 On December 3rd 2001, Bruce took the stage with his acoustic guitar, and together with Soozie Tyrell on violin and Patti Scialfa on backing vocals, they played a sad but achingly beautiful cover of "Something."
 
-[https://www.youtube.com/embed/MXwqzJTU8fs?feature=oembed](https://www.youtube.com/embed/MXwqzJTU8fs?feature=oembed)
+[https://www.youtube.com/embed/MXwqzJTU8fs](https://www.youtube.com/embed/MXwqzJTU8fs)
 
 It was a beautiful arrangement, one that captured the emotion of both the song and the moment. And it was only a moment, because Bruce immediately segued into a more upbeat cover of Harrison's "" before diving into a festive holiday set list for the rest of the evening.
 

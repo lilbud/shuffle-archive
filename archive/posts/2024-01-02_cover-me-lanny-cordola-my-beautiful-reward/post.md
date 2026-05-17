@@ -3,7 +3,7 @@ Sometimes a wonderful cover can fly completely under the radar.
 
 This is one of them.
 
-[https://www.youtube.com/embed/Ufyu-DgD5tA?feature=oembed](https://www.youtube.com/embed/Ufyu-DgD5tA?feature=oembed)
+[https://www.youtube.com/embed/Ufyu-DgD5tA](https://www.youtube.com/embed/Ufyu-DgD5tA)
 
 Lanny Cordola has associated himself with a few bands over the years, but he's a wonderful musician in his own right. (He plays every instrument you hear on this track.)
 

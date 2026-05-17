@@ -3,17 +3,17 @@
 
 Several versions were recorded and released in and around 1927 under the name "If I Had My Way," most famously this menacing-sounding version by Blind Willie Johnson.
 
-[https://www.youtube.com/embed/2ivsCWLcCnI?feature=oembed](https://www.youtube.com/embed/2ivsCWLcCnI?feature=oembed)
+[https://www.youtube.com/embed/2ivsCWLcCnI](https://www.youtube.com/embed/2ivsCWLcCnI)
 
 Reportedly, Johnson was arrested for playing the song in public under the charge of inciting a riot, and that's not a stretch to imagine. While on the surface, "If I Had My Way" is the biblical tale of Samson and Delilah, the use of that well-known tale is almost certainly a veneer: the narrator sings of Samson, a powerful man who was betrayed and enslaved; the "building" the narrator longs to tear down is the institution of slavery itself.
 
 In the 1950s, the Reverend Gary Davis recorded the song, keeping it alive into the latter half of the twentieth century and inspiring popular covers by both Peter, Paul, and Mary and The Grateful Dead.
 
-[https://www.youtube.com/embed/oW5hvQmHLdY?feature=oembed](https://www.youtube.com/embed/oW5hvQmHLdY?feature=oembed)
+[https://www.youtube.com/embed/oW5hvQmHLdY](https://www.youtube.com/embed/oW5hvQmHLdY)
 
-[https://www.youtube.com/embed/TY-699M7j3g?feature=oembed](https://www.youtube.com/embed/TY-699M7j3g?feature=oembed)
+[https://www.youtube.com/embed/TY-699M7j3g](https://www.youtube.com/embed/TY-699M7j3g)
 
-[https://www.youtube.com/embed/RMwTK6IgXUo?feature=oembed](https://www.youtube.com/embed/RMwTK6IgXUo?feature=oembed)
+[https://www.youtube.com/embed/RMwTK6IgXUo](https://www.youtube.com/embed/RMwTK6IgXUo)
 
 But despite the popularity of the latter two versions, it was likely Davis' arrangement that most directly inspired Bruce Springsteen's one-time-only cover of "Samson and Delilah" with the Sessions Band in Verona.
 
@@ -21,7 +21,7 @@ Bruce's cover was just one of many folk and spiritual standards reinvented for h
 
 That's too bad–because it's a fantastic performance. Here it is, thankfully captured on video–a performance that deserves an encore.
 
-[https://www.youtube.com/embed/37Ldb44KngI?feature=oembed](https://www.youtube.com/embed/37Ldb44KngI?feature=oembed)
+[https://www.youtube.com/embed/37Ldb44KngI](https://www.youtube.com/embed/37Ldb44KngI)
 
 October 5, 2006
 October 5, 2006

@@ -9,8 +9,8 @@ aited nervously but comfortably in line all day for the pit lottery only to real
 
 As for the show itself, it bore some strong resemblances to the Seattle show just before it ("" stayed in the set, as did the new ""/"Rosie" encore openers), but the new wild cards were significant.[Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)[Tenth Avenue](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-[https://www.youtube.com/embed/nXArxxN1qKE?feature=oembed](https://www.youtube.com/embed/nXArxxN1qKE?feature=oembed)
+[https://www.youtube.com/embed/nXArxxN1qKE](https://www.youtube.com/embed/nXArxxN1qKE)
 
 "" opened the show, and two-thirds of the way through: the E Street Band premiere (and to this day one of only six ESB performances) of a glorious outtake from , "" One of the best surprises I've ever had at a show, and even in this grainy video, you can still feel the power of that performance.[Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)*Born in the U.S.A.*[None But the Brave.](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)
 
-[https://www.youtube.com/embed/HISYE5UmpVg?feature=oembed](https://www.youtube.com/embed/HISYE5UmpVg?feature=oembed)
+[https://www.youtube.com/embed/HISYE5UmpVg](https://www.youtube.com/embed/HISYE5UmpVg)

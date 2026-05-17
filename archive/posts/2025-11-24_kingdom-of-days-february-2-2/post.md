@@ -21,7 +21,7 @@ The River Tour (original version) moves on to Dane County Memorial Coliseum in M
 
 **1981:**<br>
 
-[https://videopress.com/embed/Aj2vCNPN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Aj2vCNPN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Aj2vCNPN](https://videopress.com/embed/Aj2vCNPN)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-02-02-300x149.jpg?resize=758%2C376)
 
@@ -47,27 +47,27 @@ The River Tour (2016 edition) makes a single stop in Canada, at the Air Center i
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/2WG7ZnXv7uM?feature=oembed](https://www.youtube.com/embed/2WG7ZnXv7uM?feature=oembed)
+[https://www.youtube.com/embed/2WG7ZnXv7uM](https://www.youtube.com/embed/2WG7ZnXv7uM)
 
-[https://www.youtube.com/embed/mPbhxKkHPo0?feature=oembed](https://www.youtube.com/embed/mPbhxKkHPo0?feature=oembed)
+[https://www.youtube.com/embed/mPbhxKkHPo0](https://www.youtube.com/embed/mPbhxKkHPo0)
 
-[https://www.youtube.com/embed/8MNJ0YuGkio?feature=oembed](https://www.youtube.com/embed/8MNJ0YuGkio?feature=oembed)
+[https://www.youtube.com/embed/8MNJ0YuGkio](https://www.youtube.com/embed/8MNJ0YuGkio)
 
-[https://www.youtube.com/embed/DV8DeHYFgcw?feature=oembed](https://www.youtube.com/embed/DV8DeHYFgcw?feature=oembed)
+[https://www.youtube.com/embed/DV8DeHYFgcw](https://www.youtube.com/embed/DV8DeHYFgcw)
 
-[https://www.youtube.com/embed/XyF69cUZcP4?feature=oembed](https://www.youtube.com/embed/XyF69cUZcP4?feature=oembed)
+[https://www.youtube.com/embed/XyF69cUZcP4](https://www.youtube.com/embed/XyF69cUZcP4)
 
 : The Australian Summer Tour moves to Melbourne. Finding it embarrassing to represent America during the early days of the Trump Administration, Bruce makes a statement by opening with an acoustic cover of The Orlon's "," dedicated to Prime Minister Turnbull after Trump hung up on their call the previous day. Bruce follows up with "" and also includes a solo acoustic "" in the encores, bookending the show with pointed statements.
 
 **2017**[Don't Hang Up](https://estreetshuffle.com/index.php/2021/05/13/cover-me-dont-hang-up/)[American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)
 
-[https://www.youtube.com/embed/zSiZMyUlw8Y?feature=oembed](https://www.youtube.com/embed/zSiZMyUlw8Y?feature=oembed)
+[https://www.youtube.com/embed/zSiZMyUlw8Y](https://www.youtube.com/embed/zSiZMyUlw8Y)
 
-[https://www.youtube.com/embed/C3W1W1cv4JM?feature=oembed](https://www.youtube.com/embed/C3W1W1cv4JM?feature=oembed)
+[https://www.youtube.com/embed/C3W1W1cv4JM](https://www.youtube.com/embed/C3W1W1cv4JM)
 
-[https://www.youtube.com/embed/evJ40vieXQ4?feature=oembed](https://www.youtube.com/embed/evJ40vieXQ4?feature=oembed)
+[https://www.youtube.com/embed/evJ40vieXQ4](https://www.youtube.com/embed/evJ40vieXQ4)
 
-[https://www.youtube.com/embed/Juk0Y_9lrCY?feature=oembed](https://www.youtube.com/embed/Juk0Y_9lrCY?feature=oembed)
+[https://www.youtube.com/embed/Juk0Y_9lrCY](https://www.youtube.com/embed/Juk0Y_9lrCY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2017-02-02.png?resize=758%2C672&amp;ssl=1)
 
@@ -79,4 +79,4 @@ Bruce salutes and performs with Jon Bon Jovi at the annual MusiCares Person of t
 
 **2024:** [Who Says You Can't Go Home](https://estreetshuffle.com/index.php/2019/06/22/matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/)[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
 
-[https://www.youtube.com/embed/TRVlZPAUkHo?feature=oembed](https://www.youtube.com/embed/TRVlZPAUkHo?feature=oembed)
+[https://www.youtube.com/embed/TRVlZPAUkHo](https://www.youtube.com/embed/TRVlZPAUkHo)

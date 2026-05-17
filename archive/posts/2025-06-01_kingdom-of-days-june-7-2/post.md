@@ -31,9 +31,9 @@ In Birmingham, Pete Townshend makes a guest appearance in the encores of the fir
 
 **1981:** [Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)
 
-[https://www.youtube.com/embed/SWQc_xELokY?feature=oembed](https://www.youtube.com/embed/SWQc_xELokY?feature=oembed)
+[https://www.youtube.com/embed/SWQc_xELokY](https://www.youtube.com/embed/SWQc_xELokY)
 
-[https://videopress.com/embed/CfWATe2k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CfWATe2k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/CfWATe2k](https://videopress.com/embed/CfWATe2k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Birmingham_Evening_Mail_Mon__Jun_8__1981_.jpg?resize=758%2C656&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Sandwell_Evening_Mail_Mon__Jun_8__1981_-scaled.jpg?resize=758%2C271&amp;ssl=1)
 
@@ -41,53 +41,53 @@ MTV's Guide to Summer features a spotlight on Bruce's upcoming World Tour 1992.
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed](https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed)
+[https://www.youtube.com/embed/V8GA_hlYbzg](https://www.youtube.com/embed/V8GA_hlYbzg)
 
 "" makes its Reunion Tour premiere at the Estadio de la Comunidad in Madrid.
 
 **1999:** [My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
 
-[https://www.youtube.com/embed/95dOlNZgJoQ?feature=oembed](https://www.youtube.com/embed/95dOlNZgJoQ?feature=oembed)
+[https://www.youtube.com/embed/95dOlNZgJoQ](https://www.youtube.com/embed/95dOlNZgJoQ)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAwq7zti4JD-pLTNdxeooQ8](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAwq7zti4JD-pLTNdxeooQ8)
 
-[https://www.youtube.com/embed/D5qUFPcnuJU?feature=oembed](https://www.youtube.com/embed/D5qUFPcnuJU?feature=oembed)
+[https://www.youtube.com/embed/D5qUFPcnuJU](https://www.youtube.com/embed/D5qUFPcnuJU)
 
 Bruce plays a solo acoustic show at the Datch Forum in Milan, Italy, where he plays the tour premieres of "" and "."
 
 **2005:** [Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)
 
-[https://videopress.com/embed/9YTQEWlJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9YTQEWlJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9YTQEWlJ](https://videopress.com/embed/9YTQEWlJ)
 
-[https://videopress.com/embed/IT2k7cHu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IT2k7cHu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/IT2k7cHu](https://videopress.com/embed/IT2k7cHu)
 
-[https://www.youtube.com/embed/17A12QFVytc?feature=oembed](https://www.youtube.com/embed/17A12QFVytc?feature=oembed)
+[https://www.youtube.com/embed/17A12QFVytc](https://www.youtube.com/embed/17A12QFVytc)
 
-[https://www.youtube.com/embed/K3bjY14BQf0?feature=oembed](https://www.youtube.com/embed/K3bjY14BQf0?feature=oembed)
+[https://www.youtube.com/embed/K3bjY14BQf0](https://www.youtube.com/embed/K3bjY14BQf0)
 
-[https://www.youtube.com/embed/obE4S0udwos?feature=oembed](https://www.youtube.com/embed/obE4S0udwos?feature=oembed)
+[https://www.youtube.com/embed/obE4S0udwos](https://www.youtube.com/embed/obE4S0udwos)
 
 At the final night in Sweden for the Working on a Dream Tour, Bruce tour premieres "" "," (its first E Street outing since 1981) and "."
 
 **2009:** [The River,](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)[Fade Away](http://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)
 
-[https://www.youtube.com/embed/MT52j7jnDcc?feature=oembed](https://www.youtube.com/embed/MT52j7jnDcc?feature=oembed)
+[https://www.youtube.com/embed/MT52j7jnDcc](https://www.youtube.com/embed/MT52j7jnDcc)
 
-[https://www.youtube.com/embed/s6a9QUBTjUk?feature=oembed](https://www.youtube.com/embed/s6a9QUBTjUk?feature=oembed)
+[https://www.youtube.com/embed/s6a9QUBTjUk](https://www.youtube.com/embed/s6a9QUBTjUk)
 
-[https://www.youtube.com/embed/HnOvrSuUTEE?feature=oembed](https://www.youtube.com/embed/HnOvrSuUTEE?feature=oembed)
+[https://www.youtube.com/embed/HnOvrSuUTEE](https://www.youtube.com/embed/HnOvrSuUTEE)
 
 Bruce plays a marathon show at San Siro in Milan, Italy. At over three and a half hours, it's one of his longest shows to date.
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/zAKxhmdtQow?feature=oembed](https://www.youtube.com/embed/zAKxhmdtQow?feature=oembed)
+[https://www.youtube.com/embed/zAKxhmdtQow](https://www.youtube.com/embed/zAKxhmdtQow)
 
-[https://www.youtube.com/embed/88SjIRsN-Dg?feature=oembed](https://www.youtube.com/embed/88SjIRsN-Dg?feature=oembed)
+[https://www.youtube.com/embed/88SjIRsN-Dg](https://www.youtube.com/embed/88SjIRsN-Dg)
 
-[https://www.youtube.com/embed/aVOiSl3NEq0?feature=oembed](https://www.youtube.com/embed/aVOiSl3NEq0?feature=oembed)
+[https://www.youtube.com/embed/aVOiSl3NEq0](https://www.youtube.com/embed/aVOiSl3NEq0)
 
-[https://www.youtube.com/embed/vfe2MbjOf4E?feature=oembed](https://www.youtube.com/embed/vfe2MbjOf4E?feature=oembed)
+[https://www.youtube.com/embed/vfe2MbjOf4E](https://www.youtube.com/embed/vfe2MbjOf4E)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

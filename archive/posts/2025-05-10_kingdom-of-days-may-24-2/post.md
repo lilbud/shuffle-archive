@@ -19,7 +19,7 @@ Night Two of the Darkness Tour (at Albany's Palace Theater) is similar to Night 
 
 **1978:**<br>
 
-[https://videopress.com/embed/ezuQGRsq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ezuQGRsq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ezuQGRsq](https://videopress.com/embed/ezuQGRsq)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Bennington_Banner_Fri__May_26__1978_-scaled.jpg?resize=758%2C964&amp;ssl=1)
 
@@ -33,7 +33,7 @@ Director John Sayles films background footage at Maxwell's in Hoboken, New Jerse
 
 **1985:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
-[https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed](https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed)
+[https://www.youtube.com/embed/6vQpW9XRiyM](https://www.youtube.com/embed/6vQpW9XRiyM)
 
 Before leaving the U.K., Bruce sings karaoke ("") at the Stanhope Arms pub in London.
 
@@ -43,15 +43,15 @@ At a rainy Rising show in Saint-Denis, France, Bruce plays an acoustic pre-show,
 
 **2003:** [Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)[Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)[Be True,](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)
 
-[https://www.youtube.com/embed/xpCBRXh2lmM?feature=oembed](https://www.youtube.com/embed/xpCBRXh2lmM?feature=oembed)
+[https://www.youtube.com/embed/xpCBRXh2lmM](https://www.youtube.com/embed/xpCBRXh2lmM)
 
-[https://www.youtube.com/embed/k2u5kz9t1QU?feature=oembed](https://www.youtube.com/embed/k2u5kz9t1QU?feature=oembed)
+[https://www.youtube.com/embed/k2u5kz9t1QU](https://www.youtube.com/embed/k2u5kz9t1QU)
 
 The European leg of the Devils & Dust Tour begins with a show at Point Theater in Dublin.
 
 **2005:**<br>
 
-[https://www.youtube.com/embed/sD4KMfhF7hg?feature=oembed](https://www.youtube.com/embed/sD4KMfhF7hg?feature=oembed)
+[https://www.youtube.com/embed/sD4KMfhF7hg](https://www.youtube.com/embed/sD4KMfhF7hg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Daily_Telegraph_Thu__May_26__2005_-scaled.jpg?resize=592%2C2560&amp;ssl=1)
 
@@ -63,4 +63,4 @@ Bruce announces the return of the E Street Band to the concert stage for their f
 
 **2022:**<br>
 
-[https://www.youtube.com/embed/CK4OdLh5UVs?feature=oembed](https://www.youtube.com/embed/CK4OdLh5UVs?feature=oembed)
+[https://www.youtube.com/embed/CK4OdLh5UVs](https://www.youtube.com/embed/CK4OdLh5UVs)

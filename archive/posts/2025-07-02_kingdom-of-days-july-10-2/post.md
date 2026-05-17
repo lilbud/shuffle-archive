@@ -9,11 +9,11 @@ The Bruce Springsteen Band makes its debut, headlining at Brookdale Community Co
 
 **1971:**<br>
 
-[https://www.youtube.com/embed/AqnlX8oq-2g?feature=oembed](https://www.youtube.com/embed/AqnlX8oq-2g?feature=oembed)
+[https://www.youtube.com/embed/AqnlX8oq-2g](https://www.youtube.com/embed/AqnlX8oq-2g)
 
-[https://www.youtube.com/embed/zWURsgK_-4M?feature=oembed](https://www.youtube.com/embed/zWURsgK_-4M?feature=oembed)
+[https://www.youtube.com/embed/zWURsgK_-4M](https://www.youtube.com/embed/zWURsgK_-4M)
 
-[https://www.youtube.com/embed/r6all5hMCWY?feature=oembed](https://www.youtube.com/embed/r6all5hMCWY?feature=oembed)
+[https://www.youtube.com/embed/r6all5hMCWY](https://www.youtube.com/embed/r6all5hMCWY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1971-07-10-300x104.jpg?resize=758%2C263)
 
@@ -25,7 +25,7 @@ Columbia Records producer, executive, and Bruce Springsteen-signer John Hammond 
 
 **1987:**<br>
 
-[https://www.youtube.com/embed/C3OJKnbSQb0?feature=oembed](https://www.youtube.com/embed/C3OJKnbSQb0?feature=oembed)
+[https://www.youtube.com/embed/C3OJKnbSQb0](https://www.youtube.com/embed/C3OJKnbSQb0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1987-07-10-300x234.jpg?resize=758%2C591)
 
@@ -33,7 +33,7 @@ Bruce and the E Street Band play their second of two Tunnel of Love shows at Bra
 
 **1988:**<br>
 
-[https://videopress.com/embed/EZbUAKue?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/EZbUAKue?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/EZbUAKue](https://videopress.com/embed/EZbUAKue)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zATGqy6HjddIRTztJhrdWsH](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zATGqy6HjddIRTztJhrdWsH)
 
@@ -49,9 +49,9 @@ Night Three of five at Wembley Arena on World Tour 1992 features an acoustic "."
 
 **1992:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://www.youtube.com/embed/a-SPT1ZR_Eo?feature=oembed](https://www.youtube.com/embed/a-SPT1ZR_Eo?feature=oembed)
+[https://www.youtube.com/embed/a-SPT1ZR_Eo](https://www.youtube.com/embed/a-SPT1ZR_Eo)
 
-[https://www.youtube.com/embed/EvQUeL841A0?feature=oembed](https://www.youtube.com/embed/EvQUeL841A0?feature=oembed)
+[https://www.youtube.com/embed/EvQUeL841A0](https://www.youtube.com/embed/EvQUeL841A0)
 
 resumes its theatrical run at the Walter Kerr Theater in New York City after a nine-day break. Patti is absent tonight, so Bruce drops their duets and instead substitutes "" in their place. To make up for playing one fewer song than usual, Bruce adds an encore of sorts: "This Hard Land."
 

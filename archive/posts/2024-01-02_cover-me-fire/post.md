@@ -7,7 +7,7 @@ That's probably why The Castiles' set list on September 16, 1967 featured not ju
 
 [Purple Haze](http://estreetshuffle.com/index.php/2019/02/19/cover-me-purple-haze/)
 
-[https://videopress.com/embed/qXRi61aA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qXRi61aA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/qXRi61aA](https://videopress.com/embed/qXRi61aA)
 
 It's not quite as assured a performance at first as "Purple Haze" would be a few songs later (perhaps the young lads needed a few songs under their belt to feel fully comfortable), but by the instrumental break, Bruce was on fire.
 

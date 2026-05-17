@@ -3,7 +3,7 @@ The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factor
 
 **1972:**<br>
 
-[https://videopress.com/embed/gDKpMFQm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gDKpMFQm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/gDKpMFQm](https://videopress.com/embed/gDKpMFQm)
 
 Bruce and the band play their third of seven nights at Oliver's in Boston.
 
@@ -17,9 +17,9 @@ The Lawsuit Tour moves on to the Mid-Hudson Civic Center in Poughkeepsie, New Yo
 
 **1977:**<br>
 
-[https://www.youtube.com/embed/ihApRncvtLI?feature=oembed](https://www.youtube.com/embed/ihApRncvtLI?feature=oembed)
+[https://www.youtube.com/embed/ihApRncvtLI](https://www.youtube.com/embed/ihApRncvtLI)
 
-[https://www.youtube.com/embed/siJK0UsD03I?feature=oembed](https://www.youtube.com/embed/siJK0UsD03I?feature=oembed)
+[https://www.youtube.com/embed/siJK0UsD03I](https://www.youtube.com/embed/siJK0UsD03I)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1977-03-14.jpg?resize=476%2C823&amp;ssl=1)
 
@@ -27,13 +27,13 @@ Bruce work on "Factory" for his upcoming album at the Record Plant in New York C
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/3YuEJ_XolkM?feature=oembed](https://www.youtube.com/embed/3YuEJ_XolkM?feature=oembed)
+[https://www.youtube.com/embed/3YuEJ_XolkM](https://www.youtube.com/embed/3YuEJ_XolkM)
 
 Bruce and Garry jam with Robert Gordon on "Fire" and "Heartbreak Hotel" at The Fast Lane in Asbury Park. Take a listen below.
 
 **1979:**<br>
 
-[https://www.youtube.com/embed/kDT1IIz7_Og?feature=oembed](https://www.youtube.com/embed/kDT1IIz7_Og?feature=oembed)
+[https://www.youtube.com/embed/kDT1IIz7_Og](https://www.youtube.com/embed/kDT1IIz7_Og)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1979-03-14.jpg?resize=758%2C753&amp;ssl=1)
 
@@ -43,7 +43,7 @@ Night Two in Richfield for the Tunnel of Love Express Tour, where Bruce is moved
 
 **1988:**<br>
 
-[https://videopress.com/embed/0mmIy6i6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0mmIy6i6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0mmIy6i6](https://videopress.com/embed/0mmIy6i6)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-14.jpg?resize=758%2C603&amp;ssl=1)
 
@@ -51,15 +51,15 @@ Bruce plays a solo acoustic show at the Spektrum in Oslo.
 
 **1996:**<br>
 
-[https://videopress.com/embed/dKDhatIc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dKDhatIc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/dKDhatIc](https://videopress.com/embed/dKDhatIc)
 
 At Alltel Arena in Little Rock, Bruce plays "Mary Queen of Arkansas" for the first time in 26 years.
 
 **2000:**<br>
 
-[https://videopress.com/embed/9FPrwILR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9FPrwILR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9FPrwILR](https://videopress.com/embed/9FPrwILR)
 
-[https://videopress.com/embed/9SQOEqsQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9SQOEqsQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9SQOEqsQ](https://videopress.com/embed/9SQOEqsQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2000-03-14.jpg?resize=758%2C456&amp;ssl=1)
 
@@ -67,9 +67,9 @@ Bruce returns a favor by inducting U2 into the Rock and Roll Hall of Fame; he la
 
 **2005:**<br>
 
-[https://www.youtube.com/embed/5onUXFV9Vto?feature=oembed](https://www.youtube.com/embed/5onUXFV9Vto?feature=oembed)
+[https://www.youtube.com/embed/5onUXFV9Vto](https://www.youtube.com/embed/5onUXFV9Vto)
 
-[https://www.youtube.com/embed/FlgYdxUdckQ?feature=oembed](https://www.youtube.com/embed/FlgYdxUdckQ?feature=oembed)
+[https://www.youtube.com/embed/FlgYdxUdckQ](https://www.youtube.com/embed/FlgYdxUdckQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2005-03-14.png?resize=758%2C705&amp;ssl=1)
 
@@ -77,9 +77,9 @@ Bruce plays Omaha for the first time in 30 years when the Magic Tour stops at Qw
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/BVkxO-Szu1I?feature=oembed](https://www.youtube.com/embed/BVkxO-Szu1I?feature=oembed)
+[https://www.youtube.com/embed/BVkxO-Szu1I](https://www.youtube.com/embed/BVkxO-Szu1I)
 
-[https://www.youtube.com/embed/8mk4DZWaXCQ?feature=oembed](https://www.youtube.com/embed/8mk4DZWaXCQ?feature=oembed)
+[https://www.youtube.com/embed/8mk4DZWaXCQ](https://www.youtube.com/embed/8mk4DZWaXCQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2008-03-14a.jpg?resize=693%2C817&amp;ssl=1)
 
@@ -87,33 +87,33 @@ Bruce and Curtis King join Darlene Love on stage at her induction ceremony into 
 
 **2011:** [Zip a Dee Doo Dah](http://estreetshuffle.com/index.php/2018/08/28/meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/)[(Today I Met) The Boy I'm Going to Marry](http://estreetshuffle.com/index.php/2018/11/12/matr-darlene-love-bruce-springsteen-and-the-cbs-orchestra-today-i-met-the-boy-im-gonna-marry/)[He's a Rebel](https://estreetshuffle.com/index.php/2021/10/02/matr-darlene-love-bette-midler-and-bruce-springsteen-hes-a-rebel/)
 
-[https://www.youtube.com/embed/d36vCrKrxp8?feature=oembed](https://www.youtube.com/embed/d36vCrKrxp8?feature=oembed)
+[https://www.youtube.com/embed/d36vCrKrxp8](https://www.youtube.com/embed/d36vCrKrxp8)
 
 Bruce joins Alejandro Escovedo, Joe Ely, and Garland Jeffreys on-stage at the Austin Music Awards for "Midnight Train," "Always a Friend," "Blowin' Down This Road," and "Beast of Burden."
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/DmLPWWvrT6I?feature=oembed](https://www.youtube.com/embed/DmLPWWvrT6I?feature=oembed)
+[https://www.youtube.com/embed/DmLPWWvrT6I](https://www.youtube.com/embed/DmLPWWvrT6I)
 
-[https://www.youtube.com/embed/vAROCDvq4A8?feature=oembed](https://www.youtube.com/embed/vAROCDvq4A8?feature=oembed)
+[https://www.youtube.com/embed/vAROCDvq4A8](https://www.youtube.com/embed/vAROCDvq4A8)
 
-[https://www.youtube.com/embed/huhY__xehm4?feature=oembed](https://www.youtube.com/embed/huhY__xehm4?feature=oembed)
+[https://www.youtube.com/embed/huhY__xehm4](https://www.youtube.com/embed/huhY__xehm4)
 
-[https://www.youtube.com/embed/v4qVHAJX03c?feature=oembed](https://www.youtube.com/embed/v4qVHAJX03c?feature=oembed)
+[https://www.youtube.com/embed/v4qVHAJX03c](https://www.youtube.com/embed/v4qVHAJX03c)
 
 The Australian leg of the Wrecking Ball Tour kicks off with the first of two nights in Brisbane. Tom Morello is along for the ride, filling in for Steve Van Zandt (who is filming his series during this time), and "Just Like Fire Would" is premiered, sparking the inspiration as the tour progresses for what will become the album.
 
 **2013:** *Lilyhammer* *High Hopes*
 
-[https://www.youtube.com/embed/HuX2G3nl2wk?feature=oembed](https://www.youtube.com/embed/HuX2G3nl2wk?feature=oembed)
+[https://www.youtube.com/embed/HuX2G3nl2wk](https://www.youtube.com/embed/HuX2G3nl2wk)
 
-[https://www.youtube.com/embed/jIO24XAgZSg?feature=oembed](https://www.youtube.com/embed/jIO24XAgZSg?feature=oembed)
+[https://www.youtube.com/embed/jIO24XAgZSg](https://www.youtube.com/embed/jIO24XAgZSg)
 
-[https://www.youtube.com/embed/Ak-8LAwHfU8?feature=oembed](https://www.youtube.com/embed/Ak-8LAwHfU8?feature=oembed)
+[https://www.youtube.com/embed/Ak-8LAwHfU8](https://www.youtube.com/embed/Ak-8LAwHfU8)
 
-[https://www.youtube.com/embed/XeahFgvxR5Q?feature=oembed](https://www.youtube.com/embed/XeahFgvxR5Q?feature=oembed)
+[https://www.youtube.com/embed/XeahFgvxR5Q](https://www.youtube.com/embed/XeahFgvxR5Q)
 
-[https://www.youtube.com/embed/3V7PmfvX2pE?feature=oembed](https://www.youtube.com/embed/3V7PmfvX2pE?feature=oembed)
+[https://www.youtube.com/embed/3V7PmfvX2pE](https://www.youtube.com/embed/3V7PmfvX2pE)
 
 continues its theatrical run at the Walter Kerr Theater in New York City, with a special invite-only show for Sirius XM radio listeners who entered and won a contest. Emmylou Harris, Katy Perry, Ricky Gervais, and Howard Stern are there tonight as well, but I suspect they procured their tickets through other means.
 
@@ -127,4 +127,4 @@ Bruce cancels his third consecutive show due to an undisclosed illness. His show
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/A5ODsZX-16U?feature=oembed](https://www.youtube.com/embed/A5ODsZX-16U?feature=oembed)
+[https://www.youtube.com/embed/A5ODsZX-16U](https://www.youtube.com/embed/A5ODsZX-16U)

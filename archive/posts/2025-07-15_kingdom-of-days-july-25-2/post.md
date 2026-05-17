@@ -25,9 +25,9 @@ Bruce puts the finishing touches on when he completes overdubs for "" at the Rec
 
 **1975:** *Born to Run*[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
 
-[https://www.youtube.com/embed/blbFaatKszE?feature=oembed](https://www.youtube.com/embed/blbFaatKszE?feature=oembed)
+[https://www.youtube.com/embed/blbFaatKszE](https://www.youtube.com/embed/blbFaatKszE)
 
-[https://videopress.com/embed/DfPGWB6J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DfPGWB6J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/DfPGWB6J](https://videopress.com/embed/DfPGWB6J)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1975-07-25-261x300.png?resize=758%2C871)
 
@@ -35,7 +35,7 @@ Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for eight songs,
 
 **1982:** [Come On, Let's Go](http://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/)[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)[Around and Around](http://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)[Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
 
-[https://www.youtube.com/embed/RPenU9SOFzI?feature=oembed](https://www.youtube.com/embed/RPenU9SOFzI?feature=oembed)
+[https://www.youtube.com/embed/RPenU9SOFzI](https://www.youtube.com/embed/RPenU9SOFzI)
 
 is certified as 3x platinum in the U.K.
 
@@ -47,23 +47,23 @@ Bruce plays a Tunnel of Love show in Copenhagen, where Link Wray guest-stars on 
 
 **1988:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
-[https://www.youtube.com/embed/5A-alLsp2yg?feature=oembed](https://www.youtube.com/embed/5A-alLsp2yg?feature=oembed)
+[https://www.youtube.com/embed/5A-alLsp2yg](https://www.youtube.com/embed/5A-alLsp2yg)
 
-[https://www.youtube.com/embed/5iutM7s8I20?feature=oembed](https://www.youtube.com/embed/5iutM7s8I20?feature=oembed)
+[https://www.youtube.com/embed/5iutM7s8I20](https://www.youtube.com/embed/5iutM7s8I20)
 
-[https://www.youtube.com/embed/RgstLYUIXu4?feature=oembed](https://www.youtube.com/embed/RgstLYUIXu4?feature=oembed)
+[https://www.youtube.com/embed/RgstLYUIXu4](https://www.youtube.com/embed/RgstLYUIXu4)
 
-[https://www.youtube.com/embed/7mQ0tasqAo0?feature=oembed](https://www.youtube.com/embed/7mQ0tasqAo0?feature=oembed)
+[https://www.youtube.com/embed/7mQ0tasqAo0](https://www.youtube.com/embed/7mQ0tasqAo0)
 
-[https://www.youtube.com/embed/ZjtrVwXb-Yo?feature=oembed](https://www.youtube.com/embed/ZjtrVwXb-Yo?feature=oembed)
+[https://www.youtube.com/embed/ZjtrVwXb-Yo](https://www.youtube.com/embed/ZjtrVwXb-Yo)
 
-[https://www.youtube.com/embed/pJzfzIq4-38?feature=oembed](https://www.youtube.com/embed/pJzfzIq4-38?feature=oembed)
+[https://www.youtube.com/embed/pJzfzIq4-38](https://www.youtube.com/embed/pJzfzIq4-38)
 
-[https://www.youtube.com/embed/rFhcoO28YoU?feature=oembed](https://www.youtube.com/embed/rFhcoO28YoU?feature=oembed)
+[https://www.youtube.com/embed/rFhcoO28YoU](https://www.youtube.com/embed/rFhcoO28YoU)
 
-[https://www.youtube.com/embed/ws3RCHHqbrQ?feature=oembed](https://www.youtube.com/embed/ws3RCHHqbrQ?feature=oembed)
+[https://www.youtube.com/embed/ws3RCHHqbrQ](https://www.youtube.com/embed/ws3RCHHqbrQ)
 
-[https://www.youtube.com/embed/J-wVZsMRwnc?feature=oembed](https://www.youtube.com/embed/J-wVZsMRwnc?feature=oembed)
+[https://www.youtube.com/embed/J-wVZsMRwnc](https://www.youtube.com/embed/J-wVZsMRwnc)
 
 Bruce and Patti welcome their first son, Evan James, into the world.
 
@@ -77,9 +77,9 @@ On Night Two (of eleven!) at Brendan Byrne Arena in East Rutherford on World Tou
 
 **1992:** [Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)[Ninety-nine and a Half (Won't Do).](https://estreetshuffle.com/index.php/2020/10/11/cover-me-ninety-nine-and-a-half-wont-do/)[Real Man](http://estreetshuffle.com/index.php/2020/04/15/roll-of-the-dice-real-man/)[here](http://live.brucespringsteen.net/live-music/0,21905/Bruce-Springsteen-mp3-flac-download-7-25-1992-Meadowlands-Arena-East-Rutherford-NJ.html)
 
-[https://www.youtube.com/embed/nybVvtv6Kjw?feature=oembed](https://www.youtube.com/embed/nybVvtv6Kjw?feature=oembed)
+[https://www.youtube.com/embed/nybVvtv6Kjw](https://www.youtube.com/embed/nybVvtv6Kjw)
 
-[https://www.youtube.com/embed/qlQ-PrI0HXM?feature=oembed](https://www.youtube.com/embed/qlQ-PrI0HXM?feature=oembed)
+[https://www.youtube.com/embed/qlQ-PrI0HXM](https://www.youtube.com/embed/qlQ-PrI0HXM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1992-07-25a-276x300.png?resize=758%2C824)
 
@@ -99,18 +99,18 @@ Bruce and the E Street Band end their European tour at the Autodromo in Monza, I
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/vayPOdo0i38?feature=oembed](https://www.youtube.com/embed/vayPOdo0i38?feature=oembed)
+[https://www.youtube.com/embed/vayPOdo0i38](https://www.youtube.com/embed/vayPOdo0i38)
 
-[https://www.youtube.com/embed/ppBykPuenu4?feature=oembed](https://www.youtube.com/embed/ppBykPuenu4?feature=oembed)
+[https://www.youtube.com/embed/ppBykPuenu4](https://www.youtube.com/embed/ppBykPuenu4)
 
-[https://www.youtube.com/embed/xo52lc1I6Ig?feature=oembed](https://www.youtube.com/embed/xo52lc1I6Ig?feature=oembed)
+[https://www.youtube.com/embed/xo52lc1I6Ig](https://www.youtube.com/embed/xo52lc1I6Ig)
 
 Bruce and the E Street Band play their first of two nights at Wembley Stadium in London.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/dGmxP7ahGvQ?feature=oembed](https://www.youtube.com/embed/dGmxP7ahGvQ?feature=oembed)
+[https://www.youtube.com/embed/dGmxP7ahGvQ](https://www.youtube.com/embed/dGmxP7ahGvQ)
 
-[https://www.youtube.com/embed/_p-32XByd-o?feature=oembed](https://www.youtube.com/embed/_p-32XByd-o?feature=oembed)
+[https://www.youtube.com/embed/_p-32XByd-o](https://www.youtube.com/embed/_p-32XByd-o)
 
-[https://www.youtube.com/embed/x1IVmn-T14M?feature=oembed](https://www.youtube.com/embed/x1IVmn-T14M?feature=oembed)
+[https://www.youtube.com/embed/x1IVmn-T14M](https://www.youtube.com/embed/x1IVmn-T14M)

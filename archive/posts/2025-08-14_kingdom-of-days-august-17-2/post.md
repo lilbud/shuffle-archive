@@ -9,7 +9,7 @@ Bruce and the E Street Band wrap up their legendary five-night stand at The Bott
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/4Y-7c4n2eaE?feature=oembed](https://www.youtube.com/embed/4Y-7c4n2eaE?feature=oembed)
+[https://www.youtube.com/embed/4Y-7c4n2eaE](https://www.youtube.com/embed/4Y-7c4n2eaE)
 
 Bruce and the boys play their second night at Red Rocks Amphitheater on the River Tour, but on this night the weather cooperates.
 
@@ -21,15 +21,15 @@ The Born in the U.S.A. Tour's ten-night stand at the Brendan Byrne Arena in East
 
 **1984:** [I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)
 
-[https://www.youtube.com/embed/_PJFou1o1JE?feature=oembed](https://www.youtube.com/embed/_PJFou1o1JE?feature=oembed)
+[https://www.youtube.com/embed/_PJFou1o1JE](https://www.youtube.com/embed/_PJFou1o1JE)
 
 Bruce and his new touring band bring World Tour 1992 to the Detroit area for their first of two shows at The Palace of Auburn Hills. Watch the soundcheck, pre-show interview, and concert footage below.
 
 **1992:**<br>
 
-[https://videopress.com/embed/XxssRVjw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XxssRVjw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/XxssRVjw](https://videopress.com/embed/XxssRVjw)
 
-[https://www.youtube.com/embed/cVLXiCqsTpY?feature=oembed](https://www.youtube.com/embed/cVLXiCqsTpY?feature=oembed)
+[https://www.youtube.com/embed/cVLXiCqsTpY](https://www.youtube.com/embed/cVLXiCqsTpY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-17a-296x300.png?resize=758%2C769)
 
@@ -45,7 +45,7 @@ Bruce and the E Street Band play their second of only two Rising Tour stadium sh
 
 **2003:**<br>
 
-[https://videopress.com/embed/ijPr8cpo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ijPr8cpo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ijPr8cpo](https://videopress.com/embed/ijPr8cpo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-17a-204x300.png?resize=758%2C1115)
 

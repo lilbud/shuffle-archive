@@ -13,7 +13,7 @@ Tad is a singer-songwriter and one-man band out of Daytona Beach, and he knows t
 
 A great singer, a talented guitarist, and a mean multi-tasker, Tad delivers a performance worthy of a listen even if you think you've heard it all.
 
-[https://www.youtube.com/embed/nOegzE9M1EQ?feature=oembed](https://www.youtube.com/embed/nOegzE9M1EQ?feature=oembed)
+[https://www.youtube.com/embed/nOegzE9M1EQ](https://www.youtube.com/embed/nOegzE9M1EQ)
 
 For more of Tad's music–both original and cover–visit his web site .
 

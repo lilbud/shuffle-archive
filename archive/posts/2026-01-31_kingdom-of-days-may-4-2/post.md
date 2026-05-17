@@ -31,7 +31,7 @@ Bruce and the E Street Band record "Murder Incorporated" at the Power Station in
 
 **1982:**<br>
 
-[https://www.youtube.com/embed/oshU-C5zTWE?feature=oembed](https://www.youtube.com/embed/oshU-C5zTWE?feature=oembed)
+[https://www.youtube.com/embed/oshU-C5zTWE](https://www.youtube.com/embed/oshU-C5zTWE)
 
 As "I'm on Fire" starts its decline on the charts, host Casey Kasem shares the story of the night Bruce broke into Graceland.
 
@@ -45,11 +45,11 @@ Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/sK8Khz0YLlE?feature=oembed](https://www.youtube.com/embed/sK8Khz0YLlE?feature=oembed)
+[https://www.youtube.com/embed/sK8Khz0YLlE](https://www.youtube.com/embed/sK8Khz0YLlE)
 
-[https://www.youtube.com/embed/Wt7TKLqX_SE?feature=oembed](https://www.youtube.com/embed/Wt7TKLqX_SE?feature=oembed)
+[https://www.youtube.com/embed/Wt7TKLqX_SE](https://www.youtube.com/embed/Wt7TKLqX_SE)
 
-[https://www.youtube.com/embed/4hAAehP6UxM?feature=oembed](https://www.youtube.com/embed/4hAAehP6UxM?feature=oembed)
+[https://www.youtube.com/embed/4hAAehP6UxM](https://www.youtube.com/embed/4hAAehP6UxM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-05-04a.jpg?resize=758%2C347&amp;ssl=1)
 
@@ -59,33 +59,33 @@ Bruce brings the Working on a Dream Tour to the Nassau Coliseum in Uniondale, Ne
 
 **2009:**<br>
 
-[https://videopress.com/embed/g6oM2O3x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/g6oM2O3x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/g6oM2O3x](https://videopress.com/embed/g6oM2O3x)
 
-[https://videopress.com/embed/PBcnDGH2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PBcnDGH2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PBcnDGH2](https://videopress.com/embed/PBcnDGH2)
 
-[https://www.youtube.com/embed/PJFF1Dd759s?feature=oembed](https://www.youtube.com/embed/PJFF1Dd759s?feature=oembed)
+[https://www.youtube.com/embed/PJFF1Dd759s](https://www.youtube.com/embed/PJFF1Dd759s)
 
-[https://www.youtube.com/embed/E3prYxdUfUk?feature=oembed](https://www.youtube.com/embed/E3prYxdUfUk?feature=oembed)
+[https://www.youtube.com/embed/E3prYxdUfUk](https://www.youtube.com/embed/E3prYxdUfUk)
 
-[https://www.youtube.com/embed/oQVwoOUQhlI?feature=oembed](https://www.youtube.com/embed/oQVwoOUQhlI?feature=oembed)
+[https://www.youtube.com/embed/oQVwoOUQhlI](https://www.youtube.com/embed/oQVwoOUQhlI)
 
-[https://www.youtube.com/embed/fxykBcPTu7s?feature=oembed](https://www.youtube.com/embed/fxykBcPTu7s?feature=oembed)
+[https://www.youtube.com/embed/fxykBcPTu7s](https://www.youtube.com/embed/fxykBcPTu7s)
 
 Bruce followed up an amazing Night One in Solna, Sweden, with an even hotter Night Two, opening with "My Love Will Not Let You Down," "Leap of Faith," "I'm a Rocker, "and "Better Days," before finally dipping into the album. As he did the prior night, Bruce plays another full album–this time .
 
 **2013:** *Wrecking Ball**Darkness on the Edge of Town*
 
-[https://videopress.com/embed/e8uA40R8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/e8uA40R8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/e8uA40R8](https://videopress.com/embed/e8uA40R8)
 
-[https://videopress.com/embed/xnjI7AHO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xnjI7AHO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xnjI7AHO](https://videopress.com/embed/xnjI7AHO)
 
-[https://videopress.com/embed/txzSEx2C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/txzSEx2C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/txzSEx2C](https://videopress.com/embed/txzSEx2C)
 
-[https://videopress.com/embed/VMfFmfiC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VMfFmfiC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VMfFmfiC](https://videopress.com/embed/VMfFmfiC)
 
-[https://videopress.com/embed/lay25WsO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lay25WsO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/lay25WsO](https://videopress.com/embed/lay25WsO)
 
-[https://www.youtube.com/embed/k0OalnfuIws?feature=oembed](https://www.youtube.com/embed/k0OalnfuIws?feature=oembed)
+[https://www.youtube.com/embed/k0OalnfuIws](https://www.youtube.com/embed/k0OalnfuIws)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -95,13 +95,13 @@ Bruce makes a surprise appearance at the Saban Theater in Los Angeles, joining L
 
 **2019:**<br>
 
-[https://www.youtube.com/embed/3quQa4c7n_4?feature=oembed](https://www.youtube.com/embed/3quQa4c7n_4?feature=oembed)
+[https://www.youtube.com/embed/3quQa4c7n_4](https://www.youtube.com/embed/3quQa4c7n_4)
 
 In the area early for his upcoming shows in Dublin, Bruce stops by The Burrow pub in Rathangan, County Kildare, his Irish ancestral home. Over a pint, he leads the locals through a verse of "My Hometown."
 
 **2023:**<br>
 
-[https://videopress.com/embed/ZleZu0Ri?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZleZu0Ri?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ZleZu0Ri](https://videopress.com/embed/ZleZu0Ri)
 
 Upon returning to Dublin later in the day, Bruce pays a visit to the late Shane MacGowan, former lead singer of The Pogues.
 

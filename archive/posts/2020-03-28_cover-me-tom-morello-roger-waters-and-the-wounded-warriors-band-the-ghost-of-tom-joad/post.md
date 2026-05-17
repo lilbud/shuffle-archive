@@ -9,4 +9,4 @@ Springsteen fans are of course familiar with Morello's contributions to "" — h
 
 But if you've never heard Tom Morello play "The Ghost of Tom Joad" with Roger Waters and the Wounded Warriors Band, take a ten-minute break now and watch. Their performance is more than impressive–it's inspiring, as a song about Tom Joad should be.
 
-[https://www.youtube.com/embed/lNh7QTU40WM?feature=oembed](https://www.youtube.com/embed/lNh7QTU40WM?feature=oembed)
+[https://www.youtube.com/embed/lNh7QTU40WM](https://www.youtube.com/embed/lNh7QTU40WM)

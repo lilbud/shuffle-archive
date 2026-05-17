@@ -5,7 +5,7 @@ Sam Cooke's "" peaked at #17 on the Billboard Hot 100 (#4 on the R&B chart) and 
 
 [Having a Party](https://estreetshuffle.com/index.php/2021/12/31/matr-bruce-springsteen-and-southside-johnny-having-a-party/)
 
-[https://www.youtube.com/embed/WjtndPBN6jE?feature=oembed](https://www.youtube.com/embed/WjtndPBN6jE?feature=oembed)
+[https://www.youtube.com/embed/WjtndPBN6jE](https://www.youtube.com/embed/WjtndPBN6jE)
 
 The Wallflowers frequently cover it, too–for more than twenty years, in fact, right up to today. But back in 1997, their cover version was still fresh and new.
 
@@ -13,7 +13,7 @@ And when Bruce Springsteen dropped by the band's gig in Sea Bright, New Jersey, 
 
 And luckily for us, it was recorded. Take a listen to The Wallflowers and Bruce Springsteen cover "Bring It on Home to Me"–the only time Bruce is known to have performed the song.
 
-[https://videopress.com/embed/QODOavVr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QODOavVr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/QODOavVr](https://videopress.com/embed/QODOavVr)
 
 March 8, 1997 (Sea Bright, NJ)
 March 8, 1997 (Sea Bright, NJ)

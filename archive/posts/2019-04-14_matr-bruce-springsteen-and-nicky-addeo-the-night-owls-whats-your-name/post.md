@@ -7,11 +7,11 @@ Nicky Addeo isn't a household name, but in 1963 he released a song called "Glori
 
 [Gloria](https://youtu.be/7TSwtof6LTQ)
 
-[https://www.youtube.com/embed/GbhmYTRWtCo?feature=oembed](https://www.youtube.com/embed/GbhmYTRWtCo?feature=oembed)
+[https://www.youtube.com/embed/GbhmYTRWtCo](https://www.youtube.com/embed/GbhmYTRWtCo)
 
 "What's Your Name" was released in 1962 by Don and Juan. It was their only hit, reaching #7 on the Billboard pop chart. The boys' cover is pretty true to the original.
 
-[https://www.youtube.com/embed/vrZf3vRHmkw?feature=oembed](https://www.youtube.com/embed/vrZf3vRHmkw?feature=oembed)
+[https://www.youtube.com/embed/vrZf3vRHmkw](https://www.youtube.com/embed/vrZf3vRHmkw)
 
 October 1965 (Monmouth County, NJ)
 April 2, 2011 (Asbury Park, NJ)

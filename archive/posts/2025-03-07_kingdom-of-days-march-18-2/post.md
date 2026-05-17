@@ -33,9 +33,9 @@ Bruce and the E Street Band bring the Lawsuit Tour to the Veterans Memorial Coli
 
 **1977:**<br>
 
-[https://www.youtube.com/embed/VvLq3FWKFqg?feature=oembed](https://www.youtube.com/embed/VvLq3FWKFqg?feature=oembed)
+[https://www.youtube.com/embed/VvLq3FWKFqg](https://www.youtube.com/embed/VvLq3FWKFqg)
 
-[https://videopress.com/embed/gcTFjzCM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gcTFjzCM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/gcTFjzCM](https://videopress.com/embed/gcTFjzCM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1977-03-18.jpg?resize=758%2C1010&amp;ssl=1)
 
@@ -45,11 +45,11 @@ Bruce and the reunited E Street Band play their first public show at Convention 
 
 News coverage from the day:
 
-[https://www.youtube.com/embed/zBc-SIs943E?feature=oembed](https://www.youtube.com/embed/zBc-SIs943E?feature=oembed)
+[https://www.youtube.com/embed/zBc-SIs943E](https://www.youtube.com/embed/zBc-SIs943E)
 
 …and video of the opener:
 
-[https://www.youtube.com/embed/yx-6qyVaUJA?feature=oembed](https://www.youtube.com/embed/yx-6qyVaUJA?feature=oembed)
+[https://www.youtube.com/embed/yx-6qyVaUJA](https://www.youtube.com/embed/yx-6qyVaUJA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-18a.jpg?resize=758%2C1439&amp;ssl=1)
 
@@ -59,9 +59,9 @@ The Reunion Tour moves on to Memphis and the Pyramid Arena, where "Follow That D
 
 **2000:**<br>
 
-[https://www.youtube.com/embed/wKD0Fh5A8eg?feature=oembed](https://www.youtube.com/embed/wKD0Fh5A8eg?feature=oembed)
+[https://www.youtube.com/embed/wKD0Fh5A8eg](https://www.youtube.com/embed/wKD0Fh5A8eg)
 
-[https://www.youtube.com/embed/NeANijU5eh0?feature=oembed](https://www.youtube.com/embed/NeANijU5eh0?feature=oembed)
+[https://www.youtube.com/embed/NeANijU5eh0](https://www.youtube.com/embed/NeANijU5eh0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Commercial_Appeal_Sun__Mar_19__2000_.jpg?resize=758%2C338&amp;ssl=1)
 
@@ -69,17 +69,17 @@ Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park's Co
 
 **2009:** [Sufferin' in the Land,](https://estreetshuffle.com/index.php/2020/09/14/cover-me-sufferin-in-the-land/)
 
-[https://videopress.com/embed/lxNzRjRj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lxNzRjRj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/lxNzRjRj](https://videopress.com/embed/lxNzRjRj)
 
 Bruce joins Dropkick Murphys on stage at the House of Blues in Boston for "," "," and "."
 
 **2011:** [Peg O' My Heart](http://estreetshuffle.com/index.php/2020/02/03/matr-dropkick-murphys-and-bruce-springsteen-peg-o-my-heart/)[Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)[I'm Shipping Up to Boston](http://estreetshuffle.com/index.php/2018/12/16/matr-dropkick-murphys-and-bruce-springsteen-im-shipping-up-to-boston/)
 
-[https://www.youtube.com/embed/rGvZGCh16yA?feature=oembed](https://www.youtube.com/embed/rGvZGCh16yA?feature=oembed)
+[https://www.youtube.com/embed/rGvZGCh16yA](https://www.youtube.com/embed/rGvZGCh16yA)
 
-[https://www.youtube.com/embed/XSAqb06K9dE?feature=oembed](https://www.youtube.com/embed/XSAqb06K9dE?feature=oembed)
+[https://www.youtube.com/embed/XSAqb06K9dE](https://www.youtube.com/embed/XSAqb06K9dE)
 
-[https://www.youtube.com/embed/a7QsVPYWQFE?feature=oembed](https://www.youtube.com/embed/a7QsVPYWQFE?feature=oembed)
+[https://www.youtube.com/embed/a7QsVPYWQFE](https://www.youtube.com/embed/a7QsVPYWQFE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2011-03-18-300x236.jpg?resize=758%2C596)
 
@@ -87,35 +87,35 @@ The Wrecking Ball Tour kicks off at Philips Arena in Atlanta, featuring the live
 
 **2012:** [Easy Money](https://estreetshuffle.com/index.php/2021/06/10/roll-of-the-dice-easy-money/)[Where the Band Was report](http://estreetshuffle.com/index.php/2018/03/18/where-the-band-was-atlanta-march-18-2012/)
 
-[https://www.youtube.com/embed/tH3X6MhqW4k?feature=oembed](https://www.youtube.com/embed/tH3X6MhqW4k?feature=oembed)
+[https://www.youtube.com/embed/tH3X6MhqW4k](https://www.youtube.com/embed/tH3X6MhqW4k)
 
-[https://www.youtube.com/embed/ca3vy25izfw?feature=oembed](https://www.youtube.com/embed/ca3vy25izfw?feature=oembed)
+[https://www.youtube.com/embed/ca3vy25izfw](https://www.youtube.com/embed/ca3vy25izfw)
 
-[https://www.youtube.com/embed/-DUivBvLUWk?feature=oembed](https://www.youtube.com/embed/-DUivBvLUWk?feature=oembed)
+[https://www.youtube.com/embed/-DUivBvLUWk](https://www.youtube.com/embed/-DUivBvLUWk)
 
 Bruce and the E Street Band play the first of three nights at Allphones Arena in Sydney.
 
 **2013:**<br>
 
-[https://www.youtube.com/embed/ZvHd6CCBsVM?feature=oembed](https://www.youtube.com/embed/ZvHd6CCBsVM?feature=oembed)
+[https://www.youtube.com/embed/ZvHd6CCBsVM](https://www.youtube.com/embed/ZvHd6CCBsVM)
 
-[https://www.youtube.com/embed/gvOF2FTd5N4?feature=oembed](https://www.youtube.com/embed/gvOF2FTd5N4?feature=oembed)
+[https://www.youtube.com/embed/gvOF2FTd5N4](https://www.youtube.com/embed/gvOF2FTd5N4)
 
-[https://www.youtube.com/embed/Tb94082S5OI?feature=oembed](https://www.youtube.com/embed/Tb94082S5OI?feature=oembed)
+[https://www.youtube.com/embed/Tb94082S5OI](https://www.youtube.com/embed/Tb94082S5OI)
 
-[https://www.youtube.com/embed/fpoBEi8ZvpM?feature=oembed](https://www.youtube.com/embed/fpoBEi8ZvpM?feature=oembed)
+[https://www.youtube.com/embed/fpoBEi8ZvpM](https://www.youtube.com/embed/fpoBEi8ZvpM)
 
-[https://www.youtube.com/embed/SZ1x1HZVp0c?feature=oembed](https://www.youtube.com/embed/SZ1x1HZVp0c?feature=oembed)
+[https://www.youtube.com/embed/SZ1x1HZVp0c](https://www.youtube.com/embed/SZ1x1HZVp0c)
 
 Bruce and the E Street Band bring their World Tour to Penn State University, where "" makes its first tour appearance.
 
 **2023:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://www.youtube.com/embed/Aoc_cCa9f0Y?feature=oembed](https://www.youtube.com/embed/Aoc_cCa9f0Y?feature=oembed)
+[https://www.youtube.com/embed/Aoc_cCa9f0Y](https://www.youtube.com/embed/Aoc_cCa9f0Y)
 
-[https://www.youtube.com/embed/3urrJGvMa8Y?feature=oembed](https://www.youtube.com/embed/3urrJGvMa8Y?feature=oembed)
+[https://www.youtube.com/embed/3urrJGvMa8Y](https://www.youtube.com/embed/3urrJGvMa8Y)
 
-[https://www.youtube.com/embed/bzpVJE1_dGk?feature=oembed](https://www.youtube.com/embed/bzpVJE1_dGk?feature=oembed)
+[https://www.youtube.com/embed/bzpVJE1_dGk](https://www.youtube.com/embed/bzpVJE1_dGk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-scaled.jpg?resize=758%2C170&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-1-scaled.jpg?resize=758%2C217&amp;ssl=1)
 

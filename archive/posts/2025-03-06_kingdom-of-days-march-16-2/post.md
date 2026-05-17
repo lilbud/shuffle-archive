@@ -17,7 +17,7 @@ The Tunnel of Love Express Tour moves on to Chicagoland for the first of two nig
 
 **1988:**<br>
 
-[https://videopress.com/embed/N9EzSYt4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/N9EzSYt4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/N9EzSYt4](https://videopress.com/embed/N9EzSYt4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-16-300x289.jpg?resize=758%2C730)
 
@@ -25,13 +25,13 @@ Bruce plays a solo acoustic show at Falkoner Salen in Copenhagen.
 
 **1996:**<br>
 
-[https://www.youtube.com/embed/_p690qQT8L0?feature=oembed](https://www.youtube.com/embed/_p690qQT8L0?feature=oembed)
+[https://www.youtube.com/embed/_p690qQT8L0](https://www.youtube.com/embed/_p690qQT8L0)
 
 Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on "."
 
 **2004:** [Take It Easy](http://estreetshuffle.com/index.php/2018/01/18/cover-me-take-it-easy/)
 
-[https://www.youtube.com/embed/b7y7zEisP1k?feature=oembed](https://www.youtube.com/embed/b7y7zEisP1k?feature=oembed)
+[https://www.youtube.com/embed/b7y7zEisP1k](https://www.youtube.com/embed/b7y7zEisP1k)
 
 Bruce rehearses with the Sessions Band at the Paramount Theater in Asbury Park.
 
@@ -41,11 +41,11 @@ The Magic Tour moves on to Xcel Energy Center in St. Paul.
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/JgVGkrDf42M?feature=oembed](https://www.youtube.com/embed/JgVGkrDf42M?feature=oembed)
+[https://www.youtube.com/embed/JgVGkrDf42M](https://www.youtube.com/embed/JgVGkrDf42M)
 
-[https://www.youtube.com/embed/FsyOByxpBXM?feature=oembed](https://www.youtube.com/embed/FsyOByxpBXM?feature=oembed)
+[https://www.youtube.com/embed/FsyOByxpBXM](https://www.youtube.com/embed/FsyOByxpBXM)
 
-[https://www.youtube.com/embed/nNvJ_sZfNwQ?feature=oembed](https://www.youtube.com/embed/nNvJ_sZfNwQ?feature=oembed)
+[https://www.youtube.com/embed/nNvJ_sZfNwQ](https://www.youtube.com/embed/nNvJ_sZfNwQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2008-03-16.jpg?resize=758%2C1186&amp;ssl=1)
 
@@ -53,13 +53,13 @@ Night Two in Brisbane opens with the live debut of "."
 
 **2013:** [High Hopes](https://estreetshuffle.com/index.php/2021/08/25/cover-me-high-hopes/)
 
-[https://www.youtube.com/embed/Z7ksWwv3GtQ?feature=oembed](https://www.youtube.com/embed/Z7ksWwv3GtQ?feature=oembed)
+[https://www.youtube.com/embed/Z7ksWwv3GtQ](https://www.youtube.com/embed/Z7ksWwv3GtQ)
 
-[https://www.youtube.com/embed/kWWooLaeMjc?feature=oembed](https://www.youtube.com/embed/kWWooLaeMjc?feature=oembed)
+[https://www.youtube.com/embed/kWWooLaeMjc](https://www.youtube.com/embed/kWWooLaeMjc)
 
-[https://www.youtube.com/embed/yOR_WJF6Bp4?feature=oembed](https://www.youtube.com/embed/yOR_WJF6Bp4?feature=oembed)
+[https://www.youtube.com/embed/yOR_WJF6Bp4](https://www.youtube.com/embed/yOR_WJF6Bp4)
 
-[https://www.youtube.com/embed/7AnPee9K7iE?feature=oembed](https://www.youtube.com/embed/7AnPee9K7iE?feature=oembed)
+[https://www.youtube.com/embed/7AnPee9K7iE](https://www.youtube.com/embed/7AnPee9K7iE)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -69,11 +69,11 @@ Bruce returns to the stage at Wells Fargo Center in Philadelphia, recovered from
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/r6p-giPN5qI?feature=oembed](https://www.youtube.com/embed/r6p-giPN5qI?feature=oembed)
+[https://www.youtube.com/embed/r6p-giPN5qI](https://www.youtube.com/embed/r6p-giPN5qI)
 
-[https://www.youtube.com/embed/G_bAlbzUkVk?feature=oembed](https://www.youtube.com/embed/G_bAlbzUkVk?feature=oembed)
+[https://www.youtube.com/embed/G_bAlbzUkVk](https://www.youtube.com/embed/G_bAlbzUkVk)
 
-[https://www.youtube.com/embed/HKtD_bzCU9E?feature=oembed](https://www.youtube.com/embed/HKtD_bzCU9E?feature=oembed)
+[https://www.youtube.com/embed/HKtD_bzCU9E](https://www.youtube.com/embed/HKtD_bzCU9E)
 
 [https://www.youtube.com/embed/vpM5M6nBrtk?start=1868&amp;feature=oembed](https://www.youtube.com/embed/vpM5M6nBrtk?start=1868&amp;feature=oembed)
 

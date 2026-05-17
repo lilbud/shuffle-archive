@@ -7,7 +7,7 @@ I'm not sure it's possible to improve on the original, which peaked at #2 on the
 
 But the original remains the standard, becoming one of Motown's signature songs, preserved by the Library of Congress in the United States National Recording Registry.
 
-[https://www.youtube.com/embed/CdvITn5cAVc?feature=oembed](https://www.youtube.com/embed/CdvITn5cAVc?feature=oembed)
+[https://www.youtube.com/embed/CdvITn5cAVc](https://www.youtube.com/embed/CdvITn5cAVc)
 
 Bruce first took a crack at "Dancing in the Street" at the tender age of 20, opening Steel Mill shows with it throughout 1970. Here's the first instance of it to be captured on audio, from the band's legendary show at a Richmond, Virginia parking deck.
 
@@ -21,7 +21,7 @@ Shortly after that parking deck performance, Bruce invited local singer Robbin T
 
 In the clips below (much clearer than the one above), you'll hear Bruce and Robbin trading lead vocals in an almost thirteen-minute epic jam, featuring some terrific (but not very danceable) lead guitar by Bruce.
 
-[https://www.youtube.com/embed/ChmsOg816d0?feature=oembed](https://www.youtube.com/embed/ChmsOg816d0?feature=oembed)
+[https://www.youtube.com/embed/ChmsOg816d0](https://www.youtube.com/embed/ChmsOg816d0)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3>
 

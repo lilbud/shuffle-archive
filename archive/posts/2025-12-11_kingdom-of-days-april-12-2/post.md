@@ -25,15 +25,15 @@ Bruce works on mixing and overdubs for several tracks at Clover Studios in Los A
 
 **1980:** *The River*
 
-[https://www.youtube.com/embed/FCS3mewzWSo?feature=oembed](https://www.youtube.com/embed/FCS3mewzWSo?feature=oembed)
+[https://www.youtube.com/embed/FCS3mewzWSo](https://www.youtube.com/embed/FCS3mewzWSo)
 
-[https://www.youtube.com/embed/D-MthLm7_m0?feature=oembed](https://www.youtube.com/embed/D-MthLm7_m0?feature=oembed)
+[https://www.youtube.com/embed/D-MthLm7_m0](https://www.youtube.com/embed/D-MthLm7_m0)
 
 Bruce, Patti, Max, Roy, Jon Bon Jovi, and John Luraschi join Cats on a Smooth Surface on stage at The Stone Pony, where Bruce plays "Light of Day" for the very first time. Video clips of "Lucille" and "Kansas City" have been available on YouTube for a while, but here's a longer, newly uploaded video that includes "Wooly Bully" as well.
 
 **1987:**<br>
 
-[https://www.youtube.com/embed/Qqyie3NByuY?feature=oembed](https://www.youtube.com/embed/Qqyie3NByuY?feature=oembed)
+[https://www.youtube.com/embed/Qqyie3NByuY](https://www.youtube.com/embed/Qqyie3NByuY)
 
 [https://www.youtube.com/embed/ZZGhltIYJPg?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/ZZGhltIYJPg?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
@@ -43,7 +43,7 @@ The Tunnel of Love Express stops in Houston for the first of two shows at The Su
 
 **1988:**<br>
 
-[https://videopress.com/embed/qpGF3ADJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qpGF3ADJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/qpGF3ADJ](https://videopress.com/embed/qpGF3ADJ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-12b.jpg?resize=758%2C868&amp;ssl=1)
 
@@ -61,13 +61,13 @@ Bruce joins Sting, James Taylor, Elton John, Billy Joel, Jon Bon Jovi, Paul Simo
 
 **1995:**<br>
 
-[https://www.youtube.com/embed/3fd8c3d4a8Q?feature=oembed](https://www.youtube.com/embed/3fd8c3d4a8Q?feature=oembed)
+[https://www.youtube.com/embed/3fd8c3d4a8Q](https://www.youtube.com/embed/3fd8c3d4a8Q)
 
-[https://www.youtube.com/embed/EKeZElNN1p4?feature=oembed](https://www.youtube.com/embed/EKeZElNN1p4?feature=oembed)
+[https://www.youtube.com/embed/EKeZElNN1p4](https://www.youtube.com/embed/EKeZElNN1p4)
 
-[https://www.youtube.com/embed/doXtmfLJUPc?feature=oembed](https://www.youtube.com/embed/doXtmfLJUPc?feature=oembed)
+[https://www.youtube.com/embed/doXtmfLJUPc](https://www.youtube.com/embed/doXtmfLJUPc)
 
-[https://www.youtube.com/embed/PZxDezZpz4M?feature=oembed](https://www.youtube.com/embed/PZxDezZpz4M?feature=oembed)
+[https://www.youtube.com/embed/PZxDezZpz4M](https://www.youtube.com/embed/PZxDezZpz4M)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1995-04-12.jpg?resize=758%2C632&amp;ssl=1)
 
@@ -75,7 +75,7 @@ Bruce and the E Street Band play a Reunion Tour show for a low-energy crowd in N
 
 **2000:**<br>
 
-[https://videopress.com/embed/B9bIX3FU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/B9bIX3FU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/B9bIX3FU](https://videopress.com/embed/B9bIX3FU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2000-04-12.jpg?resize=331%2C957&amp;ssl=1)
 
@@ -91,7 +91,7 @@ The Wrecking Ball Tour stops at The Palace of Auburn Hills, where Bruce breaks o
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/9IiTzxRJ6yo?feature=oembed](https://www.youtube.com/embed/9IiTzxRJ6yo?feature=oembed)
+[https://www.youtube.com/embed/9IiTzxRJ6yo](https://www.youtube.com/embed/9IiTzxRJ6yo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2012-04-12.jpg?resize=758%2C413&amp;ssl=1)
 
@@ -99,17 +99,17 @@ A true seaside show, Bruce's concert in Virginia Beach opens with a one-off cove
 
 **2014:** [May I](http://estreetshuffle.com/index.php/2019/10/01/cover-me-may-i/)
 
-[https://www.youtube.com/embed/YMBnU1bYsDc?feature=oembed](https://www.youtube.com/embed/YMBnU1bYsDc?feature=oembed)
+[https://www.youtube.com/embed/YMBnU1bYsDc](https://www.youtube.com/embed/YMBnU1bYsDc)
 
-[https://www.youtube.com/embed/Aa71oVuQcs4?feature=oembed](https://www.youtube.com/embed/Aa71oVuQcs4?feature=oembed)
+[https://www.youtube.com/embed/Aa71oVuQcs4](https://www.youtube.com/embed/Aa71oVuQcs4)
 
 Columbus gets a rare performance of "I Wanna Be With You" when the River Tour stops for a night at the Schottenstein Center.
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/E7KtVbpNmiE?feature=oembed](https://www.youtube.com/embed/E7KtVbpNmiE?feature=oembed)
+[https://www.youtube.com/embed/E7KtVbpNmiE](https://www.youtube.com/embed/E7KtVbpNmiE)
 
-[https://www.youtube.com/embed/yBMP_CJWLD0?feature=oembed](https://www.youtube.com/embed/yBMP_CJWLD0?feature=oembed)
+[https://www.youtube.com/embed/yBMP_CJWLD0](https://www.youtube.com/embed/yBMP_CJWLD0)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -119,4 +119,4 @@ Bruce and the E Street Band tour premiere "Seeds" at Mohegan Sun Arena in Uncasv
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/WkiV2tMF-O4?feature=oembed](https://www.youtube.com/embed/WkiV2tMF-O4?feature=oembed)
+[https://www.youtube.com/embed/WkiV2tMF-O4](https://www.youtube.com/embed/WkiV2tMF-O4)

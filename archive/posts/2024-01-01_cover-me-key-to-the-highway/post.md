@@ -11,11 +11,11 @@ Facebook group contributor, Brucebase admin, Dr. Zoom member, and "" saxophonist
 
 "Key to the Highway" dates back to 1940, when it was originally recorded by Charlie Segar…
 
-[https://www.youtube.com/embed/xxWJWcOQ4LI?feature=oembed](https://www.youtube.com/embed/xxWJWcOQ4LI?feature=oembed)
+[https://www.youtube.com/embed/xxWJWcOQ4LI](https://www.youtube.com/embed/xxWJWcOQ4LI)
 
 …but it's most likely Derek and the Dominos' nine-minute epic that inspired Bruce to cover it.
 
-[https://www.youtube.com/embed/f3dW5F6GKTs?feature=oembed](https://www.youtube.com/embed/f3dW5F6GKTs?feature=oembed)
+[https://www.youtube.com/embed/f3dW5F6GKTs](https://www.youtube.com/embed/f3dW5F6GKTs)
 
 The Bruce Springsteen Band took a swing at it when they played The Student Prince in Asbury Park, way back on December 3, 1971–a year or so after Clapton's version. Typical of their sound, The Bruce Springsteen Band's version is faster and swings–it almost has a "" vibe to it.
 

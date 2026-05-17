@@ -9,7 +9,7 @@ Elvis Presley covered "Guitar Man" that same year, and if the guitar man playing
 
 Elvis' version reached #43 on the Billboard Hot 100, which means that Reed charted with two different versions of the same song in the same year.
 
-[https://www.youtube.com/embed/RGniRTwuOVM?feature=oembed](https://www.youtube.com/embed/RGniRTwuOVM?feature=oembed)
+[https://www.youtube.com/embed/RGniRTwuOVM](https://www.youtube.com/embed/RGniRTwuOVM)
 
 Elvis and Jimmy's team-up seems to have done the trick for them back in 1967, so it's fitting that when Bruce covered "Guitar Man" for the first and only time, it was a team-up as well.
 
@@ -17,7 +17,7 @@ On the evening of April 12, 1995 (26 years ago today, coincidentally), Bruce joi
 
 That year, the event had an Elvis theme, and several covers of The King's songs appeared in the set list that night. One of those covers was "Guitar Man," with Sting on lead vocals and Bruce on lead guitar (and a very nice solo).
 
-[https://videopress.com/embed/7ZXKZRiA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7ZXKZRiA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/7ZXKZRiA](https://videopress.com/embed/7ZXKZRiA)
 
 That event tends to be remembered for Bruce's duets with James Taylor on "" and Elton John on "" (along with Bruce's first full performance of ""), but his supporting turn with Sting on "Guitar Man" was an under-the-radar highlight of a fun and unpredictable night.
 

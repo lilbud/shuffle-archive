@@ -19,7 +19,7 @@ Bruce and the E Street Band wrap up their six-night stand at the Monmouth Arts C
 
 **1976:** *The Promise: The Making of Darkness on the Edge of Town*
 
-[https://www.youtube.com/embed/ioQ2eF1XbYY?feature=oembed](https://www.youtube.com/embed/ioQ2eF1XbYY?feature=oembed)
+[https://www.youtube.com/embed/ioQ2eF1XbYY](https://www.youtube.com/embed/ioQ2eF1XbYY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1976-0807-271x300.jpg?resize=758%2C839)
 
@@ -33,13 +33,13 @@ Bruce and the E Street Band wrap up their three-night stand at the Capital Cente
 
 **1981:**<br>
 
-[https://videopress.com/embed/0KQVFFpL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0KQVFFpL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0KQVFFpL](https://videopress.com/embed/0KQVFFpL)
 
 Bruce joins Beaver Brown on stage at Big Man's West in Red Bank, where he debuts a work-in-progress, "" in the middle of "." (Skip to the 21 minute-mark below to hear it.)
 
 **1982:** [Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)
 
-[https://videopress.com/embed/9dFjGaHk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9dFjGaHk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9dFjGaHk](https://videopress.com/embed/9dFjGaHk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1982-08-07.jpg?resize=541%2C2254&amp;ssl=1)
 
@@ -53,7 +53,7 @@ The stadium leg of the Born in the U.S.A. Tour picks up steam at Cleveland Munic
 
 **1985:** [This Land is Your Land.](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)
 
-[https://videopress.com/embed/Vu6tENsx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Vu6tENsx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Vu6tENsx](https://videopress.com/embed/Vu6tENsx)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-07-300x264.png?resize=758%2C667)
 
@@ -67,23 +67,23 @@ At the penultimate show of World Tour 1992's eleven-night stand at the Meadowlan
 
 **1992:** [For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[All the Way Home](http://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)
 
-[https://videopress.com/embed/MZxl9BXf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MZxl9BXf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/MZxl9BXf](https://videopress.com/embed/MZxl9BXf)
 
-[https://videopress.com/embed/iGI2fvg3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iGI2fvg3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/iGI2fvg3](https://videopress.com/embed/iGI2fvg3)
 
-[https://videopress.com/embed/Xl1kGK8C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Xl1kGK8C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Xl1kGK8C](https://videopress.com/embed/Xl1kGK8C)
 
 Bruce stuns fans at the Meadowlands when he opens Night Twelve (of fifteen) with the first "" in 22 years. Bruce also plays "" for only the third time ever.
 
 **1999:** [Don't Look Back](http://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)[Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)
 
-[https://videopress.com/embed/MBTGYj28?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MBTGYj28?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/MBTGYj28](https://videopress.com/embed/MBTGYj28)
 
 The Rising Tour officially kicks off and Soozie Tyrell makes her official E Street Band debut at the Continental Airlines Arena in East Rutherford, with essentially the same set as the rehearsal show in the same venue. Early shows on the "barnstorming" leg would be atypically rigid, with little variation from night to night.
 
 **2002:**<br>
 
-[https://videopress.com/embed/r4z4wiX6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/r4z4wiX6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/r4z4wiX6](https://videopress.com/embed/r4z4wiX6)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2002-08-07b-203x300.png?resize=758%2C1120)
 
@@ -93,7 +93,7 @@ Bruce opens his solo acoustic show at Milwaukee's Bradley Center with the tour p
 
 **2005:**[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)[Frankie](http://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)
 
-[https://www.youtube.com/embed/Xbni_yrA3EE?feature=oembed](https://www.youtube.com/embed/Xbni_yrA3EE?feature=oembed)
+[https://www.youtube.com/embed/Xbni_yrA3EE](https://www.youtube.com/embed/Xbni_yrA3EE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2005-08-07a.png?resize=522%2C3132&amp;ssl=1)
 
@@ -103,11 +103,11 @@ Bruce attends the premiere of at Convention Hall in Asbury Park. Following the s
 
 **2019:** *Blinded by the Light*[Talk to Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)
 
-[https://www.youtube.com/embed/F-k1OtyJF5Y?feature=oembed](https://www.youtube.com/embed/F-k1OtyJF5Y?feature=oembed)
+[https://www.youtube.com/embed/F-k1OtyJF5Y](https://www.youtube.com/embed/F-k1OtyJF5Y)
 
-[https://www.youtube.com/embed/iexyDRCL_lo?feature=oembed](https://www.youtube.com/embed/iexyDRCL_lo?feature=oembed)
+[https://www.youtube.com/embed/iexyDRCL_lo](https://www.youtube.com/embed/iexyDRCL_lo)
 
-[https://www.youtube.com/embed/P1Gz36sjf_8?feature=oembed](https://www.youtube.com/embed/P1Gz36sjf_8?feature=oembed)
+[https://www.youtube.com/embed/P1Gz36sjf_8](https://www.youtube.com/embed/P1Gz36sjf_8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2019-08-07-300x281.png?resize=758%2C710)
 
@@ -115,6 +115,6 @@ Bruce makes a surprise guest appearance at Zach Bryan's show at Philadelphia's L
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/NldH9Lk5nv0?feature=oembed](https://www.youtube.com/embed/NldH9Lk5nv0?feature=oembed)
+[https://www.youtube.com/embed/NldH9Lk5nv0](https://www.youtube.com/embed/NldH9Lk5nv0)
 
-[https://www.youtube.com/embed/2gFnARIk5qE?feature=oembed](https://www.youtube.com/embed/2gFnARIk5qE?feature=oembed)
+[https://www.youtube.com/embed/2gFnARIk5qE](https://www.youtube.com/embed/2gFnARIk5qE)

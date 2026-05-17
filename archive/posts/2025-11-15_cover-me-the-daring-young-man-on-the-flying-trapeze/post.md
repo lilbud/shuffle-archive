@@ -5,7 +5,7 @@ First published in 1867, "The Daring Young Man on the Flying Trapeze" was writte
 
 First recorded by Walter O'Keefe in 1932, the song did a slow burn before becoming a hit in 1934. But once it did, "The Daring Young Man on the Flying Trapeze" embedded itself in popular culture, inspiring a 1934 short story by William Saroyan and a 1935 film with W.C. Fields.
 
-[https://www.youtube.com/embed/wr9WlfIBCYI?feature=oembed](https://www.youtube.com/embed/wr9WlfIBCYI?feature=oembed)
+[https://www.youtube.com/embed/wr9WlfIBCYI](https://www.youtube.com/embed/wr9WlfIBCYI)
 
 Many artists covered "The Daring Young Man on the Flying Trapeze" over the ensuing years: Eddie Cantor, Burl Ives, Bing Crosby to name just a few. In later years, though, the song grew dated and fell out of fashion.
 
@@ -15,7 +15,7 @@ Although Bruce and the Sessions Band rehearsed the song before the tour even sta
 
 Although their arrangement was traditional, Bruce found the wry, sarcastic humor at the heart of the song and… well, let's say he salted the lyrics a bit.
 
-[https://www.youtube.com/embed/voXHqkN2k9Q?feature=oembed](https://www.youtube.com/embed/voXHqkN2k9Q?feature=oembed)
+[https://www.youtube.com/embed/voXHqkN2k9Q](https://www.youtube.com/embed/voXHqkN2k9Q)
 
 Bruce went on to perform "The Daring Young Man on the Flying Trapeze" once more–in London that autumn. We haven't heard from that daring young man since.
 

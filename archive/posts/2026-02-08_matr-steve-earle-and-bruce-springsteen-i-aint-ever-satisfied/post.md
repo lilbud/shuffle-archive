@@ -9,7 +9,7 @@ We got the latter when Bruce joined Steve Earle on stage during the encore set a
 
 Here's that one-time only performance, from February 6, 1998. Bruce is on guitar the whole time, and you'll hear his vocals kick in at around the halfway point.
 
-[https://videopress.com/embed/tRGCYnzg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tRGCYnzg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/tRGCYnzg](https://videopress.com/embed/tRGCYnzg)
 
 February 6, 1998 (Sea Bright, NJ)
 February 6, 1998 (Sea Bright, NJ)

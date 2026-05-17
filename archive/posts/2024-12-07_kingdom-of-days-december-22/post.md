@@ -29,7 +29,7 @@ Bruce calls into WHFS-FM in Bethesda to record a Christmas message for his fans 
 
 **1977:**<br>
 
-[https://videopress.com/embed/WyvLEBBw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/WyvLEBBw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/WyvLEBBw](https://videopress.com/embed/WyvLEBBw)
 
 As "" moves up the charts, host Casey Kasem lauds Bruce's work ethic.
 
@@ -43,17 +43,17 @@ Bruce makes a surprise appearance at Bobby Bandiera's Hope Concert at the Count 
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/EaxAA4kG5r8?feature=oembed](https://www.youtube.com/embed/EaxAA4kG5r8?feature=oembed)
+[https://www.youtube.com/embed/EaxAA4kG5r8](https://www.youtube.com/embed/EaxAA4kG5r8)
 
-[https://www.youtube.com/embed/u9ePvMQA20E?feature=oembed](https://www.youtube.com/embed/u9ePvMQA20E?feature=oembed)
+[https://www.youtube.com/embed/u9ePvMQA20E](https://www.youtube.com/embed/u9ePvMQA20E)
 
-[https://www.youtube.com/embed/v7ZOK7H8VGQ?feature=oembed](https://www.youtube.com/embed/v7ZOK7H8VGQ?feature=oembed)
+[https://www.youtube.com/embed/v7ZOK7H8VGQ](https://www.youtube.com/embed/v7ZOK7H8VGQ)
 
-[https://www.youtube.com/embed/2CpxeMLfWec?feature=oembed](https://www.youtube.com/embed/2CpxeMLfWec?feature=oembed)
+[https://www.youtube.com/embed/2CpxeMLfWec](https://www.youtube.com/embed/2CpxeMLfWec)
 
-[https://www.youtube.com/embed/db6AIdJ1nM0?feature=oembed](https://www.youtube.com/embed/db6AIdJ1nM0?feature=oembed)
+[https://www.youtube.com/embed/db6AIdJ1nM0](https://www.youtube.com/embed/db6AIdJ1nM0)
 
-[https://www.youtube.com/embed/W4VjcseoJlo?feature=oembed](https://www.youtube.com/embed/W4VjcseoJlo?feature=oembed)
+[https://www.youtube.com/embed/W4VjcseoJlo](https://www.youtube.com/embed/W4VjcseoJlo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2008-12-22.png?resize=758%2C1516&amp;ssl=1)
 

@@ -23,9 +23,9 @@ Bruce plays his first-ever show in the Netherlands, a Born to Run Tour stop at R
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/VpBcWKgFvSs?feature=oembed](https://www.youtube.com/embed/VpBcWKgFvSs?feature=oembed)
+[https://www.youtube.com/embed/VpBcWKgFvSs](https://www.youtube.com/embed/VpBcWKgFvSs)
 
-[https://videopress.com/embed/kr7d6my0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kr7d6my0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/kr7d6my0](https://videopress.com/embed/kr7d6my0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Guardian_1975_12_05_10.jpg?resize=758%2C574&amp;ssl=1)
 
@@ -33,7 +33,7 @@ The River Tour arrives in Washington, DC for the first of a two-night stand at t
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/fbGNmCLiLsc?feature=oembed](https://www.youtube.com/embed/fbGNmCLiLsc?feature=oembed)
+[https://www.youtube.com/embed/fbGNmCLiLsc](https://www.youtube.com/embed/fbGNmCLiLsc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1980-11-23-300x145.png?resize=758%2C366)
 
@@ -41,9 +41,9 @@ MTV premieres Bruce's new video, "" That night, Bruce and the E Street Band brin
 
 **1984:** [Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
-[https://www.youtube.com/embed/vqE08ZnTQNk?feature=oembed](https://www.youtube.com/embed/vqE08ZnTQNk?feature=oembed)
+[https://www.youtube.com/embed/vqE08ZnTQNk](https://www.youtube.com/embed/vqE08ZnTQNk)
 
-[https://www.youtube.com/embed/1QMgRACADUE?feature=oembed](https://www.youtube.com/embed/1QMgRACADUE?feature=oembed)
+[https://www.youtube.com/embed/1QMgRACADUE](https://www.youtube.com/embed/1QMgRACADUE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/1984-11-23.png?resize=758%2C824&amp;ssl=1)
 
@@ -51,7 +51,7 @@ Bruce and his new touring band bring World Tour 1992 to the Orlando Arena.
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/lC0b353qh4o?feature=oembed](https://www.youtube.com/embed/lC0b353qh4o?feature=oembed)
+[https://www.youtube.com/embed/lC0b353qh4o](https://www.youtube.com/embed/lC0b353qh4o)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-23a-300x233.png?resize=758%2C589)
 
@@ -61,11 +61,11 @@ Bruce plays a Rising show full of surprises at the American Airlines Arena in Mi
 
 **2002:** [Out in the Street,](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
-[https://www.youtube.com/embed/hFOLwjmjRR4?feature=oembed](https://www.youtube.com/embed/hFOLwjmjRR4?feature=oembed)
+[https://www.youtube.com/embed/hFOLwjmjRR4](https://www.youtube.com/embed/hFOLwjmjRR4)
 
-[https://www.youtube.com/embed/FPBdK9Krt5g?feature=oembed](https://www.youtube.com/embed/FPBdK9Krt5g?feature=oembed)
+[https://www.youtube.com/embed/FPBdK9Krt5g](https://www.youtube.com/embed/FPBdK9Krt5g)
 
-[https://www.youtube.com/embed/RIQoIWs6MSE?feature=oembed](https://www.youtube.com/embed/RIQoIWs6MSE?feature=oembed)
+[https://www.youtube.com/embed/RIQoIWs6MSE](https://www.youtube.com/embed/RIQoIWs6MSE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2002-11-23-300x103.png?resize=758%2C260)
 
@@ -73,7 +73,7 @@ Bruce contributes a brief video salute for Steve Van Zandt's tribute at the Rock
 
 **2019:** [Letter to You](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)
 
-[https://www.youtube.com/embed/oFdlLxrAAgI?feature=oembed](https://www.youtube.com/embed/oFdlLxrAAgI?feature=oembed)
+[https://www.youtube.com/embed/oFdlLxrAAgI](https://www.youtube.com/embed/oFdlLxrAAgI)
 
 Bruce makes and appearance by phone on E Street Radio, speaking with Jim Rotolo about his new album, That evening, he appears on .
 

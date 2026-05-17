@@ -5,7 +5,7 @@ Mike Appel arranges an unusual publicity event for Bruce and his band–at the c
 
 **1972:** *another**Crawdaddy*
 
-[https://www.youtube.com/embed/dPBm8q4ChJo?feature=oembed](https://www.youtube.com/embed/dPBm8q4ChJo?feature=oembed)
+[https://www.youtube.com/embed/dPBm8q4ChJo](https://www.youtube.com/embed/dPBm8q4ChJo)
 
 Bruce and the E Street Band play three sets at Childe Harold in Washington DC–their second of three nights.
 
@@ -17,13 +17,13 @@ Bruce and the band headline at the Geneva Theater in Geneva, New York. Listen to
 
 **1974:** [It's Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)
 
-[https://videopress.com/embed/cpuzdxrd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cpuzdxrd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cpuzdxrd](https://videopress.com/embed/cpuzdxrd)
 
-[https://videopress.com/embed/Rwtk472a?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Rwtk472a?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Rwtk472a](https://videopress.com/embed/Rwtk472a)
 
-[https://videopress.com/embed/55qI3VDU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/55qI3VDU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/55qI3VDU](https://videopress.com/embed/55qI3VDU)
 
-[https://www.youtube.com/embed/bV6KNjGFr3c?feature=oembed](https://www.youtube.com/embed/bV6KNjGFr3c?feature=oembed)
+[https://www.youtube.com/embed/bV6KNjGFr3c](https://www.youtube.com/embed/bV6KNjGFr3c)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/32914525327_41de270487_o-289x300.jpg?resize=758%2C787)
 
@@ -37,9 +37,9 @@ The Darkness Tour descends on the University of Texas at Austin, where Bruce deb
 
 **1978:** [Preacher's Daughter](http://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
 
-[https://www.youtube.com/embed/zuMFOwrLZrQ?feature=oembed](https://www.youtube.com/embed/zuMFOwrLZrQ?feature=oembed)
+[https://www.youtube.com/embed/zuMFOwrLZrQ](https://www.youtube.com/embed/zuMFOwrLZrQ)
 
-[https://www.youtube.com/embed/SBsEGe0_LCg?feature=oembed](https://www.youtube.com/embed/SBsEGe0_LCg?feature=oembed)
+[https://www.youtube.com/embed/SBsEGe0_LCg](https://www.youtube.com/embed/SBsEGe0_LCg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1978-12-07b.png?resize=758%2C576&amp;ssl=1)
 
@@ -49,7 +49,7 @@ Bruce and the E Street Band bring the Born in the U.S.A. Tour to the Leon County
 
 **1984:**<br>
 
-[https://videopress.com/embed/fA98MpTq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fA98MpTq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fA98MpTq](https://videopress.com/embed/fA98MpTq)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1984-12-07.png?resize=758%2C2526&amp;ssl=1)
 
@@ -57,7 +57,7 @@ Bruce pays tribute to Harry Chapin at Carnegie Hall when Chapin is posthumously 
 
 **1987:** [Remember When the Music](https://estreetshuffle.com/index.php/2021/03/14/cover-me-remember-when-the-music/)
 
-[https://www.youtube.com/embed/BMSaVEbHt-U?feature=oembed](https://www.youtube.com/embed/BMSaVEbHt-U?feature=oembed)
+[https://www.youtube.com/embed/BMSaVEbHt-U](https://www.youtube.com/embed/BMSaVEbHt-U)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1987-12-07a.png?resize=758%2C301&amp;ssl=1)
 
@@ -67,13 +67,13 @@ Bruce records "" with Roy Bittan at Soundworks West in Los Angeles. It will rema
 
 **1990:** [Over the Rise](https://estreetshuffle.com/index.php/2020/07/12/roll-of-the-dice-over-the-rise/)
 
-[https://www.youtube.com/embed/SzmJ_HPqE9Q?feature=oembed](https://www.youtube.com/embed/SzmJ_HPqE9Q?feature=oembed)
+[https://www.youtube.com/embed/SzmJ_HPqE9Q](https://www.youtube.com/embed/SzmJ_HPqE9Q)
 
 Bruce's World Tour 1992 arrives in Philadelphia for a two-night stand at the Spectrum.
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/Me7NJnY_w6Y?feature=oembed](https://www.youtube.com/embed/Me7NJnY_w6Y?feature=oembed)
+[https://www.youtube.com/embed/Me7NJnY_w6Y](https://www.youtube.com/embed/Me7NJnY_w6Y)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/Courier_Post_Wed__Dec_9__1992_-scaled.jpg?resize=501%2C2560&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/Courier_Post_Wed__Dec_9__1992_-1.jpg?resize=758%2C982&amp;ssl=1)
 
@@ -85,7 +85,7 @@ Bruce salutes Bob Dylan at the annual Kennedy Center Honors, performing "."
 
 **1997:** [The Times They Are A-Changin'](https://estreetshuffle.com/index.php/2021/08/02/cover-me-the-times-they-are-a-changin/)
 
-[https://www.youtube.com/embed/Wa0fOE-x84k?feature=oembed](https://www.youtube.com/embed/Wa0fOE-x84k?feature=oembed)
+[https://www.youtube.com/embed/Wa0fOE-x84k](https://www.youtube.com/embed/Wa0fOE-x84k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1997-12-07.png?resize=758%2C779&amp;ssl=1)
 
@@ -93,13 +93,13 @@ Bruce flies to Potsdam to be interviewed and perform on German radio, where for 
 
 **1998:** <https://estreetshuffle.com/wp-content/uploads/2022/12/1998-12-07-Reunion.mp3>
 
-[https://videopress.com/embed/9Afvrv6O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9Afvrv6O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9Afvrv6O](https://videopress.com/embed/9Afvrv6O)
 
 Bruce, The Max Weinberg 7 and a host of friends play their fourth of five holiday shows at Asbury Park's Convention Hall in support of local charities. All of the week's usual suspects are present: Patti, Soozie, Nils, Southside, Lisa Lowell, The Miami Horns, Bobby Bandiera–and tonight, Bruce Hornsby joins as well.
 
 **2001:**<br>
 
-[https://www.youtube.com/embed/-m1UJNPz5FA?feature=oembed](https://www.youtube.com/embed/-m1UJNPz5FA?feature=oembed)
+[https://www.youtube.com/embed/-m1UJNPz5FA](https://www.youtube.com/embed/-m1UJNPz5FA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2001-12-07.png?resize=758%2C450&amp;ssl=1)
 
@@ -107,27 +107,27 @@ Bruce, the Max Weinberg 7, and a host of friends hold their second of a three-pa
 
 **2003:**<br>
 
-[https://www.youtube.com/embed/vQyZQwboFic?feature=oembed](https://www.youtube.com/embed/vQyZQwboFic?feature=oembed)
+[https://www.youtube.com/embed/vQyZQwboFic](https://www.youtube.com/embed/vQyZQwboFic)
 
-[https://www.youtube.com/embed/M5oTqgvpMyU?feature=oembed](https://www.youtube.com/embed/M5oTqgvpMyU?feature=oembed)
+[https://www.youtube.com/embed/M5oTqgvpMyU](https://www.youtube.com/embed/M5oTqgvpMyU)
 
-[https://www.youtube.com/embed/afqArLCQVKg?feature=oembed](https://www.youtube.com/embed/afqArLCQVKg?feature=oembed)
+[https://www.youtube.com/embed/afqArLCQVKg](https://www.youtube.com/embed/afqArLCQVKg)
 
-[https://www.youtube.com/embed/57-oIzaVS9s?feature=oembed](https://www.youtube.com/embed/57-oIzaVS9s?feature=oembed)
+[https://www.youtube.com/embed/57-oIzaVS9s](https://www.youtube.com/embed/57-oIzaVS9s)
 
-[https://www.youtube.com/embed/9QSZsvxHxV8?feature=oembed](https://www.youtube.com/embed/9QSZsvxHxV8?feature=oembed)
+[https://www.youtube.com/embed/9QSZsvxHxV8](https://www.youtube.com/embed/9QSZsvxHxV8)
 
 Bruce and the E Street Band gather at the Carousel House in Asbury Park, where a small crowd of sixty lucky fans witness the last E Street Band performance with Clarence Clemons. Bruce and the band are filming a special performance to promote the release of and seven songs from that album are played live for the first time. The band is complemented by The Miami Horns and David Lindley on violin. For more highlights from this show, see by Marietta Phillips, who is at the show tonight.
 
 **2010:** *The Promise*, [today's guest-blog](https://estreetshuffle.com/index.php/2020/12/07/where-the-band-was-asbury-park-december-7-2010-mariettas-story/)
 
-[https://www.youtube.com/embed/NZ4YA6aj7rA?feature=oembed](https://www.youtube.com/embed/NZ4YA6aj7rA?feature=oembed)
+[https://www.youtube.com/embed/NZ4YA6aj7rA](https://www.youtube.com/embed/NZ4YA6aj7rA)
 
-[https://www.youtube.com/embed/itpktRH1iig?feature=oembed](https://www.youtube.com/embed/itpktRH1iig?feature=oembed)
+[https://www.youtube.com/embed/itpktRH1iig](https://www.youtube.com/embed/itpktRH1iig)
 
-[https://www.youtube.com/embed/Z6OCZFzHmiA?feature=oembed](https://www.youtube.com/embed/Z6OCZFzHmiA?feature=oembed)
+[https://www.youtube.com/embed/Z6OCZFzHmiA](https://www.youtube.com/embed/Z6OCZFzHmiA)
 
-[https://www.youtube.com/embed/-X3m6mjtFFs?feature=oembed](https://www.youtube.com/embed/-X3m6mjtFFs?feature=oembed)
+[https://www.youtube.com/embed/-X3m6mjtFFs](https://www.youtube.com/embed/-X3m6mjtFFs)
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pb-2YBn1AsqUys3Tk4Jtiyk](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pb-2YBn1AsqUys3Tk4Jtiyk)
 
@@ -137,7 +137,7 @@ Five years after Sting saluted Bruce at the Kennedy Center Honors, Bruce recipro
 
 **2014:** [I Hung My Head](https://estreetshuffle.com/index.php/2020/03/02/cover-me-i-hung-my-head/)
 
-[https://www.youtube.com/embed/BwyIUWtGyh0?feature=oembed](https://www.youtube.com/embed/BwyIUWtGyh0?feature=oembed)
+[https://www.youtube.com/embed/BwyIUWtGyh0](https://www.youtube.com/embed/BwyIUWtGyh0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2014-12-07.png?resize=758%2C710&amp;ssl=1)
 

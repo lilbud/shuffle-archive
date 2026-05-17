@@ -19,7 +19,7 @@ In honor of Buddy Holly's birthday, Bruce tour premieres "" as an encore at his 
 
 **1984:** [Rave On](http://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)
 
-[https://videopress.com/embed/tkC2vmHI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tkC2vmHI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/tkC2vmHI](https://videopress.com/embed/tkC2vmHI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1984-09-07-291x300.jpg?resize=758%2C782)
 
@@ -27,15 +27,15 @@ In honor of Buddy Holly's birthday, Bruce tour premieres "" as an encore at his 
 
 **1988**[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)
 
-[https://www.youtube.com/embed/M4K7XZGeHTE?feature=oembed](https://www.youtube.com/embed/M4K7XZGeHTE?feature=oembed)
+[https://www.youtube.com/embed/M4K7XZGeHTE](https://www.youtube.com/embed/M4K7XZGeHTE)
 
 Night Two at Fenway Park on the Rising Tour features the tour premiere of "," a reprise opener of "" and a Peter Wolf guest appearance on the show-closing "."
 
 **2003:** [Frankie](http://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)[Diddy Wah Diddy](https://estreetshuffle.com/index.php/2021/06/11/cover-me-diddy-wah-diddy/)[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)
 
-[https://videopress.com/embed/pgo0OErR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pgo0OErR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/pgo0OErR](https://videopress.com/embed/pgo0OErR)
 
-[https://www.youtube.com/embed/KOQYe1Dbi8k?feature=oembed](https://www.youtube.com/embed/KOQYe1Dbi8k?feature=oembed)
+[https://www.youtube.com/embed/KOQYe1Dbi8k](https://www.youtube.com/embed/KOQYe1Dbi8k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-09-07a-300x203.jpg?resize=754%2C510)
 
@@ -45,11 +45,11 @@ Bruce plays his first-ever show at Wrigley Field in Chicago when the Wrecking Ba
 
 **2012:** [Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)[None But the Brave](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)
 
-[https://www.youtube.com/embed/Pshj7jaGkck?feature=oembed](https://www.youtube.com/embed/Pshj7jaGkck?feature=oembed)
+[https://www.youtube.com/embed/Pshj7jaGkck](https://www.youtube.com/embed/Pshj7jaGkck)
 
-[https://www.youtube.com/embed/OuvujTkRiDE?feature=oembed](https://www.youtube.com/embed/OuvujTkRiDE?feature=oembed)
+[https://www.youtube.com/embed/OuvujTkRiDE](https://www.youtube.com/embed/OuvujTkRiDE)
 
-[https://www.youtube.com/embed/LVgK3DNGIHc?feature=oembed](https://www.youtube.com/embed/LVgK3DNGIHc?feature=oembed)
+[https://www.youtube.com/embed/LVgK3DNGIHc](https://www.youtube.com/embed/LVgK3DNGIHc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2012-09-07a-212x300.jpg?resize=758%2C1072)
 
@@ -59,13 +59,13 @@ A show for the ages at Citizens Bank Park in Philadelphia–clocking in at 4:04,
 
 **2016:** *eleven*[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)[report](http://estreetshuffle.com/index.php/2018/09/07/where-the-band-was-philadelphia-september-7-2016/)*Where the Band Was*
 
-[https://www.youtube.com/embed/HdiC-K2O06Y?feature=oembed](https://www.youtube.com/embed/HdiC-K2O06Y?feature=oembed)
+[https://www.youtube.com/embed/HdiC-K2O06Y](https://www.youtube.com/embed/HdiC-K2O06Y)
 
-[https://www.youtube.com/embed/tWAWaM4B2Qk?feature=oembed](https://www.youtube.com/embed/tWAWaM4B2Qk?feature=oembed)
+[https://www.youtube.com/embed/tWAWaM4B2Qk](https://www.youtube.com/embed/tWAWaM4B2Qk)
 
-[https://www.youtube.com/embed/aJW7C2o__gY?feature=oembed](https://www.youtube.com/embed/aJW7C2o__gY?feature=oembed)
+[https://www.youtube.com/embed/aJW7C2o__gY](https://www.youtube.com/embed/aJW7C2o__gY)
 
-[https://www.youtube.com/embed/626ioFGJtwk?feature=oembed](https://www.youtube.com/embed/626ioFGJtwk?feature=oembed)
+[https://www.youtube.com/embed/626ioFGJtwk](https://www.youtube.com/embed/626ioFGJtwk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2016-09-07a-182x300.jpg?resize=758%2C1249)
 
@@ -81,7 +81,7 @@ On the 20th anniversary of the September 11th terror attacks, a new documentary 
 
 **2021:**<br>
 
-[https://www.youtube.com/embed/atrdaj1mmLU?feature=oembed](https://www.youtube.com/embed/atrdaj1mmLU?feature=oembed)
+[https://www.youtube.com/embed/atrdaj1mmLU](https://www.youtube.com/embed/atrdaj1mmLU)
 
 Bruce postpones his scheduled show in Syracuse to the following April due to his peptic ulcer disease.
 
@@ -99,6 +99,6 @@ After more than a year and two postponements, Bruce and the E Street Band take t
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/yR5ELD4LcPA?feature=oembed](https://www.youtube.com/embed/yR5ELD4LcPA?feature=oembed)
+[https://www.youtube.com/embed/yR5ELD4LcPA](https://www.youtube.com/embed/yR5ELD4LcPA)
 
-[https://www.youtube.com/embed/nZnkmNiQZs0?feature=oembed](https://www.youtube.com/embed/nZnkmNiQZs0?feature=oembed)
+[https://www.youtube.com/embed/nZnkmNiQZs0](https://www.youtube.com/embed/nZnkmNiQZs0)

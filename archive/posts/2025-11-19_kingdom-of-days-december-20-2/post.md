@@ -15,7 +15,7 @@ Bruce goes to New York City to visit WPLJ-FM, where he sits down for an intervie
 
 **1974:**<br>
 
-[https://www.youtube.com/embed/w-12DlTy7v0?feature=oembed](https://www.youtube.com/embed/w-12DlTy7v0?feature=oembed)
+[https://www.youtube.com/embed/w-12DlTy7v0](https://www.youtube.com/embed/w-12DlTy7v0)
 
 Bruce continues his first ever tour of Canada with a show at the National Arts Center in Ottawa.
 
@@ -29,9 +29,9 @@ Bruce completes his west coast Darkness swing with a show at the Seattle Center 
 
 **1978:** [Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)[Rave On](http://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)
 
-[https://www.youtube.com/embed/hYFx4Yr8-D8?feature=oembed](https://www.youtube.com/embed/hYFx4Yr8-D8?feature=oembed)
+[https://www.youtube.com/embed/hYFx4Yr8-D8](https://www.youtube.com/embed/hYFx4Yr8-D8)
 
-[https://www.youtube.com/embed/TmV-b1mlUxM?feature=oembed](https://www.youtube.com/embed/TmV-b1mlUxM?feature=oembed)
+[https://www.youtube.com/embed/TmV-b1mlUxM](https://www.youtube.com/embed/TmV-b1mlUxM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1978-12-20.png?resize=758%2C2773&amp;ssl=1)
 
@@ -39,7 +39,7 @@ Bruce joins Tim McLoone's Holiday Express on stage at Tradewinds in Sea Bright, 
 
 **1994:**<br>
 
-[https://www.youtube.com/embed/nbv2xybqvpQ?feature=oembed](https://www.youtube.com/embed/nbv2xybqvpQ?feature=oembed)
+[https://www.youtube.com/embed/nbv2xybqvpQ](https://www.youtube.com/embed/nbv2xybqvpQ)
 
 Bruce holds his annual Christmas party at McLoone's Rum Runner in Sea Bright, where he joins Bobby Bandiera and his band on stage for a set of cover classics.
 

@@ -21,11 +21,11 @@ Bruce and the band open for Freddie King at Muther's Music Emporium in Nashville
 
 **1974:** [Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
-[https://www.youtube.com/embed/vi3gv3GLZ3s?feature=oembed](https://www.youtube.com/embed/vi3gv3GLZ3s?feature=oembed)
+[https://www.youtube.com/embed/vi3gv3GLZ3s](https://www.youtube.com/embed/vi3gv3GLZ3s)
 
-[https://www.youtube.com/embed/wtmph4Uq4xw?feature=oembed](https://www.youtube.com/embed/wtmph4Uq4xw?feature=oembed)
+[https://www.youtube.com/embed/wtmph4Uq4xw](https://www.youtube.com/embed/wtmph4Uq4xw)
 
-[https://www.youtube.com/embed/pYqE2gyiUSE?feature=oembed](https://www.youtube.com/embed/pYqE2gyiUSE?feature=oembed)
+[https://www.youtube.com/embed/pYqE2gyiUSE](https://www.youtube.com/embed/pYqE2gyiUSE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1974-01-29.png?resize=486%2C1302&amp;ssl=1)
 
@@ -33,7 +33,7 @@ Bruce and the E Street Band play Iowa State University on The River Tour.
 
 **1981:**<br>
 
-[https://videopress.com/embed/UVgOmD6M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UVgOmD6M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/UVgOmD6M](https://videopress.com/embed/UVgOmD6M)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Des_Moines_Register_1981_01_30_Page_7.jpg?resize=758%2C1286&amp;ssl=1)
 
@@ -43,13 +43,13 @@ Bruce records "" at A&M Studios in Los Angeles. It will be released seven years 
 
 **1991:** [Goin' Cali](http://estreetshuffle.com/index.php/2019/01/01/roll-of-the-dice-goin-cali/)*Tracks*
 
-[https://www.youtube.com/embed/hSwtuwgZ9J4?feature=oembed](https://www.youtube.com/embed/hSwtuwgZ9J4?feature=oembed)
+[https://www.youtube.com/embed/hSwtuwgZ9J4](https://www.youtube.com/embed/hSwtuwgZ9J4)
 
 Bruce plays the second night of four in Tokyo on his solo acoustic tour.
 
 **1997:**<br>
 
-[https://videopress.com/embed/4XW8xsgT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4XW8xsgT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4XW8xsgT](https://videopress.com/embed/4XW8xsgT)
 
 At the Paramount Theater in Asbury Park, Bruce rehearses for an upcoming benefit concert for slain police office Patrick King.
 
@@ -61,7 +61,7 @@ Bruce and the E Street Band hold a press conference (Bruce's first in over twent
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/b5-nERmAwo8?feature=oembed](https://www.youtube.com/embed/b5-nERmAwo8?feature=oembed)
+[https://www.youtube.com/embed/b5-nERmAwo8](https://www.youtube.com/embed/b5-nERmAwo8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Pittsburgh_Post_Gazette_2009_01_30_Page_48.jpg?resize=758%2C907&amp;ssl=1)
 
@@ -69,9 +69,9 @@ Bruce plays a benefit for his kids' school at The Stone Pony in Asbury Park, joi
 
 **2011:**<br>
 
-[https://www.youtube.com/embed/6V07k6CHBHA?feature=oembed](https://www.youtube.com/embed/6V07k6CHBHA?feature=oembed)
+[https://www.youtube.com/embed/6V07k6CHBHA](https://www.youtube.com/embed/6V07k6CHBHA)
 
-[https://www.youtube.com/embed/l7420VsTrPU?feature=oembed](https://www.youtube.com/embed/l7420VsTrPU?feature=oembed)
+[https://www.youtube.com/embed/l7420VsTrPU](https://www.youtube.com/embed/l7420VsTrPU)
 
 The final night in Cape Town brings tour premieres, including the first-ever performance of "" Mos Def guest-stars in the encore for "Sun City."
 
@@ -79,22 +79,22 @@ The final night in Cape Town brings tour premieres, including the first-ever per
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/2014-0129-300x200.jpg?resize=758%2C506)
 
-[https://www.youtube.com/embed/3JlUbRAxNCY?feature=oembed](https://www.youtube.com/embed/3JlUbRAxNCY?feature=oembed)
+[https://www.youtube.com/embed/3JlUbRAxNCY](https://www.youtube.com/embed/3JlUbRAxNCY)
 
-[https://www.youtube.com/embed/bWMS6wt_A5I?feature=oembed](https://www.youtube.com/embed/bWMS6wt_A5I?feature=oembed)
+[https://www.youtube.com/embed/bWMS6wt_A5I](https://www.youtube.com/embed/bWMS6wt_A5I)
 
 Also today: Le Grand Journal publishes Antoine de Caunes' interview with Bruce.
 
-[https://www.youtube.com/embed/js0SOEnIOlw?feature=oembed](https://www.youtube.com/embed/js0SOEnIOlw?feature=oembed)
+[https://www.youtube.com/embed/js0SOEnIOlw](https://www.youtube.com/embed/js0SOEnIOlw)
 
 The River Tour (2016 Edition) moves on to the Verizon Center in Washington, DC.
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/oazZpdk52f8?feature=oembed](https://www.youtube.com/embed/oazZpdk52f8?feature=oembed)
+[https://www.youtube.com/embed/oazZpdk52f8](https://www.youtube.com/embed/oazZpdk52f8)
 
-[https://www.youtube.com/embed/AYiOzTSjIh8?feature=oembed](https://www.youtube.com/embed/AYiOzTSjIh8?feature=oembed)
+[https://www.youtube.com/embed/AYiOzTSjIh8](https://www.youtube.com/embed/AYiOzTSjIh8)
 
-[https://www.youtube.com/embed/upi3Q9jUN1U?feature=oembed](https://www.youtube.com/embed/upi3Q9jUN1U?feature=oembed)
+[https://www.youtube.com/embed/upi3Q9jUN1U](https://www.youtube.com/embed/upi3Q9jUN1U)
 
-[https://www.youtube.com/embed/GknaqyXKstQ?feature=oembed](https://www.youtube.com/embed/GknaqyXKstQ?feature=oembed)
+[https://www.youtube.com/embed/GknaqyXKstQ](https://www.youtube.com/embed/GknaqyXKstQ)

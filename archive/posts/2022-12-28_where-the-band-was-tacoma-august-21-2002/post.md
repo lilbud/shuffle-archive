@@ -21,7 +21,7 @@ The show just before us, however, was in Portland, and they got "" early in the 
 
 [Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)*The Rising*
 
-[https://www.youtube.com/embed/POE4Ab8EDzQ?feature=oembed](https://www.youtube.com/embed/POE4Ab8EDzQ?feature=oembed)
+[https://www.youtube.com/embed/POE4Ab8EDzQ](https://www.youtube.com/embed/POE4Ab8EDzQ)
 
 It's a good thing I felt that way, because sure enough, the setlist had reverted to the original one used for most of the still-young tour… all the way up until the very end of the main set.
 
@@ -37,7 +37,7 @@ And then he launched into the very first performance of the modern-day arrangeme
 
 [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)*alive*
 
-[https://www.youtube.com/embed/EtJH29n-76Y?feature=oembed](https://www.youtube.com/embed/EtJH29n-76Y?feature=oembed)
+[https://www.youtube.com/embed/EtJH29n-76Y](https://www.youtube.com/embed/EtJH29n-76Y)
 
 This new arrangement of "Dancing in the Dark" , and Bruce sensed it. Looking very self-satisfied, he called another audible, replacing the setlisted "Glory Days" with the tour premiere of "." Bruce was loose, happy, and mugging for the crowd, breaking out his best "Robot" dance moves.
 

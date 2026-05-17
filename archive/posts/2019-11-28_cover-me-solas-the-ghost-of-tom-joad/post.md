@@ -3,4 +3,4 @@ If your band's genre is a mix of Irish traditional and americana music, sooner o
 
 [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)
 
-[https://www.youtube.com/embed/fNGjSHiYvoQ?feature=oembed](https://www.youtube.com/embed/fNGjSHiYvoQ?feature=oembed)
+[https://www.youtube.com/embed/fNGjSHiYvoQ](https://www.youtube.com/embed/fNGjSHiYvoQ)

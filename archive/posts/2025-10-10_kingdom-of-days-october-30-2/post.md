@@ -5,13 +5,13 @@ Castiles drummer Bart Haynes quits the band. A year later, Bart will join the Ma
 
 **1965:**<br>
 
-[https://www.youtube.com/embed/p53I93UK9j0?feature=oembed](https://www.youtube.com/embed/p53I93UK9j0?feature=oembed)
+[https://www.youtube.com/embed/p53I93UK9j0](https://www.youtube.com/embed/p53I93UK9j0)
 
 The Bruce Springsteen Band opens for Cactus at Virginia Commonwealth University in Richmond.
 
 **1971:**<br>
 
-[https://www.youtube.com/embed/s_qjKVhl8xo?feature=oembed](https://www.youtube.com/embed/s_qjKVhl8xo?feature=oembed)
+[https://www.youtube.com/embed/s_qjKVhl8xo](https://www.youtube.com/embed/s_qjKVhl8xo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/poster_1971-10-30-193x300.jpg?resize=758%2C1178)
 
@@ -23,7 +23,7 @@ Patti Smith guest-stars on Night Three (of six) at the Palladium in New York Cit
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/NcAdOEJeZfo?feature=oembed](https://www.youtube.com/embed/NcAdOEJeZfo?feature=oembed)
+[https://www.youtube.com/embed/NcAdOEJeZfo](https://www.youtube.com/embed/NcAdOEJeZfo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Philadelphia_Daily_News_1976_11_17_Page_31-scaled.jpg?resize=758%2C1412&amp;ssl=1)
 
@@ -31,7 +31,7 @@ Bruce and the E Street Band kick off a four-night stand at the Los Angeles Sport
 
 **1980:**[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://www.youtube.com/embed/mARXAqjapMc?feature=oembed](https://www.youtube.com/embed/mARXAqjapMc?feature=oembed)
+[https://www.youtube.com/embed/mARXAqjapMc](https://www.youtube.com/embed/mARXAqjapMc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-10-30a-300x222.png?resize=758%2C561)
 
@@ -43,15 +43,15 @@ Bruce releases the latest single, the from his mega-hit album.
 
 **1984:** [title track](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)*Born in the U.S.A.*
 
-[https://www.youtube.com/embed/tRx212PUa4g?feature=oembed](https://www.youtube.com/embed/tRx212PUa4g?feature=oembed)
+[https://www.youtube.com/embed/tRx212PUa4g](https://www.youtube.com/embed/tRx212PUa4g)
 
 Bruce premieres the video for his latest single, "," the first single from Watch the video and news coverage below.
 
 **1987:** [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)*.* [Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)
 
-[https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed](https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed)
+[https://www.youtube.com/embed/idnJnjV_8rg](https://www.youtube.com/embed/idnJnjV_8rg)
 
-[https://www.youtube.com/embed/s6NtSB6I2cE?feature=oembed](https://www.youtube.com/embed/s6NtSB6I2cE?feature=oembed)
+[https://www.youtube.com/embed/s6NtSB6I2cE](https://www.youtube.com/embed/s6NtSB6I2cE)
 
 Also today, Bruce donates a complete signed collection of his albums to The Rainbow Foundation to raise money via auction for local children in need.
 
@@ -63,7 +63,7 @@ Bruce and his new touring band bring World Tour 1992 to Iowa State University in
 
 **1992:**<br>
 
-[https://videopress.com/embed/9XFkbcPs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9XFkbcPs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9XFkbcPs](https://videopress.com/embed/9XFkbcPs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/10/1992-10-30a.png?resize=758%2C915&amp;ssl=1)
 
@@ -73,9 +73,9 @@ Bruce's solo acoustic show at the TD Banknorth Garden in Boston is filmed but wi
 
 **2005:** [Matamoros Banks](http://estreetshuffle.com/index.php/2019/10/27/roll-of-the-dice-matamoros-banks/)[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)
 
-[https://www.youtube.com/embed/T5hpk4taBZY?feature=oembed](https://www.youtube.com/embed/T5hpk4taBZY?feature=oembed)
+[https://www.youtube.com/embed/T5hpk4taBZY](https://www.youtube.com/embed/T5hpk4taBZY)
 
-[https://www.youtube.com/embed/mCdwUtuwaJo?feature=oembed](https://www.youtube.com/embed/mCdwUtuwaJo?feature=oembed)
+[https://www.youtube.com/embed/mCdwUtuwaJo](https://www.youtube.com/embed/mCdwUtuwaJo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-10-30-300x228.png?resize=758%2C576)
 
@@ -85,23 +85,23 @@ Bruce and the Sessions Band complete their Scandinavian leg with a show at the G
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDomyuC3EcOwtaHX3Jno-iX](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDomyuC3EcOwtaHX3Jno-iX)
 
-[https://www.youtube.com/embed/l3DkvDa6LIw?feature=oembed](https://www.youtube.com/embed/l3DkvDa6LIw?feature=oembed)
+[https://www.youtube.com/embed/l3DkvDa6LIw](https://www.youtube.com/embed/l3DkvDa6LIw)
 
 At Night Two in Los Angeles on the Magic Tour, Bruce celebrates Halloween a day early, once again (as in Halloweens past) emerging from a coffin to start the show. Bruce also tour premieres "" during the encores.
 
 **2007:** [Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
 
-[https://www.youtube.com/embed/YweY5JtFZH4?feature=oembed](https://www.youtube.com/embed/YweY5JtFZH4?feature=oembed)
+[https://www.youtube.com/embed/YweY5JtFZH4](https://www.youtube.com/embed/YweY5JtFZH4)
 
-[https://www.youtube.com/embed/zPn9-l_wmtA?feature=oembed](https://www.youtube.com/embed/zPn9-l_wmtA?feature=oembed)
+[https://www.youtube.com/embed/zPn9-l_wmtA](https://www.youtube.com/embed/zPn9-l_wmtA)
 
 Bruce and Roy make a guest appearance with U2 and Patti Smith at Night Two of the Rock and Roll Hall of Fame 25th Anniversary Concerts.
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/be8YuyneES4?feature=oembed](https://www.youtube.com/embed/be8YuyneES4?feature=oembed)
+[https://www.youtube.com/embed/be8YuyneES4](https://www.youtube.com/embed/be8YuyneES4)
 
-[https://www.youtube.com/embed/1eWIYhdk-Eg?feature=oembed](https://www.youtube.com/embed/1eWIYhdk-Eg?feature=oembed)
+[https://www.youtube.com/embed/1eWIYhdk-Eg](https://www.youtube.com/embed/1eWIYhdk-Eg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2009-10-30-89x300.png?resize=758%2C2555)
 
@@ -125,7 +125,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-30a-300x200.jpg?resize=758%2C505)
 
-[https://videopress.com/embed/PAyeM8Lt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PAyeM8Lt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PAyeM8Lt](https://videopress.com/embed/PAyeM8Lt)
 
 Fifth-grader Camryn Sherer interviews Bruce for her school newspaper and scores a genuine scoop when she asks him to share something no one knows about him.
 
@@ -135,4 +135,4 @@ Fifth-grader Camryn Sherer interviews Bruce for her school newspaper and scores 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2019-10-30b-1.jpg?resize=758%2C205&amp;ssl=1)
 
-[https://videopress.com/embed/PT93WuXK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PT93WuXK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PT93WuXK](https://videopress.com/embed/PT93WuXK)

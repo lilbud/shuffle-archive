@@ -11,9 +11,9 @@ Bruce and the band play their last night at Max's Kansas City in New York. David
 
 **1975**[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)[Incident on 57th Street,](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
-[https://www.youtube.com/embed/PeUtYsHISRk?feature=oembed](https://www.youtube.com/embed/PeUtYsHISRk?feature=oembed)
+[https://www.youtube.com/embed/PeUtYsHISRk](https://www.youtube.com/embed/PeUtYsHISRk)
 
-[https://www.youtube.com/embed/dRRQVfQZnZQ?feature=oembed](https://www.youtube.com/embed/dRRQVfQZnZQ?feature=oembed)
+[https://www.youtube.com/embed/dRRQVfQZnZQ](https://www.youtube.com/embed/dRRQVfQZnZQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1992-02-05.jpg?resize=758%2C1270&amp;ssl=1)
 
@@ -25,13 +25,13 @@ Bruce appears on the cover of , in a photograph taken by Annie Leibovitz. That e
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-02-05-250x300.jpg?resize=758%2C909)
 
-[https://videopress.com/embed/qge220wF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qge220wF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/qge220wF](https://videopress.com/embed/qge220wF)
 
 On ABC-TV's news series , Hugh Downs profiles Bruce. Watch the full segment below.
 
 **1985:***20/20*
 
-[https://www.youtube.com/embed/RJ43PnLRKbA?feature=oembed](https://www.youtube.com/embed/RJ43PnLRKbA?feature=oembed)
+[https://www.youtube.com/embed/RJ43PnLRKbA](https://www.youtube.com/embed/RJ43PnLRKbA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Manhattan_Mercury_Thu__Feb_7__1985_-scaled.jpg?resize=758%2C1295&amp;ssl=1)
 
@@ -51,7 +51,7 @@ Bruce plays his second of two solo acoustic shows in Brisbane.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/02/1981-02-05-resized.jpg?resize=758%2C1568&amp;ssl=1)
 
-[https://videopress.com/embed/iioMYzsu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iioMYzsu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/iioMYzsu](https://videopress.com/embed/iioMYzsu)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1975-02-05.png?resize=758%2C936&amp;ssl=1)
 
@@ -67,29 +67,29 @@ The High Hopes Tour moves on to Perth for the first of three nights. These are B
 
 **2014:**[Frankie Fell in Love](http://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)[The E Street Shuffle,](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)
 
-[https://www.youtube.com/embed/ytHX-zy5OQU?feature=oembed](https://www.youtube.com/embed/ytHX-zy5OQU?feature=oembed)
+[https://www.youtube.com/embed/ytHX-zy5OQU](https://www.youtube.com/embed/ytHX-zy5OQU)
 
-[https://www.youtube.com/embed/F6JLWmiyF4I?feature=oembed](https://www.youtube.com/embed/F6JLWmiyF4I?feature=oembed)
+[https://www.youtube.com/embed/F6JLWmiyF4I](https://www.youtube.com/embed/F6JLWmiyF4I)
 
-[https://www.youtube.com/embed/s35iEaTyHTY?feature=oembed](https://www.youtube.com/embed/s35iEaTyHTY?feature=oembed)
+[https://www.youtube.com/embed/s35iEaTyHTY](https://www.youtube.com/embed/s35iEaTyHTY)
 
-[https://www.youtube.com/embed/WZ5HUu_XdAI?feature=oembed](https://www.youtube.com/embed/WZ5HUu_XdAI?feature=oembed)
+[https://www.youtube.com/embed/WZ5HUu_XdAI](https://www.youtube.com/embed/WZ5HUu_XdAI)
 
-[https://www.youtube.com/embed/lENkVEyyKgk?feature=oembed](https://www.youtube.com/embed/lENkVEyyKgk?feature=oembed)
+[https://www.youtube.com/embed/lENkVEyyKgk](https://www.youtube.com/embed/lENkVEyyKgk)
 
 At his home in Colts Neck, Bruce interviews Eddie Vedder to promote Eddie's new album,
 
 **2022:** *Earthling.*
 
-[https://www.youtube.com/embed/PhqKCQXI8s0?feature=oembed](https://www.youtube.com/embed/PhqKCQXI8s0?feature=oembed)
+[https://www.youtube.com/embed/PhqKCQXI8s0](https://www.youtube.com/embed/PhqKCQXI8s0)
 
 Bruce and the E Street Band bring their first tour in six years to the Amway Center in Orlando, Florida.
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/q_T-oPu2Njc?feature=oembed](https://www.youtube.com/embed/q_T-oPu2Njc?feature=oembed)
+[https://www.youtube.com/embed/q_T-oPu2Njc](https://www.youtube.com/embed/q_T-oPu2Njc)
 
-[https://www.youtube.com/embed/vthBXU_-YhY?feature=oembed](https://www.youtube.com/embed/vthBXU_-YhY?feature=oembed)
+[https://www.youtube.com/embed/vthBXU_-YhY](https://www.youtube.com/embed/vthBXU_-YhY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/02/1981-02-05bresizew.jpg?resize=758%2C369&amp;ssl=1)
 

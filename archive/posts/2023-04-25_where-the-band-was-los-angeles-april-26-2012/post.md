@@ -25,23 +25,23 @@ The show itself was worth the initial scare: the setlist was great, from the "" 
 
 [Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)
 
-[https://www.youtube.com/embed/8jBuO9gkSRU?feature=oembed](https://www.youtube.com/embed/8jBuO9gkSRU?feature=oembed)
+[https://www.youtube.com/embed/8jBuO9gkSRU](https://www.youtube.com/embed/8jBuO9gkSRU)
 
 …to Tom Morello's several guest appearances…
 
-[https://www.youtube.com/embed/EEPn7CTjeuo?feature=oembed](https://www.youtube.com/embed/EEPn7CTjeuo?feature=oembed)
+[https://www.youtube.com/embed/EEPn7CTjeuo](https://www.youtube.com/embed/EEPn7CTjeuo)
 
 …to my personal highlight: the tour premiere of my favorite song, ""
 
 [https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness*[Something in the Night.](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)
 
-[https://www.youtube.com/embed/YdnzfAn72JQ?feature=oembed](https://www.youtube.com/embed/YdnzfAn72JQ?feature=oembed)
+[https://www.youtube.com/embed/YdnzfAn72JQ](https://www.youtube.com/embed/YdnzfAn72JQ)
 
 …to the encore surprise, "."
 
 [California Sun](https://estreetshuffle.com/index.php/2020/06/10/cover-me-california-sun/)
 
-[https://www.youtube.com/embed/DIukXYvEQPc?feature=oembed](https://www.youtube.com/embed/DIukXYvEQPc?feature=oembed)
+[https://www.youtube.com/embed/DIukXYvEQPc](https://www.youtube.com/embed/DIukXYvEQPc)
 
 Because we were late getting into the pit (at least we'd made it in!), we were in the back–but as it turned out, that meant we were dead-center during Bruce's crowd-surf, my first time for that, and a strange experience to feel your hero passing overhead.
 

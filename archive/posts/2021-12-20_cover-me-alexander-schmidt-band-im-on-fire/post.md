@@ -11,4 +11,4 @@ But their bluegrass-esque arrangement is wonderful, their harmonies are ethereal
 
 So take a listen and enjoy.
 
-[https://www.youtube.com/embed/IUT4q-7tYR0?feature=oembed](https://www.youtube.com/embed/IUT4q-7tYR0?feature=oembed)
+[https://www.youtube.com/embed/IUT4q-7tYR0](https://www.youtube.com/embed/IUT4q-7tYR0)

@@ -13,7 +13,7 @@ The Tunnel of Love Express Tour moves on to Chicagoland for the first of two nig
 
 **1988:**<br>
 
-[https://videopress.com/embed/N9EzSYt4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/N9EzSYt4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/N9EzSYt4](https://videopress.com/embed/N9EzSYt4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-16.jpg?resize=758%2C731&amp;ssl=1)
 
@@ -21,13 +21,13 @@ Bruce plays a solo acoustic show at Falkoner Salen in Copenhagen.
 
 **1996:**<br>
 
-[https://www.youtube.com/embed/_p690qQT8L0?feature=oembed](https://www.youtube.com/embed/_p690qQT8L0?feature=oembed)
+[https://www.youtube.com/embed/_p690qQT8L0](https://www.youtube.com/embed/_p690qQT8L0)
 
 Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on "Take It Easy."
 
 **2004:**<br>
 
-[https://www.youtube.com/embed/b7y7zEisP1k?feature=oembed](https://www.youtube.com/embed/b7y7zEisP1k?feature=oembed)
+[https://www.youtube.com/embed/b7y7zEisP1k](https://www.youtube.com/embed/b7y7zEisP1k)
 
 Bruce rehearses with the Sessions Band at the Paramount Theater in Asbury Park.
 
@@ -37,11 +37,11 @@ The Magic Tour moves on to Xcel Energy Center in St. Paul.
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/JgVGkrDf42M?feature=oembed](https://www.youtube.com/embed/JgVGkrDf42M?feature=oembed)
+[https://www.youtube.com/embed/JgVGkrDf42M](https://www.youtube.com/embed/JgVGkrDf42M)
 
-[https://www.youtube.com/embed/FsyOByxpBXM?feature=oembed](https://www.youtube.com/embed/FsyOByxpBXM?feature=oembed)
+[https://www.youtube.com/embed/FsyOByxpBXM](https://www.youtube.com/embed/FsyOByxpBXM)
 
-[https://www.youtube.com/embed/nNvJ_sZfNwQ?feature=oembed](https://www.youtube.com/embed/nNvJ_sZfNwQ?feature=oembed)
+[https://www.youtube.com/embed/nNvJ_sZfNwQ](https://www.youtube.com/embed/nNvJ_sZfNwQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2008-03-16.jpg?resize=527%2C824&amp;ssl=1)
 
@@ -49,13 +49,13 @@ Night Two in Brisbane opens with the live debut of "High Hopes."
 
 **2013:**<br>
 
-[https://www.youtube.com/embed/Z7ksWwv3GtQ?feature=oembed](https://www.youtube.com/embed/Z7ksWwv3GtQ?feature=oembed)
+[https://www.youtube.com/embed/Z7ksWwv3GtQ](https://www.youtube.com/embed/Z7ksWwv3GtQ)
 
-[https://www.youtube.com/embed/kWWooLaeMjc?feature=oembed](https://www.youtube.com/embed/kWWooLaeMjc?feature=oembed)
+[https://www.youtube.com/embed/kWWooLaeMjc](https://www.youtube.com/embed/kWWooLaeMjc)
 
-[https://www.youtube.com/embed/yOR_WJF6Bp4?feature=oembed](https://www.youtube.com/embed/yOR_WJF6Bp4?feature=oembed)
+[https://www.youtube.com/embed/yOR_WJF6Bp4](https://www.youtube.com/embed/yOR_WJF6Bp4)
 
-[https://www.youtube.com/embed/7AnPee9K7iE?feature=oembed](https://www.youtube.com/embed/7AnPee9K7iE?feature=oembed)
+[https://www.youtube.com/embed/7AnPee9K7iE](https://www.youtube.com/embed/7AnPee9K7iE)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -65,12 +65,12 @@ Bruce returns to the stage at Wells Fargo Center in Philadelphia, recovered from
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/r6p-giPN5qI?feature=oembed](https://www.youtube.com/embed/r6p-giPN5qI?feature=oembed)
+[https://www.youtube.com/embed/r6p-giPN5qI](https://www.youtube.com/embed/r6p-giPN5qI)
 
-[https://www.youtube.com/embed/G_bAlbzUkVk?feature=oembed](https://www.youtube.com/embed/G_bAlbzUkVk?feature=oembed)
+[https://www.youtube.com/embed/G_bAlbzUkVk](https://www.youtube.com/embed/G_bAlbzUkVk)
 
-[https://www.youtube.com/embed/jMnCm66J_oQ?feature=oembed](https://www.youtube.com/embed/jMnCm66J_oQ?feature=oembed)
+[https://www.youtube.com/embed/jMnCm66J_oQ](https://www.youtube.com/embed/jMnCm66J_oQ)
 
-[https://www.youtube.com/embed/gn8tNdOaWQY?feature=oembed](https://www.youtube.com/embed/gn8tNdOaWQY?feature=oembed)
+[https://www.youtube.com/embed/gn8tNdOaWQY](https://www.youtube.com/embed/gn8tNdOaWQY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Philadelphia_Inquirer_Sat__Mar_18__2023_-scaled.jpg?resize=758%2C1535&amp;ssl=1)

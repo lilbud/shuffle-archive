@@ -19,15 +19,15 @@ On his 24th birthday, Bruce records two of his greatest songs: "" and "Rosalita 
 
 **1973:** [Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
-[https://www.youtube.com/embed/ioQcvijom28?feature=oembed](https://www.youtube.com/embed/ioQcvijom28?feature=oembed)
+[https://www.youtube.com/embed/ioQcvijom28](https://www.youtube.com/embed/ioQcvijom28)
 
-[https://www.youtube.com/embed/JuVKhS13eKY?feature=oembed](https://www.youtube.com/embed/JuVKhS13eKY?feature=oembed)
+[https://www.youtube.com/embed/JuVKhS13eKY](https://www.youtube.com/embed/JuVKhS13eKY)
 
 Bruce plays his first known birthday show, turning in a great performance at the University of Michigan in Ann Arbor on the day he turns 26. In the encores, Bruce and the E Street Band play "" for the very first time.
 
 **1975:** [Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
-[https://www.youtube.com/embed/t87UMZI1cnE?feature=oembed](https://www.youtube.com/embed/t87UMZI1cnE?feature=oembed)
+[https://www.youtube.com/embed/t87UMZI1cnE](https://www.youtube.com/embed/t87UMZI1cnE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1975-09-23-270x300.jpg?resize=758%2C842)
 
@@ -47,7 +47,7 @@ Bruce spends his 36th birthday on stage at Denver's Mile High Stadium. The night
 
 **1985:**<br>
 
-[https://videopress.com/embed/Bpja26tF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Bpja26tF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Bpja26tF](https://videopress.com/embed/Bpja26tF)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-23a-230x300.jpg?resize=758%2C989)
 
@@ -67,11 +67,11 @@ A special Human Rights Now! show in Oakland on the occasion of Bruce's 39th birt
 
 **1988:** [Blowin' in the Wind](http://estreetshuffle.com/index.php/2019/12/19/cover-me-blowin-in-the-wind/)[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)[I Ain't Got No Home](http://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)
 
-[https://www.youtube.com/embed/-nGfxpXnuBQ?feature=oembed](https://www.youtube.com/embed/-nGfxpXnuBQ?feature=oembed)
+[https://www.youtube.com/embed/-nGfxpXnuBQ](https://www.youtube.com/embed/-nGfxpXnuBQ)
 
-[https://www.youtube.com/embed/pZ-8l_MjUlU?feature=oembed](https://www.youtube.com/embed/pZ-8l_MjUlU?feature=oembed)
+[https://www.youtube.com/embed/pZ-8l_MjUlU](https://www.youtube.com/embed/pZ-8l_MjUlU)
 
-[https://videopress.com/embed/ObIM11p3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ObIM11p3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ObIM11p3](https://videopress.com/embed/ObIM11p3)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1988-09-23a.jpg?resize=758%2C1749&amp;ssl=1)
 
@@ -105,4 +105,4 @@ Bruce announces a new concert film,
 
 **2021:** *The 1979 Legendary No Nukes Concerts.*
 
-[https://www.youtube.com/embed/HUO41TDicD0?feature=oembed](https://www.youtube.com/embed/HUO41TDicD0?feature=oembed)
+[https://www.youtube.com/embed/HUO41TDicD0](https://www.youtube.com/embed/HUO41TDicD0)

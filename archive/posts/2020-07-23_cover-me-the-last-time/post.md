@@ -3,17 +3,17 @@ The first time Bruce Springsteen played "The Last Time" was in Atlanta in 1978. 
 
 The next time Bruce played "The Last Time" was the very last night of the Darkness Tour–New Years Day, 1979. (That recording is just fine.)
 
-[https://www.youtube.com/embed/Fhz3mXriwgc?feature=oembed](https://www.youtube.com/embed/Fhz3mXriwgc?feature=oembed)
+[https://www.youtube.com/embed/Fhz3mXriwgc](https://www.youtube.com/embed/Fhz3mXriwgc)
 
 But the best time Bruce played "The Last Time" was… well, the last time.
 
 On October 9, 2009, Bruce bid farewell to Giants Stadium (soon to meet the wrecking ball) by honoring an inspired fan request during the encore of his 24th and final concert at that storied venue.
 
-[https://www.youtube.com/embed/UvtrrLkreH8?feature=oembed](https://www.youtube.com/embed/UvtrrLkreH8?feature=oembed)
+[https://www.youtube.com/embed/UvtrrLkreH8](https://www.youtube.com/embed/UvtrrLkreH8)
 
 The Rolling Stones, of course, have played "The Last Time" lots of times. It's their song, after all, reaching #9 on the Billboard Hot 100 in the U.S. and topping the UK Singles chart upon its release in 1965.
 
-[https://www.youtube.com/embed/gdFQtbXAWdc?feature=oembed](https://www.youtube.com/embed/gdFQtbXAWdc?feature=oembed)
+[https://www.youtube.com/embed/gdFQtbXAWdc](https://www.youtube.com/embed/gdFQtbXAWdc)
 
 Well, it's sort of their song–they adapted it from a 1958 recording by The Staple Singers, who adapted theirs from a traditional song that goes back a lot further (and further forward, I guess, since there's that whole "Bittersweet Symphony" brouhaha as well).
 

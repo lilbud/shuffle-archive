@@ -21,11 +21,11 @@ Bruce plays his first show in Nebraska since the release of the album by the sam
 
 **1984:** *Nebraska*
 
-[https://www.youtube.com/embed/CT9v6FS9R-4?feature=oembed](https://www.youtube.com/embed/CT9v6FS9R-4?feature=oembed)
+[https://www.youtube.com/embed/CT9v6FS9R-4](https://www.youtube.com/embed/CT9v6FS9R-4)
 
-[https://www.youtube.com/embed/ZbEYbLa6QNg?feature=oembed](https://www.youtube.com/embed/ZbEYbLa6QNg?feature=oembed)
+[https://www.youtube.com/embed/ZbEYbLa6QNg](https://www.youtube.com/embed/ZbEYbLa6QNg)
 
-[https://www.youtube.com/embed/8uEkr1sE64s?feature=oembed](https://www.youtube.com/embed/8uEkr1sE64s?feature=oembed)
+[https://www.youtube.com/embed/8uEkr1sE64s](https://www.youtube.com/embed/8uEkr1sE64s)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1984-11-18a-300x197.png?resize=758%2C498)
 
@@ -37,7 +37,7 @@ Bruce brings World Tour 1992 to the Charlotte Coliseum.
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/kjLvfOFpZMM?feature=oembed](https://www.youtube.com/embed/kjLvfOFpZMM?feature=oembed)
+[https://www.youtube.com/embed/kjLvfOFpZMM](https://www.youtube.com/embed/kjLvfOFpZMM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-18-200x300.png?resize=758%2C1137)
 
@@ -45,7 +45,7 @@ Bruce releases his official video document of the Rising Tour, .
 
 **2003:** *Live in Barcelona*
 
-[https://www.youtube.com/embed/sBFEd63jJvc?feature=oembed](https://www.youtube.com/embed/sBFEd63jJvc?feature=oembed)
+[https://www.youtube.com/embed/sBFEd63jJvc](https://www.youtube.com/embed/sBFEd63jJvc)
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89)
 
@@ -53,33 +53,33 @@ Bruce and the Sessions Band play the second of a three-night stand at Dublin's P
 
 **2006:** [Shenandoah](https://estreetshuffle.com/index.php/2022/03/22/cover-me-shenandoah/)*Live in Dublin*[Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)[Johnny 99](http://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)*Bruce Springsteen With The Sessions Band PBS Exclusive*
 
-[https://www.youtube.com/embed/qd6J2QF3fJY?feature=oembed](https://www.youtube.com/embed/qd6J2QF3fJY?feature=oembed)
+[https://www.youtube.com/embed/qd6J2QF3fJY](https://www.youtube.com/embed/qd6J2QF3fJY)
 
-[https://www.youtube.com/embed/Hn9hr0RbFCU?feature=oembed](https://www.youtube.com/embed/Hn9hr0RbFCU?feature=oembed)
+[https://www.youtube.com/embed/Hn9hr0RbFCU](https://www.youtube.com/embed/Hn9hr0RbFCU)
 
-[https://www.youtube.com/embed/exu7mPNxmEI?feature=oembed](https://www.youtube.com/embed/exu7mPNxmEI?feature=oembed)
+[https://www.youtube.com/embed/exu7mPNxmEI](https://www.youtube.com/embed/exu7mPNxmEI)
 
-[https://www.youtube.com/embed/2jRRixWzhiM?feature=oembed](https://www.youtube.com/embed/2jRRixWzhiM?feature=oembed)
+[https://www.youtube.com/embed/2jRRixWzhiM](https://www.youtube.com/embed/2jRRixWzhiM)
 
-[https://www.youtube.com/embed/DuHobZu1q-U?feature=oembed](https://www.youtube.com/embed/DuHobZu1q-U?feature=oembed)
+[https://www.youtube.com/embed/DuHobZu1q-U](https://www.youtube.com/embed/DuHobZu1q-U)
 
-[https://www.youtube.com/embed/rrOLgWhisVU?feature=oembed](https://www.youtube.com/embed/rrOLgWhisVU?feature=oembed)
+[https://www.youtube.com/embed/rrOLgWhisVU](https://www.youtube.com/embed/rrOLgWhisVU)
 
-[https://www.youtube.com/embed/jH-KLyZkq_g?feature=oembed](https://www.youtube.com/embed/jH-KLyZkq_g?feature=oembed)
+[https://www.youtube.com/embed/jH-KLyZkq_g](https://www.youtube.com/embed/jH-KLyZkq_g)
 
-[https://www.youtube.com/embed/9SBwk_wGyQk?feature=oembed](https://www.youtube.com/embed/9SBwk_wGyQk?feature=oembed)
+[https://www.youtube.com/embed/9SBwk_wGyQk](https://www.youtube.com/embed/9SBwk_wGyQk)
 
-[https://www.youtube.com/embed/i3yZRNPCBBs?feature=oembed](https://www.youtube.com/embed/i3yZRNPCBBs?feature=oembed)
+[https://www.youtube.com/embed/i3yZRNPCBBs](https://www.youtube.com/embed/i3yZRNPCBBs)
 
 Bruce wraps up the first leg of the Magic Tour with a two-night stand at TD Banknorth Garden in Boston. Night One brings a relatively standard set, but "" makes a rare appearance.
 
 **2007:**[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)
 
-[https://www.youtube.com/embed/C7_zJiUewJk?feature=oembed](https://www.youtube.com/embed/C7_zJiUewJk?feature=oembed)
+[https://www.youtube.com/embed/C7_zJiUewJk](https://www.youtube.com/embed/C7_zJiUewJk)
 
-[https://www.youtube.com/embed/alLQ7UyK-8Y?feature=oembed](https://www.youtube.com/embed/alLQ7UyK-8Y?feature=oembed)
+[https://www.youtube.com/embed/alLQ7UyK-8Y](https://www.youtube.com/embed/alLQ7UyK-8Y)
 
-[https://www.youtube.com/embed/Jeg_qwEbJ6s?feature=oembed](https://www.youtube.com/embed/Jeg_qwEbJ6s?feature=oembed)
+[https://www.youtube.com/embed/Jeg_qwEbJ6s](https://www.youtube.com/embed/Jeg_qwEbJ6s)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2007-11-18a-300x133.png?resize=758%2C336)
 
@@ -91,7 +91,7 @@ The Working on a Dream Tour enters its final week with a show at Sommet Center i
 
 **2009:** *Born to Run*[Ring of Fire](http://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)
 
-[https://www.youtube.com/embed/IUaDmax2CxM?feature=oembed](https://www.youtube.com/embed/IUaDmax2CxM?feature=oembed)
+[https://www.youtube.com/embed/IUaDmax2CxM](https://www.youtube.com/embed/IUaDmax2CxM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2009-11-18-300x196.png?resize=758%2C495)
 
@@ -99,7 +99,7 @@ Bruce performs "American Skin (41 Shots)" with John Legend, Tom Morello, Max, an
 
 **2015:** *Shining a Light: A Concert for Progress on Race in America*
 
-[https://videopress.com/embed/5JaaLIhW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5JaaLIhW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/5JaaLIhW](https://videopress.com/embed/5JaaLIhW)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2015-11-18a-203x300.png?resize=758%2C1120)
 
@@ -117,7 +117,7 @@ Stand Up for Heroes goes virtual due to the great pandemic, with Bruce performin
 
 **2020:** [House of a Thousand Guitars](https://estreetshuffle.com/index.php/2021/04/23/roll-of-the-dice-house-of-a-thousand-guitars/)[I'll See You in My Dreams,](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)
 
-[https://www.youtube.com/embed/NqT9L2aT9XE?feature=oembed](https://www.youtube.com/embed/NqT9L2aT9XE?feature=oembed)
+[https://www.youtube.com/embed/NqT9L2aT9XE](https://www.youtube.com/embed/NqT9L2aT9XE)
 
 Bruce's scheduled show in Ottawa is postponed by almost a year due to his peptic ulcer disease.
 

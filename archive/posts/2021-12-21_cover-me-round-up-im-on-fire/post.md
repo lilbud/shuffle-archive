@@ -17,7 +17,7 @@ For our debut "I'm on Fire" round-up, let's take a trip around the world,
 
 First up: a cool, bass-centric arrangement by Canadian artists Jake McIntyre-Paul and vocalist Jessica Heaven, who perform together under the name Descartes.
 
-[https://www.youtube.com/embed/vSHM2SOJKIo?feature=oembed](https://www.youtube.com/embed/vSHM2SOJKIo?feature=oembed)
+[https://www.youtube.com/embed/vSHM2SOJKIo](https://www.youtube.com/embed/vSHM2SOJKIo)
 
 Their version of "I'm on Fire" is actually the second single off their new album , which features inventive arrangements of classic songs by Billy Joel, The Beatles, Paul Simon, and more. Check the album out .
 
@@ -25,19 +25,19 @@ Their version of "I'm on Fire" is actually the second single off their new album
 
 Next, we switch genres from jazz to rockabilly with this swinging cover by Dutch band Mainline 55.
 
-[https://www.youtube.com/embed/8-r0ularbR0?feature=oembed](https://www.youtube.com/embed/8-r0ularbR0?feature=oembed)
+[https://www.youtube.com/embed/8-r0ularbR0](https://www.youtube.com/embed/8-r0ularbR0)
 
 Of course, "I'm on Fire" is a seduction song at heart, and Canadian singer-songwriter Sanjay Seran found a way to turn up the heat with his late-night, lights-out version.
 
-[https://www.youtube.com/embed/M3vmceGw_go?feature=oembed](https://www.youtube.com/embed/M3vmceGw_go?feature=oembed)
+[https://www.youtube.com/embed/M3vmceGw_go](https://www.youtube.com/embed/M3vmceGw_go)
 
 Israeli artist Noam Bass mines a similar vein but adds a hook you can dance to in his late-breaking cover, published just a few weeks ago.
 
-[https://www.youtube.com/embed/Bpc_eZ4msVo?feature=oembed](https://www.youtube.com/embed/Bpc_eZ4msVo?feature=oembed)
+[https://www.youtube.com/embed/Bpc_eZ4msVo](https://www.youtube.com/embed/Bpc_eZ4msVo)
 
 Finally (for now), we travel down under to check out the Nick Trovas Band. They've been playing "I'm on Fire" at their gigs for years, and it shows in their polished cover.
 
-[https://www.youtube.com/embed/IerjP3yt6Tk?feature=oembed](https://www.youtube.com/embed/IerjP3yt6Tk?feature=oembed)
+[https://www.youtube.com/embed/IerjP3yt6Tk](https://www.youtube.com/embed/IerjP3yt6Tk)
 
 I hope you enjoyed this mini-tour. Personally, I find it fascinating how Bruce's music resonates around the world in so many different ways, inspiring artists to uncover new elements and infuse new life into Bruce's classics.
 

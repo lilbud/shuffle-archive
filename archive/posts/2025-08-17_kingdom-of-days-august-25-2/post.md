@@ -31,9 +31,9 @@ Bruce and the E Street Band bring the Darkness Tour to New Haven for a show at t
 
 **1978:** [It's Gonna Work Out Fine](https://estreetshuffle.com/index.php/2021/01/02/cover-me-its-gonna-work-out-fine/)*Old Grey Whistle Test*
 
-[https://www.youtube.com/embed/8jvarthD60U?feature=oembed](https://www.youtube.com/embed/8jvarthD60U?feature=oembed)
+[https://www.youtube.com/embed/8jvarthD60U](https://www.youtube.com/embed/8jvarthD60U)
 
-[https://videopress.com/embed/MtTTMnWz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MtTTMnWz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/MtTTMnWz](https://videopress.com/embed/MtTTMnWz)
 
 Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad's Place.
 
@@ -41,13 +41,13 @@ Bruce and the band record "" and an early arrangement of "" during a recording s
 
 **1979:** [Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)[You Can Look (Buy You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)
 
-[https://www.youtube.com/embed/aQcxrt9-6ZI?feature=oembed](https://www.youtube.com/embed/aQcxrt9-6ZI?feature=oembed)
+[https://www.youtube.com/embed/aQcxrt9-6ZI](https://www.youtube.com/embed/aQcxrt9-6ZI)
 
 Bruce and the E Street Band kick off a four-night stand at the Capital Center in Largo, Maryland. In attendance tonight: conservative political columnist George Will, who is moved enough by the show to write for publication the following month.
 
 **1984:** [a column about Bruce](https://www.washingtonpost.com/archive/politics/1984/09/13/bruce-springsteens-usa/f6502baa-a8eb-48ad-ba85-7fa848d8833e/)
 
-[https://www.youtube.com/embed/_jg4X4qcZq0?feature=oembed](https://www.youtube.com/embed/_jg4X4qcZq0?feature=oembed)
+[https://www.youtube.com/embed/_jg4X4qcZq0](https://www.youtube.com/embed/_jg4X4qcZq0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1984-08-25a-300x195.png?resize=758%2C492)
 
@@ -59,7 +59,7 @@ World Tour 1992 moves on to the Washington DC area, with the first of two shows 
 
 **1992:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://videopress.com/embed/BgCpUOF3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BgCpUOF3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/BgCpUOF3](https://videopress.com/embed/BgCpUOF3)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-25a-300x142.png?resize=758%2C359)
 
@@ -79,7 +79,7 @@ The Rising Tour continues its western swing with a show at the America West Aren
 
 **2002:**<br>
 
-[https://videopress.com/embed/XnVrtmDw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XnVrtmDw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/XnVrtmDw](https://videopress.com/embed/XnVrtmDw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2002-08-25a-300x180.png?resize=758%2C455)
 
@@ -95,7 +95,7 @@ Jay Weinberg flies solo on drums for the entire Working on a Dream show in Sarat
 
 **2009:** [Spare Parts](http://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://videopress.com/embed/AmZyGrtP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AmZyGrtP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/AmZyGrtP](https://videopress.com/embed/AmZyGrtP)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2009-08-25.jpg?resize=758%2C1011&amp;ssl=1)
 
@@ -103,13 +103,13 @@ Bruce flirts with the four-hour mark at Night Two at MetLife Stadium, stopping j
 
 **2016:** [Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[](http://estreetshuffle.com/index.php/2018/08/25/where-the-band-was-east-rutherford-august-25-2016/)*Where the Band Was*
 
-[https://www.youtube.com/embed/odKf_k4x0iI?feature=oembed](https://www.youtube.com/embed/odKf_k4x0iI?feature=oembed)
+[https://www.youtube.com/embed/odKf_k4x0iI](https://www.youtube.com/embed/odKf_k4x0iI)
 
-[https://www.youtube.com/embed/BUu6klm2_BI?feature=oembed](https://www.youtube.com/embed/BUu6klm2_BI?feature=oembed)
+[https://www.youtube.com/embed/BUu6klm2_BI](https://www.youtube.com/embed/BUu6klm2_BI)
 
-[https://www.youtube.com/embed/DW5O0Or-7WI?feature=oembed](https://www.youtube.com/embed/DW5O0Or-7WI?feature=oembed)
+[https://www.youtube.com/embed/DW5O0Or-7WI](https://www.youtube.com/embed/DW5O0Or-7WI)
 
-[https://www.youtube.com/embed/qc7xSXUgiSA?feature=oembed](https://www.youtube.com/embed/qc7xSXUgiSA?feature=oembed)
+[https://www.youtube.com/embed/qc7xSXUgiSA](https://www.youtube.com/embed/qc7xSXUgiSA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2016-08-25-232x300.png?resize=758%2C980)
 

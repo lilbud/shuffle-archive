@@ -9,4 +9,4 @@ Minus 5 for not understanding the song.
 
 Still a great cover, though.
 
-[https://www.youtube.com/embed/fSc4KAOUY2w?feature=oembed](https://www.youtube.com/embed/fSc4KAOUY2w?feature=oembed)
+[https://www.youtube.com/embed/fSc4KAOUY2w](https://www.youtube.com/embed/fSc4KAOUY2w)

@@ -29,7 +29,7 @@ Director John Sayles films background footage at Maxwell's in Hoboken for Bruce'
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed](https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed)
+[https://www.youtube.com/embed/6vQpW9XRiyM](https://www.youtube.com/embed/6vQpW9XRiyM)
 
 Before leaving the U.K., Bruce sings karaoke ("Jumpin' Jack Flash") at the Stanhope Arms pub in London.
 
@@ -39,15 +39,15 @@ At a rainy Rising show in Saint-Denis, France, Bruce plays an acoustic pre-show,
 
 **2003:**<br>
 
-[https://www.youtube.com/embed/xpCBRXh2lmM?feature=oembed](https://www.youtube.com/embed/xpCBRXh2lmM?feature=oembed)
+[https://www.youtube.com/embed/xpCBRXh2lmM](https://www.youtube.com/embed/xpCBRXh2lmM)
 
-[https://www.youtube.com/embed/k2u5kz9t1QU?feature=oembed](https://www.youtube.com/embed/k2u5kz9t1QU?feature=oembed)
+[https://www.youtube.com/embed/k2u5kz9t1QU](https://www.youtube.com/embed/k2u5kz9t1QU)
 
 The European leg of the Devils & Dust Tour begins with a show at Point Theater in Dublin.
 
 **2005:**<br>
 
-[https://www.youtube.com/embed/sD4KMfhF7hg?feature=oembed](https://www.youtube.com/embed/sD4KMfhF7hg?feature=oembed)
+[https://www.youtube.com/embed/sD4KMfhF7hg](https://www.youtube.com/embed/sD4KMfhF7hg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Daily_Telegraph_Thu__May_26__2005_-scaled.jpg?resize=592%2C2560&amp;ssl=1)
 
@@ -59,14 +59,14 @@ Bruce announces the return of the E Street Band to the concert stage for their f
 
 **2022:**<br>
 
-[https://www.youtube.com/embed/CK4OdLh5UVs?feature=oembed](https://www.youtube.com/embed/CK4OdLh5UVs?feature=oembed)
+[https://www.youtube.com/embed/CK4OdLh5UVs](https://www.youtube.com/embed/CK4OdLh5UVs)
 
 Bruce brings the Land of Hope and Dreams Tour to Lille, France.
 
 **2025:**<br>
 
-[https://www.youtube.com/embed/VpfAfR1dCag?feature=oembed](https://www.youtube.com/embed/VpfAfR1dCag?feature=oembed)
+[https://www.youtube.com/embed/VpfAfR1dCag](https://www.youtube.com/embed/VpfAfR1dCag)
 
-[https://www.youtube.com/embed/xczeUIOxhoM?feature=oembed](https://www.youtube.com/embed/xczeUIOxhoM?feature=oembed)
+[https://www.youtube.com/embed/xczeUIOxhoM](https://www.youtube.com/embed/xczeUIOxhoM)
 
-[https://www.youtube.com/embed/ZgS4tCCYc4c?feature=oembed](https://www.youtube.com/embed/ZgS4tCCYc4c?feature=oembed)
+[https://www.youtube.com/embed/ZgS4tCCYc4c](https://www.youtube.com/embed/ZgS4tCCYc4c)

@@ -21,7 +21,7 @@ In Lexington, Bruce and the E Street Band bring the River Tour to the Rupp Arena
 
 **1981:**<br>
 
-[https://videopress.com/embed/83D0WG3d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/83D0WG3d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/83D0WG3d](https://videopress.com/embed/83D0WG3d)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1981-03-04.jpg?resize=758%2C798&amp;ssl=1)
 
@@ -29,13 +29,13 @@ Bruce and the band play their second of two nights at the University of North Ca
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/B1HDdUGGep8?feature=oembed](https://www.youtube.com/embed/B1HDdUGGep8?feature=oembed)
+[https://www.youtube.com/embed/B1HDdUGGep8](https://www.youtube.com/embed/B1HDdUGGep8)
 
 Bruce and Patti take in a hockey game in New York City, where the Islanders play the Rangers.
 
 **1994:**<br>
 
-[https://www.youtube.com/embed/zrVi-AgoBiE?feature=oembed](https://www.youtube.com/embed/zrVi-AgoBiE?feature=oembed)
+[https://www.youtube.com/embed/zrVi-AgoBiE](https://www.youtube.com/embed/zrVi-AgoBiE)
 
 Rehearsals begin for Bruce Springsteen and the E Street Band's Reunion Tour in Asbury Park.
 
@@ -47,7 +47,7 @@ The Reunion Tour begins its Florida leg at Orlando Arena.
 
 **2000:**<br>
 
-[https://videopress.com/embed/X8MwF6hm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/X8MwF6hm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/X8MwF6hm](https://videopress.com/embed/X8MwF6hm)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2000-03-04-300x79.jpg?resize=758%2C200)
 
@@ -55,14 +55,14 @@ In Jacksonville along the Rising Tour, the band covers "" in memory of Hank Ball
 
 **2003:** [Let's Go, Let's Go, Let's Go](http://estreetshuffle.com/index.php/2018/09/26/matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/)[Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)
 
-[https://videopress.com/embed/xKFbULno?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xKFbULno?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xKFbULno](https://videopress.com/embed/xKFbULno)
 
-[https://videopress.com/embed/WR5ivZWf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/WR5ivZWf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/WR5ivZWf](https://videopress.com/embed/WR5ivZWf)
 
-[https://videopress.com/embed/NCLvRlBT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NCLvRlBT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/NCLvRlBT](https://videopress.com/embed/NCLvRlBT)
 
-[https://videopress.com/embed/uuKmcUv0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uuKmcUv0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uuKmcUv0](https://videopress.com/embed/uuKmcUv0)
 
-[https://www.youtube.com/embed/BAhxHcxGOC0?feature=oembed](https://www.youtube.com/embed/BAhxHcxGOC0?feature=oembed)
+[https://www.youtube.com/embed/BAhxHcxGOC0](https://www.youtube.com/embed/BAhxHcxGOC0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2003-03-04-1-298x300.jpg?resize=758%2C763)

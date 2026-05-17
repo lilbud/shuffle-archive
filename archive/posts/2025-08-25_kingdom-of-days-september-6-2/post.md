@@ -11,7 +11,7 @@ Boz Scaggs guest-stars on "Twist and Shout" when Bruce plays his first-ever show
 
 **1975:** (Photo credit: Barbara Pyle)
 
-[https://videopress.com/embed/dpbG8acj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dpbG8acj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/dpbG8acj](https://videopress.com/embed/dpbG8acj)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1975-09-06.jpg?resize=758%2C485&amp;ssl=1)
 
@@ -21,7 +21,7 @@ Bruce and the E Street Band bring the Darkness Tour to the Uptown Theater in Chi
 
 **1978:**<br>
 
-[https://videopress.com/embed/jZur7VMb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jZur7VMb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jZur7VMb](https://videopress.com/embed/jZur7VMb)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1978-09-06-296x300.jpg?resize=758%2C768)
 
@@ -29,7 +29,7 @@ The Born in the U.S.A. Tour stadium leg continues with a show at the Hoosier Dom
 
 **1985:**<br>
 
-[https://videopress.com/embed/ZuUFl7Ls?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZuUFl7Ls?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ZuUFl7Ls](https://videopress.com/embed/ZuUFl7Ls)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-09-06a-300x258.jpg?resize=758%2C652)
 
@@ -39,11 +39,11 @@ Bruce plays his first and only show in Hungary when the Human Rights Now! Tour a
 
 **1988:** [Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)*Chimes of Freedom*
 
-[https://www.youtube.com/embed/WhvpFX63JGw?feature=oembed](https://www.youtube.com/embed/WhvpFX63JGw?feature=oembed)
+[https://www.youtube.com/embed/WhvpFX63JGw](https://www.youtube.com/embed/WhvpFX63JGw)
 
-[https://www.youtube.com/embed/WMRVPY-O8Nk?feature=oembed](https://www.youtube.com/embed/WMRVPY-O8Nk?feature=oembed)
+[https://www.youtube.com/embed/WMRVPY-O8Nk](https://www.youtube.com/embed/WMRVPY-O8Nk)
 
-[https://www.youtube.com/embed/EyPSl7he8FE?feature=oembed](https://www.youtube.com/embed/EyPSl7he8FE?feature=oembed)
+[https://www.youtube.com/embed/EyPSl7he8FE](https://www.youtube.com/embed/EyPSl7he8FE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1988-09-06b-300x160.jpg?resize=758%2C404)
 
@@ -55,7 +55,7 @@ Bruce and the E Street Band play their first ever show at Boston's Fenway Park, 
 
 **2003:** [Diddy Wah Diddy](https://estreetshuffle.com/index.php/2021/06/11/cover-me-diddy-wah-diddy/)[Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)
 
-[https://www.youtube.com/embed/_jfOIVK70kc?feature=oembed](https://www.youtube.com/embed/_jfOIVK70kc?feature=oembed)
+[https://www.youtube.com/embed/_jfOIVK70kc](https://www.youtube.com/embed/_jfOIVK70kc)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDGvjfksOrs7OIKk079MPa3](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDGvjfksOrs7OIKk079MPa3)
 
@@ -69,7 +69,7 @@ Gearing up for publicity surrounding the release of (the book), Bruce tours Free
 
 **2016:** *Born to Run*
 
-[https://www.youtube.com/embed/PHXN2FFEuJU?feature=oembed](https://www.youtube.com/embed/PHXN2FFEuJU?feature=oembed)
+[https://www.youtube.com/embed/PHXN2FFEuJU](https://www.youtube.com/embed/PHXN2FFEuJU)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: former first lady Michelle Obama.
 

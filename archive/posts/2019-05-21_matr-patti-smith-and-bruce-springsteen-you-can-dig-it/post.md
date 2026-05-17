@@ -11,9 +11,9 @@ Take a listen to both performances below, and for more Bruce and Patti from this
 
 [Slowly Walking Down by the River](http://estreetshuffle.com/index.php/2018/05/29/meeting-across-the-river-patti-smith-and-bruce-springsteen-slowly-walking-down-the-river/)[Picture Hanging Blues](http://estreetshuffle.com/index.php/2019/02/22/matr-patti-smith-and-bruce-springsteen-picture-hanging-blues/)
 
-[https://www.youtube.com/embed/NVv9bjYr6eo?feature=oembed](https://www.youtube.com/embed/NVv9bjYr6eo?feature=oembed)
+[https://www.youtube.com/embed/NVv9bjYr6eo](https://www.youtube.com/embed/NVv9bjYr6eo)
 
-[https://videopress.com/embed/xcYOkknQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xcYOkknQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xcYOkknQ](https://videopress.com/embed/xcYOkknQ)
 
 November 26, 1976 (New York City, NY)
 November 26, 1976 (New York City, NY)

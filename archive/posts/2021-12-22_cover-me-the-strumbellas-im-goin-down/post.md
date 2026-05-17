@@ -19,7 +19,7 @@ One of those covers was a lovely rendition of Bruce's "," stripped down to expos
 
 [I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)
 
-[https://www.youtube.com/embed/1rvUzqckkrU?feature=oembed](https://www.youtube.com/embed/1rvUzqckkrU?feature=oembed)
+[https://www.youtube.com/embed/1rvUzqckkrU](https://www.youtube.com/embed/1rvUzqckkrU)
 
 It's a beautiful performance, highlighted by Isabel Ritchie's gorgeous violin.
 

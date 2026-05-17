@@ -12,7 +12,7 @@ Bruce recorded a song called "Janey Needs a Shooter" in early 1973, and he's onl
 
 Suffice to say, it's a great song with many fans, including one Warren Zevon.
 
-[https://www.youtube.com/embed/AuoD-d0jblk?feature=oembed](https://www.youtube.com/embed/AuoD-d0jblk?feature=oembed)
+[https://www.youtube.com/embed/AuoD-d0jblk](https://www.youtube.com/embed/AuoD-d0jblk)
 
 Well, sort of.
 
@@ -28,7 +28,7 @@ Zevon did just that. He got as far as the first verse and the title (which he'd 
 
 Bruce complimented Warren on the verse and asked where the rest of the song was. He soon found out: with a fish on his hook, Warren reeled in Bruce's help to finish the song.
 
-[https://www.youtube.com/embed/53WwqdrUtvQ?feature=oembed](https://www.youtube.com/embed/53WwqdrUtvQ?feature=oembed)
+[https://www.youtube.com/embed/53WwqdrUtvQ](https://www.youtube.com/embed/53WwqdrUtvQ)
 
 Just how extensive that help was varies by account from a collaborative effort to Bruce simply finishing the song on his own. To the best of my knowledge, I've not seen a first-hand account that definitively answers the question.
 

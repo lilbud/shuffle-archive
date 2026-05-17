@@ -17,20 +17,20 @@ The night after Ronald Reagan is elected president of the United States, Bruce p
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pY3c0O865FKQLzxw_mipjU1(https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pY3c0O865FKQLzxw_mipjU1)
 
-[https://www.youtube.com/embed/b4aunP-d7vI?feature=oembed](https://www.youtube.com/embed/b4aunP-d7vI?feature=oembed)
+[https://www.youtube.com/embed/b4aunP-d7vI](https://www.youtube.com/embed/b4aunP-d7vI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-11-05a-300x98.png?resize=758%2C247)
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-11-05b-288x300.png?resize=758%2C789)
 
 **1986:** Bruce and Bob Geldof make a guest appearance in Paris with Huey Lewis and the News on "[Barefootin'.]" Check out the performance below.(https://estreetshuffle.com/index.php/2021/09/22/matr-huey-lewis-and-the-news-bruce-springsteen-and-bob-geldof-barefootin/)
 
-[https://www.youtube.com/embed/WxOQECwAWvs?feature=oembed](https://www.youtube.com/embed/WxOQECwAWvs?feature=oembed)
+[https://www.youtube.com/embed/WxOQECwAWvs](https://www.youtube.com/embed/WxOQECwAWvs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/11/The_San_Francisco_Examiner_1986_11_16_271.jpg?w=758&amp;ssl=1)
 
 **1992:**<br>
 Bruce and the '92/'93 band bring World Tour 1992 to Skydome in Toronto.
-[https://www.youtube.com/embed/gPbOwkrI1Jo?feature=oembed](https://www.youtube.com/embed/gPbOwkrI1Jo?feature=oembed)
+[https://www.youtube.com/embed/gPbOwkrI1Jo](https://www.youtube.com/embed/gPbOwkrI1Jo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-11-05-298x300.png?resize=758%2C763)
 
@@ -42,8 +42,8 @@ At his surprise jam with Clarence the night before, Bruce finds himself captivat
 **2007:**<br>
 The Magic Tour stops at The Palace of Auburn Hills, where Bruce plays "[I'll Work for Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)" for the very first time. He also tour debuts "[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)" and "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)."
 
-[https://www.youtube.com/embed/9o1TbA6s2Ac?feature=oembed](https://www.youtube.com/embed/9o1TbA6s2Ac?feature=oembed)
-[https://www.youtube.com/embed/CfT8P-KL6zY?feature=oembed](https://www.youtube.com/embed/CfT8P-KL6zY?feature=oembed)
+[https://www.youtube.com/embed/9o1TbA6s2Ac](https://www.youtube.com/embed/9o1TbA6s2Ac)
+[https://www.youtube.com/embed/CfT8P-KL6zY](https://www.youtube.com/embed/CfT8P-KL6zY)
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-11-05-300x125.png?resize=758%2C316)
 
 **2008:**<br>
@@ -55,21 +55,21 @@ Bruce performs three songs at the Stand Up For Heroes benefit at Town Hall in Ne
 **2010:**<br>
 Bruce joins Joe Grushecky and The Houserockers at Soldiers & Sailors Memorial Hall in Pittsburgh for the second of two 15th anniversary shows for [American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/). Bruce opens the show acoustically with "[Your Own Worst Enemy](http://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)," and three other numbers before joining Joe and the band for a set that includes both Grushecky and Springsteen originals, including a fun "[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)."
 
-[https://www.youtube.com/embed/9RK0l1zDOBU?feature=oembed](https://www.youtube.com/embed/9RK0l1zDOBU?feature=oembed)
-[https://www.youtube.com/embed/bGER6ZMGRo8?feature=oembed](https://www.youtube.com/embed/bGER6ZMGRo8?feature=oembed)
-[https://www.youtube.com/embed/mat-1KIGvwc?feature=oembed](https://www.youtube.com/embed/mat-1KIGvwc?feature=oembed)
-[https://www.youtube.com/embed/HJaPpjFbhfU?feature=oembed](https://www.youtube.com/embed/HJaPpjFbhfU?feature=oembed)
-[https://www.youtube.com/embed/uLJzThYQwIc?feature=oembed](https://www.youtube.com/embed/uLJzThYQwIc?feature=oembed)
-[https://www.youtube.com/embed/LPm7xQkxhb4?feature=oembed](https://www.youtube.com/embed/LPm7xQkxhb4?feature=oembed)
-[https://www.youtube.com/embed/3n1GwJLDpIQ?feature=oembed](https://www.youtube.com/embed/3n1GwJLDpIQ?feature=oembed)
-[https://www.youtube.com/embed/Tg4hM98QsrU?feature=oembed](https://www.youtube.com/embed/Tg4hM98QsrU?feature=oembed)
+[https://www.youtube.com/embed/9RK0l1zDOBU](https://www.youtube.com/embed/9RK0l1zDOBU)
+[https://www.youtube.com/embed/bGER6ZMGRo8](https://www.youtube.com/embed/bGER6ZMGRo8)
+[https://www.youtube.com/embed/mat-1KIGvwc](https://www.youtube.com/embed/mat-1KIGvwc)
+[https://www.youtube.com/embed/HJaPpjFbhfU](https://www.youtube.com/embed/HJaPpjFbhfU)
+[https://www.youtube.com/embed/uLJzThYQwIc](https://www.youtube.com/embed/uLJzThYQwIc)
+[https://www.youtube.com/embed/LPm7xQkxhb4](https://www.youtube.com/embed/LPm7xQkxhb4)
+[https://www.youtube.com/embed/3n1GwJLDpIQ](https://www.youtube.com/embed/3n1GwJLDpIQ)
+[https://www.youtube.com/embed/Tg4hM98QsrU](https://www.youtube.com/embed/Tg4hM98QsrU)
 
 **2012:**<br>
 On the Election Eve, Bruce performs at an amazing three different rallies in three different states with and for President Obama–first in Madison, then Columbus, and finally in Des Moines. The setlist is the same at each stop–including his hastily penned campaign theme song, "[Forward](http://estreetshuffle.com/index.php/2018/02/09/roll-of-the-dice-forward/)."
 
-[https://www.youtube.com/embed/JygWoIeW224?feature=oembed](https://www.youtube.com/embed/JygWoIeW224?feature=oembed)
-[https://www.youtube.com/embed/6oJLKKDLEaQ?feature=oembed](https://www.youtube.com/embed/6oJLKKDLEaQ?feature=oembed)
-[https://www.youtube.com/embed/rqv-3XTlFdc?feature=oembed](https://www.youtube.com/embed/rqv-3XTlFdc?feature=oembed)
+[https://www.youtube.com/embed/JygWoIeW224](https://www.youtube.com/embed/JygWoIeW224)
+[https://www.youtube.com/embed/6oJLKKDLEaQ](https://www.youtube.com/embed/6oJLKKDLEaQ)
+[https://www.youtube.com/embed/rqv-3XTlFdc](https://www.youtube.com/embed/rqv-3XTlFdc)
 
 [https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F66260973&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758]
 
@@ -79,30 +79,30 @@ On the Election Eve, Bruce performs at an amazing three different rallies in thr
 **2014:**<br>
 Bruce performs once again at Stand Up for Heroes, playing a five-song acoustic set and auctioning not just a guitar this year, but a lesson, a ride in his motorcycle sidecar, a lasagna dinner at his house, and more… this one you have to watch, because it raises an amazing $600,000.
 
-[https://www.youtube.com/embed/ji9deSh3Cbc?feature=oembed](https://www.youtube.com/embed/ji9deSh3Cbc?feature=oembed)
+[https://www.youtube.com/embed/ji9deSh3Cbc](https://www.youtube.com/embed/ji9deSh3Cbc)
 
-[https://www.youtube.com/embed/Ps2Ca1fzBVQ?feature=oembed](https://www.youtube.com/embed/Ps2Ca1fzBVQ?feature=oembed)
+[https://www.youtube.com/embed/Ps2Ca1fzBVQ](https://www.youtube.com/embed/Ps2Ca1fzBVQ)
 
-[https://www.youtube.com/embed/pGoHQELBjNk?feature=oembed](https://www.youtube.com/embed/pGoHQELBjNk?feature=oembed)
+[https://www.youtube.com/embed/pGoHQELBjNk](https://www.youtube.com/embed/pGoHQELBjNk)
 
-[https://www.youtube.com/embed/_LEirk97EFM?feature=oembed](https://www.youtube.com/embed/_LEirk97EFM?feature=oembed)
+[https://www.youtube.com/embed/_LEirk97EFM](https://www.youtube.com/embed/_LEirk97EFM)
 
-[https://www.youtube.com/embed/AZCX2Sh9oCc?feature=oembed](https://www.youtube.com/embed/AZCX2Sh9oCc?feature=oembed)
+[https://www.youtube.com/embed/AZCX2Sh9oCc](https://www.youtube.com/embed/AZCX2Sh9oCc)
 
-[https://www.youtube.com/embed/SImkKTKTu-M?feature=oembed](https://www.youtube.com/embed/SImkKTKTu-M?feature=oembed)
+[https://www.youtube.com/embed/SImkKTKTu-M](https://www.youtube.com/embed/SImkKTKTu-M)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2014-11-05-103x300.png?resize=758%2C2207)
 
 **2018:**<br>
 Bruce makes a return appearance at Stand Up For Heroes, now in its twelfth year. In addition to his customary turn as amateur comedian, Bruce performs an acoustic mini-set that includes a fun "[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)" duet with Eric Church and a beautiful "[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" with Patti.
 
-[https://www.youtube.com/embed/IuWlu5mym7U?feature=oembed](https://www.youtube.com/embed/IuWlu5mym7U?feature=oembed)
+[https://www.youtube.com/embed/IuWlu5mym7U](https://www.youtube.com/embed/IuWlu5mym7U)
 
-[https://www.youtube.com/embed/aqRfa0U4J48?feature=oembed](https://www.youtube.com/embed/aqRfa0U4J48?feature=oembed)
+[https://www.youtube.com/embed/aqRfa0U4J48](https://www.youtube.com/embed/aqRfa0U4J48)
 
-[https://www.youtube.com/embed/WbReFVmt90g?feature=oembed](https://www.youtube.com/embed/WbReFVmt90g?feature=oembed)
+[https://www.youtube.com/embed/WbReFVmt90g](https://www.youtube.com/embed/WbReFVmt90g)
 
-[https://www.youtube.com/embed/JkZ7FCpeJWk?feature=oembed](https://www.youtube.com/embed/JkZ7FCpeJWk?feature=oembed)
+[https://www.youtube.com/embed/JkZ7FCpeJWk](https://www.youtube.com/embed/JkZ7FCpeJWk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2018-11-05a-171x300.png?resize=758%2C1330)
 
@@ -111,9 +111,9 @@ Bruce makes a return appearance at Stand Up For Heroes, now in its twelfth year.
 **2022:**<br>
 Bruce inducts Jimmy Iovine into the Rock and Roll Hall of Fame at the Microsoft Theater in Los Angeles. At the end of the show, he returns to the stage with John Mellencamp to close the evening with a loose, rollicking rendition of "[Great Balls of Fire](https://estreetshuffle.com/index.php/2022/08/10/matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/)" in tribute to the late Jerry Lee Lewis, who passed away the previous week.
 
-[https://www.youtube.com/embed/_2_0n2fJj24?feature=oembed](https://www.youtube.com/embed/_2_0n2fJj24?feature=oembed)
+[https://www.youtube.com/embed/_2_0n2fJj24](https://www.youtube.com/embed/_2_0n2fJj24)
 
-[https://www.youtube.com/embed/ZurUwz_PPlU?feature=oembed](https://www.youtube.com/embed/ZurUwz_PPlU?feature=oembed)
+[https://www.youtube.com/embed/ZurUwz_PPlU](https://www.youtube.com/embed/ZurUwz_PPlU)
 
 **2024:**<br>
 As has become his habit lately on rest days between shows, Bruce visits the set of *Springsteen: Deliver Me From Nowhere*, currently filming in Rahway, New Jersey.

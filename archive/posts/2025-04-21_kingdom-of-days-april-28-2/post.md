@@ -5,7 +5,7 @@ Bruce opens for Jerry Lee Lewis and Chuck Berry at the University of Maryland. A
 
 **1973:**<br>
 
-[https://www.youtube.com/embed/ZdWu4peTI3Y?feature=oembed](https://www.youtube.com/embed/ZdWu4peTI3Y?feature=oembed)
+[https://www.youtube.com/embed/ZdWu4peTI3Y](https://www.youtube.com/embed/ZdWu4peTI3Y)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/Bruce-with-Chuck-signed-3.jpg?resize=758%2C1011&amp;ssl=1)
 
@@ -27,7 +27,7 @@ Flo and Eddie guest-star on "" when the River Tour arrives in Rotterdam.
 
 **1981:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://videopress.com/embed/JJqRnR4k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JJqRnR4k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/JJqRnR4k](https://videopress.com/embed/JJqRnR4k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1981-0428-300x211.jpg?resize=695%2C489)
 
@@ -39,9 +39,9 @@ Bruce wraps up a five-night stand at the L.A. Sports Arena. This show is availab
 
 **1988:** [here](https://live.brucespringsteen.net/live-music/0,26296/bruce-springsteen---the-e-street-band-los-angeles-sports-arena-los-angeles-ca-04-28-1988-mp3-flac-or-online-music-streaming.html)
 
-[https://www.youtube.com/embed/Krc4VGtbkh0?feature=oembed](https://www.youtube.com/embed/Krc4VGtbkh0?feature=oembed)
+[https://www.youtube.com/embed/Krc4VGtbkh0](https://www.youtube.com/embed/Krc4VGtbkh0)
 
-[https://www.youtube.com/embed/b1CAW6-FXdQ?feature=oembed](https://www.youtube.com/embed/b1CAW6-FXdQ?feature=oembed)
+[https://www.youtube.com/embed/b1CAW6-FXdQ](https://www.youtube.com/embed/b1CAW6-FXdQ)
 
 is certified 3x multi-platinum by the Recording Industry Association of America.
 
@@ -53,9 +53,9 @@ At the Reunion show in Lyon, France, Jon Bon Jovi guest-stars on "."
 
 **1999:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://www.youtube.com/embed/xHFBjrH_Z0Q?feature=oembed](https://www.youtube.com/embed/xHFBjrH_Z0Q?feature=oembed)
+[https://www.youtube.com/embed/xHFBjrH_Z0Q](https://www.youtube.com/embed/xHFBjrH_Z0Q)
 
-[https://www.youtube.com/embed/DVw_WIjDy58?feature=oembed](https://www.youtube.com/embed/DVw_WIjDy58?feature=oembed)
+[https://www.youtube.com/embed/DVw_WIjDy58](https://www.youtube.com/embed/DVw_WIjDy58)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Omaha_World_Herald_Fri__May_7__1999_-scaled.jpg?resize=758%2C813&amp;ssl=1)
 
@@ -67,9 +67,9 @@ On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce pl
 
 **2005:** [Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)[Oklahoma Hills.](https://estreetshuffle.com/index.php/2021/05/17/matr-bruce-springsteen-arlo-guthrie-joe-ely-and-jimmy-lafave-oklahoma-hills/)[Galveston Bay](https://estreetshuffle.com/index.php/2020/06/22/roll-of-the-dice-galveston-bay/)[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
 
-[https://videopress.com/embed/ZDEYaKNZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZDEYaKNZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ZDEYaKNZ](https://videopress.com/embed/ZDEYaKNZ)
 
-[https://videopress.com/embed/jNBEdQ4h?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jNBEdQ4h?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jNBEdQ4h](https://videopress.com/embed/jNBEdQ4h)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-28a-300x297.jpg?resize=758%2C751)
 
@@ -81,13 +81,13 @@ Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres o
 
 **2008:** [Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)[Don't Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[Mary's Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)[here](https://live.brucespringsteen.net/live-music/0,25606/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-4-28-2008-Greensboro-Coliseum-Greensboro-NC.html)
 
-[https://www.youtube.com/embed/MpSSwm21Cjs?feature=oembed](https://www.youtube.com/embed/MpSSwm21Cjs?feature=oembed)
+[https://www.youtube.com/embed/MpSSwm21Cjs](https://www.youtube.com/embed/MpSSwm21Cjs)
 
-[https://www.youtube.com/embed/kC3pDMD5c1U?feature=oembed](https://www.youtube.com/embed/kC3pDMD5c1U?feature=oembed)
+[https://www.youtube.com/embed/kC3pDMD5c1U](https://www.youtube.com/embed/kC3pDMD5c1U)
 
-[https://www.youtube.com/embed/3WiK1LDcEZE?feature=oembed](https://www.youtube.com/embed/3WiK1LDcEZE?feature=oembed)
+[https://www.youtube.com/embed/3WiK1LDcEZE](https://www.youtube.com/embed/3WiK1LDcEZE)
 
-[https://www.youtube.com/embed/rL2LaSHV8vQ?feature=oembed](https://www.youtube.com/embed/rL2LaSHV8vQ?feature=oembed)
+[https://www.youtube.com/embed/rL2LaSHV8vQ](https://www.youtube.com/embed/rL2LaSHV8vQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-28a.jpg?resize=758%2C536&amp;ssl=1)
 
@@ -97,7 +97,7 @@ Philadelphia always seems to get great shows, and the Working on a Dream Tour ke
 
 **2009:** [The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[You Can't Sit Down](http://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)[Where the Band Was report](http://estreetshuffle.com/index.php/2018/04/28/where-the-band-was-philadelphia-april-28-2009/)
 
-[https://www.youtube.com/embed/0kTnyP33fbM?feature=oembed](https://www.youtube.com/embed/0kTnyP33fbM?feature=oembed)
+[https://www.youtube.com/embed/0kTnyP33fbM](https://www.youtube.com/embed/0kTnyP33fbM)
 
 [https://www.youtube.com/embed/bSuR98jW88c?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/bSuR98jW88c?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
@@ -113,11 +113,11 @@ Tom Hanks interviews Bruce at the Tribeca Film Festival.
 
 **2017:**<br>
 
-[https://www.youtube.com/embed/ZZDea7CzzFY?feature=oembed](https://www.youtube.com/embed/ZZDea7CzzFY?feature=oembed)
+[https://www.youtube.com/embed/ZZDea7CzzFY](https://www.youtube.com/embed/ZZDea7CzzFY)
 
-[https://www.youtube.com/embed/Ja6qQE-8ojM?feature=oembed](https://www.youtube.com/embed/Ja6qQE-8ojM?feature=oembed)
+[https://www.youtube.com/embed/Ja6qQE-8ojM](https://www.youtube.com/embed/Ja6qQE-8ojM)
 
-[https://www.youtube.com/embed/BWvXD2SD_VM?feature=oembed](https://www.youtube.com/embed/BWvXD2SD_VM?feature=oembed)
+[https://www.youtube.com/embed/BWvXD2SD_VM](https://www.youtube.com/embed/BWvXD2SD_VM)
 
 continues with Episode 21, "Waiting on a Friend" on E Street Radio.
 
@@ -127,10 +127,10 @@ Bruce and the E Street Band kick off the European leg of their 2023 World Tour i
 
 **2023:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[Human Touch.](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)
 
-[https://www.youtube.com/embed/KUoPAY8d0uY?feature=oembed](https://www.youtube.com/embed/KUoPAY8d0uY?feature=oembed)
+[https://www.youtube.com/embed/KUoPAY8d0uY](https://www.youtube.com/embed/KUoPAY8d0uY)
 
-[https://www.youtube.com/embed/ThUC_g1C0xQ?feature=oembed](https://www.youtube.com/embed/ThUC_g1C0xQ?feature=oembed)
+[https://www.youtube.com/embed/ThUC_g1C0xQ](https://www.youtube.com/embed/ThUC_g1C0xQ)
 
-[https://www.youtube.com/embed/cuFSiZx6SZw?feature=oembed](https://www.youtube.com/embed/cuFSiZx6SZw?feature=oembed)
+[https://www.youtube.com/embed/cuFSiZx6SZw](https://www.youtube.com/embed/cuFSiZx6SZw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/La_Prensa_Sat__Apr_29__2023_-scaled.jpg?resize=758%2C1473&amp;ssl=1)

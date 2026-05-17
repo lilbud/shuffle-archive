@@ -5,7 +5,7 @@ Bruce and the E Street Band headline two shows at the Roxy Theater in Roxborough
 
 **1973:** [634-5789 (Soulsville, U.S.A.](https://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)<https://estreetshuffle.com/wp-content/uploads/2024/11/02-Beechwood-4-5789.mp3>
 
-[https://www.youtube.com/embed/JJxu85L1v2o?feature=oembed](https://www.youtube.com/embed/JJxu85L1v2o?feature=oembed)
+[https://www.youtube.com/embed/JJxu85L1v2o](https://www.youtube.com/embed/JJxu85L1v2o)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Philadelphia_Inquirer_1973_11_17_Page_4-scaled.jpg?resize=758%2C253&amp;ssl=1)
 
@@ -21,7 +21,7 @@ Bruce and the boys play a Darkness show at the Munn Ice Arena at Michigan State 
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/KO8HMeGkox0?feature=oembed](https://www.youtube.com/embed/KO8HMeGkox0?feature=oembed)
+[https://www.youtube.com/embed/KO8HMeGkox0](https://www.youtube.com/embed/KO8HMeGkox0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/46628674615_93f909254e_o-221x300.jpg?resize=758%2C1029)
 
@@ -31,7 +31,7 @@ Bruce and director Meiert Avis film the video for "" in and around Asbury Park. 
 
 **1987:** [Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)
 
-[https://videopress.com/embed/laIqiHGm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/laIqiHGm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/laIqiHGm](https://videopress.com/embed/laIqiHGm)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1987-11-17-300x78.png?resize=758%2C197)
 
@@ -39,15 +39,15 @@ Bruce plays the second of his remarkable pair of acoustic shows to benefit the C
 
 **1990:** [The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)[Soul Driver.](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)
 
-[https://www.youtube.com/embed/aCGT7xB9HSo?feature=oembed](https://www.youtube.com/embed/aCGT7xB9HSo?feature=oembed)
+[https://www.youtube.com/embed/aCGT7xB9HSo](https://www.youtube.com/embed/aCGT7xB9HSo)
 
-[https://www.youtube.com/embed/8QZMvgAu1lA?feature=oembed](https://www.youtube.com/embed/8QZMvgAu1lA?feature=oembed)
+[https://www.youtube.com/embed/8QZMvgAu1lA](https://www.youtube.com/embed/8QZMvgAu1lA)
 
-[https://www.youtube.com/embed/Id8Hupysmeo?feature=oembed](https://www.youtube.com/embed/Id8Hupysmeo?feature=oembed)
+[https://www.youtube.com/embed/Id8Hupysmeo](https://www.youtube.com/embed/Id8Hupysmeo)
 
-[https://www.youtube.com/embed/-Jx5pvfxSlE?feature=oembed](https://www.youtube.com/embed/-Jx5pvfxSlE?feature=oembed)
+[https://www.youtube.com/embed/-Jx5pvfxSlE](https://www.youtube.com/embed/-Jx5pvfxSlE)
 
-[https://www.youtube.com/embed/Igvu_8v0agw?feature=oembed](https://www.youtube.com/embed/Igvu_8v0agw?feature=oembed)
+[https://www.youtube.com/embed/Igvu_8v0agw](https://www.youtube.com/embed/Igvu_8v0agw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1990-11-17-300x275.png?resize=758%2C695)
 
@@ -55,7 +55,7 @@ Just like in the old days, several minutes after Bruce leaves the stage followin
 
 **1992:** [Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
-[https://www.youtube.com/embed/cH8ta8hMUwI?feature=oembed](https://www.youtube.com/embed/cH8ta8hMUwI?feature=oembed)
+[https://www.youtube.com/embed/cH8ta8hMUwI](https://www.youtube.com/embed/cH8ta8hMUwI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-17a-300x103.png?resize=758%2C260)
 
@@ -71,7 +71,7 @@ is certified quadruple platinum by the Recording Industry Association of America
 
 **1999:** [Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)
 
-[https://videopress.com/embed/7kNy3MXA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7kNy3MXA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/7kNy3MXA](https://videopress.com/embed/7kNy3MXA)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAL6AFDb27ZUgd7TmAByK-F](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAL6AFDb27ZUgd7TmAByK-F)
 
@@ -81,15 +81,15 @@ Bruce tour premieres two notables at Night Two in East Rutherford on the Devils 
 
 **2005:** [Meeting Across the River](http://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)
 
-[https://www.youtube.com/embed/4NQoY54mSik?feature=oembed](https://www.youtube.com/embed/4NQoY54mSik?feature=oembed)
+[https://www.youtube.com/embed/4NQoY54mSik](https://www.youtube.com/embed/4NQoY54mSik)
 
-[https://www.youtube.com/embed/HZit20FYI_s?feature=oembed](https://www.youtube.com/embed/HZit20FYI_s?feature=oembed)
+[https://www.youtube.com/embed/HZit20FYI_s](https://www.youtube.com/embed/HZit20FYI_s)
 
-[https://www.youtube.com/embed/mN1np_Mu-jY?feature=oembed](https://www.youtube.com/embed/mN1np_Mu-jY?feature=oembed)
+[https://www.youtube.com/embed/mN1np_Mu-jY](https://www.youtube.com/embed/mN1np_Mu-jY)
 
-[https://www.youtube.com/embed/Yxtw7W5xZao?feature=oembed](https://www.youtube.com/embed/Yxtw7W5xZao?feature=oembed)
+[https://www.youtube.com/embed/Yxtw7W5xZao](https://www.youtube.com/embed/Yxtw7W5xZao)
 
-[https://www.youtube.com/embed/JjM3f_5NBAU?feature=oembed](https://www.youtube.com/embed/JjM3f_5NBAU?feature=oembed)
+[https://www.youtube.com/embed/JjM3f_5NBAU](https://www.youtube.com/embed/JjM3f_5NBAU)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCER-gGeNGDf1PbPB6M-xTS](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCER-gGeNGDf1PbPB6M-xTS)
 
@@ -97,31 +97,31 @@ Patti rejoins the Seeger Sessions Tour for its home stretch, which kicks off wit
 
 **2006:** *Live in Dublin**Bruce Springsteen With The Sessions Band PBS Exclusive*
 
-[https://www.youtube.com/embed/I-KINbIukLs?feature=oembed](https://www.youtube.com/embed/I-KINbIukLs?feature=oembed)
+[https://www.youtube.com/embed/I-KINbIukLs](https://www.youtube.com/embed/I-KINbIukLs)
 
-[https://www.youtube.com/embed/YEpLBCB7nZo?feature=oembed](https://www.youtube.com/embed/YEpLBCB7nZo?feature=oembed)
+[https://www.youtube.com/embed/YEpLBCB7nZo](https://www.youtube.com/embed/YEpLBCB7nZo)
 
-[https://www.youtube.com/embed/eSBf_mpO9Yw?feature=oembed](https://www.youtube.com/embed/eSBf_mpO9Yw?feature=oembed)
+[https://www.youtube.com/embed/eSBf_mpO9Yw](https://www.youtube.com/embed/eSBf_mpO9Yw)
 
-[https://www.youtube.com/embed/_-2eVxo4Qik?feature=oembed](https://www.youtube.com/embed/_-2eVxo4Qik?feature=oembed)
+[https://www.youtube.com/embed/_-2eVxo4Qik](https://www.youtube.com/embed/_-2eVxo4Qik)
 
-[https://www.youtube.com/embed/HStktGoF1as?feature=oembed](https://www.youtube.com/embed/HStktGoF1as?feature=oembed)
+[https://www.youtube.com/embed/HStktGoF1as](https://www.youtube.com/embed/HStktGoF1as)
 
-[https://www.youtube.com/embed/_eehLPcXxBQ?feature=oembed](https://www.youtube.com/embed/_eehLPcXxBQ?feature=oembed)
+[https://www.youtube.com/embed/_eehLPcXxBQ](https://www.youtube.com/embed/_eehLPcXxBQ)
 
-[https://www.youtube.com/embed/d0fuz3O4klQ?feature=oembed](https://www.youtube.com/embed/d0fuz3O4klQ?feature=oembed)
+[https://www.youtube.com/embed/d0fuz3O4klQ](https://www.youtube.com/embed/d0fuz3O4klQ)
 
 Bruce performs a four-song acoustic set at the Concert for Autism Speaks at Carnegie Hall.
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/tHFFmcUMZ2M?feature=oembed](https://www.youtube.com/embed/tHFFmcUMZ2M?feature=oembed)
+[https://www.youtube.com/embed/tHFFmcUMZ2M](https://www.youtube.com/embed/tHFFmcUMZ2M)
 
-[https://www.youtube.com/embed/W6sp0kiqVNk?feature=oembed](https://www.youtube.com/embed/W6sp0kiqVNk?feature=oembed)
+[https://www.youtube.com/embed/W6sp0kiqVNk](https://www.youtube.com/embed/W6sp0kiqVNk)
 
-[https://www.youtube.com/embed/opn4x71_NKs?feature=oembed](https://www.youtube.com/embed/opn4x71_NKs?feature=oembed)
+[https://www.youtube.com/embed/opn4x71_NKs](https://www.youtube.com/embed/opn4x71_NKs)
 
-[https://www.youtube.com/embed/1-c_ObI6cw4?feature=oembed](https://www.youtube.com/embed/1-c_ObI6cw4?feature=oembed)
+[https://www.youtube.com/embed/1-c_ObI6cw4](https://www.youtube.com/embed/1-c_ObI6cw4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Daily_News_Thu__Nov_19__2009_-scaled.jpg?resize=758%2C259&amp;ssl=1)
 
@@ -129,19 +129,19 @@ Bruce and Jessica take in Taylor Swift's concert in Raleigh. Backstage, he borro
 
 **2011:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[here).](http://estreetshuffle.com/index.php/2018/11/14/cover-me-taylor-swift-dancing-in-the-dark/)
 
-[https://www.youtube.com/embed/fOpbhV-aLew?feature=oembed](https://www.youtube.com/embed/fOpbhV-aLew?feature=oembed)
+[https://www.youtube.com/embed/fOpbhV-aLew](https://www.youtube.com/embed/fOpbhV-aLew)
 
 The Wrecking Ball Tour comes to the Sprint Center in Kansas City, where Bruce opens with, well, "." Bruce also tour premieres "," played by the E Street Band for only the second time and dedicated to Bruce's cousin and assistant tour manager Lenny Sullivan, who died in Kansas City three years earlier.
 
 **2012:** [Kansas City](https://estreetshuffle.com/index.php/2021/01/11/cover-me-kansas-city/)[My Beautiful Reward](https://estreetshuffle.com/index.php/2023/02/19/roll-of-the-dice-my-beautiful-reward/)
 
-[https://www.youtube.com/embed/xdCE8JiNYqY?feature=oembed](https://www.youtube.com/embed/xdCE8JiNYqY?feature=oembed)
+[https://www.youtube.com/embed/xdCE8JiNYqY](https://www.youtube.com/embed/xdCE8JiNYqY)
 
-[https://www.youtube.com/embed/Sgd_BdUarfc?feature=oembed](https://www.youtube.com/embed/Sgd_BdUarfc?feature=oembed)
+[https://www.youtube.com/embed/Sgd_BdUarfc](https://www.youtube.com/embed/Sgd_BdUarfc)
 
-[https://www.youtube.com/embed/jDRNIE1UJXc?feature=oembed](https://www.youtube.com/embed/jDRNIE1UJXc?feature=oembed)
+[https://www.youtube.com/embed/jDRNIE1UJXc](https://www.youtube.com/embed/jDRNIE1UJXc)
 
-[https://www.youtube.com/embed/nZZ0Yzs9Shc?feature=oembed](https://www.youtube.com/embed/nZZ0Yzs9Shc?feature=oembed)
+[https://www.youtube.com/embed/nZZ0Yzs9Shc](https://www.youtube.com/embed/nZZ0Yzs9Shc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/2012-11-17a.png?resize=758%2C1043&amp;ssl=1)
 

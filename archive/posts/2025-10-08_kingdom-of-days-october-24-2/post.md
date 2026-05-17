@@ -11,7 +11,7 @@ Bruce and the E Street Band play a River Tour show at the Seattle Center Coliseu
 
 **1980:** *Backstreets*, *Backstreets*
 
-[https://www.youtube.com/embed/pRVAyY8cQqM?feature=oembed](https://www.youtube.com/embed/pRVAyY8cQqM?feature=oembed)
+[https://www.youtube.com/embed/pRVAyY8cQqM](https://www.youtube.com/embed/pRVAyY8cQqM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/backstreets-300x300.jpg?resize=758%2C758)
 
@@ -21,7 +21,7 @@ Bruce joins Joe Grushecky and the Houserockers for their show at Chicago's Park 
 
 **1995:**<br>
 
-[https://www.youtube.com/embed/q9oSaZz_ieg?feature=oembed](https://www.youtube.com/embed/q9oSaZz_ieg?feature=oembed)
+[https://www.youtube.com/embed/q9oSaZz_ieg](https://www.youtube.com/embed/q9oSaZz_ieg)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3>
 
@@ -31,29 +31,29 @@ Bruce and the E Street Band bring the Rising Tour to the Globe Arena in Stockhol
 
 **2002:**<br>
 
-[https://www.youtube.com/embed/WCY1_msUYPQ?feature=oembed](https://www.youtube.com/embed/WCY1_msUYPQ?feature=oembed)
+[https://www.youtube.com/embed/WCY1_msUYPQ](https://www.youtube.com/embed/WCY1_msUYPQ)
 
-[https://www.youtube.com/embed/ZzUuypDdAl8?feature=oembed](https://www.youtube.com/embed/ZzUuypDdAl8?feature=oembed)
+[https://www.youtube.com/embed/ZzUuypDdAl8](https://www.youtube.com/embed/ZzUuypDdAl8)
 
-[https://www.youtube.com/embed/PzwF5jOU8Ew?feature=oembed](https://www.youtube.com/embed/PzwF5jOU8Ew?feature=oembed)
+[https://www.youtube.com/embed/PzwF5jOU8Ew](https://www.youtube.com/embed/PzwF5jOU8Ew)
 
 Bruce plays a solo acoustic show at the Richmond Coliseum.
 
 **2005:**<br>
 
-[https://www.youtube.com/embed/p7jZQXWrptE?feature=oembed](https://www.youtube.com/embed/p7jZQXWrptE?feature=oembed)
+[https://www.youtube.com/embed/p7jZQXWrptE](https://www.youtube.com/embed/p7jZQXWrptE)
 
-[https://www.youtube.com/embed/evlvN2qZym8?feature=oembed](https://www.youtube.com/embed/evlvN2qZym8?feature=oembed)
+[https://www.youtube.com/embed/evlvN2qZym8](https://www.youtube.com/embed/evlvN2qZym8)
 
 The Seeger Sessions Tour arrives in Barcelona, where Bruce tour premieres "" to open the encores. "" is recorded and will be released on
 
 **2006:** [Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)[Love of the Common People](http://estreetshuffle.com/index.php/2020/10/21/cover-me-love-of-the-common-people/)*Live in Dublin.*
 
-[https://www.youtube.com/embed/c5yRchGeZCY?feature=oembed](https://www.youtube.com/embed/c5yRchGeZCY?feature=oembed)
+[https://www.youtube.com/embed/c5yRchGeZCY](https://www.youtube.com/embed/c5yRchGeZCY)
 
-[https://www.youtube.com/embed/W6FooqRVCJE?feature=oembed](https://www.youtube.com/embed/W6FooqRVCJE?feature=oembed)
+[https://www.youtube.com/embed/W6FooqRVCJE](https://www.youtube.com/embed/W6FooqRVCJE)
 
-[https://www.youtube.com/embed/eydFvVmHkEE?feature=oembed](https://www.youtube.com/embed/eydFvVmHkEE?feature=oembed)
+[https://www.youtube.com/embed/eydFvVmHkEE](https://www.youtube.com/embed/eydFvVmHkEE)
 
 Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -69,7 +69,7 @@ airs the first half of Bruce's interview with Gayle King.
 
 **2019:***CBS This Morning*
 
-[https://www.youtube.com/embed/qLq_iqbEhcM?feature=oembed](https://www.youtube.com/embed/qLq_iqbEhcM?feature=oembed)
+[https://www.youtube.com/embed/qLq_iqbEhcM](https://www.youtube.com/embed/qLq_iqbEhcM)
 
 Promotional activities for Bruce's album continue with appearances on Dermot O'Leary's radio show and
 
@@ -79,16 +79,16 @@ Bruce joins former President Barack Obama in a series of pre-recorded interviews
 
 **2021:** *Renegades: Born in the U.S.A.*
 
-[https://www.youtube.com/embed/HCwNZA-NhmQ?feature=oembed](https://www.youtube.com/embed/HCwNZA-NhmQ?feature=oembed)
+[https://www.youtube.com/embed/HCwNZA-NhmQ](https://www.youtube.com/embed/HCwNZA-NhmQ)
 
-[https://www.youtube.com/embed/aV7BarD0Ick?feature=oembed](https://www.youtube.com/embed/aV7BarD0Ick?feature=oembed)
+[https://www.youtube.com/embed/aV7BarD0Ick](https://www.youtube.com/embed/aV7BarD0Ick)
 
-[https://www.youtube.com/embed/2aTi06BT1Tw?feature=oembed](https://www.youtube.com/embed/2aTi06BT1Tw?feature=oembed)
+[https://www.youtube.com/embed/2aTi06BT1Tw](https://www.youtube.com/embed/2aTi06BT1Tw)
 
 Bruce performs at a rally for Vice President (and presidential candidate) Kamala Harris in Clarkston, Georgia.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/e7VnSexwcqw?feature=oembed](https://www.youtube.com/embed/e7VnSexwcqw?feature=oembed)
+[https://www.youtube.com/embed/e7VnSexwcqw](https://www.youtube.com/embed/e7VnSexwcqw)
 
-[https://www.youtube.com/embed/wkcmqpgnSQI?feature=oembed](https://www.youtube.com/embed/wkcmqpgnSQI?feature=oembed)
+[https://www.youtube.com/embed/wkcmqpgnSQI](https://www.youtube.com/embed/wkcmqpgnSQI)

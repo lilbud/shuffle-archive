@@ -21,7 +21,7 @@ Bruce and the boys bring the Born to Run Tour to the Mosque Theater in Richmond.
 
 **1975:**<br>
 
-[https://videopress.com/embed/eMvYyWzB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eMvYyWzB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/eMvYyWzB](https://videopress.com/embed/eMvYyWzB)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/Richmond_Times_Dispatch_1975_08_02_6-scaled.jpg?resize=758%2C1931&amp;ssl=1)
 
@@ -31,13 +31,13 @@ A big night in Red Bank: unable to record due to Mike Appel's legal injunction, 
 
 **1976:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[You Can't Sit Down](http://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)[She's Sure the Girl I Love](https://estreetshuffle.com/index.php/2020/08/27/cover-me-shes-sure-the-girl-i-love/)
 
-[https://www.youtube.com/embed/erYlQgL9v4I?feature=oembed](https://www.youtube.com/embed/erYlQgL9v4I?feature=oembed)
+[https://www.youtube.com/embed/erYlQgL9v4I](https://www.youtube.com/embed/erYlQgL9v4I)
 
-[https://www.youtube.com/embed/TX1tEz0uSjI?feature=oembed](https://www.youtube.com/embed/TX1tEz0uSjI?feature=oembed)
+[https://www.youtube.com/embed/TX1tEz0uSjI](https://www.youtube.com/embed/TX1tEz0uSjI)
 
-[https://www.youtube.com/embed/hazQKc6EAEo?feature=oembed](https://www.youtube.com/embed/hazQKc6EAEo?feature=oembed)
+[https://www.youtube.com/embed/hazQKc6EAEo](https://www.youtube.com/embed/hazQKc6EAEo)
 
-[https://www.youtube.com/embed/SH_QLtXMFy0?feature=oembed](https://www.youtube.com/embed/SH_QLtXMFy0?feature=oembed)
+[https://www.youtube.com/embed/SH_QLtXMFy0](https://www.youtube.com/embed/SH_QLtXMFy0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1976-08-01a-300x163.png?resize=758%2C412)
 
@@ -79,29 +79,29 @@ It's Night Eight of fifteen on the opening American stand of the Reunion Tour, a
 
 **1999:** [Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)[Trouble River](http://estreetshuffle.com/index.php/2019/03/05/roll-of-the-dice-trouble-river/)
 
-[https://videopress.com/embed/QYAgcBKx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QYAgcBKx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/QYAgcBKx](https://videopress.com/embed/QYAgcBKx)
 
-[https://www.youtube.com/embed/-TYKWXeXf9A?feature=oembed](https://www.youtube.com/embed/-TYKWXeXf9A?feature=oembed)
+[https://www.youtube.com/embed/-TYKWXeXf9A](https://www.youtube.com/embed/-TYKWXeXf9A)
 
 Bruce and Evan take in a ballgame at Yankee Stadium, and the cameras pick them out of the crowd repeatedly. That's Lance Armstrong sitting to Bruce's right.
 
 **2001:**<br>
 
-[https://www.youtube.com/embed/L1G-u3q9G9A?feature=oembed](https://www.youtube.com/embed/L1G-u3q9G9A?feature=oembed)
+[https://www.youtube.com/embed/L1G-u3q9G9A](https://www.youtube.com/embed/L1G-u3q9G9A)
 
 Bruce and the E Street Band perform "" and "" on . (The latter song will air tomorrow.)
 
 **2002:** [The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)*The Late Show with David Letterman*
 
-[https://www.youtube.com/embed/sUk7uV2ua4o?feature=oembed](https://www.youtube.com/embed/sUk7uV2ua4o?feature=oembed)
+[https://www.youtube.com/embed/sUk7uV2ua4o](https://www.youtube.com/embed/sUk7uV2ua4o)
 
-[https://www.youtube.com/embed/kJ5JII8CMig?feature=oembed](https://www.youtube.com/embed/kJ5JII8CMig?feature=oembed)
+[https://www.youtube.com/embed/kJ5JII8CMig](https://www.youtube.com/embed/kJ5JII8CMig)
 
 At the first of two shows at Gillette Stadium in Foxboro, Bruce opens the encores with a cover of "" in memory of Sam Phillips, who passed away two days prior.
 
 **2003:** [Mystery Train](http://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)
 
-[https://videopress.com/embed/a0fJ1kW8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/a0fJ1kW8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/a0fJ1kW8](https://videopress.com/embed/a0fJ1kW8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-01a-300x145.png?resize=758%2C367)
 
@@ -111,11 +111,11 @@ The remarkable run of tour debuts on the Devils and Dust Tour continues at this 
 
 **2005:** [Two For the Road](http://estreetshuffle.com/index.php/2020/06/30/roll-of-the-dice-two-for-the-road/)[Ain't Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)[Living Proof](http://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)[Walk Like a Man](http://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)[Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)
 
-[https://www.youtube.com/embed/6Zn3qhy37To?feature=oembed](https://www.youtube.com/embed/6Zn3qhy37To?feature=oembed)
+[https://www.youtube.com/embed/6Zn3qhy37To](https://www.youtube.com/embed/6Zn3qhy37To)
 
-[https://www.youtube.com/embed/LwNPvRvFhKg?feature=oembed](https://www.youtube.com/embed/LwNPvRvFhKg?feature=oembed)
+[https://www.youtube.com/embed/LwNPvRvFhKg](https://www.youtube.com/embed/LwNPvRvFhKg)
 
-[https://videopress.com/embed/KnsFTin1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KnsFTin1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/KnsFTin1](https://videopress.com/embed/KnsFTin1)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2005-08-01.png?resize=758%2C1710&amp;ssl=1)
 
@@ -123,16 +123,16 @@ Bruce tour premieres "" at the penultimate show of the European Working on a Dre
 
 **2009:** [Great Balls of Fire](https://estreetshuffle.com/index.php/2022/08/10/matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/)
 
-[https://www.youtube.com/embed/2CuHgNWv5HE?feature=oembed](https://www.youtube.com/embed/2CuHgNWv5HE?feature=oembed)
+[https://www.youtube.com/embed/2CuHgNWv5HE](https://www.youtube.com/embed/2CuHgNWv5HE)
 
 Bruce and Patti join Timepiece (a local band in which Patti's brother plays keyboards) on stage at a private party at the Wonder Bar in Asbury Park. The setlist includes a cover of "" and "."
 
 **2015:** [634-5789 (Soulsville, U.S.A.)](http://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)[Brown Eyed Girl](http://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/)
 
-[https://www.youtube.com/embed/-Ioc6MVuHMM?feature=oembed](https://www.youtube.com/embed/-Ioc6MVuHMM?feature=oembed)
+[https://www.youtube.com/embed/-Ioc6MVuHMM](https://www.youtube.com/embed/-Ioc6MVuHMM)
 
-[https://www.youtube.com/embed/ZiHU-QzQ-gg?feature=oembed](https://www.youtube.com/embed/ZiHU-QzQ-gg?feature=oembed)
+[https://www.youtube.com/embed/ZiHU-QzQ-gg](https://www.youtube.com/embed/ZiHU-QzQ-gg)
 
-[https://www.youtube.com/embed/_F9getFn-to?feature=oembed](https://www.youtube.com/embed/_F9getFn-to?feature=oembed)
+[https://www.youtube.com/embed/_F9getFn-to](https://www.youtube.com/embed/_F9getFn-to)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/The_Courier_News_2015_08_07_Page_E4-scaled.jpg?resize=758%2C1257&amp;ssl=1)

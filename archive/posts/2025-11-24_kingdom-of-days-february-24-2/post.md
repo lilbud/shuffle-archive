@@ -21,7 +21,7 @@ Although nominated for Best Rock Vocal Performance (Male) for "" Bruce loses the
 
 **1982:** [The River,](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
 
-[https://www.youtube.com/embed/qYkbTyHXwbs?feature=oembed](https://www.youtube.com/embed/qYkbTyHXwbs?feature=oembed)
+[https://www.youtube.com/embed/qYkbTyHXwbs](https://www.youtube.com/embed/qYkbTyHXwbs)
 
 Bruce is nominated for two Grammy Awards but loses both: loses to Eric Clapton's in the Best Rock Vocal Performance, Male category; "" loses to "Layla" in the Best Rock Song category.
 
@@ -31,9 +31,9 @@ convenes via Zoom (due to the COVID-19 pandemic). Bruce is cleared of drunken an
 
 **2021:** *The United States v. Bruce Springsteen*
 
-[https://www.youtube.com/embed/ogHAxdOWM4w?feature=oembed](https://www.youtube.com/embed/ogHAxdOWM4w?feature=oembed)
+[https://www.youtube.com/embed/ogHAxdOWM4w](https://www.youtube.com/embed/ogHAxdOWM4w)
 
-[https://www.youtube.com/embed/CqbtIdvRbKQ?feature=oembed](https://www.youtube.com/embed/CqbtIdvRbKQ?feature=oembed)
+[https://www.youtube.com/embed/CqbtIdvRbKQ](https://www.youtube.com/embed/CqbtIdvRbKQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/02/2021-02-24a.jpg?resize=758%2C1346&amp;ssl=1)
 

@@ -11,9 +11,9 @@ Bruce and the E Street Band make a Born to Run Tour stop at Seton Hall Universit
 
 **1975:** [Party Lights](https://estreetshuffle.com/index.php/2022/06/01/cover-me-party-lights/)
 
-[https://videopress.com/embed/32Ky6u31?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/32Ky6u31?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/32Ky6u31](https://videopress.com/embed/32Ky6u31)
 
-[https://www.youtube.com/embed/KT8lMzs559M?feature=oembed](https://www.youtube.com/embed/KT8lMzs559M?feature=oembed)
+[https://www.youtube.com/embed/KT8lMzs559M](https://www.youtube.com/embed/KT8lMzs559M)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/Newsday__Nassau_Edition__Sun__Dec_28__1975_-scaled.jpg?resize=758%2C193&amp;ssl=1)
 
@@ -21,11 +21,11 @@ The original River Tour stops at the Civic Center in Providence, Rhode Island. T
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/GyDFBP3yPlk?feature=oembed](https://www.youtube.com/embed/GyDFBP3yPlk?feature=oembed)
+[https://www.youtube.com/embed/GyDFBP3yPlk](https://www.youtube.com/embed/GyDFBP3yPlk)
 
-[https://www.youtube.com/embed/un2dq08MneU?feature=oembed](https://www.youtube.com/embed/un2dq08MneU?feature=oembed)
+[https://www.youtube.com/embed/un2dq08MneU](https://www.youtube.com/embed/un2dq08MneU)
 
-[https://www.youtube.com/embed/okCBQ_1BLsI?feature=oembed](https://www.youtube.com/embed/okCBQ_1BLsI?feature=oembed)
+[https://www.youtube.com/embed/okCBQ_1BLsI](https://www.youtube.com/embed/okCBQ_1BLsI)
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1ApYyc8du5dIrWWdwS7Z72e](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1ApYyc8du5dIrWWdwS7Z72e)
 
@@ -35,7 +35,7 @@ Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, wher
 
 **1984:** [Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
-[https://videopress.com/embed/80rWaa1S?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/80rWaa1S?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/80rWaa1S](https://videopress.com/embed/80rWaa1S)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1984-12-11a.png?resize=758%2C333&amp;ssl=1)
 
@@ -51,16 +51,16 @@ Bruce plays his 100th show of his solo acoustic tour at the Veterans Memorial Au
 
 **1996:**<br>
 
-[https://www.youtube.com/embed/OZfP7vtxTB8?feature=oembed](https://www.youtube.com/embed/OZfP7vtxTB8?feature=oembed)
+[https://www.youtube.com/embed/OZfP7vtxTB8](https://www.youtube.com/embed/OZfP7vtxTB8)
 
 Bruce makes an appearance on Italian television, performing and sitting down for an interview in Bologna.
 
 **1998:**<br>
 
-[https://www.youtube.com/embed/r5h51SBnXUo?feature=oembed](https://www.youtube.com/embed/r5h51SBnXUo?feature=oembed)
+[https://www.youtube.com/embed/r5h51SBnXUo](https://www.youtube.com/embed/r5h51SBnXUo)
 
 Bruce and the E Street Band team up with the Max Weinberg 7 on for a special holiday performance and one of Bruce's all-time best television appearances.
 
 **2002:** *Late Night with Conan O'Brien*
 
-[https://www.youtube.com/embed/jCfSu99bAqc?feature=oembed](https://www.youtube.com/embed/jCfSu99bAqc?feature=oembed)
+[https://www.youtube.com/embed/jCfSu99bAqc](https://www.youtube.com/embed/jCfSu99bAqc)

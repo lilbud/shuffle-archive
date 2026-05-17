@@ -23,7 +23,7 @@ As a favor to John Hammond, Bruce performs at Choate Rosemary Hall in Wallingfor
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/RpYN1v_VZGc?feature=oembed](https://www.youtube.com/embed/RpYN1v_VZGc?feature=oembed)
+[https://www.youtube.com/embed/RpYN1v_VZGc](https://www.youtube.com/embed/RpYN1v_VZGc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0410-300x196.jpg?resize=753%2C492)
 
@@ -39,15 +39,15 @@ Bruce sits in with Beaver Brown for four songs at Big Man's West in Red Bank.
 
 **1982:**<br>
 
-[https://www.youtube.com/embed/xEk_SHW1r30?feature=oembed](https://www.youtube.com/embed/xEk_SHW1r30?feature=oembed)
+[https://www.youtube.com/embed/xEk_SHW1r30](https://www.youtube.com/embed/xEk_SHW1r30)
 
 The Born in the U.S.A. Tour kicks off its Japanese leg with the first of five nights at Yoyogi National Gymnasium in Tokyo. Watch the local news and MTV coverage below.
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/Aa20FyO78gg?feature=oembed](https://www.youtube.com/embed/Aa20FyO78gg?feature=oembed)
+[https://www.youtube.com/embed/Aa20FyO78gg](https://www.youtube.com/embed/Aa20FyO78gg)
 
-[https://www.youtube.com/embed/B2cUQ7QRUtc?feature=oembed](https://www.youtube.com/embed/B2cUQ7QRUtc?feature=oembed)
+[https://www.youtube.com/embed/B2cUQ7QRUtc](https://www.youtube.com/embed/B2cUQ7QRUtc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1985-0410-214x300.jpg?resize=758%2C1063)
 
@@ -55,7 +55,7 @@ Bruce begins an Italian mini-tour with a solo acoustic show at the Auditorium Sa
 
 **1996:** [Ennio Morricone](http://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/)
 
-[https://www.youtube.com/embed/j2Wx5WNOidc?feature=oembed](https://www.youtube.com/embed/j2Wx5WNOidc?feature=oembed)
+[https://www.youtube.com/embed/j2Wx5WNOidc](https://www.youtube.com/embed/j2Wx5WNOidc)
 
 Bruce's 1998 U.K. legal victory against Masquerade Music is upheld by the Court of Appeal. Masquerade had imported and released an album of unreleased Springsteen songs without the artist's permission.
 
@@ -69,23 +69,23 @@ Bruce plays a benefit show with local musicians (including Bobby Bandiera and Ed
 
 **2005:**<br>
 
-[https://videopress.com/embed/9hgdYBzC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9hgdYBzC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9hgdYBzC](https://videopress.com/embed/9hgdYBzC)
 
 The Working on a Dream Tour comes to Denver, along with four tour premieres including "" "" "," and "."
 
 **2009:** [Racing in the Street,](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[Tougher Than the Rest,](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)[The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)
 
-[https://www.youtube.com/embed/FDfLsusF-S8?feature=oembed](https://www.youtube.com/embed/FDfLsusF-S8?feature=oembed)
+[https://www.youtube.com/embed/FDfLsusF-S8](https://www.youtube.com/embed/FDfLsusF-S8)
 
 Bruce inducts the E Street Band (past and present) into the Rock and Roll Hall of Fame at the Barclays Center in New York City. Following the speeches, the band plays three songs, with both Max and Vini on drums and with David Sancious on organ. Watch the proceedings below.
 
 **2014:**<br>
 
-[https://videopress.com/embed/Ge92Sp5C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ge92Sp5C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Ge92Sp5C](https://videopress.com/embed/Ge92Sp5C)
 
-[https://www.youtube.com/embed/m4B1sig2t-s?feature=oembed](https://www.youtube.com/embed/m4B1sig2t-s?feature=oembed)
+[https://www.youtube.com/embed/m4B1sig2t-s](https://www.youtube.com/embed/m4B1sig2t-s)
 
-[https://www.youtube.com/embed/ePb_a23uBw0?feature=oembed](https://www.youtube.com/embed/ePb_a23uBw0?feature=oembed)
+[https://www.youtube.com/embed/ePb_a23uBw0](https://www.youtube.com/embed/ePb_a23uBw0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2014-04-10-79x300.jpg?resize=758%2C2879)
 
@@ -103,4 +103,4 @@ Bruce visits John Mellencamp at his studio in Belmont, Indiana, where he contrib
 
 **2021:** *Strictly a One-Eyed Jack.*
 
-[https://www.youtube.com/embed/B1Rz8rPdIDE?feature=oembed](https://www.youtube.com/embed/B1Rz8rPdIDE?feature=oembed)
+[https://www.youtube.com/embed/B1Rz8rPdIDE](https://www.youtube.com/embed/B1Rz8rPdIDE)

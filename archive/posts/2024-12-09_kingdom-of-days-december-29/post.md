@@ -27,21 +27,21 @@ At Night Two of three in Uniondale on the River Tour, Bruce opens with the tour 
 
 **1980:** [Night](http://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Darkness on the Edge of Town,](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)*Live 1975-85.* [here](http://live.brucespringsteen.net/live-music/0,22391/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-29-1980-Nassau-Veterans-Memorial-Coliseum-Uniondale-NY.html)
 
-[https://www.youtube.com/embed/1ZFKbVlkspY?feature=oembed](https://www.youtube.com/embed/1ZFKbVlkspY?feature=oembed)
+[https://www.youtube.com/embed/1ZFKbVlkspY](https://www.youtube.com/embed/1ZFKbVlkspY)
 
-[https://www.youtube.com/embed/2Cs2woIb2fY?feature=oembed](https://www.youtube.com/embed/2Cs2woIb2fY?feature=oembed)
+[https://www.youtube.com/embed/2Cs2woIb2fY](https://www.youtube.com/embed/2Cs2woIb2fY)
 
-[https://www.youtube.com/embed/vF50vNJ1k3Y?feature=oembed](https://www.youtube.com/embed/vF50vNJ1k3Y?feature=oembed)
+[https://www.youtube.com/embed/vF50vNJ1k3Y](https://www.youtube.com/embed/vF50vNJ1k3Y)
 
-[https://www.youtube.com/embed/hwdgPwPWeEc?feature=oembed](https://www.youtube.com/embed/hwdgPwPWeEc?feature=oembed)
+[https://www.youtube.com/embed/hwdgPwPWeEc](https://www.youtube.com/embed/hwdgPwPWeEc)
 
-[https://www.youtube.com/embed/NbmLwUiJ6QA?feature=oembed](https://www.youtube.com/embed/NbmLwUiJ6QA?feature=oembed)
+[https://www.youtube.com/embed/NbmLwUiJ6QA](https://www.youtube.com/embed/NbmLwUiJ6QA)
 
 Max, Garry, and Patti drop by the set of to share their thoughts about what it's like to be in the E Street Band.
 
 **1986:** *Good Morning, America*
 
-[https://www.youtube.com/embed/usxiNW11S6w?feature=oembed](https://www.youtube.com/embed/usxiNW11S6w?feature=oembed)
+[https://www.youtube.com/embed/usxiNW11S6w](https://www.youtube.com/embed/usxiNW11S6w)
 
 Patti Scialfa is sick with the flu, so Bruce continues playing the "B" setlist at at the Walter Kerr Theater in New York City.
 

@@ -11,7 +11,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
 
-[https://www.youtube.com/embed/bKUlWPTptBY?feature=oembed](https://www.youtube.com/embed/bKUlWPTptBY?feature=oembed)
+[https://www.youtube.com/embed/bKUlWPTptBY](https://www.youtube.com/embed/bKUlWPTptBY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1971-1203-300x175.jpg?resize=758%2C442)
 
@@ -19,15 +19,15 @@ Bruce and the E Street Band play their second of two nights at Boston's Music Ha
 
 **1975:** [Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
 
-[https://www.youtube.com/embed/A1K05Z6w1MI?feature=oembed](https://www.youtube.com/embed/A1K05Z6w1MI?feature=oembed)
+[https://www.youtube.com/embed/A1K05Z6w1MI](https://www.youtube.com/embed/A1K05Z6w1MI)
 
-[https://www.youtube.com/embed/FFPOWal1TkM?feature=oembed](https://www.youtube.com/embed/FFPOWal1TkM?feature=oembed)
+[https://www.youtube.com/embed/FFPOWal1TkM](https://www.youtube.com/embed/FFPOWal1TkM)
 
 Bruce and the boys bring the Darkness Tour to Southern Illinois University in Carbondale, where they open with "" and feature "" as part of "" for only the second and final time.
 
 **1978:** [High School Confidential](https://estreetshuffle.com/index.php/2020/05/04/cover-me-high-school-confidential/)[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
-[https://www.youtube.com/embed/MoJ2wz8bSU8?feature=oembed](https://www.youtube.com/embed/MoJ2wz8bSU8?feature=oembed)
+[https://www.youtube.com/embed/MoJ2wz8bSU8](https://www.youtube.com/embed/MoJ2wz8bSU8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/The_Paducah_Sun_Tue__Dec_5__1978_.jpg?resize=758%2C323&amp;ssl=1)
 
@@ -49,7 +49,7 @@ Bruce and his new touring band bring World Tour 1992 to the St. Louis Arena.
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/Tg2XI0pVTnw?feature=oembed](https://www.youtube.com/embed/Tg2XI0pVTnw?feature=oembed)
+[https://www.youtube.com/embed/Tg2XI0pVTnw](https://www.youtube.com/embed/Tg2XI0pVTnw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-12-03.png?resize=758%2C1537&amp;ssl=1)
 
@@ -57,7 +57,7 @@ Bruce plays a solo acoustic show at Chicago's Rosemont Theater. After the show, 
 
 **1995:**<br>
 
-[https://www.youtube.com/embed/q8NodXzYYsE?feature=oembed](https://www.youtube.com/embed/q8NodXzYYsE?feature=oembed)
+[https://www.youtube.com/embed/q8NodXzYYsE](https://www.youtube.com/embed/q8NodXzYYsE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1995-12-03b.png?resize=758%2C821&amp;ssl=1)
 
@@ -69,7 +69,7 @@ Bruce plays his second of two solo acoustic shows at the Sunrise Musical Theater
 
 **1996:**<br>
 
-[https://videopress.com/embed/7uVp4aK0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7uVp4aK0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/7uVp4aK0](https://videopress.com/embed/7uVp4aK0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-12-03.png?resize=758%2C1203&amp;ssl=1)
 
@@ -77,7 +77,7 @@ Bruce hosts the first of five benefit holiday concerts supporting local charitie
 
 **2001:** [Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)
 
-[https://videopress.com/embed/AEsu394K?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AEsu394K?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/AEsu394K](https://videopress.com/embed/AEsu394K)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2001-12-03a.png?resize=758%2C1216&amp;ssl=1)
 
@@ -89,7 +89,7 @@ The television show airs an episode that explores the value of a vintage 1984 Bo
 
 **2015:** *Pawn Stars*
 
-[https://www.youtube.com/embed/muVcPnnMalY?feature=oembed](https://www.youtube.com/embed/muVcPnnMalY?feature=oembed)
+[https://www.youtube.com/embed/muVcPnnMalY](https://www.youtube.com/embed/muVcPnnMalY)
 
 Bruce drops by the set of in Brooklyn.
 

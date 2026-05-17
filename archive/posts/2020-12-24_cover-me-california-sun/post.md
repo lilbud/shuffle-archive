@@ -3,11 +3,11 @@
 
 New Orleans-based Joe Jones was the first to record it, and he took it to #89 in 1961.
 
-[https://www.youtube.com/embed/GlU5PCBVHyI?feature=oembed](https://www.youtube.com/embed/GlU5PCBVHyI?feature=oembed)
+[https://www.youtube.com/embed/GlU5PCBVHyI](https://www.youtube.com/embed/GlU5PCBVHyI)
 
 More famously, The Rivieras covered it in 1964 and commanded the #5 spot on the chart for a solid ten weeks.
 
-[https://www.youtube.com/embed/Yy57Xdk9u0o?feature=oembed](https://www.youtube.com/embed/Yy57Xdk9u0o?feature=oembed)
+[https://www.youtube.com/embed/Yy57Xdk9u0o](https://www.youtube.com/embed/Yy57Xdk9u0o)
 
 So if a New Orleans R&B singer and an Indiana-based rock band can lay claim to the last great American rock hit before the British Invasion swept the country, why not a New Jersey rock icon?
 
@@ -19,7 +19,7 @@ But he's only played it properly in concert once: with the E Street Band at the 
 
 Here's that one-time-only performance, clearly influenced more by The Rivieras' version rather than Joe Jones' original (with a hat tip to The Surfaris at the end).
 
-[https://www.youtube.com/embed/DIukXYvEQPc?feature=oembed](https://www.youtube.com/embed/DIukXYvEQPc?feature=oembed)
+[https://www.youtube.com/embed/DIukXYvEQPc](https://www.youtube.com/embed/DIukXYvEQPc)
 
 November 9, 2007 (New York City, NY)
 April 26, 2012 (Los Angeles, CA)

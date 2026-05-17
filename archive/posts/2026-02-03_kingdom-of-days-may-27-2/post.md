@@ -13,7 +13,7 @@ Bruce joins Robert Gordon on stage for "" at the Paramount Theater in Asbury Par
 
 **1979:** [Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)
 
-[https://www.youtube.com/embed/kdSQPILL2Nw?feature=oembed](https://www.youtube.com/embed/kdSQPILL2Nw?feature=oembed)
+[https://www.youtube.com/embed/kdSQPILL2Nw](https://www.youtube.com/embed/kdSQPILL2Nw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1979-05-27.jpg?resize=758%2C470&amp;ssl=1)
 
@@ -29,7 +29,7 @@ Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) 
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/NeJrkyzmyS0?feature=oembed](https://www.youtube.com/embed/NeJrkyzmyS0?feature=oembed)
+[https://www.youtube.com/embed/NeJrkyzmyS0](https://www.youtube.com/embed/NeJrkyzmyS0)
 
 Bruce and the E Street Band make a Reunion Tour stop at the Flanders Expo in Ghent, where Elliott Murphy guest-stars on "Hungry Heart" and "Born to Run."
 
@@ -45,7 +45,7 @@ Bruce and Graham Parker join Southside Johnny and the Asbury Jukes at The Stone 
 
 **2001:**<br>
 
-[https://www.youtube.com/embed/VyrkKwtkNzg?feature=oembed](https://www.youtube.com/embed/VyrkKwtkNzg?feature=oembed)
+[https://www.youtube.com/embed/VyrkKwtkNzg](https://www.youtube.com/embed/VyrkKwtkNzg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2001-05-27.jpg?resize=758%2C217&amp;ssl=1)
 
@@ -53,11 +53,11 @@ At Night Two at London's Crystal Palace on the Rising Tour, Bruce opens with a s
 
 **2003:**<br>
 
-[https://www.youtube.com/embed/dlAdt0dbmIM?feature=oembed](https://www.youtube.com/embed/dlAdt0dbmIM?feature=oembed)
+[https://www.youtube.com/embed/dlAdt0dbmIM](https://www.youtube.com/embed/dlAdt0dbmIM)
 
-[https://www.youtube.com/embed/qB76ZtWtdcg?feature=oembed](https://www.youtube.com/embed/qB76ZtWtdcg?feature=oembed)
+[https://www.youtube.com/embed/qB76ZtWtdcg](https://www.youtube.com/embed/qB76ZtWtdcg)
 
-[https://www.youtube.com/embed/ZVMwjbbsE7M?feature=oembed](https://www.youtube.com/embed/ZVMwjbbsE7M?feature=oembed)
+[https://www.youtube.com/embed/ZVMwjbbsE7M](https://www.youtube.com/embed/ZVMwjbbsE7M)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2003-05-27.jpg?resize=758%2C725&amp;ssl=1)
 
@@ -65,9 +65,9 @@ Bruce brings his solo acoustic tour to London for the first of two nights at Roy
 
 **2005:**<br>
 
-[https://www.youtube.com/embed/I1lus3XUg7c?feature=oembed](https://www.youtube.com/embed/I1lus3XUg7c?feature=oembed)
+[https://www.youtube.com/embed/I1lus3XUg7c](https://www.youtube.com/embed/I1lus3XUg7c)
 
-[https://www.youtube.com/embed/odXCc5sXc_A?feature=oembed](https://www.youtube.com/embed/odXCc5sXc_A?feature=oembed)
+[https://www.youtube.com/embed/odXCc5sXc_A](https://www.youtube.com/embed/odXCc5sXc_A)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-27a.jpg?resize=758%2C687&amp;ssl=1)
 
@@ -83,29 +83,29 @@ The American leg of the Seeger Sessions Tour begins with a show at the Tweeter C
 
 **2012:** *Darkness on the Edge of Town*
 
-[https://www.youtube.com/embed/ck5otci0htU?feature=oembed](https://www.youtube.com/embed/ck5otci0htU?feature=oembed)
+[https://www.youtube.com/embed/ck5otci0htU](https://www.youtube.com/embed/ck5otci0htU)
 
-[https://www.youtube.com/embed/_auKcK1i1rY?feature=oembed](https://www.youtube.com/embed/_auKcK1i1rY?feature=oembed)
+[https://www.youtube.com/embed/_auKcK1i1rY](https://www.youtube.com/embed/_auKcK1i1rY)
 
-[https://www.youtube.com/embed/nn2DBJaaepU?feature=oembed](https://www.youtube.com/embed/nn2DBJaaepU?feature=oembed)
+[https://www.youtube.com/embed/nn2DBJaaepU](https://www.youtube.com/embed/nn2DBJaaepU)
 
-[https://www.youtube.com/embed/5kvzRoYGWtY?feature=oembed](https://www.youtube.com/embed/5kvzRoYGWtY?feature=oembed)
+[https://www.youtube.com/embed/5kvzRoYGWtY](https://www.youtube.com/embed/5kvzRoYGWtY)
 
-[https://www.youtube.com/embed/rB8iRilbi30?feature=oembed](https://www.youtube.com/embed/rB8iRilbi30?feature=oembed)
+[https://www.youtube.com/embed/rB8iRilbi30](https://www.youtube.com/embed/rB8iRilbi30)
 
-[https://www.youtube.com/embed/lGa65Wt94Ws?feature=oembed](https://www.youtube.com/embed/lGa65Wt94Ws?feature=oembed)
+[https://www.youtube.com/embed/lGa65Wt94Ws](https://www.youtube.com/embed/lGa65Wt94Ws)
 
 Bruce and the E Street Band play the first of two River Tour (2016 edition) shows at Croke Park in Dublin. "Back in Your Arms" and "Lost in the Flood" both make their tour debuts.
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/Nq28PzXDr8Y?feature=oembed](https://www.youtube.com/embed/Nq28PzXDr8Y?feature=oembed)
+[https://www.youtube.com/embed/Nq28PzXDr8Y](https://www.youtube.com/embed/Nq28PzXDr8Y)
 
-[https://www.youtube.com/embed/fzvtm9eCmeI?feature=oembed](https://www.youtube.com/embed/fzvtm9eCmeI?feature=oembed)
+[https://www.youtube.com/embed/fzvtm9eCmeI](https://www.youtube.com/embed/fzvtm9eCmeI)
 
-[https://www.youtube.com/embed/irF2LJC0Poo?feature=oembed](https://www.youtube.com/embed/irF2LJC0Poo?feature=oembed)
+[https://www.youtube.com/embed/irF2LJC0Poo](https://www.youtube.com/embed/irF2LJC0Poo)
 
-[https://www.youtube.com/embed/e9dHBmVTk6c?feature=oembed](https://www.youtube.com/embed/e9dHBmVTk6c?feature=oembed)
+[https://www.youtube.com/embed/e9dHBmVTk6c](https://www.youtube.com/embed/e9dHBmVTk6c)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_National_Sat__May_28__2016_-scaled.jpg?resize=758%2C544&amp;ssl=1)
 
@@ -113,7 +113,7 @@ Bruce joins Little Steven and the Disciples of Soul on stage at the Count Basie 
 
 **2017:**<br>
 
-[https://www.youtube.com/embed/wd8AfjeVLyw?feature=oembed](https://www.youtube.com/embed/wd8AfjeVLyw?feature=oembed)
+[https://www.youtube.com/embed/wd8AfjeVLyw](https://www.youtube.com/embed/wd8AfjeVLyw)
 
 Bruce attends his niece's graduation ceremony at the Ranney School in Tinton Falls.
 
@@ -125,18 +125,18 @@ Bruce takes a tumble during "Ghosts" when he and the E Street Band play their se
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/S4PFmorEK0M?feature=oembed](https://www.youtube.com/embed/S4PFmorEK0M?feature=oembed)
+[https://www.youtube.com/embed/S4PFmorEK0M](https://www.youtube.com/embed/S4PFmorEK0M)
 
-[https://www.youtube.com/embed/9xh9lokwJ54?feature=oembed](https://www.youtube.com/embed/9xh9lokwJ54?feature=oembed)
+[https://www.youtube.com/embed/9xh9lokwJ54](https://www.youtube.com/embed/9xh9lokwJ54)
 
-[https://www.youtube.com/embed/1fbEqkY5lDM?feature=oembed](https://www.youtube.com/embed/1fbEqkY5lDM?feature=oembed)
+[https://www.youtube.com/embed/1fbEqkY5lDM](https://www.youtube.com/embed/1fbEqkY5lDM)
 
-[https://www.youtube.com/embed/gaHxZQ0v41E?feature=oembed](https://www.youtube.com/embed/gaHxZQ0v41E?feature=oembed)
+[https://www.youtube.com/embed/gaHxZQ0v41E](https://www.youtube.com/embed/gaHxZQ0v41E)
 
 Bruce and the E Street Band play their second of two nights in Lille, France.
 
 **2025:**<br>
 
-[https://www.youtube.com/embed/7ls_uypxUf4?feature=oembed](https://www.youtube.com/embed/7ls_uypxUf4?feature=oembed)
+[https://www.youtube.com/embed/7ls_uypxUf4](https://www.youtube.com/embed/7ls_uypxUf4)
 
-[https://www.youtube.com/embed/9VXbdd59b1s?feature=oembed](https://www.youtube.com/embed/9VXbdd59b1s?feature=oembed)
+[https://www.youtube.com/embed/9VXbdd59b1s](https://www.youtube.com/embed/9VXbdd59b1s)

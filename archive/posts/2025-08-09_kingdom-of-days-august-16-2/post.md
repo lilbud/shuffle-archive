@@ -19,13 +19,13 @@ On the fourth of five legendary nights at New York City's Bottom Line club on th
 
 **1975:** [It's Gonna Work Out Fine](https://estreetshuffle.com/index.php/2021/01/02/cover-me-its-gonna-work-out-fine/)
 
-[https://www.youtube.com/embed/HaJpi_x1zaU?feature=oembed](https://www.youtube.com/embed/HaJpi_x1zaU?feature=oembed)
+[https://www.youtube.com/embed/HaJpi_x1zaU](https://www.youtube.com/embed/HaJpi_x1zaU)
 
-[https://www.youtube.com/embed/BQKT-okc3G8?feature=oembed](https://www.youtube.com/embed/BQKT-okc3G8?feature=oembed)
+[https://www.youtube.com/embed/BQKT-okc3G8](https://www.youtube.com/embed/BQKT-okc3G8)
 
 [https://www.youtube.com/embed/7UbGdcMX00I?start=71&amp;feature=oembed](https://www.youtube.com/embed/7UbGdcMX00I?start=71&amp;feature=oembed)
 
-[https://www.youtube.com/embed/C2GEQ7jm7oQ?feature=oembed](https://www.youtube.com/embed/C2GEQ7jm7oQ?feature=oembed)
+[https://www.youtube.com/embed/C2GEQ7jm7oQ](https://www.youtube.com/embed/C2GEQ7jm7oQ)
 
 Bruce joins Jackson Browne on stage for "" and "" at The Forum in Inglewood, California.
 
@@ -39,13 +39,13 @@ Bruce and the E Street Band return to Red Rocks on the River Tour, debuting thei
 
 **1981:** [Sea Cruise](http://estreetshuffle.com/index.php/2018/04/08/cover-me-sea-cruise/)[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)
 
-[https://www.youtube.com/embed/yMelZDKYN28?feature=oembed](https://www.youtube.com/embed/yMelZDKYN28?feature=oembed)
+[https://www.youtube.com/embed/yMelZDKYN28](https://www.youtube.com/embed/yMelZDKYN28)
 
 At Night Seven of their ten-night Meadowlands stand on the Born in the U.S.A. Tour, Bruce and the band tour debut "," played here in a new, faster arrangement than on the River Tour.
 
 **1984:** [Johnny Bye-Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)
 
-[https://www.youtube.com/embed/VTU3sV309Y8?feature=oembed](https://www.youtube.com/embed/VTU3sV309Y8?feature=oembed)
+[https://www.youtube.com/embed/VTU3sV309Y8](https://www.youtube.com/embed/VTU3sV309Y8)
 
 Bruce attends (but does not perform at) the 12th annual Clearwater Festival for the environment at Sandy Hook, New Jersey, along with former E Street Band drummer Vini Lopez.
 
@@ -67,9 +67,9 @@ The Rising Tour stadium leg makes its too-brief (only two shows!) west coast swi
 
 **2003:** [Across the Border.](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)[report](https://estreetshuffle.com/index.php/2018/08/16/where-the-band-was-san-francisco-august-16-2003/)*Where the Band Was*
 
-[https://www.youtube.com/embed/_uGfbByFzcw?feature=oembed](https://www.youtube.com/embed/_uGfbByFzcw?feature=oembed)
+[https://www.youtube.com/embed/_uGfbByFzcw](https://www.youtube.com/embed/_uGfbByFzcw)
 
-[https://www.youtube.com/embed/178DZwY1Bio?feature=oembed](https://www.youtube.com/embed/178DZwY1Bio?feature=oembed)
+[https://www.youtube.com/embed/178DZwY1Bio](https://www.youtube.com/embed/178DZwY1Bio)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-16-300x260.png?resize=758%2C657)
 
@@ -77,11 +77,11 @@ The Magic Tour is in its home stretch, as Bruce kicks off his Charleston, South 
 
 **2008:** [Double Shot (of My Baby's Love),](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)
 
-[https://www.youtube.com/embed/r8RsI7CYIEs?feature=oembed](https://www.youtube.com/embed/r8RsI7CYIEs?feature=oembed)
+[https://www.youtube.com/embed/r8RsI7CYIEs](https://www.youtube.com/embed/r8RsI7CYIEs)
 
-[https://www.youtube.com/embed/tqc9Vjhota4?feature=oembed](https://www.youtube.com/embed/tqc9Vjhota4?feature=oembed)
+[https://www.youtube.com/embed/tqc9Vjhota4](https://www.youtube.com/embed/tqc9Vjhota4)
 
-[https://videopress.com/embed/ivRkIzGk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ivRkIzGk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ivRkIzGk](https://videopress.com/embed/ivRkIzGk)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -91,6 +91,6 @@ Minutes before the GA gates are due to open, Bruce postpones his show (and the o
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/KYl9eW0dLBM?feature=oembed](https://www.youtube.com/embed/KYl9eW0dLBM?feature=oembed)
+[https://www.youtube.com/embed/KYl9eW0dLBM](https://www.youtube.com/embed/KYl9eW0dLBM)
 
-[https://www.youtube.com/embed/fClMZLuzb0U?feature=oembed](https://www.youtube.com/embed/fClMZLuzb0U?feature=oembed)
+[https://www.youtube.com/embed/fClMZLuzb0U](https://www.youtube.com/embed/fClMZLuzb0U)

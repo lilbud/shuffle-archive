@@ -3,7 +3,7 @@ Bruce watches The Beatles make their live American debut on The Ed Sullivan Show
 
 **1964:**<br>
 
-[https://www.youtube.com/embed/jenWdylTtzs?feature=oembed](https://www.youtube.com/embed/jenWdylTtzs?feature=oembed)
+[https://www.youtube.com/embed/jenWdylTtzs](https://www.youtube.com/embed/jenWdylTtzs)
 
 The reviews Bruce's debut album,
 
@@ -37,10 +37,10 @@ Night Two in Sydney again features the Australian Urban Orchestra for "New York 
 
 **2017:**[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Be True.](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
-[https://www.youtube.com/embed/VDKm_1xZXVA?feature=oembed](https://www.youtube.com/embed/VDKm_1xZXVA?feature=oembed)
+[https://www.youtube.com/embed/VDKm_1xZXVA](https://www.youtube.com/embed/VDKm_1xZXVA)
 
-[https://www.youtube.com/embed/lGxg5Atl1Mk?feature=oembed](https://www.youtube.com/embed/lGxg5Atl1Mk?feature=oembed)
+[https://www.youtube.com/embed/lGxg5Atl1Mk](https://www.youtube.com/embed/lGxg5Atl1Mk)
 
-[https://www.youtube.com/embed/lfpkS8epHWk?feature=oembed](https://www.youtube.com/embed/lfpkS8epHWk?feature=oembed)
+[https://www.youtube.com/embed/lfpkS8epHWk](https://www.youtube.com/embed/lfpkS8epHWk)
 
-[https://www.youtube.com/embed/sut4A5aYFl8?feature=oembed](https://www.youtube.com/embed/sut4A5aYFl8?feature=oembed)
+[https://www.youtube.com/embed/sut4A5aYFl8](https://www.youtube.com/embed/sut4A5aYFl8)

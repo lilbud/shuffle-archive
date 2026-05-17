@@ -3,9 +3,9 @@ Waaaaaay back in September 1967, The Castiles covered Eric Burdon and The Animal
 
 Bruce and the band gave a pretty faithful interpretation–even copying the "Dragnet" novelty introduction. The sound quality isn't great, but the performance is fun–listen below and then compare to the original.
 
-[https://videopress.com/embed/mynOYldh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mynOYldh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/mynOYldh](https://videopress.com/embed/mynOYldh)
 
-[https://www.youtube.com/embed/8hv0M5etXFA?feature=oembed](https://www.youtube.com/embed/8hv0M5etXFA?feature=oembed)
+[https://www.youtube.com/embed/8hv0M5etXFA](https://www.youtube.com/embed/8hv0M5etXFA)
 
 September 30, 1967 (Freehold, NJ)
 September 30, 1967 (Freehold, NJ)

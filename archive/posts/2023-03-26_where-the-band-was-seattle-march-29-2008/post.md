@@ -13,11 +13,11 @@ The highlight for me: the double-shot of "" (only performed nine times to this d
 
 [Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
 
-[https://www.youtube.com/embed/vq4OLmn_nGc?feature=oembed](https://www.youtube.com/embed/vq4OLmn_nGc?feature=oembed)
+[https://www.youtube.com/embed/vq4OLmn_nGc](https://www.youtube.com/embed/vq4OLmn_nGc)
 
-[https://www.youtube.com/embed/RSl5Oe0oXIo?feature=oembed](https://www.youtube.com/embed/RSl5Oe0oXIo?feature=oembed)
+[https://www.youtube.com/embed/RSl5Oe0oXIo](https://www.youtube.com/embed/RSl5Oe0oXIo)
 
-[https://www.youtube.com/embed/JwVRaN26LBM?feature=oembed](https://www.youtube.com/embed/JwVRaN26LBM?feature=oembed)
+[https://www.youtube.com/embed/JwVRaN26LBM](https://www.youtube.com/embed/JwVRaN26LBM)
 
 The encores on this leg of the Magic Tour had become pretty set in stone by this point, but Bruce delivered a jolt of energy right at the top of the encore with sign requests for "" (which had been MIA for a few months) and "Rosalita (Come Out Tonight)," finishing strong and setting the stage for the closing night of the PacNW swing in Vancouver.
 

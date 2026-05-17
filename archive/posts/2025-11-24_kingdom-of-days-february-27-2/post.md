@@ -39,7 +39,7 @@ ABC-TV's news series airs a story on the 3M plant closure in Freehold and Bruce'
 
 **1986:** *20/20*[This Land Is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)
 
-[https://www.youtube.com/embed/GvfAtxd2-7w?feature=oembed](https://www.youtube.com/embed/GvfAtxd2-7w?feature=oembed)
+[https://www.youtube.com/embed/GvfAtxd2-7w](https://www.youtube.com/embed/GvfAtxd2-7w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1986-02-27.png?resize=758%2C680&amp;ssl=1)
 
@@ -49,7 +49,7 @@ On the release date for "," his third single and video from Bruce visits his fri
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-02-27-300x164.jpg?resize=758%2C415)
 
-[https://www.youtube.com/embed/MkFQHScyti0?feature=oembed](https://www.youtube.com/embed/MkFQHScyti0?feature=oembed)
+[https://www.youtube.com/embed/MkFQHScyti0](https://www.youtube.com/embed/MkFQHScyti0)
 
 Bruce and Little Steven present Gary U.S. Bonds with the Rhythm-and-Blues Foundation's Pioneer Award at Midtown Hilton in New York City.
 
@@ -65,17 +65,17 @@ Bruce and the E Street Band (plus Curt Ramm) make a guest appearance on where th
 
 **2012:***Late Night with Jimmy Fallon*,[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)
 
-[https://videopress.com/embed/CTNZOLZP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CTNZOLZP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/CTNZOLZP](https://videopress.com/embed/CTNZOLZP)
 
-[https://videopress.com/embed/YypCW8h2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YypCW8h2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/YypCW8h2](https://videopress.com/embed/YypCW8h2)
 
 At the Blue Cross Arena in Rochester, "" returns in the encore, where it will remain throughout the tour. This show also features a rare "" from the River outtakes and the tour premieres of "" and "."
 
 **2016:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[I Wanna Be With You](http://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)[I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-[https://www.youtube.com/embed/JuLI1JrSlYs?feature=oembed](https://www.youtube.com/embed/JuLI1JrSlYs?feature=oembed)
+[https://www.youtube.com/embed/JuLI1JrSlYs](https://www.youtube.com/embed/JuLI1JrSlYs)
 
-[https://www.youtube.com/embed/EI7sFzBmsvk?feature=oembed](https://www.youtube.com/embed/EI7sFzBmsvk?feature=oembed)
+[https://www.youtube.com/embed/EI7sFzBmsvk](https://www.youtube.com/embed/EI7sFzBmsvk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2016-02-27a-193x300.jpg?resize=758%2C1178)
 
@@ -85,8 +85,8 @@ Lisa Lowell returns to the stage at Climate Pledge Arena in Seattle, but Curtis 
 
 **2023:** [Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)
 
-[https://www.youtube.com/embed/irRZJI0Svts?feature=oembed](https://www.youtube.com/embed/irRZJI0Svts?feature=oembed)
+[https://www.youtube.com/embed/irRZJI0Svts](https://www.youtube.com/embed/irRZJI0Svts)
 
-[https://www.youtube.com/embed/dkl9fs40GBg?feature=oembed](https://www.youtube.com/embed/dkl9fs40GBg?feature=oembed)
+[https://www.youtube.com/embed/dkl9fs40GBg](https://www.youtube.com/embed/dkl9fs40GBg)
 
-[https://www.youtube.com/embed/Vpu4nE1BYrE?feature=oembed](https://www.youtube.com/embed/Vpu4nE1BYrE?feature=oembed)
+[https://www.youtube.com/embed/Vpu4nE1BYrE](https://www.youtube.com/embed/Vpu4nE1BYrE)

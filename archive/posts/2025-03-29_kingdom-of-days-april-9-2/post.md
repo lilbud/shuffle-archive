@@ -13,7 +13,7 @@ Bruce and most of the E Street Band (Boom Carter is not in attendance) drop by W
 
 **1974:** [4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
-[https://videopress.com/embed/u6HITmag?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u6HITmag?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/u6HITmag](https://videopress.com/embed/u6HITmag)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/33978719418_90457a3bf7_o-300x300.jpg?resize=758%2C758)
 
@@ -21,9 +21,9 @@ The Chicken Scratch Tour moves on to Colgate University for a surprise concert a
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/7YUeYbdMnnk?feature=oembed](https://www.youtube.com/embed/7YUeYbdMnnk?feature=oembed)
+[https://www.youtube.com/embed/7YUeYbdMnnk](https://www.youtube.com/embed/7YUeYbdMnnk)
 
-[https://videopress.com/embed/75QkE4yD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/75QkE4yD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/75QkE4yD](https://videopress.com/embed/75QkE4yD)
 
 Bruce and the E Street Band record tracks for at the Power Station in New York City.
 
@@ -37,7 +37,7 @@ As the European leg of The River Tour gains steam, Bruce begins opening the show
 
 **1981:** [Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)
 
-[https://videopress.com/embed/6J9ty986?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6J9ty986?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/6J9ty986](https://videopress.com/embed/6J9ty986)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0409-300x229.jpg?resize=758%2C578)
 
@@ -59,17 +59,17 @@ The first public E Street Band concert since 1988, as the Reunion Tour kicks off
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/JSBIdM0IjLw?feature=oembed](https://www.youtube.com/embed/JSBIdM0IjLw?feature=oembed)
+[https://www.youtube.com/embed/JSBIdM0IjLw](https://www.youtube.com/embed/JSBIdM0IjLw)
 
-[https://www.youtube.com/embed/2mfhT-P4REE?feature=oembed](https://www.youtube.com/embed/2mfhT-P4REE?feature=oembed)
+[https://www.youtube.com/embed/2mfhT-P4REE](https://www.youtube.com/embed/2mfhT-P4REE)
 
 …and my favorite clip from this show, "." Watch from the 4-minute mark, and see what happens when Clarence can't quite get to the microphone for his line.
 
 [Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)
 
-[https://www.youtube.com/embed/6YHFg55mLPc?feature=oembed](https://www.youtube.com/embed/6YHFg55mLPc?feature=oembed)
+[https://www.youtube.com/embed/6YHFg55mLPc](https://www.youtube.com/embed/6YHFg55mLPc)
 
-[https://www.youtube.com/embed/b1JIBl1zI60?feature=oembed](https://www.youtube.com/embed/b1JIBl1zI60?feature=oembed)
+[https://www.youtube.com/embed/b1JIBl1zI60](https://www.youtube.com/embed/b1JIBl1zI60)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/44767315550_2391743b54_o-300x211.jpg?resize=758%2C533)
 
@@ -79,7 +79,7 @@ Kansas City gets an outstanding set list for their Reunion show: Bruce opens wit
 
 **2000:** [Take ‘Em as They Come](http://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)
 
-[https://videopress.com/embed/TwY6egiH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/TwY6egiH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/TwY6egiH](https://videopress.com/embed/TwY6egiH)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2000-04-10.jpg?resize=758%2C341&amp;ssl=1)
 
@@ -87,7 +87,7 @@ The Rising Tour returns to North America as Bruce and the band play Arco Arena i
 
 **2003:** [Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)
 
-[https://videopress.com/embed/ZiX2cHWZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZiX2cHWZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ZiX2cHWZ](https://videopress.com/embed/ZiX2cHWZ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/2003-04-09a.jpg?resize=532%2C1092&amp;ssl=1)
 
@@ -97,9 +97,9 @@ Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list feat
 
 **2012:** [Spirit in the Night](http://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
 
-[https://videopress.com/embed/OuA08kLJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OuA08kLJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/OuA08kLJ](https://videopress.com/embed/OuA08kLJ)
 
-[https://videopress.com/embed/ZFKqPKyJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZFKqPKyJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ZFKqPKyJ](https://videopress.com/embed/ZFKqPKyJ)
 
 The Hear the World Foundation announces that Bruce will serve as an ambassador to raise awareness for the non-profit organization's campaign to prevent hearing loss.
 
@@ -111,4 +111,4 @@ Bruce and the E Street Band play their first of two nights at UBS Arena in Elmon
 
 **2023:** [Mary's Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)
 
-[https://www.youtube.com/embed/7BSisqQ-oqY?feature=oembed](https://www.youtube.com/embed/7BSisqQ-oqY?feature=oembed)
+[https://www.youtube.com/embed/7BSisqQ-oqY](https://www.youtube.com/embed/7BSisqQ-oqY)

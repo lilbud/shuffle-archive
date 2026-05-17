@@ -13,7 +13,7 @@ Bruce and Steel Mill open for the Elvin Bishop Band at The Matrix in San Francis
 
 **1971**[Clearwater incident](http://estreetshuffle.com/index.php/2018/09/11/kingdom-of-days-september-11/)<http://estreetshuffle.com/wp-content/uploads/2018/01/09-PSA.flac>
 
-[https://www.youtube.com/embed/ko8iLPOFVdw?feature=oembed](https://www.youtube.com/embed/ko8iLPOFVdw?feature=oembed)
+[https://www.youtube.com/embed/ko8iLPOFVdw](https://www.youtube.com/embed/ko8iLPOFVdw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1971-01-22-300x138.jpg?resize=758%2C349)
 
@@ -33,29 +33,29 @@ Bruce wins the Best Original Song Golden Globe for "."
 
 **1994:** [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
-[https://www.youtube.com/embed/En4D3L5EGZc?feature=oembed](https://www.youtube.com/embed/En4D3L5EGZc?feature=oembed)
+[https://www.youtube.com/embed/En4D3L5EGZc](https://www.youtube.com/embed/En4D3L5EGZc)
 
 : airs a segment profiling Bruce and his recent performance in Youngstown.
 
 **1996***CBS Sunday Morning*
 
-[https://www.youtube.com/embed/_kKjwMysxNk?feature=oembed](https://www.youtube.com/embed/_kKjwMysxNk?feature=oembed)
+[https://www.youtube.com/embed/_kKjwMysxNk](https://www.youtube.com/embed/_kKjwMysxNk)
 
 That evening, Bruce plays a solo acoustic show at the Saenger Performing Arts Center in New Orleans.
 
-[https://videopress.com/embed/7yl9qLlX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7yl9qLlX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/7yl9qLlX](https://videopress.com/embed/7yl9qLlX)
 
 : Bruce, Danny, Jim Hanson, Marty Rifkin, and Gary Mallaber perform "" and "" for a Rolling Stone 30th anniversary special. It won't be aired until May, though.
 
 **1998**[The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)
 
-[https://www.youtube.com/embed/XT0OxAS5wg0?feature=oembed](https://www.youtube.com/embed/XT0OxAS5wg0?feature=oembed)
+[https://www.youtube.com/embed/XT0OxAS5wg0](https://www.youtube.com/embed/XT0OxAS5wg0)
 
 : Bruce performs "" at a benefit for Haiti earthquake victims, joined by Charlie Giordano, Patti Scialfa, Soozie Tyrell, Curt Ramm, Curtis King, and Cindy Mizelle.
 
 **2010**[We Shall Overcome](http://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)
 
-[https://www.youtube.com/embed/HtC_NIBXrH4?feature=oembed](https://www.youtube.com/embed/HtC_NIBXrH4?feature=oembed)
+[https://www.youtube.com/embed/HtC_NIBXrH4](https://www.youtube.com/embed/HtC_NIBXrH4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2010-01-22.png?resize=758%2C956&amp;ssl=1)
 
@@ -63,13 +63,13 @@ Bruce releases his official video for "."
 
 **2014:** [Just Like Fire Would](https://estreetshuffle.com/index.php/2020/05/24/cover-me-just-like-fire-would/)
 
-[https://www.youtube.com/embed/hJ4a_tgJp4I?feature=oembed](https://www.youtube.com/embed/hJ4a_tgJp4I?feature=oembed)
+[https://www.youtube.com/embed/hJ4a_tgJp4I](https://www.youtube.com/embed/hJ4a_tgJp4I)
 
 Bruce and Patti chair the 2016 USET Olympic and Paralympic benefit for the U.S. Equestrian Team. (Their daughter Jessica is a champion equestrian.) Bruce and Patti perform "" with the house band.
 
 **2016:**[Money (That's What I Want)](http://estreetshuffle.com/index.php/2019/11/26/matr-bruce-springsteen-and-beaver-brown-money-thats-what-i-want/)
 
-[https://www.youtube.com/embed/e6n2jeN_x7E?feature=oembed](https://www.youtube.com/embed/e6n2jeN_x7E?feature=oembed)
+[https://www.youtube.com/embed/e6n2jeN_x7E](https://www.youtube.com/embed/e6n2jeN_x7E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_2016_01_29_Page_J3.jpg?resize=758%2C614&amp;ssl=1)
 
@@ -77,15 +77,15 @@ Bruce and the E Street Band kick off their Australian Summer tour in Perth. This
 
 **2017:**[Blood Brothers](http://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)
 
-[https://www.youtube.com/embed/_hXG_TjbgpE?feature=oembed](https://www.youtube.com/embed/_hXG_TjbgpE?feature=oembed)
+[https://www.youtube.com/embed/_hXG_TjbgpE](https://www.youtube.com/embed/_hXG_TjbgpE)
 
-[https://www.youtube.com/embed/jSV7wsiLhpk?feature=oembed](https://www.youtube.com/embed/jSV7wsiLhpk?feature=oembed)
+[https://www.youtube.com/embed/jSV7wsiLhpk](https://www.youtube.com/embed/jSV7wsiLhpk)
 
-[https://www.youtube.com/embed/4LIuyHtY9ZY?feature=oembed](https://www.youtube.com/embed/4LIuyHtY9ZY?feature=oembed)
+[https://www.youtube.com/embed/4LIuyHtY9ZY](https://www.youtube.com/embed/4LIuyHtY9ZY)
 
-[https://www.youtube.com/embed/isGuAxRlZ-w?feature=oembed](https://www.youtube.com/embed/isGuAxRlZ-w?feature=oembed)
+[https://www.youtube.com/embed/isGuAxRlZ-w](https://www.youtube.com/embed/isGuAxRlZ-w)
 
-[https://www.youtube.com/embed/HI6SXU78NFE?feature=oembed](https://www.youtube.com/embed/HI6SXU78NFE?feature=oembed)
+[https://www.youtube.com/embed/HI6SXU78NFE](https://www.youtube.com/embed/HI6SXU78NFE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2017-01-22.png?resize=758%2C715&amp;ssl=1)
 

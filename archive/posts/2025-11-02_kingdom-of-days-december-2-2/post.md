@@ -5,11 +5,11 @@ Bruce and the E Street Band usher in the holiday season with their first of two 
 
 **1975:**[Party Lights](https://estreetshuffle.com/index.php/2022/06/01/cover-me-party-lights/)[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
-[https://www.youtube.com/embed/_CqYpjOqG80?feature=oembed](https://www.youtube.com/embed/_CqYpjOqG80?feature=oembed)
+[https://www.youtube.com/embed/_CqYpjOqG80](https://www.youtube.com/embed/_CqYpjOqG80)
 
-[https://videopress.com/embed/5W7VNLGN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5W7VNLGN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/5W7VNLGN](https://videopress.com/embed/5W7VNLGN)
 
-[https://www.youtube.com/embed/pKVxQTpGlAQ?feature=oembed](https://www.youtube.com/embed/pKVxQTpGlAQ?feature=oembed)
+[https://www.youtube.com/embed/pKVxQTpGlAQ](https://www.youtube.com/embed/pKVxQTpGlAQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1975-12-02.png?resize=758%2C1120&amp;ssl=1)
 
@@ -19,7 +19,7 @@ Bruce joins Robert Gordon and Link Wray on stage at NYU for a cover of ""
 
 **1977:** [Heartbreak Hotel.](https://estreetshuffle.com/index.php/2021/04/11/matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/)
 
-[https://www.youtube.com/embed/LBkx1AWpJ-8?feature=oembed](https://www.youtube.com/embed/LBkx1AWpJ-8?feature=oembed)
+[https://www.youtube.com/embed/LBkx1AWpJ-8](https://www.youtube.com/embed/LBkx1AWpJ-8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/46689530675_197e278a21_o-300x162.jpg?resize=758%2C409)
 
@@ -27,7 +27,7 @@ Bruce and the E Street Band bring the original River Tour to the Rochester Commu
 
 **1980:**<br>
 
-[https://videopress.com/embed/86gvEoej?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/86gvEoej?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/86gvEoej](https://videopress.com/embed/86gvEoej)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1980-12-02a.png?resize=758%2C432&amp;ssl=1)
 
@@ -43,7 +43,7 @@ Bruce and the band make a Born in the U.S.A. Tour stop at Louisiana State Univer
 
 **1984:**<br>
 
-[https://www.youtube.com/embed/-yFkpH87bDA?feature=oembed](https://www.youtube.com/embed/-yFkpH87bDA?feature=oembed)
+[https://www.youtube.com/embed/-yFkpH87bDA](https://www.youtube.com/embed/-yFkpH87bDA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Leesville_Daily_Leader_1984_12_04_3.jpg?w=758&amp;ssl=1)
 
@@ -51,7 +51,7 @@ Dallas fans celebrate the arrival of the holiday season when Bruce closes his Wo
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/LS8uGiazRAc?feature=oembed](https://www.youtube.com/embed/LS8uGiazRAc?feature=oembed)
+[https://www.youtube.com/embed/LS8uGiazRAc](https://www.youtube.com/embed/LS8uGiazRAc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-02a.png?resize=758%2C1911&amp;ssl=1)
 
@@ -61,7 +61,7 @@ Dion DiMucci guest stars on "" when Bruce plays his first of two solo acoustic s
 
 **1996:** [If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
-[https://www.youtube.com/embed/Pi5wsCgXMhw?feature=oembed](https://www.youtube.com/embed/Pi5wsCgXMhw?feature=oembed)
+[https://www.youtube.com/embed/Pi5wsCgXMhw](https://www.youtube.com/embed/Pi5wsCgXMhw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1996-12-02a.png?resize=758%2C361&amp;ssl=1)
 
@@ -73,11 +73,11 @@ Dion DiMucci guest stars on "" when Bruce plays his first of two solo acoustic s
 
 **2002:** [Where the Bands Are](http://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
-[https://www.youtube.com/embed/DZDTf9ogKIM?feature=oembed](https://www.youtube.com/embed/DZDTf9ogKIM?feature=oembed)
+[https://www.youtube.com/embed/DZDTf9ogKIM](https://www.youtube.com/embed/DZDTf9ogKIM)
 
-[https://videopress.com/embed/nzPrurlG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nzPrurlG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/nzPrurlG](https://videopress.com/embed/nzPrurlG)
 
-[https://www.youtube.com/embed/Wtzyczm8HpY?feature=oembed](https://www.youtube.com/embed/Wtzyczm8HpY?feature=oembed)
+[https://www.youtube.com/embed/Wtzyczm8HpY](https://www.youtube.com/embed/Wtzyczm8HpY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Atlanta_Constitution_2002_12_03_B3.jpg?resize=758%2C1746&amp;ssl=1)
 
@@ -85,13 +85,13 @@ Bruce joins Joe Grushecky and The Houserockers for a special Flood Aid concert i
 
 **2004:** [All Along the Watchtower](https://estreetshuffle.com/index.php/2020/08/13/matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/)
 
-[https://www.youtube.com/embed/-rywffsiwsw?feature=oembed](https://www.youtube.com/embed/-rywffsiwsw?feature=oembed)
+[https://www.youtube.com/embed/-rywffsiwsw](https://www.youtube.com/embed/-rywffsiwsw)
 
-[https://www.youtube.com/embed/mkIVp89fM_Y?feature=oembed](https://www.youtube.com/embed/mkIVp89fM_Y?feature=oembed)
+[https://www.youtube.com/embed/mkIVp89fM_Y](https://www.youtube.com/embed/mkIVp89fM_Y)
 
-[https://www.youtube.com/embed/9tXOSi0GqPQ?feature=oembed](https://www.youtube.com/embed/9tXOSi0GqPQ?feature=oembed)
+[https://www.youtube.com/embed/9tXOSi0GqPQ](https://www.youtube.com/embed/9tXOSi0GqPQ)
 
-[https://www.youtube.com/embed/rYcTtyaeonk?feature=oembed](https://www.youtube.com/embed/rYcTtyaeonk?feature=oembed)
+[https://www.youtube.com/embed/rYcTtyaeonk](https://www.youtube.com/embed/rYcTtyaeonk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2004-12-02a.png?resize=758%2C410&amp;ssl=1)
 
@@ -101,7 +101,7 @@ Bruce joins Marah and Joe Grushecky and The Houserockers at their Light of Day s
 
 **2006:**<br>
 
-[https://www.youtube.com/embed/sMNfK9VfNE0?feature=oembed](https://www.youtube.com/embed/sMNfK9VfNE0?feature=oembed)
+[https://www.youtube.com/embed/sMNfK9VfNE0](https://www.youtube.com/embed/sMNfK9VfNE0)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/12/d1t06-Springsteen-Intro__Merged.mp3>
 
@@ -111,13 +111,13 @@ The Magic Tour continues its trek across Europe, as Bruce and the E Street Band 
 
 **2007:**<br>
 
-[https://www.youtube.com/embed/aZdekslqgZU?feature=oembed](https://www.youtube.com/embed/aZdekslqgZU?feature=oembed)
+[https://www.youtube.com/embed/aZdekslqgZU](https://www.youtube.com/embed/aZdekslqgZU)
 
 Bruce continues his promotional book tour, stopping at 2nd & Charles in Kennesaw, Georgia to meet fans.
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/wXBUFozJd4Y?feature=oembed](https://www.youtube.com/embed/wXBUFozJd4Y?feature=oembed)
+[https://www.youtube.com/embed/wXBUFozJd4Y](https://www.youtube.com/embed/wXBUFozJd4Y)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2016-12-02a.png?resize=758%2C809&amp;ssl=1)
 

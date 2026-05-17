@@ -15,9 +15,9 @@ Bruce and the band play The Joint in the Woods in Parsippany, New Jersey–notab
 
 **1974:**[Ring of Fire](http://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)[634-5789](http://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)
 
-[https://www.youtube.com/embed/SmNh7gGOQ0U?feature=oembed](https://www.youtube.com/embed/SmNh7gGOQ0U?feature=oembed)
+[https://www.youtube.com/embed/SmNh7gGOQ0U](https://www.youtube.com/embed/SmNh7gGOQ0U)
 
-[https://www.youtube.com/embed/Zosn7YiboBs?feature=oembed](https://www.youtube.com/embed/Zosn7YiboBs?feature=oembed)
+[https://www.youtube.com/embed/Zosn7YiboBs](https://www.youtube.com/embed/Zosn7YiboBs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1974-01-12.png?resize=758%2C1370&amp;ssl=1)
 
@@ -29,7 +29,7 @@ Bruce joins Nils Lofgren (who is not yet a member of the E Street Band) on stage
 
 **1982:**[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)
 
-[https://videopress.com/embed/VjV3L0Je?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VjV3L0Je?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VjV3L0Je](https://videopress.com/embed/VjV3L0Je)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1982-01-12a.png?resize=758%2C892&amp;ssl=1)
 
@@ -37,19 +37,19 @@ At The Hit Factory in New York City, Bruce and the E Street Band record "" and "
 
 **1984:** [Man at the Top](http://estreetshuffle.com/index.php/2019/05/10/roll-of-the-dice-man-at-the-top/)[Rockaway the Days](https://estreetshuffle.com/index.php/2021/03/15/roll-of-the-dice-rockaway-the-days/)
 
-[https://www.youtube.com/embed/IWXqPv9JY8k?feature=oembed](https://www.youtube.com/embed/IWXqPv9JY8k?feature=oembed)
+[https://www.youtube.com/embed/IWXqPv9JY8k](https://www.youtube.com/embed/IWXqPv9JY8k)
 
-[https://www.youtube.com/embed/eu5sSFAC5-U?feature=oembed](https://www.youtube.com/embed/eu5sSFAC5-U?feature=oembed)
+[https://www.youtube.com/embed/eu5sSFAC5-U](https://www.youtube.com/embed/eu5sSFAC5-U)
 
 Creedence Clearwater Revival is inducted into the Rock and Roll Hall of Fame, and Bruce is part of John Fogerty's backing band for the occasion. The band also includes Robbie Robertson, Roy Bittan, Benmont Tench, Jim Keltner, and Don Was. Watch their set below.
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/ekw13v8Et7U?feature=oembed](https://www.youtube.com/embed/ekw13v8Et7U?feature=oembed)
+[https://www.youtube.com/embed/ekw13v8Et7U](https://www.youtube.com/embed/ekw13v8Et7U)
 
-[https://www.youtube.com/embed/8wbsWOsM9qs?feature=oembed](https://www.youtube.com/embed/8wbsWOsM9qs?feature=oembed)
+[https://www.youtube.com/embed/8wbsWOsM9qs](https://www.youtube.com/embed/8wbsWOsM9qs)
 
-[https://www.youtube.com/embed/pfn4G2IJUxA?feature=oembed](https://www.youtube.com/embed/pfn4G2IJUxA?feature=oembed)
+[https://www.youtube.com/embed/pfn4G2IJUxA](https://www.youtube.com/embed/pfn4G2IJUxA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1993-01-12.png?resize=758%2C1467&amp;ssl=1)
 
@@ -57,15 +57,15 @@ Bruce records "" at The Hit Factory in New York City.
 
 **1995:** [Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)
 
-[https://www.youtube.com/embed/9FBVo0LqhYQ?feature=oembed](https://www.youtube.com/embed/9FBVo0LqhYQ?feature=oembed)
+[https://www.youtube.com/embed/9FBVo0LqhYQ](https://www.youtube.com/embed/9FBVo0LqhYQ)
 
 Bruce plays Stambaugh Auditorium in Youngstown, Ohio, inspiration (of course) for his song, "."
 
 **1996:**[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)
 
-[https://www.youtube.com/embed/Smddcs5n0H0?feature=oembed](https://www.youtube.com/embed/Smddcs5n0H0?feature=oembed)
+[https://www.youtube.com/embed/Smddcs5n0H0](https://www.youtube.com/embed/Smddcs5n0H0)
 
-[https://www.youtube.com/embed/HN6z96fJq44?feature=oembed](https://www.youtube.com/embed/HN6z96fJq44?feature=oembed)
+[https://www.youtube.com/embed/HN6z96fJq44](https://www.youtube.com/embed/HN6z96fJq44)
 
 Bruce's upcoming album, , leaks to the internet more than two weeks ahead of its release.
 

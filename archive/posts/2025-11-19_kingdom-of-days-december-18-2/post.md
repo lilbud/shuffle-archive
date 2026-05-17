@@ -21,7 +21,7 @@ The River Tour comes home (or close to it, anyway) for the holidays, as Bruce an
 
 **1980:** [Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)
 
-[https://videopress.com/embed/nmrhM2Ww?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nmrhM2Ww?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/nmrhM2Ww](https://videopress.com/embed/nmrhM2Ww)
 
 Bruce joins local musicians at the Stone Pony and plays "" for local ill and disabled children.
 
@@ -35,7 +35,7 @@ Bruce holds his second of two inaugural Asbury Park holiday shows at Convention 
 
 **2000:**<br>
 
-[https://videopress.com/embed/8HQV6Lmm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8HQV6Lmm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/8HQV6Lmm](https://videopress.com/embed/8HQV6Lmm)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2000-12-18a.png?resize=513%2C1710&amp;ssl=1)
 

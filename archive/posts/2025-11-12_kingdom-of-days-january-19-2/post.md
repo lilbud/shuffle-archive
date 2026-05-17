@@ -25,21 +25,21 @@ Bruce records "" and "." The former will be released as a 1984 B-side (and on fi
 
 **1983:** [Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)[One Love](http://estreetshuffle.com/index.php/2019/04/23/roll-of-the-dice-one-love/)*Tracks*
 
-[https://www.youtube.com/embed/1w_S4JhQ2lE?feature=oembed](https://www.youtube.com/embed/1w_S4JhQ2lE?feature=oembed)
+[https://www.youtube.com/embed/1w_S4JhQ2lE](https://www.youtube.com/embed/1w_S4JhQ2lE)
 
 The second of two nights at the Greensboro Coliseum on the tour.
 
 **1985:** *Born in the U.S.A.*
 
-[https://videopress.com/embed/13wdDEGB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/13wdDEGB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/13wdDEGB](https://videopress.com/embed/13wdDEGB)
 
 Bruce and most of the E Street Band play a benefit show for the Freehold 3M plant workers at the Stone Pony in Asbury Park. The event and local impact is covered by TV news media.
 
 **1986:**<br>
 
-[https://www.youtube.com/embed/NV1WmcFYI6o?feature=oembed](https://www.youtube.com/embed/NV1WmcFYI6o?feature=oembed)
+[https://www.youtube.com/embed/NV1WmcFYI6o](https://www.youtube.com/embed/NV1WmcFYI6o)
 
-[https://www.youtube.com/embed/GvfAtxd2-7w?feature=oembed](https://www.youtube.com/embed/GvfAtxd2-7w?feature=oembed)
+[https://www.youtube.com/embed/GvfAtxd2-7w](https://www.youtube.com/embed/GvfAtxd2-7w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1986-01-19a.png?resize=758%2C551&amp;ssl=1)
 
@@ -53,7 +53,7 @@ NPR begins streaming Bruce's upcoming album, for free for one week prior to its 
 
 **2012:** [We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)[](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*
 
-[https://www.youtube.com/embed/M3Bz0d2xm7U?feature=oembed](https://www.youtube.com/embed/M3Bz0d2xm7U?feature=oembed)
+[https://www.youtube.com/embed/M3Bz0d2xm7U](https://www.youtube.com/embed/M3Bz0d2xm7U)
 
 reaches #1 in the U.K., making it Bruce's tenth #1 album in that country.
 
@@ -63,13 +63,13 @@ The River Tour moves on to Chicago. In memory of Glenn Frey, who died the day be
 
 **2016:**[Take It Easy](https://wp.me/p9w3Lk-3y)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)<https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3>
 
-[https://videopress.com/embed/8RnJsHus?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8RnJsHus?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/8RnJsHus](https://videopress.com/embed/8RnJsHus)
 
-[https://videopress.com/embed/5SVrUcUl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5SVrUcUl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/5SVrUcUl](https://videopress.com/embed/5SVrUcUl)
 
-[https://www.youtube.com/embed/U0i7CFQHEtI?feature=oembed](https://www.youtube.com/embed/U0i7CFQHEtI?feature=oembed)
+[https://www.youtube.com/embed/U0i7CFQHEtI](https://www.youtube.com/embed/U0i7CFQHEtI)
 
-[https://www.youtube.com/embed/5Wwu-9HgQOg?feature=oembed](https://www.youtube.com/embed/5Wwu-9HgQOg?feature=oembed)
+[https://www.youtube.com/embed/5Wwu-9HgQOg](https://www.youtube.com/embed/5Wwu-9HgQOg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Chicago_Tribune_2016_01_21_Page_4_7-1.jpg?resize=758%2C1155&amp;ssl=1)
 
@@ -81,10 +81,10 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-[https://videopress.com/embed/UcfupLwc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UcfupLwc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/UcfupLwc](https://videopress.com/embed/UcfupLwc)
 
 Bruce and Patti chair the Paris 2024 Olympic "Victory in Versailles" benefit gala in support of the U.S. Equestrian team. Bruce performs three songs during the evening.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/hKzlSvUT_nA?feature=oembed](https://www.youtube.com/embed/hKzlSvUT_nA?feature=oembed)
+[https://www.youtube.com/embed/hKzlSvUT_nA](https://www.youtube.com/embed/hKzlSvUT_nA)

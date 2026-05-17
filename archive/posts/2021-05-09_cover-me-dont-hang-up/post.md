@@ -11,13 +11,13 @@ It took a few days for the details of the call to surface, and when they did on 
 
 The song was "Don't Hang Up," a 1962 Top Ten hit by The Orlons. (It peaked at #4.)
 
-[https://www.youtube.com/embed/7tKr63v06Aw?feature=oembed](https://www.youtube.com/embed/7tKr63v06Aw?feature=oembed)
+[https://www.youtube.com/embed/7tKr63v06Aw](https://www.youtube.com/embed/7tKr63v06Aw)
 
 A comedic tale of mutual infidelity, the song's subject matter wasn't particularly relevant to the news of the day, but Bruce was counting on the chorus to do the talking.
 
 With no time to work up a full-band arrangement, Bruce took the stage with his acoustic guitar, introducing the band as a group of "embarrassed Americans" before launching into a brief cover of The Orlons' hit song.
 
-[https://www.youtube.com/embed/zSiZMyUlw8Y?feature=oembed](https://www.youtube.com/embed/zSiZMyUlw8Y?feature=oembed)
+[https://www.youtube.com/embed/zSiZMyUlw8Y](https://www.youtube.com/embed/zSiZMyUlw8Y)
 
 And lest anyone think Bruce was more concerned with protocol than the urgent matter beneath it, Bruce immediately segued from "Don't Hang Up" into "," introducing the latter as "an immigrant song."
 

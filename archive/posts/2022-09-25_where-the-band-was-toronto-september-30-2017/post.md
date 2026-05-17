@@ -13,13 +13,13 @@ But Bruce kept it upbeat, opening with "," a beautiful, quiet arrangement of ","
 
 [Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[Da](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" that made everyone forget it was being played acoustically. I'll never forget surveying the arena floor during that final number and watching the athletes from different nations celebrating and, well, dancing in the dark.[ncing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://videopress.com/embed/OY8ZIMWH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OY8ZIMWH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/OY8ZIMWH](https://videopress.com/embed/OY8ZIMWH)
 
 But the true highlights for me came during Bruce's second appearance, during Bryan Adams' set, when Bruce came back out to take lead vocals and contribute a short but screaming guitar solo on "" (61 shows in, and I *still* pretty much always get a song I've never heard before each time); and a searing "" to cap the set. Badlands in particular was an inspired choice for an event dedicated to unconquerable fighters, and although the sax solo was noticeably and awkwardly missing, Bryan's band absolutely nailed the song.
 
 [Cuts Like a Knife](http://estreetshuffle.com/index.php/2018/09/14/meeting-across-the-river-bryan-adams-and-bruce-springsteen-cuts-like-a-knife/)[Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)
 
-[https://www.youtube.com/embed/AUTmqptb-XY?feature=oembed](https://www.youtube.com/embed/AUTmqptb-XY?feature=oembed)
+[https://www.youtube.com/embed/AUTmqptb-XY](https://www.youtube.com/embed/AUTmqptb-XY)
 
 All in all, a nice "bonus' show, and a good appetite-whetter for Broadway–where I would be in three days time. By that time, amazingly, I'd have seen Bruce three times in in two weeks–and it wasn't even a touring year!
 

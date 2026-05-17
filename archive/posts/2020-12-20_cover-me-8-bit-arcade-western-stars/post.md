@@ -11,4 +11,4 @@ The 8-Bit Arcade team gets points for the sheer audaciousness of even to adapt a
 
 So without further ado, take a listen to the 8-Bit Arcade cover of "Western Stars," and prepare to be impressed.
 
-[https://www.youtube.com/embed/u-1C6RRF1No?feature=oembed](https://www.youtube.com/embed/u-1C6RRF1No?feature=oembed)
+[https://www.youtube.com/embed/u-1C6RRF1No](https://www.youtube.com/embed/u-1C6RRF1No)

@@ -9,7 +9,7 @@ Bruce continues his Florida swing with a gig at Jai Alai Fronton in Orlando.
 
 **1977:**<br>
 
-[https://videopress.com/embed/4joZ40eY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4joZ40eY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4joZ40eY](https://videopress.com/embed/4joZ40eY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1977-03-05b-300x287.jpg?resize=758%2C725)
 
@@ -19,7 +19,7 @@ At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the 
 
 **1981:**[Fade Away](http://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)
 
-[https://videopress.com/embed/DteacuKH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DteacuKH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/DteacuKH](https://videopress.com/embed/DteacuKH)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1981-03-05a-271x300.jpg?resize=758%2C839)
 
@@ -41,9 +41,9 @@ Bruce and the reunited E Street Band rehearse for their upcoming Reunion Tour at
 
 **2001:** [Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
 
-[https://www.youtube.com/embed/s3tqIk8TPWM?feature=oembed](https://www.youtube.com/embed/s3tqIk8TPWM?feature=oembed)
+[https://www.youtube.com/embed/s3tqIk8TPWM](https://www.youtube.com/embed/s3tqIk8TPWM)
 
-[https://www.youtube.com/embed/KrGi8ODOWR0?feature=oembed](https://www.youtube.com/embed/KrGi8ODOWR0?feature=oembed)
+[https://www.youtube.com/embed/KrGi8ODOWR0](https://www.youtube.com/embed/KrGi8ODOWR0)
 
 is certified gold by the Recording Industry Association of America.
 
@@ -55,10 +55,10 @@ Bruce and the E Street Band bring their World Tour to Saint Paul, where they tou
 
 **2023:** [Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
-[https://www.youtube.com/embed/QFvxomhYioc?feature=oembed](https://www.youtube.com/embed/QFvxomhYioc?feature=oembed)
+[https://www.youtube.com/embed/QFvxomhYioc](https://www.youtube.com/embed/QFvxomhYioc)
 
-[https://www.youtube.com/embed/loLoscZVRzI?feature=oembed](https://www.youtube.com/embed/loLoscZVRzI?feature=oembed)
+[https://www.youtube.com/embed/loLoscZVRzI](https://www.youtube.com/embed/loLoscZVRzI)
 
-[https://www.youtube.com/embed/_1zgH3SsaT0?feature=oembed](https://www.youtube.com/embed/_1zgH3SsaT0?feature=oembed)
+[https://www.youtube.com/embed/_1zgH3SsaT0](https://www.youtube.com/embed/_1zgH3SsaT0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Star_Tribune_Mon__Mar_6__2023_.jpg?resize=758%2C970&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Star_Tribune_Mon__Mar_6__2023_-1.jpg?resize=758%2C936&amp;ssl=1)

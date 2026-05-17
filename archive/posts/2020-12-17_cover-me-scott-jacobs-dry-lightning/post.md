@@ -5,7 +5,7 @@ Today's entry comes from Canadian folk singer Scott Jacobs, whose lovely acousti
 
 [Dry Lightning](https://estreetshuffle.com/index.php/2020/10/16/roll-of-the-dice-dry-lightning/)
 
-[https://www.youtube.com/embed/JVtfv-9YUyg?feature=oembed](https://www.youtube.com/embed/JVtfv-9YUyg?feature=oembed)
+[https://www.youtube.com/embed/JVtfv-9YUyg](https://www.youtube.com/embed/JVtfv-9YUyg)
 
 "Dry Lightning" is a tough song to cover–Bruce's deceptively gentle melody serves as counterpoint to the increasingly jaded lyrics. Deliver a vocal performance that's too subtle, and the song sails by without ever registering its bite. Go too far, and the song loses the tenderness that gives the song its resonance.
 

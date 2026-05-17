@@ -5,11 +5,11 @@ Garland and Bruce have performed it together on four occasions, and one of those
 
 Here's that performance from Garland and Bruce, backed by the Max Weinberg 7.
 
-[https://www.youtube.com/embed/ANXGNWHni9w?feature=oembed](https://www.youtube.com/embed/ANXGNWHni9w?feature=oembed)
+[https://www.youtube.com/embed/ANXGNWHni9w](https://www.youtube.com/embed/ANXGNWHni9w)
 
 Not bad, but IMO, it doesn't hold a candle to the original:
 
-[https://www.youtube.com/embed/3RzBZsOeqOQ?feature=oembed](https://www.youtube.com/embed/3RzBZsOeqOQ?feature=oembed)
+[https://www.youtube.com/embed/3RzBZsOeqOQ](https://www.youtube.com/embed/3RzBZsOeqOQ)
 
 November 2, 2002 (Sea Bright, NJ)
 January 14, 2012 (Asbury Park, NJ)

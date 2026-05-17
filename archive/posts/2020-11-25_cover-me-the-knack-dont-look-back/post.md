@@ -5,4 +5,4 @@ One of my all-time favorite Bruce covers: "" by The Knack. (I'm a child of the 1
 
 If you're gonna cover a Bruce Springsteen song, you either need to reinvent it or completely commit to it. These guys did the latter–and they wisely chose a song so well suited to their style that you could be forgiven for assuming it was their own material.
 
-[https://www.youtube.com/embed/yBAMzLfatOA?feature=oembed](https://www.youtube.com/embed/yBAMzLfatOA?feature=oembed)
+[https://www.youtube.com/embed/yBAMzLfatOA](https://www.youtube.com/embed/yBAMzLfatOA)

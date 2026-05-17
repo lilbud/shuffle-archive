@@ -11,9 +11,9 @@ The Lawsuit Tour moves north to the Central Maine Youth Center in Lewiston, wher
 
 **1977:**<br>
 
-[https://www.youtube.com/embed/jq3U8CECx54?feature=oembed](https://www.youtube.com/embed/jq3U8CECx54?feature=oembed)
+[https://www.youtube.com/embed/jq3U8CECx54](https://www.youtube.com/embed/jq3U8CECx54)
 
-[https://www.youtube.com/embed/fEOcwFaOlos?feature=oembed](https://www.youtube.com/embed/fEOcwFaOlos?feature=oembed)
+[https://www.youtube.com/embed/fEOcwFaOlos](https://www.youtube.com/embed/fEOcwFaOlos)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Lewiston_Daily_Sun_Sat__Mar_19__1977_-scaled.jpg?resize=617%2C2560&amp;ssl=1)
 
@@ -31,21 +31,21 @@ Bruce plays his first-ever show in Northern Ireland, at King's Hall in Belfast. 
 
 **1996:**<br>
 
-[https://www.youtube.com/embed/t21WgfwCqB8?feature=oembed](https://www.youtube.com/embed/t21WgfwCqB8?feature=oembed)
+[https://www.youtube.com/embed/t21WgfwCqB8](https://www.youtube.com/embed/t21WgfwCqB8)
 
-[https://www.youtube.com/embed/-A6tzqdK7ds?feature=oembed](https://www.youtube.com/embed/-A6tzqdK7ds?feature=oembed)
+[https://www.youtube.com/embed/-A6tzqdK7ds](https://www.youtube.com/embed/-A6tzqdK7ds)
 
-[https://www.youtube.com/embed/UEf8P4jNB7E?feature=oembed](https://www.youtube.com/embed/UEf8P4jNB7E?feature=oembed)
+[https://www.youtube.com/embed/UEf8P4jNB7E](https://www.youtube.com/embed/UEf8P4jNB7E)
 
-[https://www.youtube.com/embed/Z6KsXi0adkE?feature=oembed](https://www.youtube.com/embed/Z6KsXi0adkE?feature=oembed)
+[https://www.youtube.com/embed/Z6KsXi0adkE](https://www.youtube.com/embed/Z6KsXi0adkE)
 
-[https://www.youtube.com/embed/EeoIWeyMqnc?feature=oembed](https://www.youtube.com/embed/EeoIWeyMqnc?feature=oembed)
+[https://www.youtube.com/embed/EeoIWeyMqnc](https://www.youtube.com/embed/EeoIWeyMqnc)
 
 A second public warm-up show for Bruce Springsteen and the E Street Band, their last in the U.S. before the Reunion Tour kicks off. "Give the Girl a Kiss" makes its live debut, and "The Promise" is played for the first time in 21 years.
 
 **1999:**<br>
 
-[https://videopress.com/embed/yPtVKHzK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yPtVKHzK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/yPtVKHzK](https://videopress.com/embed/yPtVKHzK)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19a.jpg?resize=758%2C552&amp;ssl=1)
 
@@ -57,44 +57,44 @@ Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.
 
 **2000:**<br>
 
-[https://videopress.com/embed/KtVROHSG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KtVROHSG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/KtVROHSG](https://videopress.com/embed/KtVROHSG)
 
-[https://videopress.com/embed/eLzC9Wo8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eLzC9Wo8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/eLzC9Wo8](https://videopress.com/embed/eLzC9Wo8)
 
 With the Seeger Sessions Band in his home studio, Bruce records "Old Dan Tucker," "Mrs. McGrath," "Erie Canal," "O Mary Don't You Weep," "John Henry," "Shenandoah," "Froggie Went A-courtin'" and "Pay Me My Money Down."
 
 **2005:**<br>
 
-[https://www.youtube.com/embed/tebjshm7f_I?feature=oembed](https://www.youtube.com/embed/tebjshm7f_I?feature=oembed)
+[https://www.youtube.com/embed/tebjshm7f_I](https://www.youtube.com/embed/tebjshm7f_I)
 
 Jon Stewart interviews Bruce on The Daily Show, where Bruce performs an acoustic version of "Working on a Dream." Later that evening, Bruce and the E Street Band (with Jay Weinberg filling in for his dad) rehearse at Asbury Park Convention Hall.
 
 **2009:**<br>
 
-[https://videopress.com/embed/5Dsw0eAI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5Dsw0eAI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/5Dsw0eAI](https://videopress.com/embed/5Dsw0eAI)
 
 Night Two of the Wrecking Ball Tour, at the Greensboro Coliseum.
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/8mHqlZioB3g?feature=oembed](https://www.youtube.com/embed/8mHqlZioB3g?feature=oembed)
+[https://www.youtube.com/embed/8mHqlZioB3g](https://www.youtube.com/embed/8mHqlZioB3g)
 
-[https://www.youtube.com/embed/iEWmlk5mmEI?feature=oembed](https://www.youtube.com/embed/iEWmlk5mmEI?feature=oembed)
+[https://www.youtube.com/embed/iEWmlk5mmEI](https://www.youtube.com/embed/iEWmlk5mmEI)
 
 The final night (for anyone) at the L.A. Sports Arena features a magical "Drive All Night." The arena is demolished shortly thereafter.
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/c9g0jM7KDy4?feature=oembed](https://www.youtube.com/embed/c9g0jM7KDy4?feature=oembed)
+[https://www.youtube.com/embed/c9g0jM7KDy4](https://www.youtube.com/embed/c9g0jM7KDy4)
 
-[https://www.youtube.com/embed/UxYJ1Flk5H4?feature=oembed](https://www.youtube.com/embed/UxYJ1Flk5H4?feature=oembed)
+[https://www.youtube.com/embed/UxYJ1Flk5H4](https://www.youtube.com/embed/UxYJ1Flk5H4)
 
-[https://www.youtube.com/embed/3zc2E7N2xPg?feature=oembed](https://www.youtube.com/embed/3zc2E7N2xPg?feature=oembed)
+[https://www.youtube.com/embed/3zc2E7N2xPg](https://www.youtube.com/embed/3zc2E7N2xPg)
 
 Bruce and the E Street Band resume their world tour at Footprint Center in Phoenix, where "Don't Play That Song" makes a welcome return to the set and "Kitty's Back" is notably and sadly absent.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/E3yzf78emYk?feature=oembed](https://www.youtube.com/embed/E3yzf78emYk?feature=oembed)
+[https://www.youtube.com/embed/E3yzf78emYk](https://www.youtube.com/embed/E3yzf78emYk)
 
-[https://www.youtube.com/embed/n-hFWBU8uuY?feature=oembed](https://www.youtube.com/embed/n-hFWBU8uuY?feature=oembed)
+[https://www.youtube.com/embed/n-hFWBU8uuY](https://www.youtube.com/embed/n-hFWBU8uuY)

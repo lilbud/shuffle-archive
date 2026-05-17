@@ -7,7 +7,7 @@ Bruce's list also includes Elvis, The Beatles, The Rolling Stones, Bob Dylan, an
 
 There was one Four Tops song that almost made the Springsteen concert cut, though: their 1965 hit "Something About You."
 
-[https://www.youtube.com/embed/HuAaCgojI90?feature=oembed](https://www.youtube.com/embed/HuAaCgojI90?feature=oembed)
+[https://www.youtube.com/embed/HuAaCgojI90](https://www.youtube.com/embed/HuAaCgojI90)
 
 "Something About You" climbed as high as #19 on the Billboard Hot 100 that year, and to #9 on the R&B Chart. And while it may not have been Bruce's desert island song of choice (that honor belongs to "Baby, I Need Your Loving"), it did inspire one of Bruce's own singles.
 
@@ -15,7 +15,7 @@ The riff from "Something About You" bears a strong resemblance to "," and when B
 
 [Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)
 
-[https://www.youtube.com/embed/VCmpqCRlVA4?feature=oembed](https://www.youtube.com/embed/VCmpqCRlVA4?feature=oembed)
+[https://www.youtube.com/embed/VCmpqCRlVA4](https://www.youtube.com/embed/VCmpqCRlVA4)
 
 But it would take a few more years before Bruce would play the original on stage–and even then only during a rehearsal. One January day at the Expo Theater in Fort Monmouth, New Jersey, Bruce and the E Street Band took a break from practicing their new material and tackled the Four Tops classic instead.
 

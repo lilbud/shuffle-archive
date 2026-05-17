@@ -31,9 +31,9 @@ Bruce opens with "Trapped" and pulls out the Magic tour premiere of "Point Blank
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/RSl5Oe0oXIo?feature=oembed](https://www.youtube.com/embed/RSl5Oe0oXIo?feature=oembed)
+[https://www.youtube.com/embed/RSl5Oe0oXIo](https://www.youtube.com/embed/RSl5Oe0oXIo)
 
-[https://www.youtube.com/embed/JwVRaN26LBM?feature=oembed](https://www.youtube.com/embed/JwVRaN26LBM?feature=oembed)
+[https://www.youtube.com/embed/JwVRaN26LBM](https://www.youtube.com/embed/JwVRaN26LBM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2008-03-29.png?resize=758%2C1155&amp;ssl=1)
 
@@ -41,15 +41,15 @@ Night Two in Philadelphia features a rare (outside of Philly, anyway) "Streets o
 
 **2012:***Rolling Stone*,
 
-[https://www.youtube.com/embed/QimUtzbHEvg?feature=oembed](https://www.youtube.com/embed/QimUtzbHEvg?feature=oembed)
+[https://www.youtube.com/embed/QimUtzbHEvg](https://www.youtube.com/embed/QimUtzbHEvg)
 
-[https://www.youtube.com/embed/CZe0bvLn_nk?feature=oembed](https://www.youtube.com/embed/CZe0bvLn_nk?feature=oembed)
+[https://www.youtube.com/embed/CZe0bvLn_nk](https://www.youtube.com/embed/CZe0bvLn_nk)
 
-[https://www.youtube.com/embed/mfA0GQkHIUw?feature=oembed](https://www.youtube.com/embed/mfA0GQkHIUw?feature=oembed)
+[https://www.youtube.com/embed/mfA0GQkHIUw](https://www.youtube.com/embed/mfA0GQkHIUw)
 
-[https://videopress.com/embed/gej0C60o?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gej0C60o?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/gej0C60o](https://videopress.com/embed/gej0C60o)
 
-[https://videopress.com/embed/optZZp65?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/optZZp65?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/optZZp65](https://videopress.com/embed/optZZp65)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/RollingStone11.jpg?resize=500%2C679&amp;ssl=1)
 
@@ -69,9 +69,9 @@ Bruce and President Barack Obama release Episode 7 of their podcast, entitled "F
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/ozJ7CrhBLKI?feature=oembed](https://www.youtube.com/embed/ozJ7CrhBLKI?feature=oembed)
+[https://www.youtube.com/embed/ozJ7CrhBLKI](https://www.youtube.com/embed/ozJ7CrhBLKI)
 
-[https://www.youtube.com/embed/7L-TbAde0e0?feature=oembed](https://www.youtube.com/embed/7L-TbAde0e0?feature=oembed)
+[https://www.youtube.com/embed/7L-TbAde0e0](https://www.youtube.com/embed/7L-TbAde0e0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Detroit_Free_Press_Fri__Mar_31__2023_-scaled.jpg?resize=758%2C1868&amp;ssl=1)
 

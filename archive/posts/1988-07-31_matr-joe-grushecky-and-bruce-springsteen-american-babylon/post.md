@@ -8,7 +8,7 @@ Although Bruce sings and/or plays on every other track on the album, Bruce convi
 
 But that didn't stop Joe and Bruce from performing it live together, which they did when Joe debuted several tracks from his upcoming album at Tradewinds in the summer of '95…
 
-[https://videopress.com/embed/SKrUmcO2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SKrUmcO2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/SKrUmcO2](https://videopress.com/embed/SKrUmcO2)
 
 …and for all six nights of Joe's "October Assault" mini-tour following the album's release. Bruce was an honorary Houserocker for the entire tour, and "American Babylon" featured prominently at the heart of the set every night.
 

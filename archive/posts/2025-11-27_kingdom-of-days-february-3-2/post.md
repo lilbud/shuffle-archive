@@ -13,8 +13,8 @@ On night two of their first tour in six years, Bruce and the E Street Band tour 
 
 **2023:** [Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)
 
-[https://www.youtube.com/embed/SsrrPXL25wM?feature=oembed](https://www.youtube.com/embed/SsrrPXL25wM?feature=oembed)
+[https://www.youtube.com/embed/SsrrPXL25wM](https://www.youtube.com/embed/SsrrPXL25wM)
 
-[https://www.youtube.com/embed/3sG3HKi5b9Q?feature=oembed](https://www.youtube.com/embed/3sG3HKi5b9Q?feature=oembed)
+[https://www.youtube.com/embed/3sG3HKi5b9Q](https://www.youtube.com/embed/3sG3HKi5b9Q)
 
-[https://www.youtube.com/embed/CmVCxeyI6jA?feature=oembed](https://www.youtube.com/embed/CmVCxeyI6jA?feature=oembed)
+[https://www.youtube.com/embed/CmVCxeyI6jA](https://www.youtube.com/embed/CmVCxeyI6jA)

@@ -5,7 +5,7 @@ It's pretty tough to do something new with "" — it's very likely the most cove
 
 Dan Patrick Fulton pulls it off, though, by mashing it up with "Sex on Fire" by Kings of Leon–a neat pairing that works both musically and thematically.
 
-[https://www.youtube.com/embed/_Ak4uHuUPK4?feature=oembed](https://www.youtube.com/embed/_Ak4uHuUPK4?feature=oembed)
+[https://www.youtube.com/embed/_Ak4uHuUPK4](https://www.youtube.com/embed/_Ak4uHuUPK4)
 
 Dan gets bonus points for going all in with full costume dress and some fantastic editing, too.
 

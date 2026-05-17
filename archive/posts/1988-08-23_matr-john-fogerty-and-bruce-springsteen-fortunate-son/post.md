@@ -10,7 +10,7 @@ If it seems like John and the E Street Band were a natural pairing on "Fortunate
 
 But that tour wasn't the first time Bruce and the E Street Band played "Fortunate Son" together. They actually played it together twice before, but to much smaller crowds. Their debut performance came at The Stone Pony, a rare gig during the summer of 1987:
 
-[https://videopress.com/embed/zpqRMmWn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/zpqRMmWn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/zpqRMmWn](https://videopress.com/embed/zpqRMmWn)
 
 Just a couple of months later, Bruce and the E Street Band reprised their performance at McLoone's Rum Runner in Seat Bright on Halloween night:
 
@@ -18,7 +18,7 @@ Just a couple of months later, Bruce and the E Street Band reprised their perfor
 
 (and in between, Bruce even played it with the Stone Pony house band, Cats on a Smooth Surface)
 
-[https://videopress.com/embed/OdtlsJTq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OdtlsJTq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/OdtlsJTq](https://videopress.com/embed/OdtlsJTq)
 
 The original Creedence Clearwater Revival recording was already a classic anti-war anthem, and its stature has only grown since. Peaking at #3 upon its original 1969 release, Rolling Stone eventually inducted it into their 500 Greatest Songs of All Time list at #99.
 

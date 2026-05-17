@@ -11,7 +11,7 @@ Bruce and the E Street Band bring the Born to Run Tour to Seneca College in Toro
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/olusvTlt3_0?feature=oembed](https://www.youtube.com/embed/olusvTlt3_0?feature=oembed)
+[https://www.youtube.com/embed/olusvTlt3_0](https://www.youtube.com/embed/olusvTlt3_0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Toronto_Star_1975_12_22_19.jpg?resize=758%2C1149&amp;ssl=1)
 
@@ -33,4 +33,4 @@ Bruce performs a gorgeous acoustic version of "" (its first live performance, al
 
 **2020:** [Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)*Stand With Teachers*
 
-[https://www.youtube.com/embed/tlHBa5IpCmw?feature=oembed](https://www.youtube.com/embed/tlHBa5IpCmw?feature=oembed)
+[https://www.youtube.com/embed/tlHBa5IpCmw](https://www.youtube.com/embed/tlHBa5IpCmw)

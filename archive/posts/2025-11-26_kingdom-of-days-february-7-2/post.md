@@ -11,7 +11,7 @@ Bruce and the E Street Band play their second of two nights at Widener College.
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/YKgTGmtQEps?feature=oembed](https://www.youtube.com/embed/YKgTGmtQEps?feature=oembed)
+[https://www.youtube.com/embed/YKgTGmtQEps](https://www.youtube.com/embed/YKgTGmtQEps)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1975-0207-198x300.jpg?resize=758%2C1149)
 
@@ -19,23 +19,23 @@ At the Palace Theater in Albany, it's opening night of the 1977 "Lawsuit" Tour t
 
 **1977:**[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[Action in the Streets](https://estreetshuffle.com/index.php/2022/06/27/roll-of-the-dice-action-in-the-streets/)
 
-[https://www.youtube.com/embed/PVL8ZnzZwJE?feature=oembed](https://www.youtube.com/embed/PVL8ZnzZwJE?feature=oembed)
+[https://www.youtube.com/embed/PVL8ZnzZwJE](https://www.youtube.com/embed/PVL8ZnzZwJE)
 
-[https://www.youtube.com/embed/hwh9AZ19FVw?feature=oembed](https://www.youtube.com/embed/hwh9AZ19FVw?feature=oembed)
+[https://www.youtube.com/embed/hwh9AZ19FVw](https://www.youtube.com/embed/hwh9AZ19FVw)
 
-[https://www.youtube.com/embed/1Sudjiji4DY?feature=oembed](https://www.youtube.com/embed/1Sudjiji4DY?feature=oembed)
+[https://www.youtube.com/embed/1Sudjiji4DY](https://www.youtube.com/embed/1Sudjiji4DY)
 
-[https://www.youtube.com/embed/_M59YUK-63Q?feature=oembed](https://www.youtube.com/embed/_M59YUK-63Q?feature=oembed)
+[https://www.youtube.com/embed/_M59YUK-63Q](https://www.youtube.com/embed/_M59YUK-63Q)
 
-[https://www.youtube.com/embed/r4stNHNnOcY?feature=oembed](https://www.youtube.com/embed/r4stNHNnOcY?feature=oembed)
+[https://www.youtube.com/embed/r4stNHNnOcY](https://www.youtube.com/embed/r4stNHNnOcY)
 
-[https://www.youtube.com/embed/lk6bi7PVQ_E?feature=oembed](https://www.youtube.com/embed/lk6bi7PVQ_E?feature=oembed)
+[https://www.youtube.com/embed/lk6bi7PVQ_E](https://www.youtube.com/embed/lk6bi7PVQ_E)
 
 The River Tour (original version) stops at the University of Illinois in Champaign.
 
 **1981:**<br>
 
-[https://videopress.com/embed/E1mkvS5d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/E1mkvS5d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/E1mkvS5d](https://videopress.com/embed/E1mkvS5d)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Daily_Illini_Tue__Feb_10__1981_.jpg?resize=758%2C880&amp;ssl=1)
 
@@ -53,7 +53,7 @@ Bruce's solo acoustic tour moves on to Sydney for the first of five nights at th
 
 **1997:**<br>
 
-[https://videopress.com/embed/xKJksdPP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xKJksdPP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xKJksdPP](https://videopress.com/embed/xKJksdPP)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1996-02-07.png?resize=758%2C541&amp;ssl=1)
 
@@ -95,31 +95,31 @@ Night Two in Perth features a great summer setlist, including the tour premieres
 
 **2014:** [Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)[Save My Love](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/)[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)[Girls in their Summer Clothes](http://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)[I'll Work For Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)
 
-[https://www.youtube.com/embed/ylKW8Uf0gTw?feature=oembed](https://www.youtube.com/embed/ylKW8Uf0gTw?feature=oembed)
+[https://www.youtube.com/embed/ylKW8Uf0gTw](https://www.youtube.com/embed/ylKW8Uf0gTw)
 
-[https://www.youtube.com/embed/ljplJnHqSqo?feature=oembed](https://www.youtube.com/embed/ljplJnHqSqo?feature=oembed)
+[https://www.youtube.com/embed/ljplJnHqSqo](https://www.youtube.com/embed/ljplJnHqSqo)
 
-[https://www.youtube.com/embed/U-OzuuZ-Fg0?feature=oembed](https://www.youtube.com/embed/U-OzuuZ-Fg0?feature=oembed)
+[https://www.youtube.com/embed/U-OzuuZ-Fg0](https://www.youtube.com/embed/U-OzuuZ-Fg0)
 
-[https://www.youtube.com/embed/ABIGbdfrTqc?feature=oembed](https://www.youtube.com/embed/ABIGbdfrTqc?feature=oembed)
+[https://www.youtube.com/embed/ABIGbdfrTqc](https://www.youtube.com/embed/ABIGbdfrTqc)
 
-[https://www.youtube.com/embed/OPpVzWXicxQ?feature=oembed](https://www.youtube.com/embed/OPpVzWXicxQ?feature=oembed)
+[https://www.youtube.com/embed/OPpVzWXicxQ](https://www.youtube.com/embed/OPpVzWXicxQ)
 
 Night One in Sydney on the Summer 2017 Tour, with the Australian Urban Orchestra joining for the opening "New York City Serenade." By request, Bruce plays a one-off cover of "."
 
 **2017:**[Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
 
-[https://www.youtube.com/embed/jHaJ60IV-Ko?feature=oembed](https://www.youtube.com/embed/jHaJ60IV-Ko?feature=oembed)
+[https://www.youtube.com/embed/jHaJ60IV-Ko](https://www.youtube.com/embed/jHaJ60IV-Ko)
 
-[https://www.youtube.com/embed/EInM-RCvc7o?feature=oembed](https://www.youtube.com/embed/EInM-RCvc7o?feature=oembed)
+[https://www.youtube.com/embed/EInM-RCvc7o](https://www.youtube.com/embed/EInM-RCvc7o)
 
-[https://www.youtube.com/embed/v5VQ_jqbrOY?feature=oembed](https://www.youtube.com/embed/v5VQ_jqbrOY?feature=oembed)
+[https://www.youtube.com/embed/v5VQ_jqbrOY](https://www.youtube.com/embed/v5VQ_jqbrOY)
 
-[https://www.youtube.com/embed/KOrmZt3pMp4?feature=oembed](https://www.youtube.com/embed/KOrmZt3pMp4?feature=oembed)
+[https://www.youtube.com/embed/KOrmZt3pMp4](https://www.youtube.com/embed/KOrmZt3pMp4)
 
-[https://www.youtube.com/embed/tfUJDasRYY4?feature=oembed](https://www.youtube.com/embed/tfUJDasRYY4?feature=oembed)
+[https://www.youtube.com/embed/tfUJDasRYY4](https://www.youtube.com/embed/tfUJDasRYY4)
 
-[https://www.youtube.com/embed/VWR3_VauQcM?feature=oembed](https://www.youtube.com/embed/VWR3_VauQcM?feature=oembed)
+[https://www.youtube.com/embed/VWR3_VauQcM](https://www.youtube.com/embed/VWR3_VauQcM)
 
 Shortly before taking the stage in Hollywood, Florida, Soozie Tyrell tests positive for COVID-19, scuttling a setlisted "Thunder Road" duet with Jon Bon Jovi (who wisely chooses to watch the show from a safe distance in his suite rather than share the stage with a COVID-exposed E Street Band) and setting off a chain reaction that will wreak havoc on the tour for weeks to come. This is also Patti Scialfa's last show of the tour (other than a cameo in Barcelona), and Bruce tour premieres "" to showcase her vocal talents. Also tour premiering tonight: "."
 
@@ -129,8 +129,8 @@ During "" Bruce is thrown off his game when he passes by hometown pretty girl Ro
 
 [Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)
 
-[https://www.youtube.com/embed/EVTAadUFAos?feature=oembed](https://www.youtube.com/embed/EVTAadUFAos?feature=oembed)
+[https://www.youtube.com/embed/EVTAadUFAos](https://www.youtube.com/embed/EVTAadUFAos)
 
-[https://www.youtube.com/embed/Y_jxg40BcSY?feature=oembed](https://www.youtube.com/embed/Y_jxg40BcSY?feature=oembed)
+[https://www.youtube.com/embed/Y_jxg40BcSY](https://www.youtube.com/embed/Y_jxg40BcSY)
 
-[https://www.youtube.com/embed/II8Rc4RrgZk?feature=oembed](https://www.youtube.com/embed/II8Rc4RrgZk?feature=oembed)
+[https://www.youtube.com/embed/II8Rc4RrgZk](https://www.youtube.com/embed/II8Rc4RrgZk)

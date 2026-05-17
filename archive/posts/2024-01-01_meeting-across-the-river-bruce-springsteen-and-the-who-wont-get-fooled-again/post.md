@@ -9,13 +9,13 @@ After Bruce presented the award, he joined Pete and Roger Daltrey on-stage for "
 
 [My Generation,](http://estreetshuffle.com/index.php/2018/03/27/matr-pete-townshend-roger-daltry-and-bruce-springsteen-my-generation/)
 
-[https://www.youtube.com/embed/W2bcUlm863U?feature=oembed](https://www.youtube.com/embed/W2bcUlm863U?feature=oembed)
+[https://www.youtube.com/embed/W2bcUlm863U](https://www.youtube.com/embed/W2bcUlm863U)
 
 But that wasn't the first time Bruce played that song with Pete and Roger–the first and only other time was in 1990, when The Who were inducted into the Rock and Roll Hall of Fame. If you watch the video below carefully, you'll see Bruce on guitar and backing vocals behind Daltrey for much of the performance.
 
 https://youtu.be/ypHOTlvjgxw
 
-[https://www.youtube.com/embed/SHhrZgojY1Q?feature=oembed](https://www.youtube.com/embed/SHhrZgojY1Q?feature=oembed)
+[https://www.youtube.com/embed/SHhrZgojY1Q](https://www.youtube.com/embed/SHhrZgojY1Q)
 
 January 17, 1990 (New York City, NY)
 May 28, 2015 (New York City, NY)

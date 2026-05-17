@@ -11,7 +11,7 @@ Bruce and the E Street Band make a Darkness Tour stop at the Veterans Memorial A
 
 **1978:**<br>
 
-[https://videopress.com/embed/axwbJFmG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/axwbJFmG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/axwbJFmG](https://videopress.com/embed/axwbJFmG)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0905-300x251.jpg?resize=758%2C633)
 
@@ -19,13 +19,13 @@ Bruce and the E Street Band record "" at The Power Station in New York City.
 
 **1979:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://www.youtube.com/embed/0rapQZffjOM?feature=oembed](https://www.youtube.com/embed/0rapQZffjOM?feature=oembed)
+[https://www.youtube.com/embed/0rapQZffjOM](https://www.youtube.com/embed/0rapQZffjOM)
 
 Bruce makes a guest appearance with The Pretenders on "" at Perkins Palace in Pasadena, taking a solo verse towards the end.
 
 **1981:** [(Your Love Keeps Lifting Me) Higher and Higher](http://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)
 
-[https://www.youtube.com/embed/hgKYmoIcAIU?feature=oembed](https://www.youtube.com/embed/hgKYmoIcAIU?feature=oembed)
+[https://www.youtube.com/embed/hgKYmoIcAIU](https://www.youtube.com/embed/hgKYmoIcAIU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1981-09-05-300x254.jpg?resize=758%2C642)
 
@@ -33,23 +33,23 @@ Bruce and the E Street Band play their second of two nights at The Centrum in Wo
 
 **1984:**<br>
 
-[https://videopress.com/embed/OcpzKL31?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OcpzKL31?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/OcpzKL31](https://videopress.com/embed/OcpzKL31)
 
 At the MTV Video Music Awards, "" loses in the Best Male Video category to Robert Palmer's "Addicted to Love" and in the Best Overall Performance in a Video category to David Bowie and Mick Jagger's "."
 
 **1986:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[Dancing in the Street](https://estreetshuffle.com/index.php/2020/09/12/cover-me-dancing-in-the-street/)
 
-[https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed](https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed)
+[https://www.youtube.com/embed/6vQpW9XRiyM](https://www.youtube.com/embed/6vQpW9XRiyM)
 
 The Human Rights Now! Tour is in Paris for the second of two nights, and Bruce and the E Street Band close the show. "Because the Night" is a tour premiere.
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/bFjRYh5zi4Y?feature=oembed](https://www.youtube.com/embed/bFjRYh5zi4Y?feature=oembed)
+[https://www.youtube.com/embed/bFjRYh5zi4Y](https://www.youtube.com/embed/bFjRYh5zi4Y)
 
-[https://videopress.com/embed/91bdyRbd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/91bdyRbd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/91bdyRbd](https://videopress.com/embed/91bdyRbd)
 
-[https://www.youtube.com/embed/VvG4cv96YiI?feature=oembed](https://www.youtube.com/embed/VvG4cv96YiI?feature=oembed)
+[https://www.youtube.com/embed/VvG4cv96YiI](https://www.youtube.com/embed/VvG4cv96YiI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Newsday_1988_09_06_11.jpg?w=758&amp;ssl=1)
 
@@ -65,11 +65,11 @@ Bruce and the E Street Band make up for an earlier hurricane-induced rainout in 
 
 **2016:**[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)[report.](http://estreetshuffle.com/index.php/2018/09/05/where-the-band-was-virginia-beach-september-5-2016/)*Where the Band Was*
 
-[https://www.youtube.com/embed/f_O0mnDPRfQ?feature=oembed](https://www.youtube.com/embed/f_O0mnDPRfQ?feature=oembed)
+[https://www.youtube.com/embed/f_O0mnDPRfQ](https://www.youtube.com/embed/f_O0mnDPRfQ)
 
-[https://www.youtube.com/embed/2IVSfVtl0w0?feature=oembed](https://www.youtube.com/embed/2IVSfVtl0w0?feature=oembed)
+[https://www.youtube.com/embed/2IVSfVtl0w0](https://www.youtube.com/embed/2IVSfVtl0w0)
 
-[https://www.youtube.com/embed/aPFnH2a5eLY?feature=oembed](https://www.youtube.com/embed/aPFnH2a5eLY?feature=oembed)
+[https://www.youtube.com/embed/aPFnH2a5eLY](https://www.youtube.com/embed/aPFnH2a5eLY)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: actor Rob Lowe.
 

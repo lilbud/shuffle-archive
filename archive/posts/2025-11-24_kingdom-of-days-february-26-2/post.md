@@ -13,7 +13,7 @@ The Bruce Springsteen Band plays show number eight of nine at The Back Door in R
 
 **1972:**<br>
 
-[https://videopress.com/embed/rk5jflxT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/rk5jflxT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/rk5jflxT](https://videopress.com/embed/rk5jflxT)
 
 Bruce plays his first west coast show since signing his record deal at The Troubadour in West Hollywood, opening for Pan. When his guitar amp dies a couple of songs in, Bruce finishes the rest of his set on piano.
 
@@ -25,7 +25,7 @@ Bruce and the E Street Band play the Indiana Convention Center in Indianapolis.
 
 **1977:**<br>
 
-[https://videopress.com/embed/rnSgE4Xn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/rnSgE4Xn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/rnSgE4Xn](https://videopress.com/embed/rnSgE4Xn)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1977-0226-300x198.jpg?resize=758%2C500)
 
@@ -33,7 +33,7 @@ The River Tour moves on to the Nashville Municipal Auditorium.
 
 **1981:**<br>
 
-[https://videopress.com/embed/bWl65Snm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bWl65Snm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bWl65Snm](https://videopress.com/embed/bWl65Snm)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-26.jpg?resize=758%2C903&amp;ssl=1)
 
@@ -43,7 +43,7 @@ Bruce wins the Grammy for Best Rock Vocal Performance (Male) for "." (He is also
 
 **1985:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)*Born in the U.S.A.**Can't Slow Down*
 
-[https://www.youtube.com/embed/7ucaXZiaXQ8?feature=oembed](https://www.youtube.com/embed/7ucaXZiaXQ8?feature=oembed)
+[https://www.youtube.com/embed/7ucaXZiaXQ8](https://www.youtube.com/embed/7ucaXZiaXQ8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1985-02-26.png?resize=758%2C566&amp;ssl=1)
 
@@ -53,7 +53,7 @@ Bruce makes the cover of and MTV unveils the winners of Rolling Stone Magazine's
 
 **1987:** *Rolling Stone*
 
-[https://www.youtube.com/embed/k-TPaYJxovw?feature=oembed](https://www.youtube.com/embed/k-TPaYJxovw?feature=oembed)
+[https://www.youtube.com/embed/k-TPaYJxovw](https://www.youtube.com/embed/k-TPaYJxovw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/rolling-stone-cover-volume-494-2-26-1987-bruce-springsteen-250x300.jpg?resize=758%2C910)
 
@@ -61,23 +61,23 @@ Bruce's solo acoustic tour moves on to Amsterdam. The acoustic/percussive arrang
 
 **1996:** [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)
 
-[https://videopress.com/embed/t4RYAYvv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/t4RYAYvv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/t4RYAYvv](https://videopress.com/embed/t4RYAYvv)
 
-[https://videopress.com/embed/2hTLOHmW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2hTLOHmW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2hTLOHmW](https://videopress.com/embed/2hTLOHmW)
 
-[https://www.youtube.com/embed/MhgM87h9_ek?feature=oembed](https://www.youtube.com/embed/MhgM87h9_ek?feature=oembed)
+[https://www.youtube.com/embed/MhgM87h9_ek](https://www.youtube.com/embed/MhgM87h9_ek)
 
 Bruce wins the Best Contemporary Folk Album Grammy Award for but loses his Best Male Rock Vocal Performance nomination for "" to Beck's "Where It's At." Pete Seeger introduces Bruce's performance of his Grammy-winning album's title track below.
 
 **1997:** [](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad*[Dead Man Walkin'](http://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/)
 
-[https://www.youtube.com/embed/55q3F2XGiDk?feature=oembed](https://www.youtube.com/embed/55q3F2XGiDk?feature=oembed)
+[https://www.youtube.com/embed/55q3F2XGiDk](https://www.youtube.com/embed/55q3F2XGiDk)
 
 Bruce stops by to collect Max for the upcoming Reunion Tour and performs a fun "" with The Max Weinberg 7.
 
 **1999:** *Late Night With Conan O'Brien*[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
-[https://videopress.com/embed/pISaTcTb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pISaTcTb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/pISaTcTb](https://videopress.com/embed/pISaTcTb)
 
 Bruce and the band rehearse for the next leg of the Magic Tour at Convention Hall in Asbury Park.
 
@@ -89,15 +89,15 @@ The E Street Band wraps up their Australian tour in Brisbane with surprises galo
 
 [https://www.youtube.com/embed/videoseries?list=PLICA5nlm9kbLF-VgnaX--IhS0bCR5aQJA](https://www.youtube.com/embed/videoseries?list=PLICA5nlm9kbLF-VgnaX--IhS0bCR5aQJA)
 
-[https://www.youtube.com/embed/6rCuL5QHp7U?feature=oembed](https://www.youtube.com/embed/6rCuL5QHp7U?feature=oembed)
+[https://www.youtube.com/embed/6rCuL5QHp7U](https://www.youtube.com/embed/6rCuL5QHp7U)
 
-[https://www.youtube.com/embed/s25WLbQKMCU?feature=oembed](https://www.youtube.com/embed/s25WLbQKMCU?feature=oembed)
+[https://www.youtube.com/embed/s25WLbQKMCU](https://www.youtube.com/embed/s25WLbQKMCU)
 
-[https://www.youtube.com/embed/L-f4USJ-u-A?feature=oembed](https://www.youtube.com/embed/L-f4USJ-u-A?feature=oembed)
+[https://www.youtube.com/embed/L-f4USJ-u-A](https://www.youtube.com/embed/L-f4USJ-u-A)
 
-[https://www.youtube.com/embed/rFSG8j-nmXI?feature=oembed](https://www.youtube.com/embed/rFSG8j-nmXI?feature=oembed)
+[https://www.youtube.com/embed/rFSG8j-nmXI](https://www.youtube.com/embed/rFSG8j-nmXI)
 
-[https://www.youtube.com/embed/3NRuWmNqBVw?feature=oembed](https://www.youtube.com/embed/3NRuWmNqBVw?feature=oembed)
+[https://www.youtube.com/embed/3NRuWmNqBVw](https://www.youtube.com/embed/3NRuWmNqBVw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/2016-0226-300x208.jpg?resize=758%2C525)
 

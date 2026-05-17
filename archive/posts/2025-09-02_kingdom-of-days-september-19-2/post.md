@@ -35,13 +35,13 @@ Bruce and the band play one of their most legendary shows, opening a three-night
 
 **1978:** [here](http://live.brucespringsteen.net/live-music/0,22963/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-19-1978-Capitol-Theatre-Passaic-NJ.html)
 
-[https://videopress.com/embed/b8RqdzL9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/b8RqdzL9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/b8RqdzL9](https://videopress.com/embed/b8RqdzL9)
 
-[https://videopress.com/embed/unrpW2it?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/unrpW2it?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/unrpW2it](https://videopress.com/embed/unrpW2it)
 
-[https://www.youtube.com/embed/nLlqA4vik0E?feature=oembed](https://www.youtube.com/embed/nLlqA4vik0E?feature=oembed)
+[https://www.youtube.com/embed/nLlqA4vik0E](https://www.youtube.com/embed/nLlqA4vik0E)
 
-[https://www.youtube.com/embed/YaOo3packk0?feature=oembed](https://www.youtube.com/embed/YaOo3packk0?feature=oembed)
+[https://www.youtube.com/embed/YaOo3packk0](https://www.youtube.com/embed/YaOo3packk0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1978-09-19a-226x300.jpg?resize=758%2C1006)
 
@@ -51,7 +51,7 @@ Bruce and the band play one of their most legendary shows, opening a three-night
 
 After the show, Bruce sits down for an interview with local TV station WBCN.
 
-[https://www.youtube.com/embed/3XdMBdnqy1k?feature=oembed](https://www.youtube.com/embed/3XdMBdnqy1k?feature=oembed)
+[https://www.youtube.com/embed/3XdMBdnqy1k](https://www.youtube.com/embed/3XdMBdnqy1k)
 
 Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park. The cover-filled set includes "" "," "," "," and more.
 
@@ -61,25 +61,25 @@ At a re-election campaign stop in Hammonton, New Jersey, President Ronald Reagan
 
 **1984:** *Born in the U.S.A.*
 
-[https://www.youtube.com/embed/z8BRWNaOdlc?feature=oembed](https://www.youtube.com/embed/z8BRWNaOdlc?feature=oembed)
+[https://www.youtube.com/embed/z8BRWNaOdlc](https://www.youtube.com/embed/z8BRWNaOdlc)
 
 Bruce and the E Street Band play their second of two Born in the U.S.A. shows at the Oakland-Alameda County Coliseum, but this show is a little rougher: listen to Bruce forget the lyrics to "Highway Patrolman."
 
 **1985:**<br>
 
-[https://videopress.com/embed/jVL2qSEB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jVL2qSEB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jVL2qSEB](https://videopress.com/embed/jVL2qSEB)
 
-[https://www.youtube.com/embed/EmsI94tQgvQ?feature=oembed](https://www.youtube.com/embed/EmsI94tQgvQ?feature=oembed)
+[https://www.youtube.com/embed/EmsI94tQgvQ](https://www.youtube.com/embed/EmsI94tQgvQ)
 
-[https://www.youtube.com/embed/QtNuhLdMhuM?feature=oembed](https://www.youtube.com/embed/QtNuhLdMhuM?feature=oembed)
+[https://www.youtube.com/embed/QtNuhLdMhuM](https://www.youtube.com/embed/QtNuhLdMhuM)
 
 The Human Rights Now! Tour finally arrives in the United States, kicking off a three-show American stand with a show at JFK Stadium in Philadelphia. Joan Baez makes a guest appearance, and Bruce tour premieres "Jungleland" for Philly, its first appearance since the Born in the U.S.A. Tour.
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/Yg2FAUT6GY4?feature=oembed](https://www.youtube.com/embed/Yg2FAUT6GY4?feature=oembed)
+[https://www.youtube.com/embed/Yg2FAUT6GY4](https://www.youtube.com/embed/Yg2FAUT6GY4)
 
-[https://videopress.com/embed/PXkEsOr2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PXkEsOr2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PXkEsOr2](https://videopress.com/embed/PXkEsOr2)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-19a-278x300.jpg?resize=758%2C818)
 
@@ -93,7 +93,7 @@ New song alert! At his solo acoustic stop in Providence, Bruce debuts "," dedica
 
 **1996:** [There Will Never Be Any Other For Me But You](http://estreetshuffle.com/index.php/2019/08/23/roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/)
 
-[https://www.youtube.com/embed/cl0yvRaAOm8?feature=oembed](https://www.youtube.com/embed/cl0yvRaAOm8?feature=oembed)
+[https://www.youtube.com/embed/cl0yvRaAOm8](https://www.youtube.com/embed/cl0yvRaAOm8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/The_Salisbury_Post_1996_09_22_17.jpg?w=758&amp;ssl=1)
 
@@ -105,15 +105,15 @@ Bruce and the E Street Band kick off a three-night Wrecking Ball stand at MetLif
 
 **2012:** [Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)[For You.](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)
 
-[https://www.youtube.com/embed/uU4HFVGbvrY?feature=oembed](https://www.youtube.com/embed/uU4HFVGbvrY?feature=oembed)
+[https://www.youtube.com/embed/uU4HFVGbvrY](https://www.youtube.com/embed/uU4HFVGbvrY)
 
-[https://videopress.com/embed/iOFiAn0v?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iOFiAn0v?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/iOFiAn0v](https://videopress.com/embed/iOFiAn0v)
 
-[https://www.youtube.com/embed/wTP2IEGGH4k?feature=oembed](https://www.youtube.com/embed/wTP2IEGGH4k?feature=oembed)
+[https://www.youtube.com/embed/wTP2IEGGH4k](https://www.youtube.com/embed/wTP2IEGGH4k)
 
-[https://www.youtube.com/embed/D8cUlVeUdUo?feature=oembed](https://www.youtube.com/embed/D8cUlVeUdUo?feature=oembed)
+[https://www.youtube.com/embed/D8cUlVeUdUo](https://www.youtube.com/embed/D8cUlVeUdUo)
 
-[https://www.youtube.com/embed/gtAK1EQC2uA?feature=oembed](https://www.youtube.com/embed/gtAK1EQC2uA?feature=oembed)
+[https://www.youtube.com/embed/gtAK1EQC2uA](https://www.youtube.com/embed/gtAK1EQC2uA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/09/The_Star_Ledger_2012_09_20_2-scaled.jpg?resize=758%2C1316&amp;ssl=1)
 

@@ -13,7 +13,7 @@ Bruce's interview with Bill Ayres (recorded in late 1974) premieres on the radio
 
 **1975:** *On This Rock.*
 
-[https://www.youtube.com/embed/w-12DlTy7v0?feature=oembed](https://www.youtube.com/embed/w-12DlTy7v0?feature=oembed)
+[https://www.youtube.com/embed/w-12DlTy7v0](https://www.youtube.com/embed/w-12DlTy7v0)
 
 The Chicken Scratch Tour moves on to Pittsburgh, for a single show at the Syria Mosque.
 
@@ -35,13 +35,13 @@ The fourth of five nights at Tokyo's Yoyogi National Gymnasium.
 
 **1985:**<br>
 
-[https://videopress.com/embed/u02wbf7O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u02wbf7O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/u02wbf7O](https://videopress.com/embed/u02wbf7O)
 
 The Tunnel of Love Express finishes its Texas leg with a show at the University of Texas in Austin.
 
 **1988:**<br>
 
-[https://videopress.com/embed/GU2F61f3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GU2F61f3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/GU2F61f3](https://videopress.com/embed/GU2F61f3)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-15a-300x151.jpg?resize=758%2C382)
 
@@ -53,13 +53,13 @@ The first of two shows at Sheffield Arena in England.
 
 **1993:**<br>
 
-[https://videopress.com/embed/HTAFhS2M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HTAFhS2M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/HTAFhS2M](https://videopress.com/embed/HTAFhS2M)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Manchester_Evening_News_Fri__Apr_16__1993_.jpg?resize=758%2C553&amp;ssl=1)
 
 Before the show, Bruce sits down for an interview that will air shortly before his show at Milton Keynes the following month.
 
-[https://www.youtube.com/embed/Yo0gtHo0zuk?feature=oembed](https://www.youtube.com/embed/Yo0gtHo0zuk?feature=oembed)
+[https://www.youtube.com/embed/Yo0gtHo0zuk](https://www.youtube.com/embed/Yo0gtHo0zuk)
 
 Courtney Cox hosts During her monologue, she reminisces about and relives her big break.
 
@@ -71,17 +71,17 @@ Bruce and the E Street Band bring the Reunion Tour to Cologne, where Wolfgang Ni
 
 **1999:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
-[https://videopress.com/embed/Su1bUwiO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Su1bUwiO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Su1bUwiO](https://videopress.com/embed/Su1bUwiO)
 
-[https://videopress.com/embed/S3GNSRxO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/S3GNSRxO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/S3GNSRxO](https://videopress.com/embed/S3GNSRxO)
 
-[https://videopress.com/embed/T5qgXOUh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/T5qgXOUh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/T5qgXOUh](https://videopress.com/embed/T5qgXOUh)
 
 Bruce and the E Street Band play a Reunion gig at Freedom Hall in Louisville. The set features a rare "."
 
 **2000:** [Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)
 
-[https://videopress.com/embed/yXOohZUy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yXOohZUy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/yXOohZUy](https://videopress.com/embed/yXOohZUy)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-04-15-300x199.jpg?resize=758%2C503)
 
@@ -95,9 +95,9 @@ At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on 
 
 **2009:** [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[Hard Times (Come Again No More)](https://estreetshuffle.com/index.php/2022/01/21/cover-me-hard-times-come-again-no-more/)[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[Spirit in the Night,](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)
 
-[https://www.youtube.com/embed/BWmUKr7iqZQ?feature=oembed](https://www.youtube.com/embed/BWmUKr7iqZQ?feature=oembed)
+[https://www.youtube.com/embed/BWmUKr7iqZQ](https://www.youtube.com/embed/BWmUKr7iqZQ)
 
-[https://www.youtube.com/embed/cgZBKgpCOD4?feature=oembed](https://www.youtube.com/embed/cgZBKgpCOD4?feature=oembed)
+[https://www.youtube.com/embed/cgZBKgpCOD4](https://www.youtube.com/embed/cgZBKgpCOD4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2009-04-15a.jpg?resize=758%2C980&amp;ssl=1)
 
@@ -126,9 +126,9 @@ The High Hopes Tour hits Columbus, bringing with it the tour premiere of "."
 
 **2014:** [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
 
-[https://www.youtube.com/embed/2aYRsS2tAY0?feature=oembed](https://www.youtube.com/embed/2aYRsS2tAY0?feature=oembed)
+[https://www.youtube.com/embed/2aYRsS2tAY0](https://www.youtube.com/embed/2aYRsS2tAY0)
 
-[https://www.youtube.com/embed/H-O2GGJ2yTs?feature=oembed](https://www.youtube.com/embed/H-O2GGJ2yTs?feature=oembed)
+[https://www.youtube.com/embed/H-O2GGJ2yTs](https://www.youtube.com/embed/H-O2GGJ2yTs)
 
 Bruce attends the wedding of Max Weinberg's daughter, Ali.
 
@@ -138,7 +138,7 @@ Bruce takes his mom dancing to celebrate her birthday at the Wonder Bar in Asbur
 
 **2018:**<br>
 
-[https://www.youtube.com/embed/KTRrWFRSS3c?feature=oembed](https://www.youtube.com/embed/KTRrWFRSS3c?feature=oembed)
+[https://www.youtube.com/embed/KTRrWFRSS3c](https://www.youtube.com/embed/KTRrWFRSS3c)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2018-04-15-201x300.jpg?resize=758%2C1132)
 
@@ -146,12 +146,12 @@ Bruce and Patti are scheduled to present (and perform) at the first annual Ameri
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/OcMZAhHegD0?feature=oembed](https://www.youtube.com/embed/OcMZAhHegD0?feature=oembed)
+[https://www.youtube.com/embed/OcMZAhHegD0](https://www.youtube.com/embed/OcMZAhHegD0)
 
-[https://www.youtube.com/embed/NfQLwYRdESk?feature=oembed](https://www.youtube.com/embed/NfQLwYRdESk?feature=oembed)
+[https://www.youtube.com/embed/NfQLwYRdESk](https://www.youtube.com/embed/NfQLwYRdESk)
 
 Bruce tour premieres "Adam Raised a Cain" when the E Street Band brings their world tour to MVP Arena in Albany.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/0TwPTcTd1aw?feature=oembed](https://www.youtube.com/embed/0TwPTcTd1aw?feature=oembed)
+[https://www.youtube.com/embed/0TwPTcTd1aw](https://www.youtube.com/embed/0TwPTcTd1aw)

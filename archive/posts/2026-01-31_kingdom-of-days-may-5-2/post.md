@@ -23,15 +23,15 @@ Bruce plays his first-ever show in Norway, when the River Tour comes to Drammen.
 
 **1981:**<br>
 
-[https://videopress.com/embed/fZwe49y9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fZwe49y9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fZwe49y9](https://videopress.com/embed/fZwe49y9)
 
 At The Power Station studio in New York City, Bruce and the E Street Band record "Glory Days," "My Love Will Not Let You Down," "A Good Man Is Hard to Find (Pittsburgh)" and the still unreleased "Stop the War."
 
 **1982:**<br>
 
-[https://www.youtube.com/embed/GLBnj159q3s?feature=oembed](https://www.youtube.com/embed/GLBnj159q3s?feature=oembed)
+[https://www.youtube.com/embed/GLBnj159q3s](https://www.youtube.com/embed/GLBnj159q3s)
 
-[https://www.youtube.com/embed/exXiJa-kis4?feature=oembed](https://www.youtube.com/embed/exXiJa-kis4?feature=oembed)
+[https://www.youtube.com/embed/exXiJa-kis4](https://www.youtube.com/embed/exXiJa-kis4)
 
 Bruce plays the first of two nights at the Tacoma Dome for the Tunnel of Love Express Tour and scores the cover of .
 
@@ -39,11 +39,11 @@ Bruce plays the first of two nights at the Tacoma Dome for the Tunnel of Love Ex
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/rolling-stone-cover-volume-525-5-5-1988-bruce-springsteen.jpg?resize=750%2C900&amp;ssl=1)
 
-[https://videopress.com/embed/HsrTnjy0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HsrTnjy0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/HsrTnjy0](https://videopress.com/embed/HsrTnjy0)
 
-[https://videopress.com/embed/Y8IhKbo6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Y8IhKbo6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Y8IhKbo6](https://videopress.com/embed/Y8IhKbo6)
 
-[https://videopress.com/embed/htl1ckUK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/htl1ckUK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/htl1ckUK](https://videopress.com/embed/htl1ckUK)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1988-05-05-save.jpg?resize=492%2C826&amp;ssl=1)
 
@@ -55,25 +55,25 @@ The Recording Industry Association of America certifies "Santa Claus Is Coming t
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/nCFTL4IO6t4?feature=oembed](https://www.youtube.com/embed/nCFTL4IO6t4?feature=oembed)
+[https://www.youtube.com/embed/nCFTL4IO6t4](https://www.youtube.com/embed/nCFTL4IO6t4)
 
 Bruce begins a mini-tour of Spain with a show in Madrid.
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/sbxa6QBosCM?feature=oembed](https://www.youtube.com/embed/sbxa6QBosCM?feature=oembed)
+[https://www.youtube.com/embed/sbxa6QBosCM](https://www.youtube.com/embed/sbxa6QBosCM)
 
 Bruce receives the Polar Music Prize from King Carl XVI Gustaf of Sweden. The ceremony is broadcast live on Swedish TV, and you can watch it below.
 
 **1997:**<br>
 
-[https://www.youtube.com/embed/fCKMZC-5mD4?feature=oembed](https://www.youtube.com/embed/fCKMZC-5mD4?feature=oembed)
+[https://www.youtube.com/embed/fCKMZC-5mD4](https://www.youtube.com/embed/fCKMZC-5mD4)
 
-[https://www.youtube.com/embed/I7Q3J8kaQGE?feature=oembed](https://www.youtube.com/embed/I7Q3J8kaQGE?feature=oembed)
+[https://www.youtube.com/embed/I7Q3J8kaQGE](https://www.youtube.com/embed/I7Q3J8kaQGE)
 
-[https://www.youtube.com/embed/RiWk31Q9lxs?feature=oembed](https://www.youtube.com/embed/RiWk31Q9lxs?feature=oembed)
+[https://www.youtube.com/embed/RiWk31Q9lxs](https://www.youtube.com/embed/RiWk31Q9lxs)
 
-[https://www.youtube.com/embed/KphvQowUOaM?feature=oembed](https://www.youtube.com/embed/KphvQowUOaM?feature=oembed)
+[https://www.youtube.com/embed/KphvQowUOaM](https://www.youtube.com/embed/KphvQowUOaM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1997-05-05.jpg?resize=758%2C422&amp;ssl=1)
 
@@ -81,11 +81,11 @@ Bruce tour premieres "Nebraska" and an acoustic arrangement of "Land of Hope and
 
 **2005:**<br>
 
-[https://www.youtube.com/embed/XNDtMzKT7Qw?feature=oembed](https://www.youtube.com/embed/XNDtMzKT7Qw?feature=oembed)
+[https://www.youtube.com/embed/XNDtMzKT7Qw](https://www.youtube.com/embed/XNDtMzKT7Qw)
 
-[https://www.youtube.com/embed/k3CJROja3Tc?feature=oembed](https://www.youtube.com/embed/k3CJROja3Tc?feature=oembed)
+[https://www.youtube.com/embed/k3CJROja3Tc](https://www.youtube.com/embed/k3CJROja3Tc)
 
-[https://www.youtube.com/embed/psFjDUQuviY?feature=oembed](https://www.youtube.com/embed/psFjDUQuviY?feature=oembed)
+[https://www.youtube.com/embed/psFjDUQuviY](https://www.youtube.com/embed/psFjDUQuviY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-05a.jpg?resize=758%2C368&amp;ssl=1)
 
@@ -95,7 +95,7 @@ The first European leg of the Seeger Sessions Tour kicks off at the Point Theate
 
 **2006:**<br>
 
-[https://videopress.com/embed/kPchYwxD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kPchYwxD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/kPchYwxD](https://videopress.com/embed/kPchYwxD)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Independent_Sat__May_6__2006_.jpg?resize=758%2C347&amp;ssl=1)
 
@@ -103,7 +103,7 @@ Bruce plays his fourth show in four days, as the Working on a Dream Tour rolls i
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/-MMryww4Ae8?feature=oembed](https://www.youtube.com/embed/-MMryww4Ae8?feature=oembed)
+[https://www.youtube.com/embed/-MMryww4Ae8](https://www.youtube.com/embed/-MMryww4Ae8)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -113,7 +113,7 @@ Bruce appears at the opening night of Netflix's third annual FYSEE event, playin
 
 **2019:**<br>
 
-[https://videopress.com/embed/V78DhEJp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/V78DhEJp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/V78DhEJp](https://videopress.com/embed/V78DhEJp)
 
 [https://www.dailymotion.com/embed/video/x77q6yr](https://www.dailymotion.com/embed/video/x77q6yr)
 
@@ -123,17 +123,17 @@ Bruce kicks off a three-night stand in Dublin without any tour premieres, the fi
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/GqK9Q3Dq5B8?feature=oembed](https://www.youtube.com/embed/GqK9Q3Dq5B8?feature=oembed)
+[https://www.youtube.com/embed/GqK9Q3Dq5B8](https://www.youtube.com/embed/GqK9Q3Dq5B8)
 
 Bruce and the E Street Band kick off the European leg of their World Tour with the tour debut of "So Young and In Love" at Principality Stadium in Cardiff. Also tour premiering tonight by request: "Better Days."
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/n9vqhvbzgKw?feature=oembed](https://www.youtube.com/embed/n9vqhvbzgKw?feature=oembed)
+[https://www.youtube.com/embed/n9vqhvbzgKw](https://www.youtube.com/embed/n9vqhvbzgKw)
 
-[https://www.youtube.com/embed/8I6a1Ly1JmA?feature=oembed](https://www.youtube.com/embed/8I6a1Ly1JmA?feature=oembed)
+[https://www.youtube.com/embed/8I6a1Ly1JmA](https://www.youtube.com/embed/8I6a1Ly1JmA)
 
-[https://www.youtube.com/embed/RfvlZUX-rx4?feature=oembed](https://www.youtube.com/embed/RfvlZUX-rx4?feature=oembed)
+[https://www.youtube.com/embed/RfvlZUX-rx4](https://www.youtube.com/embed/RfvlZUX-rx4)
 
 Bruce visits the construction site for the future home of the Bruce Springsteen Center for American Music.
 

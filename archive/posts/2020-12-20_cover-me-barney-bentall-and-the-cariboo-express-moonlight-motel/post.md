@@ -3,7 +3,7 @@ Barney Bentall may not be a familiar name outside of his native Canada, but he's
 
 His debut 1988 album with The Legendary Hearts went platinum, and its very first track, "Something to Live For" became a number one hit–and it's easy to hear the Springsteenian influences from the outset.
 
-[https://www.youtube.com/embed/wkACgkxKcsg?feature=oembed](https://www.youtube.com/embed/wkACgkxKcsg?feature=oembed)
+[https://www.youtube.com/embed/wkACgkxKcsg](https://www.youtube.com/embed/wkACgkxKcsg)
 
 More than thirty years later, Bentall is still recording and performing across Canada, both solo and as part of four different bands–one of which, the Cariboo Express, is (in Bentall's words) a travelling, fundraising old-time musical revue.
 

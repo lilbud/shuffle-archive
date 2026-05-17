@@ -35,7 +35,7 @@ Bruce and the boys bring the Lawsuit Tour to The College of William and Mary in 
 
 **1976:**<br>
 
-[https://videopress.com/embed/aIjzhS4K?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aIjzhS4K?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/aIjzhS4K](https://videopress.com/embed/aIjzhS4K)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1976-10-16-300x162.png?resize=758%2C409)
 
@@ -45,17 +45,17 @@ In town for a River Tour show the next night, Bruce goes out driving and ends up
 
 **1980:***Stardust Memories.*
 
-[https://www.youtube.com/embed/ezPRW1wt0NE?feature=oembed](https://www.youtube.com/embed/ezPRW1wt0NE?feature=oembed)
+[https://www.youtube.com/embed/ezPRW1wt0NE](https://www.youtube.com/embed/ezPRW1wt0NE)
 
 Steve Van Zandt releases "Sun City," a single by Artists United Against Apartheid in protest of the South African policy, publicly and collectively declaring a boycott of the controversial resort. Bruce is one of the many, many artists appearing in the song.
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/bY3w9gLjEV4?feature=oembed](https://www.youtube.com/embed/bY3w9gLjEV4?feature=oembed)
+[https://www.youtube.com/embed/bY3w9gLjEV4](https://www.youtube.com/embed/bY3w9gLjEV4)
 
-[https://www.youtube.com/embed/CmJC6GcVDn0?feature=oembed](https://www.youtube.com/embed/CmJC6GcVDn0?feature=oembed)
+[https://www.youtube.com/embed/CmJC6GcVDn0](https://www.youtube.com/embed/CmJC6GcVDn0)
 
-[https://www.youtube.com/embed/VFL9BByzSTI?feature=oembed](https://www.youtube.com/embed/VFL9BByzSTI?feature=oembed)
+[https://www.youtube.com/embed/VFL9BByzSTI](https://www.youtube.com/embed/VFL9BByzSTI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1985-10-16a-300x232.png?resize=758%2C586)
 
@@ -75,7 +75,7 @@ Bruce plays "" for the very first time, nine years before its album release, at 
 
 **1996:** [Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
 
-[https://www.youtube.com/embed/qTMe5fUtv3g?feature=oembed](https://www.youtube.com/embed/qTMe5fUtv3g?feature=oembed)
+[https://www.youtube.com/embed/qTMe5fUtv3g](https://www.youtube.com/embed/qTMe5fUtv3g)
 
 Bruce and the E Street Band bring the Rising Tour to Barcelona, where the show is filmed and released on DVD as Bruce tour premieres "" on solo piano (forgetting the lyrics), and the setlist also includes a rare "."
 
@@ -87,13 +87,13 @@ Bruce, Patti, Roy, Billy Joel, India.Arie, and John Legend perform at a benefit 
 
 **2008:** *Change Rocks*[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[Signed, Sealed, Delivered I'm Yours](https://estreetshuffle.com/index.php/2021/11/29/matr-john-legend-bruce-springsteen-billy-joel-and-india-arie-signed-sealed-delivered-im-yours/)
 
-[https://www.youtube.com/embed/cDCy0G9MpyU?feature=oembed](https://www.youtube.com/embed/cDCy0G9MpyU?feature=oembed)
+[https://www.youtube.com/embed/cDCy0G9MpyU](https://www.youtube.com/embed/cDCy0G9MpyU)
 
 [https://www.youtube.com/embed/videoseries?list=PL9GYXhjvFLdslVYCJ0WxsOBGar-kaXB80](https://www.youtube.com/embed/videoseries?list=PL9GYXhjvFLdslVYCJ0WxsOBGar-kaXB80)
 
-[https://www.youtube.com/embed/RWHh6mW2cNU?feature=oembed](https://www.youtube.com/embed/RWHh6mW2cNU?feature=oembed)
+[https://www.youtube.com/embed/RWHh6mW2cNU](https://www.youtube.com/embed/RWHh6mW2cNU)
 
-[https://www.youtube.com/embed/Gz20pPR3yXU?feature=oembed](https://www.youtube.com/embed/Gz20pPR3yXU?feature=oembed)
+[https://www.youtube.com/embed/Gz20pPR3yXU](https://www.youtube.com/embed/Gz20pPR3yXU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2008-10-16-193x300.png?resize=758%2C1179)
 
@@ -101,17 +101,17 @@ Bruce guest-stars at Right to Rock 2012 in New York City, honoring Steve Van Zan
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/uy04lfA_TS8?feature=oembed](https://www.youtube.com/embed/uy04lfA_TS8?feature=oembed)
+[https://www.youtube.com/embed/uy04lfA_TS8](https://www.youtube.com/embed/uy04lfA_TS8)
 
-[https://www.youtube.com/embed/JGpdE4uWShk?feature=oembed](https://www.youtube.com/embed/JGpdE4uWShk?feature=oembed)
+[https://www.youtube.com/embed/JGpdE4uWShk](https://www.youtube.com/embed/JGpdE4uWShk)
 
-[https://www.youtube.com/embed/9F8ECZBjRyQ?feature=oembed](https://www.youtube.com/embed/9F8ECZBjRyQ?feature=oembed)
+[https://www.youtube.com/embed/9F8ECZBjRyQ](https://www.youtube.com/embed/9F8ECZBjRyQ)
 
-[https://www.youtube.com/embed/0OuApIOMKsk?feature=oembed](https://www.youtube.com/embed/0OuApIOMKsk?feature=oembed)
+[https://www.youtube.com/embed/0OuApIOMKsk](https://www.youtube.com/embed/0OuApIOMKsk)
 
-[https://www.youtube.com/embed/Pb-sLBU0xz4?feature=oembed](https://www.youtube.com/embed/Pb-sLBU0xz4?feature=oembed)
+[https://www.youtube.com/embed/Pb-sLBU0xz4](https://www.youtube.com/embed/Pb-sLBU0xz4)
 
-[https://www.youtube.com/embed/BgbnRuaYFzI?feature=oembed](https://www.youtube.com/embed/BgbnRuaYFzI?feature=oembed)
+[https://www.youtube.com/embed/BgbnRuaYFzI](https://www.youtube.com/embed/BgbnRuaYFzI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2012-10-16-300x284.png?resize=758%2C718)
 
@@ -119,7 +119,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Among 
 
 **2018:** *Springsteen on Broadway*
 
-[https://www.youtube.com/embed/1Jx2jFO74a0?feature=oembed](https://www.youtube.com/embed/1Jx2jFO74a0?feature=oembed)
+[https://www.youtube.com/embed/1Jx2jFO74a0](https://www.youtube.com/embed/1Jx2jFO74a0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2016-10-16b-1.jpg?resize=758%2C1011&amp;ssl=1)
 
@@ -131,4 +131,4 @@ Bruce, Patti, their daughter Jessica, and Bruce's co-director Thom Zimny attend 
 
 **2019:** *Western Stars*
 
-[https://www.youtube.com/embed/y8RFkCWClKQ?feature=oembed](https://www.youtube.com/embed/y8RFkCWClKQ?feature=oembed)
+[https://www.youtube.com/embed/y8RFkCWClKQ](https://www.youtube.com/embed/y8RFkCWClKQ)

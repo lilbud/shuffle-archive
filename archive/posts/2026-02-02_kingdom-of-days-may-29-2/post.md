@@ -29,13 +29,13 @@ Bruce and the E Street Band work on "Point Blank" and "Independence Day" at the 
 
 **1979:**<br>
 
-[https://www.youtube.com/embed/tHkii-j_Cac?feature=oembed](https://www.youtube.com/embed/tHkii-j_Cac?feature=oembed)
+[https://www.youtube.com/embed/tHkii-j_Cac](https://www.youtube.com/embed/tHkii-j_Cac)
 
 At the first of six River shows at London's Wembley Arena, Bruce performs "Trapped" for the very first time.
 
 **1981:**<br>
 
-[https://www.youtube.com/embed/RpGVwh0NkY4?feature=oembed](https://www.youtube.com/embed/RpGVwh0NkY4?feature=oembed)
+[https://www.youtube.com/embed/RpGVwh0NkY4](https://www.youtube.com/embed/RpGVwh0NkY4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1981-05-29.jpg?resize=758%2C512&amp;ssl=1)
 
@@ -67,9 +67,9 @@ Bruce makes one of his most unusual guest appearances with The Rock Bottom Remai
 
 **1994:**<br>
 
-[https://www.youtube.com/embed/c1wzfR82-7c?feature=oembed](https://www.youtube.com/embed/c1wzfR82-7c?feature=oembed)
+[https://www.youtube.com/embed/c1wzfR82-7c](https://www.youtube.com/embed/c1wzfR82-7c)
 
-[https://www.youtube.com/embed/8tifOAGe0Is?feature=oembed](https://www.youtube.com/embed/8tifOAGe0Is?feature=oembed)
+[https://www.youtube.com/embed/8tifOAGe0Is](https://www.youtube.com/embed/8tifOAGe0Is)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1994-05-29.jpg?resize=758%2C824&amp;ssl=1)
 
@@ -95,9 +95,9 @@ Bruce makes a guest appearance on "Tumbling Dice" with The Rolling Stones at Roc
 
 **2014:**<br>
 
-[https://www.youtube.com/embed/YQ9a6lh9sps?feature=oembed](https://www.youtube.com/embed/YQ9a6lh9sps?feature=oembed)
+[https://www.youtube.com/embed/YQ9a6lh9sps](https://www.youtube.com/embed/YQ9a6lh9sps)
 
-[https://www.youtube.com/embed/GVPGA9gI_Dw?feature=oembed](https://www.youtube.com/embed/GVPGA9gI_Dw?feature=oembed)
+[https://www.youtube.com/embed/GVPGA9gI_Dw](https://www.youtube.com/embed/GVPGA9gI_Dw)
 
 Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acoustic piano "Incident on 57th Street" followed by a three-pack. The entire U2 band is at the show, and Bono joins Bruce on stage for "Because the Night."
 
@@ -105,18 +105,18 @@ Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acou
 
 [https://www.youtube.com/embed/GCYKxpavmyM?start=92&amp;feature=oembed](https://www.youtube.com/embed/GCYKxpavmyM?start=92&amp;feature=oembed)
 
-[https://www.youtube.com/embed/bjwjKtev0-s?feature=oembed](https://www.youtube.com/embed/bjwjKtev0-s?feature=oembed)
+[https://www.youtube.com/embed/bjwjKtev0-s](https://www.youtube.com/embed/bjwjKtev0-s)
 
-[https://www.youtube.com/embed/KSOa2fRFG_Q?feature=oembed](https://www.youtube.com/embed/KSOa2fRFG_Q?feature=oembed)
+[https://www.youtube.com/embed/KSOa2fRFG_Q](https://www.youtube.com/embed/KSOa2fRFG_Q)
 
-[https://www.youtube.com/embed/cgF00A17LwQ?feature=oembed](https://www.youtube.com/embed/cgF00A17LwQ?feature=oembed)
+[https://www.youtube.com/embed/cgF00A17LwQ](https://www.youtube.com/embed/cgF00A17LwQ)
 
-[https://www.youtube.com/embed/dYl5h2vAxOs?feature=oembed](https://www.youtube.com/embed/dYl5h2vAxOs?feature=oembed)
+[https://www.youtube.com/embed/dYl5h2vAxOs](https://www.youtube.com/embed/dYl5h2vAxOs)
 
 Bruce makes one of his strangest pandemic appearances, remotely joining Dropkick Murphys on "Rose Tattoo" and "American Land" in their empty stadium performance at Fenway Park.
 
 **2020:**<br>
 
-[https://www.youtube.com/embed/0I4SBPyGD9g?feature=oembed](https://www.youtube.com/embed/0I4SBPyGD9g?feature=oembed)
+[https://www.youtube.com/embed/0I4SBPyGD9g](https://www.youtube.com/embed/0I4SBPyGD9g)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2020-05-29-scaled.jpg?resize=758%2C452&amp;ssl=1)

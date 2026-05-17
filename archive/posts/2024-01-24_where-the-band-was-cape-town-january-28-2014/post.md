@@ -11,15 +11,15 @@ Sure enough, leading off the encore was "," dedicated to Seeger and to Nelson Ma
 
 [We Shall Overcome](http://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)
 
-[https://www.youtube.com/embed/PE2lhLHeDBw?feature=oembed](https://www.youtube.com/embed/PE2lhLHeDBw?feature=oembed)
+[https://www.youtube.com/embed/PE2lhLHeDBw](https://www.youtube.com/embed/PE2lhLHeDBw)
 
 But Bruce must have had Pete Seeger on his mind the whole night, because interspersed throughout the set were two other Seeger tour staples not seen since 2006: the swing arrangement of "," and "."
 
 [Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)
 
-[https://www.youtube.com/embed/HknI8UFAdbE?feature=oembed](https://www.youtube.com/embed/HknI8UFAdbE?feature=oembed)
+[https://www.youtube.com/embed/HknI8UFAdbE](https://www.youtube.com/embed/HknI8UFAdbE)
 
-[https://www.youtube.com/embed/XzIORoSqaQo?feature=oembed](https://www.youtube.com/embed/XzIORoSqaQo?feature=oembed)
+[https://www.youtube.com/embed/XzIORoSqaQo](https://www.youtube.com/embed/XzIORoSqaQo)
 
 Bruce was also much looser at this show than at the opener. On Night 1, there were no requests, and the audience interactions were awkward (it was, after all, the first show for most in the audience). By Night 2, the audience was figuring out their participation parts, and Bruce spotted and granted a few requests signs. Night 3 would prove to be full of spontaneity.
 

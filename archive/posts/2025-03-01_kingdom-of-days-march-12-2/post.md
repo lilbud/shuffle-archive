@@ -37,4 +37,4 @@ This time it's Bruce who is laid low by illness (not COVID, though), forcing the
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/cFtKz5lEV50?feature=oembed](https://www.youtube.com/embed/cFtKz5lEV50?feature=oembed)
+[https://www.youtube.com/embed/cFtKz5lEV50](https://www.youtube.com/embed/cFtKz5lEV50)

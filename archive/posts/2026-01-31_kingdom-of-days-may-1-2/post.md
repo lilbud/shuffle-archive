@@ -15,11 +15,11 @@ Bruce plays a set at the Ahmanson Theater in Los Angeles, part of a promotional 
 
 **1973:** *Wings for Wheels*
 
-[https://www.youtube.com/embed/aNNJh1fLRx8?feature=oembed](https://www.youtube.com/embed/aNNJh1fLRx8?feature=oembed)
+[https://www.youtube.com/embed/aNNJh1fLRx8](https://www.youtube.com/embed/aNNJh1fLRx8)
 
-[https://www.youtube.com/embed/7ZGAbNTqfL8?feature=oembed](https://www.youtube.com/embed/7ZGAbNTqfL8?feature=oembed)
+[https://www.youtube.com/embed/7ZGAbNTqfL8](https://www.youtube.com/embed/7ZGAbNTqfL8)
 
-[https://www.youtube.com/embed/CWd5ugerSHI?feature=oembed](https://www.youtube.com/embed/CWd5ugerSHI?feature=oembed)
+[https://www.youtube.com/embed/CWd5ugerSHI](https://www.youtube.com/embed/CWd5ugerSHI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1973-05-01.jpg?resize=758%2C783&amp;ssl=1)
 
@@ -27,15 +27,15 @@ Bruce plays in Denmark for the first time–as a guest (his first time guesting 
 
 **1981:**<br>
 
-[https://www.youtube.com/embed/YSkr1fneJkc?feature=oembed](https://www.youtube.com/embed/YSkr1fneJkc?feature=oembed)
+[https://www.youtube.com/embed/YSkr1fneJkc](https://www.youtube.com/embed/YSkr1fneJkc)
 
 Bruce plays his first ever show in Portugal, in Lisbon. Local news coverage below.
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/b7vi4nsmzrI?feature=oembed](https://www.youtube.com/embed/b7vi4nsmzrI?feature=oembed)
+[https://www.youtube.com/embed/b7vi4nsmzrI](https://www.youtube.com/embed/b7vi4nsmzrI)
 
-[https://videopress.com/embed/vZr2rUPX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vZr2rUPX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/vZr2rUPX](https://videopress.com/embed/vZr2rUPX)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Journal_and_Courier_Mon__May_3__1993_-scaled.jpg?resize=758%2C1238&amp;ssl=1)
 
@@ -43,13 +43,13 @@ Bruce brings his solo acoustic tour to the Palais des Beaux-Arts in Brussels.
 
 **1996:**<br>
 
-[https://videopress.com/embed/uBIn2DK3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uBIn2DK3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uBIn2DK3](https://videopress.com/embed/uBIn2DK3)
 
 Bruce and the reunited E Street Band play their first of two shows at the Manchester Evening News Arena in England.
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/QjudCSZ7TC4?feature=oembed](https://www.youtube.com/embed/QjudCSZ7TC4?feature=oembed)
+[https://www.youtube.com/embed/QjudCSZ7TC4](https://www.youtube.com/embed/QjudCSZ7TC4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1999-05-01.jpg?resize=758%2C818&amp;ssl=1)
 
@@ -69,19 +69,19 @@ On International Workers' Day, Bruce opens his Tampa High Hopes show with "Joe H
 
 **2014:**<br>
 
-[https://www.youtube.com/embed/T2UF8yw89yE?feature=oembed](https://www.youtube.com/embed/T2UF8yw89yE?feature=oembed)
+[https://www.youtube.com/embed/T2UF8yw89yE](https://www.youtube.com/embed/T2UF8yw89yE)
 
-[https://www.youtube.com/embed/K5T2JEsZMws?feature=oembed](https://www.youtube.com/embed/K5T2JEsZMws?feature=oembed)
+[https://www.youtube.com/embed/K5T2JEsZMws](https://www.youtube.com/embed/K5T2JEsZMws)
 
-[https://www.youtube.com/embed/XW8MwFSU6kA?feature=oembed](https://www.youtube.com/embed/XW8MwFSU6kA?feature=oembed)
+[https://www.youtube.com/embed/XW8MwFSU6kA](https://www.youtube.com/embed/XW8MwFSU6kA)
 
-[https://www.youtube.com/embed/C5aQz_6tC6U?feature=oembed](https://www.youtube.com/embed/C5aQz_6tC6U?feature=oembed)
+[https://www.youtube.com/embed/C5aQz_6tC6U](https://www.youtube.com/embed/C5aQz_6tC6U)
 
-[https://www.youtube.com/embed/yhcpTVZqjYI?feature=oembed](https://www.youtube.com/embed/yhcpTVZqjYI?feature=oembed)
+[https://www.youtube.com/embed/yhcpTVZqjYI](https://www.youtube.com/embed/yhcpTVZqjYI)
 
 [https://www.youtube.com/embed/d4VUc7ExwWY?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/d4VUc7ExwWY?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
-[https://www.youtube.com/embed/cGaKs2WsKs8?feature=oembed](https://www.youtube.com/embed/cGaKs2WsKs8?feature=oembed)
+[https://www.youtube.com/embed/cGaKs2WsKs8](https://www.youtube.com/embed/cGaKs2WsKs8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2014-05-01.jpg?resize=758%2C791&amp;ssl=1)
 
@@ -89,15 +89,15 @@ The Tony Awards announce that Bruce will be awarded a special Tony for "a once i
 
 **2018:** *Springsteen on Broadway*,
 
-[https://www.youtube.com/embed/Ol_H1beGUV4?feature=oembed](https://www.youtube.com/embed/Ol_H1beGUV4?feature=oembed)
+[https://www.youtube.com/embed/Ol_H1beGUV4](https://www.youtube.com/embed/Ol_H1beGUV4)
 
-[https://videopress.com/embed/LdION72y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/LdION72y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/LdION72y](https://videopress.com/embed/LdION72y)
 
 Dion releases a video single for his remake of "Hymn to Him," featuring backing vocals by Patti Scialfa and Bruce on guitar.
 
 **2020:**<br>
 
-[https://www.youtube.com/embed/7BJ4Kg3Dl_4?feature=oembed](https://www.youtube.com/embed/7BJ4Kg3Dl_4?feature=oembed)
+[https://www.youtube.com/embed/7BJ4Kg3Dl_4](https://www.youtube.com/embed/7BJ4Kg3Dl_4)
 
 Bruce and Patti attend starring George Clooney on Broadway.
 

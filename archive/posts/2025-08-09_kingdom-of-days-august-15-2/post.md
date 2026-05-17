@@ -21,21 +21,21 @@ Bruce and the E Street Band deliver a scorching performance at Washington DC's C
 
 **1978:**<br>
 
-[https://videopress.com/embed/YnjIaFFn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YnjIaFFn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/YnjIaFFn](https://videopress.com/embed/YnjIaFFn)
 
-[https://videopress.com/embed/j6U6TOXs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/j6U6TOXs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/j6U6TOXs](https://videopress.com/embed/j6U6TOXs)
 
 Bruce joins Cats on a Smooth Surface at their fourth anniversary party at The Stone Pony. Amazingly, the set was captured on film–check out "" and "" below.
 
 **1982:** [Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[Sweet Soul Music](http://estreetshuffle.com/index.php/2019/11/01/cover-me-sweet-soul-music/)
 
-[https://videopress.com/embed/5WvffBvQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5WvffBvQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/5WvffBvQ](https://videopress.com/embed/5WvffBvQ)
 
 Bruce and the E Street Band play their second of two nights at Philadelphia's Veterans Stadium on the Born in the U.S.A. Tour.
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/m8p5z71YIrY?feature=oembed](https://www.youtube.com/embed/m8p5z71YIrY?feature=oembed)
+[https://www.youtube.com/embed/m8p5z71YIrY](https://www.youtube.com/embed/m8p5z71YIrY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-08-15a-265x300.png?resize=758%2C858)
 
@@ -53,21 +53,21 @@ The Magic Tour enters its final month with a return to indoor arenas, starting w
 
 **2008:** [You Can't Sit Down](http://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)[Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)
 
-[https://videopress.com/embed/oc0WivO0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oc0WivO0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/oc0WivO0](https://videopress.com/embed/oc0WivO0)
 
-[https://www.youtube.com/embed/c7R8BLSvYEQ?feature=oembed](https://www.youtube.com/embed/c7R8BLSvYEQ?feature=oembed)
+[https://www.youtube.com/embed/c7R8BLSvYEQ](https://www.youtube.com/embed/c7R8BLSvYEQ)
 
 Night Two at Boston's Fenway Park brings an embarrassment of riches, from an opening "Thunder Road" with just Bruce and Roy, to an almost completely audibled opening pack, to the first "" in 36 years, to the first "" in the U.S.A. since '78, a guest-spot by Ken Casey, and so much more. This show is available as part of Bruce's official archive series–get it . For more highlights from this show, see my report.
 
 **2012:** [Knock on Wood](https://estreetshuffle.com/index.php/2021/04/02/cover-me-knock-on-wood/)[Prove It '78](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)[here](https://live.brucespringsteen.net/live-music/0,26943/bruce-springsteen-fenway-park-boston-ma-08-15-2012-mp3-flac-or-online-music-streaming.html)[](http://estreetshuffle.com/index.php/2018/08/15/where-the-band-was-boston-august-15-2012/)*Where the Band Was*
 
-[https://videopress.com/embed/FaVCWMDK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/FaVCWMDK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/FaVCWMDK](https://videopress.com/embed/FaVCWMDK)
 
-[https://videopress.com/embed/b3Y5W7XT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/b3Y5W7XT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/b3Y5W7XT](https://videopress.com/embed/b3Y5W7XT)
 
-[https://www.youtube.com/embed/n8kIjzIZL5g?feature=oembed](https://www.youtube.com/embed/n8kIjzIZL5g?feature=oembed)
+[https://www.youtube.com/embed/n8kIjzIZL5g](https://www.youtube.com/embed/n8kIjzIZL5g)
 
-[https://www.youtube.com/embed/xkYYNPzRljs?feature=oembed](https://www.youtube.com/embed/xkYYNPzRljs?feature=oembed)
+[https://www.youtube.com/embed/xkYYNPzRljs](https://www.youtube.com/embed/xkYYNPzRljs)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gloria Steinem.
 
@@ -75,12 +75,12 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/gloriasteinem-300x296.jpg?resize=758%2C748)
 
-[https://videopress.com/embed/8Air139W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8Air139W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/8Air139W](https://videopress.com/embed/8Air139W)
 
 Almost a year after their originally scheduled date, Bruce and the E Street Band perform their first of two shows at PPG Paints Arena in Pittsburgh.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/9Mk_nzE6UzQ?feature=oembed](https://www.youtube.com/embed/9Mk_nzE6UzQ?feature=oembed)
+[https://www.youtube.com/embed/9Mk_nzE6UzQ](https://www.youtube.com/embed/9Mk_nzE6UzQ)
 
-[https://www.youtube.com/embed/_tTe-WKKKow?feature=oembed](https://www.youtube.com/embed/_tTe-WKKKow?feature=oembed)
+[https://www.youtube.com/embed/_tTe-WKKKow](https://www.youtube.com/embed/_tTe-WKKKow)

@@ -5,7 +5,7 @@ At 914 Sound Studios in New York, Bruce records "" and "" (minus the harmonica, 
 
 **1972:** [It's Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)
 
-[https://www.youtube.com/embed/B2Rju9FVE2M?feature=oembed](https://www.youtube.com/embed/B2Rju9FVE2M?feature=oembed)
+[https://www.youtube.com/embed/B2Rju9FVE2M](https://www.youtube.com/embed/B2Rju9FVE2M)
 
 Bruce works on material for his second album at 914 Sound Studios in Blauvelt, New York.
 
@@ -29,33 +29,33 @@ Bruce joins Billy Chinnock on stage at Big Man's West for "."
 
 **1982:** [Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)
 
-[https://videopress.com/embed/Y4S1mwaJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Y4S1mwaJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Y4S1mwaJ](https://videopress.com/embed/Y4S1mwaJ)
 
 "" makes its world debut at Night Two in Frankfurt, along with the tour premieres of "" and "Follow That Dream."
 
 **1992:** [The Long Goodbye](https://estreetshuffle.com/index.php/2021/12/05/roll-of-the-dice-the-long-goodbye/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://www.youtube.com/embed/AuLvzIM27aE?feature=oembed](https://www.youtube.com/embed/AuLvzIM27aE?feature=oembed)
+[https://www.youtube.com/embed/AuLvzIM27aE](https://www.youtube.com/embed/AuLvzIM27aE)
 
-[https://videopress.com/embed/thLKBdSi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/thLKBdSi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/thLKBdSi](https://videopress.com/embed/thLKBdSi)
 
-[https://videopress.com/embed/2oyjkUD9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2oyjkUD9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2oyjkUD9](https://videopress.com/embed/2oyjkUD9)
 
-[https://www.youtube.com/embed/dgzLPRuvtLQ?feature=oembed](https://www.youtube.com/embed/dgzLPRuvtLQ?feature=oembed)
+[https://www.youtube.com/embed/dgzLPRuvtLQ](https://www.youtube.com/embed/dgzLPRuvtLQ)
 
 Bruce plays a full-length concert at Madison Square Garden to benefit the new Kristen Ann Carr Fund. This show serves as an epilogue to World Tour 1993 and is the last appearance of the 1992-1993 touring band. Joe Ely, Soozie Tyrell, and Terrence Trent D'Arby all make guest appearances, but D'Arby's contribution is not appreciated by fans in attendance, who boo him so noticeably that Bruce, visibly peeved, tells off the crowd.
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/RAG27JnlCH0?feature=oembed](https://www.youtube.com/embed/RAG27JnlCH0?feature=oembed)
+[https://www.youtube.com/embed/RAG27JnlCH0](https://www.youtube.com/embed/RAG27JnlCH0)
 
-[https://www.youtube.com/embed/tC7nPJQ5LoA?feature=oembed](https://www.youtube.com/embed/tC7nPJQ5LoA?feature=oembed)
+[https://www.youtube.com/embed/tC7nPJQ5LoA](https://www.youtube.com/embed/tC7nPJQ5LoA)
 
-[https://www.youtube.com/embed/0ApluzJ5mTg?feature=oembed](https://www.youtube.com/embed/0ApluzJ5mTg?feature=oembed)
+[https://www.youtube.com/embed/0ApluzJ5mTg](https://www.youtube.com/embed/0ApluzJ5mTg)
 
-[https://www.youtube.com/embed/30DrA9_lIwc?feature=oembed](https://www.youtube.com/embed/30DrA9_lIwc?feature=oembed)
+[https://www.youtube.com/embed/30DrA9_lIwc](https://www.youtube.com/embed/30DrA9_lIwc)
 
-[https://www.youtube.com/embed/kkzF5eA2uXM?feature=oembed](https://www.youtube.com/embed/kkzF5eA2uXM?feature=oembed)
+[https://www.youtube.com/embed/kkzF5eA2uXM](https://www.youtube.com/embed/kkzF5eA2uXM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1993-06-26.jpg?resize=758%2C1723&amp;ssl=1)
 
@@ -63,21 +63,21 @@ Bruce plays a full-length concert at Madison Square Garden to benefit the new Kr
 
 **1999:** [Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)
 
-[https://www.youtube.com/embed/HCmXBvFmSYs?feature=oembed](https://www.youtube.com/embed/HCmXBvFmSYs?feature=oembed)
+[https://www.youtube.com/embed/HCmXBvFmSYs](https://www.youtube.com/embed/HCmXBvFmSYs)
 
 Night Seven (of ten) at the Reunion Tour's closing stand at Madison Square Garden is most notable for its sound check, where director Jonathan Demme films the band performing "American Skin (41 Shots)."
 
 **2000:**<br>
 
-[https://www.youtube.com/embed/aQMqWAiWPMs?feature=oembed](https://www.youtube.com/embed/aQMqWAiWPMs?feature=oembed)
+[https://www.youtube.com/embed/aQMqWAiWPMs](https://www.youtube.com/embed/aQMqWAiWPMs)
 
-[https://www.youtube.com/embed/9Z6QN3y8dJo?feature=oembed](https://www.youtube.com/embed/9Z6QN3y8dJo?feature=oembed)
+[https://www.youtube.com/embed/9Z6QN3y8dJo](https://www.youtube.com/embed/9Z6QN3y8dJo)
 
-[https://www.youtube.com/embed/JJrvXBXX_fs?feature=oembed](https://www.youtube.com/embed/JJrvXBXX_fs?feature=oembed)
+[https://www.youtube.com/embed/JJrvXBXX_fs](https://www.youtube.com/embed/JJrvXBXX_fs)
 
-[https://www.youtube.com/embed/vHHrqQmeS-E?feature=oembed](https://www.youtube.com/embed/vHHrqQmeS-E?feature=oembed)
+[https://www.youtube.com/embed/vHHrqQmeS-E](https://www.youtube.com/embed/vHHrqQmeS-E)
 
-[https://www.youtube.com/embed/jHJqt_FiG5o?feature=oembed](https://www.youtube.com/embed/jHJqt_FiG5o?feature=oembed)
+[https://www.youtube.com/embed/jHJqt_FiG5o](https://www.youtube.com/embed/jHJqt_FiG5o)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2000-06-26-183x300.jpg?resize=758%2C1242)
 
@@ -85,13 +85,13 @@ Bruce and the E Street Band play a stellar Wrecking Ball show in Gijon, Spain, f
 
 **2013:** [Ain't Good Enough for You](http://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)[report](http://estreetshuffle.com/index.php/2018/06/26/where-the-band-was-gijon-june-26-2013/)*Where the Band Was*
 
-[https://www.youtube.com/embed/m82qt7tsC_U?feature=oembed](https://www.youtube.com/embed/m82qt7tsC_U?feature=oembed)
+[https://www.youtube.com/embed/m82qt7tsC_U](https://www.youtube.com/embed/m82qt7tsC_U)
 
-[https://www.youtube.com/embed/VtQ3mg2a8Dg?feature=oembed](https://www.youtube.com/embed/VtQ3mg2a8Dg?feature=oembed)
+[https://www.youtube.com/embed/VtQ3mg2a8Dg](https://www.youtube.com/embed/VtQ3mg2a8Dg)
 
-[https://www.youtube.com/embed/F-KC2fdEwHE?feature=oembed](https://www.youtube.com/embed/F-KC2fdEwHE?feature=oembed)
+[https://www.youtube.com/embed/F-KC2fdEwHE](https://www.youtube.com/embed/F-KC2fdEwHE)
 
-[https://www.youtube.com/embed/WidIrf5zxEs?feature=oembed](https://www.youtube.com/embed/WidIrf5zxEs?feature=oembed)
+[https://www.youtube.com/embed/WidIrf5zxEs](https://www.youtube.com/embed/WidIrf5zxEs)
 
 returns for a limited engagement at the St. James Theater in New York, reopening Broadway after more than a year of closure during the Great Pandemic. New stories and songs have been added, including "," "American Skin (41 Shots)," and "." In attendance tonight: Steven Van Zandt, Jon Landau, Governor Phil Murphy, Secretary Pete Buttigieg, Ridley Scott, Brian Williams, David Fricke, George Travis, and this blogger. See how many you can spot in this photo I took just before the house lights went down.
 
@@ -103,10 +103,10 @@ returns for a limited engagement at the St. James Theater in New York, reopening
 
 **2023:** [Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)
 
-[https://www.youtube.com/embed/I1lHcOnAtO0?feature=oembed](https://www.youtube.com/embed/I1lHcOnAtO0?feature=oembed)
+[https://www.youtube.com/embed/I1lHcOnAtO0](https://www.youtube.com/embed/I1lHcOnAtO0)
 
-[https://www.youtube.com/embed/zuA8b8e6olM?feature=oembed](https://www.youtube.com/embed/zuA8b8e6olM?feature=oembed)
+[https://www.youtube.com/embed/zuA8b8e6olM](https://www.youtube.com/embed/zuA8b8e6olM)
 
-[https://www.youtube.com/embed/aMGSvKqfruQ?feature=oembed](https://www.youtube.com/embed/aMGSvKqfruQ?feature=oembed)
+[https://www.youtube.com/embed/aMGSvKqfruQ](https://www.youtube.com/embed/aMGSvKqfruQ)
 
-[https://www.youtube.com/embed/bM3WlwtwC0A?feature=oembed](https://www.youtube.com/embed/bM3WlwtwC0A?feature=oembed)
+[https://www.youtube.com/embed/bM3WlwtwC0A](https://www.youtube.com/embed/bM3WlwtwC0A)

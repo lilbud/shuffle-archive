@@ -23,9 +23,9 @@ Bruce and the band play a sold-out show at Penn State University, where Bruce ge
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/UGq8YkOyuMs?feature=oembed](https://www.youtube.com/embed/UGq8YkOyuMs?feature=oembed)
+[https://www.youtube.com/embed/UGq8YkOyuMs](https://www.youtube.com/embed/UGq8YkOyuMs)
 
-[https://www.youtube.com/embed/gneYR-8u7Vk?feature=oembed](https://www.youtube.com/embed/gneYR-8u7Vk?feature=oembed)
+[https://www.youtube.com/embed/gneYR-8u7Vk](https://www.youtube.com/embed/gneYR-8u7Vk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Centre_Daily_Times_Wed__Apr_14__1976_-scaled.jpg?resize=758%2C655&amp;ssl=1)
 
@@ -41,7 +41,7 @@ At the Ripley Music Hall in Philadelphia, Bruce joins Clarence Clemons and The R
 
 **1984:** [Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)
 
-[https://www.youtube.com/embed/XlPAOjsEc9c?feature=oembed](https://www.youtube.com/embed/XlPAOjsEc9c?feature=oembed)
+[https://www.youtube.com/embed/XlPAOjsEc9c](https://www.youtube.com/embed/XlPAOjsEc9c)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1984-04-13.jpg?resize=642%2C961&amp;ssl=1)
 
@@ -49,7 +49,7 @@ The third of five nights at Tokyo's Yoyogi National Gymnasium, where Bruce plays
 
 **1985:**<br>
 
-[https://videopress.com/embed/jH8MQOe7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jH8MQOe7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jH8MQOe7](https://videopress.com/embed/jH8MQOe7)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Daily_Record_Tue__Apr_16__1985_-scaled.jpg?resize=758%2C1446&amp;ssl=1)
 
@@ -61,25 +61,25 @@ Bruce and the band play their second of two shows at The Summit in Houston.
 
 **1988:**<br>
 
-[https://videopress.com/embed/OkkTPjEr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OkkTPjEr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/OkkTPjEr](https://videopress.com/embed/OkkTPjEr)
 
 Bruce's World Tour 1993 moves on to Lyon for a single show at Halle Tony Garnier.
 
 **1993:**<br>
 
-[https://videopress.com/embed/DWvX1khT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DWvX1khT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/DWvX1khT](https://videopress.com/embed/DWvX1khT)
 
 The Italian leg of Bruce's solo acoustic tour concludes with a show at Teatro Carlo Felice in Genoa.
 
 **1996:**<br>
 
-[https://www.youtube.com/embed/KlnHV-oYuaM?feature=oembed](https://www.youtube.com/embed/KlnHV-oYuaM?feature=oembed)
+[https://www.youtube.com/embed/KlnHV-oYuaM](https://www.youtube.com/embed/KlnHV-oYuaM)
 
 is released, and the Reunion Tour moves on to Germany, starting with a single show in Munich.
 
 **1999:** *18 Tracks*
 
-[https://videopress.com/embed/2gsmRPKN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2gsmRPKN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2gsmRPKN](https://videopress.com/embed/2gsmRPKN)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1999-04-13.jpg?resize=253%2C960&amp;ssl=1)
 
@@ -91,7 +91,7 @@ The Canadian leg of the Rising Tour continues with a show at Pengrowth Saddledom
 
 **2003:**<br>
 
-[https://videopress.com/embed/aylHqzwW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aylHqzwW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/aylHqzwW](https://videopress.com/embed/aylHqzwW)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2003-04-13.jpg?resize=758%2C952&amp;ssl=1)
 
@@ -103,7 +103,7 @@ At Asbury Park's Convention Hall, Bruce and the Sessions Band rehearse for their
 
 **2006:** *American Land Edition**We Shall Overcome: The Seeger Sessions*
 
-[https://www.youtube.com/embed/ibbOhr8t5pQ?feature=oembed](https://www.youtube.com/embed/ibbOhr8t5pQ?feature=oembed)
+[https://www.youtube.com/embed/ibbOhr8t5pQ](https://www.youtube.com/embed/ibbOhr8t5pQ)
 
 At the Magic Tour stop at the American Airlines Center in Dallas, "Independence Day" makes its tour premiere, and Jon Bon Jovi makes a guest appearance for "Glory Days."
 
@@ -115,11 +115,11 @@ The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/WxyT7i0L4MQ?feature=oembed](https://www.youtube.com/embed/WxyT7i0L4MQ?feature=oembed)
+[https://www.youtube.com/embed/WxyT7i0L4MQ](https://www.youtube.com/embed/WxyT7i0L4MQ)
 
-[https://www.youtube.com/embed/19nO2TuSFd4?feature=oembed](https://www.youtube.com/embed/19nO2TuSFd4?feature=oembed)
+[https://www.youtube.com/embed/19nO2TuSFd4](https://www.youtube.com/embed/19nO2TuSFd4)
 
-[https://www.youtube.com/embed/mUNQYwJRANQ?feature=oembed](https://www.youtube.com/embed/mUNQYwJRANQ?feature=oembed)
+[https://www.youtube.com/embed/mUNQYwJRANQ](https://www.youtube.com/embed/mUNQYwJRANQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/The_Buffalo_News_2012_04_14_1.jpg?resize=758%2C811&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/The_Buffalo_News_2012_04_14_2.jpg?resize=758%2C735&amp;ssl=1)
 
@@ -131,6 +131,6 @@ Bruce guest stars with Danny Clinch's Tangiers Blues Band at the annual Kristen 
 
 **2019:**<br>
 
-[https://www.youtube.com/embed/gC72nJOeExc?feature=oembed](https://www.youtube.com/embed/gC72nJOeExc?feature=oembed)
+[https://www.youtube.com/embed/gC72nJOeExc](https://www.youtube.com/embed/gC72nJOeExc)
 
-[https://www.youtube.com/embed/HfbSY7a8sks?feature=oembed](https://www.youtube.com/embed/HfbSY7a8sks?feature=oembed)
+[https://www.youtube.com/embed/HfbSY7a8sks](https://www.youtube.com/embed/HfbSY7a8sks)

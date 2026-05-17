@@ -5,4 +5,4 @@ Fellow New Jerseyans take a swing at Bruce's "."
 
 There's nothing new here arrangement-wise, but they do an admirable job with it. They also have the benefit of distance from the 1980s; it's nice to hear a studio version of "Downbound Train" with the synth dialed back!
 
-[https://www.youtube.com/embed/i5WJowjLhmc?feature=oembed](https://www.youtube.com/embed/i5WJowjLhmc?feature=oembed)
+[https://www.youtube.com/embed/i5WJowjLhmc](https://www.youtube.com/embed/i5WJowjLhmc)

@@ -11,4 +11,4 @@ And yes, it's worth three separate releases for a cover this good. I've always t
 
 It's a short list of covers that I like more than the original, but Harding's version of "Jackson Cage" is certainly on it.
 
-[https://www.youtube.com/embed/Y178uxATtrk?feature=oembed](https://www.youtube.com/embed/Y178uxATtrk?feature=oembed)
+[https://www.youtube.com/embed/Y178uxATtrk](https://www.youtube.com/embed/Y178uxATtrk)

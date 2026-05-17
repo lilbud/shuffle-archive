@@ -5,7 +5,7 @@ Not that the performance was lacking–in fact, it was full of highlights, from 
 
 [Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)[Something in the Night,](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)
 
-[https://www.youtube.com/embed/_uGfbByFzcw?feature=oembed](https://www.youtube.com/embed/_uGfbByFzcw?feature=oembed)
+[https://www.youtube.com/embed/_uGfbByFzcw](https://www.youtube.com/embed/_uGfbByFzcw)
 
 But this was also the my first stadium show, the first show I traveled m
 

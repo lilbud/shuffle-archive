@@ -4,7 +4,7 @@ Although Bruce has long been a fan of southwestern rock, Joe Ely had more than t
 
 In 1993, Ely was touring behind his new album *Love and Danger*, and Bruce was already a fan. Meeting Ely for the first time at the venue, the two singer-songwriters hit it off immediately and became instant friends. That night, Bruce made his first of many, many appearances over the years with Joe, and one of the songs they sang was Joe's "Settle For Love."
 
-[https://videopress.com/embed/SsOq1hBx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SsOq1hBx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/SsOq1hBx](https://videopress.com/embed/SsOq1hBx)
 
 "Settle For Love" was the lead-off track from Joe's 1988 album, *Dig All Night*, and it lifted Joe and his band to the height of their popularity.
 
@@ -20,7 +20,7 @@ That Meadowlands benefit show is now available as one of Bruce's official archiv
 
 Three years later, Bruce was back in Dublin to play a solo acoustic show on his Ghost of Tom Joad Tour, and by a full-circle coincidence, Joe Ely was back in town, too. So once again, Bruce graced Joe's stage, and once again, they played "Settle For Love."
 
-[https://videopress.com/embed/fHKcKjeX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fHKcKjeX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fHKcKjeX](https://videopress.com/embed/fHKcKjeX)
 
 Bruce and Joe would go on to play together many more times over the years in both Texas and New Jersey (never again in Dublin), but that late winter night in 1996 was the last time they'd play "Settle For Love."
 

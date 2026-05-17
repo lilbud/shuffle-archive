@@ -23,7 +23,7 @@ At the Record Plant in New York City, Bruce completes "Racing in the Street."
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/cm9UuM3UXdc?feature=oembed](https://www.youtube.com/embed/cm9UuM3UXdc?feature=oembed)
+[https://www.youtube.com/embed/cm9UuM3UXdc](https://www.youtube.com/embed/cm9UuM3UXdc)
 
 Bruce postpones a scheduled show in Manchester in order to recover from the first two legs of the River Tour.
 
@@ -35,17 +35,17 @@ Bruce and the E Street Band play their second of six nights at the Sydney Entert
 
 **1985:**<br>
 
-[https://videopress.com/embed/4R9wQY6l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4R9wQY6l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4R9wQY6l](https://videopress.com/embed/4R9wQY6l)
 
 The second of two nights at The Omni in Atlanta along the Tunnel of Love Express Tour. The set list is largely unremarkable, but the soundcheck is astounding, full of rare covers like "," "," "" and more–and luckily we have a recording of it (thanks to friend of the blog Chris Nierling).
 
 **1988:** [Crazy Love](http://estreetshuffle.com/index.php/2019/06/27/cover-me-crazy-love/)[A Change Is Gonna Come](http://estreetshuffle.com/index.php/2019/02/06/cover-me-a-change-is-gonna-come/)[Just Like a Woman](http://estreetshuffle.com/index.php/2018/05/08/cover-me-just-like-a-woman/)
 
-[https://www.youtube.com/embed/pCaj8fF5U4U?feature=oembed](https://www.youtube.com/embed/pCaj8fF5U4U?feature=oembed)
+[https://www.youtube.com/embed/pCaj8fF5U4U](https://www.youtube.com/embed/pCaj8fF5U4U)
 
-[https://www.youtube.com/embed/z8Hd5TpbzAE?feature=oembed](https://www.youtube.com/embed/z8Hd5TpbzAE?feature=oembed)
+[https://www.youtube.com/embed/z8Hd5TpbzAE](https://www.youtube.com/embed/z8Hd5TpbzAE)
 
-[https://www.youtube.com/embed/TM1e8Yu-4E0?feature=oembed](https://www.youtube.com/embed/TM1e8Yu-4E0?feature=oembed)
+[https://www.youtube.com/embed/TM1e8Yu-4E0](https://www.youtube.com/embed/TM1e8Yu-4E0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1988-0323-300x224.jpg?resize=758%2C565)
 
@@ -55,9 +55,9 @@ Bruce plays a food bank benefit show at the Count Basie Theater in Red Bank befo
 
 [https://www.youtube.com/embed/2lfIHGtB5wE?start=872&amp;feature=oembed](https://www.youtube.com/embed/2lfIHGtB5wE?start=872&amp;feature=oembed)
 
-[https://www.youtube.com/embed/ziVw8itIXVU?feature=oembed](https://www.youtube.com/embed/ziVw8itIXVU?feature=oembed)
+[https://www.youtube.com/embed/ziVw8itIXVU](https://www.youtube.com/embed/ziVw8itIXVU)
 
-[https://www.youtube.com/embed/vdcKiLSFVOY?feature=oembed](https://www.youtube.com/embed/vdcKiLSFVOY?feature=oembed)
+[https://www.youtube.com/embed/vdcKiLSFVOY](https://www.youtube.com/embed/vdcKiLSFVOY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-23.png?resize=758%2C1006&amp;ssl=1)
 
@@ -75,11 +75,11 @@ Live premieres galore (six album tracks and two covers, including "" with John E
 
 **2009:** [Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)*very*
 
-[https://www.youtube.com/embed/LKsdT3P_DH4?feature=oembed](https://www.youtube.com/embed/LKsdT3P_DH4?feature=oembed)
+[https://www.youtube.com/embed/LKsdT3P_DH4](https://www.youtube.com/embed/LKsdT3P_DH4)
 
-[https://www.youtube.com/embed/ChJzpKOCIt4?feature=oembed](https://www.youtube.com/embed/ChJzpKOCIt4?feature=oembed)
+[https://www.youtube.com/embed/ChJzpKOCIt4](https://www.youtube.com/embed/ChJzpKOCIt4)
 
-[https://www.youtube.com/embed/SQhr9EGXP1E?feature=oembed](https://www.youtube.com/embed/SQhr9EGXP1E?feature=oembed)
+[https://www.youtube.com/embed/SQhr9EGXP1E](https://www.youtube.com/embed/SQhr9EGXP1E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2009-03-23a.jpg?resize=434%2C2959&amp;ssl=1)
 
@@ -89,15 +89,15 @@ The Wrecking Ball Tour moves on to Tampa, with a surprising number of set list c
 
 **2012:** [Talk to Me](http://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)
 
-[https://www.youtube.com/embed/O3vJ2-IZqME?feature=oembed](https://www.youtube.com/embed/O3vJ2-IZqME?feature=oembed)
+[https://www.youtube.com/embed/O3vJ2-IZqME](https://www.youtube.com/embed/O3vJ2-IZqME)
 
-[https://www.youtube.com/embed/31tgD-JVpIc?feature=oembed](https://www.youtube.com/embed/31tgD-JVpIc?feature=oembed)
+[https://www.youtube.com/embed/31tgD-JVpIc](https://www.youtube.com/embed/31tgD-JVpIc)
 
-[https://www.youtube.com/embed/7lzRDbg_6IQ?feature=oembed](https://www.youtube.com/embed/7lzRDbg_6IQ?feature=oembed)
+[https://www.youtube.com/embed/7lzRDbg_6IQ](https://www.youtube.com/embed/7lzRDbg_6IQ)
 
-[https://www.youtube.com/embed/nghqjBwZTiE?feature=oembed](https://www.youtube.com/embed/nghqjBwZTiE?feature=oembed)
+[https://www.youtube.com/embed/nghqjBwZTiE](https://www.youtube.com/embed/nghqjBwZTiE)
 
-[https://www.youtube.com/embed/iLuJ65NLMT4?feature=oembed](https://www.youtube.com/embed/iLuJ65NLMT4?feature=oembed)
+[https://www.youtube.com/embed/iLuJ65NLMT4](https://www.youtube.com/embed/iLuJ65NLMT4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-23a-262x300.jpg?resize=758%2C868)
 
@@ -111,8 +111,8 @@ Bruce and the E Street Band bring their World Tour to the Keybank Center in Buff
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/anheQ4NAjR8?feature=oembed](https://www.youtube.com/embed/anheQ4NAjR8?feature=oembed)
+[https://www.youtube.com/embed/anheQ4NAjR8](https://www.youtube.com/embed/anheQ4NAjR8)
 
-[https://www.youtube.com/embed/qJTpxUJ6mRE?feature=oembed](https://www.youtube.com/embed/qJTpxUJ6mRE?feature=oembed)
+[https://www.youtube.com/embed/qJTpxUJ6mRE](https://www.youtube.com/embed/qJTpxUJ6mRE)
 
-[https://www.youtube.com/embed/9CHbSU4XCwM?feature=oembed](https://www.youtube.com/embed/9CHbSU4XCwM?feature=oembed)
+[https://www.youtube.com/embed/9CHbSU4XCwM](https://www.youtube.com/embed/9CHbSU4XCwM)

@@ -9,7 +9,7 @@ David Sancious rejoins the band as recording sessions continue for Bruce's secon
 
 **1973:**<br>
 
-[https://www.youtube.com/embed/rCVdZiAgGWY?feature=oembed](https://www.youtube.com/embed/rCVdZiAgGWY?feature=oembed)
+[https://www.youtube.com/embed/rCVdZiAgGWY](https://www.youtube.com/embed/rCVdZiAgGWY)
 
 A scheduled E Street Band gig in Memphis is cancelled.
 
@@ -25,13 +25,13 @@ The Tunnel of Love Tour arrives in Rotterdam for the first of two nights.
 
 **1988:**<br>
 
-[https://videopress.com/embed/Qh1rK3ay?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Qh1rK3ay?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Qh1rK3ay](https://videopress.com/embed/Qh1rK3ay)
 
 Bruce joins Clarence and the Red Bank Rockers on stage for 30 minutes of their set at Tradewinds in Sea Bright, New Jersey.
 
 **1993:**<br>
 
-[https://videopress.com/embed/8wxTcxZg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8wxTcxZg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/8wxTcxZg](https://videopress.com/embed/8wxTcxZg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1993-06-28a.jpg?resize=506%2C2530&amp;ssl=1)
 
@@ -41,7 +41,7 @@ Bruce and the E Street Band play their final European Rising show in Milan durin
 
 **2003:**<br>
 
-[https://www.youtube.com/embed/2Pi79S-DHxg?feature=oembed](https://www.youtube.com/embed/2Pi79S-DHxg?feature=oembed)
+[https://www.youtube.com/embed/2Pi79S-DHxg](https://www.youtube.com/embed/2Pi79S-DHxg)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAR7_v5okUXG4AZFkBe04Nc](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAR7_v5okUXG4AZFkBe04Nc)
 
@@ -49,29 +49,29 @@ Bruce plays his final European solo acoustic show at ICC Berlin, where Bruce tou
 
 **2005:** [Sinaloa Cowboys](https://estreetshuffle.com/index.php/2022/01/04/roll-of-the-dice-sinaloa-cowboys/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://www.youtube.com/embed/iO4xvbDaCHg?feature=oembed](https://www.youtube.com/embed/iO4xvbDaCHg?feature=oembed)
+[https://www.youtube.com/embed/iO4xvbDaCHg](https://www.youtube.com/embed/iO4xvbDaCHg)
 
-[https://www.youtube.com/embed/E2tBZDyBbqM?feature=oembed](https://www.youtube.com/embed/E2tBZDyBbqM?feature=oembed)
+[https://www.youtube.com/embed/E2tBZDyBbqM](https://www.youtube.com/embed/E2tBZDyBbqM)
 
-[https://www.youtube.com/embed/QLpLSeluFsw?feature=oembed](https://www.youtube.com/embed/QLpLSeluFsw?feature=oembed)
+[https://www.youtube.com/embed/QLpLSeluFsw](https://www.youtube.com/embed/QLpLSeluFsw)
 
 [https://www.youtube.com/embed/JtaQtk3HVrM?list=PLnbVaK2f4rahhmCOk8qOscz-3vGqG2YzR](https://www.youtube.com/embed/JtaQtk3HVrM?list=PLnbVaK2f4rahhmCOk8qOscz-3vGqG2YzR)
 
-[https://www.youtube.com/embed/XMzlrAeyQ-c?feature=oembed](https://www.youtube.com/embed/XMzlrAeyQ-c?feature=oembed)
+[https://www.youtube.com/embed/XMzlrAeyQ-c](https://www.youtube.com/embed/XMzlrAeyQ-c)
 
 Bruce and the E Street Band headline Hard Rock Calling in London's Hyde Park, where Brian Fallon repeats his "" guest appearance from the day before, and Bruce repeats as well by joining The Gaslight Anthem for "" during their own set. Bruce opens the show (appropriately) with "." This show is filmed, broadcast, and released on DVD and Blu-ray as .
 
 **2009:** [No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)[The '59 Sound](http://estreetshuffle.com/index.php/2018/01/27/meeting-across-the-river-gaslight-anthem-and-bruce-springsteen-the-59-sound/)[London Calling](http://estreetshuffle.com/index.php/2018/04/09/matr-bruce-springsteen-elvis-costello-steve-van-zandt-dave-grohl-london-calling/)*London Calling: Live in Hyde Park*
 
-[https://www.youtube.com/embed/Ul0XCTeJx_o?feature=oembed](https://www.youtube.com/embed/Ul0XCTeJx_o?feature=oembed)
+[https://www.youtube.com/embed/Ul0XCTeJx_o](https://www.youtube.com/embed/Ul0XCTeJx_o)
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZMnACTqJThy_0Ge7B3hKft](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZMnACTqJThy_0Ge7B3hKft)
 
-[https://www.youtube.com/embed/Xg7tlh-H6_Y?feature=oembed](https://www.youtube.com/embed/Xg7tlh-H6_Y?feature=oembed)
+[https://www.youtube.com/embed/Xg7tlh-H6_Y](https://www.youtube.com/embed/Xg7tlh-H6_Y)
 
-[https://www.youtube.com/embed/8j1aCBRWlc8?feature=oembed](https://www.youtube.com/embed/8j1aCBRWlc8?feature=oembed)
+[https://www.youtube.com/embed/8j1aCBRWlc8](https://www.youtube.com/embed/8j1aCBRWlc8)
 
-[https://www.youtube.com/embed/P5pNqBhz8uI?feature=oembed](https://www.youtube.com/embed/P5pNqBhz8uI?feature=oembed)
+[https://www.youtube.com/embed/P5pNqBhz8uI](https://www.youtube.com/embed/P5pNqBhz8uI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Evening_Standard_2009_06_29_A23.jpg?resize=758%2C819&amp;ssl=1)
 
@@ -85,6 +85,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Actres
 
 **2023:** [here](https://live.brucespringsteen.net/live-music/0,31086/Bruce-Springsteen-mp3-flac-download-6-28-2023-Ullevi-Gothenburg-SWEDEN.html)
 
-[https://www.youtube.com/embed/ivbJvguHt90?feature=oembed](https://www.youtube.com/embed/ivbJvguHt90?feature=oembed)
+[https://www.youtube.com/embed/ivbJvguHt90](https://www.youtube.com/embed/ivbJvguHt90)
 
-[https://www.youtube.com/embed/GLSfgcSGwho?feature=oembed](https://www.youtube.com/embed/GLSfgcSGwho?feature=oembed)
+[https://www.youtube.com/embed/GLSfgcSGwho](https://www.youtube.com/embed/GLSfgcSGwho)

@@ -9,7 +9,7 @@ Every once in a while, though, a reader sends me a cover that's so good and so d
 
 Since I'm one of the more than four billion people under a stay-at-home order at the moment, I was glad for a momentary diversion, so I watched it right away. I'm glad I did, and if you take a few minutes to watch it with me, I think you will be, too.
 
-[https://www.youtube.com/embed/_O6ge4c1RSU?feature=oembed](https://www.youtube.com/embed/_O6ge4c1RSU?feature=oembed)
+[https://www.youtube.com/embed/_O6ge4c1RSU](https://www.youtube.com/embed/_O6ge4c1RSU)
 
 Nico and his band gifted us with a wonderful arrangement of "I'm Goin' Down" — familiar enough to be recognizable but fresh enough to make us listen to the song with newfound attention.
 

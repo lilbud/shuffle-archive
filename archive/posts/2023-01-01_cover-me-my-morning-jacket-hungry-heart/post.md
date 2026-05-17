@@ -7,4 +7,4 @@ It's a wonderfully faithful cover without a trace of irony or self-consciousness
 
 I'm pretty certain Bruce would approve.
 
-[https://www.youtube.com/embed/J8YnAqa1hbA?feature=oembed](https://www.youtube.com/embed/J8YnAqa1hbA?feature=oembed)
+[https://www.youtube.com/embed/J8YnAqa1hbA](https://www.youtube.com/embed/J8YnAqa1hbA)

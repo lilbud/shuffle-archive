@@ -5,7 +5,7 @@ From the Darkness on the Edge of Town tour's November 16, 1978 show in Toronto: 
 
 It's a great opener, so it's a surprise that this was a true one-off–Bruce never played it with the E Street Band again. (He did play it during a handful of 1982 bar appearances, and once at a 1991 benefit, though.)
 
-[https://www.youtube.com/embed/tpMaCUh569I?feature=oembed](https://www.youtube.com/embed/tpMaCUh569I?feature=oembed)
+[https://www.youtube.com/embed/tpMaCUh569I](https://www.youtube.com/embed/tpMaCUh569I)
 
 November 16, 1978 (Toronto, ON)
 January 20, 1991 (Sea Bright, NJ)

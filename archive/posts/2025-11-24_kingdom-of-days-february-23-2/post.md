@@ -3,7 +3,7 @@ The Beatles make their third appearance on the Ed Sullivan show, and fourteen-ye
 
 **1964:**<br>
 
-[https://www.youtube.com/embed/b-VAxGJdJeQ?feature=oembed](https://www.youtube.com/embed/b-VAxGJdJeQ?feature=oembed)
+[https://www.youtube.com/embed/b-VAxGJdJeQ](https://www.youtube.com/embed/b-VAxGJdJeQ)
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
@@ -25,9 +25,9 @@ Bruce and the E Street Band play the Westbury Music Fair in Westbury, New York. 
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/thVo0BShjFI?feature=oembed](https://www.youtube.com/embed/thVo0BShjFI?feature=oembed)
+[https://www.youtube.com/embed/thVo0BShjFI](https://www.youtube.com/embed/thVo0BShjFI)
 
-[https://www.youtube.com/embed/PuUvk8watG0?feature=oembed](https://www.youtube.com/embed/PuUvk8watG0?feature=oembed)
+[https://www.youtube.com/embed/PuUvk8watG0](https://www.youtube.com/embed/PuUvk8watG0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Newsday__Suffolk_Edition__Mon__Feb_24__1975_-scaled.jpg?resize=753%2C2560&amp;ssl=1)
 
@@ -35,7 +35,7 @@ Twelve-year old Eddie Vedder sees Bruce Springsteen and the E Street Band play C
 
 **1977:**<br>
 
-[https://videopress.com/embed/s9oiucKA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/s9oiucKA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/s9oiucKA](https://videopress.com/embed/s9oiucKA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1977-0223-300x244.jpg?resize=758%2C617)
 
@@ -43,9 +43,9 @@ Twelve-year old Eddie Vedder sees Bruce Springsteen and the E Street Band play C
 
 **1981**<br>
 
-[https://www.youtube.com/embed/adlTiwV7I0Y?feature=oembed](https://www.youtube.com/embed/adlTiwV7I0Y?feature=oembed)
+[https://www.youtube.com/embed/adlTiwV7I0Y](https://www.youtube.com/embed/adlTiwV7I0Y)
 
-[https://videopress.com/embed/IuMkI1iN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IuMkI1iN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/IuMkI1iN](https://videopress.com/embed/IuMkI1iN)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-23a.jpg?resize=758%2C569&amp;ssl=1)
 
@@ -71,9 +71,9 @@ Bruce performs "" on French television. Here's the rehearsal and the actual perf
 
 **1996:** [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)
 
-[https://www.youtube.com/embed/hlRJitdRXeM?feature=oembed](https://www.youtube.com/embed/hlRJitdRXeM?feature=oembed)
+[https://www.youtube.com/embed/hlRJitdRXeM](https://www.youtube.com/embed/hlRJitdRXeM)
 
-[https://www.youtube.com/embed/kM3S5LGQMA8?feature=oembed](https://www.youtube.com/embed/kM3S5LGQMA8?feature=oembed)
+[https://www.youtube.com/embed/kM3S5LGQMA8](https://www.youtube.com/embed/kM3S5LGQMA8)
 
 Despite being nominated for both the Best Male Rock Vocal Performance and Best Rock Song categories (both for "The Promise"), Bruce takes home no Grammy Awards this year.
 
@@ -83,9 +83,9 @@ At the 45th Grammy Awards in Madison Square Garden, Bruce performs and wins thre
 
 **2003:**[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)*The Rising*[London Calling](http://estreetshuffle.com/index.php/2018/04/09/matr-bruce-springsteen-elvis-costello-steve-van-zandt-dave-grohl-london-calling/)
 
-[https://www.youtube.com/embed/dXkOOJo4Uqg?feature=oembed](https://www.youtube.com/embed/dXkOOJo4Uqg?feature=oembed)
+[https://www.youtube.com/embed/dXkOOJo4Uqg](https://www.youtube.com/embed/dXkOOJo4Uqg)
 
-[https://www.youtube.com/embed/MkyeGVuc2pQ?feature=oembed](https://www.youtube.com/embed/MkyeGVuc2pQ?feature=oembed)
+[https://www.youtube.com/embed/MkyeGVuc2pQ](https://www.youtube.com/embed/MkyeGVuc2pQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2003-02-23a.png?resize=758%2C1109&amp;ssl=1)
 
@@ -95,24 +95,24 @@ The second of two shows at Hope Estate winery in Hunter Valley, Australia. The s
 
 **2014:** [Spill the Wine](http://estreetshuffle.com/index.php/2018/03/15/cover-me-spill-the-wine/)[I Wish I Were Blind](https://estreetshuffle.com/index.php/2021/10/17/roll-of-the-dice-i-wish-i-were-blind/)[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[4th of July, Asbury Park (Sandy).](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
-[https://www.youtube.com/embed/Xqvfb-h6k4w?feature=oembed](https://www.youtube.com/embed/Xqvfb-h6k4w?feature=oembed)
+[https://www.youtube.com/embed/Xqvfb-h6k4w](https://www.youtube.com/embed/Xqvfb-h6k4w)
 
-[https://www.youtube.com/embed/lu1FiwOZyL4?feature=oembed](https://www.youtube.com/embed/lu1FiwOZyL4?feature=oembed)
+[https://www.youtube.com/embed/lu1FiwOZyL4](https://www.youtube.com/embed/lu1FiwOZyL4)
 
-[https://www.youtube.com/embed/pruelxJqPQQ?feature=oembed](https://www.youtube.com/embed/pruelxJqPQQ?feature=oembed)
+[https://www.youtube.com/embed/pruelxJqPQQ](https://www.youtube.com/embed/pruelxJqPQQ)
 
-[https://www.youtube.com/embed/E__RLU11RzA?feature=oembed](https://www.youtube.com/embed/E__RLU11RzA?feature=oembed)
+[https://www.youtube.com/embed/E__RLU11RzA](https://www.youtube.com/embed/E__RLU11RzA)
 
-[https://www.youtube.com/embed/5luUzLR2QOk?feature=oembed](https://www.youtube.com/embed/5luUzLR2QOk?feature=oembed)
+[https://www.youtube.com/embed/5luUzLR2QOk](https://www.youtube.com/embed/5luUzLR2QOk)
 
-[https://www.youtube.com/embed/ukm6r06AWvM?feature=oembed](https://www.youtube.com/embed/ukm6r06AWvM?feature=oembed)
+[https://www.youtube.com/embed/ukm6r06AWvM](https://www.youtube.com/embed/ukm6r06AWvM)
 
 Bruce and the E Street Band play Quicken Loans Arena in Cleveland. Joe and Johnny Grushecky guest-star on "Born to Run," and the band performs "" as a tour premiere for the local crowd.
 
 **2016:** [Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)
 
-[https://www.youtube.com/embed/PoA8fXHHLTc?feature=oembed](https://www.youtube.com/embed/PoA8fXHHLTc?feature=oembed)
+[https://www.youtube.com/embed/PoA8fXHHLTc](https://www.youtube.com/embed/PoA8fXHHLTc)
 
-[https://www.youtube.com/embed/GRNONowBS-U?feature=oembed](https://www.youtube.com/embed/GRNONowBS-U?feature=oembed)
+[https://www.youtube.com/embed/GRNONowBS-U](https://www.youtube.com/embed/GRNONowBS-U)
 
-[https://www.youtube.com/embed/CJEQ24zsis4?feature=oembed](https://www.youtube.com/embed/CJEQ24zsis4?feature=oembed)
+[https://www.youtube.com/embed/CJEQ24zsis4](https://www.youtube.com/embed/CJEQ24zsis4)

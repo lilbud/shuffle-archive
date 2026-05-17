@@ -11,13 +11,13 @@ Bruce and the boys play a show at Chrysler Hall in Norfolk. Listen to a gorgeous
 
 **1975:** [Up on the Roof](http://estreetshuffle.com/index.php/2018/12/15/cover-me-up-on-the-roof/)
 
-[https://videopress.com/embed/eknLq04x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eknLq04x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/eknLq04x](https://videopress.com/embed/eknLq04x)
 
 Bruce and the band play their second of six nights at the Monmouth Arts Center in Red Bank. Mike Appel and Laurel Canyon attempt to impound Bruce's earnings from this concert stand as part of their ongoing and escalating legal battle, but a judge denies the restraining order request.
 
 **1976:**<br>
 
-[https://videopress.com/embed/2Tw8kvl4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2Tw8kvl4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2Tw8kvl4](https://videopress.com/embed/2Tw8kvl4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1976-08-02-300x269.png?resize=758%2C680)
 
@@ -41,7 +41,7 @@ Bruce joins Jackson Browne on stage at Jackson's Madison Square Garden gig, wher
 
 **1983:** [Stay,](http://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)[Running on Empty,](https://estreetshuffle.com/index.php/2021/03/24/matr-jackson-browne-and-bruce-springsteen-running-on-empty/)[Sweet Little Sixteen](http://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)(Photo credit: Dari)
 
-[https://videopress.com/embed/yuChnbxK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yuChnbxK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/yuChnbxK](https://videopress.com/embed/yuChnbxK)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1983-08-02-300x174.png?resize=758%2C439)
 
@@ -59,35 +59,35 @@ Bruce and the E Street Band play their penultimate Tunnel of Love show when the 
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/1bN5Y_YsW1Q?feature=oembed](https://www.youtube.com/embed/1bN5Y_YsW1Q?feature=oembed)
+[https://www.youtube.com/embed/1bN5Y_YsW1Q](https://www.youtube.com/embed/1bN5Y_YsW1Q)
 
-[https://www.youtube.com/embed/-6h3Ap7ai3A?feature=oembed](https://www.youtube.com/embed/-6h3Ap7ai3A?feature=oembed)
+[https://www.youtube.com/embed/-6h3Ap7ai3A](https://www.youtube.com/embed/-6h3Ap7ai3A)
 
-[https://www.youtube.com/embed/710WeFetFS0?feature=oembed](https://www.youtube.com/embed/710WeFetFS0?feature=oembed)
+[https://www.youtube.com/embed/710WeFetFS0](https://www.youtube.com/embed/710WeFetFS0)
 
-[https://www.youtube.com/embed/Q94J4oGGTEU?feature=oembed](https://www.youtube.com/embed/Q94J4oGGTEU?feature=oembed)
+[https://www.youtube.com/embed/Q94J4oGGTEU](https://www.youtube.com/embed/Q94J4oGGTEU)
 
 Bruce joins Bobby Bandiera on stage at Cheers in Long Branch, New Jersey, for "."
 
 **1989:** [Willie and the Hand Jive](https://estreetshuffle.com/index.php/2021/02/22/matr-bruce-springsteen-and-bobby-bandiera-willie-and-the-hand-jive/)
 
-[https://www.youtube.com/embed/V0bdSzmU4jI?feature=oembed](https://www.youtube.com/embed/V0bdSzmU4jI?feature=oembed)
+[https://www.youtube.com/embed/V0bdSzmU4jI](https://www.youtube.com/embed/V0bdSzmU4jI)
 
 Night Seven of eleven at the Brendan Byrne Arena in East Rutherford sees the live debut of the very rarely performed "."
 
 **1992:** [Book of Dreams](http://estreetshuffle.com/index.php/2019/06/04/roll-of-the-dice-book-of-dreams/)
 
-[https://www.youtube.com/embed/pOZX8CqaEp4?feature=oembed](https://www.youtube.com/embed/pOZX8CqaEp4?feature=oembed)
+[https://www.youtube.com/embed/pOZX8CqaEp4](https://www.youtube.com/embed/pOZX8CqaEp4)
 
-[https://www.youtube.com/embed/vdK1JoYDc9w?feature=oembed](https://www.youtube.com/embed/vdK1JoYDc9w?feature=oembed)
+[https://www.youtube.com/embed/vdK1JoYDc9w](https://www.youtube.com/embed/vdK1JoYDc9w)
 
 At Night Nine of fifteen on the opening U.S. stand of the Reunion Tour, fans at the Meadowlands are treated to the return of "" last played more than two decades prior, and the U.S. premiere of "," which opens the show. During "" Bruce tells his "River of Life" story for the first time.
 
 **1999:** [Something in the Night,](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[Take ‘Em as They Come](http://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-[https://videopress.com/embed/Wv8iQ1BU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Wv8iQ1BU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Wv8iQ1BU](https://videopress.com/embed/Wv8iQ1BU)
 
-[https://videopress.com/embed/kOXzMnNN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kOXzMnNN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/kOXzMnNN](https://videopress.com/embed/kOXzMnNN)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1999-08-02-300x286.png?resize=758%2C723)
 
@@ -97,9 +97,9 @@ Bruce and the E Street Band play a third rehearsal show at Asbury Park's Convent
 
 [https://www.youtube.com/embed/GPdPi8srX1Q?start=14&amp;feature=oembed](https://www.youtube.com/embed/GPdPi8srX1Q?start=14&amp;feature=oembed)
 
-[https://www.youtube.com/embed/kJ5JII8CMig?feature=oembed](https://www.youtube.com/embed/kJ5JII8CMig?feature=oembed)
+[https://www.youtube.com/embed/kJ5JII8CMig](https://www.youtube.com/embed/kJ5JII8CMig)
 
-[https://www.youtube.com/embed/SmFobkkukLc?feature=oembed](https://www.youtube.com/embed/SmFobkkukLc?feature=oembed)
+[https://www.youtube.com/embed/SmFobkkukLc](https://www.youtube.com/embed/SmFobkkukLc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2002-08-02-300x108.png?resize=758%2C273)
 
@@ -107,7 +107,7 @@ Bruce and the E Street Band play their second of two nights at Gillette Stadium 
 
 **2003:**<br>
 
-[https://videopress.com/embed/d6XZXBmU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/d6XZXBmU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/d6XZXBmU](https://videopress.com/embed/d6XZXBmU)
 
 Three days ago, Bruce's dear friend and personal assistant Terry Magovern passed away. In his grief, Bruce writes a new song–""–and performs it this day at Terry's memorial service in Red Bank.
 
@@ -117,9 +117,9 @@ On a rainy night in Foxboro, Boston fans at Gillette Stadium enjoy two Magic Tou
 
 **2008:** [Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)[Little Latin Lupe Lu](http://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)
 
-[https://www.youtube.com/embed/DU2LzvOjhjc?feature=oembed](https://www.youtube.com/embed/DU2LzvOjhjc?feature=oembed)
+[https://www.youtube.com/embed/DU2LzvOjhjc](https://www.youtube.com/embed/DU2LzvOjhjc)
 
-[https://www.youtube.com/embed/fue6SpKUTpQ?feature=oembed](https://www.youtube.com/embed/fue6SpKUTpQ?feature=oembed)
+[https://www.youtube.com/embed/fue6SpKUTpQ](https://www.youtube.com/embed/fue6SpKUTpQ)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB2BnAQQ6qKH0PzoGGavgjU](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB2BnAQQ6qKH0PzoGGavgjU)
 
@@ -129,8 +129,8 @@ The European leg of the Working on a Dream Tour comes to an end with this last s
 
 **2009:** [Burning Love](http://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/)[Born to Be Wild](http://estreetshuffle.com/index.php/2020/05/20/cover-me-born-to-be-wild/)
 
-[https://www.youtube.com/embed/uTfSLImSU8w?feature=oembed](https://www.youtube.com/embed/uTfSLImSU8w?feature=oembed)
+[https://www.youtube.com/embed/uTfSLImSU8w](https://www.youtube.com/embed/uTfSLImSU8w)
 
-[https://www.youtube.com/embed/9Gv8zSnFrLI?feature=oembed](https://www.youtube.com/embed/9Gv8zSnFrLI?feature=oembed)
+[https://www.youtube.com/embed/9Gv8zSnFrLI](https://www.youtube.com/embed/9Gv8zSnFrLI)
 
-[https://www.youtube.com/embed/3H_i1RPXhG8?feature=oembed](https://www.youtube.com/embed/3H_i1RPXhG8?feature=oembed)
+[https://www.youtube.com/embed/3H_i1RPXhG8](https://www.youtube.com/embed/3H_i1RPXhG8)

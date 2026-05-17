@@ -23,9 +23,9 @@ Bruce and the band play the first of two shows at Nassau Coliseum, where a sneak
 
 **1988:**<br>
 
-[https://videopress.com/embed/ncuIPX6s?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ncuIPX6s?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ncuIPX6s](https://videopress.com/embed/ncuIPX6s)
 
-[https://videopress.com/embed/jX12LT4N?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jX12LT4N?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jX12LT4N](https://videopress.com/embed/jX12LT4N)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-04-01.jpg?resize=665%2C827&amp;ssl=1)
 
@@ -33,31 +33,31 @@ The Tour kicks off at HP Pavilion in San Jose. "Good Eye" is performed for the o
 
 **2009:** *Working on a Dream*
 
-[https://www.youtube.com/embed/Vno7i9l-Kuo?feature=oembed](https://www.youtube.com/embed/Vno7i9l-Kuo?feature=oembed)
+[https://www.youtube.com/embed/Vno7i9l-Kuo](https://www.youtube.com/embed/Vno7i9l-Kuo)
 
-[https://www.youtube.com/embed/klRcjOk7tBU?feature=oembed](https://www.youtube.com/embed/klRcjOk7tBU?feature=oembed)
+[https://www.youtube.com/embed/klRcjOk7tBU](https://www.youtube.com/embed/klRcjOk7tBU)
 
-[https://www.youtube.com/embed/BVLXCMvRB5E?feature=oembed](https://www.youtube.com/embed/BVLXCMvRB5E?feature=oembed)
+[https://www.youtube.com/embed/BVLXCMvRB5E](https://www.youtube.com/embed/BVLXCMvRB5E)
 
 On opening night of the Major League Baseball season in Miami, Clarence plays the national anthem.
 
 **2011:**<br>
 
-[https://www.youtube.com/embed/uijnPTZfQVY?feature=oembed](https://www.youtube.com/embed/uijnPTZfQVY?feature=oembed)
+[https://www.youtube.com/embed/uijnPTZfQVY](https://www.youtube.com/embed/uijnPTZfQVY)
 
 Meanwhile, Bruce joins Little Steven at the Underground Garage for part one of a three-part show. A fantastic listen, well worth the time investment.
 
-[https://videopress.com/embed/ygt8x9Zu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ygt8x9Zu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ygt8x9Zu](https://videopress.com/embed/ygt8x9Zu)
 
 At the Verizon Center in Washington, DC, Bruce and the E Street Band play "The Promise" in a full-band arrangement for only the third time ever. "Adam Raised a Cain" and "Out in the Street" make their tour premieres tonight as well.
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/w1DPQX36v20?feature=oembed](https://www.youtube.com/embed/w1DPQX36v20?feature=oembed)
+[https://www.youtube.com/embed/w1DPQX36v20](https://www.youtube.com/embed/w1DPQX36v20)
 
-[https://www.youtube.com/embed/qgoT6_ToPCE?feature=oembed](https://www.youtube.com/embed/qgoT6_ToPCE?feature=oembed)
+[https://www.youtube.com/embed/qgoT6_ToPCE](https://www.youtube.com/embed/qgoT6_ToPCE)
 
-[https://www.youtube.com/embed/UybZAbmLMcY?feature=oembed](https://www.youtube.com/embed/UybZAbmLMcY?feature=oembed)
+[https://www.youtube.com/embed/UybZAbmLMcY](https://www.youtube.com/embed/UybZAbmLMcY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/44696138581_620944df80_o.jpg?resize=758%2C814&amp;ssl=1)
 
@@ -65,10 +65,10 @@ Bruce tour debuts "Jungleland" at Madison Square Garden when the reprise of the 
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/RIMN6GUDKqM?feature=oembed](https://www.youtube.com/embed/RIMN6GUDKqM?feature=oembed)
+[https://www.youtube.com/embed/RIMN6GUDKqM](https://www.youtube.com/embed/RIMN6GUDKqM)
 
-[https://www.youtube.com/embed/GI_JQU7iWwE?feature=oembed](https://www.youtube.com/embed/GI_JQU7iWwE?feature=oembed)
+[https://www.youtube.com/embed/GI_JQU7iWwE](https://www.youtube.com/embed/GI_JQU7iWwE)
 
-[https://www.youtube.com/embed/9mqNMGFafbI?feature=oembed](https://www.youtube.com/embed/9mqNMGFafbI?feature=oembed)
+[https://www.youtube.com/embed/9mqNMGFafbI](https://www.youtube.com/embed/9mqNMGFafbI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01c.jpg?resize=469%2C500&amp;ssl=1)

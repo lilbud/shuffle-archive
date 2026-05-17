@@ -17,10 +17,10 @@ Show-wise, the main set River performance was the highlight as usual for this ea
 
 [](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness on the Edge of Town*
 
-[https://www.youtube.com/embed/SN-E-pJEQgE?feature=oembed](https://www.youtube.com/embed/SN-E-pJEQgE?feature=oembed)
+[https://www.youtube.com/embed/SN-E-pJEQgE](https://www.youtube.com/embed/SN-E-pJEQgE)
 
-[https://www.youtube.com/embed/5zwccSEJ8tE?feature=oembed](https://www.youtube.com/embed/5zwccSEJ8tE?feature=oembed)
+[https://www.youtube.com/embed/5zwccSEJ8tE](https://www.youtube.com/embed/5zwccSEJ8tE)
 
-[https://www.youtube.com/embed/YckePW-ReLw?feature=oembed](https://www.youtube.com/embed/YckePW-ReLw?feature=oembed)
+[https://www.youtube.com/embed/YckePW-ReLw](https://www.youtube.com/embed/YckePW-ReLw)
 
 All in all, a great night–but only a taste of what was to come in the three-night L.A. stand and Seattle shows coming up shortly thereafter.

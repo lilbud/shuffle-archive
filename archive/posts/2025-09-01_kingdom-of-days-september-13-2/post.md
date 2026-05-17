@@ -13,13 +13,13 @@ Bruce and the E Street Band play their first of two shows at the Houston Music H
 
 **1975:** [Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)
 
-[https://www.youtube.com/embed/KqXTZAvoTcY?feature=oembed](https://www.youtube.com/embed/KqXTZAvoTcY?feature=oembed)
+[https://www.youtube.com/embed/KqXTZAvoTcY](https://www.youtube.com/embed/KqXTZAvoTcY)
 
-[https://www.youtube.com/embed/xOzkYIPncsk?feature=oembed](https://www.youtube.com/embed/xOzkYIPncsk?feature=oembed)
+[https://www.youtube.com/embed/xOzkYIPncsk](https://www.youtube.com/embed/xOzkYIPncsk)
 
-[https://www.youtube.com/embed/Z8A6HkAXkXA?feature=oembed](https://www.youtube.com/embed/Z8A6HkAXkXA?feature=oembed)
+[https://www.youtube.com/embed/Z8A6HkAXkXA](https://www.youtube.com/embed/Z8A6HkAXkXA)
 
-[https://www.youtube.com/embed/B5Zw_6PLuQM?feature=oembed](https://www.youtube.com/embed/B5Zw_6PLuQM?feature=oembed)
+[https://www.youtube.com/embed/B5Zw_6PLuQM](https://www.youtube.com/embed/B5Zw_6PLuQM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/09/The_Houston_Post_1975_09_14_49-scaled.jpg?resize=758%2C2366&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/09/The_Houston_Chronicle_1975_09_14_28.jpg?resize=758%2C456&amp;ssl=1)
 
@@ -33,7 +33,7 @@ The Darkness Tour stops for a night in Springfield.
 
 **1978:**<br>
 
-[https://videopress.com/embed/uRJrVPG4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uRJrVPG4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uRJrVPG4](https://videopress.com/embed/uRJrVPG4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0913-300x206.jpg?resize=736%2C506)
 
@@ -41,7 +41,7 @@ The River Tour enters its last stand with the first of two nights at Cincinnati'
 
 **1981:**<br>
 
-[https://videopress.com/embed/AfYeFiTk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AfYeFiTk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/AfYeFiTk](https://videopress.com/embed/AfYeFiTk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1981-09-13a-300x124.jpg?resize=758%2C313)
 
@@ -57,19 +57,19 @@ At the MTV Video Music Awards, "" wins the award for Best Male Video, and "" win
 
 **1985:** [I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://videopress.com/embed/12KMj7U1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/12KMj7U1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/12KMj7U1](https://videopress.com/embed/12KMj7U1)
 
-[https://videopress.com/embed/hYRH5uew?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hYRH5uew?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/hYRH5uew](https://videopress.com/embed/hYRH5uew)
 
 Why isn't Bruce there to accept his award? Because he's on stage with the E Street Band at the Cotton Bowl in Dallas, where "Travelin" Band" makes its tour premiere as the show closer, and Bruce forgets the words to "."
 
 [Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)
 
-[https://videopress.com/embed/TNM9ebpw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/TNM9ebpw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/TNM9ebpw](https://videopress.com/embed/TNM9ebpw)
 
-[https://videopress.com/embed/ytsThwA3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ytsThwA3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ytsThwA3](https://videopress.com/embed/ytsThwA3)
 
-[https://www.youtube.com/embed/84pqurcet3w?feature=oembed](https://www.youtube.com/embed/84pqurcet3w?feature=oembed)
+[https://www.youtube.com/embed/84pqurcet3w](https://www.youtube.com/embed/84pqurcet3w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1985-0913.jpg?resize=758%2C940&amp;ssl=1)
 
@@ -81,7 +81,7 @@ Despite some lead-up controversy, Bruce plays his first and only show to date in
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/heGNgcLdW1E?feature=oembed](https://www.youtube.com/embed/heGNgcLdW1E?feature=oembed)
+[https://www.youtube.com/embed/heGNgcLdW1E](https://www.youtube.com/embed/heGNgcLdW1E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-13-210x300.jpg?resize=758%2C1083)
 
@@ -99,7 +99,7 @@ Bruce and the reunited E Street Band kick off a six-night stand at Philadelphia'
 
 **1999:**<br>
 
-[https://videopress.com/embed/Ts6lVoai?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ts6lVoai?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Ts6lVoai](https://videopress.com/embed/Ts6lVoai)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1999-09-13a-272x300.jpg?resize=758%2C836)
 
@@ -113,9 +113,9 @@ The Rising Tour is in its last month, and the set lists are getting looser. Bruc
 
 **2003:** [I Walk the Line](http://estreetshuffle.com/index.php/2020/06/16/cover-me-i-walk-the-line/)[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)[Paradise](http://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/)
 
-[https://videopress.com/embed/fh6CkRqH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fh6CkRqH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fh6CkRqH](https://videopress.com/embed/fh6CkRqH)
 
-[https://videopress.com/embed/uqyL0Qw1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uqyL0Qw1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uqyL0Qw1](https://videopress.com/embed/uqyL0Qw1)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/The_Kansas_City_Star_2003_09_18_48.jpg?w=758&amp;ssl=1)
 
@@ -127,13 +127,13 @@ Bruce and the band take the Working on a Dream Tour to Sunrise, Florida, where t
 
 **2009:** [Then She Kissed Me.](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/)
 
-[https://www.youtube.com/embed/BmbK6etT7tU?feature=oembed](https://www.youtube.com/embed/BmbK6etT7tU?feature=oembed)
+[https://www.youtube.com/embed/BmbK6etT7tU](https://www.youtube.com/embed/BmbK6etT7tU)
 
-[https://www.youtube.com/embed/6TH-ixHYHIQ?feature=oembed](https://www.youtube.com/embed/6TH-ixHYHIQ?feature=oembed)
+[https://www.youtube.com/embed/6TH-ixHYHIQ](https://www.youtube.com/embed/6TH-ixHYHIQ)
 
-[https://www.youtube.com/embed/POywHOPNy3s?feature=oembed](https://www.youtube.com/embed/POywHOPNy3s?feature=oembed)
+[https://www.youtube.com/embed/POywHOPNy3s](https://www.youtube.com/embed/POywHOPNy3s)
 
-[https://www.youtube.com/embed/o1lghR1wvvY?feature=oembed](https://www.youtube.com/embed/o1lghR1wvvY?feature=oembed)
+[https://www.youtube.com/embed/o1lghR1wvvY](https://www.youtube.com/embed/o1lghR1wvvY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-09-13a-300x221.jpg?resize=758%2C558)
 
@@ -143,12 +143,12 @@ Bruce interviews Jann Wenner on stage at the 92nd Street YMCA concert hall in Ne
 
 **2022:** *Like a Rolling Stone*
 
-[https://www.youtube.com/embed/iiYxFR-huF0?feature=oembed](https://www.youtube.com/embed/iiYxFR-huF0?feature=oembed)
+[https://www.youtube.com/embed/iiYxFR-huF0](https://www.youtube.com/embed/iiYxFR-huF0)
 
 More than a year after originally scheduled, Bruce and the E Street Band bring World Tour '24 to Oriole Park in Baltimore, where "" opens the show for the first time ever.
 
 **2024:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://www.youtube.com/embed/lVKL4QvF20s?feature=oembed](https://www.youtube.com/embed/lVKL4QvF20s?feature=oembed)
+[https://www.youtube.com/embed/lVKL4QvF20s](https://www.youtube.com/embed/lVKL4QvF20s)
 
-[https://www.youtube.com/embed/r1zdZbJnkf8?feature=oembed](https://www.youtube.com/embed/r1zdZbJnkf8?feature=oembed)
+[https://www.youtube.com/embed/r1zdZbJnkf8](https://www.youtube.com/embed/r1zdZbJnkf8)

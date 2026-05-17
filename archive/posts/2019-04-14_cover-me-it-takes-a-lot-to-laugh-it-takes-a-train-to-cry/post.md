@@ -3,11 +3,11 @@ Firing up the waaaaaayback machine today and travelling to Newark State College 
 
 It's a great recording for its age, and you can even hear Steve introduce the song, and Bruce and Garry banter after it.
 
-[https://videopress.com/embed/tLZCEiNE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tLZCEiNE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/tLZCEiNE](https://videopress.com/embed/tLZCEiNE)
 
 Bruce's version is decidedly fiercer than Dylan's 1965 original:
 
-[https://www.youtube.com/embed/SN1ACh8lzHg?feature=oembed](https://www.youtube.com/embed/SN1ACh8lzHg?feature=oembed)
+[https://www.youtube.com/embed/SN1ACh8lzHg](https://www.youtube.com/embed/SN1ACh8lzHg)
 
 Performed just twice by the band in May 1971–as far as we know, Bruce hasn't played it publicly since.
 

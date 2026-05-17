@@ -21,7 +21,7 @@ The Bruce Springsteen Band plays two shows at D'Scene in South Amboy, New Jersey
 
 **1971:** [Natural Magic,](http://estreetshuffle.com/index.php/2020/05/19/roll-of-the-dice-natural-magic/)[Goin' Back to Georgia](http://estreetshuffle.com/index.php/2019/03/07/roll-of-the-dice-goin-back-to-georgia/)[Dance Dance Dance](http://estreetshuffle.com/index.php/2018/06/22/roll-of-the-dice-dance-dance-dance/)
 
-[https://www.youtube.com/embed/Ok630L5Z9D8?feature=oembed](https://www.youtube.com/embed/Ok630L5Z9D8?feature=oembed)
+[https://www.youtube.com/embed/Ok630L5Z9D8](https://www.youtube.com/embed/Ok630L5Z9D8)
 
 Before their gig that evening at the Carter Barron Amphitheater in Washington, DC's Rock Creek Park, Bruce stops by a local radio station for an on-air interview.
 
@@ -37,7 +37,7 @@ At the Bayfront Center Arena in St. Petersburg, Bruce opens his Darkness Tour sh
 
 **1978:** [Oh Boy](http://estreetshuffle.com/index.php/2018/05/17/cover-me-oh-boy/)[Around and Around](http://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)
 
-[https://www.youtube.com/embed/LOhgVbjnd84?feature=oembed](https://www.youtube.com/embed/LOhgVbjnd84?feature=oembed)
+[https://www.youtube.com/embed/LOhgVbjnd84](https://www.youtube.com/embed/LOhgVbjnd84)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1978-07-29.png?resize=758%2C3158&amp;ssl=1)
 
@@ -51,7 +51,7 @@ Southside Johnny guest-stars on "" when Bruce and the E Street Band bring the Ri
 
 **1981:** [I Don't Want to Go Home](http://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)
 
-[https://videopress.com/embed/NOq3rVa8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NOq3rVa8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/NOq3rVa8](https://videopress.com/embed/NOq3rVa8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1981-0729-300x149.jpg?resize=747%2C371)
 
@@ -67,7 +67,7 @@ At Night Seven of the opening fifteen-night stand of the U.S. Reunion Tour in th
 
 **1999:** [The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)[Give the Girl a Kiss](http://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)[Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://videopress.com/embed/DMYBEQCE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DMYBEQCE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/DMYBEQCE](https://videopress.com/embed/DMYBEQCE)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBj_Sk6Ezsy7cxeo2jnkjqY](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBj_Sk6Ezsy7cxeo2jnkjqY)
 

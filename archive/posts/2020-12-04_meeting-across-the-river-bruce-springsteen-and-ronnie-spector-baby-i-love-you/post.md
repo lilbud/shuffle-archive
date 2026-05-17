@@ -3,7 +3,7 @@
 
 [Be My Baby](http://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)
 
-[https://www.youtube.com/embed/kmFkjURkrEE?feature=oembed](https://www.youtube.com/embed/kmFkjURkrEE?feature=oembed)
+[https://www.youtube.com/embed/kmFkjURkrEE](https://www.youtube.com/embed/kmFkjURkrEE)
 
 Ronnie and Bruce go pretty far back as well, and we're lucky enough to have several recordings of her iconic voice paired with the mighty E Street Band.
 
@@ -15,7 +15,7 @@ Bruce was so taken with Ronnie that he insisted that she sing "" with Southside 
 
 This recording of "Baby, I Love You" is from Ronnie's very first on-stage performance with Bruce and the E Street Band, on November 4, 1976 at the Palladium in New York City.
 
-[https://www.youtube.com/embed/jdWqZ3U-e68?feature=oembed](https://www.youtube.com/embed/jdWqZ3U-e68?feature=oembed)
+[https://www.youtube.com/embed/jdWqZ3U-e68](https://www.youtube.com/embed/jdWqZ3U-e68)
 
 November 4, 1976 (New York City, NY)
 May 13, 1977 (Red Bank, NJ)

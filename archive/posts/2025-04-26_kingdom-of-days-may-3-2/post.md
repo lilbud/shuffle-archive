@@ -5,11 +5,11 @@ After impressing John Hammond the day prior, Bruce records fourteen demo tracks 
 
 **1972:** [Mary Queen of Arkansas,](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)[It's Hard to Be a Saint in the City,](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)[Does This Bus Stop at 82nd Street?](http://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)*Tracks*[Two Hearts in True Waltz Time](http://estreetshuffle.com/index.php/2019/09/10/roll-of-the-dice-two-hearts-in-true-waltz-time/)[Street Queen](https://estreetshuffle.com/index.php/2019/06/19/roll-of-the-dice-street-queen/)
 
-[https://www.youtube.com/embed/MvabtjLsDGI?feature=oembed](https://www.youtube.com/embed/MvabtjLsDGI?feature=oembed)
+[https://www.youtube.com/embed/MvabtjLsDGI](https://www.youtube.com/embed/MvabtjLsDGI)
 
-[https://www.youtube.com/embed/93AoZt9rZ7o?feature=oembed](https://www.youtube.com/embed/93AoZt9rZ7o?feature=oembed)
+[https://www.youtube.com/embed/93AoZt9rZ7o](https://www.youtube.com/embed/93AoZt9rZ7o)
 
-[https://www.youtube.com/embed/YeicNZPARZg?feature=oembed](https://www.youtube.com/embed/YeicNZPARZg?feature=oembed)
+[https://www.youtube.com/embed/YeicNZPARZg](https://www.youtube.com/embed/YeicNZPARZg)
 
 [https://videopress.com/embed/54i5lVp4?hd=0&amp;cover=1](https://videopress.com/embed/54i5lVp4?hd=0&amp;cover=1)
 
@@ -21,7 +21,7 @@ The original River Tour stops for a night at the Scandinavium in Gothenburg, Swe
 
 **1981:**[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness* *The River*
 
-[https://videopress.com/embed/UaOmLbOj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UaOmLbOj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/UaOmLbOj](https://videopress.com/embed/UaOmLbOj)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1981-0503-252x300.jpg?resize=758%2C902)
 
@@ -29,19 +29,19 @@ At the Power Station in New York City, Bruce records what will eventually (upon 
 
 **1982:** [Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
-[https://www.youtube.com/embed/EPhWR4d3FJQ?feature=oembed](https://www.youtube.com/embed/EPhWR4d3FJQ?feature=oembed)
+[https://www.youtube.com/embed/EPhWR4d3FJQ](https://www.youtube.com/embed/EPhWR4d3FJQ)
 
 Night Two at the Shoreline Amphitheater in Mountain View, California for the Tunnel of Love Express features the first "" in over ten years, along with the tour debut of "Twist and Shout." Check out the rare soundcheck of "."
 
 **1988:** [Little Latin Lupe Lu](http://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)[I'm So Lonesome I Could Cry](http://estreetshuffle.com/index.php/2018/11/01/cover-me-im-so-lonesome-i-could-cry/)
 
-[https://www.youtube.com/embed/ZC_y56qVXX4?feature=oembed](https://www.youtube.com/embed/ZC_y56qVXX4?feature=oembed)
+[https://www.youtube.com/embed/ZC_y56qVXX4](https://www.youtube.com/embed/ZC_y56qVXX4)
 
-[https://www.youtube.com/embed/-GTLzVm0mZU?feature=oembed](https://www.youtube.com/embed/-GTLzVm0mZU?feature=oembed)
+[https://www.youtube.com/embed/-GTLzVm0mZU](https://www.youtube.com/embed/-GTLzVm0mZU)
 
-[https://www.youtube.com/embed/FrSshFvcedU?feature=oembed](https://www.youtube.com/embed/FrSshFvcedU?feature=oembed)
+[https://www.youtube.com/embed/FrSshFvcedU](https://www.youtube.com/embed/FrSshFvcedU)
 
-[https://www.youtube.com/embed/fKD2MUFfLds?feature=oembed](https://www.youtube.com/embed/fKD2MUFfLds?feature=oembed)
+[https://www.youtube.com/embed/fKD2MUFfLds](https://www.youtube.com/embed/fKD2MUFfLds)
 
 is certified 6x multi-platinum by the Recording Industry Association of America, and Canada gets its first Reunion show (and first-ever "") on the first of two nights at the Air Canada Center in Toronto.
 
@@ -59,9 +59,9 @@ At the second night at the Pantages Theater in Hollywood, fans hear the tour pre
 
 **2005:** [Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/)[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)[All the Way Home](http://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)[The Line.](http://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/)[Waitin' on a Sunny Day](http://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)
 
-[https://videopress.com/embed/4EoHPdBo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4EoHPdBo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4EoHPdBo](https://videopress.com/embed/4EoHPdBo)
 
-[https://videopress.com/embed/xf0AgEfe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xf0AgEfe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xf0AgEfe](https://videopress.com/embed/xf0AgEfe)
 
 Bruce performs at the Clearwater Concert at Madison Square Garden, honoring Pete Seeger's 90th birthday.
 
@@ -69,7 +69,7 @@ Bruce performs at the Clearwater Concert at Madison Square Garden, honoring Pete
 
 [https://www.youtube.com/embed/B4i8ziSHkNA?start=2&amp;feature=oembed](https://www.youtube.com/embed/B4i8ziSHkNA?start=2&amp;feature=oembed)
 
-[https://videopress.com/embed/VDL84VIC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VDL84VIC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VDL84VIC](https://videopress.com/embed/VDL84VIC)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2009-05-03-300x192.jpg?resize=758%2C485)
 
@@ -77,31 +77,31 @@ At the first of three Wrecking Ball shows at Friends Arena in Solna, Sweden, Bru
 
 **2013:** *Born to Run*[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
-[https://videopress.com/embed/SaSEYKdE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SaSEYKdE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/SaSEYKdE](https://videopress.com/embed/SaSEYKdE)
 
-[https://videopress.com/embed/NiJfyusR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NiJfyusR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/NiJfyusR](https://videopress.com/embed/NiJfyusR)
 
-[https://videopress.com/embed/T6ViRv5h?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/T6ViRv5h?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/T6ViRv5h](https://videopress.com/embed/T6ViRv5h)
 
-[https://videopress.com/embed/wQCCstNg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wQCCstNg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wQCCstNg](https://videopress.com/embed/wQCCstNg)
 
-[https://videopress.com/embed/9ilCSqQc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9ilCSqQc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9ilCSqQc](https://videopress.com/embed/9ilCSqQc)
 
 Bruce makes a return visit (his third) to the New Orleans Jazz Festival for an afternoon show. Rickie Lee Jones joins Bruce for seven songs, and John Fogerty for two of his own ("" and "Proud Mary"). Tour debuting tonight: "" and "."
 
 **2014:** [Green River](https://estreetshuffle.com/index.php/2021/10/27/matr-bruce-springsteen-and-john-fogerty-green-river/)[How Can a Poor Man Stand Such Times and Live](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/)[When the Saints Go Marching In](https://estreetshuffle.com/index.php/2021/03/28/cover-me-when-the-saints-go-marching-in/)
 
-[https://www.youtube.com/embed/wiH1MXrcWaA?feature=oembed](https://www.youtube.com/embed/wiH1MXrcWaA?feature=oembed)
+[https://www.youtube.com/embed/wiH1MXrcWaA](https://www.youtube.com/embed/wiH1MXrcWaA)
 
-[https://www.youtube.com/embed/ov5qaju5CtU?feature=oembed](https://www.youtube.com/embed/ov5qaju5CtU?feature=oembed)
+[https://www.youtube.com/embed/ov5qaju5CtU](https://www.youtube.com/embed/ov5qaju5CtU)
 
-[https://www.youtube.com/embed/rDrvxMO1naE?feature=oembed](https://www.youtube.com/embed/rDrvxMO1naE?feature=oembed)
+[https://www.youtube.com/embed/rDrvxMO1naE](https://www.youtube.com/embed/rDrvxMO1naE)
 
 That evening, Bruce opens a tribute show to Dr. John, performing "" as a duet with Dr. John.
 
 [Right Place, Wrong Time](http://estreetshuffle.com/index.php/2019/12/02/matr-dr-john-and-bruce-springsteen-right-place-wrong-time/)
 
-[https://www.youtube.com/embed/fvxJxLwGOMI?feature=oembed](https://www.youtube.com/embed/fvxJxLwGOMI?feature=oembed)
+[https://www.youtube.com/embed/fvxJxLwGOMI](https://www.youtube.com/embed/fvxJxLwGOMI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2014-05-03-209x300.jpg?resize=758%2C1088)
 
@@ -113,4 +113,4 @@ Bruce stops by Windmill Lane Recording Studio in Dublin to contribute vocals for
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/gyUgfrCegOs?feature=oembed](https://www.youtube.com/embed/gyUgfrCegOs?feature=oembed)
+[https://www.youtube.com/embed/gyUgfrCegOs](https://www.youtube.com/embed/gyUgfrCegOs)

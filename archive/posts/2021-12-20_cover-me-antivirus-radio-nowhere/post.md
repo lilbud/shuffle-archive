@@ -9,7 +9,7 @@ Led by Sebastiano Cavallo, they call their project , and the song they chose to 
 
 **Antivirus: Rock Strikes Corona**[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)
 
-[https://www.youtube.com/embed/90YjZJBcqPQ?feature=oembed](https://www.youtube.com/embed/90YjZJBcqPQ?feature=oembed)
+[https://www.youtube.com/embed/90YjZJBcqPQ](https://www.youtube.com/embed/90YjZJBcqPQ)
 
 It's a fantastic cover–all the more impressive for the logistics required for 30+ musicians to collaborate remotely.
 

@@ -5,19 +5,19 @@ Bruce and the E Street Band perform their first of two shows at the War Memorial
 
 **1974:**<br>
 
-[https://www.youtube.com/embed/nLA-tppfDYk?feature=oembed](https://www.youtube.com/embed/nLA-tppfDYk?feature=oembed)
+[https://www.youtube.com/embed/nLA-tppfDYk](https://www.youtube.com/embed/nLA-tppfDYk)
 
 At the Record Plant in New York City, Bruce records "." He won't release it for another 33 years.
 
 **1977:** [The Brokenhearted](http://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)
 
-[https://www.youtube.com/embed/YvilYiGDmoM?feature=oembed](https://www.youtube.com/embed/YvilYiGDmoM?feature=oembed)
+[https://www.youtube.com/embed/YvilYiGDmoM](https://www.youtube.com/embed/YvilYiGDmoM)
 
 Bruce and the boys play a Darkness show at the St. Paul Civic Center Arena.
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/MBwtDBn1vpE?feature=oembed](https://www.youtube.com/embed/MBwtDBn1vpE?feature=oembed)
+[https://www.youtube.com/embed/MBwtDBn1vpE](https://www.youtube.com/embed/MBwtDBn1vpE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1978-11-29-207x300.png?resize=758%2C1098)
 
@@ -27,19 +27,19 @@ Bruce and the E Street Band play their first of two Born in the U.S.A. shows at 
 
 **1984:**[Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)
 
-[https://videopress.com/embed/7IdXR5EB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7IdXR5EB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/7IdXR5EB](https://videopress.com/embed/7IdXR5EB)
 
 Bruce debuts the video for his new single, "," from his box set.
 
 **1986:** [War](http://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)*Live 1975-85*
 
-[https://www.youtube.com/embed/mn91L9goKfQ?feature=oembed](https://www.youtube.com/embed/mn91L9goKfQ?feature=oembed)
+[https://www.youtube.com/embed/mn91L9goKfQ](https://www.youtube.com/embed/mn91L9goKfQ)
 
 In a departure from tour (this or pretty much any other) precedent, Bruce has an opening act at his solo acoustic show at Berkeley Community Theater. John Wesley Harding becomes the first opening act for Bruce in twenty years.
 
 **1995:**<br>
 
-[https://www.youtube.com/embed/lKcWzWPHVj0?feature=oembed](https://www.youtube.com/embed/lKcWzWPHVj0?feature=oembed)
+[https://www.youtube.com/embed/lKcWzWPHVj0](https://www.youtube.com/embed/lKcWzWPHVj0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-29a-277x300.png?resize=758%2C821)
 
@@ -49,7 +49,7 @@ Bruce and the E Street Band wrap up the first leg of their Reunion Tour at the T
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/PaGYbKCMVig?feature=oembed](https://www.youtube.com/embed/PaGYbKCMVig?feature=oembed)
+[https://www.youtube.com/embed/PaGYbKCMVig](https://www.youtube.com/embed/PaGYbKCMVig)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1999-11-29-169x300.png?resize=758%2C1346)
 
@@ -57,7 +57,7 @@ Bruce's promotional book tour continues with an appearance at Joseph-Beth Bookse
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/d5k9aLewujE?feature=oembed](https://www.youtube.com/embed/d5k9aLewujE?feature=oembed)
+[https://www.youtube.com/embed/d5k9aLewujE](https://www.youtube.com/embed/d5k9aLewujE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/2016-11-29.png?resize=758%2C1029&amp;ssl=1)
 

@@ -25,13 +25,13 @@ The original River Tour kicks off at the University of Michigan in Ann Arbor, wi
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/e8rcWIHfxeI?feature=oembed](https://www.youtube.com/embed/e8rcWIHfxeI?feature=oembed)
+[https://www.youtube.com/embed/e8rcWIHfxeI](https://www.youtube.com/embed/e8rcWIHfxeI)
 
-[https://www.youtube.com/embed/kNWO5eHefLU?feature=oembed](https://www.youtube.com/embed/kNWO5eHefLU?feature=oembed)
+[https://www.youtube.com/embed/kNWO5eHefLU](https://www.youtube.com/embed/kNWO5eHefLU)
 
-[https://www.youtube.com/embed/5MRr-MpRaks?feature=oembed](https://www.youtube.com/embed/5MRr-MpRaks?feature=oembed)
+[https://www.youtube.com/embed/5MRr-MpRaks](https://www.youtube.com/embed/5MRr-MpRaks)
 
-[https://www.youtube.com/embed/AfgSfFbO1gI?feature=oembed](https://www.youtube.com/embed/AfgSfFbO1gI?feature=oembed)
+[https://www.youtube.com/embed/AfgSfFbO1gI](https://www.youtube.com/embed/AfgSfFbO1gI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1980-10-03a.jpg?resize=758%2C1723&amp;ssl=1)
 
@@ -41,35 +41,35 @@ Bruce plays "" for the very first time, not solo or with the E Street Band, but 
 
 **1982:** [Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)
 
-[https://videopress.com/embed/qjfJIaLw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qjfJIaLw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/qjfJIaLw](https://videopress.com/embed/qjfJIaLw)
 
-[https://videopress.com/embed/jCaBEqvf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jCaBEqvf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jCaBEqvf](https://videopress.com/embed/jCaBEqvf)
 
-[https://www.youtube.com/embed/vJg4g-kUrbs?feature=oembed](https://www.youtube.com/embed/vJg4g-kUrbs?feature=oembed)
+[https://www.youtube.com/embed/vJg4g-kUrbs](https://www.youtube.com/embed/vJg4g-kUrbs)
 
 A couple of days ahead of the album it comes from, the first single from is released: "."
 
 **1987:** *Tunnel of Love* [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)
 
-[https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed](https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed)
+[https://www.youtube.com/embed/idnJnjV_8rg](https://www.youtube.com/embed/idnJnjV_8rg)
 
 Bruce plays his first and only show ever in Greece when the Human Rights Now! Tour stops at Athens' Olympic Stadium.
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/SXX55npP284?feature=oembed](https://www.youtube.com/embed/SXX55npP284?feature=oembed)
+[https://www.youtube.com/embed/SXX55npP284](https://www.youtube.com/embed/SXX55npP284)
 
 Bruce and his new touring band play their second of two World Tour 1992 nights at Phoenix's America West Arena.
 
 **1992:**<br>
 
-[https://videopress.com/embed/0dyy3mhN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0dyy3mhN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0dyy3mhN](https://videopress.com/embed/0dyy3mhN)
 
 Bruce plays a solo acoustic show at the Northrop Auditorium in Minneapolis.
 
 **1996:**<br>
 
-[https://videopress.com/embed/lhef9P4J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lhef9P4J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/lhef9P4J](https://videopress.com/embed/lhef9P4J)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1996-10-03a-219x300.jpg?resize=758%2C1039)
 
@@ -79,19 +79,19 @@ A stunning penultimate show for the Rising Tour at Shea Stadium from start to fi
 
 **2003:** [Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)
 
-[https://videopress.com/embed/J1syuhbU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/J1syuhbU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/J1syuhbU](https://videopress.com/embed/J1syuhbU)
 
-[https://videopress.com/embed/ngToxKU8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ngToxKU8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ngToxKU8](https://videopress.com/embed/ngToxKU8)
 
-[https://videopress.com/embed/vXF3ixBS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vXF3ixBS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/vXF3ixBS](https://videopress.com/embed/vXF3ixBS)
 
-[https://www.youtube.com/embed/l8eEFuw_SMU?feature=oembed](https://www.youtube.com/embed/l8eEFuw_SMU?feature=oembed)
+[https://www.youtube.com/embed/l8eEFuw_SMU](https://www.youtube.com/embed/l8eEFuw_SMU)
 
 The Vote for Change Tour moves on to the next swing state–Michigan–with a show at Cobo Arena. "" and "" replace "" in the set, and "Travelin' Band" makes its debut in the encores. The Dixie Chicks are in town for their VfC show, too, and they make it over to the Cobo in time to join Bruce and the assembled artists for the final encore. For more highlights from this show, see my .
 
 **2004:** [The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)[Where the Band Was report](http://estreetshuffle.com/index.php/2018/10/03/where-the-band-was-detroit-october-3-2004/)
 
-[https://videopress.com/embed/1wwST4YS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1wwST4YS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1wwST4YS](https://videopress.com/embed/1wwST4YS)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2004-10-03a-118x300.jpg?resize=758%2C1927)
 
@@ -101,7 +101,7 @@ While driving his kids to school, Bruce notices on the radio that his favorite l
 
 **2005:** ["If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
-[https://www.youtube.com/embed/RWCr-vhU6V4?feature=oembed](https://www.youtube.com/embed/RWCr-vhU6V4?feature=oembed)
+[https://www.youtube.com/embed/RWCr-vhU6V4](https://www.youtube.com/embed/RWCr-vhU6V4)
 
 In an unusual move, Bruce re-releases in the same year as its original release, but this time as an , featuring five additional tracks and new videos.
 
@@ -113,23 +113,23 @@ In an unusual move, Bruce re-releases in the same year as its original release, 
 
 **2007:** *Live in Dublin*
 
-[https://www.youtube.com/embed/YEpLBCB7nZo?feature=oembed](https://www.youtube.com/embed/YEpLBCB7nZo?feature=oembed)
+[https://www.youtube.com/embed/YEpLBCB7nZo](https://www.youtube.com/embed/YEpLBCB7nZo)
 
-[https://www.youtube.com/embed/R0qAYq1GVec?feature=oembed](https://www.youtube.com/embed/R0qAYq1GVec?feature=oembed)
+[https://www.youtube.com/embed/R0qAYq1GVec](https://www.youtube.com/embed/R0qAYq1GVec)
 
 Night Three of five at Giants Stadium on the Working on a Dream Tour features the entire album along with the tour premiere of "Last to Die" and a by-request "" Jeremy Chatzky joins the band and Curt Ramm for "," and the set list continues to benefit from the presence of Curt and his trumpet.
 
 **2009:** *Born in the U.S.A.* [Jersey Girl.](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)
 
-[https://www.youtube.com/embed/UwyN4OLL0mk?feature=oembed](https://www.youtube.com/embed/UwyN4OLL0mk?feature=oembed)
+[https://www.youtube.com/embed/UwyN4OLL0mk](https://www.youtube.com/embed/UwyN4OLL0mk)
 
-[https://www.youtube.com/embed/vxzChYa8Mtc?feature=oembed](https://www.youtube.com/embed/vxzChYa8Mtc?feature=oembed)
+[https://www.youtube.com/embed/vxzChYa8Mtc](https://www.youtube.com/embed/vxzChYa8Mtc)
 
 Bruce makes an appearance at Barnes & Noble at The Grove in Los Angeles to promote his new autobiography.
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/odKtPqBfo-U?feature=oembed](https://www.youtube.com/embed/odKtPqBfo-U?feature=oembed)
+[https://www.youtube.com/embed/odKtPqBfo-U](https://www.youtube.com/embed/odKtPqBfo-U)
 
 Bruce makes his official Broadway debut when opens in its first public preview performance at the Walter Kerr Theater in New York City. Bruce dedicates this first show to Tom Petty, who passed away the day before. The show itself is an emotional tour through Bruce's life and work, stunning those present with its power, poignancy, heart and humor–all of which will grow throughout its long run. I'm in the front row for this historic performance–read my account of the evening in my . Also in attendance tonight: Little Steven, Bruce's mom, and Bruce's sister Pam.
 
@@ -147,12 +147,12 @@ Bruce films videos for "Nightshift" and "" at Samson Stages in Brooklyn.
 
 **2022:** [Turn Back the Hands of Time](https://estreetshuffle.com/index.php/2024/07/04/cover-me-turn-back-the-hands-of-time/)
 
-[https://www.youtube.com/embed/GsTKEQzLkmw?feature=oembed](https://www.youtube.com/embed/GsTKEQzLkmw?feature=oembed)
+[https://www.youtube.com/embed/GsTKEQzLkmw](https://www.youtube.com/embed/GsTKEQzLkmw)
 
-[https://www.youtube.com/embed/lTRS-dNAgvA?feature=oembed](https://www.youtube.com/embed/lTRS-dNAgvA?feature=oembed)
+[https://www.youtube.com/embed/lTRS-dNAgvA](https://www.youtube.com/embed/lTRS-dNAgvA)
 
 On social media, Bruce publishes his endorsement of Vice President Kamala Harris in the 2024 U.S. presidential election campaign. Although the endorsement itself was unsurprising, the passion and urgency of Bruce's plea sustains for days through the news cycle.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/7FDFj5SgDYc?feature=oembed](https://www.youtube.com/embed/7FDFj5SgDYc?feature=oembed)
+[https://www.youtube.com/embed/7FDFj5SgDYc](https://www.youtube.com/embed/7FDFj5SgDYc)

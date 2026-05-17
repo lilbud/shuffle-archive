@@ -27,61 +27,61 @@ The Born in the U.S.A. Tour arrives in France for the first of four shows, this 
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/BJEUTFEvCIo?feature=oembed](https://www.youtube.com/embed/BJEUTFEvCIo?feature=oembed)
+[https://www.youtube.com/embed/BJEUTFEvCIo](https://www.youtube.com/embed/BJEUTFEvCIo)
 
-[https://www.youtube.com/embed/dLmHhphgR7Y?feature=oembed](https://www.youtube.com/embed/dLmHhphgR7Y?feature=oembed)
+[https://www.youtube.com/embed/dLmHhphgR7Y](https://www.youtube.com/embed/dLmHhphgR7Y)
 
-[https://www.youtube.com/embed/7cZEnIt0p4o?feature=oembed](https://www.youtube.com/embed/7cZEnIt0p4o?feature=oembed)
+[https://www.youtube.com/embed/7cZEnIt0p4o](https://www.youtube.com/embed/7cZEnIt0p4o)
 
-[https://www.youtube.com/embed/YmLEZZs-_jc?feature=oembed](https://www.youtube.com/embed/YmLEZZs-_jc?feature=oembed)
+[https://www.youtube.com/embed/YmLEZZs-_jc](https://www.youtube.com/embed/YmLEZZs-_jc)
 
-[https://www.youtube.com/embed/ifpSX7tZnzo?feature=oembed](https://www.youtube.com/embed/ifpSX7tZnzo?feature=oembed)
+[https://www.youtube.com/embed/ifpSX7tZnzo](https://www.youtube.com/embed/ifpSX7tZnzo)
 
-[https://www.youtube.com/embed/jJQWaqVPAbc?feature=oembed](https://www.youtube.com/embed/jJQWaqVPAbc?feature=oembed)
+[https://www.youtube.com/embed/jJQWaqVPAbc](https://www.youtube.com/embed/jJQWaqVPAbc)
 
-[https://www.youtube.com/embed/Xn-rfbK_Wwg?feature=oembed](https://www.youtube.com/embed/Xn-rfbK_Wwg?feature=oembed)
+[https://www.youtube.com/embed/Xn-rfbK_Wwg](https://www.youtube.com/embed/Xn-rfbK_Wwg)
 
 Bruce and the reunited E Street Band stop in Stockholm for the first of two shows.
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/HmDVXvxXtkA?feature=oembed](https://www.youtube.com/embed/HmDVXvxXtkA?feature=oembed)
+[https://www.youtube.com/embed/HmDVXvxXtkA](https://www.youtube.com/embed/HmDVXvxXtkA)
 
 Night Six of Ten at Madison Square Garden features a rare "," as the Reunion Tour's last stand continues.
 
 **2000:** [4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
-[https://videopress.com/embed/uLYj1uhJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uLYj1uhJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uLYj1uhJ](https://videopress.com/embed/uLYj1uhJ)
 
-[https://www.youtube.com/embed/YtojCQYXLIQ?feature=oembed](https://www.youtube.com/embed/YtojCQYXLIQ?feature=oembed)
+[https://www.youtube.com/embed/YtojCQYXLIQ](https://www.youtube.com/embed/YtojCQYXLIQ)
 
-[https://www.youtube.com/embed/D3vUmI_08jo?feature=oembed](https://www.youtube.com/embed/D3vUmI_08jo?feature=oembed)
+[https://www.youtube.com/embed/D3vUmI_08jo](https://www.youtube.com/embed/D3vUmI_08jo)
 
 Bruce plays "" for the first time in 24 years at his Devils & Dust show in Gothenburg.
 
 **2005:** [Fade Away](http://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)
 
-[https://videopress.com/embed/9KTxtENW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9KTxtENW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9KTxtENW](https://videopress.com/embed/9KTxtENW)
 
-[https://www.youtube.com/embed/jolZKmU3SbM?feature=oembed](https://www.youtube.com/embed/jolZKmU3SbM?feature=oembed)
+[https://www.youtube.com/embed/jolZKmU3SbM](https://www.youtube.com/embed/jolZKmU3SbM)
 
 Conan O'Brien, Thomas Haden Church, Jimmy Fallon, and the Max Weinberg 7 join the Sessions Band in a rousing rendition of "" on Bruce also performs "."
 
 **2006:** [Pay Me My Money Down](http://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)*Late Night with Conan O'Brien.*[Bring 'em Home](https://estreetshuffle.com/index.php/2021/06/23/rotd-cover-me-bring-em-home/)
 
-[https://www.youtube.com/embed/fSt22GEPQGg?feature=oembed](https://www.youtube.com/embed/fSt22GEPQGg?feature=oembed)
+[https://www.youtube.com/embed/fSt22GEPQGg](https://www.youtube.com/embed/fSt22GEPQGg)
 
-[https://www.youtube.com/embed/wXUiV6SwOBw?feature=oembed](https://www.youtube.com/embed/wXUiV6SwOBw?feature=oembed)
+[https://www.youtube.com/embed/wXUiV6SwOBw](https://www.youtube.com/embed/wXUiV6SwOBw)
 
 Bruce tour premieres "" as an encore during his Magic Tour stop in Antwerp.
 
 **2008:** [I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)
 
-[https://www.youtube.com/embed/RuV3LKuwNw8?feature=oembed](https://www.youtube.com/embed/RuV3LKuwNw8?feature=oembed)
+[https://www.youtube.com/embed/RuV3LKuwNw8](https://www.youtube.com/embed/RuV3LKuwNw8)
 
-[https://www.youtube.com/embed/PE09kSC_gIQ?feature=oembed](https://www.youtube.com/embed/PE09kSC_gIQ?feature=oembed)
+[https://www.youtube.com/embed/PE09kSC_gIQ](https://www.youtube.com/embed/PE09kSC_gIQ)
 
-[https://www.youtube.com/embed/94SjY9SDj6E?feature=oembed](https://www.youtube.com/embed/94SjY9SDj6E?feature=oembed)
+[https://www.youtube.com/embed/94SjY9SDj6E](https://www.youtube.com/embed/94SjY9SDj6E)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

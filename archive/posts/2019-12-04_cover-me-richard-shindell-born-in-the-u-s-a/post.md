@@ -15,4 +15,4 @@ Is it as powerful as the blues arrangement that Bruce featured in his acoustic s
 
 Take a listen:
 
-[https://www.youtube.com/embed/j9cn68LjKR4?feature=oembed](https://www.youtube.com/embed/j9cn68LjKR4?feature=oembed)
+[https://www.youtube.com/embed/j9cn68LjKR4](https://www.youtube.com/embed/j9cn68LjKR4)

@@ -27,7 +27,7 @@ Bruce plays the first rock concert at Cornell University ever to have reserved s
 
 **1978:** [She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
 
-[https://www.youtube.com/embed/vbJagljGCSw?feature=oembed](https://www.youtube.com/embed/vbJagljGCSw?feature=oembed)
+[https://www.youtube.com/embed/vbJagljGCSw](https://www.youtube.com/embed/vbJagljGCSw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1978-11-07-298x300.png?resize=758%2C763)
 
@@ -43,15 +43,15 @@ Bruce premieres a new arrangement of "" to open his Seeger Sessions show in Antw
 
 **2006:** [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
 
-[https://www.youtube.com/embed/7VTKGHf6OqM?feature=oembed](https://www.youtube.com/embed/7VTKGHf6OqM?feature=oembed)
+[https://www.youtube.com/embed/7VTKGHf6OqM](https://www.youtube.com/embed/7VTKGHf6OqM)
 
-[https://www.youtube.com/embed/g6BjFSg3s2M?feature=oembed](https://www.youtube.com/embed/g6BjFSg3s2M?feature=oembed)
+[https://www.youtube.com/embed/g6BjFSg3s2M](https://www.youtube.com/embed/g6BjFSg3s2M)
 
 At Town Hall in New York City, Bruce supports Stand Up for Heroes, a benefit show for the Bob Woodruff Family Fund, sponsored by the New York Comedy Festival. Bruce plays three acoustic songs and auctions his motorcycle to support the foundation.
 
 **2007:**<br>
 
-[https://www.youtube.com/embed/QFA1QSoiF6E?feature=oembed](https://www.youtube.com/embed/QFA1QSoiF6E?feature=oembed)
+[https://www.youtube.com/embed/QFA1QSoiF6E](https://www.youtube.com/embed/QFA1QSoiF6E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2007-11-07-300x183.png?resize=758%2C463)
 
@@ -59,21 +59,21 @@ Bruce and the E Street Band play the first of two very special full-album shows 
 
 **2009:** *The Wild, The Innocent & The E Street Shuffle*, [Wild Billy's Circus Story](http://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)[(Your Love Keeps Lifting Me) Higher and Higher](http://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)
 
-[https://www.youtube.com/embed/3ajmKLeorXQ?feature=oembed](https://www.youtube.com/embed/3ajmKLeorXQ?feature=oembed)
+[https://www.youtube.com/embed/3ajmKLeorXQ](https://www.youtube.com/embed/3ajmKLeorXQ)
 
-[https://www.youtube.com/embed/K5zrogkpIgM?feature=oembed](https://www.youtube.com/embed/K5zrogkpIgM?feature=oembed)
+[https://www.youtube.com/embed/K5zrogkpIgM](https://www.youtube.com/embed/K5zrogkpIgM)
 
 [https://www.youtube.com/embed/videoseries?list=PL325295D87B2216EC](https://www.youtube.com/embed/videoseries?list=PL325295D87B2216EC)
 
-[https://www.youtube.com/embed/73iCt0VBVpw?feature=oembed](https://www.youtube.com/embed/73iCt0VBVpw?feature=oembed)
+[https://www.youtube.com/embed/73iCt0VBVpw](https://www.youtube.com/embed/73iCt0VBVpw)
 
-[https://www.youtube.com/embed/25vh4ZwloHY?feature=oembed](https://www.youtube.com/embed/25vh4ZwloHY?feature=oembed)
+[https://www.youtube.com/embed/25vh4ZwloHY](https://www.youtube.com/embed/25vh4ZwloHY)
 
 On Election Eve, Bruce supports U.S. presidential candidate Hillary Clinton, performing three acoustic songs at a rally at Independence Hall in Philadelphia.
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/Jsf5w6w1QSs?feature=oembed](https://www.youtube.com/embed/Jsf5w6w1QSs?feature=oembed)
+[https://www.youtube.com/embed/Jsf5w6w1QSs](https://www.youtube.com/embed/Jsf5w6w1QSs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2016-11-07-300x276.png?resize=758%2C697)
 
@@ -91,10 +91,10 @@ Bruce appears in the introduction video at Jon Landau's induction into the Rock 
 
 **2020:**<br>
 
-[https://videopress.com/embed/0OS8Z512?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0OS8Z512?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0OS8Z512](https://videopress.com/embed/0OS8Z512)
 
 Bruce makes his customary appearance at Stand Up For Heroes at David Geffen Hall in New York City. His four-song set features the public debut of "."
 
 **2022:** [House of a Thousand Guitars](https://estreetshuffle.com/index.php/2021/04/23/roll-of-the-dice-house-of-a-thousand-guitars/)
 
-[https://www.youtube.com/embed/dTGMH1Z2Ctc?feature=oembed](https://www.youtube.com/embed/dTGMH1Z2Ctc?feature=oembed)
+[https://www.youtube.com/embed/dTGMH1Z2Ctc](https://www.youtube.com/embed/dTGMH1Z2Ctc)

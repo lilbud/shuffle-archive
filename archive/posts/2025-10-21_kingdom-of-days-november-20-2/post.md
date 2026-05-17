@@ -17,7 +17,7 @@ Bruce and the E Street Band bring the Darkness Tour to the University of Illinoi
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/yhJqumucMCY?feature=oembed](https://www.youtube.com/embed/yhJqumucMCY?feature=oembed)
+[https://www.youtube.com/embed/yhJqumucMCY](https://www.youtube.com/embed/yhJqumucMCY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Daily_Illini_Tue__Nov_28__1978_.jpg?resize=758%2C705&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Daily_Illini_Thu__Nov_30__1978_.jpg?resize=758%2C542&amp;ssl=1)
 
@@ -25,9 +25,9 @@ Bruce makes his first appearance at the Rosemont Horizon, where the crowd sings 
 
 **1980:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)
 
-[https://videopress.com/embed/orWUOCsG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/orWUOCsG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/orWUOCsG](https://videopress.com/embed/orWUOCsG)
 
-[https://videopress.com/embed/PAwgHoD0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PAwgHoD0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PAwgHoD0](https://videopress.com/embed/PAwgHoD0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/46735508144_21f270c05a_o-300x286.jpg?resize=758%2C722)
 
@@ -35,13 +35,13 @@ Bruce joins Bobby Bandiera on stage at The Stone Pony in Asbury Park for three s
 
 **1987:** [Little Latin Lupe Lu](http://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)[Stand by Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)
 
-[https://www.youtube.com/embed/G1TI_0yZCzA?feature=oembed](https://www.youtube.com/embed/G1TI_0yZCzA?feature=oembed)
+[https://www.youtube.com/embed/G1TI_0yZCzA](https://www.youtube.com/embed/G1TI_0yZCzA)
 
 Bruce makes a special Thanksgiving appearance on to debut a new song.
 
 **1993:** *Saturday Night Live*
 
-[https://www.youtube.com/embed/1mrbeyWzqxA?feature=oembed](https://www.youtube.com/embed/1mrbeyWzqxA?feature=oembed)
+[https://www.youtube.com/embed/1mrbeyWzqxA](https://www.youtube.com/embed/1mrbeyWzqxA)
 
 (Okay, so maybe it's Adam Sandler.)
 
@@ -57,7 +57,7 @@ Bruce sits down for a remarkable 50-minute television interview with Charlie Ros
 
 [https://charlierose.com/video/player/16872](https://charlierose.com/video/player/16872)
 
-[https://www.youtube.com/embed/fiuQ2tdD4p0?feature=oembed](https://www.youtube.com/embed/fiuQ2tdD4p0?feature=oembed)
+[https://www.youtube.com/embed/fiuQ2tdD4p0](https://www.youtube.com/embed/fiuQ2tdD4p0)
 
 In town a day early for their show in Orlando, Bruce and the band have dinner at the Hard Rock cafe after Steve gets in a round of golf.
 
@@ -81,13 +81,13 @@ Bruce and the E Street Band play their penultimate Working on a Dream show at 1s
 
 **2009:** *Born to Run*[Green Onions](http://estreetshuffle.com/index.php/2019/05/17/cover-me-green-onions/)
 
-[https://www.youtube.com/embed/5WatovRfcHA?feature=oembed](https://www.youtube.com/embed/5WatovRfcHA?feature=oembed)
+[https://www.youtube.com/embed/5WatovRfcHA](https://www.youtube.com/embed/5WatovRfcHA)
 
-[https://www.youtube.com/embed/hPHYCqE26os?feature=oembed](https://www.youtube.com/embed/hPHYCqE26os?feature=oembed)
+[https://www.youtube.com/embed/hPHYCqE26os](https://www.youtube.com/embed/hPHYCqE26os)
 
-[https://www.youtube.com/embed/YVaEFMkT2iw?feature=oembed](https://www.youtube.com/embed/YVaEFMkT2iw?feature=oembed)
+[https://www.youtube.com/embed/YVaEFMkT2iw](https://www.youtube.com/embed/YVaEFMkT2iw)
 
-[https://www.youtube.com/embed/8aXZDKb5fHw?feature=oembed](https://www.youtube.com/embed/8aXZDKb5fHw?feature=oembed)
+[https://www.youtube.com/embed/8aXZDKb5fHw](https://www.youtube.com/embed/8aXZDKb5fHw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2009-11-20a-300x133.png?resize=758%2C336)
 

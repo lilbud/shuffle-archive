@@ -5,7 +5,7 @@ Despite Bruce's admiration for Little Richard and his catalog, only two of Littl
 
 Which one's missing in action? That would be "Rip It Up," which topped the R&B chart for two weeks in 1956.
 
-[https://www.youtube.com/embed/pc_F3PaYgl0?feature=oembed](https://www.youtube.com/embed/pc_F3PaYgl0?feature=oembed)
+[https://www.youtube.com/embed/pc_F3PaYgl0](https://www.youtube.com/embed/pc_F3PaYgl0)
 
 "Rip It Up" hasn't gone completely unacknowledged by Bruce, however: he actually played it twice, on back-to-back nights during the summer of 1982.
 
@@ -15,7 +15,7 @@ The next night, Bruce made one of his open secret "surprise" appearances at The 
 
 Unfortunately, the Sunday night performance wasn't captured on tape, but we do have Saturday night's world debut. Here's that performance–Sonny Kenn, The Wild Ideas, and Bruce Springsteen delivering a rocking cover of Little Richard's "Rip It Up."
 
-[https://videopress.com/embed/X3VFWcJg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/X3VFWcJg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/X3VFWcJg](https://videopress.com/embed/X3VFWcJg)
 
 July 31, 1982 (Red Bank, NJ)
 August 1, 1982 (Asbury Park, NJ)

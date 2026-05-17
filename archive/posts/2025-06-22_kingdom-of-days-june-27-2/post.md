@@ -11,13 +11,13 @@ It's a big day in the studio for Bruce: he records "," "," "," "," "Visitation a
 
 **1972:** [For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)[Does This Bus Stop at 82nd Street](http://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)[Lady and the Doctor](https://estreetshuffle.com/index.php/2020/09/08/roll-of-the-dice-lady-and-the-doctor/)[Arabian Nights](https://estreetshuffle.com/index.php/2021/03/23/roll-of-the-dice-arabian-nights/)
 
-[https://www.youtube.com/embed/rdP3y4k2KKU?feature=oembed](https://www.youtube.com/embed/rdP3y4k2KKU?feature=oembed)
+[https://www.youtube.com/embed/rdP3y4k2KKU](https://www.youtube.com/embed/rdP3y4k2KKU)
 
-[https://www.youtube.com/embed/lCGtLWd_E9A?feature=oembed](https://www.youtube.com/embed/lCGtLWd_E9A?feature=oembed)
+[https://www.youtube.com/embed/lCGtLWd_E9A](https://www.youtube.com/embed/lCGtLWd_E9A)
 
-[https://www.youtube.com/embed/XK32rCoebpg?feature=oembed](https://www.youtube.com/embed/XK32rCoebpg?feature=oembed)
+[https://www.youtube.com/embed/XK32rCoebpg](https://www.youtube.com/embed/XK32rCoebpg)
 
-[https://www.youtube.com/embed/c3b07ZZxdEs?feature=oembed](https://www.youtube.com/embed/c3b07ZZxdEs?feature=oembed)
+[https://www.youtube.com/embed/c3b07ZZxdEs](https://www.youtube.com/embed/c3b07ZZxdEs)
 
 A scheduled E Street Band gig in Memphis is cancelled.
 
@@ -41,13 +41,13 @@ Bruce performs "" with Clarence and the Red Bank Rockers at Big Man's West, and 
 
 **1982:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-[https://www.youtube.com/embed/I0YWV3aIaqw?feature=oembed](https://www.youtube.com/embed/I0YWV3aIaqw?feature=oembed)
+[https://www.youtube.com/embed/I0YWV3aIaqw](https://www.youtube.com/embed/I0YWV3aIaqw)
 
 Bruce records "" at The Hit Factory in New York City.
 
 **1983:** [None But the Brave](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)
 
-[https://www.youtube.com/embed/j6Z2l9iBMkQ?feature=oembed](https://www.youtube.com/embed/j6Z2l9iBMkQ?feature=oembed)
+[https://www.youtube.com/embed/j6Z2l9iBMkQ](https://www.youtube.com/embed/j6Z2l9iBMkQ)
 
 Bruce gets on stage at the West Hollywood House of Blues and performs six songs with Sacred Hearts, Danny Federici's post-E Street band.
 
@@ -59,31 +59,31 @@ Bruce and the E Street Band wrap up the European leg of their Reunion Tour at Va
 
 **1999:**<br>
 
-[https://videopress.com/embed/do8EXp88?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/do8EXp88?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/do8EXp88](https://videopress.com/embed/do8EXp88)
 
 The Reunion Tour has the finish line in sight now–this is Night Eight of ten at the last stand at Madison Square Garden. This show is available for purchase as part of Bruce's official archive series–get it .
 
 **2000:** [here](https://live.brucespringsteen.net/live-music/0,26182/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-27-2000-Madison-Square-Garden-New-York-NY.html)
 
-[https://www.youtube.com/embed/nkyTHbsOamE?feature=oembed](https://www.youtube.com/embed/nkyTHbsOamE?feature=oembed)
+[https://www.youtube.com/embed/nkyTHbsOamE](https://www.youtube.com/embed/nkyTHbsOamE)
 
-[https://www.youtube.com/embed/5QPfYn3s6TQ?feature=oembed](https://www.youtube.com/embed/5QPfYn3s6TQ?feature=oembed)
+[https://www.youtube.com/embed/5QPfYn3s6TQ](https://www.youtube.com/embed/5QPfYn3s6TQ)
 
-[https://www.youtube.com/embed/rWH38b_L-Hk?feature=oembed](https://www.youtube.com/embed/rWH38b_L-Hk?feature=oembed)
+[https://www.youtube.com/embed/rWH38b_L-Hk](https://www.youtube.com/embed/rWH38b_L-Hk)
 
 Bruce tour premieres "," "," and "" at his solo acoustic show at Hamburg's Color Line Arena. As he often does on this tour, Bruce stops to meet fans and sign autographs before the show.
 
 **2005:** [Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)[Spare Parts](http://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)
 
-[https://www.youtube.com/embed/AuPqw2dxKAA?feature=oembed](https://www.youtube.com/embed/AuPqw2dxKAA?feature=oembed)
+[https://www.youtube.com/embed/AuPqw2dxKAA](https://www.youtube.com/embed/AuPqw2dxKAA)
 
-[https://www.youtube.com/embed/wWr9o5m0eX8?feature=oembed](https://www.youtube.com/embed/wWr9o5m0eX8?feature=oembed)
+[https://www.youtube.com/embed/wWr9o5m0eX8](https://www.youtube.com/embed/wWr9o5m0eX8)
 
 Elliott Murphy and his son guest star when the Magic Tour stops at Parc des Princes in Paris. The setlist features a rare outing of "Janey, Don't You Lose Heart."
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/ksaYU_81_GA?feature=oembed](https://www.youtube.com/embed/ksaYU_81_GA?feature=oembed)
+[https://www.youtube.com/embed/ksaYU_81_GA](https://www.youtube.com/embed/ksaYU_81_GA)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC34LwIuTRB_CmGfMR9JXvF](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC34LwIuTRB_CmGfMR9JXvF)
 
@@ -91,17 +91,17 @@ Bruce headlines the Glastonbury Festival in England, but first he joins The Gasl
 
 **2009:** [The '59 Sound](http://estreetshuffle.com/index.php/2018/01/27/meeting-across-the-river-gaslight-anthem-and-bruce-springsteen-the-59-sound/)
 
-[https://www.youtube.com/embed/djdRSffcI9E?feature=oembed](https://www.youtube.com/embed/djdRSffcI9E?feature=oembed)
+[https://www.youtube.com/embed/djdRSffcI9E](https://www.youtube.com/embed/djdRSffcI9E)
 
 Bruce opens his own set with his first and only performance of "" in tribute to Joe Strummer. Brian Fallon returns Bruce's favor from earlier in the day by guest-starring on "."
 
 [Coma Girl,](http://estreetshuffle.com/index.php/2019/03/13/cover-me-coma-girl/)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)
 
-[https://www.youtube.com/embed/MtvZnL19wps?feature=oembed](https://www.youtube.com/embed/MtvZnL19wps?feature=oembed)
+[https://www.youtube.com/embed/MtvZnL19wps](https://www.youtube.com/embed/MtvZnL19wps)
 
 [https://www.youtube.com/embed/dLZ3uGd3gTo?list=PLICA5nlm9kbLgpvIe6K4a8o6JJIfyCsqQ](https://www.youtube.com/embed/dLZ3uGd3gTo?list=PLICA5nlm9kbLgpvIe6K4a8o6JJIfyCsqQ)
 
-[https://www.youtube.com/embed/Cc1fKQcRALk?feature=oembed](https://www.youtube.com/embed/Cc1fKQcRALk?feature=oembed)
+[https://www.youtube.com/embed/Cc1fKQcRALk](https://www.youtube.com/embed/Cc1fKQcRALk)
 
 [https://www.youtube.com/embed/uavOZjhM3bs?list=PLICA5nlm9kbLgpvIe6K4a8o6JJIfyCsqQ](https://www.youtube.com/embed/uavOZjhM3bs?list=PLICA5nlm9kbLgpvIe6K4a8o6JJIfyCsqQ)
 
@@ -111,22 +111,22 @@ Night Two (of three) at Gothenburg's Ullevi opens with the tour premiere of "" a
 
 **2016:** [Mary's Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)[Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)[here](https://live.brucespringsteen.net/live-music/0,14119/Bruce-Springsteen-mp3-flac-download-6-27-2016-Ullevi-Stadium-Goteborg-SE.html)
 
-[https://www.youtube.com/embed/TsiCrw33PPc?feature=oembed](https://www.youtube.com/embed/TsiCrw33PPc?feature=oembed)
+[https://www.youtube.com/embed/TsiCrw33PPc](https://www.youtube.com/embed/TsiCrw33PPc)
 
-[https://www.youtube.com/embed/V6j8cp9H0EA?feature=oembed](https://www.youtube.com/embed/V6j8cp9H0EA?feature=oembed)
+[https://www.youtube.com/embed/V6j8cp9H0EA](https://www.youtube.com/embed/V6j8cp9H0EA)
 
-[https://www.youtube.com/embed/EQgvT0qNYWg?feature=oembed](https://www.youtube.com/embed/EQgvT0qNYWg?feature=oembed)
+[https://www.youtube.com/embed/EQgvT0qNYWg](https://www.youtube.com/embed/EQgvT0qNYWg)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-[https://videopress.com/embed/XBcyMolZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XBcyMolZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/XBcyMolZ](https://videopress.com/embed/XBcyMolZ)
 
 Bruce and the E Street Band tour debut "" when World Tour '24 comes to Nijmegen in The Netherlands. Stream or buy this show .
 
 **2024:** [Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[here](https://www.nugs.net/live-download-of-bruce-springsteen-goffertpark-nijmegen-netherlands-06-27-2024-mp3-flac-or-online-music-streaming/35854.html)
 
-[https://www.youtube.com/embed/wjeY0XTsydY?feature=oembed](https://www.youtube.com/embed/wjeY0XTsydY?feature=oembed)
+[https://www.youtube.com/embed/wjeY0XTsydY](https://www.youtube.com/embed/wjeY0XTsydY)
 
-[https://www.youtube.com/embed/TnKzlzWvz6w?feature=oembed](https://www.youtube.com/embed/TnKzlzWvz6w?feature=oembed)
+[https://www.youtube.com/embed/TnKzlzWvz6w](https://www.youtube.com/embed/TnKzlzWvz6w)

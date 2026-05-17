@@ -11,7 +11,7 @@ Bruce plays his first-ever show in Minnesota at Minneapolis' Guthrie Theater.
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/OzLQs4dVJXk?feature=oembed](https://www.youtube.com/embed/OzLQs4dVJXk?feature=oembed)
+[https://www.youtube.com/embed/OzLQs4dVJXk](https://www.youtube.com/embed/OzLQs4dVJXk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1975-09-21-165x300.jpg?resize=758%2C1378)
 
@@ -29,35 +29,35 @@ Bruce headlines the first of two famous "No Nukes" concerts at Madison Square Ga
 
 **1979:** [The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)[Stay](http://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)[here](http://live.brucespringsteen.net/live-music/0,20918/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-21-1979-Madison-Square-Garden-New-York-NY.html)*The Legendary 1979 No Nukes Concerts*
 
-[https://www.youtube.com/embed/r0dj1CPfwL8?feature=oembed](https://www.youtube.com/embed/r0dj1CPfwL8?feature=oembed)
+[https://www.youtube.com/embed/r0dj1CPfwL8](https://www.youtube.com/embed/r0dj1CPfwL8)
 
-[https://www.youtube.com/embed/IbV8A6Ruqa0?feature=oembed](https://www.youtube.com/embed/IbV8A6Ruqa0?feature=oembed)
+[https://www.youtube.com/embed/IbV8A6Ruqa0](https://www.youtube.com/embed/IbV8A6Ruqa0)
 
-[https://www.youtube.com/embed/7DpvSXc02qg?feature=oembed](https://www.youtube.com/embed/7DpvSXc02qg?feature=oembed)
+[https://www.youtube.com/embed/7DpvSXc02qg](https://www.youtube.com/embed/7DpvSXc02qg)
 
-[https://www.youtube.com/embed/i1UohYHXvGo?feature=oembed](https://www.youtube.com/embed/i1UohYHXvGo?feature=oembed)
+[https://www.youtube.com/embed/i1UohYHXvGo](https://www.youtube.com/embed/i1UohYHXvGo)
 
-[https://www.youtube.com/embed/43iBNfSRiuU?feature=oembed](https://www.youtube.com/embed/43iBNfSRiuU?feature=oembed)
+[https://www.youtube.com/embed/43iBNfSRiuU](https://www.youtube.com/embed/43iBNfSRiuU)
 
-[https://www.youtube.com/embed/Ga_3OHE1n10?feature=oembed](https://www.youtube.com/embed/Ga_3OHE1n10?feature=oembed)
+[https://www.youtube.com/embed/Ga_3OHE1n10](https://www.youtube.com/embed/Ga_3OHE1n10)
 
-[https://www.youtube.com/embed/x71tjC-xJL4?feature=oembed](https://www.youtube.com/embed/x71tjC-xJL4?feature=oembed)
+[https://www.youtube.com/embed/x71tjC-xJL4](https://www.youtube.com/embed/x71tjC-xJL4)
 
-[https://www.youtube.com/embed/mQgG1zUtbw0?feature=oembed](https://www.youtube.com/embed/mQgG1zUtbw0?feature=oembed)
+[https://www.youtube.com/embed/mQgG1zUtbw0](https://www.youtube.com/embed/mQgG1zUtbw0)
 
-[https://www.youtube.com/embed/BbFm2uxNrUc?feature=oembed](https://www.youtube.com/embed/BbFm2uxNrUc?feature=oembed)
+[https://www.youtube.com/embed/BbFm2uxNrUc](https://www.youtube.com/embed/BbFm2uxNrUc)
 
 Bruce makes a guest appearance with Dave Edmunds at the Peppermint Lounge in New York City.
 
 **1982:**<br>
 
-[https://www.youtube.com/embed/4d4CzXI7yss?feature=oembed](https://www.youtube.com/embed/4d4CzXI7yss?feature=oembed)
+[https://www.youtube.com/embed/4d4CzXI7yss](https://www.youtube.com/embed/4d4CzXI7yss)
 
 Bruce and the band play their first of two Born in the U.S.A. shows at Pittsburgh's Civic Arena, where Bruce throws a little shade on President Reagan's endorsement of his music from a few days prior. Earlier in the day, becomes the first-ever compact disc to be pressed in the United States.
 
 **1984:** *Born in the U.S.A.*
 
-[https://videopress.com/embed/4C0NYp0F?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4C0NYp0F?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4C0NYp0F](https://videopress.com/embed/4C0NYp0F)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1984-09-21c.jpg?resize=758%2C1292&amp;ssl=1)
 
@@ -69,11 +69,11 @@ The Human Rights Now! Tour hits the American west coast with a show at the Los A
 
 **1988:** [Chimes of Freedom](http://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)
 
-[https://videopress.com/embed/nfk1Ytnj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nfk1Ytnj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/nfk1Ytnj](https://videopress.com/embed/nfk1Ytnj)
 
-[https://www.youtube.com/embed/Si9TJW4WQu0?feature=oembed](https://www.youtube.com/embed/Si9TJW4WQu0?feature=oembed)
+[https://www.youtube.com/embed/Si9TJW4WQu0](https://www.youtube.com/embed/Si9TJW4WQu0)
 
-[https://www.youtube.com/embed/K-3l-YEOBs0?feature=oembed](https://www.youtube.com/embed/K-3l-YEOBs0?feature=oembed)
+[https://www.youtube.com/embed/K-3l-YEOBs0](https://www.youtube.com/embed/K-3l-YEOBs0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-21a-199x300.jpg?resize=758%2C1143)
 
@@ -89,7 +89,7 @@ The world is still reeling from the effects of the 9/11 terror attacks on the U.
 
 **2001:**<br>
 
-[https://www.youtube.com/embed/UpUv6ptY8xw?feature=oembed](https://www.youtube.com/embed/UpUv6ptY8xw?feature=oembed)
+[https://www.youtube.com/embed/UpUv6ptY8xw](https://www.youtube.com/embed/UpUv6ptY8xw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2001-09-21a-251x300.jpg?resize=758%2C906)
 
@@ -99,7 +99,7 @@ Two more "missing years" songs makes their tour (and E Street Band) debuts in th
 
 **2003:** [Local Hero](http://estreetshuffle.com/index.php/2019/01/17/roll-of-the-dice-local-hero/)[My Beautiful Reward](https://estreetshuffle.com/index.php/2023/02/19/roll-of-the-dice-my-beautiful-reward/)[Heat Wave](http://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)
 
-[https://www.youtube.com/embed/PDHsvzZGpPk?feature=oembed](https://www.youtube.com/embed/PDHsvzZGpPk?feature=oembed)
+[https://www.youtube.com/embed/PDHsvzZGpPk](https://www.youtube.com/embed/PDHsvzZGpPk)
 
 [https://videopress.com/embed/ODmDrQbM?hd=0&amp;cover=1](https://videopress.com/embed/ODmDrQbM?hd=0&amp;cover=1)
 
@@ -123,7 +123,7 @@ The Working on a Dream Tour stops at Wells Fargo Arena in Des Moines, where Bruc
 
 **2009:** [The Wanderer](http://estreetshuffle.com/index.php/2019/05/08/cover-me-the-wanderer/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
-[https://www.youtube.com/embed/kg2AOVXpqU4?feature=oembed](https://www.youtube.com/embed/kg2AOVXpqU4?feature=oembed)
+[https://www.youtube.com/embed/kg2AOVXpqU4](https://www.youtube.com/embed/kg2AOVXpqU4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-09-21a-175x300.jpg?resize=758%2C1299)
 
@@ -133,23 +133,23 @@ Bruce and the E Street Band play their second of three Wrecking Ball shows at Me
 
 **2012:** [Living on the Edge of the World](http://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/)[Mary's Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)[Talk to Me](http://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)[This Depression](http://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)[This Little Girl](http://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)
 
-[https://www.youtube.com/embed/fwmwfjZdrKA?feature=oembed](https://www.youtube.com/embed/fwmwfjZdrKA?feature=oembed)
+[https://www.youtube.com/embed/fwmwfjZdrKA](https://www.youtube.com/embed/fwmwfjZdrKA)
 
-[https://www.youtube.com/embed/_7bZVfCwmJ8?feature=oembed](https://www.youtube.com/embed/_7bZVfCwmJ8?feature=oembed)
+[https://www.youtube.com/embed/_7bZVfCwmJ8](https://www.youtube.com/embed/_7bZVfCwmJ8)
 
-[https://www.youtube.com/embed/zA5lkIvT5So?feature=oembed](https://www.youtube.com/embed/zA5lkIvT5So?feature=oembed)
+[https://www.youtube.com/embed/zA5lkIvT5So](https://www.youtube.com/embed/zA5lkIvT5So)
 
 The Wrecking Ball Tour finally comes to a close at Rock in Rio, Bruce's first appearance in Brazil in 25 years. Bruce opens the show with the second and last performance (to date) of "" and plays from start to finish. The last song of the Wrecking Ball Tour: an acoustic "This Hard Land."
 
 **2013:** [Sociedade Alternativa](https://estreetshuffle.com/index.php/2021/10/07/cover-me-sociedade-alternativa/)*Born in the U.S.A.*
 
-[https://www.youtube.com/embed/SBbUK_RNeQM?feature=oembed](https://www.youtube.com/embed/SBbUK_RNeQM?feature=oembed)
+[https://www.youtube.com/embed/SBbUK_RNeQM](https://www.youtube.com/embed/SBbUK_RNeQM)
 
 Bruce makes a surprise guest appearance at the Laid Back Festival in Holmdel, New Jersey, joining both Little Steven and Jackson Browne in their respective sets. For more highlights from this show, see my .
 
 **2017:** [Where the Band Was report](http://estreetshuffle.com/index.php/2018/09/21/where-the-band-was-holmdel-september-21-2016/)
 
-[https://www.youtube.com/embed/KtM3otto1QA?feature=oembed](https://www.youtube.com/embed/KtM3otto1QA?feature=oembed)
+[https://www.youtube.com/embed/KtM3otto1QA](https://www.youtube.com/embed/KtM3otto1QA)
 
 Already postponed once six months prior, Bruce pushes his show in Columbus another seven months into the future due to his peptic ulcer disease.
 

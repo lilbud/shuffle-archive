@@ -7,7 +7,7 @@ Bruce plays the second of two nights at the Upstage in Asbury Park as one of hea
 
 **1973**[Bishop Danced](https://estreetshuffle.com/index.php/2021/05/18/roll-of-the-dice-bishop-danced/)[Song for Orphans](http://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)[Wild Billy's Circus Story](http://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)
 
-[https://www.youtube.com/embed/moA0vnjdQeQ?feature=oembed](https://www.youtube.com/embed/moA0vnjdQeQ?feature=oembed)
+[https://www.youtube.com/embed/moA0vnjdQeQ](https://www.youtube.com/embed/moA0vnjdQeQ)
 
 Bruce plays two more shows that night at Paul's Mall.
 
@@ -23,7 +23,7 @@ The E Street Band (including Steve Van Zandt) reunites in the studio for the fir
 
 **1995:***Greatest Hits**Blood Brothers.*
 
-[https://www.youtube.com/embed/Y4vM3ev1CmE?feature=oembed](https://www.youtube.com/embed/Y4vM3ev1CmE?feature=oembed)
+[https://www.youtube.com/embed/Y4vM3ev1CmE](https://www.youtube.com/embed/Y4vM3ev1CmE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_1995_01_15_Page_7.jpg?resize=758%2C585&amp;ssl=1)
 
@@ -35,7 +35,7 @@ resumes after the holiday break. Patti makes her return to the show after being 
 
 **2018:** *Springsteen on Broadway*
 
-[https://videopress.com/embed/tKQhFvX2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tKQhFvX2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/tKQhFvX2](https://videopress.com/embed/tKQhFvX2)
 
 Bruce convenes rehearsals for the E Street Band's upcoming world tour at The Vogel in Red Bank, NJ. First-hand reports from obsessive fans (including this blogger) lurking outside the theater confirm the first known performance of "," which unfortunately will not be played on the tour. (Photo credit: Robyn Sherer)
 

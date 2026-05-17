@@ -11,7 +11,7 @@ Bruce and the E Street Band play a show at the Painters Mill Music Fair in Owing
 
 **1975:**<br>
 
-[https://videopress.com/embed/2aVBRLsq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2aVBRLsq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2aVBRLsq](https://videopress.com/embed/2aVBRLsq)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1975-03-07-e1583021787396-69x300.jpg?resize=758%2C3296)
 
@@ -25,21 +25,21 @@ Bruce joins Carole King on stage at the Beacon Theater in New York City in a sur
 
 **1985:** [We Are the World](https://estreetshuffle.com/index.php/2022/01/30/matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/)
 
-[https://www.youtube.com/embed/9AjkUyX0rVw?feature=oembed](https://www.youtube.com/embed/9AjkUyX0rVw?feature=oembed)
+[https://www.youtube.com/embed/9AjkUyX0rVw](https://www.youtube.com/embed/9AjkUyX0rVw)
 
 Bruce and the band play their first show on the Atlantic City Boardwalk, opening with (of course) "," closing with a scene-appropriate "" and featuring a rare cover of the Beatles' "" and the tour premiere of "" Listen to the soundcheck and highlights below.
 
 **2003:** [Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)[Roll of the Dice](http://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)[Tell Me Why](https://estreetshuffle.com/index.php/2020/08/01/cover-me-tell-me-why/)[Jersey Girl.](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)
 
-[https://videopress.com/embed/mqMlGDGF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mqMlGDGF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/mqMlGDGF](https://videopress.com/embed/mqMlGDGF)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD8_2eoVoylARUWz6UwmNxg](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD8_2eoVoylARUWz6UwmNxg)
 
-[https://www.youtube.com/embed/brfiqlOnlfU?feature=oembed](https://www.youtube.com/embed/brfiqlOnlfU?feature=oembed)
+[https://www.youtube.com/embed/brfiqlOnlfU](https://www.youtube.com/embed/brfiqlOnlfU)
 
-[https://www.youtube.com/embed/eEaAdoRbYMM?feature=oembed](https://www.youtube.com/embed/eEaAdoRbYMM?feature=oembed)
+[https://www.youtube.com/embed/eEaAdoRbYMM](https://www.youtube.com/embed/eEaAdoRbYMM)
 
-[https://www.youtube.com/embed/onZ96Qd8JFA?feature=oembed](https://www.youtube.com/embed/onZ96Qd8JFA?feature=oembed)
+[https://www.youtube.com/embed/onZ96Qd8JFA](https://www.youtube.com/embed/onZ96Qd8JFA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2003-03-07a-300x283.jpg?resize=758%2C715)
 
@@ -55,9 +55,9 @@ At a listening party preview for at B.B. King's Blues Club in New York City, Bru
 
 **2008:** [Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)
 
-[https://www.youtube.com/embed/ZL5Uc-ezduQ?feature=oembed](https://www.youtube.com/embed/ZL5Uc-ezduQ?feature=oembed)
+[https://www.youtube.com/embed/ZL5Uc-ezduQ](https://www.youtube.com/embed/ZL5Uc-ezduQ)
 
-[https://www.youtube.com/embed/5SbwIHloP0Q?feature=oembed](https://www.youtube.com/embed/5SbwIHloP0Q?feature=oembed)
+[https://www.youtube.com/embed/5SbwIHloP0Q](https://www.youtube.com/embed/5SbwIHloP0Q)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Buffalo_News_Sat__Mar_8__2008_.jpg?resize=758%2C577&amp;ssl=1)
 
@@ -71,11 +71,11 @@ Bruce and the E Street Band return to the scene of the crime, harkening back to 
 
 **2023:** [Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)
 
-[https://www.youtube.com/embed/68gAA8kl1M4?feature=oembed](https://www.youtube.com/embed/68gAA8kl1M4?feature=oembed)
+[https://www.youtube.com/embed/68gAA8kl1M4](https://www.youtube.com/embed/68gAA8kl1M4)
 
-[https://www.youtube.com/embed/iaA0V72x0Vs?feature=oembed](https://www.youtube.com/embed/iaA0V72x0Vs?feature=oembed)
+[https://www.youtube.com/embed/iaA0V72x0Vs](https://www.youtube.com/embed/iaA0V72x0Vs)
 
-[https://www.youtube.com/embed/Qnf7Vgfox_s?feature=oembed](https://www.youtube.com/embed/Qnf7Vgfox_s?feature=oembed)
+[https://www.youtube.com/embed/Qnf7Vgfox_s](https://www.youtube.com/embed/Qnf7Vgfox_s)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Chicago_Tribune_Thu__Mar_9__2023_-2-scaled.jpg?resize=758%2C1274&amp;ssl=1)
 

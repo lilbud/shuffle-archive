@@ -3,7 +3,7 @@ By now, we shouldn't be surprised at the range of covers Bruce Springsteen is pr
 
 Still, "Hey, Good Lookin'," Hank Williams' #1 country hit from 1951, seems like one of the least likely contenders. (It's certainly tough to imagine a fan bringing a sign for it.)
 
-[https://www.youtube.com/embed/bjCoKslQOEs?feature=oembed](https://www.youtube.com/embed/bjCoKslQOEs?feature=oembed)
+[https://www.youtube.com/embed/bjCoKslQOEs](https://www.youtube.com/embed/bjCoKslQOEs)
 
 Bruce did play it live, though–one time only–and it wasn't even on the Seeger Sessions Tour where one might expect it.
 
@@ -15,7 +15,7 @@ I wrote about that show last month when I shared Bruce's soundchecked cover of a
 
 It's more than a bit loose and messy, but that's part of the charm. Take a listen to Bruce, Patti, Garry, Nils, Soozie, Lisa Lowell, and Southside Johnny on the harp having a ball and falling all over themselves:
 
-[https://www.youtube.com/embed/4Nbuk-j3VLw?feature=oembed](https://www.youtube.com/embed/4Nbuk-j3VLw?feature=oembed)
+[https://www.youtube.com/embed/4Nbuk-j3VLw](https://www.youtube.com/embed/4Nbuk-j3VLw)
 
 December 18, 2000 (Asbury Park, NJ)
 December 18, 2000 (Asbury Park, NJ)

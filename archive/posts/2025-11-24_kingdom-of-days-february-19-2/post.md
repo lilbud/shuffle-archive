@@ -17,11 +17,11 @@ Bruce brings the Lawsuit Tour to St. Paul, where a fan films parts of the perfor
 
 **1977:**<br>
 
-[https://www.youtube.com/embed/LHZEgWPJJEQ?feature=oembed](https://www.youtube.com/embed/LHZEgWPJJEQ?feature=oembed)
+[https://www.youtube.com/embed/LHZEgWPJJEQ](https://www.youtube.com/embed/LHZEgWPJJEQ)
 
-[https://www.youtube.com/embed/_AY4vmjjaDY?feature=oembed](https://www.youtube.com/embed/_AY4vmjjaDY?feature=oembed)
+[https://www.youtube.com/embed/_AY4vmjjaDY](https://www.youtube.com/embed/_AY4vmjjaDY)
 
-[https://www.youtube.com/embed/JjW0TpZ5VAY?feature=oembed](https://www.youtube.com/embed/JjW0TpZ5VAY?feature=oembed)
+[https://www.youtube.com/embed/JjW0TpZ5VAY](https://www.youtube.com/embed/JjW0TpZ5VAY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1977-02-19.png?resize=758%2C574&amp;ssl=1)
 
@@ -29,7 +29,7 @@ Also on this date in 1977: Manfred Mann's Earth Band gifts Bruce with his only n
 
 [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
 
-[https://www.youtube.com/embed/33ptulhhQPg?feature=oembed](https://www.youtube.com/embed/33ptulhhQPg?feature=oembed)
+[https://www.youtube.com/embed/33ptulhhQPg](https://www.youtube.com/embed/33ptulhhQPg)
 
 Nils Lofgren spends the weekend with Bruce at his house in Rumson. Not long after, Bruce will invite Nils to join the E Street Band.
 
@@ -39,13 +39,13 @@ Bruce plays a solo acoustic show in Somerville, Massachusetts, as a benefit for 
 
 **2003:** *Doubletake**Magazine*[The Wall](https://estreetshuffle.com/index.php/2024/09/04/roll-of-the-dice-the-wall/)[Souls of the Departed](http://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)
 
-[https://www.youtube.com/embed/pdOOc0oQhzU?feature=oembed](https://www.youtube.com/embed/pdOOc0oQhzU?feature=oembed)
+[https://www.youtube.com/embed/pdOOc0oQhzU](https://www.youtube.com/embed/pdOOc0oQhzU)
 
-[https://www.youtube.com/embed/YhaUfTHTI_Q?feature=oembed](https://www.youtube.com/embed/YhaUfTHTI_Q?feature=oembed)
+[https://www.youtube.com/embed/YhaUfTHTI_Q](https://www.youtube.com/embed/YhaUfTHTI_Q)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBCrjiKsyd4slvlkrubeOiL](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBCrjiKsyd4slvlkrubeOiL)
 
-[https://www.youtube.com/embed/5xAno406gPk?feature=oembed](https://www.youtube.com/embed/5xAno406gPk?feature=oembed)
+[https://www.youtube.com/embed/5xAno406gPk](https://www.youtube.com/embed/5xAno406gPk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2003-02-19.png?resize=758%2C644&amp;ssl=1)
 
@@ -53,12 +53,12 @@ Bruce and the E Street Band play the Allphones Arena in Sydney, Australia, where
 
 **2014:** [Friday on My Mind](http://estreetshuffle.com/index.php/2019/06/07/cover-me-friday-on-my-mind/)[Don't Change](https://estreetshuffle.com/index.php/2021/03/26/cover-me-dont-change/)[Racing in the Street,](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)
 
-[https://www.youtube.com/embed/iMMpSiG57Zo?feature=oembed](https://www.youtube.com/embed/iMMpSiG57Zo?feature=oembed)
+[https://www.youtube.com/embed/iMMpSiG57Zo](https://www.youtube.com/embed/iMMpSiG57Zo)
 
-[https://www.youtube.com/embed/fAqcpc4e6hU?feature=oembed](https://www.youtube.com/embed/fAqcpc4e6hU?feature=oembed)
+[https://www.youtube.com/embed/fAqcpc4e6hU](https://www.youtube.com/embed/fAqcpc4e6hU)
 
-[https://www.youtube.com/embed/wFIkABkwlLY?feature=oembed](https://www.youtube.com/embed/wFIkABkwlLY?feature=oembed)
+[https://www.youtube.com/embed/wFIkABkwlLY](https://www.youtube.com/embed/wFIkABkwlLY)
 
-[https://www.youtube.com/embed/DrPwxNEbMLQ?feature=oembed](https://www.youtube.com/embed/DrPwxNEbMLQ?feature=oembed)
+[https://www.youtube.com/embed/DrPwxNEbMLQ](https://www.youtube.com/embed/DrPwxNEbMLQ)
 
-[https://www.youtube.com/embed/1fHcQUKT6Ow?feature=oembed](https://www.youtube.com/embed/1fHcQUKT6Ow?feature=oembed)
+[https://www.youtube.com/embed/1fHcQUKT6Ow](https://www.youtube.com/embed/1fHcQUKT6Ow)

@@ -5,29 +5,29 @@ Bruce headlines two shows at the Bottom Line in New York City. By this time, rec
 
 **1974:** *Born to Run*
 
-[https://www.youtube.com/embed/ICJr6lSGS3c?feature=oembed](https://www.youtube.com/embed/ICJr6lSGS3c?feature=oembed)
+[https://www.youtube.com/embed/ICJr6lSGS3c](https://www.youtube.com/embed/ICJr6lSGS3c)
 
-[https://www.youtube.com/embed/JJEmPVFAvM8?feature=oembed](https://www.youtube.com/embed/JJEmPVFAvM8?feature=oembed)
+[https://www.youtube.com/embed/JJEmPVFAvM8](https://www.youtube.com/embed/JJEmPVFAvM8)
 
-[https://www.youtube.com/embed/yh2oBFsFfgA?feature=oembed](https://www.youtube.com/embed/yh2oBFsFfgA?feature=oembed)
+[https://www.youtube.com/embed/yh2oBFsFfgA](https://www.youtube.com/embed/yh2oBFsFfgA)
 
 In a stroke of last-minute inspiration, Steven Van Zandt arranges a horn section for "" Randy and Michael Brecker provide the wind-power, completing the song mere weeks before its official release.
 
 **1975:** [Tenth Avenue Freeze-Out.](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-[https://www.youtube.com/embed/LOkQsVJV8ts?feature=oembed](https://www.youtube.com/embed/LOkQsVJV8ts?feature=oembed)
+[https://www.youtube.com/embed/LOkQsVJV8ts](https://www.youtube.com/embed/LOkQsVJV8ts)
 
 Bruce and the E Street Band complete "Mary Lou" at the Power Station in New York City. It will remain in the vault for almost two decades.
 
 **1979:**<br>
 
-[https://www.youtube.com/embed/h1nEWj7QVDY?feature=oembed](https://www.youtube.com/embed/h1nEWj7QVDY?feature=oembed)
+[https://www.youtube.com/embed/h1nEWj7QVDY](https://www.youtube.com/embed/h1nEWj7QVDY)
 
 Bruce and the E Street Band kick off a five-night stand at The Spectrum in Philadelphia.
 
 **1981:**<br>
 
-[https://videopress.com/embed/FHiJ0uH9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/FHiJ0uH9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/FHiJ0uH9](https://videopress.com/embed/FHiJ0uH9)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1981-0713-245x300.jpg?resize=758%2C928)
 
@@ -37,7 +37,7 @@ Bruce and the band play their second of two nights in East Troy, Wisconsin.
 
 **1984:**<br>
 
-[https://videopress.com/embed/gnhXXMxQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gnhXXMxQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/gnhXXMxQ](https://videopress.com/embed/gnhXXMxQ)
 
 [https://www.youtube.com/embed/P3JL1L83yGA?list=PLJTyL9twk3zAPub4sGssMzCSJ3s27LlyR](https://www.youtube.com/embed/P3JL1L83yGA?list=PLJTyL9twk3zAPub4sGssMzCSJ3s27LlyR)
 
@@ -47,15 +47,15 @@ Bruce and his new band wrap up the European leg of World Tour 1992 with a fifth 
 
 **1992:** [Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
-[https://videopress.com/embed/pbxCty6f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pbxCty6f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/pbxCty6f](https://videopress.com/embed/pbxCty6f)
 
 Patti Scialfa releases her first solo album, along with "Lucky Girl," the lead-off single and video. Listen to Patti's promotional radio interview and performance below.
 
 **1993:** *Rumble Doll*,
 
-[https://www.youtube.com/embed/-J5occ_FqcA?feature=oembed](https://www.youtube.com/embed/-J5occ_FqcA?feature=oembed)
+[https://www.youtube.com/embed/-J5occ_FqcA](https://www.youtube.com/embed/-J5occ_FqcA)
 
-[https://www.youtube.com/embed/zDFajspQd38?feature=oembed](https://www.youtube.com/embed/zDFajspQd38?feature=oembed)
+[https://www.youtube.com/embed/zDFajspQd38](https://www.youtube.com/embed/zDFajspQd38)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1993-07-13a-246x300.jpg?resize=758%2C925)
 
@@ -65,7 +65,7 @@ Bruce brings his Devils & Dust acoustic tour back to North America, kicking off 
 
 **2005:** [Reno](http://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)
 
-[https://videopress.com/embed/LRnkEQ4z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/LRnkEQ4z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/LRnkEQ4z](https://videopress.com/embed/LRnkEQ4z)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/2005-07-13.jpg?resize=758%2C1307&amp;ssl=1)
 
@@ -73,29 +73,29 @@ Bruce and the E Street Band headline the TW Classic Festival in Werchter, Belgiu
 
 **2013:** [Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)[Jailhouse Rock.](http://estreetshuffle.com/index.php/2019/10/12/matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/)[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)
 
-[https://www.youtube.com/embed/x7z4dXc4UGc?feature=oembed](https://www.youtube.com/embed/x7z4dXc4UGc?feature=oembed)
+[https://www.youtube.com/embed/x7z4dXc4UGc](https://www.youtube.com/embed/x7z4dXc4UGc)
 
-[https://www.youtube.com/embed/xzo7hR2dMuY?feature=oembed](https://www.youtube.com/embed/xzo7hR2dMuY?feature=oembed)
+[https://www.youtube.com/embed/xzo7hR2dMuY](https://www.youtube.com/embed/xzo7hR2dMuY)
 
-[https://www.youtube.com/embed/E6VWgaic080?feature=oembed](https://www.youtube.com/embed/E6VWgaic080?feature=oembed)
+[https://www.youtube.com/embed/E6VWgaic080](https://www.youtube.com/embed/E6VWgaic080)
 
-[https://www.youtube.com/embed/U48bGKCvWUI?feature=oembed](https://www.youtube.com/embed/U48bGKCvWUI?feature=oembed)
+[https://www.youtube.com/embed/U48bGKCvWUI](https://www.youtube.com/embed/U48bGKCvWUI)
 
-[https://www.youtube.com/embed/DvsNbfX8iik?feature=oembed](https://www.youtube.com/embed/DvsNbfX8iik?feature=oembed)
+[https://www.youtube.com/embed/DvsNbfX8iik](https://www.youtube.com/embed/DvsNbfX8iik)
 
 Bruce surprises and delights Paris fans by opening with "" (only its third-ever performance) and "" before announcing and performing in full, a first-time event in Europe.
 
 **2016:** [Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)[Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)*The River*
 
-[https://www.youtube.com/embed/cZgiQ_v14T8?feature=oembed](https://www.youtube.com/embed/cZgiQ_v14T8?feature=oembed)
+[https://www.youtube.com/embed/cZgiQ_v14T8](https://www.youtube.com/embed/cZgiQ_v14T8)
 
-[https://www.youtube.com/embed/ghUbzEzrKqE?feature=oembed](https://www.youtube.com/embed/ghUbzEzrKqE?feature=oembed)
+[https://www.youtube.com/embed/ghUbzEzrKqE](https://www.youtube.com/embed/ghUbzEzrKqE)
 
 [https://www.youtube.com/embed/S2kWC7zKXmY?start=17&amp;feature=oembed](https://www.youtube.com/embed/S2kWC7zKXmY?start=17&amp;feature=oembed)
 
-[https://www.youtube.com/embed/qGVyOcmEVKk?feature=oembed](https://www.youtube.com/embed/qGVyOcmEVKk?feature=oembed)
+[https://www.youtube.com/embed/qGVyOcmEVKk](https://www.youtube.com/embed/qGVyOcmEVKk)
 
-[https://www.youtube.com/embed/ixjBPeBH-qc?feature=oembed](https://www.youtube.com/embed/ixjBPeBH-qc?feature=oembed)
+[https://www.youtube.com/embed/ixjBPeBH-qc](https://www.youtube.com/embed/ixjBPeBH-qc)
 
 George Theiss, Bruce's Castiles bandmate and co-writer, passes away at the age of 68. Meanwhile, in New York City, continues its theatrical run at the Walter Kerr Theater.
 
@@ -111,6 +111,6 @@ Bruce and the E Street Band play their second of two shows at Parken Stadium in 
 
 **2023:** [here](https://live.brucespringsteen.net/live-music/0,31092/Bruce-Springsteen-mp3-flac-download-7-13-2023-Parken-Copenhagen-DENMARK.html)
 
-[https://www.youtube.com/embed/cpPl4rhcCTg?feature=oembed](https://www.youtube.com/embed/cpPl4rhcCTg?feature=oembed)
+[https://www.youtube.com/embed/cpPl4rhcCTg](https://www.youtube.com/embed/cpPl4rhcCTg)
 
-[https://www.youtube.com/embed/ehpkbBrm6lA?feature=oembed](https://www.youtube.com/embed/ehpkbBrm6lA?feature=oembed)
+[https://www.youtube.com/embed/ehpkbBrm6lA](https://www.youtube.com/embed/ehpkbBrm6lA)

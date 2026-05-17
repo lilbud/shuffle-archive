@@ -5,4 +5,4 @@ There are a lot of covers of "" out there, but this is one by Mat Kearney in 200
 
 Nicely done, Mat.
 
-[https://www.youtube.com/embed/JbZC7qMTO-Y?feature=oembed](https://www.youtube.com/embed/JbZC7qMTO-Y?feature=oembed)
+[https://www.youtube.com/embed/JbZC7qMTO-Y](https://www.youtube.com/embed/JbZC7qMTO-Y)

@@ -5,4 +5,4 @@ And even in his Bad Radio days, Eddie was a Springsteen fan. He recorded this lo
 
 [One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)
 
-[https://www.youtube.com/embed/Ol1Q6aY9Xpw?feature=oembed](https://www.youtube.com/embed/Ol1Q6aY9Xpw?feature=oembed)
+[https://www.youtube.com/embed/Ol1Q6aY9Xpw](https://www.youtube.com/embed/Ol1Q6aY9Xpw)

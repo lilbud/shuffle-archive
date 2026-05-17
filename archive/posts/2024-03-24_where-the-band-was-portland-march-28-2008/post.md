@@ -7,15 +7,15 @@ The show was definitely on the short side (hard to believe that the shows grew f
 
 [Night](http://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)
 
-[https://www.youtube.com/embed/JRS2MgzxPPE?feature=oembed](https://www.youtube.com/embed/JRS2MgzxPPE?feature=oembed)
+[https://www.youtube.com/embed/JRS2MgzxPPE](https://www.youtube.com/embed/JRS2MgzxPPE)
 
-[https://www.youtube.com/embed/xT7LMmSwdxA?feature=oembed](https://www.youtube.com/embed/xT7LMmSwdxA?feature=oembed)
+[https://www.youtube.com/embed/xT7LMmSwdxA](https://www.youtube.com/embed/xT7LMmSwdxA)
 
 The setlist definitely had a retro feel: sign requests for "," and "" combined with half of almost made this a dark, grim s
 
 [For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)[](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness on the Edge of Town*how.
 
-[https://www.youtube.com/embed/l9TWdEzs04g?feature=oembed](https://www.youtube.com/embed/l9TWdEzs04g?feature=oembed)
+[https://www.youtube.com/embed/l9TWdEzs04g](https://www.youtube.com/embed/l9TWdEzs04g)
 
 Almost.
 

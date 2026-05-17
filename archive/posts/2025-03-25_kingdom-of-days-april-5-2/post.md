@@ -17,7 +17,7 @@ The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a sh
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/lGkeKgZblAo?feature=oembed](https://www.youtube.com/embed/lGkeKgZblAo?feature=oembed)
+[https://www.youtube.com/embed/lGkeKgZblAo](https://www.youtube.com/embed/lGkeKgZblAo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0405-183x300.jpg?resize=758%2C1242)
 
@@ -25,13 +25,13 @@ The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a sh
 
 **1978:** [Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)
 
-[https://www.youtube.com/embed/HzIm7Ek6Vv0?feature=oembed](https://www.youtube.com/embed/HzIm7Ek6Vv0?feature=oembed)
+[https://www.youtube.com/embed/HzIm7Ek6Vv0](https://www.youtube.com/embed/HzIm7Ek6Vv0)
 
 Night Two at the Capital Center in Largo, Maryland, along the Tunnel of Love Express Tour.
 
 **1988:**<br>
 
-[https://videopress.com/embed/v5RXcyFL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/v5RXcyFL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/v5RXcyFL](https://videopress.com/embed/v5RXcyFL)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-04-05.jpg?resize=758%2C865&amp;ssl=1)
 
@@ -39,13 +39,13 @@ A busy day for Bruce and the (temporarily) reunited E Street Band: First, they m
 
 **1995:** *The Late Show with David Letterman*, [Secret Garden](http://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)
 
-[https://www.youtube.com/embed/KLtihzJ6gdw?feature=oembed](https://www.youtube.com/embed/KLtihzJ6gdw?feature=oembed)
+[https://www.youtube.com/embed/KLtihzJ6gdw](https://www.youtube.com/embed/KLtihzJ6gdw)
 
 …and then later that night, they play a private gig at Sony Music Studios in New York City. Highlights include the debuts of "," "," and the first full-band "This Hard Land."
 
 [I'm Turning Into Elvis](http://estreetshuffle.com/index.php/2020/03/05/roll-of-the-dice-im-turning-into-elvis/)[Blood Brothers](http://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)
 
-[https://videopress.com/embed/VFJF5tXA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VFJF5tXA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VFJF5tXA](https://videopress.com/embed/VFJF5tXA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1995-04-05.jpg?resize=758%2C1557&amp;ssl=1)
 
@@ -59,7 +59,7 @@ Bruce makes a surprise appearance at a Carnegie Hall benefit show, , joining Cra
 
 **2007:** *Celebrating the Music of Bruce Springsteen: Music for Youth*
 
-[https://www.youtube.com/embed/jtjPO47XIbs?feature=oembed](https://www.youtube.com/embed/jtjPO47XIbs?feature=oembed)
+[https://www.youtube.com/embed/jtjPO47XIbs](https://www.youtube.com/embed/jtjPO47XIbs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2007-04-05-300x196.jpg?resize=758%2C495)
 
@@ -67,7 +67,7 @@ Another radio station contest to pick a song for the set list–this time "" is 
 
 **2008:** [Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)
 
-[https://videopress.com/embed/4ds7LEvR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4ds7LEvR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4ds7LEvR](https://videopress.com/embed/4ds7LEvR)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-scaled.jpg?resize=513%2C2560&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-1-scaled.jpg?resize=758%2C1912&amp;ssl=1)
 
@@ -75,9 +75,9 @@ Bruce continues tinkering with the set list on the third night of the Working on
 
 **2009:** [I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)
 
-[https://www.youtube.com/embed/1yChqkwXgbI?feature=oembed](https://www.youtube.com/embed/1yChqkwXgbI?feature=oembed)
+[https://www.youtube.com/embed/1yChqkwXgbI](https://www.youtube.com/embed/1yChqkwXgbI)
 
-[https://www.youtube.com/embed/T0lCBVUQguk?feature=oembed](https://www.youtube.com/embed/T0lCBVUQguk?feature=oembed)
+[https://www.youtube.com/embed/T0lCBVUQguk](https://www.youtube.com/embed/T0lCBVUQguk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2009-04-05a-300x92.jpg?resize=758%2C232)
 
@@ -87,11 +87,11 @@ At a River Tour stop in Dallas, things get a little out of hand during "."
 
 **2016:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://www.youtube.com/embed/nXqgo0oSJc0?feature=oembed](https://www.youtube.com/embed/nXqgo0oSJc0?feature=oembed)
+[https://www.youtube.com/embed/nXqgo0oSJc0](https://www.youtube.com/embed/nXqgo0oSJc0)
 
-[https://www.youtube.com/embed/XLFr0WAtBSM?feature=oembed](https://www.youtube.com/embed/XLFr0WAtBSM?feature=oembed)
+[https://www.youtube.com/embed/XLFr0WAtBSM](https://www.youtube.com/embed/XLFr0WAtBSM)
 
-[https://www.youtube.com/embed/ynUvaSq_ynM?feature=oembed](https://www.youtube.com/embed/ynUvaSq_ynM?feature=oembed)
+[https://www.youtube.com/embed/ynUvaSq_ynM](https://www.youtube.com/embed/ynUvaSq_ynM)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "" and "" in place of "" and "."
 
@@ -107,8 +107,8 @@ For the fourth show in a row, Bruce introduces a tour debut into his mostly stat
 
 **2023:** [Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)
 
-[https://www.youtube.com/embed/Q_whKRSfRYg?feature=oembed](https://www.youtube.com/embed/Q_whKRSfRYg?feature=oembed)
+[https://www.youtube.com/embed/Q_whKRSfRYg](https://www.youtube.com/embed/Q_whKRSfRYg)
 
-[https://www.youtube.com/embed/N9QzxUWExDc?feature=oembed](https://www.youtube.com/embed/N9QzxUWExDc?feature=oembed)
+[https://www.youtube.com/embed/N9QzxUWExDc](https://www.youtube.com/embed/N9QzxUWExDc)
 
-[https://www.youtube.com/embed/L91LYQt3s_k?feature=oembed](https://www.youtube.com/embed/L91LYQt3s_k?feature=oembed)
+[https://www.youtube.com/embed/L91LYQt3s_k](https://www.youtube.com/embed/L91LYQt3s_k)

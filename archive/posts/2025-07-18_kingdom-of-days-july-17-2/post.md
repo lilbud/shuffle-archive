@@ -15,7 +15,7 @@ Steel Mill headlines at Asbury Park's Sunshine In, with a setlist that features 
 
 **1970:** [Garden State Parkway Blues](http://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)[Sherlock Goes Home](http://estreetshuffle.com/index.php/2018/09/21/roll-of-the-dice-sherlock-goes-holmes/)[KT-88](http://estreetshuffle.com/index.php/2018/03/12/roll-of-the-dice-kt-88/)
 
-[https://www.youtube.com/embed/40fj8jiZGsM?feature=oembed](https://www.youtube.com/embed/40fj8jiZGsM?feature=oembed)
+[https://www.youtube.com/embed/40fj8jiZGsM](https://www.youtube.com/embed/40fj8jiZGsM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1970-07-17-184x300.png?resize=758%2C1236)
 
@@ -33,13 +33,13 @@ Bruce joins Joe Grushecky and the Iron City Houserockers on stage for the first 
 
 **1982:**<br>
 
-[https://videopress.com/embed/vfcrn5r7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vfcrn5r7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/vfcrn5r7](https://videopress.com/embed/vfcrn5r7)
 
 On Night Two at the Rosemont Horizon near Chicago, Bruce tour premieres "" and "Because the Night." Watch news coverage and footage below.
 
 **1984:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-[https://www.youtube.com/embed/kkUCWM9MA5k?feature=oembed](https://www.youtube.com/embed/kkUCWM9MA5k?feature=oembed)
+[https://www.youtube.com/embed/kkUCWM9MA5k](https://www.youtube.com/embed/kkUCWM9MA5k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-07-17-300x123.png?resize=758%2C311)
 
@@ -47,15 +47,15 @@ The Tunnel of Love Tour arrives in Munich, where "" makes its tour premiere.
 
 **1988:** [Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)
 
-[https://videopress.com/embed/Hg1d3CbK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Hg1d3CbK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Hg1d3CbK](https://videopress.com/embed/Hg1d3CbK)
 
-[https://videopress.com/embed/xZriKscC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xZriKscC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xZriKscC](https://videopress.com/embed/xZriKscC)
 
 Night Two (of ten!) at the legendary Giants Stadium stand of the Rising Tour is a standard one, but shake-ups are on their way.
 
 **2003:**<br>
 
-[https://videopress.com/embed/woWaq6U5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/woWaq6U5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/woWaq6U5](https://videopress.com/embed/woWaq6U5)
 
 Bruce, Patti, and Soozie join Joe Grushecky and the Houserockers on stage at The Stone Pony in Asbury Park.
 
@@ -69,15 +69,15 @@ The Magic Tour's Spanish leg continues with a show in Madrid, featuring a rare p
 
 **2008:** [Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)
 
-[https://www.youtube.com/embed/xzVzqJEkbJ4?feature=oembed](https://www.youtube.com/embed/xzVzqJEkbJ4?feature=oembed)
+[https://www.youtube.com/embed/xzVzqJEkbJ4](https://www.youtube.com/embed/xzVzqJEkbJ4)
 
-[https://www.youtube.com/embed/bA7WK-awFnY?feature=oembed](https://www.youtube.com/embed/bA7WK-awFnY?feature=oembed)
+[https://www.youtube.com/embed/bA7WK-awFnY](https://www.youtube.com/embed/bA7WK-awFnY)
 
 Bruce makes a guest appearance at J.T. Bowen and The Sensational Soul Cruisers' tribute to Clarence Clemons at The Wonder Bar in Asbury Park. The setlist highlights: long-awaited returns of "" (the first in 34 years) and "" (the first in 24 years).
 
 **2011:** [Action in the Streets](https://estreetshuffle.com/index.php/2022/06/27/roll-of-the-dice-action-in-the-streets/)[Savin' Up](http://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/)
 
-[https://videopress.com/embed/9neskCQb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9neskCQb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9neskCQb](https://videopress.com/embed/9neskCQb)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2011-07-17-300x221.png?resize=758%2C558)
 
@@ -85,9 +85,9 @@ Bruce makes a guest appearance at J.T. Bowen and The Sensational Soul Cruisers' 
 
 **2012:** [I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)[My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
 
-[https://www.youtube.com/embed/4Ehdf2SbIDI?feature=oembed](https://www.youtube.com/embed/4Ehdf2SbIDI?feature=oembed)
+[https://www.youtube.com/embed/4Ehdf2SbIDI](https://www.youtube.com/embed/4Ehdf2SbIDI)
 
-[https://www.youtube.com/embed/6R68gn0eE2E?feature=oembed](https://www.youtube.com/embed/6R68gn0eE2E?feature=oembed)
+[https://www.youtube.com/embed/6R68gn0eE2E](https://www.youtube.com/embed/6R68gn0eE2E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/07/The_Leader_Post_2012_07_20_15.jpg?resize=758%2C831&amp;ssl=1)
 
@@ -95,7 +95,7 @@ Netflix films a special invitation-only performance of at the Walter Kerr Theate
 
 **2018:** *Springsteen on Broadway* [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
 
-[https://www.youtube.com/embed/M1xDzgob1JI?feature=oembed](https://www.youtube.com/embed/M1xDzgob1JI?feature=oembed)
+[https://www.youtube.com/embed/M1xDzgob1JI](https://www.youtube.com/embed/M1xDzgob1JI)
 
 continues its limited return engagement at the St. James Theater in New York city, In attendance tonight: Danny DeVito and Adam Duritz.
 

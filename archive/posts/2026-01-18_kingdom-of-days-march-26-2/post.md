@@ -11,7 +11,7 @@ At the Fox Theater in Atlanta, Bruce premieres an early version of "Frankie."
 
 **1988:**<br>
 
-[https://videopress.com/embed/2KwzHwiH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2KwzHwiH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2KwzHwiH](https://videopress.com/embed/2KwzHwiH)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-26.png?resize=758%2C1488&amp;ssl=1)
 
@@ -29,15 +29,15 @@ Bruce and the E Street Band play their second of two nights in Brisbane on the R
 
 **2003:**<br>
 
-[https://videopress.com/embed/yyUIuX3l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yyUIuX3l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/yyUIuX3l](https://videopress.com/embed/yyUIuX3l)
 
 Peter Wolf guest-stars for "Raise Your Hand" (a tour premiere) in the encores at this Wrecking Ball show at Boston's TD Garden. The show also features tour premieres of "Thundercrack," "Jackson Cage," and "She's the One."
 
 **2012:**<br>
 
-[https://videopress.com/embed/JECwsM3m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JECwsM3m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/JECwsM3m](https://videopress.com/embed/JECwsM3m)
 
-[https://videopress.com/embed/4qMPO9xF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4qMPO9xF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4qMPO9xF](https://videopress.com/embed/4qMPO9xF)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2012-03-26.png?resize=758%2C364&amp;ssl=1)
 
@@ -47,18 +47,18 @@ Bruce and the E Street Band play their second of three nights at Melbourne's Rod
 
 **2013:**<br>
 
-[https://www.youtube.com/embed/7JztbtJwB0w?feature=oembed](https://www.youtube.com/embed/7JztbtJwB0w?feature=oembed)
+[https://www.youtube.com/embed/7JztbtJwB0w](https://www.youtube.com/embed/7JztbtJwB0w)
 
 In the early days of the COVID-19 pandemic, Bruce phones E Street Radio DJ Jim Rotolo for a nine-minute interview. (It won't be broadcast until the next day, though.)
 
 **2020:**<br>
 
-[https://www.youtube.com/embed/D_RB4j0nS4A?feature=oembed](https://www.youtube.com/embed/D_RB4j0nS4A?feature=oembed)
+[https://www.youtube.com/embed/D_RB4j0nS4A](https://www.youtube.com/embed/D_RB4j0nS4A)
 
 Bruce performs "Because the NIght" and joins the show-closing ensembled on "People Have the Power" at a Carnegie Hall benefit tribute to Patti Smith.
 
 **2025:**<br>
 
-[https://www.youtube.com/embed/-atK7jHEnGQ?feature=oembed](https://www.youtube.com/embed/-atK7jHEnGQ?feature=oembed)
+[https://www.youtube.com/embed/-atK7jHEnGQ](https://www.youtube.com/embed/-atK7jHEnGQ)
 
-[https://www.youtube.com/embed/Q42pyOY7A5M?feature=oembed](https://www.youtube.com/embed/Q42pyOY7A5M?feature=oembed)
+[https://www.youtube.com/embed/Q42pyOY7A5M](https://www.youtube.com/embed/Q42pyOY7A5M)

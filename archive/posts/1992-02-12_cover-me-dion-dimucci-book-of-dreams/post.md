@@ -12,7 +12,7 @@ Dion must have had a particular fondness for *Lucky Town*, because his second Sp
 
 In a 2000 NPR interview, Dion explained why "Book of Dreams" was so special to him:
 
-[https://videopress.com/embed/romJbOOm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/romJbOOm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/romJbOOm](https://videopress.com/embed/romJbOOm)
 
 Let's take a listen to Dion's lovely version of "Book of Dreams." It's both faithful to the album version yet distinctly Dion. I have to imagine Bruce strongly approves.
 

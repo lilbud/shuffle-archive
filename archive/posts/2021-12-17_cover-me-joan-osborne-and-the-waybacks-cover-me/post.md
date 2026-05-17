@@ -13,4 +13,4 @@ But this version redeems it and then some. Brilliantly mashing it up with Edwin 
 
 Take a listen and enjoy–and then do yourself a favor and check out the rest of the album as well. Brilliant stuff.
 
-[https://www.youtube.com/embed/_McOJMwhSAk?feature=oembed](https://www.youtube.com/embed/_McOJMwhSAk?feature=oembed)
+[https://www.youtube.com/embed/_McOJMwhSAk](https://www.youtube.com/embed/_McOJMwhSAk)

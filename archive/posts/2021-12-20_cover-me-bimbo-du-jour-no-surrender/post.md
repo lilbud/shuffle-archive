@@ -15,7 +15,7 @@ But even if I did know the band's full story, I probably couldn't summarize thei
 
 Yep, that pretty much captures it. Take a listen:
 
-[https://www.youtube.com/embed/MshpOY2Vtag?feature=oembed](https://www.youtube.com/embed/MshpOY2Vtag?feature=oembed)
+[https://www.youtube.com/embed/MshpOY2Vtag](https://www.youtube.com/embed/MshpOY2Vtag)
 
 Bimbo du Jour's cover of "No Surrender" might have been under the radar at the time, but it of made the cut for , a 1998 tribute album with some standout covers.
 

@@ -19,7 +19,7 @@ For a brief but glorious run, Big Man's West was a center of gravity for the Jer
 
 **1983:**[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)*Born in the U.S.A.*
 
-[https://videopress.com/embed/75Oa5mv6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/75Oa5mv6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/75Oa5mv6](https://videopress.com/embed/75Oa5mv6)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1983-0108-300x231.jpg?resize=758%2C584)
 
@@ -35,7 +35,7 @@ For a brief but glorious run, Big Man's West was a center of gravity for the Jer
 
 **1985**[Can't Help Falling in Love](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)
 
-[https://videopress.com/embed/YH9F3RWM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YH9F3RWM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/YH9F3RWM](https://videopress.com/embed/YH9F3RWM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Indianapolis_Star_1985_01_11_Page_22.jpg?w=758&amp;ssl=1)
 
@@ -43,9 +43,9 @@ For a brief but glorious run, Big Man's West was a center of gravity for the Jer
 
 **1996**[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)
 
-[https://www.youtube.com/embed/Yt1DXqtpIoM?feature=oembed](https://www.youtube.com/embed/Yt1DXqtpIoM?feature=oembed)
+[https://www.youtube.com/embed/Yt1DXqtpIoM](https://www.youtube.com/embed/Yt1DXqtpIoM)
 
-[https://videopress.com/embed/6tRX2hAF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6tRX2hAF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/6tRX2hAF](https://videopress.com/embed/6tRX2hAF)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Toronto_Star_1996_01_09_60.jpg?resize=758%2C684&amp;ssl=1)
 

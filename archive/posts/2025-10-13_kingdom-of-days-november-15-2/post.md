@@ -17,9 +17,9 @@ Bruce appears on the cover of as part of their cover feature on the MUSE events 
 
 **1979:** *Rolling Stone* [Chevrolet Deluxe](https://estreetshuffle.com/index.php/2018/10/06/roll-of-the-dice-chevrolet-deluxe/)[Living on the Edge of the World](https://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/)
 
-[https://www.youtube.com/embed/mU_SsLCelWY?feature=oembed](https://www.youtube.com/embed/mU_SsLCelWY?feature=oembed)
+[https://www.youtube.com/embed/mU_SsLCelWY](https://www.youtube.com/embed/mU_SsLCelWY)
 
-[https://www.youtube.com/embed/Ggc-GofxFGk?feature=oembed](https://www.youtube.com/embed/Ggc-GofxFGk?feature=oembed)
+[https://www.youtube.com/embed/Ggc-GofxFGk](https://www.youtube.com/embed/Ggc-GofxFGk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1979-11-15-249x300.jpg?resize=758%2C914)
 
@@ -27,7 +27,7 @@ Bruce changes up the setlist on Night Two at The Summit in Houston on the River 
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/8HNUUtpxf0U?feature=oembed](https://www.youtube.com/embed/8HNUUtpxf0U?feature=oembed)
+[https://www.youtube.com/embed/8HNUUtpxf0U](https://www.youtube.com/embed/8HNUUtpxf0U)
 
 \
 
@@ -37,7 +37,7 @@ The Born in the U.S.A. Tour stops at the St. Louis Arena. Check out the news foo
 
 **1984:**<br>
 
-[https://www.youtube.com/embed/VVpgxiv2Uv4?feature=oembed](https://www.youtube.com/embed/VVpgxiv2Uv4?feature=oembed)
+[https://www.youtube.com/embed/VVpgxiv2Uv4](https://www.youtube.com/embed/VVpgxiv2Uv4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-11-15-274x300.png?resize=758%2C830)
 
@@ -51,27 +51,27 @@ Bruce and his new touring band bring World Tour 1992 to the Hartford Civic Cente
 
 **1992:**<br>
 
-[https://videopress.com/embed/hKxSkFQ1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hKxSkFQ1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/hKxSkFQ1](https://videopress.com/embed/hKxSkFQ1)
 
-[https://www.youtube.com/embed/UQ3Yq3Uxc7M?feature=oembed](https://www.youtube.com/embed/UQ3Yq3Uxc7M?feature=oembed)
+[https://www.youtube.com/embed/UQ3Yq3Uxc7M](https://www.youtube.com/embed/UQ3Yq3Uxc7M)
 
-[https://www.youtube.com/embed/wY29BVTmouU?feature=oembed](https://www.youtube.com/embed/wY29BVTmouU?feature=oembed)
+[https://www.youtube.com/embed/wY29BVTmouU](https://www.youtube.com/embed/wY29BVTmouU)
 
-[https://www.youtube.com/embed/4_u9TxBSgT8?feature=oembed](https://www.youtube.com/embed/4_u9TxBSgT8?feature=oembed)
+[https://www.youtube.com/embed/4_u9TxBSgT8](https://www.youtube.com/embed/4_u9TxBSgT8)
 
-[https://www.youtube.com/embed/_K76Ethmel8?feature=oembed](https://www.youtube.com/embed/_K76Ethmel8?feature=oembed)
+[https://www.youtube.com/embed/_K76Ethmel8](https://www.youtube.com/embed/_K76Ethmel8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/1992-11-15.png?resize=758%2C1078&amp;ssl=1)
 
 Meanwhile, for those of us not at the show, The Ben Stiller show gets educational with a lesson on "Counting with Bruce Springsteen."
 
-[https://www.youtube.com/embed/FIJ3grfB3WE?feature=oembed](https://www.youtube.com/embed/FIJ3grfB3WE?feature=oembed)
+[https://www.youtube.com/embed/FIJ3grfB3WE](https://www.youtube.com/embed/FIJ3grfB3WE)
 
 On Night Two in Cleveland on the Reunion Tour, Bruce and the E Street Band debut a new country-ish arrangement of "" and soundcheck a unique "."
 
 **1999:** [No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)
 
-[https://www.youtube.com/embed/rlejOJ7Ve28?feature=oembed](https://www.youtube.com/embed/rlejOJ7Ve28?feature=oembed)
+[https://www.youtube.com/embed/rlejOJ7Ve28](https://www.youtube.com/embed/rlejOJ7Ve28)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-11-15-300x248.png?resize=758%2C627)
 
@@ -91,9 +91,9 @@ The Magic Tour comes to Albany, where Bruce and the E Street Band tour premiere 
 
 **2007:** [4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)[The E Street Shuffle](http://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)
 
-[https://www.youtube.com/embed/Dy6ggRLH6m4?feature=oembed](https://www.youtube.com/embed/Dy6ggRLH6m4?feature=oembed)
+[https://www.youtube.com/embed/Dy6ggRLH6m4](https://www.youtube.com/embed/Dy6ggRLH6m4)
 
-[https://www.youtube.com/embed/teZhmYPASB0?feature=oembed](https://www.youtube.com/embed/teZhmYPASB0?feature=oembed)
+[https://www.youtube.com/embed/teZhmYPASB0](https://www.youtube.com/embed/teZhmYPASB0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-11-15-300x196.png?resize=758%2C496)
 
@@ -101,13 +101,13 @@ Bruce has a laugh at his own expense, greeting his Milwaukee crowd with "Good ev
 
 **2009:** [Cadillac Ranch](http://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Living Proof](http://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)*Born to Run*
 
-[https://www.youtube.com/embed/-gl9xW7CC0o?feature=oembed](https://www.youtube.com/embed/-gl9xW7CC0o?feature=oembed)
+[https://www.youtube.com/embed/-gl9xW7CC0o](https://www.youtube.com/embed/-gl9xW7CC0o)
 
-[https://www.youtube.com/embed/UfwGEDjoxzg?feature=oembed](https://www.youtube.com/embed/UfwGEDjoxzg?feature=oembed)
+[https://www.youtube.com/embed/UfwGEDjoxzg](https://www.youtube.com/embed/UfwGEDjoxzg)
 
-[https://www.youtube.com/embed/FokNKHFJ-hA?feature=oembed](https://www.youtube.com/embed/FokNKHFJ-hA?feature=oembed)
+[https://www.youtube.com/embed/FokNKHFJ-hA](https://www.youtube.com/embed/FokNKHFJ-hA)
 
-[https://www.youtube.com/embed/K9XWvCE-514?feature=oembed](https://www.youtube.com/embed/K9XWvCE-514?feature=oembed)
+[https://www.youtube.com/embed/K9XWvCE-514](https://www.youtube.com/embed/K9XWvCE-514)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zANqpRC0hS9bo2qjyxNKX33](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zANqpRC0hS9bo2qjyxNKX33)
 
@@ -119,13 +119,13 @@ Bruce's Wrecking Ball show in Omaha is the closest we've come to a full-album pe
 
 **2012:** *Nebraska*
 
-[https://www.youtube.com/embed/YNplBWIuTNg?feature=oembed](https://www.youtube.com/embed/YNplBWIuTNg?feature=oembed)
+[https://www.youtube.com/embed/YNplBWIuTNg](https://www.youtube.com/embed/YNplBWIuTNg)
 
-[https://www.youtube.com/embed/wii9N9VxT6w?feature=oembed](https://www.youtube.com/embed/wii9N9VxT6w?feature=oembed)
+[https://www.youtube.com/embed/wii9N9VxT6w](https://www.youtube.com/embed/wii9N9VxT6w)
 
-[https://www.youtube.com/embed/5Qf-qCLhZU8?feature=oembed](https://www.youtube.com/embed/5Qf-qCLhZU8?feature=oembed)
+[https://www.youtube.com/embed/5Qf-qCLhZU8](https://www.youtube.com/embed/5Qf-qCLhZU8)
 
-[https://www.youtube.com/embed/pNUI612fcmc?feature=oembed](https://www.youtube.com/embed/pNUI612fcmc?feature=oembed)
+[https://www.youtube.com/embed/pNUI612fcmc](https://www.youtube.com/embed/pNUI612fcmc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/11/Lincoln_Journal_Star_2012_11_17_F1.jpg?resize=758%2C298&amp;ssl=1)
 
@@ -141,4 +141,4 @@ On the second night of his takeover, Bruce premieres "."
 
 **2022:** *Tonight Show* [Turn Back the Hands of Time](https://estreetshuffle.com/index.php/2024/07/04/cover-me-turn-back-the-hands-of-time/)
 
-[https://videopress.com/embed/wXTPNGBp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wXTPNGBp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wXTPNGBp](https://videopress.com/embed/wXTPNGBp)

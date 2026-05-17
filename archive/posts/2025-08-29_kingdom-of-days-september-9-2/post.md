@@ -21,7 +21,7 @@ The Darkness Tour arrives at the University of Notre Dame, where Bruce plays "" 
 
 **1978:** [Double Shot (of My Baby's Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)[Louie Louie](http://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)
 
-[https://videopress.com/embed/4EmmyA9O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4EmmyA9O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4EmmyA9O](https://videopress.com/embed/4EmmyA9O)
 
 [https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeU-CBriNeY0gCYICDijG95i](https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeU-CBriNeY0gCYICDijG95i)
 
@@ -33,7 +33,7 @@ Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami's Orange 
 
 **1985:**<br>
 
-[https://videopress.com/embed/f3uQhVqy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/f3uQhVqy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/f3uQhVqy](https://videopress.com/embed/f3uQhVqy)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-09-09a-181x300.jpg?resize=758%2C1256)
 
@@ -47,13 +47,13 @@ Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami's Orange 
 
 **1992:** [Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)
 
-[https://www.youtube.com/embed/85cNRQo1m3A?feature=oembed](https://www.youtube.com/embed/85cNRQo1m3A?feature=oembed)
+[https://www.youtube.com/embed/85cNRQo1m3A](https://www.youtube.com/embed/85cNRQo1m3A)
 
 Bruce and the reunited E Street Band play their second of two shows at The Palace of Auburn Hills, opening with a Motown special snippet of "" before launching into "."
 
 **1999:** [Dancing in the Street](https://estreetshuffle.com/index.php/2020/09/12/cover-me-dancing-in-the-street/)[Don't Look Back](http://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)
 
-[https://videopress.com/embed/UijHwg1p?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UijHwg1p?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/UijHwg1p](https://videopress.com/embed/UijHwg1p)
 
 kicks off at New Jersey's Monmouth University, drawing scholars and fans to discuss the life and work of Springsteen. More than 150 papers are presented, and special guests and musical events celebrate the occasion.
 
@@ -67,15 +67,15 @@ Night Two in Philadelphia on the "Autobiography Tour" can't quite measure up to 
 
 **2016:** [](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1973-0105-album.jpg?w=500&ssl=1)*Greetings from Asbury Park, N.J.*[Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[report.](http://estreetshuffle.com/index.php/2018/09/09/where-the-band-was-philadelphia-september-9-2016/)*Where the Band Was*
 
-[https://www.youtube.com/embed/A98iOTcGFGA?feature=oembed](https://www.youtube.com/embed/A98iOTcGFGA?feature=oembed)
+[https://www.youtube.com/embed/A98iOTcGFGA](https://www.youtube.com/embed/A98iOTcGFGA)
 
-[https://www.youtube.com/embed/76_gIYl2woo?feature=oembed](https://www.youtube.com/embed/76_gIYl2woo?feature=oembed)
+[https://www.youtube.com/embed/76_gIYl2woo](https://www.youtube.com/embed/76_gIYl2woo)
 
-[https://www.youtube.com/embed/DQc_HLYh_NI?feature=oembed](https://www.youtube.com/embed/DQc_HLYh_NI?feature=oembed)
+[https://www.youtube.com/embed/DQc_HLYh_NI](https://www.youtube.com/embed/DQc_HLYh_NI)
 
-[https://www.youtube.com/embed/qmqYhkmaCIE?feature=oembed](https://www.youtube.com/embed/qmqYhkmaCIE?feature=oembed)
+[https://www.youtube.com/embed/qmqYhkmaCIE](https://www.youtube.com/embed/qmqYhkmaCIE)
 
-[https://www.youtube.com/embed/YCuYw5OTxgg?feature=oembed](https://www.youtube.com/embed/YCuYw5OTxgg?feature=oembed)
+[https://www.youtube.com/embed/YCuYw5OTxgg](https://www.youtube.com/embed/YCuYw5OTxgg)
 
 Bruce postpones his scheduled show in Baltimore to more than a full year later due to his peptic ulcer disease.
 

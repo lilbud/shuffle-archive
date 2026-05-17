@@ -5,11 +5,11 @@ Vote for Change Night Three was pretty similar to –the wild cards were tame by
 
 [Night Two](http://estreetshuffle.com/index.php/2018/10/02/where-the-band-was-cleveland-october-2-2004/)[The Ties that Bind,](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)
 
-[https://videopress.com/embed/vUaSHbY3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vUaSHbY3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/vUaSHbY3](https://videopress.com/embed/vUaSHbY3)
 
-[https://videopress.com/embed/1wwST4YS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1wwST4YS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1wwST4YS](https://videopress.com/embed/1wwST4YS)
 
-[https://videopress.com/embed/i887Mjrt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/i887Mjrt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/i887Mjrt](https://videopress.com/embed/i887Mjrt)
 
 These were different than "normal" Bruce shows–not just because of the presence of other artists and the abbreviated set length, but also because of the fans that chose to show up: an unabashedly partisan affair, these shows drew out-and-out progressives.
 

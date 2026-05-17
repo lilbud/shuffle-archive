@@ -2,7 +2,7 @@ I usually start these pieces off with a bit of background on the singer and the 
 
 Let's watch her induction speech for Darlene Love at the 2011 Rock and Roll Hall of Fame Induction. (Keep an eye out for an E Street Band cameo!)
 
-[https://videopress.com/embed/TVO0OnCe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/TVO0OnCe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/TVO0OnCe](https://videopress.com/embed/TVO0OnCe)
 
 Dead center in that montage was one of those uncredited Darlene Love performances Midler alluded to in her induction speech: "He's a Rebel," a Number One hit for The Crystals in 1962.
 
@@ -18,7 +18,7 @@ So it was only fitting for Darlene to perform "He's a Rebel" at her Hall of Fame
 
 After Love performed "Zip-a-Dee-Doo-Dah" and "(Today I Met) The Boy I'm Gonna Marry," Bette Midler returned to the stage to join Darlene in a faithful rendition of her greatest and only #1 hit, backed by Paul Shaffer and the CBS Orchestra. Oh, and a guest guitarist from New Jersey.
 
-[https://videopress.com/embed/CDn5snuF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CDn5snuF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/CDn5snuF](https://videopress.com/embed/CDn5snuF)
 
 Bruce's fondness for the girl groups of the 1960s is well-documented, and he's clearly delighted to be on that stage. But if you were observant, you might have spied another E Street associate, too. That's Curtis King (who joined Bruce on the Seeger Sessions, Working on a Dream, Wrecking Ball, and High Hopes Tours) on backing vocals.
 

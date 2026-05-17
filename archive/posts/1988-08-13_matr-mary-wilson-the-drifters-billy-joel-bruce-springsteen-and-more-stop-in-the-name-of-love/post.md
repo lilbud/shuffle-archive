@@ -12,7 +12,7 @@ And what a jam session that was: Mary Wilson of The Supremes was there to be ind
 
 Oh, and Bruce Springsteen on the… tambourine?
 
-[https://videopress.com/embed/SxWA7ZnT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SxWA7ZnT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/SxWA7ZnT](https://videopress.com/embed/SxWA7ZnT)
 
 Yeah, I admit: it's probably a stretch to label this a Springsteen performance, but he did play an instrument, and he even did the hand choreography (albeit at the wrong time). So I'm counting it.
 

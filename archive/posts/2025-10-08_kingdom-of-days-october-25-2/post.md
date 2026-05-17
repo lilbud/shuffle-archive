@@ -27,11 +27,11 @@ Bruce and the E Street Band bring the Lawsuit Tour to Philadelphia, where he pla
 
 **1976:** [A Fine Fine Boy](http://estreetshuffle.com/index.php/2019/01/28/cover-me-a-fine-fine-boy/)
 
-[https://www.youtube.com/embed/IBmULwOxOD4?feature=oembed](https://www.youtube.com/embed/IBmULwOxOD4?feature=oembed)
+[https://www.youtube.com/embed/IBmULwOxOD4](https://www.youtube.com/embed/IBmULwOxOD4)
 
-[https://www.youtube.com/embed/Yj15urYT0gw?feature=oembed](https://www.youtube.com/embed/Yj15urYT0gw?feature=oembed)
+[https://www.youtube.com/embed/Yj15urYT0gw](https://www.youtube.com/embed/Yj15urYT0gw)
 
-[https://www.youtube.com/embed/XHYFhgKzOpw?feature=oembed](https://www.youtube.com/embed/XHYFhgKzOpw?feature=oembed)
+[https://www.youtube.com/embed/XHYFhgKzOpw](https://www.youtube.com/embed/XHYFhgKzOpw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1976-10-25-300x210.png?resize=758%2C530)
 
@@ -41,11 +41,11 @@ The River Tour heads south down the west coast, stopping for a night at Portland
 
 [https://videopress.com/embed/tfj2O84c?hd=0&amp;cover=1](https://videopress.com/embed/tfj2O84c?hd=0&amp;cover=1)
 
-[https://www.youtube.com/embed/rxYcH2Y2Wo8?feature=oembed](https://www.youtube.com/embed/rxYcH2Y2Wo8?feature=oembed)
+[https://www.youtube.com/embed/rxYcH2Y2Wo8](https://www.youtube.com/embed/rxYcH2Y2Wo8)
 
-[https://www.youtube.com/embed/M-W5MEL6EHM?feature=oembed](https://www.youtube.com/embed/M-W5MEL6EHM?feature=oembed)
+[https://www.youtube.com/embed/M-W5MEL6EHM](https://www.youtube.com/embed/M-W5MEL6EHM)
 
-[https://www.youtube.com/embed/D8soOC-cuEk?feature=oembed](https://www.youtube.com/embed/D8soOC-cuEk?feature=oembed)
+[https://www.youtube.com/embed/D8soOC-cuEk](https://www.youtube.com/embed/D8soOC-cuEk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Oregon_Journal_1980_10_27_10.jpg?resize=758%2C471&amp;ssl=1)
 
@@ -57,7 +57,7 @@ Bruce and the E Street Band kick off a seven-night Born in the U.S.A. Tour stand
 
 **1984:**<br>
 
-[https://videopress.com/embed/qBRQ024Q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qBRQ024Q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/qBRQ024Q](https://videopress.com/embed/qBRQ024Q)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-25a-300x157.png?resize=758%2C397)
 
@@ -71,15 +71,15 @@ At his home studio in Los Angeles, Bruce produces Joe Grushecky's first two trac
 
 **1993:** **, [American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)[Chain Smokin'](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/)
 
-[https://www.youtube.com/embed/TTjzF7dHCHI?feature=oembed](https://www.youtube.com/embed/TTjzF7dHCHI?feature=oembed)
+[https://www.youtube.com/embed/TTjzF7dHCHI](https://www.youtube.com/embed/TTjzF7dHCHI)
 
-[https://www.youtube.com/embed/HXEb4Dmbfoo?feature=oembed](https://www.youtube.com/embed/HXEb4Dmbfoo?feature=oembed)
+[https://www.youtube.com/embed/HXEb4Dmbfoo](https://www.youtube.com/embed/HXEb4Dmbfoo)
 
 Danny Federici makes a guest appearance at Bruce's solo acoustic show in Santa Barbara, joining Bruce for "This Hard Land" and ""
 
 **1996:** [There Will Never Be Any Other for Me But You.](http://estreetshuffle.com/index.php/2019/08/23/roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/)
 
-[https://www.youtube.com/embed/YG6dpWqDjLg?feature=oembed](https://www.youtube.com/embed/YG6dpWqDjLg?feature=oembed)
+[https://www.youtube.com/embed/YG6dpWqDjLg](https://www.youtube.com/embed/YG6dpWqDjLg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/10/Ventura_County_Star_Wed__Oct_30__1996_.jpg?w=758&amp;ssl=1)
 
@@ -87,7 +87,7 @@ Bruce and the reunited E Street Band open their three-night stand at the Oakland
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/RlmBmZimZ1E?feature=oembed](https://www.youtube.com/embed/RlmBmZimZ1E?feature=oembed)
+[https://www.youtube.com/embed/RlmBmZimZ1E](https://www.youtube.com/embed/RlmBmZimZ1E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1999-10-25a.png?resize=758%2C1568&amp;ssl=1)
 
@@ -101,17 +101,17 @@ At the final Seeger Sessions show of the Spanish leg in Santander, Bruce tour de
 
 **2006:** [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)
 
-[https://www.youtube.com/embed/AS2ODXkCzfw?feature=oembed](https://www.youtube.com/embed/AS2ODXkCzfw?feature=oembed)
+[https://www.youtube.com/embed/AS2ODXkCzfw](https://www.youtube.com/embed/AS2ODXkCzfw)
 
-[https://www.youtube.com/embed/QREnud4TCO8?feature=oembed](https://www.youtube.com/embed/QREnud4TCO8?feature=oembed)
+[https://www.youtube.com/embed/QREnud4TCO8](https://www.youtube.com/embed/QREnud4TCO8)
 
-[https://www.youtube.com/embed/nDzKrcu-k6M?feature=oembed](https://www.youtube.com/embed/nDzKrcu-k6M?feature=oembed)
+[https://www.youtube.com/embed/nDzKrcu-k6M](https://www.youtube.com/embed/nDzKrcu-k6M)
 
 Bruce and the E Street Band bring the Magic Tour to the Oracle Arena in Oakland for the first of two nights.
 
 **2007:**<br>
 
-[https://www.youtube.com/embed/5uNraGEh8fg?feature=oembed](https://www.youtube.com/embed/5uNraGEh8fg?feature=oembed)
+[https://www.youtube.com/embed/5uNraGEh8fg](https://www.youtube.com/embed/5uNraGEh8fg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2007-10-25.png?resize=758%2C1307&amp;ssl=1)
 
@@ -119,25 +119,25 @@ Bruce performs the entire album, tour premieres "," and plays a rare "" when the
 
 **2009:** *Born to Run*[Roll Over Beethoven](http://estreetshuffle.com/index.php/2019/08/08/cover-me-roll-over-beethoven/)[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)
 
-[https://www.youtube.com/embed/ItC8FsFxaro?feature=oembed](https://www.youtube.com/embed/ItC8FsFxaro?feature=oembed)
+[https://www.youtube.com/embed/ItC8FsFxaro](https://www.youtube.com/embed/ItC8FsFxaro)
 
 Bruce's Wrecking Ball show in Hartford rockets out of the gate with the tour premiere (and fifth performance ever) of "." The fantastic set also includes the tour premiere of "" and rare outings for "" and "."
 
 **2012:** [Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
 
-[https://www.youtube.com/embed/k9sgCmzYeWo?feature=oembed](https://www.youtube.com/embed/k9sgCmzYeWo?feature=oembed)
+[https://www.youtube.com/embed/k9sgCmzYeWo](https://www.youtube.com/embed/k9sgCmzYeWo)
 
-[https://www.youtube.com/embed/fOBvwBFBnN8?feature=oembed](https://www.youtube.com/embed/fOBvwBFBnN8?feature=oembed)
+[https://www.youtube.com/embed/fOBvwBFBnN8](https://www.youtube.com/embed/fOBvwBFBnN8)
 
-[https://www.youtube.com/embed/ecMfxsmEvLg?feature=oembed](https://www.youtube.com/embed/ecMfxsmEvLg?feature=oembed)
+[https://www.youtube.com/embed/ecMfxsmEvLg](https://www.youtube.com/embed/ecMfxsmEvLg)
 
-[https://www.youtube.com/embed/SuQrVDDSkH4?feature=oembed](https://www.youtube.com/embed/SuQrVDDSkH4?feature=oembed)
+[https://www.youtube.com/embed/SuQrVDDSkH4](https://www.youtube.com/embed/SuQrVDDSkH4)
 
-[https://www.youtube.com/embed/OYWnwxL1sMI?feature=oembed](https://www.youtube.com/embed/OYWnwxL1sMI?feature=oembed)
+[https://www.youtube.com/embed/OYWnwxL1sMI](https://www.youtube.com/embed/OYWnwxL1sMI)
 
-[https://www.youtube.com/embed/byxcN899O0c?feature=oembed](https://www.youtube.com/embed/byxcN899O0c?feature=oembed)
+[https://www.youtube.com/embed/byxcN899O0c](https://www.youtube.com/embed/byxcN899O0c)
 
-[https://www.youtube.com/embed/obdQBNM4LH0?feature=oembed](https://www.youtube.com/embed/obdQBNM4LH0?feature=oembed)
+[https://www.youtube.com/embed/obdQBNM4LH0](https://www.youtube.com/embed/obdQBNM4LH0)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDrChgBZDsBEmTqr6tUhuxT](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDrChgBZDsBEmTqr6tUhuxT)
 
@@ -161,9 +161,9 @@ airs the second part of Gayle King's interview with Bruce Springsteen, and is of
 
 **2019:** *CBS This Morning* *Western Stars*
 
-[https://www.youtube.com/embed/YHMOjyfGAVE?feature=oembed](https://www.youtube.com/embed/YHMOjyfGAVE?feature=oembed)
+[https://www.youtube.com/embed/YHMOjyfGAVE](https://www.youtube.com/embed/YHMOjyfGAVE)
 
-[https://www.youtube.com/embed/JSpkzjpoUvc?feature=oembed](https://www.youtube.com/embed/JSpkzjpoUvc?feature=oembed)
+[https://www.youtube.com/embed/JSpkzjpoUvc](https://www.youtube.com/embed/JSpkzjpoUvc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2019-10-25-300x296.png?resize=758%2C748)
 
@@ -171,11 +171,11 @@ Bruce makes a guest appearance on in support of his new book with former Preside
 
 **2021:** *Late Night With Stephen Colbert**The Legendary 1979 No Nukes Concerts*
 
-[https://www.youtube.com/embed/KBGvV3BD4dM?feature=oembed](https://www.youtube.com/embed/KBGvV3BD4dM?feature=oembed)
+[https://www.youtube.com/embed/KBGvV3BD4dM](https://www.youtube.com/embed/KBGvV3BD4dM)
 
-[https://www.youtube.com/embed/-Fh4J5OxazM?feature=oembed](https://www.youtube.com/embed/-Fh4J5OxazM?feature=oembed)
+[https://www.youtube.com/embed/-Fh4J5OxazM](https://www.youtube.com/embed/-Fh4J5OxazM)
 
-[https://www.youtube.com/embed/5-KlomDM7t4?feature=oembed](https://www.youtube.com/embed/5-KlomDM7t4?feature=oembed)
+[https://www.youtube.com/embed/5-KlomDM7t4](https://www.youtube.com/embed/5-KlomDM7t4)
 
 Here's a special performance from as he sings "The River" on The Late Show!
 
@@ -187,7 +187,7 @@ Here's a special performance from as he sings "The River" on The Late Show!
 
 Earlier in the day, NPR airs their interview with Bruce and the president.
 
-[https://www.youtube.com/embed/EjKR8lH8PaQ?feature=oembed](https://www.youtube.com/embed/EjKR8lH8PaQ?feature=oembed)
+[https://www.youtube.com/embed/EjKR8lH8PaQ](https://www.youtube.com/embed/EjKR8lH8PaQ)
 
 [https://www.youtube.com/embed/Ro_5qfNhIM8?start=3&amp;feature=oembed](https://www.youtube.com/embed/Ro_5qfNhIM8?start=3&amp;feature=oembed)
 
@@ -195,4 +195,4 @@ Bruce calls into Jim Rotolo's show on E Street Radio to talk about premiering on
 
 **2024:** *Road Diary*, <https://estreetshuffle.com/wp-content/uploads/2025/10/2024-10-25-Bruce-Max-Thom-on-E-St-Radio.m4a>
 
-[https://www.youtube.com/embed/GEgwAQUQh0s?feature=oembed](https://www.youtube.com/embed/GEgwAQUQh0s?feature=oembed)
+[https://www.youtube.com/embed/GEgwAQUQh0s](https://www.youtube.com/embed/GEgwAQUQh0s)

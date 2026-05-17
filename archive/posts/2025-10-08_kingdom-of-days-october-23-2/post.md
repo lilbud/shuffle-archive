@@ -11,13 +11,13 @@ One year to the day from his appearance there with Steel Mill, Bruce brings The 
 
 **1971:**<br>
 
-[https://www.youtube.com/embed/jGPDXzVkOhQ?feature=oembed](https://www.youtube.com/embed/jGPDXzVkOhQ?feature=oembed)
+[https://www.youtube.com/embed/jGPDXzVkOhQ](https://www.youtube.com/embed/jGPDXzVkOhQ)
 
-[https://www.youtube.com/embed/YnaPNnZNTeQ?feature=oembed](https://www.youtube.com/embed/YnaPNnZNTeQ?feature=oembed)
+[https://www.youtube.com/embed/YnaPNnZNTeQ](https://www.youtube.com/embed/YnaPNnZNTeQ)
 
-[https://www.youtube.com/embed/bL2njn3u0NA?feature=oembed](https://www.youtube.com/embed/bL2njn3u0NA?feature=oembed)
+[https://www.youtube.com/embed/bL2njn3u0NA](https://www.youtube.com/embed/bL2njn3u0NA)
 
-[https://www.youtube.com/embed/I2fVdlgCdgY?feature=oembed](https://www.youtube.com/embed/I2fVdlgCdgY?feature=oembed)
+[https://www.youtube.com/embed/I2fVdlgCdgY](https://www.youtube.com/embed/I2fVdlgCdgY)
 
 Bruce meets Bob Dylan for the first time at a birthday party for Mike Porco, owner of Gerde's Folk City in New York City. Bruce and Dylan join others present to sing "Happy Birthday" to Porco, making this (sort of) their first performance together. The event is filmed, but no Bruce footage will be released. Reportedly, Dylan invites Bruce to join his Rolling Thunder Revue as a solo performer, but Bruce declines.
 
@@ -33,7 +33,7 @@ Bruce performs "" acoustically at the funeral of John Hammond at St. Peter's Chu
 
 **1987:** [Forever Young](http://estreetshuffle.com/index.php/2019/09/01/matr-bob-dylan-and-bruce-springsteen-forever-young/)
 
-[https://www.youtube.com/embed/llyGdYw3KmQ?feature=oembed](https://www.youtube.com/embed/llyGdYw3KmQ?feature=oembed)
+[https://www.youtube.com/embed/llyGdYw3KmQ](https://www.youtube.com/embed/llyGdYw3KmQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1987-10-23-300x151.png?resize=758%2C381)
 
@@ -41,7 +41,7 @@ Bruce plays a solo acoustic performance at the William Saroyan Theater in Fresno
 
 **1996:** [The New Timer](http://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)
 
-[https://www.youtube.com/embed/mYVxiiFX6v8?feature=oembed](https://www.youtube.com/embed/mYVxiiFX6v8?feature=oembed)
+[https://www.youtube.com/embed/mYVxiiFX6v8](https://www.youtube.com/embed/mYVxiiFX6v8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1996-10-23.png?resize=528%2C2829&amp;ssl=1)
 
@@ -49,17 +49,17 @@ At their fourth and final show in Los Angeles on the Reunion Tour, Bruce and the
 
 **1999:** [Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[here](http://live.brucespringsteen.net/live-music/0,23110/bruce-springsteen---the-e-street-band-staples-center-los-angeles-10-23-1999-mp3-flac-or-online-music-streaming.html)
 
-[https://www.youtube.com/embed/BjKbTI7zJcc?feature=oembed](https://www.youtube.com/embed/BjKbTI7zJcc?feature=oembed)
+[https://www.youtube.com/embed/BjKbTI7zJcc](https://www.youtube.com/embed/BjKbTI7zJcc)
 
-[https://www.youtube.com/embed/oEgqi2aPn0o?feature=oembed](https://www.youtube.com/embed/oEgqi2aPn0o?feature=oembed)
+[https://www.youtube.com/embed/oEgqi2aPn0o](https://www.youtube.com/embed/oEgqi2aPn0o)
 
-[https://www.youtube.com/embed/7wZjRYwkAsM?feature=oembed](https://www.youtube.com/embed/7wZjRYwkAsM?feature=oembed)
+[https://www.youtube.com/embed/7wZjRYwkAsM](https://www.youtube.com/embed/7wZjRYwkAsM)
 
-[https://www.youtube.com/embed/QwohSn49dQM?feature=oembed](https://www.youtube.com/embed/QwohSn49dQM?feature=oembed)
+[https://www.youtube.com/embed/QwohSn49dQM](https://www.youtube.com/embed/QwohSn49dQM)
 
-[https://www.youtube.com/embed/xICybT5bR6I?feature=oembed](https://www.youtube.com/embed/xICybT5bR6I?feature=oembed)
+[https://www.youtube.com/embed/xICybT5bR6I](https://www.youtube.com/embed/xICybT5bR6I)
 
-[https://www.youtube.com/embed/eh4BQpVXfI8?feature=oembed](https://www.youtube.com/embed/eh4BQpVXfI8?feature=oembed)
+[https://www.youtube.com/embed/eh4BQpVXfI8](https://www.youtube.com/embed/eh4BQpVXfI8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-23-300x140.png?resize=758%2C354)
 
@@ -67,15 +67,15 @@ Bruce performs solo at a re-election rally for President Obama in Charlottesvill
 
 **2012:** [Give the Girl a Kiss](http://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)[This Depression](http://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)[here](https://billk128.tumblr.com/post/35088354431/live-from-the-hook-or-prelude-to-sandy)
 
-[https://www.youtube.com/embed/4AAxA8VYPoU?feature=oembed](https://www.youtube.com/embed/4AAxA8VYPoU?feature=oembed)
+[https://www.youtube.com/embed/4AAxA8VYPoU](https://www.youtube.com/embed/4AAxA8VYPoU)
 
-[https://www.youtube.com/embed/RluSgWUIOqI?feature=oembed](https://www.youtube.com/embed/RluSgWUIOqI?feature=oembed)
+[https://www.youtube.com/embed/RluSgWUIOqI](https://www.youtube.com/embed/RluSgWUIOqI)
 
-[https://www.youtube.com/embed/YN6n0O00DMQ?feature=oembed](https://www.youtube.com/embed/YN6n0O00DMQ?feature=oembed)
+[https://www.youtube.com/embed/YN6n0O00DMQ](https://www.youtube.com/embed/YN6n0O00DMQ)
 
-[https://www.youtube.com/embed/6FvnwMYoXPg?feature=oembed](https://www.youtube.com/embed/6FvnwMYoXPg?feature=oembed)
+[https://www.youtube.com/embed/6FvnwMYoXPg](https://www.youtube.com/embed/6FvnwMYoXPg)
 
-[https://www.youtube.com/embed/fAh2pxAsO_8?feature=oembed](https://www.youtube.com/embed/fAh2pxAsO_8?feature=oembed)
+[https://www.youtube.com/embed/fAh2pxAsO_8](https://www.youtube.com/embed/fAh2pxAsO_8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Culpeper_Star_Exponent_2012_10_24_3-scaled.jpg?resize=758%2C1044&amp;ssl=1)
 
@@ -83,7 +83,7 @@ Bruce joins Ralph Lauren for the premiere of HBO's at the Metropolitan Museum of
 
 **2019:** *Very Ralph*
 
-[https://www.youtube.com/embed/aqgcKhrRXzA?feature=oembed](https://www.youtube.com/embed/aqgcKhrRXzA?feature=oembed)
+[https://www.youtube.com/embed/aqgcKhrRXzA](https://www.youtube.com/embed/aqgcKhrRXzA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2019-10-23a-240x300.jpg?resize=758%2C948)
 
@@ -99,20 +99,20 @@ The day brings a spray of publicity appearances from Bruce in support of the alb
 
 Bruce also calls into the studio that same day, speaking with Jim Rotolo.
 
-[https://www.youtube.com/embed/Uheml56yL4M?feature=oembed](https://www.youtube.com/embed/Uheml56yL4M?feature=oembed)
+[https://www.youtube.com/embed/Uheml56yL4M](https://www.youtube.com/embed/Uheml56yL4M)
 
 As the day progresses, Bruce makes virtual appearances on in the U.K., in Scandinavia, and in Ireland, and in France.
 
 *The Graham Norton Show* *Skavlan* *The Late Late Show**Popopop*
 
-[https://www.youtube.com/embed/Wca8mQbbwBI?feature=oembed](https://www.youtube.com/embed/Wca8mQbbwBI?feature=oembed)
+[https://www.youtube.com/embed/Wca8mQbbwBI](https://www.youtube.com/embed/Wca8mQbbwBI)
 
-[https://www.youtube.com/embed/rOlAxENYtpg?feature=oembed](https://www.youtube.com/embed/rOlAxENYtpg?feature=oembed)
+[https://www.youtube.com/embed/rOlAxENYtpg](https://www.youtube.com/embed/rOlAxENYtpg)
 
-[https://www.youtube.com/embed/Ktw3Dcelv5M?feature=oembed](https://www.youtube.com/embed/Ktw3Dcelv5M?feature=oembed)
+[https://www.youtube.com/embed/Ktw3Dcelv5M](https://www.youtube.com/embed/Ktw3Dcelv5M)
 
 Bruce and the E Street Band appear on in a long and fun episode full of stories and song performances.
 
 **2024:** *The Howard Stern Show*
 
-[https://www.youtube.com/embed/JoNTvOXZoRk?feature=oembed](https://www.youtube.com/embed/JoNTvOXZoRk?feature=oembed)
+[https://www.youtube.com/embed/JoNTvOXZoRk](https://www.youtube.com/embed/JoNTvOXZoRk)

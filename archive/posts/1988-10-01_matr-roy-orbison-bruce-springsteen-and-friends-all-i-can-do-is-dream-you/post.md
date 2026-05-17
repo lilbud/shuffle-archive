@@ -10,7 +10,7 @@ During his legendary *Black and White Night* all-star concert in 1987, "(All I C
 
 Orbison was one of Bruce's heroes, and throughout the show, Bruce was clearly in awe of Roy's legendary voice.
 
-[https://videopress.com/embed/r1tQhqRs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/r1tQhqRs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/r1tQhqRs](https://videopress.com/embed/r1tQhqRs)
 
 Unfortunately, Bruce wasn't center stage for this song, though–to spot him, you'll have to keep your eyes to Roy's left and wait for the camera to pan–but the camera gets a good close up of him at around the 2:25 mark, and his guitar is present throughout.
 

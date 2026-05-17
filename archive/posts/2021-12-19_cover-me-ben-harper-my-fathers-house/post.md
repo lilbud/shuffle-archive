@@ -7,7 +7,7 @@ All of the performances were gorgeous that night (see my post on for one of my f
 
 Bruce was visibly moved throughout Harper's performance (as were the Obamas), and when Harper finishes the audience sits in rapt silence for what feels like an eternity before breaking Harper's spell with their applause.
 
-[https://www.youtube.com/embed/d5xZmgFOuRA?feature=oembed](https://www.youtube.com/embed/d5xZmgFOuRA?feature=oembed)
+[https://www.youtube.com/embed/d5xZmgFOuRA](https://www.youtube.com/embed/d5xZmgFOuRA)
 
 And yet… any true Springsteen fan couldn't help notice that Harper's version was very, shall we say, abridged. The song's most devastating sequence (where the son finally summons the will to make peace wit his father only to learn his father was long gone) had been completely removed, most likely for timing reasons.
 
@@ -17,6 +17,6 @@ That performance was just as powerful and captivating as the one from nine years
 
 Enjoy Ben Harper's definitive cover of "My Father's House" below.
 
-[https://www.youtube.com/embed/clVokESa5-A?feature=oembed](https://www.youtube.com/embed/clVokESa5-A?feature=oembed)
+[https://www.youtube.com/embed/clVokESa5-A](https://www.youtube.com/embed/clVokESa5-A)
 
 You can buy Harper's version of "My Father's House" in streaming or CD single form; both benefit Artists for Peace and Justice.

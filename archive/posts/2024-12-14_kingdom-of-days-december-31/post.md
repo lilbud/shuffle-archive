@@ -9,13 +9,13 @@ Bruce and the E Street Band wrap up 1975 with a magnificent show at Philadelphia
 
 **1975:** [Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[here](http://live.brucespringsteen.net/live-music/0,12046/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-31-1975-Tower-Theater-Upper-Darby-PA.html)
 
-[https://www.youtube.com/embed/U4sBxvzwzIg?feature=oembed](https://www.youtube.com/embed/U4sBxvzwzIg?feature=oembed)
+[https://www.youtube.com/embed/U4sBxvzwzIg](https://www.youtube.com/embed/U4sBxvzwzIg)
 
-[https://www.youtube.com/embed/_LJbKcihdTU?feature=oembed](https://www.youtube.com/embed/_LJbKcihdTU?feature=oembed)
+[https://www.youtube.com/embed/_LJbKcihdTU](https://www.youtube.com/embed/_LJbKcihdTU)
 
-[https://www.youtube.com/embed/yBOo1jcrrJM?feature=oembed](https://www.youtube.com/embed/yBOo1jcrrJM?feature=oembed)
+[https://www.youtube.com/embed/yBOo1jcrrJM](https://www.youtube.com/embed/yBOo1jcrrJM)
 
-[https://www.youtube.com/embed/yw9RkVeAIjU?feature=oembed](https://www.youtube.com/embed/yw9RkVeAIjU?feature=oembed)
+[https://www.youtube.com/embed/yw9RkVeAIjU](https://www.youtube.com/embed/yw9RkVeAIjU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1975-12-31.png?resize=758%2C1038&amp;ssl=1)
 
@@ -23,9 +23,9 @@ Bruce and the E Street Band join Southside Johnny and The Asbury Jukes on stage 
 
 **1977:** [Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)
 
-[https://www.youtube.com/embed/MiKmydkwgvw?feature=oembed](https://www.youtube.com/embed/MiKmydkwgvw?feature=oembed)
+[https://www.youtube.com/embed/MiKmydkwgvw](https://www.youtube.com/embed/MiKmydkwgvw)
 
-[https://www.youtube.com/embed/36xjaG4ZBd4?feature=oembed](https://www.youtube.com/embed/36xjaG4ZBd4?feature=oembed)
+[https://www.youtube.com/embed/36xjaG4ZBd4](https://www.youtube.com/embed/36xjaG4ZBd4)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3>
 
@@ -35,9 +35,9 @@ Bruce and the E Street Band play their last show of the year in Richfield, Ohio.
 
 **1978:** [Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)
 
-[https://www.youtube.com/embed/Wz4QJfL944g?feature=oembed](https://www.youtube.com/embed/Wz4QJfL944g?feature=oembed)
+[https://www.youtube.com/embed/Wz4QJfL944g](https://www.youtube.com/embed/Wz4QJfL944g)
 
-[https://videopress.com/embed/UfXSIcOd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UfXSIcOd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/UfXSIcOd](https://videopress.com/embed/UfXSIcOd)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCxLikrP0wQCnX0bD04oaAt](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCxLikrP0wQCnX0bD04oaAt)
 
@@ -47,25 +47,25 @@ Bruce and the boys close out the year with one of their most legendary, most doc
 
 **1980:** [Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[here](http://live.brucespringsteen.net/live-music/0,12284/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-31-1980-Nassau-Veterans-Memorial-Coliseum-Uniondale-NY.html)*Tracks;* [4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)*Live 1975-85;*[Merry Christmas, Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)*A Very Special Christmas;**The Essential Bruce Springsteen.*
 
-[https://www.youtube.com/embed/FihqhN5j6FA?feature=oembed](https://www.youtube.com/embed/FihqhN5j6FA?feature=oembed)
+[https://www.youtube.com/embed/FihqhN5j6FA](https://www.youtube.com/embed/FihqhN5j6FA)
 
-[https://www.youtube.com/embed/Q0lUJtmwgf4?feature=oembed](https://www.youtube.com/embed/Q0lUJtmwgf4?feature=oembed)
+[https://www.youtube.com/embed/Q0lUJtmwgf4](https://www.youtube.com/embed/Q0lUJtmwgf4)
 
-[https://www.youtube.com/embed/4TTL1ZeHVKU?feature=oembed](https://www.youtube.com/embed/4TTL1ZeHVKU?feature=oembed)
+[https://www.youtube.com/embed/4TTL1ZeHVKU](https://www.youtube.com/embed/4TTL1ZeHVKU)
 
-[https://www.youtube.com/embed/gZOdxsy8n0Q?feature=oembed](https://www.youtube.com/embed/gZOdxsy8n0Q?feature=oembed)
+[https://www.youtube.com/embed/gZOdxsy8n0Q](https://www.youtube.com/embed/gZOdxsy8n0Q)
 
-[https://www.youtube.com/embed/uFpOD4MP_Qw?feature=oembed](https://www.youtube.com/embed/uFpOD4MP_Qw?feature=oembed)
+[https://www.youtube.com/embed/uFpOD4MP_Qw](https://www.youtube.com/embed/uFpOD4MP_Qw)
 
-[https://www.youtube.com/embed/3H72_itMglQ?feature=oembed](https://www.youtube.com/embed/3H72_itMglQ?feature=oembed)
+[https://www.youtube.com/embed/3H72_itMglQ](https://www.youtube.com/embed/3H72_itMglQ)
 
-[https://www.youtube.com/embed/A6ShKMNOxVY?feature=oembed](https://www.youtube.com/embed/A6ShKMNOxVY?feature=oembed)
+[https://www.youtube.com/embed/A6ShKMNOxVY](https://www.youtube.com/embed/A6ShKMNOxVY)
 
-[https://www.youtube.com/embed/SZDRGo3euZo?feature=oembed](https://www.youtube.com/embed/SZDRGo3euZo?feature=oembed)
+[https://www.youtube.com/embed/SZDRGo3euZo](https://www.youtube.com/embed/SZDRGo3euZo)
 
-[https://www.youtube.com/embed/tvQIxIQMB0g?feature=oembed](https://www.youtube.com/embed/tvQIxIQMB0g?feature=oembed)
+[https://www.youtube.com/embed/tvQIxIQMB0g](https://www.youtube.com/embed/tvQIxIQMB0g)
 
-[https://www.youtube.com/embed/RRTIClpj4NU?feature=oembed](https://www.youtube.com/embed/RRTIClpj4NU?feature=oembed)
+[https://www.youtube.com/embed/RRTIClpj4NU](https://www.youtube.com/embed/RRTIClpj4NU)
 
 Steve Van Zandt marries Maureen Santoro, and Bruce serves as best man. At the reception, Bruce, the E Street Band, Southside Johnny, and Gary U.S. Bonds join the wedding band for six songs including Bruce's own "" and "."
 
@@ -83,4 +83,4 @@ Bruce calls into E Street Radio and chats with host Jim Rotolo.
 
 **2020:**<br>
 
-[https://www.youtube.com/embed/8Q0bpVwAr_s?feature=oembed](https://www.youtube.com/embed/8Q0bpVwAr_s?feature=oembed)
+[https://www.youtube.com/embed/8Q0bpVwAr_s](https://www.youtube.com/embed/8Q0bpVwAr_s)

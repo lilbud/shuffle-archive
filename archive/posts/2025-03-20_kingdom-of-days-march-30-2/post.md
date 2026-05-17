@@ -5,15 +5,15 @@ At the Record Plant in New York City, Bruce and his studio team complete the mix
 
 **1978:** [Darkness on the Edge of Town.](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)
 
-[https://www.youtube.com/embed/0LpdEyGhNxM?feature=oembed](https://www.youtube.com/embed/0LpdEyGhNxM?feature=oembed)
+[https://www.youtube.com/embed/0LpdEyGhNxM](https://www.youtube.com/embed/0LpdEyGhNxM)
 
 Bruce and the E Street Band rehearse for their upcoming album in Bruce's home studio in Holmdel, although several of the songs they work on won't see release for almost four decades.
 
 **1979:**<br>
 
-[https://www.youtube.com/embed/6CeHuKvkITU?feature=oembed](https://www.youtube.com/embed/6CeHuKvkITU?feature=oembed)
+[https://www.youtube.com/embed/6CeHuKvkITU](https://www.youtube.com/embed/6CeHuKvkITU)
 
-[https://www.youtube.com/embed/rTA0D28B6QY?feature=oembed](https://www.youtube.com/embed/rTA0D28B6QY?feature=oembed)
+[https://www.youtube.com/embed/rTA0D28B6QY](https://www.youtube.com/embed/rTA0D28B6QY)
 
 Bruce postpones a show in Edinburgh to recover from the previous leg of the River Tour.
 
@@ -35,7 +35,7 @@ Bruce and his new touring band rehearse in Glasgow before kicking off World Tour
 
 **1993:**<br>
 
-[https://videopress.com/embed/QSdKEveK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QSdKEveK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/QSdKEveK](https://videopress.com/embed/QSdKEveK)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30a.png?resize=758%2C984&amp;ssl=1)
 
@@ -49,28 +49,28 @@ The Reunion Tour comes to the Pepsi Center in Denver for the first of two nights
 
 **2000:**<br>
 
-[https://videopress.com/embed/wXh0vJHg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wXh0vJHg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wXh0vJHg](https://videopress.com/embed/wXh0vJHg)
 
 In town a day early for their show in Vancouver, Bruce and Max take their sons to see Foo Fighters and Against Me at the Pacific Coliseum.
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/ftsBk0Sq2A8?feature=oembed](https://www.youtube.com/embed/ftsBk0Sq2A8?feature=oembed)
+[https://www.youtube.com/embed/ftsBk0Sq2A8](https://www.youtube.com/embed/ftsBk0Sq2A8)
 
 Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on "."
 
 **2013:** [Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
 
-[https://www.youtube.com/embed/rJtMOZ-MMRQ?feature=oembed](https://www.youtube.com/embed/rJtMOZ-MMRQ?feature=oembed)
+[https://www.youtube.com/embed/rJtMOZ-MMRQ](https://www.youtube.com/embed/rJtMOZ-MMRQ)
 
-[https://www.youtube.com/embed/apt6sF60rHE?feature=oembed](https://www.youtube.com/embed/apt6sF60rHE?feature=oembed)
+[https://www.youtube.com/embed/apt6sF60rHE](https://www.youtube.com/embed/apt6sF60rHE)
 
-[https://www.youtube.com/embed/bGZGcIWrptA?feature=oembed](https://www.youtube.com/embed/bGZGcIWrptA?feature=oembed)
+[https://www.youtube.com/embed/bGZGcIWrptA](https://www.youtube.com/embed/bGZGcIWrptA)
 
-[https://www.youtube.com/embed/VOeDqnUWYMw?feature=oembed](https://www.youtube.com/embed/VOeDqnUWYMw?feature=oembed)
+[https://www.youtube.com/embed/VOeDqnUWYMw](https://www.youtube.com/embed/VOeDqnUWYMw)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-[https://videopress.com/embed/fLwEconT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fLwEconT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fLwEconT](https://videopress.com/embed/fLwEconT)

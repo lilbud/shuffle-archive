@@ -15,7 +15,7 @@ Bruce and the band play their second of two Born in the U.S.A. shows at the Mid-
 
 **1984:** [Drift Away](http://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)
 
-[https://www.youtube.com/embed/BXBwzXjApLk?feature=oembed](https://www.youtube.com/embed/BXBwzXjApLk?feature=oembed)
+[https://www.youtube.com/embed/BXBwzXjApLk](https://www.youtube.com/embed/BXBwzXjApLk)
 
 [https://www.youtube.com/embed/JgkdNhsBPbA?start=2&amp;feature=oembed](https://www.youtube.com/embed/JgkdNhsBPbA?start=2&amp;feature=oembed)
 
@@ -23,7 +23,7 @@ Peter Wolf makes a guest appearance during Bruce's second World Tour 1992 show a
 
 **1992:** [In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)
 
-[https://www.youtube.com/embed/1jEiPrnmFxk?feature=oembed](https://www.youtube.com/embed/1jEiPrnmFxk?feature=oembed)
+[https://www.youtube.com/embed/1jEiPrnmFxk](https://www.youtube.com/embed/1jEiPrnmFxk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-12-14a.png?resize=758%2C1278&amp;ssl=1)
 
@@ -35,13 +35,13 @@ Bruce performs "" on in New York City.
 
 **1995:** [Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)*Late Show with David Letterman*
 
-[https://www.youtube.com/embed/InaLZEgy9r4?feature=oembed](https://www.youtube.com/embed/InaLZEgy9r4?feature=oembed)
+[https://www.youtube.com/embed/InaLZEgy9r4](https://www.youtube.com/embed/InaLZEgy9r4)
 
 Bruce plays his last show of the year in Charlotte as the Ghost of Tom Joad Tour wraps its fall leg.
 
 **1996:**<br>
 
-[https://www.youtube.com/embed/sheKN1qqDis?feature=oembed](https://www.youtube.com/embed/sheKN1qqDis?feature=oembed)
+[https://www.youtube.com/embed/sheKN1qqDis](https://www.youtube.com/embed/sheKN1qqDis)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1996-12-14a.png?resize=758%2C220&amp;ssl=1)
 
@@ -53,17 +53,17 @@ Bruce is interviewed and performs "" and "This Hard Land" on Spanish television 
 
 **1998:** [Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)*Musica Si*
 
-[https://www.youtube.com/embed/d8TwMqpBeL4?feature=oembed](https://www.youtube.com/embed/d8TwMqpBeL4?feature=oembed)
+[https://www.youtube.com/embed/d8TwMqpBeL4](https://www.youtube.com/embed/d8TwMqpBeL4)
 
-[https://www.youtube.com/embed/G7Jz7UWZKNw?feature=oembed](https://www.youtube.com/embed/G7Jz7UWZKNw?feature=oembed)
+[https://www.youtube.com/embed/G7Jz7UWZKNw](https://www.youtube.com/embed/G7Jz7UWZKNw)
 
 Bruce makes an appearance at Carnegie Hall for Sting and Trudie Styler's Rainforest Fund Concert. Bruce plays three songs, including a "" duet with Lisa Fischer, and joins the evening's artists (including Darlene Love, Ronnie Spector, Idina Menzel, James Taylor, and more) for a Christmas carol encore. For more highlights from this show, see
 
 **2016:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[my report.](http://estreetshuffle.com/index.php/2018/12/14/where-the-band-was-new-york-city-december-14-2016/)*Where the Band Was*
 
-[https://www.youtube.com/embed/vKDxpiv7AiA?feature=oembed](https://www.youtube.com/embed/vKDxpiv7AiA?feature=oembed)
+[https://www.youtube.com/embed/vKDxpiv7AiA](https://www.youtube.com/embed/vKDxpiv7AiA)
 
-[https://www.youtube.com/embed/bhsJUCB5Gc8?feature=oembed](https://www.youtube.com/embed/bhsJUCB5Gc8?feature=oembed)
+[https://www.youtube.com/embed/bhsJUCB5Gc8](https://www.youtube.com/embed/bhsJUCB5Gc8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2016-12-14.png?resize=758%2C1370&amp;ssl=1)
 

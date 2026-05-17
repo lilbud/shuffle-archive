@@ -35,7 +35,7 @@ All the while, though, his music grew increasingly romantic. It wasn't love Bruc
 
 But there was one cover in particular that stuck around the set list that year, one that did tiptoe up to the topic of matrimony: Ike & Tina Turner's 1961 hit, "It's Gonna Work Out Fine."
 
-[https://www.youtube.com/embed/Rj9Um8T88KM?feature=oembed](https://www.youtube.com/embed/Rj9Um8T88KM?feature=oembed)
+[https://www.youtube.com/embed/Rj9Um8T88KM](https://www.youtube.com/embed/Rj9Um8T88KM)
 
 "It's Gonna Work Out Fine" earned Ike and Tina a Grammy nomination and stopped just shy of the top spot on the Billboard R&B chart. (It reached #14 on the Hot 100.)
 
@@ -45,7 +45,7 @@ Lacking an on-stage female foil, however, Bruce could only play it (semi-) strai
 
 Still, you can't cover "It's Gonna Work Out Fine" without a little snappy patter, so he enlisted Clarence for that part. The result was a clever cover of an ironic love song performed straight–irony on top of irony.
 
-[https://www.youtube.com/embed/dFfOZDg__o0?feature=oembed](https://www.youtube.com/embed/dFfOZDg__o0?feature=oembed)
+[https://www.youtube.com/embed/dFfOZDg__o0](https://www.youtube.com/embed/dFfOZDg__o0)
 
 A decade later, Bruce would warm up to the idea of marriage, although it would take him five more years and another try to get it right.
 

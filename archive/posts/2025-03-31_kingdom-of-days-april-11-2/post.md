@@ -37,7 +37,7 @@ At the last minute during a mixing and overdub session at the Record Plant, Bruc
 
 **1978:** *Darkness* [Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)
 
-[https://www.youtube.com/embed/o5IZuuzUa04?feature=oembed](https://www.youtube.com/embed/o5IZuuzUa04?feature=oembed)
+[https://www.youtube.com/embed/o5IZuuzUa04](https://www.youtube.com/embed/o5IZuuzUa04)
 
 Bruce and the E Street Band work on "" at the Power Station in New York City.
 
@@ -51,45 +51,45 @@ Bruce plays his first-ever show in Switzerland as the European leg of the River 
 
 **1981:**<br>
 
-[https://videopress.com/embed/HAbov62e?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HAbov62e?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/HAbov62e](https://videopress.com/embed/HAbov62e)
 
 Bruce joins John Eddie and the Front Street Runners on stage for four songs (including Bruce's first ever performance of "") at Big Man's West in Red Bank, and then he zips over to The Stone Pony to catch Cats on a Smooth Surface.
 
 **1982:** [Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
 
-[https://www.youtube.com/embed/sOiwRdW4pus?feature=oembed](https://www.youtube.com/embed/sOiwRdW4pus?feature=oembed)
+[https://www.youtube.com/embed/sOiwRdW4pus](https://www.youtube.com/embed/sOiwRdW4pus)
 
 The second of five nights at Tokyo's Yoyogi National Gymnasium.
 
 **1985:**<br>
 
-[https://videopress.com/embed/lObwyjXe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lObwyjXe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/lObwyjXe](https://videopress.com/embed/lObwyjXe)
 
 Jimmy Cliff makes a guest-appearance on "" at Bruce's show in Verona, Italy.
 
 **1993:** [Time Will Tell](http://estreetshuffle.com/index.php/2018/09/09/meeting-across-the-river-bruce-springsteen-and-jimmy-cliff-time-will-tell/)
 
-[https://www.youtube.com/embed/jxeRBjMH_ns?feature=oembed](https://www.youtube.com/embed/jxeRBjMH_ns?feature=oembed)
+[https://www.youtube.com/embed/jxeRBjMH_ns](https://www.youtube.com/embed/jxeRBjMH_ns)
 
-[https://videopress.com/embed/mdhbT105?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mdhbT105?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/mdhbT105](https://videopress.com/embed/mdhbT105)
 
-[https://videopress.com/embed/gQSr3tM3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gQSr3tM3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/gQSr3tM3](https://videopress.com/embed/gQSr3tM3)
 
 The Italian leg of Bruce's solo acoustic tour continues with a show at Teatro Smeraldo in Milan.
 
 **1996:**<br>
 
-[https://videopress.com/embed/kDYATuDY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kDYATuDY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/kDYATuDY](https://videopress.com/embed/kDYATuDY)
 
 Night Two of the Reunion Tour, a second show in Barcelona, features the first "" in nineteen years and the first E Street Band performance of "."
 
 **1999:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/)
 
-[https://www.youtube.com/embed/A3H_c8-BP10?feature=oembed](https://www.youtube.com/embed/A3H_c8-BP10?feature=oembed)
+[https://www.youtube.com/embed/A3H_c8-BP10](https://www.youtube.com/embed/A3H_c8-BP10)
 
-[https://www.youtube.com/embed/sgZ11MLrIyg?feature=oembed](https://www.youtube.com/embed/sgZ11MLrIyg?feature=oembed)
+[https://www.youtube.com/embed/sgZ11MLrIyg](https://www.youtube.com/embed/sgZ11MLrIyg)
 
-[https://videopress.com/embed/oRQNaUDr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oRQNaUDr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/oRQNaUDr](https://videopress.com/embed/oRQNaUDr)
 
 Sick with a cold, Bruce nevertheless turns in a great performance in Vancouver, BC. Before the show, those of us waiting outside in the pit line could hear the band soundcheck an early version of "." Listen below. For more highlights, see my for this show.
 
@@ -109,4 +109,4 @@ At the second of two nights at UBS Arena in Elmont New York, Bruce and the E Str
 
 **2023:** [Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
-[https://www.youtube.com/embed/e4cqs2bbK68?feature=oembed](https://www.youtube.com/embed/e4cqs2bbK68?feature=oembed)
+[https://www.youtube.com/embed/e4cqs2bbK68](https://www.youtube.com/embed/e4cqs2bbK68)

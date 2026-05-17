@@ -15,7 +15,7 @@ In the afternoon, Bruce stops by KLOL-FM for the second day in a row, this time 
 
 That night, the boys play two shows at Liberty Hall.
 
-[https://videopress.com/embed/VC633j2B?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VC633j2B?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VC633j2B](https://videopress.com/embed/VC633j2B)
 
 Violinist Suki Lahav makes her last appearance with Bruce and the E Street Band when the Wild & Innocent Tour wraps up at DAR Constitution Hall in Washington, DC.
 
@@ -31,13 +31,13 @@ Bruce and the E Street Band play the second of two nights at the Spectrum in Phi
 
 **1988:**[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)
 
-[https://videopress.com/embed/JEl15R0m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JEl15R0m?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/JEl15R0m](https://videopress.com/embed/JEl15R0m)
 
 MTV debuts Bruce's new video for "" at 9pm Eastern Time, and then plays it every hour on the hour through 4pm the following day.
 
 **1992:** [Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)
 
-[https://www.youtube.com/embed/85cNRQo1m3A?feature=oembed](https://www.youtube.com/embed/85cNRQo1m3A?feature=oembed)
+[https://www.youtube.com/embed/85cNRQo1m3A](https://www.youtube.com/embed/85cNRQo1m3A)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1992-03-09.png?resize=758%2C467&amp;ssl=1)
 
@@ -45,11 +45,11 @@ The Reunion Tour's Florida swing continues with a show at the National Car Renta
 
 **2000:**<br>
 
-[https://videopress.com/embed/dWAWaSej?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dWAWaSej?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/dWAWaSej](https://videopress.com/embed/dWAWaSej)
 
-[https://videopress.com/embed/hoNIyp2z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hoNIyp2z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/hoNIyp2z](https://videopress.com/embed/hoNIyp2z)
 
-[https://videopress.com/embed/OIp6vgk0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OIp6vgk0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/OIp6vgk0](https://videopress.com/embed/OIp6vgk0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09a-300x233.jpg?resize=758%2C589)
 
@@ -61,7 +61,7 @@ Bruce grants an interview to at his home in New Jersey.
 
 **2003:** *60 Minutes Australia*
 
-[https://www.youtube.com/embed/fp1Jy9uSvJ4?feature=oembed](https://www.youtube.com/embed/fp1Jy9uSvJ4?feature=oembed)
+[https://www.youtube.com/embed/fp1Jy9uSvJ4](https://www.youtube.com/embed/fp1Jy9uSvJ4)
 
 Bruce rehearses for his upcoming solo tour at the Paramount Theater in Asbury Park.
 
@@ -75,17 +75,17 @@ Bruce and the E Street Band play a historic show at the Apollo Theater in New Yo
 
 **2012:**[go get it](http://live.brucespringsteen.net/live-music/0,11632/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-3-9-2012-Apollo-Theater-New-York-NY.html)
 
-[https://www.youtube.com/embed/8ojhFzOKibA?feature=oembed](https://www.youtube.com/embed/8ojhFzOKibA?feature=oembed)
+[https://www.youtube.com/embed/8ojhFzOKibA](https://www.youtube.com/embed/8ojhFzOKibA)
 
-[https://www.youtube.com/embed/XKk5ne_0K_4?feature=oembed](https://www.youtube.com/embed/XKk5ne_0K_4?feature=oembed)
+[https://www.youtube.com/embed/XKk5ne_0K_4](https://www.youtube.com/embed/XKk5ne_0K_4)
 
-[https://www.youtube.com/embed/DgcJDNcyRFA?feature=oembed](https://www.youtube.com/embed/DgcJDNcyRFA?feature=oembed)
+[https://www.youtube.com/embed/DgcJDNcyRFA](https://www.youtube.com/embed/DgcJDNcyRFA)
 
-[https://www.youtube.com/embed/9gLBvgvXTok?feature=oembed](https://www.youtube.com/embed/9gLBvgvXTok?feature=oembed)
+[https://www.youtube.com/embed/9gLBvgvXTok](https://www.youtube.com/embed/9gLBvgvXTok)
 
-[https://www.youtube.com/embed/Z8mwuDHAUEI?feature=oembed](https://www.youtube.com/embed/Z8mwuDHAUEI?feature=oembed)
+[https://www.youtube.com/embed/Z8mwuDHAUEI](https://www.youtube.com/embed/Z8mwuDHAUEI)
 
-[https://www.youtube.com/embed/iyIfdt9O50g?feature=oembed](https://www.youtube.com/embed/iyIfdt9O50g?feature=oembed)
+[https://www.youtube.com/embed/iyIfdt9O50g](https://www.youtube.com/embed/iyIfdt9O50g)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-09a-300x117.jpg?resize=758%2C296)
 
@@ -99,7 +99,7 @@ Bruce reminisces about his legendary Apollo Theater show on its tenth anniversar
 
 **2022:**<br>
 
-[https://www.youtube.com/embed/mCk-8jeJJzw?feature=oembed](https://www.youtube.com/embed/mCk-8jeJJzw?feature=oembed)
+[https://www.youtube.com/embed/mCk-8jeJJzw](https://www.youtube.com/embed/mCk-8jeJJzw)
 
 Columbus fans are dejected when Bruce is forced to postpone his show at Nationwide Arena to September due to illness. But hey, it's only a six month wait, right? Nope–the show will be postponed once more and finally take place more than a year after it's originally scheduled date.
 

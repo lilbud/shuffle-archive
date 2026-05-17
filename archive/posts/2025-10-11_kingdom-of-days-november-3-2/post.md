@@ -15,7 +15,7 @@ Bruce, Garry, Max, and Roy stop by WMMR-FM in Philadelphia before heading out on
 
 **1974:**<br>
 
-[https://www.youtube.com/embed/Et9tY3dCDPc?feature=oembed](https://www.youtube.com/embed/Et9tY3dCDPc?feature=oembed)
+[https://www.youtube.com/embed/Et9tY3dCDPc](https://www.youtube.com/embed/Et9tY3dCDPc)
 
 Bruce and the E Street Band play their first of three nights at Arizona State University in Tempe.
 
@@ -29,13 +29,13 @@ It's Night Five of six at the Palladium in New York City on the Lawsuit Tour; to
 
 **1976:** [She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)[A Fine Fine Girl](http://estreetshuffle.com/index.php/2019/01/28/cover-me-a-fine-fine-boy/)
 
-[https://videopress.com/embed/tYm0RPgx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tYm0RPgx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/tYm0RPgx](https://videopress.com/embed/tYm0RPgx)
 
 Bruce and the band play their final night of a four-night stand at the Los Angeles Memorial Sports Arena, where the 1978 version of "" makes its final appearance for 32 years. Flo and Eddie guest star on "," and Jackson Browne joins the band for a final encore of "."
 
 **1980:** [Prove It All Night](http://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
-[https://www.youtube.com/embed/4H0xsYHJYw8?feature=oembed](https://www.youtube.com/embed/4H0xsYHJYw8?feature=oembed)
+[https://www.youtube.com/embed/4H0xsYHJYw8](https://www.youtube.com/embed/4H0xsYHJYw8)
 
 On , host Casey Kasem shines a spotlight on Bruce's marathon shows while introducing ""
 
@@ -45,7 +45,7 @@ It's Election Day in the United States, and during Bruce's show in Milwaukee, Bi
 
 **1992:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
-[https://www.youtube.com/embed/kItDzU6Jz38?feature=oembed](https://www.youtube.com/embed/kItDzU6Jz38?feature=oembed)
+[https://www.youtube.com/embed/kItDzU6Jz38](https://www.youtube.com/embed/kItDzU6Jz38)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/1992-11-03.jpg?resize=758%2C690&amp;ssl=1)
 
@@ -59,7 +59,7 @@ Bruce returns to The Stone Pony for the first time in five years, joining Joe Gr
 
 **2000:**<br>
 
-[https://videopress.com/embed/fpVU6S3u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fpVU6S3u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fpVU6S3u](https://videopress.com/embed/fpVU6S3u)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2000-11-03a-134x300.png?resize=758%2C1697)
 
@@ -69,7 +69,7 @@ Bruce makes an encore appearance at Light of Day 2001 at Tradewinds in Sea Brigh
 
 **2001:** [Fire](http://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)
 
-[https://videopress.com/embed/MNUjFpDS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MNUjFpDS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/MNUjFpDS](https://videopress.com/embed/MNUjFpDS)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2001-11-03-300x115.png?resize=758%2C291)
 
@@ -77,7 +77,7 @@ The Rising Tour returns to the U.S., and the next leg kicks off with a show at A
 
 **2002:** [I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
-[https://www.youtube.com/embed/_fKGF8uy3cI?feature=oembed](https://www.youtube.com/embed/_fKGF8uy3cI?feature=oembed)
+[https://www.youtube.com/embed/_fKGF8uy3cI](https://www.youtube.com/embed/_fKGF8uy3cI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2002-11-03-300x270.png?resize=758%2C682)
 
@@ -91,11 +91,11 @@ Bruce plays "" for the very first time when the Working on a Dream Tour stops at
 
 **2009:** [Brown Eyed Girl](http://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/)[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)*Born to Run.* [American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)
 
-[https://www.youtube.com/embed/7O-SD9pOwYE?feature=oembed](https://www.youtube.com/embed/7O-SD9pOwYE?feature=oembed)
+[https://www.youtube.com/embed/7O-SD9pOwYE](https://www.youtube.com/embed/7O-SD9pOwYE)
 
-[https://www.youtube.com/embed/PVXv08SnNd8?feature=oembed](https://www.youtube.com/embed/PVXv08SnNd8?feature=oembed)
+[https://www.youtube.com/embed/PVXv08SnNd8](https://www.youtube.com/embed/PVXv08SnNd8)
 
-[https://www.youtube.com/embed/hNi8h9DeSr4?feature=oembed](https://www.youtube.com/embed/hNi8h9DeSr4?feature=oembed)
+[https://www.youtube.com/embed/hNi8h9DeSr4](https://www.youtube.com/embed/hNi8h9DeSr4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2009-11-03-300x205.png?resize=758%2C518)
 
@@ -103,11 +103,11 @@ Bruce's third appearance at Stand Up for Heroes (at the Beacon Theater in New Yo
 
 **2010:** [Open All Night](http://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)[Kitty's Back,](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
-[https://www.youtube.com/embed/dAUY3qlh6Ag?feature=oembed](https://www.youtube.com/embed/dAUY3qlh6Ag?feature=oembed)
+[https://www.youtube.com/embed/dAUY3qlh6Ag](https://www.youtube.com/embed/dAUY3qlh6Ag)
 
-[https://www.youtube.com/embed/U5b33UehON8?feature=oembed](https://www.youtube.com/embed/U5b33UehON8?feature=oembed)
+[https://www.youtube.com/embed/U5b33UehON8](https://www.youtube.com/embed/U5b33UehON8)
 
-[https://www.youtube.com/embed/F0PcvE1E65w?feature=oembed](https://www.youtube.com/embed/F0PcvE1E65w?feature=oembed)
+[https://www.youtube.com/embed/F0PcvE1E65w](https://www.youtube.com/embed/F0PcvE1E65w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2010-11-03-300x268.png?resize=758%2C677)
 
@@ -115,11 +115,11 @@ Almost one year to the day, Bruce and Joe Grushecky reprise their pair of Soldie
 
 **2011:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://www.youtube.com/embed/5ShAXSeBQFc?feature=oembed](https://www.youtube.com/embed/5ShAXSeBQFc?feature=oembed)
+[https://www.youtube.com/embed/5ShAXSeBQFc](https://www.youtube.com/embed/5ShAXSeBQFc)
 
-[https://videopress.com/embed/CkjUjE3k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CkjUjE3k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/CkjUjE3k](https://videopress.com/embed/CkjUjE3k)
 
-[https://videopress.com/embed/6oxCgyZ2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6oxCgyZ2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/6oxCgyZ2](https://videopress.com/embed/6oxCgyZ2)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/2011-11-03.png?resize=758%2C1142&amp;ssl=1)
 
@@ -127,17 +127,17 @@ The Wrecking Ball Tour stops in Louisville, where "" gets a rare outing.
 
 **2012:** [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
-[https://www.youtube.com/embed/5fN4rlvEP8Q?feature=oembed](https://www.youtube.com/embed/5fN4rlvEP8Q?feature=oembed)
+[https://www.youtube.com/embed/5fN4rlvEP8Q](https://www.youtube.com/embed/5fN4rlvEP8Q)
 
-[https://www.youtube.com/embed/gThRZDpjccU?feature=oembed](https://www.youtube.com/embed/gThRZDpjccU?feature=oembed)
+[https://www.youtube.com/embed/gThRZDpjccU](https://www.youtube.com/embed/gThRZDpjccU)
 
-[https://www.youtube.com/embed/t3JbjQxNhl0?feature=oembed](https://www.youtube.com/embed/t3JbjQxNhl0?feature=oembed)
+[https://www.youtube.com/embed/t3JbjQxNhl0](https://www.youtube.com/embed/t3JbjQxNhl0)
 
-[https://www.youtube.com/embed/4840MuwwjFc?feature=oembed](https://www.youtube.com/embed/4840MuwwjFc?feature=oembed)
+[https://www.youtube.com/embed/4840MuwwjFc](https://www.youtube.com/embed/4840MuwwjFc)
 
-[https://www.youtube.com/embed/9zVWTpH_84Q?feature=oembed](https://www.youtube.com/embed/9zVWTpH_84Q?feature=oembed)
+[https://www.youtube.com/embed/9zVWTpH_84Q](https://www.youtube.com/embed/9zVWTpH_84Q)
 
-[https://www.youtube.com/embed/AxBF-z29vCQ?feature=oembed](https://www.youtube.com/embed/AxBF-z29vCQ?feature=oembed)
+[https://www.youtube.com/embed/AxBF-z29vCQ](https://www.youtube.com/embed/AxBF-z29vCQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/2012-11-03a.png?resize=758%2C1404&amp;ssl=1)
 
@@ -159,6 +159,6 @@ Bruce kicks off his concert in Toronto with "" the first time that song has ever
 
 **2024:** [She's the One,](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
 
-[https://www.youtube.com/embed/Ax-wnSj2p_c?feature=oembed](https://www.youtube.com/embed/Ax-wnSj2p_c?feature=oembed)
+[https://www.youtube.com/embed/Ax-wnSj2p_c](https://www.youtube.com/embed/Ax-wnSj2p_c)
 
-[https://www.youtube.com/embed/fooO4a8rPQA?feature=oembed](https://www.youtube.com/embed/fooO4a8rPQA?feature=oembed)
+[https://www.youtube.com/embed/fooO4a8rPQA](https://www.youtube.com/embed/fooO4a8rPQA)

@@ -17,11 +17,11 @@ I've seen shows with complete album sets before, and usually they're a novelty, 
 
 Gone were the backup singers and horns from recent tours; this was the core E Street Band, as powerful as ever. Jake now fully assumed his late uncle's role, and as the only horn on stage, when he stepped forward for his first solo (watch the video below), the sustained roar of the crowd was an embrace, an acknowledgement, and a welcome into the role he'd earned over the past few years.
 
-[https://www.youtube.com/embed/DzygIbyyl9g?feature=oembed](https://www.youtube.com/embed/DzygIbyyl9g?feature=oembed)
+[https://www.youtube.com/embed/DzygIbyyl9g](https://www.youtube.com/embed/DzygIbyyl9g)
 
 Album highlights included the always majestic "Drive All Night," the wonderful new/old arrangement of "," the silliness of "Crush on You," and the powerful "Stolen Car." [I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)"" into "" has to be the most fun back-to-back combo in Bruce's songbook.[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)
 
-[https://www.youtube.com/embed/fgLO-kikJNU?feature=oembed](https://www.youtube.com/embed/fgLO-kikJNU?feature=oembed)
+[https://www.youtube.com/embed/fgLO-kikJNU](https://www.youtube.com/embed/fgLO-kikJNU)
 
 The surprises came after the album set. Now twenty-one songs in, I was sure Bruce would play only a couple more, as he did he'd played the full album. But instead he played more songs in the main set. And while it was essentially a "greatest hits" mini-set, who could fault getting "," "Thunder Road," "," and "Because the Night" in the same show as a full album set as ?
 
@@ -31,7 +31,7 @@ And if the encore was mostly predictable, there was at least a one-time-only hig
 
 [Rebel Rebel](https://estreetshuffle.com/index.php/2021/11/21/cover-me-rebel-rebel/)
 
-[https://www.youtube.com/embed/GPmTDPruFP0?feature=oembed](https://www.youtube.com/embed/GPmTDPruFP0?feature=oembed)
+[https://www.youtube.com/embed/GPmTDPruFP0](https://www.youtube.com/embed/GPmTDPruFP0)
 
 Altogether, this show gave me nine(!) personal premieres–not bad for a retro-themed show. And although Bruce's tours often evolve significantly from their humble beginnings, I couldn't begin to imagine the epic victory leg that would cap this tour eight months later.
 

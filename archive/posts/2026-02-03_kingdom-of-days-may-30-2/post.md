@@ -19,7 +19,7 @@ Southside Johnny's debut album release party at The Stone Pony is broadcast live
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/AyS5BOOhbEw?feature=oembed](https://www.youtube.com/embed/AyS5BOOhbEw?feature=oembed)
+[https://www.youtube.com/embed/AyS5BOOhbEw](https://www.youtube.com/embed/AyS5BOOhbEw)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3>
 
@@ -31,13 +31,13 @@ At Night Two of three at Boston's Music Hall, Bruce tour premieres "Because the 
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/The8c38RJr0?feature=oembed](https://www.youtube.com/embed/The8c38RJr0?feature=oembed)
+[https://www.youtube.com/embed/The8c38RJr0](https://www.youtube.com/embed/The8c38RJr0)
 
 Bruce and the E Street Band work on "Mary Lou" and "Point Blank" at the Power Station in New York City.
 
 **1979:**<br>
 
-[https://www.youtube.com/embed/xcka1wNBS9Q?feature=oembed](https://www.youtube.com/embed/xcka1wNBS9Q?feature=oembed)
+[https://www.youtube.com/embed/xcka1wNBS9Q](https://www.youtube.com/embed/xcka1wNBS9Q)
 
 : Bruce and the E Street Band play "Jackson Cage" for the first time in Europe at their second of six nights at London's Wembley Arena on the original River Tour.
 
@@ -49,9 +49,9 @@ Bruce's World Tour 1993 stops for a night in the town of Gentofte, Denmark.
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/bZvWPUzT75Q?feature=oembed](https://www.youtube.com/embed/bZvWPUzT75Q?feature=oembed)
+[https://www.youtube.com/embed/bZvWPUzT75Q](https://www.youtube.com/embed/bZvWPUzT75Q)
 
-[https://www.youtube.com/embed/CcTqWBfRP2E?feature=oembed](https://www.youtube.com/embed/CcTqWBfRP2E?feature=oembed)
+[https://www.youtube.com/embed/CcTqWBfRP2E](https://www.youtube.com/embed/CcTqWBfRP2E)
 
 Bruce opens the second Reunion show in Berlin with "I Wanna Be With You."
 
@@ -65,13 +65,13 @@ The Seeger Sessions Tour arrives at the Germain Amphitheater in Columbus, where 
 
 **2006:**<br>
 
-[https://www.youtube.com/embed/iH1zAoS99gE?feature=oembed](https://www.youtube.com/embed/iH1zAoS99gE?feature=oembed)
+[https://www.youtube.com/embed/iH1zAoS99gE](https://www.youtube.com/embed/iH1zAoS99gE)
 
 The Magic Tour gets its longest show to date, at Emirates Stadium in London.
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/u7HfoSgA1bw?feature=oembed](https://www.youtube.com/embed/u7HfoSgA1bw?feature=oembed)
+[https://www.youtube.com/embed/u7HfoSgA1bw](https://www.youtube.com/embed/u7HfoSgA1bw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-30.jpg?resize=758%2C1420&amp;ssl=1)
 
@@ -79,19 +79,19 @@ Bruce and the E Street Band kick off the European leg of the Working on a Dream 
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/dzkecxiSwdY?feature=oembed](https://www.youtube.com/embed/dzkecxiSwdY?feature=oembed)
+[https://www.youtube.com/embed/dzkecxiSwdY](https://www.youtube.com/embed/dzkecxiSwdY)
 
-[https://www.youtube.com/embed/zQOWT77B2Yo?feature=oembed](https://www.youtube.com/embed/zQOWT77B2Yo?feature=oembed)
+[https://www.youtube.com/embed/zQOWT77B2Yo](https://www.youtube.com/embed/zQOWT77B2Yo)
 
-[https://www.youtube.com/embed/x49CyXVo15c?feature=oembed](https://www.youtube.com/embed/x49CyXVo15c?feature=oembed)
+[https://www.youtube.com/embed/x49CyXVo15c](https://www.youtube.com/embed/x49CyXVo15c)
 
 The Wrecking Ball Tour arrives in Berlin, and Bruce marks the occasion by opening with his only known performance of Wizz Jones' "When I Leave Berlin" and tour debuting "Save My Love."
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/MsjkqHT0O-o?feature=oembed](https://www.youtube.com/embed/MsjkqHT0O-o?feature=oembed)
+[https://www.youtube.com/embed/MsjkqHT0O-o](https://www.youtube.com/embed/MsjkqHT0O-o)
 
-[https://www.youtube.com/embed/UoK7-pBGw8c?feature=oembed](https://www.youtube.com/embed/UoK7-pBGw8c?feature=oembed)
+[https://www.youtube.com/embed/UoK7-pBGw8c](https://www.youtube.com/embed/UoK7-pBGw8c)
 
 Bruce and Patti perform some classic covers with Bobby Bandiera's band at the wedding of Patti's personal assistant in Oakland, New Jersey.
 
@@ -107,14 +107,14 @@ Bruce releases "Tucson Train," the third single from his upcoming album.
 
 **2019:** *Western Stars*
 
-[https://www.youtube.com/embed/bsH4URIWNRE?feature=oembed](https://www.youtube.com/embed/bsH4URIWNRE?feature=oembed)
+[https://www.youtube.com/embed/bsH4URIWNRE](https://www.youtube.com/embed/bsH4URIWNRE)
 
 Bruce and the E Street Band play their first show in Edinburgh in more than four decades.
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/FGZn78VoIco?feature=oembed](https://www.youtube.com/embed/FGZn78VoIco?feature=oembed)
+[https://www.youtube.com/embed/FGZn78VoIco](https://www.youtube.com/embed/FGZn78VoIco)
 
-[https://www.youtube.com/embed/lI8kvK_eUak?feature=oembed](https://www.youtube.com/embed/lI8kvK_eUak?feature=oembed)
+[https://www.youtube.com/embed/lI8kvK_eUak](https://www.youtube.com/embed/lI8kvK_eUak)
 
-[https://www.youtube.com/embed/r2dRoaoBj6A?feature=oembed](https://www.youtube.com/embed/r2dRoaoBj6A?feature=oembed)
+[https://www.youtube.com/embed/r2dRoaoBj6A](https://www.youtube.com/embed/r2dRoaoBj6A)

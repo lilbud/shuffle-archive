@@ -25,15 +25,15 @@ Bruce plays his first-ever show in Norway, when the River Tour comes to Drammen.
 
 **1981:**<br>
 
-[https://videopress.com/embed/fZwe49y9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fZwe49y9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fZwe49y9](https://videopress.com/embed/fZwe49y9)
 
 At The Power Station studio in New York City, Bruce and the E Street Band record "" "," "" and the still unreleased "Stop the War."
 
 **1982:** [Glory Days,](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)[A Good Man Is Hard to Find (Pittsburgh)](https://estreetshuffle.com/index.php/2021/04/30/roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/)
 
-[https://www.youtube.com/embed/GLBnj159q3s?feature=oembed](https://www.youtube.com/embed/GLBnj159q3s?feature=oembed)
+[https://www.youtube.com/embed/GLBnj159q3s](https://www.youtube.com/embed/GLBnj159q3s)
 
-[https://www.youtube.com/embed/exXiJa-kis4?feature=oembed](https://www.youtube.com/embed/exXiJa-kis4?feature=oembed)
+[https://www.youtube.com/embed/exXiJa-kis4](https://www.youtube.com/embed/exXiJa-kis4)
 
 Bruce plays the first of two nights at the Tacoma Dome for the Tunnel of Love Express Tour and scores the cover of .
 
@@ -41,11 +41,11 @@ Bruce plays the first of two nights at the Tacoma Dome for the Tunnel of Love Ex
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/rolling-stone-cover-volume-525-5-5-1988-bruce-springsteen-250x300.jpg?resize=758%2C910)
 
-[https://videopress.com/embed/HsrTnjy0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HsrTnjy0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/HsrTnjy0](https://videopress.com/embed/HsrTnjy0)
 
-[https://videopress.com/embed/Y8IhKbo6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Y8IhKbo6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Y8IhKbo6](https://videopress.com/embed/Y8IhKbo6)
 
-[https://videopress.com/embed/htl1ckUK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/htl1ckUK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/htl1ckUK](https://videopress.com/embed/htl1ckUK)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1988-05-05-save-179x300.jpg?resize=758%2C1271)
 
@@ -57,25 +57,25 @@ The Recording Industry Association of America certifies "" as gold and "" as pla
 
 **1992:** [Santa Claus Is Coming to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://www.youtube.com/embed/nCFTL4IO6t4?feature=oembed](https://www.youtube.com/embed/nCFTL4IO6t4?feature=oembed)
+[https://www.youtube.com/embed/nCFTL4IO6t4](https://www.youtube.com/embed/nCFTL4IO6t4)
 
 Bruce begins a mini-tour of Spain with a show in Madrid.
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/sbxa6QBosCM?feature=oembed](https://www.youtube.com/embed/sbxa6QBosCM?feature=oembed)
+[https://www.youtube.com/embed/sbxa6QBosCM](https://www.youtube.com/embed/sbxa6QBosCM)
 
 Bruce receives the Polar Music Prize from King Carl XVI Gustaf of Sweden. The ceremony is broadcast live on Swedish TV, and you can watch it below.
 
 **1997:**<br>
 
-[https://www.youtube.com/embed/fCKMZC-5mD4?feature=oembed](https://www.youtube.com/embed/fCKMZC-5mD4?feature=oembed)
+[https://www.youtube.com/embed/fCKMZC-5mD4](https://www.youtube.com/embed/fCKMZC-5mD4)
 
-[https://www.youtube.com/embed/I7Q3J8kaQGE?feature=oembed](https://www.youtube.com/embed/I7Q3J8kaQGE?feature=oembed)
+[https://www.youtube.com/embed/I7Q3J8kaQGE](https://www.youtube.com/embed/I7Q3J8kaQGE)
 
-[https://www.youtube.com/embed/RiWk31Q9lxs?feature=oembed](https://www.youtube.com/embed/RiWk31Q9lxs?feature=oembed)
+[https://www.youtube.com/embed/RiWk31Q9lxs](https://www.youtube.com/embed/RiWk31Q9lxs)
 
-[https://www.youtube.com/embed/KphvQowUOaM?feature=oembed](https://www.youtube.com/embed/KphvQowUOaM?feature=oembed)
+[https://www.youtube.com/embed/KphvQowUOaM](https://www.youtube.com/embed/KphvQowUOaM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1997-05-05-300x167.jpg?resize=758%2C422)
 
@@ -83,7 +83,7 @@ Bruce tour premieres "" and an acoustic arrangement of "" at his solo acoustic s
 
 **2005:** [Nebraska](http://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)[Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)[report](http://estreetshuffle.com/index.php/2018/05/05/where-the-band-was-oakland-may-5-2005/)*Where the Band Was*
 
-[https://www.youtube.com/embed/psFjDUQuviY?feature=oembed](https://www.youtube.com/embed/psFjDUQuviY?feature=oembed)
+[https://www.youtube.com/embed/psFjDUQuviY](https://www.youtube.com/embed/psFjDUQuviY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-05a.jpg?resize=758%2C366&amp;ssl=1)
 
@@ -93,7 +93,7 @@ The first European leg of the Seeger Sessions Tour kicks off at the Point Theate
 
 **2006:** [Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)[Erie Canal](https://estreetshuffle.com/index.php/2019/11/02/cover-me-erie-canal/)
 
-[https://videopress.com/embed/kPchYwxD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kPchYwxD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/kPchYwxD](https://videopress.com/embed/kPchYwxD)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Independent_Sat__May_6__2006_.jpg?resize=758%2C347&amp;ssl=1)
 
@@ -101,7 +101,7 @@ Bruce plays his fourth show in four days, as the Working on a Dream Tour rolls i
 
 **2009:** [You Really Got Me](https://estreetshuffle.com/index.php/2020/12/01/cover-me-you-really-got-me/)[Gypsy Biker](http://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)
 
-[https://www.youtube.com/embed/-MMryww4Ae8?feature=oembed](https://www.youtube.com/embed/-MMryww4Ae8?feature=oembed)
+[https://www.youtube.com/embed/-MMryww4Ae8](https://www.youtube.com/embed/-MMryww4Ae8)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -119,14 +119,14 @@ Bruce kicks off a three-night stand in Dublin without any tour premieres, the fi
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/GqK9Q3Dq5B8?feature=oembed](https://www.youtube.com/embed/GqK9Q3Dq5B8?feature=oembed)
+[https://www.youtube.com/embed/GqK9Q3Dq5B8](https://www.youtube.com/embed/GqK9Q3Dq5B8)
 
 Bruce and the E Street Band kick off the European leg of their World Tour with the tour debut of "So Young and In Love" at Principality Stadium in Cardiff. Also tour premiering tonight by request: "."
 
 **2024:** [Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)
 
-[https://www.youtube.com/embed/n9vqhvbzgKw?feature=oembed](https://www.youtube.com/embed/n9vqhvbzgKw?feature=oembed)
+[https://www.youtube.com/embed/n9vqhvbzgKw](https://www.youtube.com/embed/n9vqhvbzgKw)
 
-[https://www.youtube.com/embed/8I6a1Ly1JmA?feature=oembed](https://www.youtube.com/embed/8I6a1Ly1JmA?feature=oembed)
+[https://www.youtube.com/embed/8I6a1Ly1JmA](https://www.youtube.com/embed/8I6a1Ly1JmA)
 
-[https://www.youtube.com/embed/RfvlZUX-rx4?feature=oembed](https://www.youtube.com/embed/RfvlZUX-rx4?feature=oembed)
+[https://www.youtube.com/embed/RfvlZUX-rx4](https://www.youtube.com/embed/RfvlZUX-rx4)

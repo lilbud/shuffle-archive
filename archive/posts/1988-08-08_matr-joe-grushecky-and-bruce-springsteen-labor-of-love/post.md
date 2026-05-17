@@ -14,7 +14,7 @@ Appearing on vinyl and CD more than four years before Bruce debuted his own song
 
 Bruce made on-stage appearances with Joe and The Houserockers on "Labor of Love" too, nightly throughout Joe's 1995 October Assault mini-tour in support of the new album–including an appearance at Tramps in New York City, presented in soundboard quality below.
 
-[https://videopress.com/embed/GNQEIU6t?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GNQEIU6t?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/GNQEIU6t](https://videopress.com/embed/GNQEIU6t)
 
 Unfortunately, despite their many and frequent on-stage team-ups year after year after year, it's been more than quarter-century since Bruce has joined Joe on "Labor of Love."
 

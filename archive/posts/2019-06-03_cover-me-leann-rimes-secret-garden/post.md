@@ -7,4 +7,4 @@ Four years after she said those words to an interviewer, LeAnn Rimes showed us t
 
 There's nothing else that needs to be said about her sublime performance, except: she obviously truly understands the song's lyrics and the sadness that's the source of its beauty.
 
-[https://www.youtube.com/embed/AzqEz5gBUQw?feature=oembed](https://www.youtube.com/embed/AzqEz5gBUQw?feature=oembed)
+[https://www.youtube.com/embed/AzqEz5gBUQw](https://www.youtube.com/embed/AzqEz5gBUQw)

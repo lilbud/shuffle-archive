@@ -5,11 +5,11 @@ Among the tracks performed that night: Woody's "I've Got to Know," featuring con
 
 This is the only time Bruce is known to have performed this song.
 
-[https://www.youtube.com/embed/0G8dDlLkG7c?feature=oembed](https://www.youtube.com/embed/0G8dDlLkG7c?feature=oembed)
+[https://www.youtube.com/embed/0G8dDlLkG7c](https://www.youtube.com/embed/0G8dDlLkG7c)
 
 Here's the original for comparison:
 
-[https://www.youtube.com/embed/A_f1nlorvU0?feature=oembed](https://www.youtube.com/embed/A_f1nlorvU0?feature=oembed)
+[https://www.youtube.com/embed/A_f1nlorvU0](https://www.youtube.com/embed/A_f1nlorvU0)
 
 September 29, 1996 (Cleveland, OH)
 September 29, 1996 (Cleveland, OH)

@@ -17,11 +17,11 @@ Eddie Floyd guest-stars on "Raise Your Hand," and "Knock on Wood" (Floyd's great
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/mbXCfpYZwIk?feature=oembed](https://www.youtube.com/embed/mbXCfpYZwIk?feature=oembed)
+[https://www.youtube.com/embed/mbXCfpYZwIk](https://www.youtube.com/embed/mbXCfpYZwIk)
 
-[https://www.youtube.com/embed/7GSkTZ9P4lw?feature=oembed](https://www.youtube.com/embed/7GSkTZ9P4lw?feature=oembed)
+[https://www.youtube.com/embed/7GSkTZ9P4lw](https://www.youtube.com/embed/7GSkTZ9P4lw)
 
-[https://www.youtube.com/embed/irKEx_arMWA?feature=oembed](https://www.youtube.com/embed/irKEx_arMWA?feature=oembed)
+[https://www.youtube.com/embed/irKEx_arMWA](https://www.youtube.com/embed/irKEx_arMWA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Memphis_Press_Scimitar_Fri__Apr_30__1976_-scaled.jpg?resize=758%2C929&amp;ssl=1)
 
@@ -29,19 +29,19 @@ At Clover Studios in Los Angeles, mixing work is completed for "Fade Away."
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/WP9PHwClSfE?feature=oembed](https://www.youtube.com/embed/WP9PHwClSfE?feature=oembed)
+[https://www.youtube.com/embed/WP9PHwClSfE](https://www.youtube.com/embed/WP9PHwClSfE)
 
 At Night Two at the Sportpaleis Ahoy in Rotterdam, Bruce opens with the premiere of Creedence Clearwater Revival's "Run Through the Jungle," rearranged and with new lyrics.
 
 **1981:**<br>
 
-[https://www.youtube.com/embed/3XZjhZWbB34?feature=oembed](https://www.youtube.com/embed/3XZjhZWbB34?feature=oembed)
+[https://www.youtube.com/embed/3XZjhZWbB34](https://www.youtube.com/embed/3XZjhZWbB34)
 
-[https://www.youtube.com/embed/yN9Y07aDAKI?feature=oembed](https://www.youtube.com/embed/yN9Y07aDAKI?feature=oembed)
+[https://www.youtube.com/embed/yN9Y07aDAKI](https://www.youtube.com/embed/yN9Y07aDAKI)
 
 Later in the show, Bruce performs "Racing in the Street," but something moves him to do something unusual during the song's majestic coda.
 
-[https://videopress.com/embed/wpKaZCbf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wpKaZCbf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wpKaZCbf](https://videopress.com/embed/wpKaZCbf)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_New_Standard_Tue__May_5__1981_.jpg?resize=758%2C831&amp;ssl=1)
 
@@ -57,9 +57,9 @@ At the Count Basie Theater in Red Bank, Bruce performs at , a benefit for Bobby 
 
 **2003:** *The Hope Concert*
 
-[https://videopress.com/embed/mg0oCgf7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mg0oCgf7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/mg0oCgf7](https://videopress.com/embed/mg0oCgf7)
 
-[https://videopress.com/embed/Ga6Verkm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ga6Verkm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Ga6Verkm](https://videopress.com/embed/Ga6Verkm)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2003-04-29a.jpg?resize=758%2C891&amp;ssl=1)
 
@@ -73,15 +73,15 @@ Night Two at the Spectrum in Philadelphia brought with it the tour premieres of 
 
 **2009:**<br>
 
-[https://videopress.com/embed/PrRDgKjw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PrRDgKjw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PrRDgKjw](https://videopress.com/embed/PrRDgKjw)
 
-[https://videopress.com/embed/PAT6I6NT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PAT6I6NT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PAT6I6NT](https://videopress.com/embed/PAT6I6NT)
 
-[https://videopress.com/embed/x7PFpbRt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/x7PFpbRt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/x7PFpbRt](https://videopress.com/embed/x7PFpbRt)
 
-[https://videopress.com/embed/1ospUpnN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1ospUpnN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1ospUpnN](https://videopress.com/embed/1ospUpnN)
 
-[https://www.youtube.com/embed/FRKaQL9_sog?feature=oembed](https://www.youtube.com/embed/FRKaQL9_sog?feature=oembed)
+[https://www.youtube.com/embed/FRKaQL9_sog](https://www.youtube.com/embed/FRKaQL9_sog)
 
 [https://www.youtube.com/embed/pSqmdReVPwA?list=PLJTyL9twk3zDy25eKtpT60mOXtdC3UYhR](https://www.youtube.com/embed/pSqmdReVPwA?list=PLJTyL9twk3zDy25eKtpT60mOXtdC3UYhR)
 
@@ -91,15 +91,15 @@ Bruce makes a return trip to New Orleans Jazzfest and to Seeger Sessions set lis
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/eCM2ykqSCXc?feature=oembed](https://www.youtube.com/embed/eCM2ykqSCXc?feature=oembed)
+[https://www.youtube.com/embed/eCM2ykqSCXc](https://www.youtube.com/embed/eCM2ykqSCXc)
 
-[https://www.youtube.com/embed/Uz1gTIrrt4Q?feature=oembed](https://www.youtube.com/embed/Uz1gTIrrt4Q?feature=oembed)
+[https://www.youtube.com/embed/Uz1gTIrrt4Q](https://www.youtube.com/embed/Uz1gTIrrt4Q)
 
-[https://www.youtube.com/embed/bFm8pWOoPRI?feature=oembed](https://www.youtube.com/embed/bFm8pWOoPRI?feature=oembed)
+[https://www.youtube.com/embed/bFm8pWOoPRI](https://www.youtube.com/embed/bFm8pWOoPRI)
 
-[https://www.youtube.com/embed/eN12w6Knvbw?feature=oembed](https://www.youtube.com/embed/eN12w6Knvbw?feature=oembed)
+[https://www.youtube.com/embed/eN12w6Knvbw](https://www.youtube.com/embed/eN12w6Knvbw)
 
-[https://www.youtube.com/embed/elRm2HRX2Bk?feature=oembed](https://www.youtube.com/embed/elRm2HRX2Bk?feature=oembed)
+[https://www.youtube.com/embed/elRm2HRX2Bk](https://www.youtube.com/embed/elRm2HRX2Bk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2012-04-29.jpg?resize=515%2C960&amp;ssl=1)
 
@@ -107,28 +107,28 @@ The European leg of the Wrecking Ball Tour kicks off in Oslo with a stunning aco
 
 **2013:**<br>
 
-[https://www.youtube.com/embed/h-xSurGojKw?feature=oembed](https://www.youtube.com/embed/h-xSurGojKw?feature=oembed)
+[https://www.youtube.com/embed/h-xSurGojKw](https://www.youtube.com/embed/h-xSurGojKw)
 
-[https://www.youtube.com/embed/-WAs1MpFeCI?feature=oembed](https://www.youtube.com/embed/-WAs1MpFeCI?feature=oembed)
+[https://www.youtube.com/embed/-WAs1MpFeCI](https://www.youtube.com/embed/-WAs1MpFeCI)
 
-[https://www.youtube.com/embed/0gWRgJ1RHkE?feature=oembed](https://www.youtube.com/embed/0gWRgJ1RHkE?feature=oembed)
+[https://www.youtube.com/embed/0gWRgJ1RHkE](https://www.youtube.com/embed/0gWRgJ1RHkE)
 
-[https://www.youtube.com/embed/X2pDZlN60-w?feature=oembed](https://www.youtube.com/embed/X2pDZlN60-w?feature=oembed)
+[https://www.youtube.com/embed/X2pDZlN60-w](https://www.youtube.com/embed/X2pDZlN60-w)
 
-[https://www.youtube.com/embed/yyxvs9yOUAg?feature=oembed](https://www.youtube.com/embed/yyxvs9yOUAg?feature=oembed)
+[https://www.youtube.com/embed/yyxvs9yOUAg](https://www.youtube.com/embed/yyxvs9yOUAg)
 
 Fans at the BB&T Center in Sunrise, Florida, get a four-pack of back-to-back tour premieres: "I Wanna Marry You," "Linda Let Me Be the One," "Boom Boom," and "Hearts of Stone." In the pit tonight: Pat Riley and Michael Douglas.
 
 **2014:**<br>
 
-[https://www.youtube.com/embed/GqRN7N7lH8o?feature=oembed](https://www.youtube.com/embed/GqRN7N7lH8o?feature=oembed)
+[https://www.youtube.com/embed/GqRN7N7lH8o](https://www.youtube.com/embed/GqRN7N7lH8o)
 
-[https://www.youtube.com/embed/6KkPFlmFbzc?feature=oembed](https://www.youtube.com/embed/6KkPFlmFbzc?feature=oembed)
+[https://www.youtube.com/embed/6KkPFlmFbzc](https://www.youtube.com/embed/6KkPFlmFbzc)
 
-[https://www.youtube.com/embed/J12DaVxOzzM?feature=oembed](https://www.youtube.com/embed/J12DaVxOzzM?feature=oembed)
+[https://www.youtube.com/embed/J12DaVxOzzM](https://www.youtube.com/embed/J12DaVxOzzM)
 
-[https://www.youtube.com/embed/IhTJ2L2h12Q?feature=oembed](https://www.youtube.com/embed/IhTJ2L2h12Q?feature=oembed)
+[https://www.youtube.com/embed/IhTJ2L2h12Q](https://www.youtube.com/embed/IhTJ2L2h12Q)
 
-[https://www.youtube.com/embed/1vJ61CZoJlk?feature=oembed](https://www.youtube.com/embed/1vJ61CZoJlk?feature=oembed)
+[https://www.youtube.com/embed/1vJ61CZoJlk](https://www.youtube.com/embed/1vJ61CZoJlk)
 
-[https://www.youtube.com/embed/AtvLbvV5Xjs?feature=oembed](https://www.youtube.com/embed/AtvLbvV5Xjs?feature=oembed)
+[https://www.youtube.com/embed/AtvLbvV5Xjs](https://www.youtube.com/embed/AtvLbvV5Xjs)

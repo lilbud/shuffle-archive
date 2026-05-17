@@ -9,7 +9,7 @@ When the quintet charted with their 1966 hit, it was their fourth #1 on the US R
 
 Here's a man who know he done messed up and is willing to do anything to put it right–pride be damned.
 
-[https://www.youtube.com/embed/3s0TkufXA38?feature=oembed](https://www.youtube.com/embed/3s0TkufXA38?feature=oembed)
+[https://www.youtube.com/embed/3s0TkufXA38](https://www.youtube.com/embed/3s0TkufXA38)
 
 "Ain't Too Proud to Beg" almost certainly struck a chord with Bruce, as he's mined similar lyrical territory over the years, from "" to "" to "."
 
@@ -17,13 +17,13 @@ Here's a man who know he done messed up and is willing to do anything to put it 
 
 Bruce first covered the Motown hit back on the Born to Run tour, in Detroit (appropriately), October 4, 1975.
 
-[https://www.youtube.com/embed/lwV9dJ2yJMs?feature=oembed](https://www.youtube.com/embed/lwV9dJ2yJMs?feature=oembed)
+[https://www.youtube.com/embed/lwV9dJ2yJMs](https://www.youtube.com/embed/lwV9dJ2yJMs)
 
 If you haunted the New Jersey bar scene over the decades since, you might have caught one of the rare repeats performances since then.
 
 But if you hoped to catch it on an actual tour, you'd have to wait all the way until the Wrecking Ball Tour, where Bruce played it by request in Limerick, Ireland, on July 16, 2013. Bruce can be forgiven for not knowing when the band last played it–38 years is a long time to remember.
 
-[https://www.youtube.com/embed/wtwIatGvFP4?feature=oembed](https://www.youtube.com/embed/wtwIatGvFP4?feature=oembed)
+[https://www.youtube.com/embed/wtwIatGvFP4](https://www.youtube.com/embed/wtwIatGvFP4)
 
 October 4, 1975 (Detroit, MI)
 July 16, 2013 (Limerick, Ireland)

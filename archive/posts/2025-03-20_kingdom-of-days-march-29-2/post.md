@@ -33,9 +33,9 @@ Bruce opens with "" and pulls out the Magic tour premiere of "" and a very rare 
 
 **2008:** [Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)[report](http://estreetshuffle.com/index.php/2018/03/29/where-the-band-was-seattle-march-29-2008/)*Where the Band Was*
 
-[https://www.youtube.com/embed/RSl5Oe0oXIo?feature=oembed](https://www.youtube.com/embed/RSl5Oe0oXIo?feature=oembed)
+[https://www.youtube.com/embed/RSl5Oe0oXIo](https://www.youtube.com/embed/RSl5Oe0oXIo)
 
-[https://www.youtube.com/embed/JwVRaN26LBM?feature=oembed](https://www.youtube.com/embed/JwVRaN26LBM?feature=oembed)
+[https://www.youtube.com/embed/JwVRaN26LBM](https://www.youtube.com/embed/JwVRaN26LBM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2008-03-29.png?resize=758%2C1155&amp;ssl=1)
 
@@ -43,15 +43,15 @@ Night Two in Philadelphia features a rare (outside of Philly, anyway) "" and a g
 
 **2012:**[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)*Rolling Stone*, [an interview with him by Jon Stewart](https://www.rollingstone.com/music/music-news/bruce-springsteens-state-of-the-union-172644/)
 
-[https://www.youtube.com/embed/QimUtzbHEvg?feature=oembed](https://www.youtube.com/embed/QimUtzbHEvg?feature=oembed)
+[https://www.youtube.com/embed/QimUtzbHEvg](https://www.youtube.com/embed/QimUtzbHEvg)
 
-[https://www.youtube.com/embed/CZe0bvLn_nk?feature=oembed](https://www.youtube.com/embed/CZe0bvLn_nk?feature=oembed)
+[https://www.youtube.com/embed/CZe0bvLn_nk](https://www.youtube.com/embed/CZe0bvLn_nk)
 
-[https://www.youtube.com/embed/mfA0GQkHIUw?feature=oembed](https://www.youtube.com/embed/mfA0GQkHIUw?feature=oembed)
+[https://www.youtube.com/embed/mfA0GQkHIUw](https://www.youtube.com/embed/mfA0GQkHIUw)
 
-[https://videopress.com/embed/gej0C60o?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gej0C60o?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/gej0C60o](https://videopress.com/embed/gej0C60o)
 
-[https://videopress.com/embed/optZZp65?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/optZZp65?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/optZZp65](https://videopress.com/embed/optZZp65)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/RollingStone11-221x300.jpg?resize=758%2C1029)
 
@@ -69,9 +69,9 @@ Bruce and President Barack Obama release Episode 7 of their podcast, entitled "F
 
 **2023:** [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)
 
-[https://www.youtube.com/embed/ozJ7CrhBLKI?feature=oembed](https://www.youtube.com/embed/ozJ7CrhBLKI?feature=oembed)
+[https://www.youtube.com/embed/ozJ7CrhBLKI](https://www.youtube.com/embed/ozJ7CrhBLKI)
 
-[https://www.youtube.com/embed/7L-TbAde0e0?feature=oembed](https://www.youtube.com/embed/7L-TbAde0e0?feature=oembed)
+[https://www.youtube.com/embed/7L-TbAde0e0](https://www.youtube.com/embed/7L-TbAde0e0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Detroit_Free_Press_Fri__Mar_31__2023_-scaled.jpg?resize=758%2C1868&amp;ssl=1)
 

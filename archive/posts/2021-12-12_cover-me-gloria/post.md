@@ -3,17 +3,17 @@
 
 *not*[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
 
-[https://www.youtube.com/embed/fUKe6X-W0F4?feature=oembed](https://www.youtube.com/embed/fUKe6X-W0F4?feature=oembed)
+[https://www.youtube.com/embed/fUKe6X-W0F4](https://www.youtube.com/embed/fUKe6X-W0F4)
 
 Bruce may have bought the single on instinct, but as he says as above, "When that hit, once that hit, if you couldn't play it, you didn't get a gig."
 
 So play it they did. There are plenty of video clips to choose from, but I'm partial to this one from a few years ago–it's nice and close up, with great audio.
 
-[https://www.youtube.com/embed/C5aQz_6tC6U?feature=oembed](https://www.youtube.com/embed/C5aQz_6tC6U?feature=oembed)
+[https://www.youtube.com/embed/C5aQz_6tC6U](https://www.youtube.com/embed/C5aQz_6tC6U)
 
 Here's the original 1964 B-side(!) by Them.
 
-[https://www.youtube.com/embed/WkaMVLHxzWE?feature=oembed](https://www.youtube.com/embed/WkaMVLHxzWE?feature=oembed)
+[https://www.youtube.com/embed/WkaMVLHxzWE](https://www.youtube.com/embed/WkaMVLHxzWE)
 
 December 26, 1975 (New York City, NY)
 May 1, 2014 (Tampa, FL)

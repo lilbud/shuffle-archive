@@ -13,6 +13,6 @@ When Tracyanne Campbell sings it, though (or , or , or , who likewise bring new 
 
 [Shawn Colvin](http://estreetshuffle.com/index.php/2018/05/09/cover-me-shawn-colvin-tougher-than-the-rest/)[Tracey Thorn](http://estreetshuffle.com/index.php/2018/09/19/cover-me-everything-but-the-girl-tougher-than-the-rest/)[Martina Linn](http://estreetshuffle.com/index.php/2018/02/15/cover-me-martina-linn-tougher-than-the-rest/)*want*
 
-[https://www.youtube.com/embed/70he4zgJzoU?feature=oembed](https://www.youtube.com/embed/70he4zgJzoU?feature=oembed)
+[https://www.youtube.com/embed/70he4zgJzoU](https://www.youtube.com/embed/70he4zgJzoU)
 
 It's a beautiful cover by Traceyanne's band Camera Obscura, and you can find it on the B-side of their 2009 single, "The Sweetest Thing."

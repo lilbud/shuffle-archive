@@ -35,27 +35,27 @@ At the fourth of five nights at the Los Angeles Sports Arena, Bruce premieres ""
 
 **1988:** [Across the Borderline](https://estreetshuffle.com/index.php/2022/03/26/matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/)[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)*Chimes of Freedom**Video Anthology*
 
-[https://www.youtube.com/embed/_91hNV6vuBY?feature=oembed](https://www.youtube.com/embed/_91hNV6vuBY?feature=oembed)
+[https://www.youtube.com/embed/_91hNV6vuBY](https://www.youtube.com/embed/_91hNV6vuBY)
 
-[https://www.youtube.com/embed/dONEgrsYoOk?feature=oembed](https://www.youtube.com/embed/dONEgrsYoOk?feature=oembed)
+[https://www.youtube.com/embed/dONEgrsYoOk](https://www.youtube.com/embed/dONEgrsYoOk)
 
-[https://videopress.com/embed/r8cmoMkh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/r8cmoMkh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/r8cmoMkh](https://videopress.com/embed/r8cmoMkh)
 
 At the second of two shows at Royal Albert Hall, Bruce opens with "" for the first and only time, before segueing seamlessly (if awkwardly) into "." Played twice before in New Jersey four years prior, "Pony Boy" hasn't been heard from since.
 
 **1996:** [Pony Boy](http://estreetshuffle.com/index.php/2019/03/01/roll-of-the-dice-cover-me-pony-boy/)[The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)
 
-[https://videopress.com/embed/Ty8xxuZl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ty8xxuZl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Ty8xxuZl](https://videopress.com/embed/Ty8xxuZl)
 
 At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bobcats Arena enjoy the tour premieres of "" (the show opener) and ","
 
 **2008:** [Souls of the Departed](http://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)[Wild Billy's Circus Story](http://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)
 
-[https://www.youtube.com/embed/nHlzZofJQwQ?feature=oembed](https://www.youtube.com/embed/nHlzZofJQwQ?feature=oembed)
+[https://www.youtube.com/embed/nHlzZofJQwQ](https://www.youtube.com/embed/nHlzZofJQwQ)
 
-[https://videopress.com/embed/YELHaaky?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YELHaaky?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/YELHaaky](https://videopress.com/embed/YELHaaky)
 
-[https://videopress.com/embed/zqt0avd3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/zqt0avd3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/zqt0avd3](https://videopress.com/embed/zqt0avd3)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-27.jpg?resize=758%2C1864&amp;ssl=1)
 
@@ -71,15 +71,15 @@ At night two in Los Angeles, Bruce surprises early arrivals by walking out on st
 
 **2012:** [For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Waitin' on a Sunny Day](http://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)[Where the Band Was report](http://estreetshuffle.com/index.php/2018/04/27/where-the-band-was-los-angeles-april-27-2012/)
 
-[https://www.youtube.com/embed/I46gjoZQtws?feature=oembed](https://www.youtube.com/embed/I46gjoZQtws?feature=oembed)
+[https://www.youtube.com/embed/I46gjoZQtws](https://www.youtube.com/embed/I46gjoZQtws)
 
-[https://www.youtube.com/embed/UTtlHPJRsQU?feature=oembed](https://www.youtube.com/embed/UTtlHPJRsQU?feature=oembed)
+[https://www.youtube.com/embed/UTtlHPJRsQU](https://www.youtube.com/embed/UTtlHPJRsQU)
 
-[https://www.youtube.com/embed/vrJHvpldjX4?feature=oembed](https://www.youtube.com/embed/vrJHvpldjX4?feature=oembed)
+[https://www.youtube.com/embed/vrJHvpldjX4](https://www.youtube.com/embed/vrJHvpldjX4)
 
-[https://www.youtube.com/embed/gmp6OH15jaM?feature=oembed](https://www.youtube.com/embed/gmp6OH15jaM?feature=oembed)
+[https://www.youtube.com/embed/gmp6OH15jaM](https://www.youtube.com/embed/gmp6OH15jaM)
 
-[https://www.youtube.com/embed/IKMUqp4jzpA?feature=oembed](https://www.youtube.com/embed/IKMUqp4jzpA?feature=oembed)
+[https://www.youtube.com/embed/IKMUqp4jzpA](https://www.youtube.com/embed/IKMUqp4jzpA)
 
 The E Street Band (minus Bruce) rehearses for the next leg of the Wrecking Ball Tour at Nordisk Film Studios in Oslo.
 

@@ -5,7 +5,7 @@ Originally released in September 1960, "New Orleans" was credited to simply "U.S
 
 He might have been right, but the trickery was unnecessary: the song was a hit, peaking at #6 in the U.S. and #16 in the U.K., and it made Bonds a star. He'd never drop the stage surname, but he'd at least start using his real first name the following year.
 
-[https://www.youtube.com/embed/J9Ib8sC_wX8?feature=oembed](https://www.youtube.com/embed/J9Ib8sC_wX8?feature=oembed)
+[https://www.youtube.com/embed/J9Ib8sC_wX8](https://www.youtube.com/embed/J9Ib8sC_wX8)
 
 By the spring of 1976, Bruce had already been covering Bonds on a regular basis, with "" as a standard encore. But on the night of May 13th, Bruce changed it up, swapping out Bonds' greatest hit for the less popular "New Orleans."
 
@@ -17,7 +17,7 @@ Even if it was a local pander, it was still an inspired choice. Check out the au
 
 [Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
-[https://videopress.com/embed/4qUW1K7w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4qUW1K7w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4qUW1K7w](https://videopress.com/embed/4qUW1K7w)
 
 Bruce went on to cover "New Orleans" four more times over the years, all at small clubs. It's been thirty years since the last time he played it, but a well-placed sign on the next tour could change that in a heartbeat.
 

@@ -9,7 +9,7 @@ Check out their clever cover mash-up of "" with "I Wanna Dance With Somebody." N
 
 [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://www.youtube.com/embed/_eTxdpFlKv0?feature=oembed](https://www.youtube.com/embed/_eTxdpFlKv0?feature=oembed)
+[https://www.youtube.com/embed/_eTxdpFlKv0](https://www.youtube.com/embed/_eTxdpFlKv0)
 
 Michael has some great covers over at his YouTube channel–check them out .
 

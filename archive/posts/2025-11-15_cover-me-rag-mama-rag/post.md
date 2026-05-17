@@ -3,7 +3,7 @@ In retrospect, we probably should have expected it.
 
 Bruce once described the Sessions Band as a band that rolls rather than rocks, and that's also a perfect descriptor for The Band's 1970 single, "Rag Mama Rag."
 
-[https://www.youtube.com/embed/oHy_XeBMagU?feature=oembed](https://www.youtube.com/embed/oHy_XeBMagU?feature=oembed)
+[https://www.youtube.com/embed/oHy_XeBMagU](https://www.youtube.com/embed/oHy_XeBMagU)
 
 If the original feels a bit loose, that's largely because the musicians swapped places to make it feel that way, with Levon Helm moving from drums to mandolin, Richard Manuel moving from piano to drums, and Garth Hudson moving from organ to piano. Rick Danko contributed the fiddle, and producer John Simon the all-important tuba.
 
@@ -17,7 +17,7 @@ The band went on to nail it, though, and over the course of the tour it became a
 
 From its penultimate performance in Verona on October 5, 2006, here's one of the best outings for "Rag Mama Rag" by Bruce Springsteen and the Sessions Band.
 
-[https://videopress.com/embed/Ojm2IHfL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ojm2IHfL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Ojm2IHfL](https://videopress.com/embed/Ojm2IHfL)
 
 May 30, 2006 (Columbus, OH)
 October 8, 2006 (Caserta, Italy)

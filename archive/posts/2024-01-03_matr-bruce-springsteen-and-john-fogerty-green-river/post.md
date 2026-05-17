@@ -7,13 +7,13 @@ Bruce's set lists have featured covers of John Fogerty's songs for decades. "," 
 
 When CCR released "Green River" as the title track to their 1969 album, they captured imaginations with their bayou-flavored rocker, which peaked just shy of the top slot for a week that summer.
 
-[https://www.youtube.com/embed/L5V9nK7-OkM?feature=oembed](https://www.youtube.com/embed/L5V9nK7-OkM?feature=oembed)
+[https://www.youtube.com/embed/L5V9nK7-OkM](https://www.youtube.com/embed/L5V9nK7-OkM)
 
 Despite its popularity, Bruce had never covered it in concert. Perhaps that's because he was waiting to perform it with the songwriter himself.
 
 He first got that opportunity at the Rock and Roll Hall of Fame's 1993 induction ceremony, when Creedence Clearwater Revival joined the Hall's pantheon. Choosing to perform without CCR behind him, Fogerty assembled a backing band that included Robbie Robertson, Don Was, and Bruce Springsteen on backing vocals and guitar.
 
-[https://www.youtube.com/embed/8wbsWOsM9qs?feature=oembed](https://www.youtube.com/embed/8wbsWOsM9qs?feature=oembed)
+[https://www.youtube.com/embed/8wbsWOsM9qs](https://www.youtube.com/embed/8wbsWOsM9qs)
 
 It wasn't much of a team-up, though. The focus was squarely on Fogerty, Bruce can be heard and seen only fleetingly, and the vibe was more than a little awkward due to the noticeable absence of the band being inducted.
 
@@ -27,7 +27,7 @@ But like I said at the top: the third time's the charm.
 
 In 2014, at Bruce's third appearance at the New Orleans Jazz Festival, the stars finally aligned. Fogerty joined Bruce and the E Street Band on stage (along with fellow special guest Rickie Lee Jones) for a venue-appropriate smoking performance of "Green River"– and this time Bruce and John shared lead vocals and a guitar duel.
 
-[https://www.youtube.com/embed/wiH1MXrcWaA?feature=oembed](https://www.youtube.com/embed/wiH1MXrcWaA?feature=oembed)
+[https://www.youtube.com/embed/wiH1MXrcWaA](https://www.youtube.com/embed/wiH1MXrcWaA)
 
 That was actually the eighth time Bruce had played "Green River" in concert, but it was the first time on a proper concert stage. It might have taken him four decades to get there, but that first E Street Band/Fogerty team-up on "Green River" was worth the wait.
 

@@ -27,13 +27,13 @@ Bruce and the boys play their third of three nights at Arizona State University 
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/Hw5kxpUbCNw?feature=oembed](https://www.youtube.com/embed/Hw5kxpUbCNw?feature=oembed)
+[https://www.youtube.com/embed/Hw5kxpUbCNw](https://www.youtube.com/embed/Hw5kxpUbCNw)
 
 With the Palladium shows behind him Bruce takes a break from touring for the rest of the year. With time on his hands, Bruce heads into the city to visit DJ Richard Neer at New York's WNEW-FM. The two have an on-the-air chat interspersed with records that Bruce selects for airplay. I've uploaded the interview but removed the in-between songs, so it might seem a little choppy at times. Take a listen below.
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/Q3KWGnZ_Nas?feature=oembed](https://www.youtube.com/embed/Q3KWGnZ_Nas?feature=oembed)
+[https://www.youtube.com/embed/Q3KWGnZ_Nas](https://www.youtube.com/embed/Q3KWGnZ_Nas)
 
 Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for "."
 
@@ -43,7 +43,7 @@ Bruce joins The Fabulous Grease Band on stage at a concert at Rumson Country Day
 
 **1987:**<br>
 
-[https://www.youtube.com/embed/PQ5WeAOVDQI?feature=oembed](https://www.youtube.com/embed/PQ5WeAOVDQI?feature=oembed)
+[https://www.youtube.com/embed/PQ5WeAOVDQI](https://www.youtube.com/embed/PQ5WeAOVDQI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1987-11-06-300x300.png?resize=758%2C758)
 
@@ -51,13 +51,13 @@ Bruce and his new touring band play their second of two nights at the Toronto Sk
 
 **1992:** [Spirit in the Night](http://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)
 
-[https://www.youtube.com/embed/lwaQu6w9mWE?feature=oembed](https://www.youtube.com/embed/lwaQu6w9mWE?feature=oembed)
+[https://www.youtube.com/embed/lwaQu6w9mWE](https://www.youtube.com/embed/lwaQu6w9mWE)
 
 Bruce plays his first-ever show in North Dakota, where "" makes its U.S. Reunion Tour premiere.
 
 **1999:** [My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
 
-[https://www.youtube.com/embed/mm3dke6edD4?feature=oembed](https://www.youtube.com/embed/mm3dke6edD4?feature=oembed)
+[https://www.youtube.com/embed/mm3dke6edD4](https://www.youtube.com/embed/mm3dke6edD4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Forum_1999_11_07_1.jpg?resize=758%2C721&amp;ssl=1)
 
@@ -85,9 +85,9 @@ Bruce joins Joe Grushecky and The Houserockers on stage for the fifth consecutiv
 
 [https://www.youtube.com/embed/gmoqu90hG24?list=PLnbVaK2f4raiZ61aK4m5x4seqMIHpMqks](https://www.youtube.com/embed/gmoqu90hG24?list=PLnbVaK2f4raiZ61aK4m5x4seqMIHpMqks)
 
-[https://www.youtube.com/embed/XG592Qj5izg?feature=oembed](https://www.youtube.com/embed/XG592Qj5izg?feature=oembed)
+[https://www.youtube.com/embed/XG592Qj5izg](https://www.youtube.com/embed/XG592Qj5izg)
 
-[https://videopress.com/embed/B7UmGbQX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/B7UmGbQX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/B7UmGbQX](https://videopress.com/embed/B7UmGbQX)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2004-11-06-245x300.png?resize=758%2C928)
 
@@ -95,13 +95,13 @@ The Seeger Sessions Tour arrives in Cologne, where Wolfgang Niedecken joins in t
 
 **2006:** [Pay Me My Money Down](http://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)
 
-[https://videopress.com/embed/cBIpRIw1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cBIpRIw1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cBIpRIw1](https://videopress.com/embed/cBIpRIw1)
 
-[https://videopress.com/embed/Qd16f1BA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Qd16f1BA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Qd16f1BA](https://videopress.com/embed/Qd16f1BA)
 
-[https://www.youtube.com/embed/bGER6ZMGRo8?feature=oembed](https://www.youtube.com/embed/bGER6ZMGRo8?feature=oembed)
+[https://www.youtube.com/embed/bGER6ZMGRo8](https://www.youtube.com/embed/bGER6ZMGRo8)
 
-[https://www.youtube.com/embed/06EUypO4jbQ?feature=oembed](https://www.youtube.com/embed/06EUypO4jbQ?feature=oembed)
+[https://www.youtube.com/embed/06EUypO4jbQ](https://www.youtube.com/embed/06EUypO4jbQ)
 
 is certified platinum by the Recording Industry Association of America, barely a month after its original release.
 
@@ -113,26 +113,26 @@ Bruce supports Stand Up for Heroes VII, now at New York's Madison Square Garden,
 
 **2013:**<br>
 
-[https://www.youtube.com/embed/98zmzIVTNP4?feature=oembed](https://www.youtube.com/embed/98zmzIVTNP4?feature=oembed)
+[https://www.youtube.com/embed/98zmzIVTNP4](https://www.youtube.com/embed/98zmzIVTNP4)
 
-[https://www.youtube.com/embed/wne7e32D1qI?feature=oembed](https://www.youtube.com/embed/wne7e32D1qI?feature=oembed)
+[https://www.youtube.com/embed/wne7e32D1qI](https://www.youtube.com/embed/wne7e32D1qI)
 
-[https://www.youtube.com/embed/rWad2yy2W2o?feature=oembed](https://www.youtube.com/embed/rWad2yy2W2o?feature=oembed)
+[https://www.youtube.com/embed/rWad2yy2W2o](https://www.youtube.com/embed/rWad2yy2W2o)
 
-[https://www.youtube.com/embed/XHJL_nI5yoM?feature=oembed](https://www.youtube.com/embed/XHJL_nI5yoM?feature=oembed)
+[https://www.youtube.com/embed/XHJL_nI5yoM](https://www.youtube.com/embed/XHJL_nI5yoM)
 
 Bruce's scheduled show in Edmonton is postponed to more than a year later due to his peptic ulcer disease. However, he's well enough to make a surprise (yet customary) appearance at Stand Up for Heroes in New York City, dueting with John Mellencamp on "Wasted Days" and playing four songs of his own, including the live premiere of "Addicted to Romance."
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/5ueXcp0p_Fs?feature=oembed](https://www.youtube.com/embed/5ueXcp0p_Fs?feature=oembed)
+[https://www.youtube.com/embed/5ueXcp0p_Fs](https://www.youtube.com/embed/5ueXcp0p_Fs)
 
-[https://www.youtube.com/embed/x9yF9JoECbk?feature=oembed](https://www.youtube.com/embed/x9yF9JoECbk?feature=oembed)
+[https://www.youtube.com/embed/x9yF9JoECbk](https://www.youtube.com/embed/x9yF9JoECbk)
 
-[https://www.youtube.com/embed/oVySuoipOSU?feature=oembed](https://www.youtube.com/embed/oVySuoipOSU?feature=oembed)
+[https://www.youtube.com/embed/oVySuoipOSU](https://www.youtube.com/embed/oVySuoipOSU)
 
 On a tragic U.S. Election Day, Bruce opens his show in Toronto with defiant performances of "" and "."
 
 **2024:** [Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)
 
-[https://www.youtube.com/embed/AGOle36ZEaI?feature=oembed](https://www.youtube.com/embed/AGOle36ZEaI?feature=oembed)
+[https://www.youtube.com/embed/AGOle36ZEaI](https://www.youtube.com/embed/AGOle36ZEaI)

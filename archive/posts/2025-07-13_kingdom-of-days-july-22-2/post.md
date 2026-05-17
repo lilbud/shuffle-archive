@@ -17,7 +17,7 @@ It's Night Two on the Born to Run Tour, and the band continues developing the sh
 
 **1975:** [She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)[Needles and Pins](http://estreetshuffle.com/index.php/2019/02/27/cover-me-needles-and-pins/)[You Really Got Me](https://estreetshuffle.com/index.php/2020/12/01/cover-me-you-really-got-me/)
 
-[https://www.youtube.com/embed/zaANhuBBSzc?feature=oembed](https://www.youtube.com/embed/zaANhuBBSzc?feature=oembed)
+[https://www.youtube.com/embed/zaANhuBBSzc](https://www.youtube.com/embed/zaANhuBBSzc)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3>
 
@@ -53,9 +53,9 @@ Bruce makes a surprise appearance at Tradewinds in Sea Bright with Joe Grushecky
 
 **1995:** [](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*American Babylon*
 
-[https://videopress.com/embed/0qtUKoWP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0qtUKoWP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0qtUKoWP](https://videopress.com/embed/0qtUKoWP)
 
-[https://videopress.com/embed/ajyjMPPt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ajyjMPPt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ajyjMPPt](https://videopress.com/embed/ajyjMPPt)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1995-0722-300x165.jpg?resize=742%2C408)
 
@@ -77,12 +77,12 @@ On the one year anniversary of the Norway attacks, Bruce and Steve play "" at th
 
 **2012:** [We Shall Overcome](http://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)
 
-[https://www.youtube.com/embed/LTrgNSlCkKY?feature=oembed](https://www.youtube.com/embed/LTrgNSlCkKY?feature=oembed)
+[https://www.youtube.com/embed/LTrgNSlCkKY](https://www.youtube.com/embed/LTrgNSlCkKY)
 
 Director Baillie Walsh and producer Ridley Scott release , a documentary about the relationship between Bruce and his fans. The film airs in more than 2,000 theaters in over fifty countries.
 
 **2013:** *Springsteen & I*
 
-[https://www.youtube.com/embed/HVQUeCi9V0s?feature=oembed](https://www.youtube.com/embed/HVQUeCi9V0s?feature=oembed)
+[https://www.youtube.com/embed/HVQUeCi9V0s](https://www.youtube.com/embed/HVQUeCi9V0s)
 
-[https://www.youtube.com/embed/7j3cXGr1Ono?feature=oembed](https://www.youtube.com/embed/7j3cXGr1Ono?feature=oembed)
+[https://www.youtube.com/embed/7j3cXGr1Ono](https://www.youtube.com/embed/7j3cXGr1Ono)

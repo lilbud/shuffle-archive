@@ -21,29 +21,29 @@ With the band on break while Bruce and Julianne honeymoon, Clarence appears on .
 
 **1985:** *Late Night with David Letterman*
 
-[https://www.youtube.com/embed/5bIj5yIHnlI?feature=oembed](https://www.youtube.com/embed/5bIj5yIHnlI?feature=oembed)
+[https://www.youtube.com/embed/5bIj5yIHnlI](https://www.youtube.com/embed/5bIj5yIHnlI)
 
 Bruce rehearses with his new band for their upcoming tour. After the rehearsal, Bruce sits down with David Hepworth for an interview that was published in the August 1992 issue of . You can read that interview .
 
 **1992:** *Q Magazine*[here](https://www.greasylake.org/v6/display_article.php?category=interview&Id=14&headline=Springsteen+-+The+Q+Interview&publication=Q&concert_date=&release_title=)
 
-[https://www.youtube.com/embed/yX9TrkY3IKo?feature=oembed](https://www.youtube.com/embed/yX9TrkY3IKo?feature=oembed)
+[https://www.youtube.com/embed/yX9TrkY3IKo](https://www.youtube.com/embed/yX9TrkY3IKo)
 
 : The marathon Ghost of Tom Joad Tour enters its last week with a show at Teatro Verdi in Florence.
 
 **1997**<br>
 
-[https://www.youtube.com/embed/K7U2VN19AYo?feature=oembed](https://www.youtube.com/embed/K7U2VN19AYo?feature=oembed)
+[https://www.youtube.com/embed/K7U2VN19AYo](https://www.youtube.com/embed/K7U2VN19AYo)
 
-[https://www.youtube.com/embed/L-LkQyWCdX4?feature=oembed](https://www.youtube.com/embed/L-LkQyWCdX4?feature=oembed)
+[https://www.youtube.com/embed/L-LkQyWCdX4](https://www.youtube.com/embed/L-LkQyWCdX4)
 
-[https://www.youtube.com/embed/D_QFzQ0fCDI?feature=oembed](https://www.youtube.com/embed/D_QFzQ0fCDI?feature=oembed)
+[https://www.youtube.com/embed/D_QFzQ0fCDI](https://www.youtube.com/embed/D_QFzQ0fCDI)
 
 ABC-TV airs a Rolling special featuring rare (for the time) band performances of "The Ghost of Tom Joad" and "Across the Border."
 
 **1998:** *Stone State of the Union*
 
-[https://www.youtube.com/embed/SsS2S0I_E6E?feature=oembed](https://www.youtube.com/embed/SsS2S0I_E6E?feature=oembed)
+[https://www.youtube.com/embed/SsS2S0I_E6E](https://www.youtube.com/embed/SsS2S0I_E6E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1998-05-21.jpg?resize=758%2C857&amp;ssl=1)
 
@@ -51,9 +51,9 @@ Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of "You
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/0raE2AKOFtA?feature=oembed](https://www.youtube.com/embed/0raE2AKOFtA?feature=oembed)
+[https://www.youtube.com/embed/0raE2AKOFtA](https://www.youtube.com/embed/0raE2AKOFtA)
 
-[https://www.youtube.com/embed/D6EvkMt7NKE?feature=oembed](https://www.youtube.com/embed/D6EvkMt7NKE?feature=oembed)
+[https://www.youtube.com/embed/D6EvkMt7NKE](https://www.youtube.com/embed/D6EvkMt7NKE)
 
 Still chugging along, the Reunion Tour stops in Anaheim for the first of two shows.
 
@@ -69,17 +69,17 @@ Stockholm gets its first Seeger Sessions show, and the BBC airs a Johnnie Walker
 
 **2006:**<br>
 
-[https://www.youtube.com/embed/T8RlhwsRDAA?feature=oembed](https://www.youtube.com/embed/T8RlhwsRDAA?feature=oembed)
+[https://www.youtube.com/embed/T8RlhwsRDAA](https://www.youtube.com/embed/T8RlhwsRDAA)
 
 The final stand of the first American leg of the Working on a Dream Tour begins with the first of two shows at the Izod Center in East Rutherford.
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/q-bzVBUCcKg?feature=oembed](https://www.youtube.com/embed/q-bzVBUCcKg?feature=oembed)
+[https://www.youtube.com/embed/q-bzVBUCcKg](https://www.youtube.com/embed/q-bzVBUCcKg)
 
-[https://www.youtube.com/embed/iG-HyMu2qmY?feature=oembed](https://www.youtube.com/embed/iG-HyMu2qmY?feature=oembed)
+[https://www.youtube.com/embed/iG-HyMu2qmY](https://www.youtube.com/embed/iG-HyMu2qmY)
 
-[https://www.youtube.com/embed/nHXjrvYwPWI?feature=oembed](https://www.youtube.com/embed/nHXjrvYwPWI?feature=oembed)
+[https://www.youtube.com/embed/nHXjrvYwPWI](https://www.youtube.com/embed/nHXjrvYwPWI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2009-05-21a.jpg?resize=758%2C547&amp;ssl=1)
 
@@ -89,18 +89,18 @@ When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres "My City
 
 **2016:** [here](https://live.brucespringsteen.net/live-music/0,14109/Bruce-Springsteen-mp3-flac-download-5-21-2016-Estadio-Santiago-Bernabeu-Madrid-ES.html)
 
-[https://www.youtube.com/embed/pyAY9FsJ_yI?feature=oembed](https://www.youtube.com/embed/pyAY9FsJ_yI?feature=oembed)
+[https://www.youtube.com/embed/pyAY9FsJ_yI](https://www.youtube.com/embed/pyAY9FsJ_yI)
 
-[https://www.youtube.com/embed/LSKE7Hl53wE?feature=oembed](https://www.youtube.com/embed/LSKE7Hl53wE?feature=oembed)
+[https://www.youtube.com/embed/LSKE7Hl53wE](https://www.youtube.com/embed/LSKE7Hl53wE)
 
-[https://www.youtube.com/embed/YsYZC6zVScc?feature=oembed](https://www.youtube.com/embed/YsYZC6zVScc?feature=oembed)
+[https://www.youtube.com/embed/YsYZC6zVScc](https://www.youtube.com/embed/YsYZC6zVScc)
 
 Bruce and the E Street Band return to Circus Maximus for a star-studded (in attendance, anyway) show in Rome. In attendance tonight: Sting, Chris Rock, Woody Harrelson, Aaron Sorkin, Lars Ulrich, Nick Cave, Isla Fisher, and more.
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/A-dAnZytl24?feature=oembed](https://www.youtube.com/embed/A-dAnZytl24?feature=oembed)
+[https://www.youtube.com/embed/A-dAnZytl24](https://www.youtube.com/embed/A-dAnZytl24)
 
-[https://www.youtube.com/embed/QkCDK9WqH4g?feature=oembed](https://www.youtube.com/embed/QkCDK9WqH4g?feature=oembed)
+[https://www.youtube.com/embed/QkCDK9WqH4g](https://www.youtube.com/embed/QkCDK9WqH4g)
 
-[https://www.youtube.com/embed/ItzcvmXKVZ4?feature=oembed](https://www.youtube.com/embed/ItzcvmXKVZ4?feature=oembed)
+[https://www.youtube.com/embed/ItzcvmXKVZ4](https://www.youtube.com/embed/ItzcvmXKVZ4)

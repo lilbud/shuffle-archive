@@ -5,11 +5,11 @@
 
 With that level of cultural influence, it's no surprise that Bruce covered the song frequently during the seventies and eighties. Here's one of the best, captured clearly on video, from Bruce's Darkness show in Largo, MD on August 15, 1978.
 
-[https://www.youtube.com/embed/GtA_88vNeF0?feature=oembed](https://www.youtube.com/embed/GtA_88vNeF0?feature=oembed)
+[https://www.youtube.com/embed/GtA_88vNeF0](https://www.youtube.com/embed/GtA_88vNeF0)
 
 We're also fortunate enough to have a great video of Chuck Berry performing his original version shortly just weeks after its debut in 1958.
 
-[https://www.youtube.com/embed/ZLV4NGpoy_E?feature=oembed](https://www.youtube.com/embed/ZLV4NGpoy_E?feature=oembed)
+[https://www.youtube.com/embed/ZLV4NGpoy_E](https://www.youtube.com/embed/ZLV4NGpoy_E)
 
 April 28, 1973 (College Park, MD)
 December 17, 1989 (Ventura, CA)

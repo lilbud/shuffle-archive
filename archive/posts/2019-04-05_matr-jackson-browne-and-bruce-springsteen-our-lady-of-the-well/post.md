@@ -3,7 +3,7 @@ Jackson Browne's "Our Lady of the Well" was never a hit, and it's not even a sta
 
 [Take It Easy](http://estreetshuffle.com/index.php/2018/01/18/cover-me-take-it-easy/)*For Everyman*
 
-[https://www.youtube.com/embed/NtSu_VlGfCo?feature=oembed](https://www.youtube.com/embed/NtSu_VlGfCo?feature=oembed)
+[https://www.youtube.com/embed/NtSu_VlGfCo](https://www.youtube.com/embed/NtSu_VlGfCo)
 
 And yet, "Our Lady of the Well" remains a fan favorite and a traditional show closer for Jackson, who invited Bruce to join him on stage for it (along with its album-mate, "Take It Easy") at his show at the Count Basie Theater in Red Bank in September 2015, and again
 
@@ -11,7 +11,7 @@ And yet, "Our Lady of the Well" remains a fan favorite and a traditional show cl
 
 The latter performance in particular features some lovely guitar work from Bruce–enjoy the performance of two long-time friends and legends below.
 
-[https://www.youtube.com/embed/uoZE3iJKs8g?feature=oembed](https://www.youtube.com/embed/uoZE3iJKs8g?feature=oembed)
+[https://www.youtube.com/embed/uoZE3iJKs8g](https://www.youtube.com/embed/uoZE3iJKs8g)
 
 September 22, 2015 (Red Bank, NJ)
 September 21, 2017 (Holmdel, NJ)

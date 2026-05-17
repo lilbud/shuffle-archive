@@ -9,7 +9,7 @@ A lifelong fan (seriously: Noah attended his first show when he was eight years 
 
 It might sound a lot like this.
 
-[https://www.youtube.com/embed/negPEfAT308?feature=oembed](https://www.youtube.com/embed/negPEfAT308?feature=oembed)
+[https://www.youtube.com/embed/negPEfAT308](https://www.youtube.com/embed/negPEfAT308)
 
 Numb and gauzy, Noah's version of "Born to Run" is an ironic, sad reminder of all we're missing right now.
 
@@ -19,7 +19,7 @@ You might have already caught it, but if not: Noah took inspiration from Bruce's
 
 [Brilliant Disguise,](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)
 
-[https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed](https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed)
+[https://www.youtube.com/embed/idnJnjV_8rg](https://www.youtube.com/embed/idnJnjV_8rg)
 
 Check out more of Noah's music .
 

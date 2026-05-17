@@ -17,17 +17,17 @@ Night Two of six at the Brendan Byrne Arena's opening stand in East Rutherford f
 
 **1981:** [Summertime Blues](http://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)[This Little Girl](http://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)
 
-[https://videopress.com/embed/cTInek5e?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cTInek5e?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cTInek5e](https://videopress.com/embed/cTInek5e)
 
-[https://www.youtube.com/embed/3T9Hdvi5YsA?feature=oembed](https://www.youtube.com/embed/3T9Hdvi5YsA?feature=oembed)
+[https://www.youtube.com/embed/3T9Hdvi5YsA](https://www.youtube.com/embed/3T9Hdvi5YsA)
 
 Bruce plays "" for the first time ever at the first of three shows at Wembley Stadium in London, and Steve Van Zandt briefly reunites with the band during the encore for "," "," and "Twist and Shout."
 
 **1985:** [Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)
 
-[https://videopress.com/embed/8rio31IG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8rio31IG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/8rio31IG](https://videopress.com/embed/8rio31IG)
 
-[https://www.youtube.com/embed/ghqJVDaasKM?feature=oembed](https://www.youtube.com/embed/ghqJVDaasKM?feature=oembed)
+[https://www.youtube.com/embed/ghqJVDaasKM](https://www.youtube.com/embed/ghqJVDaasKM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1985-0703.jpg?resize=758%2C993&amp;ssl=1)
 
@@ -35,19 +35,19 @@ At Night Two in Stockholm on the Tunnel of Love Tour, the show is broadcast on r
 
 **1988:** [Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)[Chimes of Freedom](http://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)[here](http://live.brucespringsteen.net/live-music/0,18398/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-3-1988-Stockholms-Stadion-Stockholm-SE.html)
 
-[https://www.youtube.com/embed/UnODpc4SXdU?feature=oembed](https://www.youtube.com/embed/UnODpc4SXdU?feature=oembed)
+[https://www.youtube.com/embed/UnODpc4SXdU](https://www.youtube.com/embed/UnODpc4SXdU)
 
-[https://www.youtube.com/embed/2YsHsmucBjs?feature=oembed](https://www.youtube.com/embed/2YsHsmucBjs?feature=oembed)
+[https://www.youtube.com/embed/2YsHsmucBjs](https://www.youtube.com/embed/2YsHsmucBjs)
 
-[https://www.youtube.com/embed/7cjkpjqVaD4?feature=oembed](https://www.youtube.com/embed/7cjkpjqVaD4?feature=oembed)
+[https://www.youtube.com/embed/7cjkpjqVaD4](https://www.youtube.com/embed/7cjkpjqVaD4)
 
-[https://www.youtube.com/embed/WhvpFX63JGw?feature=oembed](https://www.youtube.com/embed/WhvpFX63JGw?feature=oembed)
+[https://www.youtube.com/embed/WhvpFX63JGw](https://www.youtube.com/embed/WhvpFX63JGw)
 
-[https://www.youtube.com/embed/2zFM_16TzSQ?feature=oembed](https://www.youtube.com/embed/2zFM_16TzSQ?feature=oembed)
+[https://www.youtube.com/embed/2zFM_16TzSQ](https://www.youtube.com/embed/2zFM_16TzSQ)
 
-[https://www.youtube.com/embed/ROAhgyxj77Y?feature=oembed](https://www.youtube.com/embed/ROAhgyxj77Y?feature=oembed)
+[https://www.youtube.com/embed/ROAhgyxj77Y](https://www.youtube.com/embed/ROAhgyxj77Y)
 
-[https://www.youtube.com/embed/s-QE-kSidvg?feature=oembed](https://www.youtube.com/embed/s-QE-kSidvg?feature=oembed)
+[https://www.youtube.com/embed/s-QE-kSidvg](https://www.youtube.com/embed/s-QE-kSidvg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1988-07-03.jpg?resize=758%2C422&amp;ssl=1)
 
@@ -55,27 +55,27 @@ World Tour 1992 arrives in Barcelona for the first of two nights at Plaza Monume
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/EA_faGbmdoY?feature=oembed](https://www.youtube.com/embed/EA_faGbmdoY?feature=oembed)
+[https://www.youtube.com/embed/EA_faGbmdoY](https://www.youtube.com/embed/EA_faGbmdoY)
 
-[https://videopress.com/embed/oYaKtVCC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oYaKtVCC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/oYaKtVCC](https://videopress.com/embed/oYaKtVCC)
 
-[https://videopress.com/embed/9vNTFBBS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9vNTFBBS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9vNTFBBS](https://videopress.com/embed/9vNTFBBS)
 
-[https://videopress.com/embed/2PyrKknl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2PyrKknl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2PyrKknl](https://videopress.com/embed/2PyrKknl)
 
 In Frankfurt, Bruce and the E Street Band pull out the Working on a Dream tour premieres of "" and "."
 
 **2009:** [Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
 
-[https://www.youtube.com/embed/BoRriwJXbqw?feature=oembed](https://www.youtube.com/embed/BoRriwJXbqw?feature=oembed)
+[https://www.youtube.com/embed/BoRriwJXbqw](https://www.youtube.com/embed/BoRriwJXbqw)
 
-[https://www.youtube.com/embed/qDIXyFkDuqs?feature=oembed](https://www.youtube.com/embed/qDIXyFkDuqs?feature=oembed)
+[https://www.youtube.com/embed/qDIXyFkDuqs](https://www.youtube.com/embed/qDIXyFkDuqs)
 
-[https://www.youtube.com/embed/LID9f9NnHok?feature=oembed](https://www.youtube.com/embed/LID9f9NnHok?feature=oembed)
+[https://www.youtube.com/embed/LID9f9NnHok](https://www.youtube.com/embed/LID9f9NnHok)
 
-[https://www.youtube.com/embed/XohOcLWX3x4?feature=oembed](https://www.youtube.com/embed/XohOcLWX3x4?feature=oembed)
+[https://www.youtube.com/embed/XohOcLWX3x4](https://www.youtube.com/embed/XohOcLWX3x4)
 
-[https://www.youtube.com/embed/jjteQ_ItYTs?feature=oembed](https://www.youtube.com/embed/jjteQ_ItYTs?feature=oembed)
+[https://www.youtube.com/embed/jjteQ_ItYTs](https://www.youtube.com/embed/jjteQ_ItYTs)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zA5jVor-QCBO_Hmp98LQS7m](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zA5jVor-QCBO_Hmp98LQS7m)
 
@@ -83,11 +83,11 @@ Bruce brings the Wrecking Ball Tour to Geneva for a night, where a solo piano "T
 
 **2013:**<br>
 
-[https://www.youtube.com/embed/pRo2cCTY5z4?feature=oembed](https://www.youtube.com/embed/pRo2cCTY5z4?feature=oembed)
+[https://www.youtube.com/embed/pRo2cCTY5z4](https://www.youtube.com/embed/pRo2cCTY5z4)
 
-[https://www.youtube.com/embed/Tt6VNGV4f_c?feature=oembed](https://www.youtube.com/embed/Tt6VNGV4f_c?feature=oembed)
+[https://www.youtube.com/embed/Tt6VNGV4f_c](https://www.youtube.com/embed/Tt6VNGV4f_c)
 
-[https://www.youtube.com/embed/k9vJWcavohc?feature=oembed](https://www.youtube.com/embed/k9vJWcavohc?feature=oembed)
+[https://www.youtube.com/embed/k9vJWcavohc](https://www.youtube.com/embed/k9vJWcavohc)
 
 The first of two nights in Milan kicks off with a surprise Bruce: an amazing fan tribute that spans the entire stadium. But that's not all that makes this show special: Bruce treats early arrivals to a pre-show "" and plays the tour premiere of "."
 
@@ -101,13 +101,13 @@ A short video clip of the audience at San Siro stadium tonight
 
 [July 3, 2016](https://twitter.com/Lef_iv/status/749673280341245956?ref_src=twsrc%5Etfw)
 
-[https://www.youtube.com/embed/XZ572D_UvZo?feature=oembed](https://www.youtube.com/embed/XZ572D_UvZo?feature=oembed)
+[https://www.youtube.com/embed/XZ572D_UvZo](https://www.youtube.com/embed/XZ572D_UvZo)
 
-[https://www.youtube.com/embed/iCyFvt2h9mk?feature=oembed](https://www.youtube.com/embed/iCyFvt2h9mk?feature=oembed)
+[https://www.youtube.com/embed/iCyFvt2h9mk](https://www.youtube.com/embed/iCyFvt2h9mk)
 
-[https://www.youtube.com/embed/9RYA2-U4Hvs?feature=oembed](https://www.youtube.com/embed/9RYA2-U4Hvs?feature=oembed)
+[https://www.youtube.com/embed/9RYA2-U4Hvs](https://www.youtube.com/embed/9RYA2-U4Hvs)
 
-[https://www.youtube.com/embed/P3TaqRTBh8A?feature=oembed](https://www.youtube.com/embed/P3TaqRTBh8A?feature=oembed)
+[https://www.youtube.com/embed/P3TaqRTBh8A](https://www.youtube.com/embed/P3TaqRTBh8A)
 
 continues its return engagement at the St. James Theater in New York City. In attendance this evening: Maggie Haberman and Preet Bharara.
 

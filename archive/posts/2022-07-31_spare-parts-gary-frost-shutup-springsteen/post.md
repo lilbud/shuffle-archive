@@ -1,7 +1,7 @@
 
 "Shutup Springsteen" isn't the first song inspired by a certain New Jersey rock star, but it may very well be the cleverest.
 
-[https://www.youtube.com/embed/W8hIWrKzQ9c?feature=oembed](https://www.youtube.com/embed/W8hIWrKzQ9c?feature=oembed)
+[https://www.youtube.com/embed/W8hIWrKzQ9c](https://www.youtube.com/embed/W8hIWrKzQ9c)
 
 Released just a few hours ago by 23-year-old rising country artist (and Bruce's neighbor) Gary Frost, "Shutup Springsteen" isn't the slam you might expect from the title–it's actually a bittersweet song of love and loss, and one obviously written by a fan.
 

@@ -7,4 +7,4 @@ Toronto-based Strange & Primitive's cover of "" lives up to the band's name. The
 
 Enjoy this very worthy addition to the expansive collection of "I'm on Fire" covers.
 
-[https://www.youtube.com/embed/Vr5knQh7Fs0?feature=oembed](https://www.youtube.com/embed/Vr5knQh7Fs0?feature=oembed)
+[https://www.youtube.com/embed/Vr5knQh7Fs0](https://www.youtube.com/embed/Vr5knQh7Fs0)

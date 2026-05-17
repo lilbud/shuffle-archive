@@ -3,9 +3,9 @@ Bruce enters a recording studio for the very first time when The Castiles record
 
 **1966:** *Chapter & Verse*
 
-[https://www.youtube.com/embed/aTeJTkSJMVE?feature=oembed](https://www.youtube.com/embed/aTeJTkSJMVE?feature=oembed)
+[https://www.youtube.com/embed/aTeJTkSJMVE](https://www.youtube.com/embed/aTeJTkSJMVE)
 
-[https://www.youtube.com/embed/_1ET0kehXbg?feature=oembed](https://www.youtube.com/embed/_1ET0kehXbg?feature=oembed)
+[https://www.youtube.com/embed/_1ET0kehXbg](https://www.youtube.com/embed/_1ET0kehXbg)
 
 Bruce cancels a scheduled performance at Michigan Technological University to make room for studio time for the Wild and Innocent sessions.
 
@@ -15,21 +15,21 @@ Night Two of five in the final U.S. stand for the Tunnel of Love Express Tour. B
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/fNUAkKLceYQ?feature=oembed](https://www.youtube.com/embed/fNUAkKLceYQ?feature=oembed)
+[https://www.youtube.com/embed/fNUAkKLceYQ](https://www.youtube.com/embed/fNUAkKLceYQ)
 
 Bruce performs a solo acoustic show at the Acropolis in Nice, featuring the tour premiere of "You Can Look (But You Better Not Touch)." This show is available as part of Bruce's official archive series.
 
 **1997:**<br>
 
-[https://www.youtube.com/embed/Av1n3isTar0?feature=oembed](https://www.youtube.com/embed/Av1n3isTar0?feature=oembed)
+[https://www.youtube.com/embed/Av1n3isTar0](https://www.youtube.com/embed/Av1n3isTar0)
 
-[https://www.youtube.com/embed/nGXxHVfGnok?feature=oembed](https://www.youtube.com/embed/nGXxHVfGnok?feature=oembed)
+[https://www.youtube.com/embed/nGXxHVfGnok](https://www.youtube.com/embed/nGXxHVfGnok)
 
 Bruce and the E Street Band kick off a four-night Reunion Tour stand at Earls Court in London.
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/eDYz8You6Qo?feature=oembed](https://www.youtube.com/embed/eDYz8You6Qo?feature=oembed)
+[https://www.youtube.com/embed/eDYz8You6Qo](https://www.youtube.com/embed/eDYz8You6Qo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Evening_Standard_Wed__May_19__1999_.jpg?resize=758%2C681&amp;ssl=1)
 
@@ -39,7 +39,7 @@ Bruce attends the opening dedication ceremony for Freehold's Vinyard Park to hon
 
 **2002:**<br>
 
-[https://www.youtube.com/embed/NewO6pq-crY?feature=oembed](https://www.youtube.com/embed/NewO6pq-crY?feature=oembed)
+[https://www.youtube.com/embed/NewO6pq-crY](https://www.youtube.com/embed/NewO6pq-crY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2002-05-18a.jpg?resize=331%2C961&amp;ssl=1)
 
@@ -57,7 +57,7 @@ The High Hopes Tour wraps with a second show at the Mohegan Sun Casino in Uncasv
 
 **2014:** *in the first seven songs*
 
-[https://www.youtube.com/embed/ThhW6P23gn4?feature=oembed](https://www.youtube.com/embed/ThhW6P23gn4?feature=oembed)
+[https://www.youtube.com/embed/ThhW6P23gn4](https://www.youtube.com/embed/ThhW6P23gn4)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDcaFCLVTGt5NOWzCCd0YRQ](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDcaFCLVTGt5NOWzCCd0YRQ)
 

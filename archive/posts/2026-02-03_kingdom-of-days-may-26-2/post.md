@@ -11,9 +11,9 @@ The Darkness Tour picks up steam as it rolls into Philadelphia for the first of 
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/gTWkVHl3Bw8?feature=oembed](https://www.youtube.com/embed/gTWkVHl3Bw8?feature=oembed)
+[https://www.youtube.com/embed/gTWkVHl3Bw8](https://www.youtube.com/embed/gTWkVHl3Bw8)
 
-[https://www.youtube.com/embed/EgCVHSpz_a0?feature=oembed](https://www.youtube.com/embed/EgCVHSpz_a0?feature=oembed)
+[https://www.youtube.com/embed/EgCVHSpz_a0](https://www.youtube.com/embed/EgCVHSpz_a0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/Courier_Post_1978_05_27_Page_39.jpg?resize=758%2C305&amp;ssl=1)
 
@@ -35,17 +35,17 @@ Bruce wraps up the Ghost of Tom Joad Tour with the second of two nights in Paris
 
 **1997:**<br>
 
-[https://www.youtube.com/embed/eIVqrJvUvx4?feature=oembed](https://www.youtube.com/embed/eIVqrJvUvx4?feature=oembed)
+[https://www.youtube.com/embed/eIVqrJvUvx4](https://www.youtube.com/embed/eIVqrJvUvx4)
 
-[https://www.youtube.com/embed/0YKliMT-7Ac?feature=oembed](https://www.youtube.com/embed/0YKliMT-7Ac?feature=oembed)
+[https://www.youtube.com/embed/0YKliMT-7Ac](https://www.youtube.com/embed/0YKliMT-7Ac)
 
-[https://www.youtube.com/embed/hkTQX6x7ufk?feature=oembed](https://www.youtube.com/embed/hkTQX6x7ufk?feature=oembed)
+[https://www.youtube.com/embed/hkTQX6x7ufk](https://www.youtube.com/embed/hkTQX6x7ufk)
 
-[https://www.youtube.com/embed/zADbdvEpuBM?feature=oembed](https://www.youtube.com/embed/zADbdvEpuBM?feature=oembed)
+[https://www.youtube.com/embed/zADbdvEpuBM](https://www.youtube.com/embed/zADbdvEpuBM)
 
-[https://www.youtube.com/embed/Mb6v51Px4NM?feature=oembed](https://www.youtube.com/embed/Mb6v51Px4NM?feature=oembed)
+[https://www.youtube.com/embed/Mb6v51Px4NM](https://www.youtube.com/embed/Mb6v51Px4NM)
 
-[https://www.youtube.com/embed/fFlzC3YXddA?feature=oembed](https://www.youtube.com/embed/fFlzC3YXddA?feature=oembed)
+[https://www.youtube.com/embed/fFlzC3YXddA](https://www.youtube.com/embed/fFlzC3YXddA)
 
 At the first of two Rising shows at the Crystal Palace in London, Bruce tour premieres "Meeting Across the River" (into "Jungleland," of course).
 
@@ -59,11 +59,11 @@ At the first of three shows in Germany–this one in Munich–Bruce opens with a
 
 **2013:** *Born in the U.S.A.*
 
-[https://www.youtube.com/embed/llBeo074_bA?feature=oembed](https://www.youtube.com/embed/llBeo074_bA?feature=oembed)
+[https://www.youtube.com/embed/llBeo074_bA](https://www.youtube.com/embed/llBeo074_bA)
 
-[https://www.youtube.com/embed/8Hy9zgH3UmY?feature=oembed](https://www.youtube.com/embed/8Hy9zgH3UmY?feature=oembed)
+[https://www.youtube.com/embed/8Hy9zgH3UmY](https://www.youtube.com/embed/8Hy9zgH3UmY)
 
-[https://www.youtube.com/embed/ObN6tG0LeHc?feature=oembed](https://www.youtube.com/embed/ObN6tG0LeHc?feature=oembed)
+[https://www.youtube.com/embed/ObN6tG0LeHc](https://www.youtube.com/embed/ObN6tG0LeHc)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

@@ -7,11 +7,11 @@ So it's remarkable to me that given the theme of the album he was touring behind
 
 [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)
 
-[https://www.youtube.com/embed/RxOBOhRECoo?feature=oembed](https://www.youtube.com/embed/RxOBOhRECoo?feature=oembed)
+[https://www.youtube.com/embed/RxOBOhRECoo](https://www.youtube.com/embed/RxOBOhRECoo)
 
 Although most of us associate the song with Elvis Presley, who took the song all the way to Number One in 1969 (it was destined to be his last number one hit), Elvis' version was itself a cover. The song was originally written and recorded by Mark James the year prior. James' arrangement was pretty much identical to Presley's, but whether it was the extra year, the prominent guitar riff, or simply the Elvis factor, James' version went nowhere and Elvis' went to the top.
 
-[https://www.youtube.com/embed/mFP0EP-Oi2I?feature=oembed](https://www.youtube.com/embed/mFP0EP-Oi2I?feature=oembed)
+[https://www.youtube.com/embed/mFP0EP-Oi2I](https://www.youtube.com/embed/mFP0EP-Oi2I)
 
 Bruce may have passed up the perfect spotlight opportunity for "Suspicious Minds" on his 1988 tour, but he finally got around to covering it six years later.
 
@@ -21,7 +21,7 @@ When John Eddie played The Playpen in Sayreville, New Jersey in late October 199
 
 Among them: "Suspicious Minds." Here's that all-star performance, recorded in great quality on October 21, 1994 at the Playpen:
 
-[https://www.youtube.com/embed/7m2QcHGtEeo?feature=oembed](https://www.youtube.com/embed/7m2QcHGtEeo?feature=oembed)
+[https://www.youtube.com/embed/7m2QcHGtEeo](https://www.youtube.com/embed/7m2QcHGtEeo)
 
 October 21, 1994 (Sayreville, NJ)
 August 18, 2001 (Asbury Park, NJ)

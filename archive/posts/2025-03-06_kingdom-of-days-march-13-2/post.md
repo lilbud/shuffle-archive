@@ -25,7 +25,7 @@ Bruce and the E Street Band play Towson State University on the Lawsuit Tour.
 
 **1977:**<br>
 
-[https://videopress.com/embed/SsdSEZB7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SsdSEZB7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/SsdSEZB7](https://videopress.com/embed/SsdSEZB7)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1977-0313.jpg?resize=758%2C1083&amp;ssl=1)
 
@@ -33,9 +33,9 @@ Bruce and the E Street Band play Towson State University on the Lawsuit Tour.
 
 **1988**<br>
 
-[https://videopress.com/embed/qnlgh7uK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qnlgh7uK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/qnlgh7uK](https://videopress.com/embed/qnlgh7uK)
 
-[https://www.youtube.com/embed/4QcKYlVoBTc?feature=oembed](https://www.youtube.com/embed/4QcKYlVoBTc?feature=oembed)
+[https://www.youtube.com/embed/4QcKYlVoBTc](https://www.youtube.com/embed/4QcKYlVoBTc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-13-288x300.jpg?resize=758%2C790)
 
@@ -45,15 +45,15 @@ Bruce begins a mini-tour of Scandinavia with a solo acoustic show in Stockholm.
 
 **1996:**<br>
 
-[https://videopress.com/embed/Fng7zE6y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Fng7zE6y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Fng7zE6y](https://videopress.com/embed/Fng7zE6y)
 
 Bruce and the E Street Band play the aptly named Reunion Arena in Dallas.
 
 **2000:**<br>
 
-[https://videopress.com/embed/eMM9d2g9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eMM9d2g9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/eMM9d2g9](https://videopress.com/embed/eMM9d2g9)
 
-[https://videopress.com/embed/JiijcG3N?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JiijcG3N?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/JiijcG3N](https://videopress.com/embed/JiijcG3N)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2000-03-13.jpg?resize=601%2C4745&amp;ssl=1)
 
@@ -69,8 +69,8 @@ The River Tour (2016 Edition) moves on to the Oracle Arena in Oakland. For highl
 
 **2016:** [](http://estreetshuffle.com/index.php/2018/03/13/where-the-band-was-oakland-march-13-2016/)*Where the Band Was*
 
-[https://www.youtube.com/embed/YckePW-ReLw?feature=oembed](https://www.youtube.com/embed/YckePW-ReLw?feature=oembed)
+[https://www.youtube.com/embed/YckePW-ReLw](https://www.youtube.com/embed/YckePW-ReLw)
 
-[https://www.youtube.com/embed/SEUJFzNe69U?feature=oembed](https://www.youtube.com/embed/SEUJFzNe69U?feature=oembed)
+[https://www.youtube.com/embed/SEUJFzNe69U](https://www.youtube.com/embed/SEUJFzNe69U)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-13-300x237.jpg?resize=758%2C599)

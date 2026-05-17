@@ -11,7 +11,7 @@ Child plays their second of two nights at the Free University in Richmond. Liste
 
 **1969:**<br>
 
-[https://videopress.com/embed/oMbk0dT7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oMbk0dT7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/oMbk0dT7](https://videopress.com/embed/oMbk0dT7)
 
 Bruce and the new E Street Band play a sold-out show at Philadelphia's Tower Theater.
 
@@ -31,13 +31,13 @@ Another stellar show from the Darkness Tour's homecoming stand at the Capitol Th
 
 **1978:** [here](http://live.brucespringsteen.net/live-music/0,18679/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-20-1978-Capitol-Theatre-Passaic-NJ.html)[The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
 
-[https://www.youtube.com/embed/Sj6CyZFOwkw?feature=oembed](https://www.youtube.com/embed/Sj6CyZFOwkw?feature=oembed)
+[https://www.youtube.com/embed/Sj6CyZFOwkw](https://www.youtube.com/embed/Sj6CyZFOwkw)
 
-[https://videopress.com/embed/PTgkEwYj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PTgkEwYj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PTgkEwYj](https://videopress.com/embed/PTgkEwYj)
 
-[https://www.youtube.com/embed/l7EAGg8zdrE?feature=oembed](https://www.youtube.com/embed/l7EAGg8zdrE?feature=oembed)
+[https://www.youtube.com/embed/l7EAGg8zdrE](https://www.youtube.com/embed/l7EAGg8zdrE)
 
-[https://www.youtube.com/embed/uzgpF_ANDSU?feature=oembed](https://www.youtube.com/embed/uzgpF_ANDSU?feature=oembed)
+[https://www.youtube.com/embed/uzgpF_ANDSU](https://www.youtube.com/embed/uzgpF_ANDSU)
 
 Bruce releases his sixth studio album,
 
@@ -57,7 +57,7 @@ Patti Scialfa appears on promoting her recent album and performing "Lucky Girl."
 
 **1993:** *The Late Show with David Letterman*, *Rumble Doll*
 
-[https://videopress.com/embed/3ZCFGfGj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3ZCFGfGj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/3ZCFGfGj](https://videopress.com/embed/3ZCFGfGj)
 
 Bruce and Paul Rodgers join John Fogerty on stage at the House of Blues in West Hollywood for ""
 
@@ -69,25 +69,25 @@ Bruce and the reunited E Street Band play their third of six nights in Philadelp
 
 **1999:** [Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
-[https://videopress.com/embed/cbcMa6fr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cbcMa6fr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cbcMa6fr](https://videopress.com/embed/cbcMa6fr)
 
-[https://www.youtube.com/embed/qZAGW7nUGXM?feature=oembed](https://www.youtube.com/embed/qZAGW7nUGXM?feature=oembed)
+[https://www.youtube.com/embed/qZAGW7nUGXM](https://www.youtube.com/embed/qZAGW7nUGXM)
 
-[https://videopress.com/embed/CBhRcW0u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CBhRcW0u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/CBhRcW0u](https://videopress.com/embed/CBhRcW0u)
 
 Bruce films the official video for "" in Asbury Park with director Mark Pellington, performing the lead vocals live on every take–.
 
 **2002:** [Lonesome Day](http://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)*for sixteen hours*
 
-[https://www.youtube.com/embed/SAMkFVJ-ews?feature=oembed](https://www.youtube.com/embed/SAMkFVJ-ews?feature=oembed)
+[https://www.youtube.com/embed/SAMkFVJ-ews](https://www.youtube.com/embed/SAMkFVJ-ews)
 
 Buffalo gets one of the best and certainly the most surprising shows from the Rising Tour stadium leg at the Darien Lake Performing Arts Center. Bruce opens with the tour premiere of "" and debuts the as-yet-unreleased outtake, "" "" is also tour premiered, and "Leap of Faith" makes a return appearance. By now, it's apparent to all that Bruce is deliberately unearthing material he hasn't touched in years (if at all), and when his upcoming compilation album, tracklist is announced, it becomes clear why.
 
 **2003:** [Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)[County Fair.](http://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/)[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)*The Essential Bruce Springsteen*
 
-[https://www.youtube.com/embed/I21wWMXEvjw?feature=oembed](https://www.youtube.com/embed/I21wWMXEvjw?feature=oembed)
+[https://www.youtube.com/embed/I21wWMXEvjw](https://www.youtube.com/embed/I21wWMXEvjw)
 
-[https://www.youtube.com/embed/qrqhowhpMEA?feature=oembed](https://www.youtube.com/embed/qrqhowhpMEA?feature=oembed)
+[https://www.youtube.com/embed/qrqhowhpMEA](https://www.youtube.com/embed/qrqhowhpMEA)
 
 Bruce rehearses with the Sessions Band for their upcoming European tour.
 
@@ -99,11 +99,11 @@ Bruce premieres a new concept, playing a full album start-to-finish in select sh
 
 **2009:** *Born to Run*[Da Doo Ron Ron](http://estreetshuffle.com/index.php/2019/01/02/matr-bruce-springsteen-and-darlene-love-da-doo-ron-ron/)[Rockin' Robin](https://estreetshuffle.com/index.php/2021/08/10/cover-me-rockin-robin/)[I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)
 
-[https://www.youtube.com/embed/0Vk6rblSo_4?feature=oembed](https://www.youtube.com/embed/0Vk6rblSo_4?feature=oembed)
+[https://www.youtube.com/embed/0Vk6rblSo_4](https://www.youtube.com/embed/0Vk6rblSo_4)
 
-[https://www.youtube.com/embed/qlIbQ_X-MK8?feature=oembed](https://www.youtube.com/embed/qlIbQ_X-MK8?feature=oembed)
+[https://www.youtube.com/embed/qlIbQ_X-MK8](https://www.youtube.com/embed/qlIbQ_X-MK8)
 
-[https://www.youtube.com/embed/YkFBFFEUPQo?feature=oembed](https://www.youtube.com/embed/YkFBFFEUPQo?feature=oembed)
+[https://www.youtube.com/embed/YkFBFFEUPQo](https://www.youtube.com/embed/YkFBFFEUPQo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2009-09-20a.jpg?resize=758%2C2208&amp;ssl=1)
 

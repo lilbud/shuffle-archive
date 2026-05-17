@@ -11,9 +11,9 @@ Bruce and the E Street Band play a Darkness Tour show at the Tucson Community Ce
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/JX5nlFu8oBE?feature=oembed](https://www.youtube.com/embed/JX5nlFu8oBE?feature=oembed)
+[https://www.youtube.com/embed/JX5nlFu8oBE](https://www.youtube.com/embed/JX5nlFu8oBE)
 
-[https://www.youtube.com/embed/BoZTyDKRoy8?feature=oembed](https://www.youtube.com/embed/BoZTyDKRoy8?feature=oembed)
+[https://www.youtube.com/embed/BoZTyDKRoy8](https://www.youtube.com/embed/BoZTyDKRoy8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1978-12-13a.png?resize=758%2C556&amp;ssl=1)
 
@@ -27,7 +27,7 @@ Bruce and the band play their first of two Born in the U.S.A. shows at the Mid-S
 
 **1984:**<br>
 
-[https://www.youtube.com/embed/UzMaKpyptz4?feature=oembed](https://www.youtube.com/embed/UzMaKpyptz4?feature=oembed)
+[https://www.youtube.com/embed/UzMaKpyptz4](https://www.youtube.com/embed/UzMaKpyptz4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Commercial_Appeal_1984_12_14_25.jpg?resize=758%2C651&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Commercial_Appeal_1984_12_14_26.jpg?resize=758%2C722&amp;ssl=1)
 
@@ -35,15 +35,15 @@ Bruce appears at the All Star Benefit for the Homeless Children at Madison Squar
 
 **1987:** [A Teenager in Love](https://estreetshuffle.com/index.php/2020/08/16/matr-dion-bruce-springsteen-paul-simon-lou-reed-james-taylor-billy-joel-and-reuben-blades-a-teenager-in-love/)[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
-[https://www.youtube.com/embed/9hJOwe0vH_s?feature=oembed](https://www.youtube.com/embed/9hJOwe0vH_s?feature=oembed)
+[https://www.youtube.com/embed/9hJOwe0vH_s](https://www.youtube.com/embed/9hJOwe0vH_s)
 
-[https://www.youtube.com/embed/ccKzusBCZKc?feature=oembed](https://www.youtube.com/embed/ccKzusBCZKc?feature=oembed)
+[https://www.youtube.com/embed/ccKzusBCZKc](https://www.youtube.com/embed/ccKzusBCZKc)
 
-[https://www.youtube.com/embed/hvbNbsnViSc?feature=oembed](https://www.youtube.com/embed/hvbNbsnViSc?feature=oembed)
+[https://www.youtube.com/embed/hvbNbsnViSc](https://www.youtube.com/embed/hvbNbsnViSc)
 
-[https://www.youtube.com/embed/-QgnpF5BmWA?feature=oembed](https://www.youtube.com/embed/-QgnpF5BmWA?feature=oembed)
+[https://www.youtube.com/embed/-QgnpF5BmWA](https://www.youtube.com/embed/-QgnpF5BmWA)
 
-[https://www.youtube.com/embed/TI6RKpTIzDw?feature=oembed](https://www.youtube.com/embed/TI6RKpTIzDw?feature=oembed)
+[https://www.youtube.com/embed/TI6RKpTIzDw](https://www.youtube.com/embed/TI6RKpTIzDw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1987-12-13.png?resize=758%2C675&amp;ssl=1)
 
@@ -51,17 +51,17 @@ Patti makes a guest appearance when World Tour 1992 stops in Boston for the firs
 
 **1992:** [here](https://live.brucespringsteen.net/live-music/0,26415/Bruce-Springsteen-mp3-flac-download-12-13-1992-Boston-Garden-Boston-MA.html)
 
-[https://www.youtube.com/embed/XfnPYggW35o?feature=oembed](https://www.youtube.com/embed/XfnPYggW35o?feature=oembed)
+[https://www.youtube.com/embed/XfnPYggW35o](https://www.youtube.com/embed/XfnPYggW35o)
 
-[https://www.youtube.com/embed/kiSM2npKV7E?feature=oembed](https://www.youtube.com/embed/kiSM2npKV7E?feature=oembed)
+[https://www.youtube.com/embed/kiSM2npKV7E](https://www.youtube.com/embed/kiSM2npKV7E)
 
-[https://www.youtube.com/embed/N7Z6wqUh2ZE?feature=oembed](https://www.youtube.com/embed/N7Z6wqUh2ZE?feature=oembed)
+[https://www.youtube.com/embed/N7Z6wqUh2ZE](https://www.youtube.com/embed/N7Z6wqUh2ZE)
 
-[https://www.youtube.com/embed/FF1pCzY-31I?feature=oembed](https://www.youtube.com/embed/FF1pCzY-31I?feature=oembed)
+[https://www.youtube.com/embed/FF1pCzY-31I](https://www.youtube.com/embed/FF1pCzY-31I)
 
-[https://www.youtube.com/embed/tvnYK7zkUEk?feature=oembed](https://www.youtube.com/embed/tvnYK7zkUEk?feature=oembed)
+[https://www.youtube.com/embed/tvnYK7zkUEk](https://www.youtube.com/embed/tvnYK7zkUEk)
 
-[https://www.youtube.com/embed/B_LgU6CmoBY?feature=oembed](https://www.youtube.com/embed/B_LgU6CmoBY?feature=oembed)
+[https://www.youtube.com/embed/B_LgU6CmoBY](https://www.youtube.com/embed/B_LgU6CmoBY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-13a.png?resize=758%2C1978&amp;ssl=1)
 
@@ -71,7 +71,7 @@ Bruce brings his solo acoustic tour to the Beacon Theater in New York City for t
 
 **1995:**<br>
 
-[https://www.youtube.com/embed/4-ut6-51V8A?feature=oembed](https://www.youtube.com/embed/4-ut6-51V8A?feature=oembed)
+[https://www.youtube.com/embed/4-ut6-51V8A](https://www.youtube.com/embed/4-ut6-51V8A)
 
 Bruce makes a guest appearance at Joe Grushecky's acoustic show at Cheers in Long Branch, New Jersey.
 
@@ -87,7 +87,7 @@ Bruce and the E Street Band take the Rising Tour to the Pepsi Arena in Albany, w
 
 **2002:** [Around and Around,](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)
 
-[https://www.youtube.com/embed/tt79jPObtjs?feature=oembed](https://www.youtube.com/embed/tt79jPObtjs?feature=oembed)
+[https://www.youtube.com/embed/tt79jPObtjs](https://www.youtube.com/embed/tt79jPObtjs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-13a.png?resize=758%2C248&amp;ssl=1)
 
@@ -97,9 +97,9 @@ Wolfgang Niedecken joins Bruce and the band for a show-closing "" when the Magic
 
 **2007:** [Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
-[https://www.youtube.com/embed/MAw1ay2rJrI?feature=oembed](https://www.youtube.com/embed/MAw1ay2rJrI?feature=oembed)
+[https://www.youtube.com/embed/MAw1ay2rJrI](https://www.youtube.com/embed/MAw1ay2rJrI)
 
-[https://www.youtube.com/embed/EedMVeRbgWc?feature=oembed](https://www.youtube.com/embed/EedMVeRbgWc?feature=oembed)
+[https://www.youtube.com/embed/EedMVeRbgWc](https://www.youtube.com/embed/EedMVeRbgWc)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDSL8ngmVycL0CCnIFMpxRP](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDSL8ngmVycL0CCnIFMpxRP)
 
@@ -113,7 +113,7 @@ Also today: the release of , a documentary featuring a contribution from Bruce p
 
 *The People Speak*[This Land Is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)
 
-[https://www.youtube.com/embed/H7J-8uTaQS0?feature=oembed](https://www.youtube.com/embed/H7J-8uTaQS0?feature=oembed)
+[https://www.youtube.com/embed/H7J-8uTaQS0](https://www.youtube.com/embed/H7J-8uTaQS0)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: actor Iain Armitage.
 
@@ -129,10 +129,10 @@ Bruce performs a rare post-pandemic electric set at Steve Earle's annual John He
 
 **2021:** [Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)[Teach Your Children](https://estreetshuffle.com/index.php/2018/04/14/matr-crosby-stills-nash-young-and-springsteen-teach-your-children/)
 
-[https://www.youtube.com/embed/VRJDIQz1yi4?feature=oembed](https://www.youtube.com/embed/VRJDIQz1yi4?feature=oembed)
+[https://www.youtube.com/embed/VRJDIQz1yi4](https://www.youtube.com/embed/VRJDIQz1yi4)
 
-[https://www.youtube.com/embed/Wr-8Gs3n23k?feature=oembed](https://www.youtube.com/embed/Wr-8Gs3n23k?feature=oembed)
+[https://www.youtube.com/embed/Wr-8Gs3n23k](https://www.youtube.com/embed/Wr-8Gs3n23k)
 
-[https://www.youtube.com/embed/FngXWtIZ24k?feature=oembed](https://www.youtube.com/embed/FngXWtIZ24k?feature=oembed)
+[https://www.youtube.com/embed/FngXWtIZ24k](https://www.youtube.com/embed/FngXWtIZ24k)
 
-[https://www.youtube.com/embed/fl58pogusgU?feature=oembed](https://www.youtube.com/embed/fl58pogusgU?feature=oembed)
+[https://www.youtube.com/embed/fl58pogusgU](https://www.youtube.com/embed/fl58pogusgU)

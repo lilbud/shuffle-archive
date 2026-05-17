@@ -5,7 +5,7 @@ At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bru
 
 **1977:**<br>
 
-[https://www.youtube.com/embed/FCJHKUBH7OI?feature=oembed](https://www.youtube.com/embed/FCJHKUBH7OI?feature=oembed)
+[https://www.youtube.com/embed/FCJHKUBH7OI](https://www.youtube.com/embed/FCJHKUBH7OI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/Pittsburgh_Post_Gazette_1977_03_07_Page_13.jpg?resize=758%2C663&amp;ssl=1)
 
@@ -23,11 +23,11 @@ Bruce, Patti, and Little Steven attend the 15th Annual Silver Clef Awards dinner
 
 **2003:** [Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
 
-[https://www.youtube.com/embed/AMhdLG0vX7I?feature=oembed](https://www.youtube.com/embed/AMhdLG0vX7I?feature=oembed)
+[https://www.youtube.com/embed/AMhdLG0vX7I](https://www.youtube.com/embed/AMhdLG0vX7I)
 
-[https://www.youtube.com/embed/VhVBCjCrBLo?feature=oembed](https://www.youtube.com/embed/VhVBCjCrBLo?feature=oembed)
+[https://www.youtube.com/embed/VhVBCjCrBLo](https://www.youtube.com/embed/VhVBCjCrBLo)
 
-[https://www.youtube.com/embed/JEjcg56mMMY?feature=oembed](https://www.youtube.com/embed/JEjcg56mMMY?feature=oembed)
+[https://www.youtube.com/embed/JEjcg56mMMY](https://www.youtube.com/embed/JEjcg56mMMY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2003-03-11.jpg?resize=758%2C367&amp;ssl=1)
 

@@ -14,7 +14,7 @@ On November 1, 2003, Garland Jeffreys played his own set at Light of Day after m
 
 But when Garland did his artist salutes during the song's coda, he couldn't help but out his friend, entreating Bruce to take to the stage… which of course, he did.
 
-[https://videopress.com/embed/tJiuFXGC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tJiuFXGC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/tJiuFXGC](https://videopress.com/embed/tJiuFXGC)
 
 In the recording above, you can hear the moment when the crowd realizes that Bruce is actually on stage, and although his contributions are limited to a lead guitar lead-out, it's one of the many great Light of Day moments Bruce has given us over the years.
 

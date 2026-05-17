@@ -29,7 +29,7 @@ Bruce and the E Street Band play two shows at the Roxy in West Hollywood, the fi
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/Lg01I4qSQf4?feature=oembed](https://www.youtube.com/embed/Lg01I4qSQf4?feature=oembed)
+[https://www.youtube.com/embed/Lg01I4qSQf4](https://www.youtube.com/embed/Lg01I4qSQf4)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3>
 
@@ -39,7 +39,7 @@ Bruce and the boys play their first of two Lawsuit Tour shows at Georgetown Univ
 
 **1976:**<br>
 
-[https://videopress.com/embed/y9o1VLNX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/y9o1VLNX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/y9o1VLNX](https://videopress.com/embed/y9o1VLNX)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1976-1017.jpg?resize=731%2C573&amp;ssl=1)
 
@@ -47,7 +47,7 @@ Bruce makes a guest appearance with The Knack at their show at the Troubadour in
 
 **1978:** [Not Fade Away](http://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)
 
-[https://www.youtube.com/embed/2mn9G4zdRQ0?feature=oembed](https://www.youtube.com/embed/2mn9G4zdRQ0?feature=oembed)
+[https://www.youtube.com/embed/2mn9G4zdRQ0](https://www.youtube.com/embed/2mn9G4zdRQ0)
 
 Photographer David Gahr captures Bruce and the E Street Band on film during a day of photo shoots in New Jersey.
 
@@ -63,7 +63,7 @@ Bruce and the E Street Band play a show–the first of two on the River Tour–a
 
 **1980:**<br>
 
-[https://videopress.com/embed/bxlCMxZT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bxlCMxZT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bxlCMxZT](https://videopress.com/embed/bxlCMxZT)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-10-17-300x215.png?resize=758%2C543)
 
@@ -71,7 +71,7 @@ Bruce and the E Street Band play their first of two Born in the U.S.A. Tour show
 
 **1984:**<br>
 
-[https://videopress.com/embed/VH3WetqL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VH3WetqL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VH3WetqL](https://videopress.com/embed/VH3WetqL)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17d-243x300.png?resize=758%2C936)
 
@@ -83,7 +83,7 @@ World Tour 1992 continues its Canadian leg with a show at the Olympic Saddledome
 
 **1992:**<br>
 
-[https://videopress.com/embed/6SNwRz24?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6SNwRz24?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/6SNwRz24](https://videopress.com/embed/6SNwRz24)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-10-17-300x264.png?resize=758%2C667)
 
@@ -99,7 +99,7 @@ Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushec
 
 **1995:** [](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*American Babylon*
 
-[https://www.youtube.com/embed/k3hhViVRpf0?feature=oembed](https://www.youtube.com/embed/k3hhViVRpf0?feature=oembed)
+[https://www.youtube.com/embed/k3hhViVRpf0](https://www.youtube.com/embed/k3hhViVRpf0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17a-276x300.png?resize=758%2C824)
 
@@ -111,13 +111,13 @@ Bruce plays the second of two solo acoustic Ghost of Tom Joad Tour shows at Denv
 
 **1996:**<br>
 
-[https://videopress.com/embed/0padY2o4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0padY2o4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0padY2o4](https://videopress.com/embed/0padY2o4)
 
 Bruce and the reunited E Street Band kick off a four-night stand in Los Angeles with the very first concert to be held at the new Staples Center.
 
 **1999:**<br>
 
-[https://videopress.com/embed/vZj3KOnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vZj3KOnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/vZj3KOnV](https://videopress.com/embed/vZj3KOnV)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-17a-270x300.png?resize=758%2C842)
 
@@ -131,7 +131,7 @@ Bruce straps on an electric guitar for a change, when he takes a short break fro
 
 **2005:** [People Get Ready](http://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)
 
-[https://videopress.com/embed/Ds6Exsh4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ds6Exsh4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Ds6Exsh4](https://videopress.com/embed/Ds6Exsh4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-10-17-300x297.png?resize=758%2C750)
 
@@ -139,15 +139,15 @@ The young Magic Tour moves on to Madison Square Garden for the first of two nigh
 
 **2007:**<br>
 
-[https://videopress.com/embed/U5CleNrI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/U5CleNrI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/U5CleNrI](https://videopress.com/embed/U5CleNrI)
 
-[https://www.youtube.com/embed/HWertakKIDE?feature=oembed](https://www.youtube.com/embed/HWertakKIDE?feature=oembed)
+[https://www.youtube.com/embed/HWertakKIDE](https://www.youtube.com/embed/HWertakKIDE)
 
-[https://www.youtube.com/embed/5b4XHHNm1cY?feature=oembed](https://www.youtube.com/embed/5b4XHHNm1cY?feature=oembed)
+[https://www.youtube.com/embed/5b4XHHNm1cY](https://www.youtube.com/embed/5b4XHHNm1cY)
 
-[https://www.youtube.com/embed/uoEUwljiHv4?feature=oembed](https://www.youtube.com/embed/uoEUwljiHv4?feature=oembed)
+[https://www.youtube.com/embed/uoEUwljiHv4](https://www.youtube.com/embed/uoEUwljiHv4)
 
-[https://www.youtube.com/embed/EIW2U8CUNUs?feature=oembed](https://www.youtube.com/embed/EIW2U8CUNUs?feature=oembed)
+[https://www.youtube.com/embed/EIW2U8CUNUs](https://www.youtube.com/embed/EIW2U8CUNUs)
 
 Bruce, Patti, Southside Johnny, and Bobby Bandiera and his band perform at a school benefit show at The Stone Pony.
 
@@ -157,7 +157,7 @@ Bruce speaks his mind on the U.S. presidential election and other topics at a pr
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/1_UoZ8wP6zg?feature=oembed](https://www.youtube.com/embed/1_UoZ8wP6zg?feature=oembed)
+[https://www.youtube.com/embed/1_UoZ8wP6zg](https://www.youtube.com/embed/1_UoZ8wP6zg)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gayle King and Oprah Winfrey.
 
@@ -173,16 +173,16 @@ Bruce and Little Steven hold court at Asbury Lanes as a promotional event for , 
 
 **2021:** *Unrequited Infatuations*
 
-[https://www.youtube.com/embed/5G8dvv_sHqs?feature=oembed](https://www.youtube.com/embed/5G8dvv_sHqs?feature=oembed)
+[https://www.youtube.com/embed/5G8dvv_sHqs](https://www.youtube.com/embed/5G8dvv_sHqs)
 
 Bruce appears on the Graham Norton Show in London to promote his new film, .
 
 **2024:** *Road Diary*
 
-[https://www.youtube.com/embed/lx0GllhVJks?feature=oembed](https://www.youtube.com/embed/lx0GllhVJks?feature=oembed)
+[https://www.youtube.com/embed/lx0GllhVJks](https://www.youtube.com/embed/lx0GllhVJks)
 
-[https://www.youtube.com/embed/feUGs3CTebU?feature=oembed](https://www.youtube.com/embed/feUGs3CTebU?feature=oembed)
+[https://www.youtube.com/embed/feUGs3CTebU](https://www.youtube.com/embed/feUGs3CTebU)
 
-[https://www.youtube.com/embed/K_9Gz0os0zg?feature=oembed](https://www.youtube.com/embed/K_9Gz0os0zg?feature=oembed)
+[https://www.youtube.com/embed/K_9Gz0os0zg](https://www.youtube.com/embed/K_9Gz0os0zg)
 
-[https://www.youtube.com/embed/32Slqmht1KQ?feature=oembed](https://www.youtube.com/embed/32Slqmht1KQ?feature=oembed)
+[https://www.youtube.com/embed/32Slqmht1KQ](https://www.youtube.com/embed/32Slqmht1KQ)

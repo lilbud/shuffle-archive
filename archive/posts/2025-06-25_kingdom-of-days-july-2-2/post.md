@@ -31,17 +31,17 @@ Bruce and the E Street Band record "" at Atlantic Studios in New York City, and 
 
 **1977:** [Don't Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)
 
-[https://www.youtube.com/embed/pvMn2zFVX0E?feature=oembed](https://www.youtube.com/embed/pvMn2zFVX0E?feature=oembed)
+[https://www.youtube.com/embed/pvMn2zFVX0E](https://www.youtube.com/embed/pvMn2zFVX0E)
 
 Bruce and the E Street Band kick off the final leg of the River Tour by playing the first-ever event (by anyone) at the Meadowlands. Bruce debuts his cover of "" for the occasion; other highlights include the tour premiere of "" and the last-ever "Born to Run" opener.
 
 **1981:** [Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[I Don't Want to Go Home](http://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)
 
-[https://www.youtube.com/embed/wXYdQPwPyF8?feature=oembed](https://www.youtube.com/embed/wXYdQPwPyF8?feature=oembed)
+[https://www.youtube.com/embed/wXYdQPwPyF8](https://www.youtube.com/embed/wXYdQPwPyF8)
 
-[https://www.youtube.com/embed/LGKg3gEMCUU?feature=oembed](https://www.youtube.com/embed/LGKg3gEMCUU?feature=oembed)
+[https://www.youtube.com/embed/LGKg3gEMCUU](https://www.youtube.com/embed/LGKg3gEMCUU)
 
-[https://www.youtube.com/embed/5eKi-BMbfRY?feature=oembed](https://www.youtube.com/embed/5eKi-BMbfRY?feature=oembed)
+[https://www.youtube.com/embed/5eKi-BMbfRY](https://www.youtube.com/embed/5eKi-BMbfRY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1981-07-02.jpg?resize=758%2C556&amp;ssl=1)
 
@@ -49,23 +49,23 @@ The last of three nights in St. Paul (and the opening stand of the Born in the U
 
 **1984:** [Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)
 
-[https://videopress.com/embed/PWy5WzaZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PWy5WzaZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PWy5WzaZ](https://videopress.com/embed/PWy5WzaZ)
 
 On the CBS television network, airs a segment profiling Clarence.
 
 **1986:** *West 57th*
 
-[https://www.youtube.com/embed/3QvN4MwV3wk?feature=oembed](https://www.youtube.com/embed/3QvN4MwV3wk?feature=oembed)
+[https://www.youtube.com/embed/3QvN4MwV3wk](https://www.youtube.com/embed/3QvN4MwV3wk)
 
 The Tunnel of Love Tour comes to Stockholm for the first of two nights. The second night will make headlines, but Night One still provides a great show, featuring the tour premiere of "."
 
 **1988:** [Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)
 
-[https://www.youtube.com/embed/wBU8DiGV6j0?feature=oembed](https://www.youtube.com/embed/wBU8DiGV6j0?feature=oembed)
+[https://www.youtube.com/embed/wBU8DiGV6j0](https://www.youtube.com/embed/wBU8DiGV6j0)
 
-[https://videopress.com/embed/iUUErpTo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iUUErpTo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/iUUErpTo](https://videopress.com/embed/iUUErpTo)
 
-[https://videopress.com/embed/T5bpoXqm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/T5bpoXqm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/T5bpoXqm](https://videopress.com/embed/T5bpoXqm)
 
 Bruce joins Gary U.S. Bonds at The Cafe Bar in Long Branch for six songs: "" "," "," "," "" and "."
 
@@ -79,15 +79,15 @@ Bruce films a cameo performance in the movie at Disney Soundstage Studios in New
 
 **1999:** *High Fidelity*
 
-[https://videopress.com/embed/e9i42Z2L?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/e9i42Z2L?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/e9i42Z2L](https://videopress.com/embed/e9i42Z2L)
 
 The Working on a Dream Tour arrives in Germany. In Munich, Bruce plays back-to-back tour premieres of "This Hard Land" and "."
 
 **2009:** [Oh, Pretty Woman](http://estreetshuffle.com/index.php/2019/08/25/matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/)
 
-[https://www.youtube.com/embed/c28pEa_vA6M?feature=oembed](https://www.youtube.com/embed/c28pEa_vA6M?feature=oembed)
+[https://www.youtube.com/embed/c28pEa_vA6M](https://www.youtube.com/embed/c28pEa_vA6M)
 
-[https://www.youtube.com/embed/yg1ZA9mrbGA?feature=oembed](https://www.youtube.com/embed/yg1ZA9mrbGA?feature=oembed)
+[https://www.youtube.com/embed/yg1ZA9mrbGA](https://www.youtube.com/embed/yg1ZA9mrbGA)
 
 continues its reprise run at the St. James Theater in New York City.
 
@@ -97,16 +97,16 @@ continues its reprise run at the St. James Theater in New York City.
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/96VumdFyljA?feature=oembed](https://www.youtube.com/embed/96VumdFyljA?feature=oembed)
+[https://www.youtube.com/embed/96VumdFyljA](https://www.youtube.com/embed/96VumdFyljA)
 
-[https://www.youtube.com/embed/LPLW98Q7F40?feature=oembed](https://www.youtube.com/embed/LPLW98Q7F40?feature=oembed)
+[https://www.youtube.com/embed/LPLW98Q7F40](https://www.youtube.com/embed/LPLW98Q7F40)
 
-[https://www.youtube.com/embed/jeSwc-krCZA?feature=oembed](https://www.youtube.com/embed/jeSwc-krCZA?feature=oembed)
+[https://www.youtube.com/embed/jeSwc-krCZA](https://www.youtube.com/embed/jeSwc-krCZA)
 
 Bruce and the E Street Band bring World Tour '24 to Werchter Park in Belgium.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/afdXGayzOEk?feature=oembed](https://www.youtube.com/embed/afdXGayzOEk?feature=oembed)
+[https://www.youtube.com/embed/afdXGayzOEk](https://www.youtube.com/embed/afdXGayzOEk)
 
-[https://www.youtube.com/embed/xmLGyCEiSkk?feature=oembed](https://www.youtube.com/embed/xmLGyCEiSkk?feature=oembed)
+[https://www.youtube.com/embed/xmLGyCEiSkk](https://www.youtube.com/embed/xmLGyCEiSkk)

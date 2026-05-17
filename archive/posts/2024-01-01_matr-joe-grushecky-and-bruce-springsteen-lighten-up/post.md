@@ -11,4 +11,4 @@ This audio clip is the final encore from the October 20, 1995 show at Nick's Fat
 
 Here's the original for comparison.
 
-[https://www.youtube.com/embed/hZdE37zkdiA?feature=oembed](https://www.youtube.com/embed/hZdE37zkdiA?feature=oembed)
+[https://www.youtube.com/embed/hZdE37zkdiA](https://www.youtube.com/embed/hZdE37zkdiA)

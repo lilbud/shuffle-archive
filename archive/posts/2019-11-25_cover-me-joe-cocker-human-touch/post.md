@@ -7,4 +7,4 @@ Joe Cocker shows us how it's done–turning in a cool, understated, almost swing
 
 It's a keeper.
 
-[https://www.youtube.com/embed/jWp5sXWmMCY?feature=oembed](https://www.youtube.com/embed/jWp5sXWmMCY?feature=oembed)
+[https://www.youtube.com/embed/jWp5sXWmMCY](https://www.youtube.com/embed/jWp5sXWmMCY)

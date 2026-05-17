@@ -9,17 +9,17 @@ But Bob Seger's "Get Out of Denver" has remarkable staying power nevertheless, a
 
 *Seven**Seven*
 
-[https://www.youtube.com/embed/9WWHdBuOC6Q?feature=oembed](https://www.youtube.com/embed/9WWHdBuOC6Q?feature=oembed)
+[https://www.youtube.com/embed/9WWHdBuOC6Q](https://www.youtube.com/embed/9WWHdBuOC6Q)
 
 Strangely, though, despite Bruce's friendship with and appreciation for Seger (the two performed together in 1980), Bruce didn't start covering "Get Out of Denver" until the new century–first at a pair of benefit shows for his kids' school in 2002 (for which there are no circulating recordings), later at a pair of shows (a decade apart) in the titular city.
 
 Here's the first of those on-location performances, the show-opener when Bruce's Rising Tour stopped in Denver on September 25, 2003.
 
-[https://www.youtube.com/embed/BEbMmDwIO9g?feature=oembed](https://www.youtube.com/embed/BEbMmDwIO9g?feature=oembed)
+[https://www.youtube.com/embed/BEbMmDwIO9g](https://www.youtube.com/embed/BEbMmDwIO9g)
 
 Almost a decade later, Bruce opened another Denver show with "Get Out of Denver"–this time on the Wrecking Ball Tour.
 
-[https://www.youtube.com/embed/Mgs1yGger5A?feature=oembed](https://www.youtube.com/embed/Mgs1yGger5A?feature=oembed)
+[https://www.youtube.com/embed/Mgs1yGger5A](https://www.youtube.com/embed/Mgs1yGger5A)
 
 "Get Out of Denver" makes for a great opener, and with its ""-ish riff and chorus, it would make for a great encore, too. Let's hope Bruce brings this one out more often.
 

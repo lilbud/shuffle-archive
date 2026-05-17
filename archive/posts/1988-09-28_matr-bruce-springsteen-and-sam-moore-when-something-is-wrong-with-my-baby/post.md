@@ -10,7 +10,7 @@ But if you've only heard Sam and Dave on their studio tracks, you haven't experi
 
 Take a few minutes to watch their performance from the 1967 Stax/Volt Revue, when their song was still riding the charts. (In fact, the date of the performance was April 7, 1967–the exact day it peaked at #2 on the R&B chart.) It's missing the first verse, but you'll still feel the duo's full power.
 
-[https://videopress.com/embed/5uDR5grZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5uDR5grZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/5uDR5grZ](https://videopress.com/embed/5uDR5grZ)
 
 If that performance doesn't floor you, you best get someone to take your pulse.
 

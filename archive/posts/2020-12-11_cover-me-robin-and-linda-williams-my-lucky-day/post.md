@@ -9,4 +9,4 @@ And then I discovered this cover by husband-and-wife folk singers Robin and Lind
 
 Take a listen–if you've never given "My Lucky Day" much consideration before, you're about to discover one of Bruce's loveliest hidden love songs.
 
-[https://www.youtube.com/embed/X1GxAU8NLcs?feature=oembed](https://www.youtube.com/embed/X1GxAU8NLcs?feature=oembed)
+[https://www.youtube.com/embed/X1GxAU8NLcs](https://www.youtube.com/embed/X1GxAU8NLcs)

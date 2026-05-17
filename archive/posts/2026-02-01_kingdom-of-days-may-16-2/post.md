@@ -3,7 +3,7 @@ Bruce cancels a scheduled performance at Minnesota State University and instead 
 
 **1973:** *Tracks*
 
-[https://www.youtube.com/embed/NXPDwAYdCsg?feature=oembed](https://www.youtube.com/embed/NXPDwAYdCsg?feature=oembed)
+[https://www.youtube.com/embed/NXPDwAYdCsg](https://www.youtube.com/embed/NXPDwAYdCsg)
 
 Bruce and the E Street Band work on "Tenth Avenue Freeze-Out" at the Record Plant in New York City.
 
@@ -13,7 +13,7 @@ Bruce and the E Street Band perform in Scotland for the very first time when the
 
 **1981:**<br>
 
-[https://videopress.com/embed/1KZwfls7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1KZwfls7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1KZwfls7](https://videopress.com/embed/1KZwfls7)
 
 Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at Big Man's West (for "Tenth Avenue Freeze-Out") and later with Cats on a Smooth Surface at The Stone Pony.
 
@@ -31,7 +31,7 @@ Jersey Artists for Mankind (JAM) releases their single, "We've Got the Love" in 
 
 **1986:**<br>
 
-[https://www.youtube.com/embed/cEvOLMT9v_w?feature=oembed](https://www.youtube.com/embed/cEvOLMT9v_w?feature=oembed)
+[https://www.youtube.com/embed/cEvOLMT9v_w](https://www.youtube.com/embed/cEvOLMT9v_w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Odessa_American_Sun__May_11__1986_-scaled.jpg?resize=758%2C1800&amp;ssl=1)
 
@@ -39,11 +39,11 @@ Bruce kicks off a five-night stand at Madison Square Garden that wraps the U.S. 
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/bJW6MKNbxtE?feature=oembed](https://www.youtube.com/embed/bJW6MKNbxtE?feature=oembed)
+[https://www.youtube.com/embed/bJW6MKNbxtE](https://www.youtube.com/embed/bJW6MKNbxtE)
 
-[https://www.youtube.com/embed/px1kABSCx38?feature=oembed](https://www.youtube.com/embed/px1kABSCx38?feature=oembed)
+[https://www.youtube.com/embed/px1kABSCx38](https://www.youtube.com/embed/px1kABSCx38)
 
-[https://www.youtube.com/embed/jejzR7UcKyk?feature=oembed](https://www.youtube.com/embed/jejzR7UcKyk?feature=oembed)
+[https://www.youtube.com/embed/jejzR7UcKyk](https://www.youtube.com/embed/jejzR7UcKyk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1988-05-16.jpg?resize=695%2C961&amp;ssl=1)
 
@@ -51,19 +51,19 @@ Bruce's World Tour continues its German leg with a show in Munich. Watch the com
 
 **1993:**<br>
 
-[https://videopress.com/embed/484BpLnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/484BpLnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/484BpLnV](https://videopress.com/embed/484BpLnV)
 
 Bruce's solo acoustic tour of France continues at the Berlioz Opera House in Montpellier, where the set list features a rare performance of "For You."
 
 **1997:**<br>
 
-[https://videopress.com/embed/PTD9NGHp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PTD9NGHp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PTD9NGHp](https://videopress.com/embed/PTD9NGHp)
 
 The Reunion Tour's U.K. swing continues with a show at the NEC Arena in Birmingham, where Edwin Starr makes a guest appearance on a tour one-off of "War."
 
 **1999:**<br>
 
-[https://videopress.com/embed/Bg41FE4q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Bg41FE4q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Bg41FE4q](https://videopress.com/embed/Bg41FE4q)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDaP69n0rjV3tat9WUwhb9O](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDaP69n0rjV3tat9WUwhb9O)
 
@@ -73,33 +73,33 @@ The Seeger Sessions Tour makes a stop at the Heineken Music Hall in Amsterdam.
 
 **2006:**<br>
 
-[https://videopress.com/embed/0nkKkMgu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0nkKkMgu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0nkKkMgu](https://videopress.com/embed/0nkKkMgu)
 
-[https://www.youtube.com/embed/sgnrdP8xJmA?feature=oembed](https://www.youtube.com/embed/sgnrdP8xJmA?feature=oembed)
+[https://www.youtube.com/embed/sgnrdP8xJmA](https://www.youtube.com/embed/sgnrdP8xJmA)
 
-[https://www.youtube.com/embed/zkRHS9fvjPM?feature=oembed](https://www.youtube.com/embed/zkRHS9fvjPM?feature=oembed)
+[https://www.youtube.com/embed/zkRHS9fvjPM](https://www.youtube.com/embed/zkRHS9fvjPM)
 
-[https://videopress.com/embed/u8zYMXyO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u8zYMXyO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/u8zYMXyO](https://videopress.com/embed/u8zYMXyO)
 
 "Long Walk Home" makes for an unusual opener in Herning, Denmark. This show also features the tour premiere of "I Wish I Were Blind."
 
 **2013:**<br>
 
-[https://www.youtube.com/embed/hxeOX9459HI?feature=oembed](https://www.youtube.com/embed/hxeOX9459HI?feature=oembed)
+[https://www.youtube.com/embed/hxeOX9459HI](https://www.youtube.com/embed/hxeOX9459HI)
 
-[https://www.youtube.com/embed/rpgzjek31CY?feature=oembed](https://www.youtube.com/embed/rpgzjek31CY?feature=oembed)
+[https://www.youtube.com/embed/rpgzjek31CY](https://www.youtube.com/embed/rpgzjek31CY)
 
 It's a mini-Seeger Sessions show at the Kristen Ann Carr Fund benefit at the Tribeca Grill in New York City, as Bruce, Charlie, Larry Eagle, Jeremy Chatzky, Sam Bardfield, Lisa Lowell, Ed Manion, Curt Ramm, and Soozie Tyrell play a four-song Seeger set, joined by Nils and and Curtis King as well.
 
 **2015:**<br>
 
-[https://www.youtube.com/embed/DKKVN_76OMs?feature=oembed](https://www.youtube.com/embed/DKKVN_76OMs?feature=oembed)
+[https://www.youtube.com/embed/DKKVN_76OMs](https://www.youtube.com/embed/DKKVN_76OMs)
 
-[https://www.youtube.com/embed/8V-c025LTSw?feature=oembed](https://www.youtube.com/embed/8V-c025LTSw?feature=oembed)
+[https://www.youtube.com/embed/8V-c025LTSw](https://www.youtube.com/embed/8V-c025LTSw)
 
-[https://www.youtube.com/embed/yNabAF6VcFU?feature=oembed](https://www.youtube.com/embed/yNabAF6VcFU?feature=oembed)
+[https://www.youtube.com/embed/yNabAF6VcFU](https://www.youtube.com/embed/yNabAF6VcFU)
 
-[https://www.youtube.com/embed/etXiP7Xcf90?feature=oembed](https://www.youtube.com/embed/etXiP7Xcf90?feature=oembed)
+[https://www.youtube.com/embed/etXiP7Xcf90](https://www.youtube.com/embed/etXiP7Xcf90)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Daily_Record_Fri__May_22__2015_-scaled.jpg?resize=758%2C499&amp;ssl=1)
 
@@ -111,15 +111,15 @@ Bruce releases "There Goes My Miracle," the second single in advance of his upco
 
 **2019:** *Western Stars*
 
-[https://www.youtube.com/embed/tbDKBcPsmoQ?feature=oembed](https://www.youtube.com/embed/tbDKBcPsmoQ?feature=oembed)
+[https://www.youtube.com/embed/tbDKBcPsmoQ](https://www.youtube.com/embed/tbDKBcPsmoQ)
 
 Bruce tour debuts a show-opening "Who'll Stop the Rain" and a unseasonable "Santa Claus is Comin' to Town" in Cork.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/rUQJrcyiW7A?feature=oembed](https://www.youtube.com/embed/rUQJrcyiW7A?feature=oembed)
+[https://www.youtube.com/embed/rUQJrcyiW7A](https://www.youtube.com/embed/rUQJrcyiW7A)
 
-[https://www.youtube.com/embed/GenZgjiFDyI?feature=oembed](https://www.youtube.com/embed/GenZgjiFDyI?feature=oembed)
+[https://www.youtube.com/embed/GenZgjiFDyI](https://www.youtube.com/embed/GenZgjiFDyI)
 
 President Trump dismisses Bruce's recent on-stage comments, calling Springsteen a "pushy, obnoxious jerk," "dumb as a rock," and a "dried out prune."
 

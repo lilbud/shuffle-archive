@@ -5,13 +5,13 @@ First out of the gate was Harrison's Beatles classic, "." The second song of the
 
 [Something](https://estreetshuffle.com/index.php/2021/12/28/cover-me-something/)
 
-[https://www.youtube.com/embed/AR4lpQWcT5g?feature=oembed](https://www.youtube.com/embed/AR4lpQWcT5g?feature=oembed)
+[https://www.youtube.com/embed/AR4lpQWcT5g](https://www.youtube.com/embed/AR4lpQWcT5g)
 
 Bruce's one-time-only cover featured a gentle acoustic arrangement with backing vocals from Patti, Soozie, and Lisa Lowell.
 
 Bruce concluded with a fond "Lord bless you, George!" before launching into a more traditional holiday set. To date, this was the only time Bruce is known to have performed "My Sweet Lord" in concert.
 
-[https://videopress.com/embed/hniSZMBx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hniSZMBx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/hniSZMBx](https://videopress.com/embed/hniSZMBx)
 
 December 3, 2001 (Asbury Park, NJ)
 December 3, 2001 (Asbury Park, NJ)

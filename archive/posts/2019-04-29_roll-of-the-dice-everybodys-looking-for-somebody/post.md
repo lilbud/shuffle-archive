@@ -11,7 +11,7 @@ To me, the first syllable in whatever everybody's looking for sounds like "night
 
 So please give it a shot, and then you tell me. Take a listen below, and leave a comment if you think you know what Bruce is saying.
 
-[https://videopress.com/embed/cFNkYdxa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cFNkYdxa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cFNkYdxa](https://videopress.com/embed/cFNkYdxa)
 
 **Everybody's Looking for ???**<br>
 **Recorded:** September-December 1979<br>

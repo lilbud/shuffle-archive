@@ -19,7 +19,7 @@ In 2005, Richard's life took an unexpected turn: his marriage ended, his family 
 
 "Tougher Than the Rest" became Richard's theme song… so much so that Bruce's words are literally written on his body. (Keep an eye out for them in the video below.)
 
-[https://www.youtube.com/embed/rjf4-0eB6IE?feature=oembed](https://www.youtube.com/embed/rjf4-0eB6IE?feature=oembed)
+[https://www.youtube.com/embed/rjf4-0eB6IE](https://www.youtube.com/embed/rjf4-0eB6IE)
 
 Today, Richard is working on his own music, and he hopes to release two songs this year. If they're as good as the two covers he shared with us, he'll be an artist to watch.
 

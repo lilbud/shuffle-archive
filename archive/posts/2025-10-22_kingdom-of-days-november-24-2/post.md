@@ -21,11 +21,11 @@ Bruce makes a return visit to the Hammersmith Odeon in London a week after his d
 
 **1975:** [Wear My Ring Around Your Neck](http://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)[Little Queenie](http://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)[here](https://live.brucespringsteen.net/live-music/0,25780/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-24-1975-Hammersmith-Odeon-London-UK.html)
 
-[https://www.youtube.com/embed/mCTPCy1Pxrc?feature=oembed](https://www.youtube.com/embed/mCTPCy1Pxrc?feature=oembed)
+[https://www.youtube.com/embed/mCTPCy1Pxrc](https://www.youtube.com/embed/mCTPCy1Pxrc)
 
-[https://www.youtube.com/embed/RNLanNttWOM?feature=oembed](https://www.youtube.com/embed/RNLanNttWOM?feature=oembed)
+[https://www.youtube.com/embed/RNLanNttWOM](https://www.youtube.com/embed/RNLanNttWOM)
 
-[https://www.youtube.com/embed/hnOHH3j_CB4?feature=oembed](https://www.youtube.com/embed/hnOHH3j_CB4?feature=oembed)
+[https://www.youtube.com/embed/hnOHH3j_CB4](https://www.youtube.com/embed/hnOHH3j_CB4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/Evening_Chronicle_1975_11_29_10.jpg?w=758&amp;ssl=1)
 
@@ -33,13 +33,13 @@ Night Two at the Capital Center in Largo on the River Tour is filmed (not by Spr
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/bLcUXt_jMBM?feature=oembed](https://www.youtube.com/embed/bLcUXt_jMBM?feature=oembed)
+[https://www.youtube.com/embed/bLcUXt_jMBM](https://www.youtube.com/embed/bLcUXt_jMBM)
 
 Bruce spends another day in Florida, travelling from Orlando to Miami to perform a show that evening at the Miami Arena.
 
 **1992:**<br>
 
-[https://www.youtube.com/embed/UHiEQxsz-is?feature=oembed](https://www.youtube.com/embed/UHiEQxsz-is?feature=oembed)
+[https://www.youtube.com/embed/UHiEQxsz-is](https://www.youtube.com/embed/UHiEQxsz-is)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-24-300x142.png?resize=758%2C359)
 
@@ -47,15 +47,15 @@ Bruce kicks off Year Two(!) of the Ghost of Tom Joad Tour with a trio of shows a
 
 **1996:** [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)[Wild Billy's Circus Story](http://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)[When You're Alone](https://estreetshuffle.com/index.php/2020/11/15/roll-of-the-dice-when-youre-alone/)[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)*Greetings**Wild & Innocent*[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[here](http://live.brucespringsteen.net/live-music/0,23319/Bruce-Springsteen-mp3-flac-download-11-24-1996-Paramount-Theatre-Asbury-Park-NJ.html)
 
-[https://www.youtube.com/embed/sUjWT1sReVI?feature=oembed](https://www.youtube.com/embed/sUjWT1sReVI?feature=oembed)
+[https://www.youtube.com/embed/sUjWT1sReVI](https://www.youtube.com/embed/sUjWT1sReVI)
 
-[https://www.youtube.com/embed/lLJqX1U77gM?feature=oembed](https://www.youtube.com/embed/lLJqX1U77gM?feature=oembed)
+[https://www.youtube.com/embed/lLJqX1U77gM](https://www.youtube.com/embed/lLJqX1U77gM)
 
-[https://www.youtube.com/embed/JOzvJGy7Hjw?feature=oembed](https://www.youtube.com/embed/JOzvJGy7Hjw?feature=oembed)
+[https://www.youtube.com/embed/JOzvJGy7Hjw](https://www.youtube.com/embed/JOzvJGy7Hjw)
 
-[https://www.youtube.com/embed/v87kjkzztEA?feature=oembed](https://www.youtube.com/embed/v87kjkzztEA?feature=oembed)
+[https://www.youtube.com/embed/v87kjkzztEA](https://www.youtube.com/embed/v87kjkzztEA)
 
-[https://www.youtube.com/embed/0IKnIsoDoKg?feature=oembed](https://www.youtube.com/embed/0IKnIsoDoKg?feature=oembed)
+[https://www.youtube.com/embed/0IKnIsoDoKg](https://www.youtube.com/embed/0IKnIsoDoKg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-11-24a-197x300.png?resize=758%2C1155)
 
@@ -67,15 +67,15 @@ Bruce and the E Street Band wrap up a week-long tour of Florida with a show at t
 
 **2002:**<br>
 
-[https://www.youtube.com/embed/idsR1f3olTk?feature=oembed](https://www.youtube.com/embed/idsR1f3olTk?feature=oembed)
+[https://www.youtube.com/embed/idsR1f3olTk](https://www.youtube.com/embed/idsR1f3olTk)
 
-[https://www.youtube.com/embed/J3Bg9CO20Qg?feature=oembed](https://www.youtube.com/embed/J3Bg9CO20Qg?feature=oembed)
+[https://www.youtube.com/embed/J3Bg9CO20Qg](https://www.youtube.com/embed/J3Bg9CO20Qg)
 
-[https://www.youtube.com/embed/t6nnkaSSqWU?feature=oembed](https://www.youtube.com/embed/t6nnkaSSqWU?feature=oembed)
+[https://www.youtube.com/embed/t6nnkaSSqWU](https://www.youtube.com/embed/t6nnkaSSqWU)
 
-[https://www.youtube.com/embed/YTDXlM9eqSw?feature=oembed](https://www.youtube.com/embed/YTDXlM9eqSw?feature=oembed)
+[https://www.youtube.com/embed/YTDXlM9eqSw](https://www.youtube.com/embed/YTDXlM9eqSw)
 
-[https://www.youtube.com/embed/8QzPVFnc6-M?feature=oembed](https://www.youtube.com/embed/8QzPVFnc6-M?feature=oembed)
+[https://www.youtube.com/embed/8QzPVFnc6-M](https://www.youtube.com/embed/8QzPVFnc6-M)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD8Z212HMxPj4hjuRuQdikF](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD8Z212HMxPj4hjuRuQdikF)
 

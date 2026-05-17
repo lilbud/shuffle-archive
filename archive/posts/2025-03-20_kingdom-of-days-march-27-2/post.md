@@ -35,7 +35,7 @@ Night Four of five at the Sydney Entertainment Center on the Born in the U.S.A. 
 
 **1985:**<br>
 
-[https://videopress.com/embed/RxOJwN5n?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RxOJwN5n?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/RxOJwN5n](https://videopress.com/embed/RxOJwN5n)
 
 Bruce's scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year's Oscar ceremony.
 
@@ -47,13 +47,13 @@ The final night in Melbourne on the Wrecking Ball Tour features the tour premier
 
 **2013:**[Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)
 
-[https://www.youtube.com/embed/VWJ36EUmKPg?feature=oembed](https://www.youtube.com/embed/VWJ36EUmKPg?feature=oembed)
+[https://www.youtube.com/embed/VWJ36EUmKPg](https://www.youtube.com/embed/VWJ36EUmKPg)
 
-[https://www.youtube.com/embed/XiJTgwgPk2Y?feature=oembed](https://www.youtube.com/embed/XiJTgwgPk2Y?feature=oembed)
+[https://www.youtube.com/embed/XiJTgwgPk2Y](https://www.youtube.com/embed/XiJTgwgPk2Y)
 
-[https://www.youtube.com/embed/maLgC_inW2Q?feature=oembed](https://www.youtube.com/embed/maLgC_inW2Q?feature=oembed)
+[https://www.youtube.com/embed/maLgC_inW2Q](https://www.youtube.com/embed/maLgC_inW2Q)
 
-[https://www.youtube.com/embed/Pv1h0ajnteE?feature=oembed](https://www.youtube.com/embed/Pv1h0ajnteE?feature=oembed)
+[https://www.youtube.com/embed/Pv1h0ajnteE](https://www.youtube.com/embed/Pv1h0ajnteE)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -63,16 +63,16 @@ Bruce and the E Street Band bring their World Tour to the Capital One Arena in W
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/z1BBXmNAASA?feature=oembed](https://www.youtube.com/embed/z1BBXmNAASA?feature=oembed)
+[https://www.youtube.com/embed/z1BBXmNAASA](https://www.youtube.com/embed/z1BBXmNAASA)
 
-[https://www.youtube.com/embed/i1ynj81Dl1k?feature=oembed](https://www.youtube.com/embed/i1ynj81Dl1k?feature=oembed)
+[https://www.youtube.com/embed/i1ynj81Dl1k](https://www.youtube.com/embed/i1ynj81Dl1k)
 
-[https://www.youtube.com/embed/bLUhR_LSLmc?feature=oembed](https://www.youtube.com/embed/bLUhR_LSLmc?feature=oembed)
+[https://www.youtube.com/embed/bLUhR_LSLmc](https://www.youtube.com/embed/bLUhR_LSLmc)
 
 Bruce makes a surprise appearance with Zach Bryan at Barclays Center in Brooklyn, performing "Sandpaper" and an encore of "Revival" together. Maggie Rogers joins Bruce and Zach for the encore.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/07MFGBvHiEk?feature=oembed](https://www.youtube.com/embed/07MFGBvHiEk?feature=oembed)
+[https://www.youtube.com/embed/07MFGBvHiEk](https://www.youtube.com/embed/07MFGBvHiEk)
 
-[https://www.youtube.com/embed/G_E1Q3un3iY?feature=oembed](https://www.youtube.com/embed/G_E1Q3un3iY?feature=oembed)
+[https://www.youtube.com/embed/G_E1Q3un3iY](https://www.youtube.com/embed/G_E1Q3un3iY)

@@ -7,11 +7,11 @@ One of rock's greatest riffs was based on another one of rock's greatest riffs, 
 
 The original, of course, is well-known and instantly recognizable. T. Rex released it as a single in 1971, and it went all the way to #10 in the U.S. and to the top spot in the U.K.
 
-[https://www.youtube.com/embed/wZkTh_T75QY?feature=oembed](https://www.youtube.com/embed/wZkTh_T75QY?feature=oembed)
+[https://www.youtube.com/embed/wZkTh_T75QY](https://www.youtube.com/embed/wZkTh_T75QY)
 
 Supergroup The Power Station covered it in 1985, and their version (slightly retitled) charted as well, outperforming the original in the U.S.
 
-[https://www.youtube.com/embed/O2vHbXI2p4k?feature=oembed](https://www.youtube.com/embed/O2vHbXI2p4k?feature=oembed)
+[https://www.youtube.com/embed/O2vHbXI2p4k](https://www.youtube.com/embed/O2vHbXI2p4k)
 
 When Bruce tackled it for the one and only time, it was with a supergroup of sorts, too. On the night of October 21, 1994, Bruce joined an all-star line-up at The Playpen in Sayreville, New Jersey.
 
@@ -19,7 +19,7 @@ Together with John Eddie, Greg Kihn, Marshall Crenshaw, and Elliott Murphy, Bruc
 
 [(Get Your Kicks on) Route 66](https://estreetshuffle.com/index.php/2019/08/15/cover-me-get-your-kicks-on-route-66/)
 
-[https://www.youtube.com/embed/9osA0jMFeBk?feature=oembed](https://www.youtube.com/embed/9osA0jMFeBk?feature=oembed)
+[https://www.youtube.com/embed/9osA0jMFeBk](https://www.youtube.com/embed/9osA0jMFeBk)
 
 October 21, 1994 (Sayreville, NJ)
 October 21, 1994 (Sayreville, NJ)

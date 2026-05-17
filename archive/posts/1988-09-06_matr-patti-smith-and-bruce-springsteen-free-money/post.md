@@ -12,7 +12,7 @@ While we know that Bruce played both piano and guitar that November night, we do
 
 But if I had to hazard a guess based on the recording below (and other performances from that night where Bruce's role is known), I'd wager Bruce was on the piano. At risk of offending John Cale, who was also guest-starring that night on piano, I detect just a bit of the hesitancy I often hear when Bruce plays the piano, although that may simply be an artifact of the old and somewhat distant recording.
 
-[https://videopress.com/embed/LdU0fAz4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/LdU0fAz4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/LdU0fAz4](https://videopress.com/embed/LdU0fAz4)
 
 Regardless of which instrument Bruce helmed that night, he contributed to a fierce performance and his only known one of that particular song.
 

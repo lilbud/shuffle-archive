@@ -23,11 +23,11 @@ Randy Brecker joins Bruce in the studio at The Record Plant in New York City, wh
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/saVNAWWYNIg?feature=oembed](https://www.youtube.com/embed/saVNAWWYNIg?feature=oembed)
+[https://www.youtube.com/embed/saVNAWWYNIg](https://www.youtube.com/embed/saVNAWWYNIg)
 
-[https://www.youtube.com/embed/KeCYf2gdqg8?feature=oembed](https://www.youtube.com/embed/KeCYf2gdqg8?feature=oembed)
+[https://www.youtube.com/embed/KeCYf2gdqg8](https://www.youtube.com/embed/KeCYf2gdqg8)
 
-[https://www.youtube.com/embed/DE5zChT4-4E?feature=oembed](https://www.youtube.com/embed/DE5zChT4-4E?feature=oembed)
+[https://www.youtube.com/embed/DE5zChT4-4E](https://www.youtube.com/embed/DE5zChT4-4E)
 
 Bruce and the band close out their Chicken Scratch Tour with a show for the U.S. Naval Academy at Annapolis, where they play Frankie Ford's "Sea Cruise" for the first time.
 
@@ -47,7 +47,7 @@ Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) 
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed](https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed)
+[https://www.youtube.com/embed/6vQpW9XRiyM](https://www.youtube.com/embed/6vQpW9XRiyM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1985-05-27.jpg?resize=572%2C956&amp;ssl=1)
 
@@ -55,9 +55,9 @@ and are both certified platinum by the Recording Industry Association of America
 
 **1992:** *Human Touch* *Lucky Town*
 
-[https://www.youtube.com/embed/MkP2wIxh3RE?feature=oembed](https://www.youtube.com/embed/MkP2wIxh3RE?feature=oembed)
+[https://www.youtube.com/embed/MkP2wIxh3RE](https://www.youtube.com/embed/MkP2wIxh3RE)
 
-[https://www.youtube.com/embed/FrFfK0Gx0-U?feature=oembed](https://www.youtube.com/embed/FrFfK0Gx0-U?feature=oembed)
+[https://www.youtube.com/embed/FrFfK0Gx0-U](https://www.youtube.com/embed/FrFfK0Gx0-U)
 
 Bruce's World Tour 1993 arrives in Stockholm, where the show is filmed for a never-released television event.
 
@@ -71,7 +71,7 @@ Bruce plays the second of two solo acoustic shows at Royal Albert Hall in London
 
 **2005:**<br>
 
-[https://www.youtube.com/embed/Twj9KBEciUg?feature=oembed](https://www.youtube.com/embed/Twj9KBEciUg?feature=oembed)
+[https://www.youtube.com/embed/Twj9KBEciUg](https://www.youtube.com/embed/Twj9KBEciUg)
 
 Roy Bittan makes a guest appearance with Bruce and the Sessions Band at their show in Bristow, Virginia.
 
@@ -81,7 +81,7 @@ The Magic Tour stops at Old Trafford in Manchester.
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/w_c_nZoxah8?feature=oembed](https://www.youtube.com/embed/w_c_nZoxah8?feature=oembed)
+[https://www.youtube.com/embed/w_c_nZoxah8](https://www.youtube.com/embed/w_c_nZoxah8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-28.jpg?resize=758%2C538&amp;ssl=1)
 
@@ -89,41 +89,41 @@ Bruce headlines Pinkpop for the second time, playing a festival set with a Garla
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/LNsrRseQG80?feature=oembed](https://www.youtube.com/embed/LNsrRseQG80?feature=oembed)
+[https://www.youtube.com/embed/LNsrRseQG80](https://www.youtube.com/embed/LNsrRseQG80)
 
-[https://www.youtube.com/embed/XZw7vwiqK9A?feature=oembed](https://www.youtube.com/embed/XZw7vwiqK9A?feature=oembed)
+[https://www.youtube.com/embed/XZw7vwiqK9A](https://www.youtube.com/embed/XZw7vwiqK9A)
 
-[https://www.youtube.com/embed/H4q42WQDb5o?feature=oembed](https://www.youtube.com/embed/H4q42WQDb5o?feature=oembed)
+[https://www.youtube.com/embed/H4q42WQDb5o](https://www.youtube.com/embed/H4q42WQDb5o)
 
-[https://www.youtube.com/embed/-lYz43rft7Y?feature=oembed](https://www.youtube.com/embed/-lYz43rft7Y?feature=oembed)
+[https://www.youtube.com/embed/-lYz43rft7Y](https://www.youtube.com/embed/-lYz43rft7Y)
 
-[https://www.youtube.com/embed/C3hdSRl1riQ?feature=oembed](https://www.youtube.com/embed/C3hdSRl1riQ?feature=oembed)
+[https://www.youtube.com/embed/C3hdSRl1riQ](https://www.youtube.com/embed/C3hdSRl1riQ)
 
-[https://www.youtube.com/embed/5Cb0zZ_06XY?feature=oembed](https://www.youtube.com/embed/5Cb0zZ_06XY?feature=oembed)
+[https://www.youtube.com/embed/5Cb0zZ_06XY](https://www.youtube.com/embed/5Cb0zZ_06XY)
 
-[https://www.youtube.com/embed/yYRN-T-el_M?feature=oembed](https://www.youtube.com/embed/yYRN-T-el_M?feature=oembed)
+[https://www.youtube.com/embed/yYRN-T-el_M](https://www.youtube.com/embed/yYRN-T-el_M)
 
 The Wrecking Ball Tour moves to Hanover, Germany, where "Roll of the Dice" makes its tour premiere (in a rare acoustic arrangement) and "Drift Away" gets a rare outing.
 
 **2013:**<br>
 
-[https://www.youtube.com/embed/u9U8Le7hz5Q?feature=oembed](https://www.youtube.com/embed/u9U8Le7hz5Q?feature=oembed)
+[https://www.youtube.com/embed/u9U8Le7hz5Q](https://www.youtube.com/embed/u9U8Le7hz5Q)
 
-[https://www.youtube.com/embed/uU5ydeSPKhs?feature=oembed](https://www.youtube.com/embed/uU5ydeSPKhs?feature=oembed)
+[https://www.youtube.com/embed/uU5ydeSPKhs](https://www.youtube.com/embed/uU5ydeSPKhs)
 
-[https://www.youtube.com/embed/R9fM-9ssaUE?feature=oembed](https://www.youtube.com/embed/R9fM-9ssaUE?feature=oembed)
+[https://www.youtube.com/embed/R9fM-9ssaUE](https://www.youtube.com/embed/R9fM-9ssaUE)
 
-[https://www.youtube.com/embed/4kATUppwtEM?feature=oembed](https://www.youtube.com/embed/4kATUppwtEM?feature=oembed)
+[https://www.youtube.com/embed/4kATUppwtEM](https://www.youtube.com/embed/4kATUppwtEM)
 
 Bruce presents Pete Townshend with the MusiCares Stevie Ray Vaughan Award for his work supporting the foundation's efforts. Later, he joins Townshend and Roger Daltrey on stage for "My Generation" and "Won't Get Fooled Again."
 
 **2015:**<br>
 
-[https://www.youtube.com/embed/tRF_BKq5xTk?feature=oembed](https://www.youtube.com/embed/tRF_BKq5xTk?feature=oembed)
+[https://www.youtube.com/embed/tRF_BKq5xTk](https://www.youtube.com/embed/tRF_BKq5xTk)
 
-[https://www.youtube.com/embed/a6BrJJgDtxM?feature=oembed](https://www.youtube.com/embed/a6BrJJgDtxM?feature=oembed)
+[https://www.youtube.com/embed/a6BrJJgDtxM](https://www.youtube.com/embed/a6BrJJgDtxM)
 
-[https://www.youtube.com/embed/W2bcUlm863U?feature=oembed](https://www.youtube.com/embed/W2bcUlm863U?feature=oembed)
+[https://www.youtube.com/embed/W2bcUlm863U](https://www.youtube.com/embed/W2bcUlm863U)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2015-05-28.jpg?resize=758%2C626&amp;ssl=1)
 

@@ -9,7 +9,7 @@ The Lawsuit Tour comes to a close with a final show at Boston's Music Hall, feat
 
 **1977:**<br>
 
-[https://www.youtube.com/embed/s_cwfe-0E8w?feature=oembed](https://www.youtube.com/embed/s_cwfe-0E8w?feature=oembed)
+[https://www.youtube.com/embed/s_cwfe-0E8w](https://www.youtube.com/embed/s_cwfe-0E8w)
 
 [https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeWluJwZz56jBquSMdPEpyIl](https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeWluJwZz56jBquSMdPEpyIl)
 
@@ -17,7 +17,7 @@ At his home studio in Holmdel, Bruce and the E Street Band rehearse "Meet Me in 
 
 **1979:**<br>
 
-[https://www.youtube.com/embed/-KuFJEzoFuE?feature=oembed](https://www.youtube.com/embed/-KuFJEzoFuE?feature=oembed)
+[https://www.youtube.com/embed/-KuFJEzoFuE](https://www.youtube.com/embed/-KuFJEzoFuE)
 
 That evening, Bruce catches The Ramones playing at The Fast Lane in Asbury Park. Backstage, Joey Ramone asks Bruce to write a song for them. Bruce starts writing "Hungry Heart" that very night.
 
@@ -29,28 +29,28 @@ Bruce performs "Dead Man Walkin'" at the Academy Awards, where it is nominated (
 
 **1996:**<br>
 
-[https://www.youtube.com/embed/GbGoqDY9RzM?feature=oembed](https://www.youtube.com/embed/GbGoqDY9RzM?feature=oembed)
+[https://www.youtube.com/embed/GbGoqDY9RzM](https://www.youtube.com/embed/GbGoqDY9RzM)
 
-[https://www.youtube.com/embed/TxF8mlR2fmk?feature=oembed](https://www.youtube.com/embed/TxF8mlR2fmk?feature=oembed)
+[https://www.youtube.com/embed/TxF8mlR2fmk](https://www.youtube.com/embed/TxF8mlR2fmk)
 
 The Australian leg of The Rising Tour moves on to Brisbane, where "Jungleland" makes its tour debut.
 
 **2003:**<br>
 
-[https://videopress.com/embed/KievsdMg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KievsdMg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/KievsdMg](https://videopress.com/embed/KievsdMg)
 
 Bruce and the E Street Band bring their World Tour to the Greensboro Coliseum.
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/axLQaXPe1Yw?feature=oembed](https://www.youtube.com/embed/axLQaXPe1Yw?feature=oembed)
+[https://www.youtube.com/embed/axLQaXPe1Yw](https://www.youtube.com/embed/axLQaXPe1Yw)
 
-[https://www.youtube.com/embed/r7RNsuTUzH0?feature=oembed](https://www.youtube.com/embed/r7RNsuTUzH0?feature=oembed)
+[https://www.youtube.com/embed/r7RNsuTUzH0](https://www.youtube.com/embed/r7RNsuTUzH0)
 
 Bruce and the E Street Band return to San Diego for the first time in 18 years, tour debuting "My City of Ruins" at Pechanga Arena.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/954jw3q8x7E?feature=oembed](https://www.youtube.com/embed/954jw3q8x7E?feature=oembed)
+[https://www.youtube.com/embed/954jw3q8x7E](https://www.youtube.com/embed/954jw3q8x7E)
 
-[https://www.youtube.com/embed/U8VrGnPNZLc?feature=oembed](https://www.youtube.com/embed/U8VrGnPNZLc?feature=oembed)
+[https://www.youtube.com/embed/U8VrGnPNZLc](https://www.youtube.com/embed/U8VrGnPNZLc)

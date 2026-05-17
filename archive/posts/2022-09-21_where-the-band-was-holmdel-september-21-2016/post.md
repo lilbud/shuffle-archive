@@ -27,9 +27,9 @@ Steve kept us in suspense, faking us out during the encore by inviting a friend 
 
 [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-[https://www.youtube.com/embed/m_ZiEZTQNtY?feature=oembed](https://www.youtube.com/embed/m_ZiEZTQNtY?feature=oembed)
+[https://www.youtube.com/embed/m_ZiEZTQNtY](https://www.youtube.com/embed/m_ZiEZTQNtY)
 
-[https://www.youtube.com/embed/2EGhc8DJFz0?feature=oembed](https://www.youtube.com/embed/2EGhc8DJFz0?feature=oembed)
+[https://www.youtube.com/embed/2EGhc8DJFz0](https://www.youtube.com/embed/2EGhc8DJFz0)
 
 The show ran late because of the extended encore, and I was debating leaving early during Jackson Browne's set since I'd just flown in on the red-eye that morning. Jackson is one of my favorite artists, but his encores are usually predictable. Still–the bouncer told me between sets that Bruce was still backstage and was having an extended conversation with Jackson, so maybe…
 
@@ -37,10 +37,10 @@ And yes–he came out during Jackson's encore and did some gorgeous guitar work 
 
 *again*[Take It Easy,](http://estreetshuffle.com/index.php/2018/01/18/cover-me-take-it-easy/)[Our Lady of the Well](http://estreetshuffle.com/index.php/2019/04/14/matr-jackson-browne-and-bruce-springsteen-our-lady-of-the-well/)
 
-[https://www.youtube.com/embed/uoZE3iJKs8g?feature=oembed](https://www.youtube.com/embed/uoZE3iJKs8g?feature=oembed)
+[https://www.youtube.com/embed/uoZE3iJKs8g](https://www.youtube.com/embed/uoZE3iJKs8g)
 
 Another bonus: Steve joined Jackson for a duet of "I am a Patriot," which rivaled Bruce's appearance for highlight of the evening.
 
-[https://www.youtube.com/embed/Cu0PuFnEhOY?feature=oembed](https://www.youtube.com/embed/Cu0PuFnEhOY?feature=oembed)
+[https://www.youtube.com/embed/Cu0PuFnEhOY](https://www.youtube.com/embed/Cu0PuFnEhOY)
 
 In all, Bruce was on-stage for about a half-hour (not bad for a "bonus" show), and I got to hear him play three songs I'd never heard perform live before, with performers I'd have been happy to see solo. It remains my only surprise Bruce appearance (in concert, anyway) to date.

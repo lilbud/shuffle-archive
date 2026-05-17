@@ -7,12 +7,12 @@ Like Bruce, I have no idea why that would be so, but to my eyes and ears it empi
 
 The band was more comfortable and confident on Night Two of the tour, and the set was rapidly coalescing into a tightly focused commentary on the times.
 
-[https://www.youtube.com/embed/8mHqlZioB3g?feature=oembed](https://www.youtube.com/embed/8mHqlZioB3g?feature=oembed)
+[https://www.youtube.com/embed/8mHqlZioB3g](https://www.youtube.com/embed/8mHqlZioB3g)
 
-[https://www.youtube.com/embed/TyeomTPub8U?feature=oembed](https://www.youtube.com/embed/TyeomTPub8U?feature=oembed)
+[https://www.youtube.com/embed/TyeomTPub8U](https://www.youtube.com/embed/TyeomTPub8U)
 
-[https://www.youtube.com/embed/NawwNACGKM0?feature=oembed](https://www.youtube.com/embed/NawwNACGKM0?feature=oembed)
+[https://www.youtube.com/embed/NawwNACGKM0](https://www.youtube.com/embed/NawwNACGKM0)
 
-[https://www.youtube.com/embed/omeJXzAHtTQ?feature=oembed](https://www.youtube.com/embed/omeJXzAHtTQ?feature=oembed)
+[https://www.youtube.com/embed/omeJXzAHtTQ](https://www.youtube.com/embed/omeJXzAHtTQ)
 
-[https://www.youtube.com/embed/iEWmlk5mmEI?feature=oembed](https://www.youtube.com/embed/iEWmlk5mmEI?feature=oembed)
+[https://www.youtube.com/embed/iEWmlk5mmEI](https://www.youtube.com/embed/iEWmlk5mmEI)

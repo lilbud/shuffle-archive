@@ -26,7 +26,7 @@ Maybe that's why Bruce selected those tracks in particular when Joe shared his w
 
 Joe admits it's a fun one to play live, too, so it's surprising that they've only played it together twice–once on the Jersey shore shortly after the album's release in 2006, and again five years later at a benefit show in Pittsburgh (where Bruce even took lead vocals for a verse).
 
-[https://videopress.com/embed/Al0LrsUh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Al0LrsUh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Al0LrsUh](https://videopress.com/embed/Al0LrsUh)
 
 When I point out its relative rarity in concert, Joe admits "A Good Life" has taken a back seat in recent years to older fan favorites, but he hints that just might change on the other side of quarantine.
 

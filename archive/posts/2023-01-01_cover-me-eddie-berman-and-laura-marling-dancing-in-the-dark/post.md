@@ -15,13 +15,13 @@ About a half-hour in to our amazing tasting experience, I was feeling pretty goo
 
 And then I suddenly noticed what was playing on the bar's stereo, and the evening became perfect.
 
-[https://videopress.com/embed/cBy6nX1x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cBy6nX1x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cBy6nX1x](https://videopress.com/embed/cBy6nX1x)
 
 As you can hear in the video above, there was a lovely acoustic cover of "Dancing in the Dark" playing, and it was one I'd never heard before.
 
 Thanks to music recognition software, I was able to fingerprint it on the spot, so I share with you now the soundtrack from my perfect evening: Eddie Berman and Laura Marling performing Bruce Springsteen's biggest hit.
 
-[https://www.youtube.com/embed/ul0aWaPAkak?feature=oembed](https://www.youtube.com/embed/ul0aWaPAkak?feature=oembed)
+[https://www.youtube.com/embed/ul0aWaPAkak](https://www.youtube.com/embed/ul0aWaPAkak)
 
 Is it a great cover?
 

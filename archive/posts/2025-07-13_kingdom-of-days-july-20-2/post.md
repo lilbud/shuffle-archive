@@ -15,9 +15,9 @@ A red-letter (and red-eyed) day for Bruce and the E Street Band: after a maratho
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/l6IwxpL-ZDk?feature=oembed](https://www.youtube.com/embed/l6IwxpL-ZDk?feature=oembed)
+[https://www.youtube.com/embed/l6IwxpL-ZDk](https://www.youtube.com/embed/l6IwxpL-ZDk)
 
-[https://www.youtube.com/embed/8Hoz79azVDI?feature=oembed](https://www.youtube.com/embed/8Hoz79azVDI?feature=oembed)
+[https://www.youtube.com/embed/8Hoz79azVDI](https://www.youtube.com/embed/8Hoz79azVDI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1975-07-20.png?resize=758%2C1911&amp;ssl=1)
 
@@ -25,7 +25,7 @@ The opening stand of the Reunion Tour's U.S. leg continues with Night Three at t
 
 **1999:**<br>
 
-[https://videopress.com/embed/DhJGQnGP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DhJGQnGP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/DhJGQnGP](https://videopress.com/embed/DhJGQnGP)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1999-07-20-300x229.png?resize=758%2C579)
 
@@ -33,9 +33,9 @@ Bruce brings his solo acoustic tour to Bridgeport, Connecticut, where he tour pr
 
 **2005:** [All That Heaven Will Allow](https://estreetshuffle.com/index.php/2022/08/05/roll-of-the-dice-all-that-heaven-will-allow/)[Nothing Man,](https://estreetshuffle.com/index.php/2020/08/29/roll-of-the-dice-nothing-man/)
 
-[https://videopress.com/embed/wpRIRm41?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wpRIRm41?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/wpRIRm41](https://videopress.com/embed/wpRIRm41)
 
-[https://www.youtube.com/embed/L9XCvwdwCVk?feature=oembed](https://www.youtube.com/embed/L9XCvwdwCVk?feature=oembed)
+[https://www.youtube.com/embed/L9XCvwdwCVk](https://www.youtube.com/embed/L9XCvwdwCVk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/2005-07-20.png?resize=537%2C3502&amp;ssl=1)
 
@@ -43,43 +43,43 @@ Bruce and the E Street Band play their last European Magic show, at Camp Nou in 
 
 **2008:** [I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)
 
-[https://www.youtube.com/embed/SzMNhfqCOJ8?feature=oembed](https://www.youtube.com/embed/SzMNhfqCOJ8?feature=oembed)
+[https://www.youtube.com/embed/SzMNhfqCOJ8](https://www.youtube.com/embed/SzMNhfqCOJ8)
 
-[https://videopress.com/embed/sWVYJ29B?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/sWVYJ29B?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/sWVYJ29B](https://videopress.com/embed/sWVYJ29B)
 
 Bruce takes Evan to see U2 at the New Meadowlands Stadium, where Bono pays tribute to Clarence and outros from "Moment of Surrender" into "Jungleland."
 
 **2011:**<br>
 
-[https://www.youtube.com/embed/dtmUsQjADjc?feature=oembed](https://www.youtube.com/embed/dtmUsQjADjc?feature=oembed)
+[https://www.youtube.com/embed/dtmUsQjADjc](https://www.youtube.com/embed/dtmUsQjADjc)
 
 Bruce tour debuts "" (as the fourth song in a mini-set) and "" when the Wrecking Ball Tour stops at King's Hall in Belfast. Early fans get an extra treat: short but remarkable pre-show featuring a rare outing for "."
 
 **2013:** [Nebraska](http://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)*Nebraska* [Fade Away](http://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)[Maria's Bed](http://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/)
 
-[https://www.youtube.com/embed/ZG9JFy-hfXA?feature=oembed](https://www.youtube.com/embed/ZG9JFy-hfXA?feature=oembed)
+[https://www.youtube.com/embed/ZG9JFy-hfXA](https://www.youtube.com/embed/ZG9JFy-hfXA)
 
-[https://www.youtube.com/embed/1_hpEKd65z8?feature=oembed](https://www.youtube.com/embed/1_hpEKd65z8?feature=oembed)
+[https://www.youtube.com/embed/1_hpEKd65z8](https://www.youtube.com/embed/1_hpEKd65z8)
 
-[https://www.youtube.com/embed/NCHozP7MWBw?feature=oembed](https://www.youtube.com/embed/NCHozP7MWBw?feature=oembed)
+[https://www.youtube.com/embed/NCHozP7MWBw](https://www.youtube.com/embed/NCHozP7MWBw)
 
-[https://www.youtube.com/embed/6DDpfU3KZas?feature=oembed](https://www.youtube.com/embed/6DDpfU3KZas?feature=oembed)
+[https://www.youtube.com/embed/6DDpfU3KZas](https://www.youtube.com/embed/6DDpfU3KZas)
 
-[https://www.youtube.com/embed/QW8yABgfBAc?feature=oembed](https://www.youtube.com/embed/QW8yABgfBAc?feature=oembed)
+[https://www.youtube.com/embed/QW8yABgfBAc](https://www.youtube.com/embed/QW8yABgfBAc)
 
-[https://www.youtube.com/embed/N8_Te_3hzjc?feature=oembed](https://www.youtube.com/embed/N8_Te_3hzjc?feature=oembed)
+[https://www.youtube.com/embed/N8_Te_3hzjc](https://www.youtube.com/embed/N8_Te_3hzjc)
 
 The revived River Tour moves on to Horsens, Denmark, where Bruce opens with a tour premiere of "" in memory of songwriter Alan Vega, who died four days prior. Other tour premieres include "," "" and "Follow That Dream." This show is available to stream or purchase .
 
 **2016:** [Dream Baby Dream](http://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)[You Never Can Tell](http://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)[Frankie](http://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)[here](https://live.brucespringsteen.net/live-music/0,14127/Bruce-Springsteen-mp3-flac-download-7-20-2016-CASA-Arena-Horsens-Horsens-DK.html)
 
-[https://www.youtube.com/embed/M7VBOp1OrEM?feature=oembed](https://www.youtube.com/embed/M7VBOp1OrEM?feature=oembed)
+[https://www.youtube.com/embed/M7VBOp1OrEM](https://www.youtube.com/embed/M7VBOp1OrEM)
 
-[https://www.youtube.com/embed/Dt04fcJgQTM?feature=oembed](https://www.youtube.com/embed/Dt04fcJgQTM?feature=oembed)
+[https://www.youtube.com/embed/Dt04fcJgQTM](https://www.youtube.com/embed/Dt04fcJgQTM)
 
-[https://www.youtube.com/embed/aGeP38rHcSI?feature=oembed](https://www.youtube.com/embed/aGeP38rHcSI?feature=oembed)
+[https://www.youtube.com/embed/aGeP38rHcSI](https://www.youtube.com/embed/aGeP38rHcSI)
 
-[https://www.youtube.com/embed/ibvtobZFKNE?feature=oembed](https://www.youtube.com/embed/ibvtobZFKNE?feature=oembed)
+[https://www.youtube.com/embed/ibvtobZFKNE](https://www.youtube.com/embed/ibvtobZFKNE)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

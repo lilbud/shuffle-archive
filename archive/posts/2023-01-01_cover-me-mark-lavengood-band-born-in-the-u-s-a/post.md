@@ -9,4 +9,4 @@ But his new dobro-centric cover of "" from his recent tour is even better, and l
 
 Take a look and listen to Lavengood's terrific adaptation of one of Bruce's most iconic songs.
 
-[https://www.youtube.com/embed/7s1TtovFNE4?feature=oembed](https://www.youtube.com/embed/7s1TtovFNE4?feature=oembed)
+[https://www.youtube.com/embed/7s1TtovFNE4](https://www.youtube.com/embed/7s1TtovFNE4)

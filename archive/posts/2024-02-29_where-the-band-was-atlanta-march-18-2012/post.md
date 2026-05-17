@@ -15,20 +15,20 @@ Bruce gave himself a third-person introduction (that would be one of the first t
 
 [We Take Care of Our Own,](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)
 
-[https://www.youtube.com/embed/N23UCzVe8oU?feature=oembed](https://www.youtube.com/embed/N23UCzVe8oU?feature=oembed)
+[https://www.youtube.com/embed/N23UCzVe8oU](https://www.youtube.com/embed/N23UCzVe8oU)
 
-[https://www.youtube.com/embed/ca3vy25izfw?feature=oembed](https://www.youtube.com/embed/ca3vy25izfw?feature=oembed)
+[https://www.youtube.com/embed/ca3vy25izfw](https://www.youtube.com/embed/ca3vy25izfw)
 
 One of the short-lived gems from this show: the premiere of "" a foot-stomping companion piece to "." Another was the –a delightful surprise holdover from the preview show. I loved the new material, particularly "," "," and "." By the end of the tour, "Shackled and Drawn" would lodge itself firmly near the top of my favorite songs to see Bruce perform live.
 
 [Easy Money](https://estreetshuffle.com/index.php/2021/06/10/roll-of-the-dice-easy-money/)[Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)[Apollo Medley](https://estreetshuffle.com/index.php/2020/11/20/cover-me-the-way-you-do-the-things-you-do/)[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)[Rocky Ground](https://estreetshuffle.com/index.php/2023/03/20/roll-of-the-dice-rocky-ground/)[We Are Alive](http://estreetshuffle.com/index.php/2018/09/15/roll-of-the-dice-we-are-alive/)
 
-[https://www.youtube.com/embed/yt5vcX9SsnQ?feature=oembed](https://www.youtube.com/embed/yt5vcX9SsnQ?feature=oembed)
+[https://www.youtube.com/embed/yt5vcX9SsnQ](https://www.youtube.com/embed/yt5vcX9SsnQ)
 
 And Jake… Jake was a sensation from the start. Tentative at first (who wouldn't be in his shoes), nestled in the comfort of a full horn section, it didn't take long for Bruce to bring Jake out front, and Jake made the most of it, winning over the crowd thunderously.
 
 It was a heck of an opener–and the show would only grow in size and power from here. The super-sized E Street Band was back–and even the loss of Clarence couldn't diminish their magic.
 
-[https://www.youtube.com/embed/HwPKghvYNs8?feature=oembed](https://www.youtube.com/embed/HwPKghvYNs8?feature=oembed)
+[https://www.youtube.com/embed/HwPKghvYNs8](https://www.youtube.com/embed/HwPKghvYNs8)
 
-[https://www.youtube.com/embed/-DUivBvLUWk?feature=oembed](https://www.youtube.com/embed/-DUivBvLUWk?feature=oembed)
+[https://www.youtube.com/embed/-DUivBvLUWk](https://www.youtube.com/embed/-DUivBvLUWk)

@@ -21,7 +21,7 @@ Bruce plays his first-ever show in Sweden when the Born to Run Tour arrives in S
 
 **1975:**<br>
 
-[https://www.youtube.com/embed/zcOzsbqkHfs?feature=oembed](https://www.youtube.com/embed/zcOzsbqkHfs?feature=oembed)
+[https://www.youtube.com/embed/zcOzsbqkHfs](https://www.youtube.com/embed/zcOzsbqkHfs)
 
 is certified gold by the Recording Industry Association of America.
 
@@ -43,7 +43,7 @@ Bruce takes ill and is forced to cancel his scheduled concert in Lexington only 
 
 **1992:**<br>
 
-[https://videopress.com/embed/UeoKin9X?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UeoKin9X?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/UeoKin9X](https://videopress.com/embed/UeoKin9X)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-21-300x278.png?resize=758%2C702)
 
@@ -59,7 +59,7 @@ Bruce releases his eleventh studio album, .
 
 That afternoon, Bruce rehearses for his upcoming solo acoustic tour at the Count Basie Theater in Red Bank, where he will open the tour the following day. He takes a break from rehearsing, though, to grant an interview to Bob Costas.
 
-[https://videopress.com/embed/ugKq8E0i?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ugKq8E0i?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ugKq8E0i](https://videopress.com/embed/ugKq8E0i)
 
 That same evening, Bruce plays a rehearsal show for his upcoming solo acoustic world tour at the New Jersey State Theater in New Brunswick, where most of the album's tracks get their live debuts.
 
@@ -73,9 +73,9 @@ One year later, the Ghost of Tom Joad Tour is still going strong. Bruce plays to
 
 **1996:** [Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
-[https://www.youtube.com/embed/YXHvxdrSl2U?feature=oembed](https://www.youtube.com/embed/YXHvxdrSl2U?feature=oembed)
+[https://www.youtube.com/embed/YXHvxdrSl2U](https://www.youtube.com/embed/YXHvxdrSl2U)
 
-[https://videopress.com/embed/Neyt7NXM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Neyt7NXM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Neyt7NXM](https://videopress.com/embed/Neyt7NXM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-11-21-300x100.png?resize=758%2C253)
 
@@ -83,9 +83,9 @@ Bruce and the reunited E Street Band play a show at the Pepsi Arena in Albany.
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/FBttjFK9F4U?feature=oembed](https://www.youtube.com/embed/FBttjFK9F4U?feature=oembed)
+[https://www.youtube.com/embed/FBttjFK9F4U](https://www.youtube.com/embed/FBttjFK9F4U)
 
-[https://www.youtube.com/embed/yLugU21i6hw?feature=oembed](https://www.youtube.com/embed/yLugU21i6hw?feature=oembed)
+[https://www.youtube.com/embed/yLugU21i6hw](https://www.youtube.com/embed/yLugU21i6hw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1999-11-21a-300x172.png?resize=758%2C435)
 
@@ -95,9 +95,9 @@ Bruce arrives in Florida for a week of shows, starting with a night at TD Waterh
 
 **2002:** [It's Hard to Be a Saint in the City,](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
-[https://www.youtube.com/embed/UNEXVBonAJw?feature=oembed](https://www.youtube.com/embed/UNEXVBonAJw?feature=oembed)
+[https://www.youtube.com/embed/UNEXVBonAJw](https://www.youtube.com/embed/UNEXVBonAJw)
 
-[https://www.youtube.com/embed/NdUfL3EMW9w?feature=oembed](https://www.youtube.com/embed/NdUfL3EMW9w?feature=oembed)
+[https://www.youtube.com/embed/NdUfL3EMW9w](https://www.youtube.com/embed/NdUfL3EMW9w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/11/The_Orlando_Sentinel_2002_11_22_A15.jpg?resize=758%2C646&amp;ssl=1)
 
@@ -105,9 +105,9 @@ Bruce closes out his solo acoustic tour with a pair of shows at the Sovereign Ba
 
 **2005:** [Rumble](http://estreetshuffle.com/index.php/2019/02/15/cover-me-rumble/)[Song for Orphans](http://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)
 
-[https://www.youtube.com/embed/nSrh-J5o-Ds?feature=oembed](https://www.youtube.com/embed/nSrh-J5o-Ds?feature=oembed)
+[https://www.youtube.com/embed/nSrh-J5o-Ds](https://www.youtube.com/embed/nSrh-J5o-Ds)
 
-[https://www.youtube.com/embed/WkAei555KP8?feature=oembed](https://www.youtube.com/embed/WkAei555KP8?feature=oembed)
+[https://www.youtube.com/embed/WkAei555KP8](https://www.youtube.com/embed/WkAei555KP8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2005-11-21-119x300.png?resize=758%2C1911)
 
@@ -115,19 +115,19 @@ Almost a year to the day later, Bruce is wrapping up another tour–this time at
 
 **2006:** [Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)
 
-[https://www.youtube.com/embed/NINNFe-aXqQ?feature=oembed](https://www.youtube.com/embed/NINNFe-aXqQ?feature=oembed)
+[https://www.youtube.com/embed/NINNFe-aXqQ](https://www.youtube.com/embed/NINNFe-aXqQ)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zARYHXwA3uEIJIqZiYG4Wsa](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zARYHXwA3uEIJIqZiYG4Wsa)
 
-[https://www.youtube.com/embed/znB54yk2SJU?feature=oembed](https://www.youtube.com/embed/znB54yk2SJU?feature=oembed)
+[https://www.youtube.com/embed/znB54yk2SJU](https://www.youtube.com/embed/znB54yk2SJU)
 
-[https://www.youtube.com/embed/8Hvomfb1SJ8?feature=oembed](https://www.youtube.com/embed/8Hvomfb1SJ8?feature=oembed)
+[https://www.youtube.com/embed/8Hvomfb1SJ8](https://www.youtube.com/embed/8Hvomfb1SJ8)
 
 Bruce releases the first single and title track from his upcoming album, "."
 
 **2008:** [Working on a Dream](http://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)
 
-[https://www.youtube.com/embed/R3ZMfPXgd_M?feature=oembed](https://www.youtube.com/embed/R3ZMfPXgd_M?feature=oembed)
+[https://www.youtube.com/embed/R3ZMfPXgd_M](https://www.youtube.com/embed/R3ZMfPXgd_M)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Danny DeVito, Chris Martin, and Paul McCartney.
 

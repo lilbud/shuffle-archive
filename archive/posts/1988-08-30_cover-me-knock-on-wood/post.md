@@ -24,7 +24,7 @@ It was a terrific performance, but as great as the E Street Band is, you really 
 
 Flash forward 36 years: At Bruce's legendary second show at Fenway Park on the Wrecking Ball Tour, Bruce saw a sign for "Knock on Wood" and leapt at it. By this point in the tour, the super-sized E Street Band–complete with horn section and backing vocalists–was firing on all cylinders, and when Bruce threw this particular curve ball, they *nailed* it.
 
-[https://videopress.com/embed/sWYkADsQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/sWYkADsQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/sWYkADsQ](https://videopress.com/embed/sWYkADsQ)
 
 Okay, it's a little loose in spots, but for an unplanned performance, it's fantastic, and Bruce clearly had a great time throughout.
 

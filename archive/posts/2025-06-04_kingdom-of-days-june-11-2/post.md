@@ -5,13 +5,13 @@ The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a 
 
 **1988:**<br>
 
-[https://www.youtube.com/embed/Q9KzCea1pas?feature=oembed](https://www.youtube.com/embed/Q9KzCea1pas?feature=oembed)
+[https://www.youtube.com/embed/Q9KzCea1pas](https://www.youtube.com/embed/Q9KzCea1pas)
 
-[https://videopress.com/embed/gYCoDgq3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gYCoDgq3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/gYCoDgq3](https://videopress.com/embed/gYCoDgq3)
 
-[https://videopress.com/embed/t0FP0YBc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/t0FP0YBc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/t0FP0YBc](https://videopress.com/embed/t0FP0YBc)
 
-[https://videopress.com/embed/biYvkhDi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/biYvkhDi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/biYvkhDi](https://videopress.com/embed/biYvkhDi)
 
 [https://www.youtube.com/embed/adIkoqMKc1o?start=1276&amp;feature=oembed](https://www.youtube.com/embed/adIkoqMKc1o?start=1276&amp;feature=oembed)
 
@@ -21,19 +21,19 @@ Bruce and the reunited E Street Band make a tour stop in Genoa, Italy.
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/2-7fj8Of7ok?feature=oembed](https://www.youtube.com/embed/2-7fj8Of7ok?feature=oembed)
+[https://www.youtube.com/embed/2-7fj8Of7ok](https://www.youtube.com/embed/2-7fj8Of7ok)
 
-[https://www.youtube.com/embed/63BVID2q18M?feature=oembed](https://www.youtube.com/embed/63BVID2q18M?feature=oembed)
+[https://www.youtube.com/embed/63BVID2q18M](https://www.youtube.com/embed/63BVID2q18M)
 
-[https://www.youtube.com/embed/WcRpP5lWB_E?feature=oembed](https://www.youtube.com/embed/WcRpP5lWB_E?feature=oembed)
+[https://www.youtube.com/embed/WcRpP5lWB_E](https://www.youtube.com/embed/WcRpP5lWB_E)
 
-[https://www.youtube.com/embed/KhuCEwHwy30?feature=oembed](https://www.youtube.com/embed/KhuCEwHwy30?feature=oembed)
+[https://www.youtube.com/embed/KhuCEwHwy30](https://www.youtube.com/embed/KhuCEwHwy30)
 
-[https://www.youtube.com/embed/rcPAp51lgpw?feature=oembed](https://www.youtube.com/embed/rcPAp51lgpw?feature=oembed)
+[https://www.youtube.com/embed/rcPAp51lgpw](https://www.youtube.com/embed/rcPAp51lgpw)
 
-[https://www.youtube.com/embed/BTf7n8cpxA4?feature=oembed](https://www.youtube.com/embed/BTf7n8cpxA4?feature=oembed)
+[https://www.youtube.com/embed/BTf7n8cpxA4](https://www.youtube.com/embed/BTf7n8cpxA4)
 
-[https://www.youtube.com/embed/jIyY16fAwxs?feature=oembed](https://www.youtube.com/embed/jIyY16fAwxs?feature=oembed)
+[https://www.youtube.com/embed/jIyY16fAwxs](https://www.youtube.com/embed/jIyY16fAwxs)
 
 A scheduled solo acoustic show in Hamburg is rescheduled after Terry Magovern's fiancée passes away.
 
@@ -43,7 +43,7 @@ The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where "" makes
 
 **2006:** [Long Black Veil](http://estreetshuffle.com/index.php/2020/02/05/cover-me-long-black-veil/)
 
-[https://www.youtube.com/embed/OJZmPNby-9U?feature=oembed](https://www.youtube.com/embed/OJZmPNby-9U?feature=oembed)
+[https://www.youtube.com/embed/OJZmPNby-9U](https://www.youtube.com/embed/OJZmPNby-9U)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2006-06-11-300x196.jpg?resize=758%2C495)
 
@@ -57,22 +57,22 @@ Elliott Murphy guest-stars in Trieste at the last Italian show of the 2012 tour.
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/PTyyLZXTepw?feature=oembed](https://www.youtube.com/embed/PTyyLZXTepw?feature=oembed)
+[https://www.youtube.com/embed/PTyyLZXTepw](https://www.youtube.com/embed/PTyyLZXTepw)
 
-[https://www.youtube.com/embed/f86-p4P1ZFk?feature=oembed](https://www.youtube.com/embed/f86-p4P1ZFk?feature=oembed)
+[https://www.youtube.com/embed/f86-p4P1ZFk](https://www.youtube.com/embed/f86-p4P1ZFk)
 
-[https://www.youtube.com/embed/iH3kQ58-2D4?feature=oembed](https://www.youtube.com/embed/iH3kQ58-2D4?feature=oembed)
+[https://www.youtube.com/embed/iH3kQ58-2D4](https://www.youtube.com/embed/iH3kQ58-2D4)
 
-[https://www.youtube.com/embed/nv4bP9tb_k4?feature=oembed](https://www.youtube.com/embed/nv4bP9tb_k4?feature=oembed)
+[https://www.youtube.com/embed/nv4bP9tb_k4](https://www.youtube.com/embed/nv4bP9tb_k4)
 
-[https://www.youtube.com/embed/NXOEj7DT3WA?feature=oembed](https://www.youtube.com/embed/NXOEj7DT3WA?feature=oembed)
+[https://www.youtube.com/embed/NXOEj7DT3WA](https://www.youtube.com/embed/NXOEj7DT3WA)
 
 Bruce and the E Street Band return to the stage after an eleven-day break with a show at Megaland in Landgraaf, The Netherlands. Buy or stream this show .
 
 **2023:** [here](https://live.brucespringsteen.net/live-music/0,31079/Bruce-Springsteen-mp3-flac-download-6-11-2023-Megaland-Landgraaf-NLD.html)
 
-[https://www.youtube.com/embed/piUALxtq05U?feature=oembed](https://www.youtube.com/embed/piUALxtq05U?feature=oembed)
+[https://www.youtube.com/embed/piUALxtq05U](https://www.youtube.com/embed/piUALxtq05U)
 
-[https://www.youtube.com/embed/cW97ZkLHJUg?feature=oembed](https://www.youtube.com/embed/cW97ZkLHJUg?feature=oembed)
+[https://www.youtube.com/embed/cW97ZkLHJUg](https://www.youtube.com/embed/cW97ZkLHJUg)
 
-[https://www.youtube.com/embed/NPS5b-XWCyU?feature=oembed](https://www.youtube.com/embed/NPS5b-XWCyU?feature=oembed)
+[https://www.youtube.com/embed/NPS5b-XWCyU](https://www.youtube.com/embed/NPS5b-XWCyU)

@@ -9,13 +9,13 @@ At the Power Station in New York City, Bruce and the E Street Band record "Restl
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/DCFYLa02WzE?feature=oembed](https://www.youtube.com/embed/DCFYLa02WzE?feature=oembed)
+[https://www.youtube.com/embed/DCFYLa02WzE](https://www.youtube.com/embed/DCFYLa02WzE)
 
 : Bruce joins John Eddie for six songs at the Patrix in New Brunswick, New Jersey.
 
 **1984**<br>
 
-[https://videopress.com/embed/ATjdzWXO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ATjdzWXO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ATjdzWXO](https://videopress.com/embed/ATjdzWXO)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1984-01-14a.png?resize=758%2C265&amp;ssl=1)
 
@@ -31,7 +31,7 @@ Bruce attends , a tribute event to the Springsteen album of the same name, at th
 
 **2006:***The Nebraska Project*[Oklahoma Hills](https://estreetshuffle.com/index.php/2021/05/17/matr-bruce-springsteen-arlo-guthrie-joe-ely-and-jimmy-lafave-oklahoma-hills/)<http://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3>
 
-[https://www.youtube.com/embed/fzmcmc6s35U?feature=oembed](https://www.youtube.com/embed/fzmcmc6s35U?feature=oembed)
+[https://www.youtube.com/embed/fzmcmc6s35U](https://www.youtube.com/embed/fzmcmc6s35U)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2006-01-14.png?resize=758%2C243&amp;ssl=1)
 
@@ -39,17 +39,17 @@ Bruce makes a "surprise" appearance at the Light of Day benefit in Asbury Park (
 
 **2012:***doesn't*[Wild in the Streets](http://estreetshuffle.com/index.php/2018/04/18/matr-garland-jeffreys-and-bruce-springsteen-wild-in-the-streets/)[One Guitar](http://estreetshuffle.com/index.php/2018/05/16/meeting-across-the-river-bruce-springsteen-and-willie-nile-one-guitar/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
-[https://www.youtube.com/embed/dC092YbIK80?feature=oembed](https://www.youtube.com/embed/dC092YbIK80?feature=oembed)
+[https://www.youtube.com/embed/dC092YbIK80](https://www.youtube.com/embed/dC092YbIK80)
 
-[https://www.youtube.com/embed/45lgN76_IYo?feature=oembed](https://www.youtube.com/embed/45lgN76_IYo?feature=oembed)
+[https://www.youtube.com/embed/45lgN76_IYo](https://www.youtube.com/embed/45lgN76_IYo)
 
 [https://www.youtube.com/embed/0P4j7mIRX9E?start=292&amp;feature=oembed](https://www.youtube.com/embed/0P4j7mIRX9E?start=292&amp;feature=oembed)
 
-[https://www.youtube.com/embed/KBQrF3cu6eo?feature=oembed](https://www.youtube.com/embed/KBQrF3cu6eo?feature=oembed)
+[https://www.youtube.com/embed/KBQrF3cu6eo](https://www.youtube.com/embed/KBQrF3cu6eo)
 
-[https://www.youtube.com/embed/K191g1aU07I?feature=oembed](https://www.youtube.com/embed/K191g1aU07I?feature=oembed)
+[https://www.youtube.com/embed/K191g1aU07I](https://www.youtube.com/embed/K191g1aU07I)
 
-[https://www.youtube.com/embed/v14MwFI7Uhk?feature=oembed](https://www.youtube.com/embed/v14MwFI7Uhk?feature=oembed)
+[https://www.youtube.com/embed/v14MwFI7Uhk](https://www.youtube.com/embed/v14MwFI7Uhk)
 
 is released, Bruce's eighteenth studio album.
 
@@ -73,6 +73,6 @@ Bruce and Patti attend the swearing-in ceremony for their son Sam as he becomes 
 
 **2020:**<br>
 
-[https://www.youtube.com/embed/LT9bWyCtO6E?feature=oembed](https://www.youtube.com/embed/LT9bWyCtO6E?feature=oembed)
+[https://www.youtube.com/embed/LT9bWyCtO6E](https://www.youtube.com/embed/LT9bWyCtO6E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2020-01-14.png?resize=758%2C1300&amp;ssl=1)

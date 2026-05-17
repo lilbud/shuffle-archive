@@ -27,7 +27,7 @@ Bruce and the E Street Band close out their three-night Darkness Tour stand at t
 
 **1978:** [Meeting Across the River](http://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)<https://estreetshuffle.com/wp-content/uploads/2023/09/201-Meeting-Across-the-River.flac>
 
-[https://www.youtube.com/embed/E-5_5ft-rR8?feature=oembed](https://www.youtube.com/embed/E-5_5ft-rR8?feature=oembed)
+[https://www.youtube.com/embed/E-5_5ft-rR8](https://www.youtube.com/embed/E-5_5ft-rR8)
 
 Bruce and the band play their fifth of six nights at the Philadelphia Spectrum. During the soundcheck, Bruce plays an original yet unreleased-to-this-day composition, "Beneath the Floodline."
 
@@ -39,9 +39,9 @@ The Human Rights Now! Tour stops at Montreal's Olympic Stadium, where Bruce make
 
 **1988:** [Every Breath You Take](http://estreetshuffle.com/index.php/2019/04/07/matr-sting-and-bruce-springsteen-every-breath-you-take/)
 
-[https://videopress.com/embed/XS7nF1a4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XS7nF1a4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/XS7nF1a4](https://videopress.com/embed/XS7nF1a4)
 
-[https://www.youtube.com/embed/1uR3dMy0YlM?feature=oembed](https://www.youtube.com/embed/1uR3dMy0YlM?feature=oembed)
+[https://www.youtube.com/embed/1uR3dMy0YlM](https://www.youtube.com/embed/1uR3dMy0YlM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-17-300x244.jpg?resize=758%2C617)
 

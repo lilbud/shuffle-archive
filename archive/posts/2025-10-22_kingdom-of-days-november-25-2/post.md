@@ -17,7 +17,7 @@ Bruce and his unnamed band open for John Mayall at UMass Amherst.
 
 **1973:**<br>
 
-[https://www.youtube.com/embed/cLyBcGG60zU?feature=oembed](https://www.youtube.com/embed/cLyBcGG60zU?feature=oembed)
+[https://www.youtube.com/embed/cLyBcGG60zU](https://www.youtube.com/embed/cLyBcGG60zU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/Valley_Advocate_Amherst_1973_11_28_13.jpg?w=758&amp;ssl=1)
 
@@ -33,15 +33,15 @@ Bruce and the E Street Band play a Darkness show at Kiel Opera House in St. Loui
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/2cqrerzuSAI?feature=oembed](https://www.youtube.com/embed/2cqrerzuSAI?feature=oembed)
+[https://www.youtube.com/embed/2cqrerzuSAI](https://www.youtube.com/embed/2cqrerzuSAI)
 
 Bruce and the band play their first of two Born in the U.S.A. shows at the Reunion Arena in Dallas.
 
 **1984:**<br>
 
-[https://www.youtube.com/embed/LR4emMOg_HI?feature=oembed](https://www.youtube.com/embed/LR4emMOg_HI?feature=oembed)
+[https://www.youtube.com/embed/LR4emMOg_HI](https://www.youtube.com/embed/LR4emMOg_HI)
 
-[https://www.youtube.com/embed/3fPhuWZO1Js?feature=oembed](https://www.youtube.com/embed/3fPhuWZO1Js?feature=oembed)
+[https://www.youtube.com/embed/3fPhuWZO1Js](https://www.youtube.com/embed/3fPhuWZO1Js)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1984-11-25-289x300.png?resize=758%2C787)
 
@@ -49,7 +49,7 @@ Bruce plays his second of three very special shows at the Paramount Theater in A
 
 **1996:** [It's Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Tougher Than the Rest](http://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)[Spirit in the Night.](http://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)
 
-[https://www.youtube.com/embed/Ig9CTPe6udI?feature=oembed](https://www.youtube.com/embed/Ig9CTPe6udI?feature=oembed)
+[https://www.youtube.com/embed/Ig9CTPe6udI](https://www.youtube.com/embed/Ig9CTPe6udI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-11-25-279x300.png?resize=758%2C815)
 
@@ -57,15 +57,15 @@ Bruce kicks off the first European leg of the Magic Tour in Madrid, without Dann
 
 **2007:**<br>
 
-[https://www.youtube.com/embed/3oFsG-jXGj4?feature=oembed](https://www.youtube.com/embed/3oFsG-jXGj4?feature=oembed)
+[https://www.youtube.com/embed/3oFsG-jXGj4](https://www.youtube.com/embed/3oFsG-jXGj4)
 
-[https://www.youtube.com/embed/OKcns7wqi-o?feature=oembed](https://www.youtube.com/embed/OKcns7wqi-o?feature=oembed)
+[https://www.youtube.com/embed/OKcns7wqi-o](https://www.youtube.com/embed/OKcns7wqi-o)
 
-[https://www.youtube.com/embed/3mXNwm9ruQI?feature=oembed](https://www.youtube.com/embed/3mXNwm9ruQI?feature=oembed)
+[https://www.youtube.com/embed/3mXNwm9ruQI](https://www.youtube.com/embed/3mXNwm9ruQI)
 
-[https://www.youtube.com/embed/Fn5xY7fiFhI?feature=oembed](https://www.youtube.com/embed/Fn5xY7fiFhI?feature=oembed)
+[https://www.youtube.com/embed/Fn5xY7fiFhI](https://www.youtube.com/embed/Fn5xY7fiFhI)
 
-[https://www.youtube.com/embed/PTQ3vesq5Ww?feature=oembed](https://www.youtube.com/embed/PTQ3vesq5Ww?feature=oembed)
+[https://www.youtube.com/embed/PTQ3vesq5Ww](https://www.youtube.com/embed/PTQ3vesq5Ww)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: tennis legend Billie Jean King.
 
@@ -77,7 +77,7 @@ debuts Steve Hargrave's interview with Bruce (recorded last month) on Channel 7 
 
 **2019:** *Sunrise*
 
-[https://www.youtube.com/embed/wqB6XsBsHbM?feature=oembed](https://www.youtube.com/embed/wqB6XsBsHbM?feature=oembed)
+[https://www.youtube.com/embed/wqB6XsBsHbM](https://www.youtube.com/embed/wqB6XsBsHbM)
 
 After almost a month's hiatus, returns with Volume 15, "We're a Winner."
 

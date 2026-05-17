@@ -13,7 +13,7 @@ Bruce appears on Marc Maron's podcast for a wide-ranging, hour-long conversation
 
 **2017:** *WTF*
 
-[https://www.youtube.com/embed/peVxzWLKmiI?feature=oembed](https://www.youtube.com/embed/peVxzWLKmiI?feature=oembed)
+[https://www.youtube.com/embed/peVxzWLKmiI](https://www.youtube.com/embed/peVxzWLKmiI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2017-01-02b.png?resize=758%2C611&amp;ssl=1)
 

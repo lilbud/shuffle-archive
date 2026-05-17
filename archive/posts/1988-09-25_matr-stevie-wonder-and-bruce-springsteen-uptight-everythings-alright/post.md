@@ -10,7 +10,7 @@ And it wasn't just Bruce on stage with Stevie–you'll see Mick Jagger, Keith Ri
 
 But Bruce's appearances are fleeting–just a couple of shots of him playing tambourine and guitar, and if you listen closely you might hear his backing vocals.
 
-[https://videopress.com/embed/n7q55n07?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/n7q55n07?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/n7q55n07](https://videopress.com/embed/n7q55n07)
 
 So if you come to this blog for a daily dose of Springsteen, I apologize for the lightness of today's content.
 

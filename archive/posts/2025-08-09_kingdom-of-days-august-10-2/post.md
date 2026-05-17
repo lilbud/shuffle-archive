@@ -11,9 +11,9 @@ Bruce continues his solo stand (the second of six nights) opening for Dave Van R
 
 **1972:** [Henry Boy](https://estreetshuffle.com/index.php/2022/04/08/roll-of-the-dice-henry-boy/)[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)
 
-[https://www.youtube.com/embed/BpKsq8Y7_EY?feature=oembed](https://www.youtube.com/embed/BpKsq8Y7_EY?feature=oembed)
+[https://www.youtube.com/embed/BpKsq8Y7_EY](https://www.youtube.com/embed/BpKsq8Y7_EY)
 
-[https://www.youtube.com/embed/AR2lrhe-eC8?feature=oembed](https://www.youtube.com/embed/AR2lrhe-eC8?feature=oembed)
+[https://www.youtube.com/embed/AR2lrhe-eC8](https://www.youtube.com/embed/AR2lrhe-eC8)
 
 Bruce cancels a scheduled gig in Port Chester, New York to make room for ongoing recording sessions.
 
@@ -23,9 +23,9 @@ There's a and an with Bruce's career, and both pivot around Bruce's legendary re
 
 **1975:** *before**after**before*[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)
 
-[https://videopress.com/embed/8b5JAfx4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8b5JAfx4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/8b5JAfx4](https://videopress.com/embed/8b5JAfx4)
 
-[https://www.youtube.com/embed/9vRWqczh7U4?feature=oembed](https://www.youtube.com/embed/9vRWqczh7U4?feature=oembed)
+[https://www.youtube.com/embed/9vRWqczh7U4](https://www.youtube.com/embed/9vRWqczh7U4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/The_Plain_Dealer_1975_08_11_29.jpg?resize=758%2C600&amp;ssl=1)
 
@@ -39,7 +39,7 @@ Bruce and the E Street Band take the Darkness Tour to the Community War Memorial
 
 **1978:** [Sweet Little Sixteen](http://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)
 
-[https://videopress.com/embed/PLGJLODI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PLGJLODI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PLGJLODI](https://videopress.com/embed/PLGJLODI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1978-08-10-300x293.png?resize=758%2C740)
 
@@ -51,15 +51,15 @@ Bruce wraps up the eleven-night World Tour 1992 stand at the Meadowlands in styl
 
 **1992:** [Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[Darlington County.](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)
 
-[https://videopress.com/embed/cFhy9Txg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cFhy9Txg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cFhy9Txg](https://videopress.com/embed/cFhy9Txg)
 
-[https://www.youtube.com/embed/q9aFxSs6nFE?feature=oembed](https://www.youtube.com/embed/q9aFxSs6nFE?feature=oembed)
+[https://www.youtube.com/embed/q9aFxSs6nFE](https://www.youtube.com/embed/q9aFxSs6nFE)
 
-[https://www.youtube.com/embed/2rbXzurBHHA?feature=oembed](https://www.youtube.com/embed/2rbXzurBHHA?feature=oembed)
+[https://www.youtube.com/embed/2rbXzurBHHA](https://www.youtube.com/embed/2rbXzurBHHA)
 
 Entertainment Tonight airs a segment covering the end of the marathon run of shows. Here it is, with footage from tonight's show:
 
-[https://www.youtube.com/embed/5NN9Pfopm8w?feature=oembed](https://www.youtube.com/embed/5NN9Pfopm8w?feature=oembed)
+[https://www.youtube.com/embed/5NN9Pfopm8w](https://www.youtube.com/embed/5NN9Pfopm8w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1992-08-10a-179x300.png?resize=758%2C1271)
 
@@ -69,7 +69,7 @@ Bruce makes a guest appearance at Cheers in Long Branch for the second time in a
 
 **1995:**<br>
 
-[https://www.youtube.com/embed/Cq5tE0a3m-M?feature=oembed](https://www.youtube.com/embed/Cq5tE0a3m-M?feature=oembed)
+[https://www.youtube.com/embed/Cq5tE0a3m-M](https://www.youtube.com/embed/Cq5tE0a3m-M)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1995-08-10a-300x179.png?resize=758%2C452)
 
@@ -85,7 +85,7 @@ Night Two on the Rising Tour is pretty similar to opening night. At the MCI Cent
 
 **2002:** [Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)
 
-[https://videopress.com/embed/Atz3RHXN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Atz3RHXN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Atz3RHXN](https://videopress.com/embed/Atz3RHXN)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2002-08-10-270x300.png?resize=758%2C842)
 
@@ -93,9 +93,9 @@ Bruce (with Evan in tow as guitar tech) takes the summer leg of his solo acousti
 
 **2005:** [Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)[Valentine's Day,](http://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)[One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Where the Band Was report](http://estreetshuffle.com/index.php/2018/08/10/where-the-band-was-portland-august-10-2005/)
 
-[https://www.youtube.com/embed/-hWWOHqCtLU?feature=oembed](https://www.youtube.com/embed/-hWWOHqCtLU?feature=oembed)
+[https://www.youtube.com/embed/-hWWOHqCtLU](https://www.youtube.com/embed/-hWWOHqCtLU)
 
-[https://www.youtube.com/embed/l8mJNlH9kp0?feature=oembed](https://www.youtube.com/embed/l8mJNlH9kp0?feature=oembed)
+[https://www.youtube.com/embed/l8mJNlH9kp0](https://www.youtube.com/embed/l8mJNlH9kp0)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Carole King.
 

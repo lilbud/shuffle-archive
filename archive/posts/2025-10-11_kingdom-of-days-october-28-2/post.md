@@ -11,7 +11,7 @@ Bruce and the E Street Band kick off a six-night stand at the Palladium in New Y
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/6AK0OSiwTLY?feature=oembed](https://www.youtube.com/embed/6AK0OSiwTLY?feature=oembed)
+[https://www.youtube.com/embed/6AK0OSiwTLY](https://www.youtube.com/embed/6AK0OSiwTLY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1976-10-28-300x243.png?resize=758%2C614)
 
@@ -21,7 +21,7 @@ Bruce and the E Street Band play their second of two River Tour shows at the Oak
 
 **1980:** [Good Rockin' Tonight](http://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)
 
-[https://www.youtube.com/embed/lkRSTU7xhfg?feature=oembed](https://www.youtube.com/embed/lkRSTU7xhfg?feature=oembed)
+[https://www.youtube.com/embed/lkRSTU7xhfg](https://www.youtube.com/embed/lkRSTU7xhfg)
 
 Bruce and the band play their third of seven Born in the U.S.A. shows at the Los Angeles Memorial Sports Arena, where "Rosalita (Come Out Tonight)" comes out for the last time that year.
 
@@ -29,7 +29,7 @@ Bruce and the band play their third of seven Born in the U.S.A. shows at the Los
 
 [https://www.youtube.com/embed/videoseries?list=PLtpvdiAyDM3k5rGFkr4rI4vs8woORxaap](https://www.youtube.com/embed/videoseries?list=PLtpvdiAyDM3k5rGFkr4rI4vs8woORxaap)
 
-[https://www.youtube.com/embed/xmtGhj50XaE?feature=oembed](https://www.youtube.com/embed/xmtGhj50XaE?feature=oembed)
+[https://www.youtube.com/embed/xmtGhj50XaE](https://www.youtube.com/embed/xmtGhj50XaE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/10/The_Los_Angeles_Times_Sun__Oct_28__1984_-scaled.jpg?resize=758%2C501&amp;ssl=1)
 
@@ -43,11 +43,11 @@ Bruce makes a return engagement at Neil Young's Bridge School Benefit in Mountai
 
 **1995:** [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[Sinaloa Cowboys](https://estreetshuffle.com/index.php/2022/01/04/roll-of-the-dice-sinaloa-cowboys/)[Rockin' in the Free World](http://estreetshuffle.com/index.php/2019/04/16/matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/)
 
-[https://www.youtube.com/embed/wsJb5NcjuIk?feature=oembed](https://www.youtube.com/embed/wsJb5NcjuIk?feature=oembed)
+[https://www.youtube.com/embed/wsJb5NcjuIk](https://www.youtube.com/embed/wsJb5NcjuIk)
 
-[https://www.youtube.com/embed/6td5acwFcLQ?feature=oembed](https://www.youtube.com/embed/6td5acwFcLQ?feature=oembed)
+[https://www.youtube.com/embed/6td5acwFcLQ](https://www.youtube.com/embed/6td5acwFcLQ)
 
-[https://videopress.com/embed/65HiwFFg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/65HiwFFg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/65HiwFFg](https://videopress.com/embed/65HiwFFg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1995-10-28a.png?resize=758%2C1477&amp;ssl=1)
 
@@ -65,17 +65,17 @@ Bruce and the E Street Band play their last of three Reunion Tour shows at the O
 
 **1999:** [Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://www.youtube.com/embed/bLo07jpukyM?feature=oembed](https://www.youtube.com/embed/bLo07jpukyM?feature=oembed)
+[https://www.youtube.com/embed/bLo07jpukyM](https://www.youtube.com/embed/bLo07jpukyM)
 
 Bruce performs "" and "" at two rallies for presidential candidate John Kerry, the first in Madison, Wisconsin, the second at Ohio State University.
 
 **2004:** [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)
 
-[https://www.youtube.com/embed/tS7kP1lgmYY?feature=oembed](https://www.youtube.com/embed/tS7kP1lgmYY?feature=oembed)
+[https://www.youtube.com/embed/tS7kP1lgmYY](https://www.youtube.com/embed/tS7kP1lgmYY)
 
-[https://www.youtube.com/embed/nWhXRVi_lOA?feature=oembed](https://www.youtube.com/embed/nWhXRVi_lOA?feature=oembed)
+[https://www.youtube.com/embed/nWhXRVi_lOA](https://www.youtube.com/embed/nWhXRVi_lOA)
 
-[https://www.youtube.com/embed/KmQjqCyZD2g?feature=oembed](https://www.youtube.com/embed/KmQjqCyZD2g?feature=oembed)
+[https://www.youtube.com/embed/KmQjqCyZD2g](https://www.youtube.com/embed/KmQjqCyZD2g)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2004-10-28-246x300.jpg?resize=758%2C921)
 
@@ -87,7 +87,7 @@ Bruce's solo acoustic show at the TD Banknorth Garden in Boston is filmed but re
 
 **2005:** [Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)<https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteen-Dream-Baby-Dream-Live.mp3>
 
-[https://www.youtube.com/embed/AvYK0CaeORU?feature=oembed](https://www.youtube.com/embed/AvYK0CaeORU?feature=oembed)
+[https://www.youtube.com/embed/AvYK0CaeORU](https://www.youtube.com/embed/AvYK0CaeORU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-10-28a-127x300.png?resize=758%2C1791)
 
@@ -97,7 +97,7 @@ Bruce and the Sessions Band play a show at Parken Stadium in Copenhagen.
 
 **2006:**<br>
 
-[https://www.youtube.com/embed/zkkKwFbjnsA?feature=oembed](https://www.youtube.com/embed/zkkKwFbjnsA?feature=oembed)
+[https://www.youtube.com/embed/zkkKwFbjnsA](https://www.youtube.com/embed/zkkKwFbjnsA)
 
 Bruce and the E Street Band rehearse their set for the Rock and Roll Hall of Fame 25th Anniversary concerts with Sam Moore, John Fogerty, and Tom Morello at Sir Studios in New York City.
 
@@ -111,7 +111,7 @@ At Bruce's home in Colts Neck, host Ben Mankiewicz interviews Bruce for his upco
 
 **2019:** *Turner Classic Movies*
 
-[https://www.youtube.com/embed/K4nIGIWy0Yk?feature=oembed](https://www.youtube.com/embed/K4nIGIWy0Yk?feature=oembed)
+[https://www.youtube.com/embed/K4nIGIWy0Yk](https://www.youtube.com/embed/K4nIGIWy0Yk)
 
 [//cdn.jwplayer.com/players/o8NZxPOs-wAs9ovrq.html](//cdn.jwplayer.com/players/o8NZxPOs-wAs9ovrq.html)
 
@@ -125,22 +125,22 @@ Bruce releases the third advance single from his upcoming album: "."
 
 **2022:** *Only the Strong Survive* [Don't Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)
 
-[https://www.youtube.com/embed/6bM3L296ZNw?feature=oembed](https://www.youtube.com/embed/6bM3L296ZNw?feature=oembed)
+[https://www.youtube.com/embed/6bM3L296ZNw](https://www.youtube.com/embed/6bM3L296ZNw)
 
 Bruce makes a surprise appearance at Monmouth University during the Springsteen Archives' symposium celebrating the 50th anniversary of
 
 **2023:** *The Wild, The Innocent & The E Street Shuffle.*
 
-[https://www.youtube.com/embed/8MDR2ilvGgc?feature=oembed](https://www.youtube.com/embed/8MDR2ilvGgc?feature=oembed)
+[https://www.youtube.com/embed/8MDR2ilvGgc](https://www.youtube.com/embed/8MDR2ilvGgc)
 
-[https://www.youtube.com/embed/-RlJqSCtBxU?feature=oembed](https://www.youtube.com/embed/-RlJqSCtBxU?feature=oembed)
+[https://www.youtube.com/embed/-RlJqSCtBxU](https://www.youtube.com/embed/-RlJqSCtBxU)
 
-[https://www.youtube.com/embed/eUJrkHHVpXs?feature=oembed](https://www.youtube.com/embed/eUJrkHHVpXs?feature=oembed)
+[https://www.youtube.com/embed/eUJrkHHVpXs](https://www.youtube.com/embed/eUJrkHHVpXs)
 
 Bruce performs at a Philadelphia rally for Vice President (and presidential candidate) Kamala Harris. Back home in New Jersey, filming begins for the upcoming film,
 
 **2024:** *Springsteen: Deliver Me From Nowhere.*
 
-[https://www.youtube.com/embed/F0Tz2ChzvnE?feature=oembed](https://www.youtube.com/embed/F0Tz2ChzvnE?feature=oembed)
+[https://www.youtube.com/embed/F0Tz2ChzvnE](https://www.youtube.com/embed/F0Tz2ChzvnE)
 
-[https://www.youtube.com/embed/B4wiTJ8AwKg?feature=oembed](https://www.youtube.com/embed/B4wiTJ8AwKg?feature=oembed)
+[https://www.youtube.com/embed/B4wiTJ8AwKg](https://www.youtube.com/embed/B4wiTJ8AwKg)

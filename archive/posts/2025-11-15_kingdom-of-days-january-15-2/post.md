@@ -3,7 +3,7 @@ The Born in the U.S.A. Tour pulls into Charlotte for the first of two nights at 
 
 **1985:**<br>
 
-[https://videopress.com/embed/YKDm9FGq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YKDm9FGq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/YKDm9FGq](https://videopress.com/embed/YKDm9FGq)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Charlotte_News_1985_01_16_8.jpg?resize=758%2C1370&amp;ssl=1)
 
@@ -15,19 +15,19 @@ The video for "" premieres on .
 
 **1988:** [Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)*Friday Night Videos*
 
-[https://videopress.com/embed/u832h9EQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u832h9EQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/u832h9EQ](https://videopress.com/embed/u832h9EQ)
 
 is certified triple platinum by the Recording Industry Association of America.
 
 **2004:** *Live in Barcelona*
 
-[https://www.youtube.com/embed/A9LpsP0goJ8?feature=oembed](https://www.youtube.com/embed/A9LpsP0goJ8?feature=oembed)
+[https://www.youtube.com/embed/A9LpsP0goJ8](https://www.youtube.com/embed/A9LpsP0goJ8)
 
 Bruce makes a traditional "surprise" appearance at Light of Day in Asbury Park, joining Jesse Malin for "," Willie Nile for "" Alejandro Escovedo for "," before launching into his own acoustic mini-set and a full set with Joe Grushecky and the Houserockers.
 
 **2011:**[Broken Radio](http://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/)[Heaven Help the Lonely,](http://estreetshuffle.com/index.php/2018/12/29/matr-willie-nile-and-bruce-springsteen-heaven-help-the-lonely/)[Always a Friend](https://estreetshuffle.com/index.php/2020/08/31/matr-alejandro-escovedo-and-bruce-springsteen-always-a-friend/)
 
-[https://videopress.com/embed/sZqestDr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/sZqestDr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/sZqestDr](https://videopress.com/embed/sZqestDr)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2011-01-15a.png?resize=758%2C371&amp;ssl=1)
 

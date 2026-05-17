@@ -8,7 +8,7 @@ Steve Van Zandt is all over Southside's 1978 LP–Steve not only plays and sings
 
 It seemed a lock that Bruce would perform it with Steve and Southside in one of their many appearances together, and in 1998 that finally happened. At a benefit show to raise money for the family of a slain local police officer, Bruce and Southside took rare supporting roles while Steve sang the lead on his twenty-year-old song.
 
-[https://videopress.com/embed/9qVbrl1k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9qVbrl1k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9qVbrl1k](https://videopress.com/embed/9qVbrl1k)
 
 The trio performed Steve's song together twice more since then, and for the final occasion they were joined by a friend.
 

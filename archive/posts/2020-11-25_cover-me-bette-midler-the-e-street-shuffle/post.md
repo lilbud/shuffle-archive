@@ -7,4 +7,4 @@ From , Bette Midler covers Bruce's slow arrangement of "" that he would occasion
 
 *Divine Madness*[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)
 
-[https://www.youtube.com/embed/xJEH9K04U5g?feature=oembed](https://www.youtube.com/embed/xJEH9K04U5g?feature=oembed)
+[https://www.youtube.com/embed/xJEH9K04U5g](https://www.youtube.com/embed/xJEH9K04U5g)

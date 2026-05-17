@@ -31,15 +31,15 @@ At the Power Station in New York, Bruce records "I Wanna Be With You." It will r
 
 **1979:**<br>
 
-[https://www.youtube.com/embed/Ie4bDLGnfR0?feature=oembed](https://www.youtube.com/embed/Ie4bDLGnfR0?feature=oembed)
+[https://www.youtube.com/embed/Ie4bDLGnfR0](https://www.youtube.com/embed/Ie4bDLGnfR0)
 
 At The Hit Factory in New York City, Bruce records "Pink Cadillac," "Car Wash," "Gone, Gone, Gone" (which will evolve into "Seeds"), and "Invitation to Your Party." The former two won't see an album release for fifteen years (although "Pink Cadillac" will surface sooner as a B-side). The latter two remain unreleased to this day.
 
 **1983:**<br>
 
-[https://www.youtube.com/embed/Wk5cIUI6Zac?feature=oembed](https://www.youtube.com/embed/Wk5cIUI6Zac?feature=oembed)
+[https://www.youtube.com/embed/Wk5cIUI6Zac](https://www.youtube.com/embed/Wk5cIUI6Zac)
 
-[https://www.youtube.com/embed/I9m2UMyBBWU?feature=oembed](https://www.youtube.com/embed/I9m2UMyBBWU?feature=oembed)
+[https://www.youtube.com/embed/I9m2UMyBBWU](https://www.youtube.com/embed/I9m2UMyBBWU)
 
 Bruce and the E Street Band play a warm-up rehearsal at Slane Castle in Ireland in preparation for the kick-off of the European leg of the Born in the U.S.A. Tour. Meanwhile, "Glory Days" is released as the fifth single from .
 
@@ -47,13 +47,13 @@ Bruce and the E Street Band play a warm-up rehearsal at Slane Castle in Ireland 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1985-05-31.jpg?resize=758%2C709&amp;ssl=1)
 
-[https://www.youtube.com/embed/GLBnj159q3s?feature=oembed](https://www.youtube.com/embed/GLBnj159q3s?feature=oembed)
+[https://www.youtube.com/embed/GLBnj159q3s](https://www.youtube.com/embed/GLBnj159q3s)
 
 Bruce treats Irish fans to a rare "Kitty's Back" when the Rising tour stops at RDS Arena in Dublin.
 
 **2003:**<br>
 
-[https://www.youtube.com/embed/duv8guPDvlE?feature=oembed](https://www.youtube.com/embed/duv8guPDvlE?feature=oembed)
+[https://www.youtube.com/embed/duv8guPDvlE](https://www.youtube.com/embed/duv8guPDvlE)
 
 At his Seeger show in Noblesville, Indiana, Bruce opens with the premiere of a new arrangement of "Atlantic City," and debuts "Froggie Went A-Courtin'" by request for a seven-year-old boy.
 
@@ -65,19 +65,19 @@ Back-to-back tour premieres at Night Two at London's Emirates Stadium, both from
 
 **2008:***Born in the U.S.A.*
 
-[https://www.youtube.com/embed/SjT-Zg4h3U0?feature=oembed](https://www.youtube.com/embed/SjT-Zg4h3U0?feature=oembed)
+[https://www.youtube.com/embed/SjT-Zg4h3U0](https://www.youtube.com/embed/SjT-Zg4h3U0)
 
-[https://www.youtube.com/embed/FG-PdPAc4e0?feature=oembed](https://www.youtube.com/embed/FG-PdPAc4e0?feature=oembed)
+[https://www.youtube.com/embed/FG-PdPAc4e0](https://www.youtube.com/embed/FG-PdPAc4e0)
 
-[https://www.youtube.com/embed/xKNmgmvXrEQ?feature=oembed](https://www.youtube.com/embed/xKNmgmvXrEQ?feature=oembed)
+[https://www.youtube.com/embed/xKNmgmvXrEQ](https://www.youtube.com/embed/xKNmgmvXrEQ)
 
 Bruce's Italian shows are always special, and this show in Padua is no exception: Bruce plays an acoustic pre-show for early arrivals, opens the show with an acoustic "The Ghost of Tom Joad," and performs the entire album in sequence.
 
 **2013:** *Born to Run*
 
-[https://www.youtube.com/embed/jSXx366ZD5Q?feature=oembed](https://www.youtube.com/embed/jSXx366ZD5Q?feature=oembed)
+[https://www.youtube.com/embed/jSXx366ZD5Q](https://www.youtube.com/embed/jSXx366ZD5Q)
 
-[https://www.youtube.com/embed/2TdZ3Muc-8c?feature=oembed](https://www.youtube.com/embed/2TdZ3Muc-8c?feature=oembed)
+[https://www.youtube.com/embed/2TdZ3Muc-8c](https://www.youtube.com/embed/2TdZ3Muc-8c)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -87,6 +87,6 @@ The Land of Hope and Dreams Tour makes a brief stop in Marseilles for a single s
 
 **2025:**<br>
 
-[https://www.youtube.com/embed/tolp7gYzirs?feature=oembed](https://www.youtube.com/embed/tolp7gYzirs?feature=oembed)
+[https://www.youtube.com/embed/tolp7gYzirs](https://www.youtube.com/embed/tolp7gYzirs)
 
-[https://www.youtube.com/embed/o4mPOo7QRtQ?feature=oembed](https://www.youtube.com/embed/o4mPOo7QRtQ?feature=oembed)
+[https://www.youtube.com/embed/o4mPOo7QRtQ](https://www.youtube.com/embed/o4mPOo7QRtQ)

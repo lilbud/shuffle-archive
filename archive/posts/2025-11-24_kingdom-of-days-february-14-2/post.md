@@ -17,7 +17,7 @@ Bruce and the band open for Dan Hicks and His Hot Licks at Virginia Commonwealth
 
 **1973:**<br>
 
-[https://videopress.com/embed/sCffbs7D?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/sCffbs7D?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/sCffbs7D](https://videopress.com/embed/sCffbs7D)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1973-02-14a-300x176.jpg?resize=758%2C445)
 
@@ -27,37 +27,37 @@ Bruce records "" in the studio, his highest-charting hit and the last song to be
 
 **1984:**[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)*Born in the U.S.A.*
 
-[https://www.youtube.com/embed/129kuDCQtHs?feature=oembed](https://www.youtube.com/embed/129kuDCQtHs?feature=oembed)
+[https://www.youtube.com/embed/129kuDCQtHs](https://www.youtube.com/embed/129kuDCQtHs)
 
 Bruce continues the first leg of his European acoustic tour with a show in Dresden, where he closes the show with "" for the first time.
 
 **1996:**[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
 
-[https://videopress.com/embed/4PFVEda7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4PFVEda7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4PFVEda7](https://videopress.com/embed/4PFVEda7)
 
 Bruce plays a love-themed show in Brisbane for Valentine's Day, with "," "," "," and "" among the tour premieres. "Back in Your Arms" in particular is a little rough, though…
 
 **2017:**[Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)[Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)[Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)[Secret Garden](http://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)
 
-[https://www.youtube.com/embed/VKtj3SsR9co?feature=oembed](https://www.youtube.com/embed/VKtj3SsR9co?feature=oembed)
+[https://www.youtube.com/embed/VKtj3SsR9co](https://www.youtube.com/embed/VKtj3SsR9co)
 
-[https://www.youtube.com/embed/oQlkiVC3xis?feature=oembed](https://www.youtube.com/embed/oQlkiVC3xis?feature=oembed)
+[https://www.youtube.com/embed/oQlkiVC3xis](https://www.youtube.com/embed/oQlkiVC3xis)
 
-[https://www.youtube.com/embed/BxNYN9PJXYg?feature=oembed](https://www.youtube.com/embed/BxNYN9PJXYg?feature=oembed)
+[https://www.youtube.com/embed/BxNYN9PJXYg](https://www.youtube.com/embed/BxNYN9PJXYg)
 
-[https://www.youtube.com/embed/rjxNh5PS6UE?feature=oembed](https://www.youtube.com/embed/rjxNh5PS6UE?feature=oembed)
+[https://www.youtube.com/embed/rjxNh5PS6UE](https://www.youtube.com/embed/rjxNh5PS6UE)
 
-[https://www.youtube.com/embed/4DiUENOtVIY?feature=oembed](https://www.youtube.com/embed/4DiUENOtVIY?feature=oembed)
+[https://www.youtube.com/embed/4DiUENOtVIY](https://www.youtube.com/embed/4DiUENOtVIY)
 
-[https://www.youtube.com/embed/fPb8rCJXxgI?feature=oembed](https://www.youtube.com/embed/fPb8rCJXxgI?feature=oembed)
+[https://www.youtube.com/embed/fPb8rCJXxgI](https://www.youtube.com/embed/fPb8rCJXxgI)
 
 Little Steven and Soozie Tyrell are back in action in Houston, but COVID-19 continues to work its way through the E Street Band. Tonight's victim: Nils Lofgren, who misses a tour date for the first time ever. Bruce opens the show with the tour premiere of "" and shocks and delights with the first-ever E Street Band performance of "."
 
 **2023:** [Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)
 
-[https://www.youtube.com/embed/dlCns4H6ncI?feature=oembed](https://www.youtube.com/embed/dlCns4H6ncI?feature=oembed)
+[https://www.youtube.com/embed/dlCns4H6ncI](https://www.youtube.com/embed/dlCns4H6ncI)
 
-[https://www.youtube.com/embed/LMXqw7Pe-AQ?feature=oembed](https://www.youtube.com/embed/LMXqw7Pe-AQ?feature=oembed)
+[https://www.youtube.com/embed/LMXqw7Pe-AQ](https://www.youtube.com/embed/LMXqw7Pe-AQ)
 
 As another love letter to his fans, Bruce announces a second American leg of the tour earlier in the day. (Unfortunately, the vast majority of newly announced dates will end up postponed to the following year due to illness.)
 

@@ -12,7 +12,7 @@ Shortly after the terror attacks of 2001, Burgess played "We Wanna Boogie" at th
 
 It was Burgess' set, but he had a special guest on stage: Bruce Springsteen, with whom he'd just performed "Tiger Rose," a Springsteen original that Burgess covered on his 1996 album. They'd done it the previous night as well, but this time Sonny asked Bruce to stay on stage for "We Wanna Boogie." Bruce obliged but kept to the background except for two prominent guitar solos. (I suspect Sonny's invitation was unplanned.)
 
-[https://videopress.com/embed/hJQojRNB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hJQojRNB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/hJQojRNB](https://videopress.com/embed/hJQojRNB)
 
 The 72-year-old Burgess carried the song commendably, but there's no candle held between their 2001 performance and his 1956 original with The Pacers.
 

@@ -11,17 +11,17 @@ Bruce was covering The Animals long before that, though. As far back as 1965 The
 
 Despite Bruce's obvious fondness for The Animals, though, he's never covered one of their greatest hits at one of his own shows. "I'm Crying" was one of The Animals' first singles, peaking at #19 on the Billboard Hot 100 and #8 on the U.K. Singles charts when it was released in September 1964.
 
-[https://www.youtube.com/embed/g7NpD1kUBt8?feature=oembed](https://www.youtube.com/embed/g7NpD1kUBt8?feature=oembed)
+[https://www.youtube.com/embed/g7NpD1kUBt8](https://www.youtube.com/embed/g7NpD1kUBt8)
 
 Fortunately, though, the late great Tom Petty picked up the slack. "I'm Crying" was a frequent fixture of his sets from 1989 all the way through 2006.
 
-[https://www.youtube.com/embed/wX7VtDv1WkY?feature=oembed](https://www.youtube.com/embed/wX7VtDv1WkY?feature=oembed)
+[https://www.youtube.com/embed/wX7VtDv1WkY](https://www.youtube.com/embed/wX7VtDv1WkY)
 
 And very early in that run of shows, the stars aligned: On March 1, 1990, Tom Petty & The Heartbreakers played The Forum in Los Angeles, and both Bruce Springsteen and Bob Dylan were on-hand for the occasion.
 
 Tom brought Bruce and Bob on stage during the encores for two songs, the latter of which was "I'm Crying." Judging from the clip below, Bruce was more than happy to oblige.
 
-[https://videopress.com/embed/4Sw2cr76?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4Sw2cr76?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4Sw2cr76](https://videopress.com/embed/4Sw2cr76)
 
 That remarkable performance was the only time Bruce has ever performed "I'm Crying" to date, but that's not the only reason this recording is special.
 

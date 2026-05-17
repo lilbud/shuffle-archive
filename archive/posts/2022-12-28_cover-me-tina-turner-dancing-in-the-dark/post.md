@@ -3,4 +3,4 @@ In 1985, Bruce and Tina Turner were both at the height of their superstar popula
 
 [Dancing in the Dark.](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://www.youtube.com/embed/INKwtDSC2gY?feature=oembed](https://www.youtube.com/embed/INKwtDSC2gY?feature=oembed)
+[https://www.youtube.com/embed/INKwtDSC2gY](https://www.youtube.com/embed/INKwtDSC2gY)

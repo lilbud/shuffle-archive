@@ -22,7 +22,7 @@ It took almost twelve more years before we'd get to hear Bruce play "Oh, Pretty 
 
 Two months later, that moment must have still been on Bruce's mind, because during his taping of a special multi-part appearance on Spectacle: *Elvis Costello With…* Bruce decided in the moment that he and Elvis should give it a go. Did they make it all the way through? See for yourself:
 
-[https://videopress.com/embed/VZBlxGoe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VZBlxGoe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VZBlxGoe](https://videopress.com/embed/VZBlxGoe)
 
 But practice makes perfect: just a few weeks later, Bruce decided to give "Oh, Pretty Woman" a try *again*. This time, though, he was ready for it–he had John Fogerty enlisted as a partner and they'd rehearsed beforehand. So when the moment came on-stage at the Rock and Roll Hall of Fame 25th Anniversary Concert, Bruce, John, and the E Street Band rose to the occasion.
 

@@ -39,21 +39,21 @@ Bruce and the E Street Band wrap up a five-night stand at the Spectrum in Philad
 
 **1981:**<br>
 
-[https://videopress.com/embed/PEuZpNb0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PEuZpNb0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PEuZpNb0](https://videopress.com/embed/PEuZpNb0)
 
 Bruce and the band play a historic show in East Berlin, their first in East Germany. The show is broadcast across East Germany, but as many as 300,000 fans still flocked to the concert grounds for the show, where Bruce greets them in German, "It's nice to be in East Berlin. I want to tell you that I'm not here for or against any government. I have come to play rock and roll for the East Berliners in the hope that one day all barriers will be torn down." It's believed that this show galvanized East Germany's youth and contributed to the accelerated reunification of the country. The show also featured the tour premieres of "" and "." Read more and watch below.
 
 **1988:** [Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[here](https://www.theguardian.com/music/2013/jul/05/bruce-springsteen-east-germany-berlin-wall)
 
-[https://www.youtube.com/embed/WBIcfPBVxxQ?feature=oembed](https://www.youtube.com/embed/WBIcfPBVxxQ?feature=oembed)
+[https://www.youtube.com/embed/WBIcfPBVxxQ](https://www.youtube.com/embed/WBIcfPBVxxQ)
 
-[https://www.youtube.com/embed/Zpj8vu6sRfQ?feature=oembed](https://www.youtube.com/embed/Zpj8vu6sRfQ?feature=oembed)
+[https://www.youtube.com/embed/Zpj8vu6sRfQ](https://www.youtube.com/embed/Zpj8vu6sRfQ)
 
-[https://www.youtube.com/embed/fkNvDxIzuhk?feature=oembed](https://www.youtube.com/embed/fkNvDxIzuhk?feature=oembed)
+[https://www.youtube.com/embed/fkNvDxIzuhk](https://www.youtube.com/embed/fkNvDxIzuhk)
 
-[https://www.youtube.com/embed/sfk0uMLhXqY?feature=oembed](https://www.youtube.com/embed/sfk0uMLhXqY?feature=oembed)
+[https://www.youtube.com/embed/sfk0uMLhXqY](https://www.youtube.com/embed/sfk0uMLhXqY)
 
-[https://www.youtube.com/embed/u3iWwqqrQbo?feature=oembed](https://www.youtube.com/embed/u3iWwqqrQbo?feature=oembed)
+[https://www.youtube.com/embed/u3iWwqqrQbo](https://www.youtube.com/embed/u3iWwqqrQbo)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDUxGp0m4wdLXYYfsgxm_Cb](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDUxGp0m4wdLXYYfsgxm_Cb)
 
@@ -63,18 +63,18 @@ At his home in Colts Neck, Bruce performs and records "." The edited footage wil
 
 **2002:** [Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/)*Nightline*
 
-[https://videopress.com/embed/1Uvx6IoY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1Uvx6IoY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1Uvx6IoY](https://videopress.com/embed/1Uvx6IoY)
 
-[https://www.youtube.com/embed/-pgzJ7Iyg6Q?feature=oembed](https://www.youtube.com/embed/-pgzJ7Iyg6Q?feature=oembed)
+[https://www.youtube.com/embed/-pgzJ7Iyg6Q](https://www.youtube.com/embed/-pgzJ7Iyg6Q)
 
 The final European stand of the Magic Tour begins at Camp Nou in Barcelona.
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/w6hAS6cFAmM?feature=oembed](https://www.youtube.com/embed/w6hAS6cFAmM?feature=oembed)
+[https://www.youtube.com/embed/w6hAS6cFAmM](https://www.youtube.com/embed/w6hAS6cFAmM)
 
 "My City of Ruins" comes out for the first and only time on the Working on a Dream Tour when Bruce and the band play a show at Stadio Olimpico in Rome, a dedication to the town of L'Aquila that was devastated by an earthquake that spring.
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/OrRBwm29ONU?feature=oembed](https://www.youtube.com/embed/OrRBwm29ONU?feature=oembed)
+[https://www.youtube.com/embed/OrRBwm29ONU](https://www.youtube.com/embed/OrRBwm29ONU)

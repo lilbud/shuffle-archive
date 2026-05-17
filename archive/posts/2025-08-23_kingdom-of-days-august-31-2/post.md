@@ -5,7 +5,7 @@ Bruce catches The Doors' concert at Asbury Park's Convention Hall. Watch actual 
 
 **1968:**<br>
 
-[https://www.youtube.com/embed/Z3DElGznXIE?feature=oembed](https://www.youtube.com/embed/Z3DElGznXIE?feature=oembed)
+[https://www.youtube.com/embed/Z3DElGznXIE](https://www.youtube.com/embed/Z3DElGznXIE)
 
 Bruce and his band play two shows at Fat City in Seaside Heights, New Jersey.
 
@@ -23,7 +23,7 @@ What was originally scheduled to be the closing night of six shows at Giants Sta
 
 **1985:** [Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)
 
-[https://videopress.com/embed/Wly4xjwi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Wly4xjwi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Wly4xjwi](https://videopress.com/embed/Wly4xjwi)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-08-31-268x300.jpg?resize=758%2C848)
 
@@ -31,7 +31,7 @@ Bruce and the reunited E Street Band kick off a three-show stand at the MCI Cent
 
 **1999:**<br>
 
-[https://videopress.com/embed/OxY9LMWc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OxY9LMWc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/OxY9LMWc](https://videopress.com/embed/OxY9LMWc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1999-08-31a.png?resize=431%2C1753&amp;ssl=1)
 
@@ -41,11 +41,11 @@ Bruce and the E Street Band close out their ten-night stand at Giants Stadium, o
 
 **2003:** [Cynthia](http://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)[Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)<https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3>
 
-[https://videopress.com/embed/7Ahqp4On?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7Ahqp4On?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/7Ahqp4On](https://videopress.com/embed/7Ahqp4On)
 
-[https://videopress.com/embed/ZmiCslvD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZmiCslvD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ZmiCslvD](https://videopress.com/embed/ZmiCslvD)
 
-[https://videopress.com/embed/U5Su88rd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/U5Su88rd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/U5Su88rd](https://videopress.com/embed/U5Su88rd)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-31a-300x128.png?resize=758%2C323)
 

@@ -11,7 +11,7 @@ Bruce and the E Street Band play their fourth of six nights at the Monmouth Arts
 
 **1976:**<br>
 
-[https://videopress.com/embed/P8BHqSd0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/P8BHqSd0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/P8BHqSd0](https://videopress.com/embed/P8BHqSd0)
 
 Bruce holds a recording session for his fourth album at Atlantic Studios in New York City, where he and the band work on "" "" and "After Dinner"–none of which will make the album.
 
@@ -21,33 +21,33 @@ Bruce and the boys bring the Darkness Tour to Louisville for a night. Bruce lose
 
 **1978:**<br>
 
-[https://videopress.com/embed/2zQ6Z7Uq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2zQ6Z7Uq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/2zQ6Z7Uq](https://videopress.com/embed/2zQ6Z7Uq)
 
-[https://www.youtube.com/embed/q8rw9izpMaY?feature=oembed](https://www.youtube.com/embed/q8rw9izpMaY?feature=oembed)
+[https://www.youtube.com/embed/q8rw9izpMaY](https://www.youtube.com/embed/q8rw9izpMaY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1978-08-05.png?resize=758%2C1421&amp;ssl=1)
 
 After the show, Bruce sits down for an interview with Australian journalist David White. Listen to the interview below.
 
-[https://www.youtube.com/embed/kHJ0u70kAf8?feature=oembed](https://www.youtube.com/embed/kHJ0u70kAf8?feature=oembed)
+[https://www.youtube.com/embed/kHJ0u70kAf8](https://www.youtube.com/embed/kHJ0u70kAf8)
 
 Night Two at the Capital Center in Largo on the original River Tour.
 
 **1981:**<br>
 
-[https://videopress.com/embed/pK3XrIXK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pK3XrIXK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/pK3XrIXK](https://videopress.com/embed/pK3XrIXK)
 
 Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand at the Meadowlands. This show features the tour premiere of "" and is available as part of Bruce's official archive series–get it . Watch the pro-shot opening of the show below.
 
 **1984:**[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[here](http://live.brucespringsteen.net/live-music/0,12491/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-5-1984-Brendan-Byrne-Arena-East-Rutherford-NJ.html)
 
-[https://www.youtube.com/embed/xQWHgkEPO6M?feature=oembed](https://www.youtube.com/embed/xQWHgkEPO6M?feature=oembed)
+[https://www.youtube.com/embed/xQWHgkEPO6M](https://www.youtube.com/embed/xQWHgkEPO6M)
 
-[https://www.youtube.com/embed/vovP_ZecZQI?feature=oembed](https://www.youtube.com/embed/vovP_ZecZQI?feature=oembed)
+[https://www.youtube.com/embed/vovP_ZecZQI](https://www.youtube.com/embed/vovP_ZecZQI)
 
-[https://www.youtube.com/embed/XE-IIrD8fq8?feature=oembed](https://www.youtube.com/embed/XE-IIrD8fq8?feature=oembed)
+[https://www.youtube.com/embed/XE-IIrD8fq8](https://www.youtube.com/embed/XE-IIrD8fq8)
 
-[https://www.youtube.com/embed/whX8b364K64?feature=oembed](https://www.youtube.com/embed/whX8b364K64?feature=oembed)
+[https://www.youtube.com/embed/whX8b364K64](https://www.youtube.com/embed/whX8b364K64)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-08-05a-300x199.png?resize=758%2C503)
 
@@ -59,13 +59,13 @@ Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tou
 
 **1985:** [Man at the Top](http://estreetshuffle.com/index.php/2019/05/10/roll-of-the-dice-man-at-the-top/)[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)
 
-[https://www.youtube.com/embed/rm49wginqwo?feature=oembed](https://www.youtube.com/embed/rm49wginqwo?feature=oembed)
+[https://www.youtube.com/embed/rm49wginqwo](https://www.youtube.com/embed/rm49wginqwo)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAXbmVg0HYXLrk7xUqMNmCE](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAXbmVg0HYXLrk7xUqMNmCE)
 
 Because this show marks Bruce's return to the U.S. and the first time playing to stadiums only, the kick-off show draws a lot of media attention. Watch the news coverage (a lot of it!) below.
 
-[https://www.youtube.com/embed/n54Xk96HALs?feature=oembed](https://www.youtube.com/embed/n54Xk96HALs?feature=oembed)
+[https://www.youtube.com/embed/n54Xk96HALs](https://www.youtube.com/embed/n54Xk96HALs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-05a-256x300.png?resize=758%2C888)
 

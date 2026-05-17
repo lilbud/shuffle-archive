@@ -25,13 +25,13 @@ Bruce and the E Street Band record "" at the Record Plant in New York City. It w
 
 **1975:** [Linda Let Me Be the One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)
 
-[https://www.youtube.com/embed/G4yx0JdiKfo?feature=oembed](https://www.youtube.com/embed/G4yx0JdiKfo?feature=oembed)
+[https://www.youtube.com/embed/G4yx0JdiKfo](https://www.youtube.com/embed/G4yx0JdiKfo)
 
 Bruce and the E Street Band make a Darkness Tour stop at San Jose's Center for the Performing Arts.
 
 **1978:**<br>
 
-[https://videopress.com/embed/e0eKZI7h?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/e0eKZI7h?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/e0eKZI7h](https://videopress.com/embed/e0eKZI7h)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1978-0629.jpg?resize=758%2C1404&amp;ssl=1)
 
@@ -39,7 +39,7 @@ Bruce and the E Street Band record "" at The Hit Factory in New York City.
 
 **1983:** [My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
 
-[https://www.youtube.com/embed/KrGi8ODOWR0?feature=oembed](https://www.youtube.com/embed/KrGi8ODOWR0?feature=oembed)
+[https://www.youtube.com/embed/KrGi8ODOWR0](https://www.youtube.com/embed/KrGi8ODOWR0)
 
 A big, big night for Bruce Springsteen and the E Street Band: The Born in the U.S.A. Tour kicks off at the St. Paul Civic Center Arena, with Nils and Patti making their official debuts as full-fledged members of the band. Film director Brian De Palma is on hand to film Bruce's performance (twice!) of "" for the now classic music video, and fan . This is also Courtney Cox's debut–as most people know, she's the "lucky fan" pulled out of the audience to dance with Bruce on-stage.
 
@@ -47,11 +47,11 @@ A big, big night for Bruce Springsteen and the E Street Band: The Born in the U.
 
 Watch footage from the video premiere below, and then listen to a never-before-circulated soundboard recording of Bruce's first-ever public concert performance of "Dancing in the Dark." (Sorry about those drum machines…)
 
-[https://www.youtube.com/embed/MKXlK0fmnTg?feature=oembed](https://www.youtube.com/embed/MKXlK0fmnTg?feature=oembed)
+[https://www.youtube.com/embed/MKXlK0fmnTg](https://www.youtube.com/embed/MKXlK0fmnTg)
 
-[https://videopress.com/embed/NV0vpTz3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NV0vpTz3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/NV0vpTz3](https://videopress.com/embed/NV0vpTz3)
 
-[https://www.youtube.com/embed/129kuDCQtHs?feature=oembed](https://www.youtube.com/embed/129kuDCQtHs?feature=oembed)
+[https://www.youtube.com/embed/129kuDCQtHs](https://www.youtube.com/embed/129kuDCQtHs)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAEeAs19HVKihUHhbpsNF26](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAEeAs19HVKihUHhbpsNF26)
 
@@ -59,7 +59,7 @@ In the setlist, a couple of notable moments: Bruce covers "" for the first time,
 
 [Street Fighting Man](http://estreetshuffle.com/index.php/2019/08/19/cover-me-street-fighting-man/)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)
 
-[https://www.youtube.com/embed/_VQiGVKbLok?feature=oembed](https://www.youtube.com/embed/_VQiGVKbLok?feature=oembed)
+[https://www.youtube.com/embed/_VQiGVKbLok](https://www.youtube.com/embed/_VQiGVKbLok)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-06-29a-300x127.jpg?resize=758%2C321)
 
@@ -71,11 +71,11 @@ The Born in the U.S.A. Tour arrives in Paris for the first of two nights at Parc
 
 **1985:**<br>
 
-[https://videopress.com/embed/kmI7T1QT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kmI7T1QT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/kmI7T1QT](https://videopress.com/embed/kmI7T1QT)
 
-[https://videopress.com/embed/SgbjgGCB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SgbjgGCB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/SgbjgGCB](https://videopress.com/embed/SgbjgGCB)
 
-[https://videopress.com/embed/74jBxyo8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/74jBxyo8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/74jBxyo8](https://videopress.com/embed/74jBxyo8)
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1CoG7ABoOG_ENRC4fVWaMDj](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1CoG7ABoOG_ENRC4fVWaMDj)
 
@@ -85,15 +85,15 @@ Meanwhile, "," Bruce's latest single, climbs the charts and is profiled on .
 
 [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)*American Top 40*
 
-[https://videopress.com/embed/bjCt8eEl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bjCt8eEl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bjCt8eEl](https://videopress.com/embed/bjCt8eEl)
 
 Night Two in Rotterdam on the Tunnel of Love Tour features the first performances of "" and "" in a decade.
 
 **1988:** [Chimes of Freedom](http://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)[Paradise by the ‘C'](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)
 
-[https://videopress.com/embed/ewosTtgL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ewosTtgL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ewosTtgL](https://videopress.com/embed/ewosTtgL)
 
-[https://www.youtube.com/embed/s3oWgq4VYCQ?feature=oembed](https://www.youtube.com/embed/s3oWgq4VYCQ?feature=oembed)
+[https://www.youtube.com/embed/s3oWgq4VYCQ](https://www.youtube.com/embed/s3oWgq4VYCQ)
 
 Bruce plays a 20-minute-long "Twist and Shout" with The Fabulous Greaseband at The Headliner in Neptune, New Jersey.
 
@@ -105,13 +105,13 @@ Bruce records "" at Oceanway Studios in Los Angeles.
 
 **1990:** [Seven Angels](http://estreetshuffle.com/index.php/2018/06/07/roll-of-the-dice-seven-angels/)
 
-[https://www.youtube.com/embed/SWUXK4D7F-E?feature=oembed](https://www.youtube.com/embed/SWUXK4D7F-E?feature=oembed)
+[https://www.youtube.com/embed/SWUXK4D7F-E](https://www.youtube.com/embed/SWUXK4D7F-E)
 
 Bruce and his new touring band bring World Tour 1992 to Paris for the first of two nights at Palais Omnisports de Paris-Bercy, where Bruce reveals that "" and "" share a common character.
 
 **1992:** [Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
-[https://videopress.com/embed/3NLub5G0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3NLub5G0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/3NLub5G0](https://videopress.com/embed/3NLub5G0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/The_Jersey_Journal_1992_07_01_24-scaled.jpg?resize=758%2C1366&amp;ssl=1)
 
@@ -125,11 +125,11 @@ Bruce and the E Street Band play their penultimate Reunion show at Madison Squar
 
 **2000:***Live in New York City.*
 
-[https://www.youtube.com/embed/lW1RAYYs8RI?feature=oembed](https://www.youtube.com/embed/lW1RAYYs8RI?feature=oembed)
+[https://www.youtube.com/embed/lW1RAYYs8RI](https://www.youtube.com/embed/lW1RAYYs8RI)
 
-[https://www.youtube.com/embed/TZp0ghBwgSw?feature=oembed](https://www.youtube.com/embed/TZp0ghBwgSw?feature=oembed)
+[https://www.youtube.com/embed/TZp0ghBwgSw](https://www.youtube.com/embed/TZp0ghBwgSw)
 
-[https://www.youtube.com/embed/2i5QJBSNcvo?feature=oembed](https://www.youtube.com/embed/2i5QJBSNcvo?feature=oembed)
+[https://www.youtube.com/embed/2i5QJBSNcvo](https://www.youtube.com/embed/2i5QJBSNcvo)
 
 Bruce discovers a painting of himself by local high school student Michael Antrim, who submitted it for (and won) an art contest held by the Freehold Library two years prior. Bruce heads over to Michael's house in Red Bank to sign it. Learning that Michael plays guitar, he spends time playing with him–about 90 minutes in total spent at the boy's house.
 
@@ -147,21 +147,21 @@ Bruce and the E Street Band bring the Wrecking Ball Tour to Stade de France outs
 
 **2013:** [Burning Love](http://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/)[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)
 
-[https://www.youtube.com/embed/RPNgL3dOTpM?feature=oembed](https://www.youtube.com/embed/RPNgL3dOTpM?feature=oembed)
+[https://www.youtube.com/embed/RPNgL3dOTpM](https://www.youtube.com/embed/RPNgL3dOTpM)
 
-[https://www.youtube.com/embed/1UjXkB4xDHA?feature=oembed](https://www.youtube.com/embed/1UjXkB4xDHA?feature=oembed)
+[https://www.youtube.com/embed/1UjXkB4xDHA](https://www.youtube.com/embed/1UjXkB4xDHA)
 
-[https://www.youtube.com/embed/YqB8NgH3_fg?feature=oembed](https://www.youtube.com/embed/YqB8NgH3_fg?feature=oembed)
+[https://www.youtube.com/embed/YqB8NgH3_fg](https://www.youtube.com/embed/YqB8NgH3_fg)
 
-[https://www.youtube.com/embed/9UIt2fP0ik0?feature=oembed](https://www.youtube.com/embed/9UIt2fP0ik0?feature=oembed)
+[https://www.youtube.com/embed/9UIt2fP0ik0](https://www.youtube.com/embed/9UIt2fP0ik0)
 
 The River Tour (2016 edition) returns to its original form in Oslo, with at least 13 songs from the album making the setlist.
 
 **2016:** *almost*
 
-[https://videopress.com/embed/5RghO2RM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5RghO2RM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/5RghO2RM](https://videopress.com/embed/5RghO2RM)
 
-[https://www.youtube.com/embed/cH73sVMiH4A?feature=oembed](https://www.youtube.com/embed/cH73sVMiH4A?feature=oembed)
+[https://www.youtube.com/embed/cH73sVMiH4A](https://www.youtube.com/embed/cH73sVMiH4A)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -177,4 +177,4 @@ Bruce and the E Street Band tour debut "" on Night Two in Nijmegen in The Nether
 
 **2024:** [Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)[here](https://www.nugs.net/live-download-of-bruce-springsteen-goffertpark-nijmegen-netherlands-06-29-2024-mp3-flac-or-online-music-streaming/35855.html)
 
-[https://www.youtube.com/embed/9ZdNyvVTDXQ?feature=oembed](https://www.youtube.com/embed/9ZdNyvVTDXQ?feature=oembed)
+[https://www.youtube.com/embed/9ZdNyvVTDXQ](https://www.youtube.com/embed/9ZdNyvVTDXQ)

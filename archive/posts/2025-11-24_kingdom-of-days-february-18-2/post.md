@@ -19,7 +19,7 @@ The River Tour continues its Florida leg with a stop at the Jacksonville Veteran
 
 **1981:**<br>
 
-[https://www.youtube.com/embed/_oYfUcPwuFM?feature=oembed](https://www.youtube.com/embed/_oYfUcPwuFM?feature=oembed)
+[https://www.youtube.com/embed/_oYfUcPwuFM](https://www.youtube.com/embed/_oYfUcPwuFM)
 
 [https://www.youtube.com/embed/VJVyZxoCk4Q?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/VJVyZxoCk4Q?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
@@ -39,44 +39,44 @@ Bruce wraps up the German leg of his European solo acoustic tour with a show in 
 
 **1996:**<br>
 
-[https://videopress.com/embed/qsGD2AcQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qsGD2AcQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/qsGD2AcQ](https://videopress.com/embed/qsGD2AcQ)
 
 The River (2016) Tour moves on to Philips Arena in Atlanta.
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/hCx_XVLmHeg?feature=oembed](https://www.youtube.com/embed/hCx_XVLmHeg?feature=oembed)
+[https://www.youtube.com/embed/hCx_XVLmHeg](https://www.youtube.com/embed/hCx_XVLmHeg)
 
-[https://www.youtube.com/embed/l-4_wH_P8v8?feature=oembed](https://www.youtube.com/embed/l-4_wH_P8v8?feature=oembed)
+[https://www.youtube.com/embed/l-4_wH_P8v8](https://www.youtube.com/embed/l-4_wH_P8v8)
 
-[https://www.youtube.com/embed/c_be1cKSY80?feature=oembed](https://www.youtube.com/embed/c_be1cKSY80?feature=oembed)
+[https://www.youtube.com/embed/c_be1cKSY80](https://www.youtube.com/embed/c_be1cKSY80)
 
-[https://www.youtube.com/embed/Qkdr9goDgJ8?feature=oembed](https://www.youtube.com/embed/Qkdr9goDgJ8?feature=oembed)
+[https://www.youtube.com/embed/Qkdr9goDgJ8](https://www.youtube.com/embed/Qkdr9goDgJ8)
 
 Bruce closes his Australian summer tour with a show at Hunter Valley that features rare performances of "" and "."
 
 **2017:** [I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)[None But the Brave](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)
 
-[https://www.youtube.com/embed/IVuIXL30OC4?feature=oembed](https://www.youtube.com/embed/IVuIXL30OC4?feature=oembed)
+[https://www.youtube.com/embed/IVuIXL30OC4](https://www.youtube.com/embed/IVuIXL30OC4)
 
-[https://www.youtube.com/embed/rKjbOl-V58k?feature=oembed](https://www.youtube.com/embed/rKjbOl-V58k?feature=oembed)
+[https://www.youtube.com/embed/rKjbOl-V58k](https://www.youtube.com/embed/rKjbOl-V58k)
 
-[https://www.youtube.com/embed/EwfLpiFU-Wg?feature=oembed](https://www.youtube.com/embed/EwfLpiFU-Wg?feature=oembed)
+[https://www.youtube.com/embed/EwfLpiFU-Wg](https://www.youtube.com/embed/EwfLpiFU-Wg)
 
-[https://www.youtube.com/embed/jZWSzzVzzWU?feature=oembed](https://www.youtube.com/embed/jZWSzzVzzWU?feature=oembed)
+[https://www.youtube.com/embed/jZWSzzVzzWU](https://www.youtube.com/embed/jZWSzzVzzWU)
 
 Jake is still out of action with COVID-19 as Bruce and the E Street Band bring their 2023 World Tour to Kansas City. Bruce breaks the news with his usual good humor during "."
 
 **2023:** [Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)
 
-[https://www.youtube.com/embed/dQaRy0bGWMc?feature=oembed](https://www.youtube.com/embed/dQaRy0bGWMc?feature=oembed)
+[https://www.youtube.com/embed/dQaRy0bGWMc](https://www.youtube.com/embed/dQaRy0bGWMc)
 
-[https://www.youtube.com/embed/4L2PqWVCnbg?feature=oembed](https://www.youtube.com/embed/4L2PqWVCnbg?feature=oembed)
+[https://www.youtube.com/embed/4L2PqWVCnbg](https://www.youtube.com/embed/4L2PqWVCnbg)
 
-[https://www.youtube.com/embed/qxnKwFtSnJY?feature=oembed](https://www.youtube.com/embed/qxnKwFtSnJY?feature=oembed)
+[https://www.youtube.com/embed/qxnKwFtSnJY](https://www.youtube.com/embed/qxnKwFtSnJY)
 
-[https://www.youtube.com/embed/ZVoP1sNgmxQ?feature=oembed](https://www.youtube.com/embed/ZVoP1sNgmxQ?feature=oembed)
+[https://www.youtube.com/embed/ZVoP1sNgmxQ](https://www.youtube.com/embed/ZVoP1sNgmxQ)
 
-[https://www.youtube.com/embed/kzplT7Hok7o?feature=oembed](https://www.youtube.com/embed/kzplT7Hok7o?feature=oembed)
+[https://www.youtube.com/embed/kzplT7Hok7o](https://www.youtube.com/embed/kzplT7Hok7o)
 
-[https://www.youtube.com/embed/p4cx32I6DCo?feature=oembed](https://www.youtube.com/embed/p4cx32I6DCo?feature=oembed)
+[https://www.youtube.com/embed/p4cx32I6DCo](https://www.youtube.com/embed/p4cx32I6DCo)

@@ -7,4 +7,4 @@ Passenger's gentle singer-songwriter vibe is well-suited for the quieter side of
 
 (Gotta admit, though, I'm a bit distracted by the checkered-shirt dude in the background. About halfway through, he seems to get lost in the song.)
 
-[https://www.youtube.com/embed/xb3dlQsIihc?feature=oembed](https://www.youtube.com/embed/xb3dlQsIihc?feature=oembed)
+[https://www.youtube.com/embed/xb3dlQsIihc](https://www.youtube.com/embed/xb3dlQsIihc)

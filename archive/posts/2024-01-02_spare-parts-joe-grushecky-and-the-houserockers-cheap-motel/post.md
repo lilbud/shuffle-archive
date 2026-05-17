@@ -7,7 +7,7 @@ In one sense, "Cheap Motel" is an original Springsteen song in that Bruce wrote 
 
 [](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad*
 
-[https://www.youtube.com/embed/_Mz3q2pKR74?feature=oembed](https://www.youtube.com/embed/_Mz3q2pKR74?feature=oembed)
+[https://www.youtube.com/embed/_Mz3q2pKR74](https://www.youtube.com/embed/_Mz3q2pKR74)
 
 In another sense, it's a cover, because Bruce didn't play any part in the studio recording.
 

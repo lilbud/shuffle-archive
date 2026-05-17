@@ -1,7 +1,7 @@
 
 Here's another one for the completists, because good luck trying to make out most of what Bruce is singing in this Nebraska-era home demo.
 
-[https://videopress.com/embed/aQ663nco?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aQ663nco?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/aQ663nco](https://videopress.com/embed/aQ663nco)
 
 There's a narrator singing to his love interest, but all we learn about her is that she's got long white legs, wears a cotton dress, and has eyes that moonlight shines through. Not a bad start, and it's a lovely melody, but this appears to be a musical dead end.
 

@@ -5,6 +5,6 @@ There was always a country song deep down in Bruce Springsteen's "," and Drew Ho
 
 Skip past the first minute of rehearsal footage if you must, but don't miss their gorgeous cover performance that follows–it's one of my favorite covers of a Springsteen song.
 
-[https://www.youtube.com/embed/TqyB64MtVAQ?feature=oembed](https://www.youtube.com/embed/TqyB64MtVAQ?feature=oembed)
+[https://www.youtube.com/embed/TqyB64MtVAQ](https://www.youtube.com/embed/TqyB64MtVAQ)
 
 When I first heard Holcomb and Merritt's performance, it was a revelation—their arrangement of "Hungry Heart" feels so natural, so perfectly suited to the lyrics that I have to wonder whether Bruce ever envisioned it that way himself.

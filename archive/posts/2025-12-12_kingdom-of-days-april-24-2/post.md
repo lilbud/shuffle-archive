@@ -3,11 +3,11 @@ Steel Mill plays a show at Monmouth College in West Long Branch, New Jersey. Lis
 
 **1970:**<br>
 
-[https://videopress.com/embed/K8rRLDke?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/K8rRLDke?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/K8rRLDke](https://videopress.com/embed/K8rRLDke)
 
-[https://www.youtube.com/embed/5rLBHrDI8PA?feature=oembed](https://www.youtube.com/embed/5rLBHrDI8PA?feature=oembed)
+[https://www.youtube.com/embed/5rLBHrDI8PA](https://www.youtube.com/embed/5rLBHrDI8PA)
 
-[https://www.youtube.com/embed/Ik2BkciHt2Y?feature=oembed](https://www.youtube.com/embed/Ik2BkciHt2Y?feature=oembed)
+[https://www.youtube.com/embed/Ik2BkciHt2Y](https://www.youtube.com/embed/Ik2BkciHt2Y)
 
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
@@ -19,9 +19,9 @@ At The Main Point in Bryn Mawr, Bruce plays his first live-in-concert radio broa
 
 **1973:**<br>
 
-[https://videopress.com/embed/hSdQlz6M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hSdQlz6M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/hSdQlz6M](https://videopress.com/embed/hSdQlz6M)
 
-[https://www.youtube.com/embed/vYfjqklI16E?feature=oembed](https://www.youtube.com/embed/vYfjqklI16E?feature=oembed)
+[https://www.youtube.com/embed/vYfjqklI16E](https://www.youtube.com/embed/vYfjqklI16E)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Philadelphia_Daily_News_1973_04_25_Page_21-scaled.jpg?resize=758%2C1352&amp;ssl=1)
 
@@ -37,13 +37,13 @@ Bruce and his studio team complete the mix for "The River" at Clover Studios in 
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/zHnZP2FmLCc?feature=oembed](https://www.youtube.com/embed/zHnZP2FmLCc?feature=oembed)
+[https://www.youtube.com/embed/zHnZP2FmLCc](https://www.youtube.com/embed/zHnZP2FmLCc)
 
 The River Tour moves on to Lyon, France, with a show at the Palais des Sports.
 
 **1981:**<br>
 
-[https://videopress.com/embed/hIzWoPyE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hIzWoPyE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/hIzWoPyE](https://videopress.com/embed/hIzWoPyE)
 
 Bruce sits in with Cats on a Smooth Surface at their gig at The Stone Pony in Asbury Park.
 
@@ -53,7 +53,7 @@ Bruce and his 1992-1993 touring band play their second of two shows at Flanders 
 
 **1993:**<br>
 
-[https://videopress.com/embed/f6uwPyOC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/f6uwPyOC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/f6uwPyOC](https://videopress.com/embed/f6uwPyOC)
 
 is certified double platinum by the Recording Industry Association of America.
 
@@ -65,29 +65,29 @@ Changing venues from his previous show at Royal Albert Hall, Bruce stays in Lond
 
 **1996:**<br>
 
-[https://videopress.com/embed/fK8AddmO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fK8AddmO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fK8AddmO](https://videopress.com/embed/fK8AddmO)
 
-[https://videopress.com/embed/bjd4mLz9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bjd4mLz9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bjd4mLz9](https://videopress.com/embed/bjd4mLz9)
 
-[https://www.youtube.com/embed/JElnWbkmc8M?feature=oembed](https://www.youtube.com/embed/JElnWbkmc8M?feature=oembed)
+[https://www.youtube.com/embed/JElnWbkmc8M](https://www.youtube.com/embed/JElnWbkmc8M)
 
-[https://www.youtube.com/embed/m4y_uVQ5g9g?feature=oembed](https://www.youtube.com/embed/m4y_uVQ5g9g?feature=oembed)
+[https://www.youtube.com/embed/m4y_uVQ5g9g](https://www.youtube.com/embed/m4y_uVQ5g9g)
 
 Vienna fans witness the only performance of "Dollhouse" to date at a Reunion show at Wiener Stadthalle.
 
 **1999:**<br>
 
-[https://videopress.com/embed/xVc2UNfN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xVc2UNfN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xVc2UNfN](https://videopress.com/embed/xVc2UNfN)
 
-[https://www.youtube.com/embed/8QnOyrqe6w8?feature=oembed](https://www.youtube.com/embed/8QnOyrqe6w8?feature=oembed)
+[https://www.youtube.com/embed/8QnOyrqe6w8](https://www.youtube.com/embed/8QnOyrqe6w8)
 
 Bruce and the Sessions Band play their second public warm-up show at Asbury Park's Convention Hall. The waltz arrangement of "If I Should Fall Behind" debuts at this show, as does a new mash-up of "Cadillac Ranch" and "Mystery Train."
 
 **2006:**<br>
 
-[https://videopress.com/embed/RnG13val?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RnG13val?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/RnG13val](https://videopress.com/embed/RnG13val)
 
-[https://videopress.com/embed/Eis8SKkb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Eis8SKkb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Eis8SKkb](https://videopress.com/embed/Eis8SKkb)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2006-04-24.jpg?resize=616%2C959&amp;ssl=1)
 
@@ -95,15 +95,15 @@ The Working on a Dream Tour moves on to the XL Center in Hartford, bringing with
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/PY9AiWv6wGw?feature=oembed](https://www.youtube.com/embed/PY9AiWv6wGw?feature=oembed)
+[https://www.youtube.com/embed/PY9AiWv6wGw](https://www.youtube.com/embed/PY9AiWv6wGw)
 
-[https://videopress.com/embed/fGZxzcnT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fGZxzcnT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fGZxzcnT](https://videopress.com/embed/fGZxzcnT)
 
-[https://videopress.com/embed/iMNHmp8A?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iMNHmp8A?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/iMNHmp8A](https://videopress.com/embed/iMNHmp8A)
 
-[https://videopress.com/embed/3i10Paz2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3i10Paz2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/3i10Paz2](https://videopress.com/embed/3i10Paz2)
 
-[https://videopress.com/embed/mRceKQyO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mRceKQyO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/mRceKQyO](https://videopress.com/embed/mRceKQyO)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2009-04-24-rotated.jpg?resize=600%2C1644&amp;ssl=1)
 
@@ -111,15 +111,15 @@ At the annual Kirsten Ann Car Fund gala in New York City, Bruce and Stevie join 
 
 **2010:**<br>
 
-[https://www.youtube.com/embed/ctwOewTCskc?feature=oembed](https://www.youtube.com/embed/ctwOewTCskc?feature=oembed)
+[https://www.youtube.com/embed/ctwOewTCskc](https://www.youtube.com/embed/ctwOewTCskc)
 
 The Wrecking Ball Tour stops at the HP Pavilion in San Jose.
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/G-aE4KzzC5k?feature=oembed](https://www.youtube.com/embed/G-aE4KzzC5k?feature=oembed)
+[https://www.youtube.com/embed/G-aE4KzzC5k](https://www.youtube.com/embed/G-aE4KzzC5k)
 
-[https://www.youtube.com/embed/fdNM42qloIY?feature=oembed](https://www.youtube.com/embed/fdNM42qloIY?feature=oembed)
+[https://www.youtube.com/embed/fdNM42qloIY](https://www.youtube.com/embed/fdNM42qloIY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2012-04-24-1.jpg?resize=758%2C547&amp;ssl=1)
 
@@ -127,7 +127,7 @@ At the High Hopes Tour stop in Raleigh, the set list highlight is the tour premi
 
 **2014:**<br>
 
-[https://www.youtube.com/embed/L44FZ1_KB0k?feature=oembed](https://www.youtube.com/embed/L44FZ1_KB0k?feature=oembed)
+[https://www.youtube.com/embed/L44FZ1_KB0k](https://www.youtube.com/embed/L44FZ1_KB0k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2014-04-24-scaled.jpg?resize=758%2C1518&amp;ssl=1)
 
@@ -145,12 +145,12 @@ Bruce joins Gary Clark Jr. to open the 23rd annual Mark Twain Prize for American
 
 **2022:**<br>
 
-[https://www.youtube.com/embed/A9XolU_uYu4?feature=oembed](https://www.youtube.com/embed/A9XolU_uYu4?feature=oembed)
+[https://www.youtube.com/embed/A9XolU_uYu4](https://www.youtube.com/embed/A9XolU_uYu4)
 
 Bruce performs with John Mellencamp, Jackson Browne, Mavis Staples, Dion DiMucci, Darlene Love, and Little Steven and the Disciples of Soul at the American Music Honors ceremony at Monmouth University.
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/ZqlpT73CuJw?feature=oembed](https://www.youtube.com/embed/ZqlpT73CuJw?feature=oembed)
+[https://www.youtube.com/embed/ZqlpT73CuJw](https://www.youtube.com/embed/ZqlpT73CuJw)
 
-[https://www.youtube.com/embed/UjN4thitPO0?feature=oembed](https://www.youtube.com/embed/UjN4thitPO0?feature=oembed)
+[https://www.youtube.com/embed/UjN4thitPO0](https://www.youtube.com/embed/UjN4thitPO0)

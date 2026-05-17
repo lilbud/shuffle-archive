@@ -11,30 +11,30 @@ He even made his entrance that way–announcing his arrival at the back of the h
 
 [Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
-[https://www.youtube.com/embed/vKDxpiv7AiA?feature=oembed](https://www.youtube.com/embed/vKDxpiv7AiA?feature=oembed)
+[https://www.youtube.com/embed/vKDxpiv7AiA](https://www.youtube.com/embed/vKDxpiv7AiA)
 
 Bruce then segued from "Santa" to his other perennial seasonal classic, "." He'd only been on stage a few minutes, but he must have been restless, because he very quickly returned to the crowd, giving my row a close encounter.
 
 [Merry Christmas Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)*very*
 
-[https://www.youtube.com/embed/bhsJUCB5Gc8?feature=oembed](https://www.youtube.com/embed/bhsJUCB5Gc8?feature=oembed)
+[https://www.youtube.com/embed/bhsJUCB5Gc8](https://www.youtube.com/embed/bhsJUCB5Gc8)
 
 And then: the highlight of the night. I'm a big Lisa Fischer fan, and I had no idea she was even going to be at the show, much less share the stage with Bruce (she was not on the bill for the evening). But share the stage she did, for what may be my all-time favorite live performance of "" The video can't do it justice, but watch and listen anyway: Bruce, Lisa, and the orchestra transform Bruce's 1975 origin story into something that sounds like it was originally issued on the Stax label instead of Columbia. "Tenth Avenue" sounded fresher and more soulfired than ever, and Lisa more than held her own sharing vocals with Bruce.
 
 [Tenth Avenue Freeze-Out.](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-[https://www.youtube.com/embed/2YiWDXiBcN8?feature=oembed](https://www.youtube.com/embed/2YiWDXiBcN8?feature=oembed)
+[https://www.youtube.com/embed/2YiWDXiBcN8](https://www.youtube.com/embed/2YiWDXiBcN8)
 
 How do you top that? You don't even try to–instead, the assembled artists gathered on stage to sing two traditional Christmas carols, led by Jennifer Nettles. First, "…"
 
 [Do You Hear What I Hear](https://estreetshuffle.com/index.php/2020/12/24/matr-jennifer-nettles-sting-darlene-love-ronnie-spector-bruce-springsteen-and-more-do-you-hear-what-i-hear/)
 
-[https://www.youtube.com/embed/qZ6XNcPDUpA?feature=oembed](https://www.youtube.com/embed/qZ6XNcPDUpA?feature=oembed)
+[https://www.youtube.com/embed/qZ6XNcPDUpA](https://www.youtube.com/embed/qZ6XNcPDUpA)
 
 …and finally, "." Both songs were live debuts for Bruce.
 
 [Joy to the World](https://estreetshuffle.com/index.php/2019/12/24/matr-sting-bruce-springsteen-and-friends-joy-to-the-world/)
 
-[https://www.youtube.com/embed/RUBQa8-1w28?feature=oembed](https://www.youtube.com/embed/RUBQa8-1w28?feature=oembed)
+[https://www.youtube.com/embed/RUBQa8-1w28](https://www.youtube.com/embed/RUBQa8-1w28)
 
 All in all, a wonderful night for a great cause. I hope Sting and Trudie keep the tradition going.

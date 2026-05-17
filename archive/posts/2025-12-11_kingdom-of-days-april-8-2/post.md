@@ -3,13 +3,13 @@ The second of two nights in Cleveland on the Chicken Scratch Tour features the l
 
 **1976:**<br>
 
-[https://www.youtube.com/embed/rij7NJhcmoI?feature=oembed](https://www.youtube.com/embed/rij7NJhcmoI?feature=oembed)
+[https://www.youtube.com/embed/rij7NJhcmoI](https://www.youtube.com/embed/rij7NJhcmoI)
 
 Bruce sits in with Cats on a Smooth Surface at The Stone Pony in Asbury Park for four songs: "Proud Mary," "Dirty Water," "I'm Bad, I'm Nationwide," and "Lucille."
 
 **1984:**<br>
 
-[https://www.youtube.com/embed/E0nGuxZTSNo?feature=oembed](https://www.youtube.com/embed/E0nGuxZTSNo?feature=oembed)
+[https://www.youtube.com/embed/E0nGuxZTSNo](https://www.youtube.com/embed/E0nGuxZTSNo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1984-04-08.jpg?resize=389%2C296&amp;ssl=1)
 
@@ -17,11 +17,11 @@ At the second of two shows in Zurich, Bruce plays "Dancing in the Dark" for the 
 
 **1993:**<br>
 
-[https://videopress.com/embed/D126GX2S?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/D126GX2S?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/D126GX2S](https://videopress.com/embed/D126GX2S)
 
-[https://videopress.com/embed/tvOHIouc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tvOHIouc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/tvOHIouc](https://videopress.com/embed/tvOHIouc)
 
-[https://www.youtube.com/embed/I-FAIxCEA98?feature=oembed](https://www.youtube.com/embed/I-FAIxCEA98?feature=oembed)
+[https://www.youtube.com/embed/I-FAIxCEA98](https://www.youtube.com/embed/I-FAIxCEA98)
 
 : Bruce and the reunited E Street Band play their final rehearsal in Barcelona before the kick-off of the Reunion Tour the following day.
 
@@ -33,7 +33,7 @@ The Reunion Tour returns to the American Midwest for a show at Kiel Center in St
 
 **2000:**<br>
 
-[https://videopress.com/embed/Yl8UjR7w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Yl8UjR7w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Yl8UjR7w](https://videopress.com/embed/Yl8UjR7w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-04-08a.jpg?resize=758%2C365&amp;ssl=1)
 
@@ -49,17 +49,17 @@ Night Two in Anaheim at the Honda Center for the Magic Tour, with Tom Morello ma
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/ZNgu0Ai-5CU?feature=oembed](https://www.youtube.com/embed/ZNgu0Ai-5CU?feature=oembed)
+[https://www.youtube.com/embed/ZNgu0Ai-5CU](https://www.youtube.com/embed/ZNgu0Ai-5CU)
 
 The Working on a Dream Tour moves on to Houston for a show at the Toyota Center, where Bruce tour premieres "Cadillac Ranch" and "It's Hard to Be a Saint in the City."
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/iLs5BY-Ih94?feature=oembed](https://www.youtube.com/embed/iLs5BY-Ih94?feature=oembed)
+[https://www.youtube.com/embed/iLs5BY-Ih94](https://www.youtube.com/embed/iLs5BY-Ih94)
 
-[https://www.youtube.com/embed/eqT19ar-w9s?feature=oembed](https://www.youtube.com/embed/eqT19ar-w9s?feature=oembed)
+[https://www.youtube.com/embed/eqT19ar-w9s](https://www.youtube.com/embed/eqT19ar-w9s)
 
-[https://www.youtube.com/embed/wHrqpOju0k8?feature=oembed](https://www.youtube.com/embed/wHrqpOju0k8?feature=oembed)
+[https://www.youtube.com/embed/wHrqpOju0k8](https://www.youtube.com/embed/wHrqpOju0k8)
 
 Little Steven's Underground Garage airs Part 2 of The Bruce and Stevie Show. Absolutely essential listening for a fan of Bruce, Stevie, great music, and lifelong friendships.
 
@@ -71,13 +71,13 @@ The High Hopes Tour resumes proper (minus Steve Van Zandt, who will miss most of
 
 **2014:** *Lilyhammer*
 
-[https://www.youtube.com/embed/EQ26Q42ntMw?feature=oembed](https://www.youtube.com/embed/EQ26Q42ntMw?feature=oembed)
+[https://www.youtube.com/embed/EQ26Q42ntMw](https://www.youtube.com/embed/EQ26Q42ntMw)
 
-[https://www.youtube.com/embed/dTY4jsuOP1s?feature=oembed](https://www.youtube.com/embed/dTY4jsuOP1s?feature=oembed)
+[https://www.youtube.com/embed/dTY4jsuOP1s](https://www.youtube.com/embed/dTY4jsuOP1s)
 
-[https://www.youtube.com/embed/dnnxH94yMPo?feature=oembed](https://www.youtube.com/embed/dnnxH94yMPo?feature=oembed)
+[https://www.youtube.com/embed/dnnxH94yMPo](https://www.youtube.com/embed/dnnxH94yMPo)
 
-[https://www.youtube.com/embed/NVBqvBt7FjE?feature=oembed](https://www.youtube.com/embed/NVBqvBt7FjE?feature=oembed)
+[https://www.youtube.com/embed/NVBqvBt7FjE](https://www.youtube.com/embed/NVBqvBt7FjE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2014-04-08.jpg?resize=758%2C403&amp;ssl=1)
 
@@ -87,9 +87,9 @@ With two days' notice, Bruce cancels his upcoming show in Greensboro in protest 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2016-0408.jpg?resize=665%2C703&amp;ssl=1)
 
-[https://www.youtube.com/embed/GHVIDGoEzsw?feature=oembed](https://www.youtube.com/embed/GHVIDGoEzsw?feature=oembed)
+[https://www.youtube.com/embed/GHVIDGoEzsw](https://www.youtube.com/embed/GHVIDGoEzsw)
 
-[https://www.youtube.com/embed/BhUNIDscQG4?feature=oembed](https://www.youtube.com/embed/BhUNIDscQG4?feature=oembed)
+[https://www.youtube.com/embed/BhUNIDscQG4](https://www.youtube.com/embed/BhUNIDscQG4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/2016-04-08.jpg?resize=532%2C929&amp;ssl=1)
 

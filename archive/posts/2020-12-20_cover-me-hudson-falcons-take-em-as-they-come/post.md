@@ -5,7 +5,7 @@ You get this fantastic cover of "" from New Jersey legends the Hudson Falcons. T
 
 [Take ‘Em as They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)*loud.*
 
-[https://www.youtube.com/embed/75l7KCFmHFg?feature=oembed](https://www.youtube.com/embed/75l7KCFmHFg?feature=oembed)
+[https://www.youtube.com/embed/75l7KCFmHFg](https://www.youtube.com/embed/75l7KCFmHFg)
 
 This isn't the only time the Falcons have covered Bruce (check out of "")–but it's arguably their most successful attempt at blending the spirit of the original with their own sound.
 

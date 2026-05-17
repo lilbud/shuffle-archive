@@ -9,4 +9,4 @@ Maybe that's why he takes so well to covering Bruce. He made a gutsy choice, too
 
 Zig Zag's take is bluesy and earthy, breathing new life into the song. Well done.
 
-[https://www.youtube.com/embed/PPkADH1GHVQ?feature=oembed](https://www.youtube.com/embed/PPkADH1GHVQ?feature=oembed)
+[https://www.youtube.com/embed/PPkADH1GHVQ](https://www.youtube.com/embed/PPkADH1GHVQ)

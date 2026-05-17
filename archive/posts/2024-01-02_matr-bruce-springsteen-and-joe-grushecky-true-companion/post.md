@@ -5,7 +5,7 @@ That occasion was Flood Aid, a December 2004 benefit concert that Joe and Bruce 
 
 Joe and Bruce turn in a fantastic performance, especially Bruce's blistering guitar solo toward the end of the song. Check it out below in this wonderfully (and fortunately) filmed clip.
 
-[https://videopress.com/embed/GLGuSW8w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GLGuSW8w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/GLGuSW8w](https://videopress.com/embed/GLGuSW8w)
 
 Curiously, even though it's the title track, "True Companion" is the only song omitted from the album's youtube playlist, but you can hear the original below.
 

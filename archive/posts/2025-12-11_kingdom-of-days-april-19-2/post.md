@@ -15,13 +15,13 @@ Bruce finalizes the mix for "Ramrod" at Clover Studios in Los Angeles.
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/BEhmiGQvjOY?feature=oembed](https://www.youtube.com/embed/BEhmiGQvjOY?feature=oembed)
+[https://www.youtube.com/embed/BEhmiGQvjOY](https://www.youtube.com/embed/BEhmiGQvjOY)
 
 One night after debuting "Can't Help Falling in Love," Bruce opens his second show in Paris by premiering his cover/adaptation of "Follow That Dream." The encores include another world premiere: Bruce's first cover of "Sweet Soul Music."
 
 **1981:**<br>
 
-[https://www.youtube.com/embed/isH0CoR8feg?feature=oembed](https://www.youtube.com/embed/isH0CoR8feg?feature=oembed)
+[https://www.youtube.com/embed/isH0CoR8feg](https://www.youtube.com/embed/isH0CoR8feg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1981-04-18-1.jpg?resize=758%2C746&amp;ssl=1)
 
@@ -29,7 +29,7 @@ Bruce's tour of Japan moves from Tokyo to Kyoto for a night at Furitsu Taikukan.
 
 **1985:**<br>
 
-[https://videopress.com/embed/TVhMNdU8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/TVhMNdU8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/TVhMNdU8](https://videopress.com/embed/TVhMNdU8)
 
 is certified 3x multi-platinum by the Recording Industry Association of America.
 
@@ -41,7 +41,7 @@ Bruce brings his World Tour 1993 to Rotterdam for the first of two nights at Spo
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/9OJC24_OS6k?feature=oembed](https://www.youtube.com/embed/9OJC24_OS6k?feature=oembed)
+[https://www.youtube.com/embed/9OJC24_OS6k](https://www.youtube.com/embed/9OJC24_OS6k)
 
 is certified 15x multi-platinum by the Recording Industry Association of America.
 
@@ -53,41 +53,41 @@ Bruce plays a solo acoustic show in Berlin. Three songs from tonight's show ("Da
 
 **1996:** *Missing*
 
-[https://www.youtube.com/embed/1rh5xrkopE4?feature=oembed](https://www.youtube.com/embed/1rh5xrkopE4?feature=oembed)
+[https://www.youtube.com/embed/1rh5xrkopE4](https://www.youtube.com/embed/1rh5xrkopE4)
 
-[https://www.youtube.com/embed/bZtQJMeV9yw?feature=oembed](https://www.youtube.com/embed/bZtQJMeV9yw?feature=oembed)
+[https://www.youtube.com/embed/bZtQJMeV9yw](https://www.youtube.com/embed/bZtQJMeV9yw)
 
-[https://www.youtube.com/embed/hlEKiRlJSdc?feature=oembed](https://www.youtube.com/embed/hlEKiRlJSdc?feature=oembed)
+[https://www.youtube.com/embed/hlEKiRlJSdc](https://www.youtube.com/embed/hlEKiRlJSdc)
 
-[https://videopress.com/embed/djUWDP3c?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/djUWDP3c?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/djUWDP3c](https://videopress.com/embed/djUWDP3c)
 
 At the first of two Reunion shows at the Fila Forum in Milan, fans witness the live debut of "Where the Bands Are." "Jungleland" makes its tour debut as well.
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/DUFmXltd774?feature=oembed](https://www.youtube.com/embed/DUFmXltd774?feature=oembed)
+[https://www.youtube.com/embed/DUFmXltd774](https://www.youtube.com/embed/DUFmXltd774)
 
-[https://www.youtube.com/embed/gInfbhn9Zmo?feature=oembed](https://www.youtube.com/embed/gInfbhn9Zmo?feature=oembed)
+[https://www.youtube.com/embed/gInfbhn9Zmo](https://www.youtube.com/embed/gInfbhn9Zmo)
 
-[https://www.youtube.com/embed/s8H7slVBD-k?feature=oembed](https://www.youtube.com/embed/s8H7slVBD-k?feature=oembed)
+[https://www.youtube.com/embed/s8H7slVBD-k](https://www.youtube.com/embed/s8H7slVBD-k)
 
-[https://www.youtube.com/embed/3v51WPrTK5s?feature=oembed](https://www.youtube.com/embed/3v51WPrTK5s?feature=oembed)
+[https://www.youtube.com/embed/3v51WPrTK5s](https://www.youtube.com/embed/3v51WPrTK5s)
 
-[https://www.youtube.com/embed/nLRHLGQyruQ?feature=oembed](https://www.youtube.com/embed/nLRHLGQyruQ?feature=oembed)
+[https://www.youtube.com/embed/nLRHLGQyruQ](https://www.youtube.com/embed/nLRHLGQyruQ)
 
-[https://www.youtube.com/embed/FHc1CvoAUUk?feature=oembed](https://www.youtube.com/embed/FHc1CvoAUUk?feature=oembed)
+[https://www.youtube.com/embed/FHc1CvoAUUk](https://www.youtube.com/embed/FHc1CvoAUUk)
 
-[https://www.youtube.com/embed/zea6oQnSUDk?feature=oembed](https://www.youtube.com/embed/zea6oQnSUDk?feature=oembed)
+[https://www.youtube.com/embed/zea6oQnSUDk](https://www.youtube.com/embed/zea6oQnSUDk)
 
 The Canadian leg of the Rising Tour concludes with a show at Bell Center in Montreal, where "Hungry Heart" makes its tour debut. The set also features a solo piano "Incident on 57th Street."
 
 **2003:**<br>
 
-[https://www.youtube.com/embed/JnFxl9G1hIw?feature=oembed](https://www.youtube.com/embed/JnFxl9G1hIw?feature=oembed)
+[https://www.youtube.com/embed/JnFxl9G1hIw](https://www.youtube.com/embed/JnFxl9G1hIw)
 
-[https://www.youtube.com/embed/F9Bnc98emoU?feature=oembed](https://www.youtube.com/embed/F9Bnc98emoU?feature=oembed)
+[https://www.youtube.com/embed/F9Bnc98emoU](https://www.youtube.com/embed/F9Bnc98emoU)
 
-[https://www.youtube.com/embed/1LRT003HCIc?feature=oembed](https://www.youtube.com/embed/1LRT003HCIc?feature=oembed)
+[https://www.youtube.com/embed/1LRT003HCIc](https://www.youtube.com/embed/1LRT003HCIc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2003-04-19.jpg?resize=758%2C342&amp;ssl=1)
 
@@ -105,11 +105,11 @@ Record Store Day is a busy one: Bruce releases a new EP, , performs the title tr
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_k70_Le9KRCKkEF_kcPE13iAdPz2NpJER4](https://www.youtube.com/embed/videoseries?list=OLAK5uy_k70_Le9KRCKkEF_kcPE13iAdPz2NpJER4)
 
-[https://www.youtube.com/embed/_4rwJ--zjmA?feature=oembed](https://www.youtube.com/embed/_4rwJ--zjmA?feature=oembed)
+[https://www.youtube.com/embed/_4rwJ--zjmA](https://www.youtube.com/embed/_4rwJ--zjmA)
 
-[https://www.youtube.com/embed/rU6p1-aawow?feature=oembed](https://www.youtube.com/embed/rU6p1-aawow?feature=oembed)
+[https://www.youtube.com/embed/rU6p1-aawow](https://www.youtube.com/embed/rU6p1-aawow)
 
-[https://www.youtube.com/embed/j3m0BXVKPu0?feature=oembed](https://www.youtube.com/embed/j3m0BXVKPu0?feature=oembed)
+[https://www.youtube.com/embed/j3m0BXVKPu0](https://www.youtube.com/embed/j3m0BXVKPu0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2014-04-19-scaled.jpg?resize=758%2C1123&amp;ssl=1)
 

@@ -5,7 +5,7 @@ Bruce and the E Street Band play a gig at Nassau Community College in Garden Cit
 
 **1973:**<br>
 
-[https://videopress.com/embed/0GMcGpH8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0GMcGpH8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0GMcGpH8](https://videopress.com/embed/0GMcGpH8)
 
 Bruce and the E Street Band work on "Adam Raised a Cain" at a recording session at The Record Plant in New York City.
 
@@ -15,17 +15,17 @@ Bruce and the band play their first of two nights at the Winterland Ballroom in 
 
 **1978:** [here](https://live.brucespringsteen.net/live-music/0,23615/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-15-1978-Winterland-Arena-San-Francisco-CA.html)
 
-[https://www.youtube.com/embed/buib4a2xlDs?feature=oembed](https://www.youtube.com/embed/buib4a2xlDs?feature=oembed)
+[https://www.youtube.com/embed/buib4a2xlDs](https://www.youtube.com/embed/buib4a2xlDs)
 
-[https://www.youtube.com/embed/QCfFCqRBJJU?feature=oembed](https://www.youtube.com/embed/QCfFCqRBJJU?feature=oembed)
+[https://www.youtube.com/embed/QCfFCqRBJJU](https://www.youtube.com/embed/QCfFCqRBJJU)
 
-[https://www.youtube.com/embed/fg4TxENWhM4?feature=oembed](https://www.youtube.com/embed/fg4TxENWhM4?feature=oembed)
+[https://www.youtube.com/embed/fg4TxENWhM4](https://www.youtube.com/embed/fg4TxENWhM4)
 
-[https://www.youtube.com/embed/FVjPMq8TwDw?feature=oembed](https://www.youtube.com/embed/FVjPMq8TwDw?feature=oembed)
+[https://www.youtube.com/embed/FVjPMq8TwDw](https://www.youtube.com/embed/FVjPMq8TwDw)
 
-[https://www.youtube.com/embed/gI1X10yDmKg?feature=oembed](https://www.youtube.com/embed/gI1X10yDmKg?feature=oembed)
+[https://www.youtube.com/embed/gI1X10yDmKg](https://www.youtube.com/embed/gI1X10yDmKg)
 
-[https://www.youtube.com/embed/KibHV3ruSsA?feature=oembed](https://www.youtube.com/embed/KibHV3ruSsA?feature=oembed)
+[https://www.youtube.com/embed/KibHV3ruSsA](https://www.youtube.com/embed/KibHV3ruSsA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1978-12-15.png?resize=758%2C1602&amp;ssl=1)
 
@@ -33,7 +33,7 @@ Bruce and the boys play their first of two River Tour nights at the Boston Garde
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/1z2be7bb0QI?feature=oembed](https://www.youtube.com/embed/1z2be7bb0QI?feature=oembed)
+[https://www.youtube.com/embed/1z2be7bb0QI](https://www.youtube.com/embed/1z2be7bb0QI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1980-12-15.png?resize=758%2C2230&amp;ssl=1)
 
@@ -41,7 +41,7 @@ Bruce plays his first of two solo acoustic shows at the Orpheum Theater in Bosto
 
 **1995:**[](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad*
 
-[https://videopress.com/embed/8xw9PMw0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8xw9PMw0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/8xw9PMw0](https://videopress.com/embed/8xw9PMw0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1995-1215-201x300.jpg?resize=758%2C1132)
 
@@ -49,9 +49,9 @@ Bruce makes a guest appearance with Tim McLoone's Holiday Express at the Contine
 
 **2001:**<br>
 
-[https://www.youtube.com/embed/idLXa1qQmNc?feature=oembed](https://www.youtube.com/embed/idLXa1qQmNc?feature=oembed)
+[https://www.youtube.com/embed/idLXa1qQmNc](https://www.youtube.com/embed/idLXa1qQmNc)
 
-[https://videopress.com/embed/fJB1UM0k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fJB1UM0k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fJB1UM0k](https://videopress.com/embed/fJB1UM0k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/Asbury_Park_Press_2001_12_21_Page_102-scaled.jpg?resize=758%2C2096&amp;ssl=1)
 
@@ -63,7 +63,7 @@ Bruce and the E Street Band bring the Magic Tour to the Odyssey Arena in Belfast
 
 [https://www.youtube.com/embed/XEc1X1toJxM?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/XEc1X1toJxM?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
-[https://www.youtube.com/embed/SglU5VBOpR8?feature=oembed](https://www.youtube.com/embed/SglU5VBOpR8?feature=oembed)
+[https://www.youtube.com/embed/SglU5VBOpR8](https://www.youtube.com/embed/SglU5VBOpR8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/The_Daily_Telegraph_Mon__Dec_17__2007_.jpg?resize=758%2C624&amp;ssl=1)
 
@@ -71,9 +71,9 @@ Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, join
 
 **2012:** [Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/)
 
-[https://www.youtube.com/embed/1MDytQVZb34?feature=oembed](https://www.youtube.com/embed/1MDytQVZb34?feature=oembed)
+[https://www.youtube.com/embed/1MDytQVZb34](https://www.youtube.com/embed/1MDytQVZb34)
 
-[https://videopress.com/embed/isyosNGt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/isyosNGt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/isyosNGt](https://videopress.com/embed/isyosNGt)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2012-12-15.png?resize=758%2C818&amp;ssl=1)
 
@@ -89,10 +89,10 @@ closes its theatrical run at the Walter Kerr Theater in New York City. In attend
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2018-12-15b.png?resize=758%2C1216&amp;ssl=1)
 
-[https://www.youtube.com/embed/M1xDzgob1JI?feature=oembed](https://www.youtube.com/embed/M1xDzgob1JI?feature=oembed)
+[https://www.youtube.com/embed/M1xDzgob1JI](https://www.youtube.com/embed/M1xDzgob1JI)
 
 Bruce appears on a television special entitled speaking in support of WhyHunger.
 
 **2020:** *Play On: Celebrating the Power of Music to Make Change*,
 
-[https://videopress.com/embed/GHZohMSF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GHZohMSF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/GHZohMSF](https://videopress.com/embed/GHZohMSF)

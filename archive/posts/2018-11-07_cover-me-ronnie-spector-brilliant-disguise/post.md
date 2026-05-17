@@ -15,4 +15,4 @@ You had me until the coda. That was unforgivable.
 
 Whoa-oh-oh-oh indeed.
 
-[https://www.youtube.com/embed/DEgiQ7aMTjQ?feature=oembed](https://www.youtube.com/embed/DEgiQ7aMTjQ?feature=oembed)
+[https://www.youtube.com/embed/DEgiQ7aMTjQ](https://www.youtube.com/embed/DEgiQ7aMTjQ)

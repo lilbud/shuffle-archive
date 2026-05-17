@@ -7,13 +7,13 @@ Philly is also my hometown, and it gave me a rare chance to go to a show with my
 
 There's absolutely nothing like being in the pit at a Springsteen show–and in Philly especially, the adrenaline surge makes three and a half hours scream by.
 
-[https://www.youtube.com/embed/1qmUqDjfUIg?feature=oembed](https://www.youtube.com/embed/1qmUqDjfUIg?feature=oembed)
+[https://www.youtube.com/embed/1qmUqDjfUIg](https://www.youtube.com/embed/1qmUqDjfUIg)
 
 We had just barely made it into the pit, so we hung out near the back of it–and were perfectly positioned for the "" crowd surf. You can see me very clearly (if you know what I look like) in the lower-right corner around the 3:48 mark, helping Bruce make his way back to the stage!
 
 [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://www.youtube.com/embed/frvLQtXsXy8?feature=oembed](https://www.youtube.com/embed/frvLQtXsXy8?feature=oembed)
+[https://www.youtube.com/embed/frvLQtXsXy8](https://www.youtube.com/embed/frvLQtXsXy8)
 
 The River main set was considerably fuller and more majestic than at the tour opener in Pittsburgh, and Bruce told a more stories. I'd listened to all the "official bootlegs" that had been released to date, and it was clear from the outset that Bruce was downright talkative that night in Philly. In particular, we got some new backstory for ":"
 
@@ -29,7 +29,7 @@ Bruce fixed that by launching into "," and then the surprise highlight of the ni
 
 [Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)[My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)
 
-[https://www.youtube.com/embed/p4NBXN0hlRA?feature=oembed](https://www.youtube.com/embed/p4NBXN0hlRA?feature=oembed)
+[https://www.youtube.com/embed/p4NBXN0hlRA](https://www.youtube.com/embed/p4NBXN0hlRA)
 
 It was the joyous release we all needed, and the show barreled through the rest of the set: a welcome "" (such a fitting song in Philadelphia), the welcome return of "Jungleland," (which hadn't yet been played on this tour), and only the second time I've ever heard "" live.
 
@@ -39,10 +39,10 @@ The encores may not have held any setlist curveballs, but this was still Philade
 
 [the 2009 show](http://estreetshuffle.com/index.php/2018/10/19/where-the-band-was-philadelphia-october-19-2009/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://www.youtube.com/embed/l4FyCboEoiw?feature=oembed](https://www.youtube.com/embed/l4FyCboEoiw?feature=oembed)
+[https://www.youtube.com/embed/l4FyCboEoiw](https://www.youtube.com/embed/l4FyCboEoiw)
 
 …and even stalwarts like "Rosalita (Come Out Tonight)" were off-the-charts with this crowd.
 
-[https://www.youtube.com/embed/06X5-0OJoD4?feature=oembed](https://www.youtube.com/embed/06X5-0OJoD4?feature=oembed)
+[https://www.youtube.com/embed/06X5-0OJoD4](https://www.youtube.com/embed/06X5-0OJoD4)
 
 Walking out after the show, Craig and I marveled at what we'd just experienced and agreed that it would be tough to top that show on this tour. We had no idea what was in store for us not even seven months later when Bruce returned to Philly.

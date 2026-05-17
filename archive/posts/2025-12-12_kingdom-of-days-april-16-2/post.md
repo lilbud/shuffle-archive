@@ -21,9 +21,9 @@ The River Tour continues its European leg with a show in Munich, where "The Ties
 
 **1981:** [here](https://estreetshuffle.com/index.php/2021/04/16/where-the-band-was-munich-april-16-1981-dans-story/)
 
-[https://videopress.com/embed/r86O6U5P?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/r86O6U5P?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/r86O6U5P](https://videopress.com/embed/r86O6U5P)
 
-[https://videopress.com/embed/IahVMWyt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IahVMWyt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/IahVMWyt](https://videopress.com/embed/IahVMWyt)
 
 Bruce joins Clarence Clemons and the Red Bank Rockers for "Tenth Avenue Freeze-Out" at Big Man's West.
 
@@ -37,19 +37,19 @@ The final night of five in Tokyo on the Born in the U.S.A. Tour.
 
 **1985:**<br>
 
-[https://videopress.com/embed/IW12P88W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IW12P88W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/IW12P88W](https://videopress.com/embed/IW12P88W)
 
 At Night Two in Sheffield, Bruce honors a request and plays a one-off (for the tour) acoustic "Point Blank." It's a lovely, unique arrangement and very worth a listen.
 
 **1993:**<br>
 
-[https://videopress.com/embed/uFt2pexl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uFt2pexl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uFt2pexl](https://videopress.com/embed/uFt2pexl)
 
 Bruce plays the first of two shows at Royal Albert Hall in London and premieres the dubious classic, "Pilgrim in the Temple of Love." This show was rescheduled from its original scheduled date in March.
 
 **1996:**<br>
 
-[https://videopress.com/embed/xlOP1Ixx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xlOP1Ixx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xlOP1Ixx](https://videopress.com/embed/xlOP1Ixx)
 
 Bruce endorses Senator Barack Obama for president of the United States in an endorsement on his web site. Later, at Sloan-Kettering Hospital in New York City, Bruce and the E Street Band gather at the bedside of ailing bandmate Danny Federici to say their final goodbyes and sing together one last time.
 
@@ -61,19 +61,19 @@ At Night Two at the L.A. Sports Arena, Mike Ness guest stars on "Bad Luck" and "
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/NCHI_PBXRvk?feature=oembed](https://www.youtube.com/embed/NCHI_PBXRvk?feature=oembed)
+[https://www.youtube.com/embed/NCHI_PBXRvk](https://www.youtube.com/embed/NCHI_PBXRvk)
 
-[https://www.youtube.com/embed/_Ak-xNSsbzw?feature=oembed](https://www.youtube.com/embed/_Ak-xNSsbzw?feature=oembed)
+[https://www.youtube.com/embed/_Ak-xNSsbzw](https://www.youtube.com/embed/_Ak-xNSsbzw)
 
-[https://www.youtube.com/embed/x8RqRx7ftd0?feature=oembed](https://www.youtube.com/embed/x8RqRx7ftd0?feature=oembed)
+[https://www.youtube.com/embed/x8RqRx7ftd0](https://www.youtube.com/embed/x8RqRx7ftd0)
 
 Albany's Wrecking Ball show includes a rare, solo acoustic "Janey, Don't You Lose Heart," played by request, and the tour premieres of "Downbound Train" and "Darlington County." Watch the entire show below.
 
 **2012:**<br>
 
-[https://videopress.com/embed/QeL22Nwg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QeL22Nwg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/QeL22Nwg](https://videopress.com/embed/QeL22Nwg)
 
-[https://videopress.com/embed/c0DmZePn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/c0DmZePn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/c0DmZePn](https://videopress.com/embed/c0DmZePn)
 
 Bruce, Patti, and Little Steven attend opening night of on Broadway.
 

@@ -33,27 +33,27 @@ At the fourth of five nights at the Los Angeles Sports Arena, Bruce premieres "A
 
 **1988:** *Chimes of Freedom**Video Anthology*
 
-[https://www.youtube.com/embed/_91hNV6vuBY?feature=oembed](https://www.youtube.com/embed/_91hNV6vuBY?feature=oembed)
+[https://www.youtube.com/embed/_91hNV6vuBY](https://www.youtube.com/embed/_91hNV6vuBY)
 
-[https://www.youtube.com/embed/dONEgrsYoOk?feature=oembed](https://www.youtube.com/embed/dONEgrsYoOk?feature=oembed)
+[https://www.youtube.com/embed/dONEgrsYoOk](https://www.youtube.com/embed/dONEgrsYoOk)
 
-[https://videopress.com/embed/r8cmoMkh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/r8cmoMkh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/r8cmoMkh](https://videopress.com/embed/r8cmoMkh)
 
 At the second of two shows at Royal Albert Hall, Bruce opens with "Pony Boy" for the first and only time, before segueing seamlessly (if awkwardly) into "The Ghost of Tom Joad." Played twice before in New Jersey four years prior, "Pony Boy" hasn't been heard from since.
 
 **1996:**<br>
 
-[https://videopress.com/embed/Ty8xxuZl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ty8xxuZl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Ty8xxuZl](https://videopress.com/embed/Ty8xxuZl)
 
 At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bobcats Arena enjoy the tour premieres of "Souls of the Departed" (the show opener) and "Wild Billy's Circus Story,"
 
 **2008:**<br>
 
-[https://www.youtube.com/embed/nHlzZofJQwQ?feature=oembed](https://www.youtube.com/embed/nHlzZofJQwQ?feature=oembed)
+[https://www.youtube.com/embed/nHlzZofJQwQ](https://www.youtube.com/embed/nHlzZofJQwQ)
 
-[https://videopress.com/embed/YELHaaky?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YELHaaky?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/YELHaaky](https://videopress.com/embed/YELHaaky)
 
-[https://videopress.com/embed/zqt0avd3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/zqt0avd3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/zqt0avd3](https://videopress.com/embed/zqt0avd3)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-27.jpg?resize=401%2C984&amp;ssl=1)
 
@@ -69,15 +69,15 @@ At night two in Los Angeles, Bruce surprises early arrivals by walking out on st
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/I46gjoZQtws?feature=oembed](https://www.youtube.com/embed/I46gjoZQtws?feature=oembed)
+[https://www.youtube.com/embed/I46gjoZQtws](https://www.youtube.com/embed/I46gjoZQtws)
 
-[https://www.youtube.com/embed/UTtlHPJRsQU?feature=oembed](https://www.youtube.com/embed/UTtlHPJRsQU?feature=oembed)
+[https://www.youtube.com/embed/UTtlHPJRsQU](https://www.youtube.com/embed/UTtlHPJRsQU)
 
-[https://www.youtube.com/embed/vrJHvpldjX4?feature=oembed](https://www.youtube.com/embed/vrJHvpldjX4?feature=oembed)
+[https://www.youtube.com/embed/vrJHvpldjX4](https://www.youtube.com/embed/vrJHvpldjX4)
 
-[https://www.youtube.com/embed/gmp6OH15jaM?feature=oembed](https://www.youtube.com/embed/gmp6OH15jaM?feature=oembed)
+[https://www.youtube.com/embed/gmp6OH15jaM](https://www.youtube.com/embed/gmp6OH15jaM)
 
-[https://www.youtube.com/embed/IKMUqp4jzpA?feature=oembed](https://www.youtube.com/embed/IKMUqp4jzpA?feature=oembed)
+[https://www.youtube.com/embed/IKMUqp4jzpA](https://www.youtube.com/embed/IKMUqp4jzpA)
 
 The E Street Band (minus Bruce) rehearses for the next leg of the Wrecking Ball Tour at Nordisk Film Studios in Oslo.
 

@@ -12,7 +12,7 @@ Kragen implored Jon Landau to secure Bruce's participation, but Landau set expec
 
 Bruce was scheduled to end his current leg of the tour the night before in Syracuse, three thousand miles away. Getting across the country the next day for an all-night recording session was a lot to ask. Heck, Bruce was nominated for a few AMAs that night (and won one), and yet he didn't even attend the ceremony.
 
-[https://videopress.com/embed/GVzRSj7w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GVzRSj7w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/GVzRSj7w](https://videopress.com/embed/GVzRSj7w)
 
 But a few weeks before the scheduled recording session, Landau called Kragen and told him that Bruce was on board. And once Bruce was on board, *everyone* was on board. A wave of artists signed up after Bruce, and on the morning of January 28th, Bruce got on a plane and flew across the country to Los Angeles.
 

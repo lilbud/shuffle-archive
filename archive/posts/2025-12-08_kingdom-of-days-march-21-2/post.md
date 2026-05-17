@@ -15,21 +15,21 @@ Bruce works on mixing and overdubs for "Racing in the Street" at the Record Plan
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/cm9UuM3UXdc?feature=oembed](https://www.youtube.com/embed/cm9UuM3UXdc?feature=oembed)
+[https://www.youtube.com/embed/cm9UuM3UXdc](https://www.youtube.com/embed/cm9UuM3UXdc)
 
 Bruce and the E Street Band record "Out in the Street" at the Power Station in New York City.
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/abIbKWBwCkU?feature=oembed](https://www.youtube.com/embed/abIbKWBwCkU?feature=oembed)
+[https://www.youtube.com/embed/abIbKWBwCkU](https://www.youtube.com/embed/abIbKWBwCkU)
 
 Bruce plays in Australia for the first time as the next leg of the Born in the U.S.A. Tour kicks off with a six-night stand at the Sydney Entertainment Center.
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/FcYu3LmlkZg?feature=oembed](https://www.youtube.com/embed/FcYu3LmlkZg?feature=oembed)
+[https://www.youtube.com/embed/FcYu3LmlkZg](https://www.youtube.com/embed/FcYu3LmlkZg)
 
-[https://www.youtube.com/embed/17lftoPySfs?feature=oembed](https://www.youtube.com/embed/17lftoPySfs?feature=oembed)
+[https://www.youtube.com/embed/17lftoPySfs](https://www.youtube.com/embed/17lftoPySfs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Sydney_Morning_Herald_1985_03_23_Page_44.jpg?resize=758%2C675&amp;ssl=1)
 
@@ -37,13 +37,13 @@ Bruce plays in Australia for the first time as the next leg of the Born in the U
 
 **1992:** [Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)*Lucky Town*
 
-[https://www.youtube.com/embed/VmwJQ62Cs_o?feature=oembed](https://www.youtube.com/embed/VmwJQ62Cs_o?feature=oembed)
+[https://www.youtube.com/embed/VmwJQ62Cs_o](https://www.youtube.com/embed/VmwJQ62Cs_o)
 
 Bruce wins the Best Original Song Academy Award for "" and performs the song live during the ceremony.
 
 **1994:** [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
-[https://www.youtube.com/embed/QeIOtaydCyo?feature=oembed](https://www.youtube.com/embed/QeIOtaydCyo?feature=oembed)
+[https://www.youtube.com/embed/QeIOtaydCyo](https://www.youtube.com/embed/QeIOtaydCyo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1994-03-21.png?resize=758%2C625&amp;ssl=1)
 
@@ -51,13 +51,13 @@ In advance of the broadcast debut of , Bob Costas interviews Bruce for… HBO Sp
 
 **2001:** *Live in New York City*
 
-[https://videopress.com/embed/eMw2oVwM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eMw2oVwM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/eMw2oVwM](https://videopress.com/embed/eMw2oVwM)
 
 Jon Bon Jovi, co-owner of the Philadelphia Soul arena football team, invites some friends to take in his team's game against Colorado in his suite at the Wachovia Center. The broadcast team covering the team catches and refers to Bruce and Jon on camera several times, but Southside Johnny gets no love, and Al Gore gets… whatever.
 
 **2004:**<br>
 
-[https://www.youtube.com/embed/v01FDP8aiZo?feature=oembed](https://www.youtube.com/embed/v01FDP8aiZo?feature=oembed)
+[https://www.youtube.com/embed/v01FDP8aiZo](https://www.youtube.com/embed/v01FDP8aiZo)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2004-03-21.jpg?resize=756%2C824&amp;ssl=1)
 
@@ -75,7 +75,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-[https://videopress.com/embed/fMAiffph?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fMAiffph?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/fMAiffph](https://videopress.com/embed/fMAiffph)
 
 President Biden awards Bruce with the National Medal of Arts in the East Room of the White House.
 
@@ -87,4 +87,4 @@ Bruce calls into E Street Radio to discuss the new leg of his world tour with ho
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/Uw5jmJCB0Fw?feature=oembed](https://www.youtube.com/embed/Uw5jmJCB0Fw?feature=oembed)
+[https://www.youtube.com/embed/Uw5jmJCB0Fw](https://www.youtube.com/embed/Uw5jmJCB0Fw)

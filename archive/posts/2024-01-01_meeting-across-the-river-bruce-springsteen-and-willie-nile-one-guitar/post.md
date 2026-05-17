@@ -3,17 +3,17 @@ Willie Nile's "One Guitar" won the AIM Independent Music Award for Best Social A
 
 Here's the most recent one, from 2015:
 
-[https://www.youtube.com/embed/wI-WmKdRRkc?feature=oembed](https://www.youtube.com/embed/wI-WmKdRRkc?feature=oembed)
+[https://www.youtube.com/embed/wI-WmKdRRkc](https://www.youtube.com/embed/wI-WmKdRRkc)
 
 …along with Willie's original, one of the great rock anthems.
 
-[https://www.youtube.com/embed/6_YBsy_HtWg?feature=oembed](https://www.youtube.com/embed/6_YBsy_HtWg?feature=oembed)
+[https://www.youtube.com/embed/6_YBsy_HtWg](https://www.youtube.com/embed/6_YBsy_HtWg)
 
 **Update 1/25/2020:**<br>
 
 Bruce and Willie reprised their Light of Day "One Guitar" duet last week in Asbury Park, and it was a fantastic performance. Take it in below:
 
-[https://www.youtube.com/embed/DWKZzyuYC1U?feature=oembed](https://www.youtube.com/embed/DWKZzyuYC1U?feature=oembed)
+[https://www.youtube.com/embed/DWKZzyuYC1U](https://www.youtube.com/embed/DWKZzyuYC1U)
 
 January 14, 2012 (Asbury Park, NJ)
 January 18, 2020 (Asbury Park, NJ)

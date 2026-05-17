@@ -3,11 +3,11 @@ When it comes to covering "It's All Over Now, Baby Blue," Bruce is in good compa
 
 Bob Dylan's 1965 track has received cover treatments over the years from such artists as Joan Baez, The Byrds, The Animals, Joni Mitchell, The Grateful Dead, and Link Wray to Echo and the Bunnymen, Falco, Marianne Faithfull, and more.
 
-[https://www.youtube.com/embed/L4HW33SgZlM?feature=oembed](https://www.youtube.com/embed/L4HW33SgZlM?feature=oembed)
+[https://www.youtube.com/embed/L4HW33SgZlM](https://www.youtube.com/embed/L4HW33SgZlM)
 
 But while I can't claim to be familiar with all of the versions out there, I suspect this 1972 soundboard rehearsal performance by The Bruce Springsteen Band stands alone. It's an absolutely gorgeous, atmospheric performance, and it demands attention.
 
-[https://www.youtube.com/embed/IexyKV3yiuc?feature=oembed](https://www.youtube.com/embed/IexyKV3yiuc?feature=oembed)
+[https://www.youtube.com/embed/IexyKV3yiuc](https://www.youtube.com/embed/IexyKV3yiuc)
 
 Starting quietly and building in intensity (but never in tempo), "It's All Over Now, Baby Blue" showcases Bruce, Steve, Garry, Vini, and Dave Sancious at their pre-E Street best. Sancious in particular is a standout here–his light, improvisational keys carry the arrangement (except for when Bruce turns in a fantastic guitar solo) right up to the last note. He's the star of this particular show.
 

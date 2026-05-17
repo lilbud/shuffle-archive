@@ -11,7 +11,7 @@ Bruce completes "" at the Record Plant in New York City. It will remain in the v
 
 **1975:** [Linda Let Me Be The One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)
 
-[https://www.youtube.com/embed/G4yx0JdiKfo?feature=oembed](https://www.youtube.com/embed/G4yx0JdiKfo?feature=oembed)
+[https://www.youtube.com/embed/G4yx0JdiKfo](https://www.youtube.com/embed/G4yx0JdiKfo)
 
 Bruce and the E Street Band work on "The Promise" and "" during recording sessions at Atlantic Studios in New York City.
 
@@ -21,17 +21,17 @@ One day after their legendary Roxy show, Bruce and the boys take the Darkness To
 
 **1978:** [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)
 
-[https://www.youtube.com/embed/YAxyHv7k0hA?feature=oembed](https://www.youtube.com/embed/YAxyHv7k0hA?feature=oembed)
+[https://www.youtube.com/embed/YAxyHv7k0hA](https://www.youtube.com/embed/YAxyHv7k0hA)
 
-[https://www.youtube.com/embed/CYHGh6lmSbo?feature=oembed](https://www.youtube.com/embed/CYHGh6lmSbo?feature=oembed)
+[https://www.youtube.com/embed/CYHGh6lmSbo](https://www.youtube.com/embed/CYHGh6lmSbo)
 
-[https://www.youtube.com/embed/BNwpbW0wCAI?feature=oembed](https://www.youtube.com/embed/BNwpbW0wCAI?feature=oembed)
+[https://www.youtube.com/embed/BNwpbW0wCAI](https://www.youtube.com/embed/BNwpbW0wCAI)
 
-[https://www.youtube.com/embed/okrvOAUg-yY?feature=oembed](https://www.youtube.com/embed/okrvOAUg-yY?feature=oembed)
+[https://www.youtube.com/embed/okrvOAUg-yY](https://www.youtube.com/embed/okrvOAUg-yY)
 
-[https://www.youtube.com/embed/lpjqgGNUcG4?feature=oembed](https://www.youtube.com/embed/lpjqgGNUcG4?feature=oembed)
+[https://www.youtube.com/embed/lpjqgGNUcG4](https://www.youtube.com/embed/lpjqgGNUcG4)
 
-[https://www.youtube.com/embed/qWChNHrQ-SQ?feature=oembed](https://www.youtube.com/embed/qWChNHrQ-SQ?feature=oembed)
+[https://www.youtube.com/embed/qWChNHrQ-SQ](https://www.youtube.com/embed/qWChNHrQ-SQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1978-07-08-300x216.jpg?resize=758%2C546)
 
@@ -39,17 +39,17 @@ Bruce and the E Street Band play their fifth of six nights at the Brendan Byrne 
 
 **1981:** [Two Heart](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)*Live 1975-85*[All I Need,](https://estreetshuffle.com/index.php/2019/12/03/roll-of-the-dice-cover-me-all-i-need/)*On the Line*
 
-[https://www.youtube.com/embed/Q6CRuzDAzkM?feature=oembed](https://www.youtube.com/embed/Q6CRuzDAzkM?feature=oembed)
+[https://www.youtube.com/embed/Q6CRuzDAzkM](https://www.youtube.com/embed/Q6CRuzDAzkM)
 
-[https://www.youtube.com/embed/9zr4sVzdVtc?feature=oembed](https://www.youtube.com/embed/9zr4sVzdVtc?feature=oembed)
+[https://www.youtube.com/embed/9zr4sVzdVtc](https://www.youtube.com/embed/9zr4sVzdVtc)
 
-[https://www.youtube.com/embed/IceVgtyvGY8?feature=oembed](https://www.youtube.com/embed/IceVgtyvGY8?feature=oembed)
+[https://www.youtube.com/embed/IceVgtyvGY8](https://www.youtube.com/embed/IceVgtyvGY8)
 
 The Born in the U.S.A. Tour treks across Ohio for the first of two nights in Richfield.
 
 **1984:**<br>
 
-[https://videopress.com/embed/CKvko768?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CKvko768?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/CKvko768](https://videopress.com/embed/CKvko768)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-07-09a-300x192.jpg?resize=758%2C485)
 
@@ -69,7 +69,7 @@ At Magic Night Two in Oslo, Bruce tour premieres "" (in its only tour appearance
 
 **2008:**[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
-[https://videopress.com/embed/jglWnfIg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jglWnfIg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jglWnfIg](https://videopress.com/embed/jglWnfIg)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAhg1pDC7ytrIdtUd3PfUFf](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAhg1pDC7ytrIdtUd3PfUFf)
 
@@ -77,7 +77,7 @@ Bruce brings the Working on a Dream Tour to MCH Arena Herning when the tour make
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/_ciF-EgDCDU?feature=oembed](https://www.youtube.com/embed/_ciF-EgDCDU?feature=oembed)
+[https://www.youtube.com/embed/_ciF-EgDCDU](https://www.youtube.com/embed/_ciF-EgDCDU)
 
 continues its limited return engagement at the St. James Theater in New York City.
 
@@ -87,6 +87,6 @@ Katy Perry, John Kerry, Chelsea Handler, Orlando Bloom, Judd Apatow, Emma Thomps
 
 **2023:** [here](https://live.brucespringsteen.net/live-music/0,31090/Bruce-Springsteen-mp3-flac-download-7-8-2023-BST-Hyde-Park-London-UK.html)
 
-[https://www.youtube.com/embed/KG7-Z6FyKfw?feature=oembed](https://www.youtube.com/embed/KG7-Z6FyKfw?feature=oembed)
+[https://www.youtube.com/embed/KG7-Z6FyKfw](https://www.youtube.com/embed/KG7-Z6FyKfw)
 
-[https://www.youtube.com/embed/la-vOKZsRUU?feature=oembed](https://www.youtube.com/embed/la-vOKZsRUU?feature=oembed)
+[https://www.youtube.com/embed/la-vOKZsRUU](https://www.youtube.com/embed/la-vOKZsRUU)

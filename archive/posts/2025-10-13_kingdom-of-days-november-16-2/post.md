@@ -23,7 +23,7 @@ When the Born in the U.S.A. Tour stops at Iowa State University at Ames, Bruce d
 
 **1984:** *Born in the U.S.A.*
 
-[https://www.youtube.com/embed/YmWslNfHwbw?feature=oembed](https://www.youtube.com/embed/YmWslNfHwbw?feature=oembed)
+[https://www.youtube.com/embed/YmWslNfHwbw](https://www.youtube.com/embed/YmWslNfHwbw)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-11-16a-300x166.png?resize=758%2C420)
 
@@ -33,23 +33,23 @@ Bruce plays the first of a pair of unique, remarkable benefit shows for the Chri
 
 **1990:** [Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)[57 Channels (And Nothin' On)](http://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)[When the Lights Go Out](https://estreetshuffle.com/index.php/2021/01/23/roll-of-the-dice-when-the-lights-go-out/)[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[Highway 61 Revisite](http://estreetshuffle.com/index.php/2018/11/07/meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/)[Across the Borderline](https://estreetshuffle.com/index.php/2022/03/26/matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/)[here](http://live.brucespringsteen.net/live-music/0,14250/Bruce-Springsteen-mp3-flac-download-11-16-1990-The-Christic-Shows-at-The-Shrine-Los-Angeles-CA.html)
 
-[https://www.youtube.com/embed/RdDzv4C-krM?feature=oembed](https://www.youtube.com/embed/RdDzv4C-krM?feature=oembed)
+[https://www.youtube.com/embed/RdDzv4C-krM](https://www.youtube.com/embed/RdDzv4C-krM)
 
-[https://www.youtube.com/embed/03dJ0y_nuXY?feature=oembed](https://www.youtube.com/embed/03dJ0y_nuXY?feature=oembed)
+[https://www.youtube.com/embed/03dJ0y_nuXY](https://www.youtube.com/embed/03dJ0y_nuXY)
 
-[https://www.youtube.com/embed/QsPaVvgq91s?feature=oembed](https://www.youtube.com/embed/QsPaVvgq91s?feature=oembed)
+[https://www.youtube.com/embed/QsPaVvgq91s](https://www.youtube.com/embed/QsPaVvgq91s)
 
-[https://www.youtube.com/embed/tWUgNuJKpgw?feature=oembed](https://www.youtube.com/embed/tWUgNuJKpgw?feature=oembed)
+[https://www.youtube.com/embed/tWUgNuJKpgw](https://www.youtube.com/embed/tWUgNuJKpgw)
 
-[https://www.youtube.com/embed/t0hoIHgwFzw?feature=oembed](https://www.youtube.com/embed/t0hoIHgwFzw?feature=oembed)
+[https://www.youtube.com/embed/t0hoIHgwFzw](https://www.youtube.com/embed/t0hoIHgwFzw)
 
-[https://www.youtube.com/embed/Igvu_8v0agw?feature=oembed](https://www.youtube.com/embed/Igvu_8v0agw?feature=oembed)
+[https://www.youtube.com/embed/Igvu_8v0agw](https://www.youtube.com/embed/Igvu_8v0agw)
 
-[https://www.youtube.com/embed/DvUtuVXw0m0?feature=oembed](https://www.youtube.com/embed/DvUtuVXw0m0?feature=oembed)
+[https://www.youtube.com/embed/DvUtuVXw0m0](https://www.youtube.com/embed/DvUtuVXw0m0)
 
-[https://www.youtube.com/embed/hNUPdBxYJ68?feature=oembed](https://www.youtube.com/embed/hNUPdBxYJ68?feature=oembed)
+[https://www.youtube.com/embed/hNUPdBxYJ68](https://www.youtube.com/embed/hNUPdBxYJ68)
 
-[https://www.youtube.com/embed/QhP7dZyzI3Q?feature=oembed](https://www.youtube.com/embed/QhP7dZyzI3Q?feature=oembed)
+[https://www.youtube.com/embed/QhP7dZyzI3Q](https://www.youtube.com/embed/QhP7dZyzI3Q)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1990-11-16-122x300.png?resize=758%2C1864)
 
@@ -67,7 +67,7 @@ Bruce opens a two-night solo acoustic stand at the Continental Airlines Arena in
 
 **2005:** [Does This Bus Stop at 82nd Street?](http://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)
 
-[https://www.youtube.com/embed/piMyePznQWE?feature=oembed](https://www.youtube.com/embed/piMyePznQWE?feature=oembed)
+[https://www.youtube.com/embed/piMyePznQWE](https://www.youtube.com/embed/piMyePznQWE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Asbury_Park_Press_Sat__Nov_19__2005_.jpg?resize=758%2C696&amp;ssl=1)
 
@@ -77,7 +77,7 @@ Bruce hits the beach in Ocean Grove, New Jersey to record the official video for
 
 [https://www.youtube.com/embed/I7J8UZ_Z23s?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/I7J8UZ_Z23s?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
-[https://videopress.com/embed/MjILokkm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MjILokkm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/MjILokkm](https://videopress.com/embed/MjILokkm)
 
 Bruce releases box set, featuring a new double-album of previously unreleased songs. That evening, he makes a guest appearance on masquerading as "1975 Bruce" to perform "" with Fallon (who is masquerading as Neil Young). Once rid of the disguise, Bruce performs "Because the Night" (with Patti Smith's lyrics) and "," accompanied by Steve, Roy, and The Roots.
 
@@ -85,7 +85,7 @@ Bruce releases box set, featuring a new double-album of previously unreleased so
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_mCQxEZoH6hfjwIUf-N0BouhY-AR5jONxc](https://www.youtube.com/embed/videoseries?list=OLAK5uy_mCQxEZoH6hfjwIUf-N0BouhY-AR5jONxc)
 
-[https://videopress.com/embed/nyF7ql3o?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nyF7ql3o?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/nyF7ql3o](https://videopress.com/embed/nyF7ql3o)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2010-11-16a-300x248.png?resize=758%2C626)
 
@@ -103,13 +103,13 @@ Bruce plays a private benefit show with Bobby Bandiera and his band (and for hal
 
 **2019:**<br>
 
-[https://www.youtube.com/embed/ldfdgTvQOsY?feature=oembed](https://www.youtube.com/embed/ldfdgTvQOsY?feature=oembed)
+[https://www.youtube.com/embed/ldfdgTvQOsY](https://www.youtube.com/embed/ldfdgTvQOsY)
 
-[https://www.youtube.com/embed/fXYOB55cGHk?feature=oembed](https://www.youtube.com/embed/fXYOB55cGHk?feature=oembed)
+[https://www.youtube.com/embed/fXYOB55cGHk](https://www.youtube.com/embed/fXYOB55cGHk)
 
-[https://www.youtube.com/embed/gN_zJDPHkG0?feature=oembed](https://www.youtube.com/embed/gN_zJDPHkG0?feature=oembed)
+[https://www.youtube.com/embed/gN_zJDPHkG0](https://www.youtube.com/embed/gN_zJDPHkG0)
 
-[https://www.youtube.com/embed/79JneALz41c?feature=oembed](https://www.youtube.com/embed/79JneALz41c?feature=oembed)
+[https://www.youtube.com/embed/79JneALz41c](https://www.youtube.com/embed/79JneALz41c)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2019-11-16-300x282.png?resize=758%2C712)
 
@@ -117,7 +117,7 @@ On the third night of his "takeover," Bruce performs "Nightshift" (recorded duri
 
 **2022:** *Tonight Show*
 
-[https://videopress.com/embed/7UxhpP9T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7UxhpP9T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/7UxhpP9T](https://videopress.com/embed/7UxhpP9T)
 
 Bruce's scheduled show in Ottawa is postponed by almost a year due to his peptic ulcer disease.
 
@@ -127,6 +127,6 @@ More than a year after it was originally scheduled, Bruce and the E Street Band 
 
 **2024:**<br>
 
-[https://www.youtube.com/embed/76QhRyDrqWw?feature=oembed](https://www.youtube.com/embed/76QhRyDrqWw?feature=oembed)
+[https://www.youtube.com/embed/76QhRyDrqWw](https://www.youtube.com/embed/76QhRyDrqWw)
 
-[https://www.youtube.com/embed/CXC5Cge2nis?feature=oembed](https://www.youtube.com/embed/CXC5Cge2nis?feature=oembed)
+[https://www.youtube.com/embed/CXC5Cge2nis](https://www.youtube.com/embed/CXC5Cge2nis)

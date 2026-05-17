@@ -9,7 +9,7 @@ Found it–and it's complete, too! Here's that gorgeous performance at the Stone
 
 **Update 8/25/19:**<br>
 
-[https://www.youtube.com/embed/TtdLEKv27y0?feature=oembed](https://www.youtube.com/embed/TtdLEKv27y0?feature=oembed)
+[https://www.youtube.com/embed/TtdLEKv27y0](https://www.youtube.com/embed/TtdLEKv27y0)
 
 Luckily, in my search for that video, I stumbled across a complete audio version–and it's orchestrally enhanced by Soundcloud user TomBerry26.
 

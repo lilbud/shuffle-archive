@@ -5,10 +5,10 @@ Willie Nelson and Emmylou Harris infuse "‘ with more authentic world-weariness
 
 [Dry Lightning](https://estreetshuffle.com/index.php/2020/10/16/roll-of-the-dice-dry-lightning/)
 
-[https://www.youtube.com/embed/2whOuAwk2Y4?feature=oembed](https://www.youtube.com/embed/2whOuAwk2Y4?feature=oembed)
+[https://www.youtube.com/embed/2whOuAwk2Y4](https://www.youtube.com/embed/2whOuAwk2Y4)
 
 if the video above doesn't work in your country, try this one instead:
 
 **Updated:**<br>
 
-[https://www.youtube.com/embed/KK6nLBrhMbM?feature=oembed](https://www.youtube.com/embed/KK6nLBrhMbM?feature=oembed)
+[https://www.youtube.com/embed/KK6nLBrhMbM](https://www.youtube.com/embed/KK6nLBrhMbM)

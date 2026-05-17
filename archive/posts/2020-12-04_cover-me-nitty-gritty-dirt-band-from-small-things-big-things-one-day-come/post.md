@@ -7,6 +7,6 @@ They scored with and six years later they rescued "From Small Things" from obscu
 
 Their version breathes a bit more than Bruce's original but retains its rebellious outlaw spirit. Here's the studio recording and a live TV performance.
 
-[https://www.youtube.com/embed/N-TbGLN8-lw?feature=oembed](https://www.youtube.com/embed/N-TbGLN8-lw?feature=oembed)
+[https://www.youtube.com/embed/N-TbGLN8-lw](https://www.youtube.com/embed/N-TbGLN8-lw)
 
-[https://www.youtube.com/embed/7OPqJObhkjQ?feature=oembed](https://www.youtube.com/embed/7OPqJObhkjQ?feature=oembed)
+[https://www.youtube.com/embed/7OPqJObhkjQ](https://www.youtube.com/embed/7OPqJObhkjQ)

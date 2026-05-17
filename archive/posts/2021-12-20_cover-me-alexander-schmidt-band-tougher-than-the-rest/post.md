@@ -11,4 +11,4 @@ b) He's got a new album (his debut, I think) of original material called , and I
 
 In these quarantined days, talented artists need all the exposure they can get, so I'm happy to recommend that you check Alexander's album out. But first check this out.
 
-[https://www.youtube.com/embed/zBK6UXNNmhc?feature=oembed](https://www.youtube.com/embed/zBK6UXNNmhc?feature=oembed)
+[https://www.youtube.com/embed/zBK6UXNNmhc](https://www.youtube.com/embed/zBK6UXNNmhc)

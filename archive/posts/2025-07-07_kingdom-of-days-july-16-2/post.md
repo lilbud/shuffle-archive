@@ -17,23 +17,23 @@ Bruce and the E Street Band bring the Darkness Tour to the New Orleans Municipal
 
 **1978:** [Honky Tonk](http://estreetshuffle.com/index.php/2019/09/26/cover-me-honky-tonk/)
 
-[https://videopress.com/embed/xE7qS26M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xE7qS26M?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xE7qS26M](https://videopress.com/embed/xE7qS26M)
 
-[https://www.youtube.com/embed/kJCwCcvLG9g?feature=oembed](https://www.youtube.com/embed/kJCwCcvLG9g?feature=oembed)
+[https://www.youtube.com/embed/kJCwCcvLG9g](https://www.youtube.com/embed/kJCwCcvLG9g)
 
 At The Power Station in New York City, Bruce records "" and "." The former won't be released for almost twenty years, the latter not for another fifteen years after that.
 
 **1979:** [Ricky Wants a Man of Her Own](http://estreetshuffle.com/index.php/2018/11/23/roll-of-the-dice-ricky-wants-a-man-of-her-own/)[Cindy](http://estreetshuffle.com/index.php/2018/08/03/roll-of-the-dice-cindy/)
 
-[https://www.youtube.com/embed/xuA_Q9iVyOY?feature=oembed](https://www.youtube.com/embed/xuA_Q9iVyOY?feature=oembed)
+[https://www.youtube.com/embed/xuA_Q9iVyOY](https://www.youtube.com/embed/xuA_Q9iVyOY)
 
-[https://www.youtube.com/embed/ZlI-L52KrnY?feature=oembed](https://www.youtube.com/embed/ZlI-L52KrnY?feature=oembed)
+[https://www.youtube.com/embed/ZlI-L52KrnY](https://www.youtube.com/embed/ZlI-L52KrnY)
 
 Bruce's five-night River stand at The Spectrum in Philly continues.
 
 **1981:**<br>
 
-[https://videopress.com/embed/8V1HMlo9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8V1HMlo9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/8V1HMlo9](https://videopress.com/embed/8V1HMlo9)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1981-07-16.jpg?resize=758%2C687&amp;ssl=1)
 
@@ -41,7 +41,7 @@ Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptun
 
 **1983:** [Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)[Wooly Bully](https://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)[Keep-a-Knockin](http://estreetshuffle.com/index.php/2018/11/09/matr-bruce-springsteen-midnight-thunder-and-southside-johnny-keep-knockin/)
 
-[https://videopress.com/embed/rSVwCU6r?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/rSVwCU6r?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/rSVwCU6r](https://videopress.com/embed/rSVwCU6r)
 
 On a night off in between Born in the U.S.A. shows in Chicago, Bruce is spotted playing pinball at a local bar.
 
@@ -53,7 +53,7 @@ Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary 
 
 **1994:** [I Played the Fool](http://estreetshuffle.com/index.php/2019/04/04/matr-i-played-the-fool/)[Funky Broadway,](https://estreetshuffle.com/index.php/2019/10/28/matr-bruce-springsteen-and-the-shots-funky-broadway/)[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)
 
-[https://www.youtube.com/embed/ytSVHBMmYqg?feature=oembed](https://www.youtube.com/embed/ytSVHBMmYqg?feature=oembed)
+[https://www.youtube.com/embed/ytSVHBMmYqg](https://www.youtube.com/embed/ytSVHBMmYqg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1994-07-16-274x300.jpg?resize=758%2C830)
 
@@ -73,7 +73,7 @@ The Devils & Dust Tour returns to the U.S., and the first show of the leg is at 
 
 **2005:** [Does This Bus Stop at 82nd Street](http://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)
 
-[https://videopress.com/embed/bYjdK3w0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bYjdK3w0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bYjdK3w0](https://videopress.com/embed/bYjdK3w0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/2005-07-16.jpg?resize=758%2C785&amp;ssl=1)
 
@@ -81,37 +81,37 @@ Bruce and the band bring the Working on a Dream Tour to Carhaix, France. The sho
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/D-vlEKWeNNs?feature=oembed](https://www.youtube.com/embed/D-vlEKWeNNs?feature=oembed)
+[https://www.youtube.com/embed/D-vlEKWeNNs](https://www.youtube.com/embed/D-vlEKWeNNs)
 
-[https://www.youtube.com/embed/jfJv2omrv88?feature=oembed](https://www.youtube.com/embed/jfJv2omrv88?feature=oembed)
+[https://www.youtube.com/embed/jfJv2omrv88](https://www.youtube.com/embed/jfJv2omrv88)
 
-[https://www.youtube.com/embed/9i__UA5mRJ0?feature=oembed](https://www.youtube.com/embed/9i__UA5mRJ0?feature=oembed)
+[https://www.youtube.com/embed/9i__UA5mRJ0](https://www.youtube.com/embed/9i__UA5mRJ0)
 
-[https://www.youtube.com/embed/b1LI7at_IPM?feature=oembed](https://www.youtube.com/embed/b1LI7at_IPM?feature=oembed)
+[https://www.youtube.com/embed/b1LI7at_IPM](https://www.youtube.com/embed/b1LI7at_IPM)
 
-[https://www.youtube.com/embed/RuIcvmViugc?feature=oembed](https://www.youtube.com/embed/RuIcvmViugc?feature=oembed)
+[https://www.youtube.com/embed/RuIcvmViugc](https://www.youtube.com/embed/RuIcvmViugc)
 
 Bruce opens his show in Limerick with the tour premiere of "" and closes it the same way. In between, fans enjoy the tour premiere of "" and a full album performance of . If you count a three-song pre-show, this show also features the live debut of "" at one of Bruce's own shows.
 
 **2013:** [This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)[Ain't Too Proud to Beg](https://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)*Born to Run*[Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/)
 
-[https://www.youtube.com/embed/t-dRgoK7cjQ?feature=oembed](https://www.youtube.com/embed/t-dRgoK7cjQ?feature=oembed)
+[https://www.youtube.com/embed/t-dRgoK7cjQ](https://www.youtube.com/embed/t-dRgoK7cjQ)
 
-[https://www.youtube.com/embed/_YUAu5gy2vg?feature=oembed](https://www.youtube.com/embed/_YUAu5gy2vg?feature=oembed)
+[https://www.youtube.com/embed/_YUAu5gy2vg](https://www.youtube.com/embed/_YUAu5gy2vg)
 
-[https://www.youtube.com/embed/qqK_Qg3xoM4?feature=oembed](https://www.youtube.com/embed/qqK_Qg3xoM4?feature=oembed)
+[https://www.youtube.com/embed/qqK_Qg3xoM4](https://www.youtube.com/embed/qqK_Qg3xoM4)
 
-[https://www.youtube.com/embed/QW8yABgfBAc?feature=oembed](https://www.youtube.com/embed/QW8yABgfBAc?feature=oembed)
+[https://www.youtube.com/embed/QW8yABgfBAc](https://www.youtube.com/embed/QW8yABgfBAc)
 
-[https://www.youtube.com/embed/wtwIatGvFP4?feature=oembed](https://www.youtube.com/embed/wtwIatGvFP4?feature=oembed)
+[https://www.youtube.com/embed/wtwIatGvFP4](https://www.youtube.com/embed/wtwIatGvFP4)
 
 A stunning opening number at a magical venue: The Roma Sinfonietta strings join the E Street Band for "New York City Serenade" to kick off Bruce's first show at the ancient Circus Maximus in Rome. "" and "" also make their tour premieres. For more highlights from this show, see my from this night.
 
 **2016:** [Summertime Blues](http://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)[The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[](http://estreetshuffle.com/index.php/2018/07/16/where-the-band-was-rome-july-16-2016/)*Where the Band Was*[report](http://estreetshuffle.com/index.php/2018/07/16/where-the-band-was-rome-july-16-2016/)
 
-[https://www.youtube.com/embed/R-1v8w69IWo?feature=oembed](https://www.youtube.com/embed/R-1v8w69IWo?feature=oembed)
+[https://www.youtube.com/embed/R-1v8w69IWo](https://www.youtube.com/embed/R-1v8w69IWo)
 
-[https://www.youtube.com/embed/_CpGADrcmNU?feature=oembed](https://www.youtube.com/embed/_CpGADrcmNU?feature=oembed)
+[https://www.youtube.com/embed/_CpGADrcmNU](https://www.youtube.com/embed/_CpGADrcmNU)
 
 [https://www.youtube.com/embed/uh_QQl1Xm_o?list=PLnbVaK2f4rahacSiMN0m-l7-NLPDM4ah2](https://www.youtube.com/embed/uh_QQl1Xm_o?list=PLnbVaK2f4rahacSiMN0m-l7-NLPDM4ah2)
 

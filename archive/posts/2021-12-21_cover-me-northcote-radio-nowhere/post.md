@@ -7,7 +7,7 @@
 
 But Canadian singer-songwriter Northcote (a.k.a. Matthew Goud) gave "Radio Nowhere" some attention back in 2016 with his wonderful B-side rendition.
 
-[https://www.youtube.com/embed/H6gbDv7sgJY?feature=oembed](https://www.youtube.com/embed/H6gbDv7sgJY?feature=oembed)
+[https://www.youtube.com/embed/H6gbDv7sgJY](https://www.youtube.com/embed/H6gbDv7sgJY)
 
 Goud's voice is often compared with Bruce's, and "Radio Nowhere" fits him like a glove. His acoustic arrangement works perfectly, his lone guitar highlighting the isolation that resides at the heart of Bruce's song but that is subsumed by the original's uptempo rock arrangement.
 

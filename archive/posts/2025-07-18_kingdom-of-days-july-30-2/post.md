@@ -9,7 +9,7 @@ Bruce wraps up a three-night stand at the Carter Barron Amphitheater in Washingt
 
 **1975:** [Up on the Roof](http://estreetshuffle.com/index.php/2018/12/15/cover-me-up-on-the-roof/)
 
-[https://www.youtube.com/embed/eYu78f4lNvs?feature=oembed](https://www.youtube.com/embed/eYu78f4lNvs?feature=oembed)
+[https://www.youtube.com/embed/eYu78f4lNvs](https://www.youtube.com/embed/eYu78f4lNvs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1975-0730-300x248.jpg?resize=758%2C627)
 
@@ -17,7 +17,7 @@ Southside Johnny guest-stars on "" when Bruce and the E Street Band bring the Ri
 
 **1981:** [I Don't Want to Go Home](http://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)
 
-[https://videopress.com/embed/RwhE4R38?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RwhE4R38?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/RwhE4R38](https://videopress.com/embed/RwhE4R38)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1981-07-30-300x254.png?resize=758%2C641)
 
@@ -29,9 +29,9 @@ At the first of two nights in Detroit on the Born in the U.S.A. Tour, Bruce tour
 
 **1984:** [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)*Funky Winkerbean*
 
-[https://videopress.com/embed/1Tbv8N9O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1Tbv8N9O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1Tbv8N9O](https://videopress.com/embed/1Tbv8N9O)
 
-[https://www.youtube.com/embed/dLdutnQxZUI?feature=oembed](https://www.youtube.com/embed/dLdutnQxZUI?feature=oembed)
+[https://www.youtube.com/embed/dLdutnQxZUI](https://www.youtube.com/embed/dLdutnQxZUI)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1984-07-30a.jpg?resize=758%2C412&amp;ssl=1)
 
@@ -45,49 +45,49 @@ Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey,
 
 **1987:** [Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)[My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)[One Love](http://estreetshuffle.com/index.php/2019/11/28/matr-bruce-springsteen-and-jah-love-one-love-people-get-ready/)[People Get Ready.](http://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)
 
-[https://videopress.com/embed/r1cTI473?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/r1cTI473?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/r1cTI473](https://videopress.com/embed/r1cTI473)
 
-[https://www.youtube.com/embed/xVV5FTnI4FM?feature=oembed](https://www.youtube.com/embed/xVV5FTnI4FM?feature=oembed)
+[https://www.youtube.com/embed/xVV5FTnI4FM](https://www.youtube.com/embed/xVV5FTnI4FM)
 
 The Tunnel of Love Tour nears its end with this final German show in Bremen, where "" makes its tour debut.
 
 **1988:** [Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
-[https://videopress.com/embed/mpsQeIHo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mpsQeIHo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/mpsQeIHo](https://videopress.com/embed/mpsQeIHo)
 
 At Night Five of eleven at World Tour 1992's opening stand in the Meadowlands, Bruce performs "" for the first time, and "" comes out as well, accompanied by only Bruce and Roy.
 
 **1992:** [All the Way Home](http://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
-[https://www.youtube.com/embed/_FhpvZT3dks?feature=oembed](https://www.youtube.com/embed/_FhpvZT3dks?feature=oembed)
+[https://www.youtube.com/embed/_FhpvZT3dks](https://www.youtube.com/embed/_FhpvZT3dks)
 
 Finally! After 18 years, Bruce releases a new E Street Band album. is an instant success, the darling of music reviewers and critics, and the catalyst for a new era that lasts to this day, cementing the return of the E Street Band. To celebrate the occasion, Bruce and the band get up early to appear on NBC's for a mini-concert. Katie Couric interviews virtually the entire band (poor Garry!) before the show. Watch that fun interview below, followed by the songs performed that morning.
 
 **2002:** *The Rising**Today Show*
 
-[https://www.youtube.com/embed/ar-qvX1F0t4?feature=oembed](https://www.youtube.com/embed/ar-qvX1F0t4?feature=oembed)
+[https://www.youtube.com/embed/ar-qvX1F0t4](https://www.youtube.com/embed/ar-qvX1F0t4)
 
-[https://www.youtube.com/embed/-Nv6q-7zj-c?feature=oembed](https://www.youtube.com/embed/-Nv6q-7zj-c?feature=oembed)
+[https://www.youtube.com/embed/-Nv6q-7zj-c](https://www.youtube.com/embed/-Nv6q-7zj-c)
 
-[https://www.youtube.com/embed/OiMBq3xASts?feature=oembed](https://www.youtube.com/embed/OiMBq3xASts?feature=oembed)
+[https://www.youtube.com/embed/OiMBq3xASts](https://www.youtube.com/embed/OiMBq3xASts)
 
-[https://www.youtube.com/embed/CBFOdcaPAI0?feature=oembed](https://www.youtube.com/embed/CBFOdcaPAI0?feature=oembed)
+[https://www.youtube.com/embed/CBFOdcaPAI0](https://www.youtube.com/embed/CBFOdcaPAI0)
 
 That night, Bruce and the band play a public warm-up show, where "" debuts and "" returns after a decade of absence. "Into the Fire" features a stunning introduction that features Clarence on bagpipes, but it will be gone when the tour begins in proper.
 
 [Paradise](http://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/)[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)
 
-[https://www.youtube.com/embed/YdsNXmNw1PI?feature=oembed](https://www.youtube.com/embed/YdsNXmNw1PI?feature=oembed)
+[https://www.youtube.com/embed/YdsNXmNw1PI](https://www.youtube.com/embed/YdsNXmNw1PI)
 
-[https://www.youtube.com/embed/5Oh6eapJuPI?feature=oembed](https://www.youtube.com/embed/5Oh6eapJuPI?feature=oembed)
+[https://www.youtube.com/embed/5Oh6eapJuPI](https://www.youtube.com/embed/5Oh6eapJuPI)
 
-[https://videopress.com/embed/u6r6AnpC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u6r6AnpC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/u6r6AnpC](https://videopress.com/embed/u6r6AnpC)
 
 Finally, ABC's airs Bruce's performance of "" recorded a few days earlier.
 
 *Nightline*[Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/)
 
-[https://www.youtube.com/embed/-pgzJ7Iyg6Q?feature=oembed](https://www.youtube.com/embed/-pgzJ7Iyg6Q?feature=oembed)
+[https://www.youtube.com/embed/-pgzJ7Iyg6Q](https://www.youtube.com/embed/-pgzJ7Iyg6Q)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30a-260x300.png?resize=758%2C874)
 
@@ -105,13 +105,13 @@ A beautiful set list in Benidorm, Spain, on the Working on a Dream Tour, as "" "
 
 **2009:** [Janey, Don't You Lose Heart,](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)[Girls in Their Summer Clothes](http://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)
 
-[https://www.youtube.com/embed/mZw8n91G2nY?feature=oembed](https://www.youtube.com/embed/mZw8n91G2nY?feature=oembed)
+[https://www.youtube.com/embed/mZw8n91G2nY](https://www.youtube.com/embed/mZw8n91G2nY)
 
-[https://www.youtube.com/embed/Ye-LtocznFQ?feature=oembed](https://www.youtube.com/embed/Ye-LtocznFQ?feature=oembed)
+[https://www.youtube.com/embed/Ye-LtocznFQ](https://www.youtube.com/embed/Ye-LtocznFQ)
 
-[https://www.youtube.com/embed/TsAkWxv8AdA?feature=oembed](https://www.youtube.com/embed/TsAkWxv8AdA?feature=oembed)
+[https://www.youtube.com/embed/TsAkWxv8AdA](https://www.youtube.com/embed/TsAkWxv8AdA)
 
-[https://www.youtube.com/embed/G5AgJr1q0b4?feature=oembed](https://www.youtube.com/embed/G5AgJr1q0b4?feature=oembed)
+[https://www.youtube.com/embed/G5AgJr1q0b4](https://www.youtube.com/embed/G5AgJr1q0b4)
 
 As the Wrecking Ball Tour prepares to wrap up its European leg and return to America, publishes an on Bruce and the E Street Band.
 

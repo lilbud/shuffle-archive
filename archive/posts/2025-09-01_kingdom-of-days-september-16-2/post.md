@@ -5,7 +5,7 @@ The Castiles play two cover sets at the grand opening of The Left Foot, a short-
 
 **1967:** [You Can't Judge a Book by the Cover](http://estreetshuffle.com/index.php/2018/12/02/cover-me-you-cant-judge-a-book-by-the-cover/)*Chapter and Verse*[Purple Haze](http://estreetshuffle.com/index.php/2019/02/19/cover-me-purple-haze/)[Jeff's Boogie](http://estreetshuffle.com/index.php/2020/04/21/cover-me-jeffs-boogie/)
 
-[https://www.youtube.com/embed/BDjQdv0OS0Q?feature=oembed](https://www.youtube.com/embed/BDjQdv0OS0Q?feature=oembed)
+[https://www.youtube.com/embed/BDjQdv0OS0Q](https://www.youtube.com/embed/BDjQdv0OS0Q)
 
 [https://www.youtube.com/embed/gKLZ9lMqNTk?start=650&amp;feature=oembed](https://www.youtube.com/embed/gKLZ9lMqNTk?start=650&amp;feature=oembed)
 
@@ -23,23 +23,23 @@ The Born to Run Tour's Texas swing concludes with a show at the Dallas Conventio
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1975-0916-300x202.jpg?resize=758%2C510)
 
-[https://videopress.com/embed/dMx2UT8a?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dMx2UT8a?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/dMx2UT8a](https://videopress.com/embed/dMx2UT8a)
 
 Bruce completes work on "" at The Record Plant in New York City.
 
 **1977:** [Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)
 
-[https://www.youtube.com/embed/UzjkWdRqWFo?feature=oembed](https://www.youtube.com/embed/UzjkWdRqWFo?feature=oembed)
+[https://www.youtube.com/embed/UzjkWdRqWFo](https://www.youtube.com/embed/UzjkWdRqWFo)
 
 Bruce and the E Street Band continue their three-night Darkness Tour stand at the Palladium in New York City. This show features the first full-band "," a work-in-progress "" and the tour debut of "" — a pretty great combination for those lucky enough to be there. After the show, the band sits down for an interview with local WNEW DJ Vin Scelsa, which will be broadcast three days later.
 
 **1978:** [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)[Point Blank,](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
-[https://videopress.com/embed/BOOL6NGx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BOOL6NGx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/BOOL6NGx](https://videopress.com/embed/BOOL6NGx)
 
-[https://videopress.com/embed/LICaQCZT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/LICaQCZT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/LICaQCZT](https://videopress.com/embed/LICaQCZT)
 
-[https://www.youtube.com/embed/oBRF3I7HSIw?feature=oembed](https://www.youtube.com/embed/oBRF3I7HSIw?feature=oembed)
+[https://www.youtube.com/embed/oBRF3I7HSIw](https://www.youtube.com/embed/oBRF3I7HSIw)
 
 Bruce and the E Street Band hold a recording session for at The Hit Factory in New York City.
 
@@ -57,7 +57,7 @@ The Ghost of Tom Joad Tour resumes after a four-month break, kicking off the fal
 
 **1996:** [Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)
 
-[https://www.youtube.com/embed/RCBrzGqEGQY?feature=oembed](https://www.youtube.com/embed/RCBrzGqEGQY?feature=oembed)
+[https://www.youtube.com/embed/RCBrzGqEGQY](https://www.youtube.com/embed/RCBrzGqEGQY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1996-09-16a.jpg?resize=758%2C1329&amp;ssl=1)
 
@@ -77,9 +77,9 @@ Bruce and the E Street Band play their first of two Hartford stadium shows at Re
 
 **2003:**[The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)[Let's Be Friends (Skin to Skin)](http://estreetshuffle.com/index.php/2018/03/02/roll-of-the-dice-lets-be-friends-skin-to-skin/)
 
-[https://www.youtube.com/embed/5CGaNPu29ds?feature=oembed](https://www.youtube.com/embed/5CGaNPu29ds?feature=oembed)
+[https://www.youtube.com/embed/5CGaNPu29ds](https://www.youtube.com/embed/5CGaNPu29ds)
 
-[https://www.youtube.com/embed/wawtqYSdCPM?feature=oembed](https://www.youtube.com/embed/wawtqYSdCPM?feature=oembed)
+[https://www.youtube.com/embed/wawtqYSdCPM](https://www.youtube.com/embed/wawtqYSdCPM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2003-09-16-300x270.jpg?resize=758%2C682)
 
@@ -91,9 +91,9 @@ In Greenville, South Carolina, Bruce and the E Street Band tour premiere "" and 
 
 **2009:** [(I Can't Get No) Satisfaction](https://estreetshuffle.com/index.php/2022/02/02/matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/)[Double Shot (of My Baby's Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)
 
-[https://www.youtube.com/embed/IiV0IRpXhBA?feature=oembed](https://www.youtube.com/embed/IiV0IRpXhBA?feature=oembed)
+[https://www.youtube.com/embed/IiV0IRpXhBA](https://www.youtube.com/embed/IiV0IRpXhBA)
 
-[https://www.youtube.com/embed/hoVGLpdXYQk?feature=oembed](https://www.youtube.com/embed/hoVGLpdXYQk?feature=oembed)
+[https://www.youtube.com/embed/hoVGLpdXYQk](https://www.youtube.com/embed/hoVGLpdXYQk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-09-16-42x300.jpg?resize=758%2C5414)
 
@@ -101,7 +101,7 @@ While Bruce was in Buenos Aires for a show a few days earlier, he learned a Span
 
 **2013:** [Sólo le Pido a Dios](https://estreetshuffle.com/index.php/2020/11/03/cover-me/)
 
-[https://www.youtube.com/embed/KqMszVPa6e4?feature=oembed](https://www.youtube.com/embed/KqMszVPa6e4?feature=oembed)
+[https://www.youtube.com/embed/KqMszVPa6e4](https://www.youtube.com/embed/KqMszVPa6e4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2013-09-16.jpg?resize=507%2C2113&amp;ssl=1)
 

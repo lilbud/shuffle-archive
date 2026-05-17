@@ -13,32 +13,32 @@ Too bad, because the show was not without its moments: from an opening cover of 
 
 [Clampdown](https://estreetshuffle.com/index.php/2021/09/10/cover-me-clampdown/)
 
-[https://www.youtube.com/embed/wSz_-QpfbBY?feature=oembed](https://www.youtube.com/embed/wSz_-QpfbBY?feature=oembed)
+[https://www.youtube.com/embed/wSz_-QpfbBY](https://www.youtube.com/embed/wSz_-QpfbBY)
 
 to a couple of classic River outtakes ("" and "")…
 
 [Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)
 
-[https://www.youtube.com/embed/ZWwZoz9pRWE?feature=oembed](https://www.youtube.com/embed/ZWwZoz9pRWE?feature=oembed)
+[https://www.youtube.com/embed/ZWwZoz9pRWE](https://www.youtube.com/embed/ZWwZoz9pRWE)
 
-[https://www.youtube.com/embed/ViQqrhhyqLo?feature=oembed](https://www.youtube.com/embed/ViQqrhhyqLo?feature=oembed)
+[https://www.youtube.com/embed/ViQqrhhyqLo](https://www.youtube.com/embed/ViQqrhhyqLo)
 
 …a great rendition of "…"
 
 [Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)
 
-[https://www.youtube.com/embed/BrEJmWww6yw?feature=oembed](https://www.youtube.com/embed/BrEJmWww6yw?feature=oembed)
+[https://www.youtube.com/embed/BrEJmWww6yw](https://www.youtube.com/embed/BrEJmWww6yw)
 
 …an delicate encore opener of "…"
 
 [Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)
 
-[https://www.youtube.com/embed/Pg_HcKbWbd4?feature=oembed](https://www.youtube.com/embed/Pg_HcKbWbd4?feature=oembed)
+[https://www.youtube.com/embed/Pg_HcKbWbd4](https://www.youtube.com/embed/Pg_HcKbWbd4)
 
 …and an absolutely stunning acoustic piano performance of "." Sour crowd taste aside (who carries on a conversation during a moment like this? Many people around me, that's who), that particular "For You" performance will rank among the top song performances I've ever seen for a long, long time to come.
 
 [For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)
 
-[https://www.youtube.com/embed/xZuMWcKdRT0?feature=oembed](https://www.youtube.com/embed/xZuMWcKdRT0?feature=oembed)
+[https://www.youtube.com/embed/xZuMWcKdRT0](https://www.youtube.com/embed/xZuMWcKdRT0)
 
 Pennsylvania is still one of my favorite states to see a Springsteen show… but I'll stick with Philly and Pittsburgh and give Hershey a pass from now on.

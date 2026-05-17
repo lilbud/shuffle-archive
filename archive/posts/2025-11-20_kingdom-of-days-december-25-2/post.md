@@ -7,10 +7,10 @@ Adele Springsteen delights her fifteen -year-old son Bruce on Christmas morning,
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1stguitar-202x300.jpg?resize=758%2C1125)
 
-[https://www.youtube.com/embed/KgkOPd5nHJk?feature=oembed](https://www.youtube.com/embed/KgkOPd5nHJk?feature=oembed)
+[https://www.youtube.com/embed/KgkOPd5nHJk](https://www.youtube.com/embed/KgkOPd5nHJk)
 
 MTV airs a segment on Bruce during their year in review recap.
 
 **1986:**<br>
 
-[https://www.youtube.com/embed/6utss3VmnNg?feature=oembed](https://www.youtube.com/embed/6utss3VmnNg?feature=oembed)
+[https://www.youtube.com/embed/6utss3VmnNg](https://www.youtube.com/embed/6utss3VmnNg)

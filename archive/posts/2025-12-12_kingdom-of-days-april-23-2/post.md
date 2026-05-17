@@ -21,7 +21,7 @@ Bruce works on "Richfield Whistle" at his home studio in Los Angeles.
 
 **1983:**<br>
 
-[https://www.youtube.com/embed/Gn1OcjnKDsw?feature=oembed](https://www.youtube.com/embed/Gn1OcjnKDsw?feature=oembed)
+[https://www.youtube.com/embed/Gn1OcjnKDsw](https://www.youtube.com/embed/Gn1OcjnKDsw)
 
 Bruce concludes his first Japanese tour with a second show in Osaka.
 
@@ -33,17 +33,17 @@ At Night Two in Los Angeles on the Tunnel of Love Express Tour, Bruce debuts "ve
 
 **1988:** [Ha](http://estreetshuffle.com/index.php/2019/12/20/cover-me-have-love-will-travel/)
 
-[https://www.youtube.com/embed/Cnz_eKxTOwI?feature=oembed](https://www.youtube.com/embed/Cnz_eKxTOwI?feature=oembed)
+[https://www.youtube.com/embed/Cnz_eKxTOwI](https://www.youtube.com/embed/Cnz_eKxTOwI)
 
-[https://www.youtube.com/embed/PQOaUQTM55E?feature=oembed](https://www.youtube.com/embed/PQOaUQTM55E?feature=oembed)
+[https://www.youtube.com/embed/PQOaUQTM55E](https://www.youtube.com/embed/PQOaUQTM55E)
 
-[https://www.youtube.com/embed/KKtjKvGs6ZY?feature=oembed](https://www.youtube.com/embed/KKtjKvGs6ZY?feature=oembed)
+[https://www.youtube.com/embed/KKtjKvGs6ZY](https://www.youtube.com/embed/KKtjKvGs6ZY)
 
-[https://www.youtube.com/embed/PS29t4U8rOw?feature=oembed](https://www.youtube.com/embed/PS29t4U8rOw?feature=oembed)
+[https://www.youtube.com/embed/PS29t4U8rOw](https://www.youtube.com/embed/PS29t4U8rOw)
 
-[https://www.youtube.com/embed/8Bmw6lWxz-A?feature=oembed](https://www.youtube.com/embed/8Bmw6lWxz-A?feature=oembed)
+[https://www.youtube.com/embed/8Bmw6lWxz-A](https://www.youtube.com/embed/8Bmw6lWxz-A)
 
-[https://www.youtube.com/embed/UQVhs7LL2A4?feature=oembed](https://www.youtube.com/embed/UQVhs7LL2A4?feature=oembed)
+[https://www.youtube.com/embed/UQVhs7LL2A4](https://www.youtube.com/embed/UQVhs7LL2A4)
 
 Also today, host Casey Kasem introduces Bruce's current chart-climbing single "One Step Up" with a story about how music helped Bruce survive high school.
 
@@ -57,19 +57,19 @@ Bruce's World Tour 1993 arrives in Belgium for the first of two nights at Flande
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/Ja7PoZlgvWo?feature=oembed](https://www.youtube.com/embed/Ja7PoZlgvWo?feature=oembed)
+[https://www.youtube.com/embed/Ja7PoZlgvWo](https://www.youtube.com/embed/Ja7PoZlgvWo)
 
 The Reunion Tour makes a stop at Donau Arena in Regensburg, Germany.
 
 **1999:**<br>
 
-[https://videopress.com/embed/AnphOexP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AnphOexP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/AnphOexP](https://videopress.com/embed/AnphOexP)
 
 Bruce's episode of premieres on VH1.
 
 **2005:** *VH1 Storytellers*
 
-[https://www.youtube.com/embed/oxAas5MEbmU?feature=oembed](https://www.youtube.com/embed/oxAas5MEbmU?feature=oembed)
+[https://www.youtube.com/embed/oxAas5MEbmU](https://www.youtube.com/embed/oxAas5MEbmU)
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5paM5xf3_yZM1agDxaMC_2Xu](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5paM5xf3_yZM1agDxaMC_2Xu)
 
@@ -81,11 +81,11 @@ Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with 
 
 **2008:** *Magic Tour Highlights*
 
-[https://www.youtube.com/embed/j9a_xcfrxqk?feature=oembed](https://www.youtube.com/embed/j9a_xcfrxqk?feature=oembed)
+[https://www.youtube.com/embed/j9a_xcfrxqk](https://www.youtube.com/embed/j9a_xcfrxqk)
 
-[https://www.youtube.com/embed/HZx-QYNBTug?feature=oembed](https://www.youtube.com/embed/HZx-QYNBTug?feature=oembed)
+[https://www.youtube.com/embed/HZx-QYNBTug](https://www.youtube.com/embed/HZx-QYNBTug)
 
-[https://www.youtube.com/embed/LEjTY92QbpA?feature=oembed](https://www.youtube.com/embed/LEjTY92QbpA?feature=oembed)
+[https://www.youtube.com/embed/LEjTY92QbpA](https://www.youtube.com/embed/LEjTY92QbpA)
 
 [https://videopress.com/embed/Ifqqc6cS?hd=0&amp;cover=1](https://videopress.com/embed/Ifqqc6cS?hd=0&amp;cover=1)
 
@@ -97,19 +97,19 @@ As the U.S. leg of the River Tour (2016 edition) comes to a close, Bruce opens t
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/sAYhtbp5Br8?feature=oembed](https://www.youtube.com/embed/sAYhtbp5Br8?feature=oembed)
+[https://www.youtube.com/embed/sAYhtbp5Br8](https://www.youtube.com/embed/sAYhtbp5Br8)
 
-[https://www.youtube.com/embed/s375rKW4PKY?feature=oembed](https://www.youtube.com/embed/s375rKW4PKY?feature=oembed)
+[https://www.youtube.com/embed/s375rKW4PKY](https://www.youtube.com/embed/s375rKW4PKY)
 
-[https://www.youtube.com/embed/Cs8gSSxy_dk?feature=oembed](https://www.youtube.com/embed/Cs8gSSxy_dk?feature=oembed)
+[https://www.youtube.com/embed/Cs8gSSxy_dk](https://www.youtube.com/embed/Cs8gSSxy_dk)
 
-[https://www.youtube.com/embed/eyPtFqV-f3w?feature=oembed](https://www.youtube.com/embed/eyPtFqV-f3w?feature=oembed)
+[https://www.youtube.com/embed/eyPtFqV-f3w](https://www.youtube.com/embed/eyPtFqV-f3w)
 
 At the premiere for the new Patti Smith concert documentary Bruce makes a surprise appearance, joining Patti for "Because the Night" and both Patti and Michael Stipe for "People Have the Power."
 
 **2018:** *Horses: Patti Smith and Her Band*,
 
-[https://www.youtube.com/embed/5iOLJTm6YNA?feature=oembed](https://www.youtube.com/embed/5iOLJTm6YNA?feature=oembed)
+[https://www.youtube.com/embed/5iOLJTm6YNA](https://www.youtube.com/embed/5iOLJTm6YNA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2018-04-23.jpg?resize=758%2C1470&amp;ssl=1)
 

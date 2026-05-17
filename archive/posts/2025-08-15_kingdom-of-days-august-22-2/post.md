@@ -19,7 +19,7 @@ The original Miami Horns (also known as the Asbury Jukes horn section) make thei
 
 **1976:**<br>
 
-[https://videopress.com/embed/Byyk5H71?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Byyk5H71?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Byyk5H71](https://videopress.com/embed/Byyk5H71)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1976-08-22.jpg?resize=758%2C1697&amp;ssl=1)
 
@@ -33,7 +33,7 @@ Bruce joins La Bamba and the Hubcaps on stage at The Stone Pony in Asbury Park f
 
 **1984:** [I'm Bad, I'm Nationwide](http://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/)
 
-[https://www.youtube.com/embed/OvXIhNv4tKE?feature=oembed](https://www.youtube.com/embed/OvXIhNv4tKE?feature=oembed)
+[https://www.youtube.com/embed/OvXIhNv4tKE](https://www.youtube.com/embed/OvXIhNv4tKE)
 
 [https://videopress.com/embed/UrcFPCOo?hd=0&amp;cover=1](https://videopress.com/embed/UrcFPCOo?hd=0&amp;cover=1)
 
@@ -41,19 +41,19 @@ At Night Four at Giants Stadium on the Born in the U.S.A. Tour, Little Steven ma
 
 **1985:** [here](https://www.nugs.net/live-download-of-bruce-springsteen-giants-stadium-east-rutherford-nj-08-22-1985-mp3-flac-or-online-music-streaming/26772.html)
 
-[https://www.youtube.com/embed/s-K4f0YDhsg?feature=oembed](https://www.youtube.com/embed/s-K4f0YDhsg?feature=oembed)
+[https://www.youtube.com/embed/s-K4f0YDhsg](https://www.youtube.com/embed/s-K4f0YDhsg)
 
-[https://www.youtube.com/embed/xozx1HvRfSw?feature=oembed](https://www.youtube.com/embed/xozx1HvRfSw?feature=oembed)
+[https://www.youtube.com/embed/xozx1HvRfSw](https://www.youtube.com/embed/xozx1HvRfSw)
 
-[https://www.youtube.com/embed/0IsEuB8Kyl0?feature=oembed](https://www.youtube.com/embed/0IsEuB8Kyl0?feature=oembed)
+[https://www.youtube.com/embed/0IsEuB8Kyl0](https://www.youtube.com/embed/0IsEuB8Kyl0)
 
-[https://www.youtube.com/embed/i3V0udViB9M?feature=oembed](https://www.youtube.com/embed/i3V0udViB9M?feature=oembed)
+[https://www.youtube.com/embed/i3V0udViB9M](https://www.youtube.com/embed/i3V0udViB9M)
 
-[https://www.youtube.com/embed/yA8MbhJiQ6s?feature=oembed](https://www.youtube.com/embed/yA8MbhJiQ6s?feature=oembed)
+[https://www.youtube.com/embed/yA8MbhJiQ6s](https://www.youtube.com/embed/yA8MbhJiQ6s)
 
-[https://www.youtube.com/embed/xIcfmcHRIwo?feature=oembed](https://www.youtube.com/embed/xIcfmcHRIwo?feature=oembed)
+[https://www.youtube.com/embed/xIcfmcHRIwo](https://www.youtube.com/embed/xIcfmcHRIwo)
 
-[https://www.youtube.com/embed/5heubw6GS9Y?feature=oembed](https://www.youtube.com/embed/5heubw6GS9Y?feature=oembed)
+[https://www.youtube.com/embed/5heubw6GS9Y](https://www.youtube.com/embed/5heubw6GS9Y)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-08-22-272x300.png?resize=758%2C836)
 
@@ -61,7 +61,7 @@ Bruce makes a surprise appearance at The Stone Pony for a second night in a rowâ
 
 **1987:** [Up on Cripple Creek](http://estreetshuffle.com/index.php/2018/01/29/meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/)[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)
 
-[https://videopress.com/embed/gxirqWhO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gxirqWhO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/gxirqWhO](https://videopress.com/embed/gxirqWhO)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/Press_of_Atlantic_City_1987_08_28_64.jpg?w=758&amp;ssl=1)
 
@@ -69,13 +69,13 @@ Bruce and his new touring band bring World Tour 1992 to the Richfield Coliseum f
 
 **1992:**<br>
 
-[https://videopress.com/embed/bFZgm7vd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bFZgm7vd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bFZgm7vd](https://videopress.com/embed/bFZgm7vd)
 
 Bruce and the E Street Band play their second of five Reunion shows at Boston's Fleet Center.
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/bMDI9tdyfbc?feature=oembed](https://www.youtube.com/embed/bMDI9tdyfbc?feature=oembed)
+[https://www.youtube.com/embed/bMDI9tdyfbc](https://www.youtube.com/embed/bMDI9tdyfbc)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCEh2K-yqI1PAzBZnCXjDzJ](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCEh2K-yqI1PAzBZnCXjDzJ)
 
@@ -91,15 +91,15 @@ Bruce brings the Working on a Dream Tour to Mansfield, Massachusetts, for the fi
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/2SFTcZoypdw?feature=oembed](https://www.youtube.com/embed/2SFTcZoypdw?feature=oembed)
+[https://www.youtube.com/embed/2SFTcZoypdw](https://www.youtube.com/embed/2SFTcZoypdw)
 
-[https://www.youtube.com/embed/M-_BQjxbtGc?feature=oembed](https://www.youtube.com/embed/M-_BQjxbtGc?feature=oembed)
+[https://www.youtube.com/embed/M-_BQjxbtGc](https://www.youtube.com/embed/M-_BQjxbtGc)
 
-[https://www.youtube.com/embed/KbPlU7926Gk?feature=oembed](https://www.youtube.com/embed/KbPlU7926Gk?feature=oembed)
+[https://www.youtube.com/embed/KbPlU7926Gk](https://www.youtube.com/embed/KbPlU7926Gk)
 
-[https://www.youtube.com/embed/wVgcUfk7-Ak?feature=oembed](https://www.youtube.com/embed/wVgcUfk7-Ak?feature=oembed)
+[https://www.youtube.com/embed/wVgcUfk7-Ak](https://www.youtube.com/embed/wVgcUfk7-Ak)
 
-[https://www.youtube.com/embed/uZmlxapGWww?feature=oembed](https://www.youtube.com/embed/uZmlxapGWww?feature=oembed)
+[https://www.youtube.com/embed/uZmlxapGWww](https://www.youtube.com/embed/uZmlxapGWww)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2009-08-22-254x300.png?resize=758%2C895)
 

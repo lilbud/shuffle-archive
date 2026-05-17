@@ -23,7 +23,7 @@ Bruce and the band play their third show in three nights, this time at Broome Co
 
 **1977:**<br>
 
-[https://videopress.com/embed/R0xeoh7J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/R0xeoh7J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/R0xeoh7J](https://videopress.com/embed/R0xeoh7J)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1977-03-15-1-300x149.jpg?resize=758%2C377)
 
@@ -43,17 +43,17 @@ Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street 
 
 **1999:** [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[Let It Be](https://estreetshuffle.com/index.php/2020/11/23/matr-paul-mccartney-billy-joel-bruce-springsteen-and-more-let-it-be/)
 
-[https://www.youtube.com/embed/rnLjmojIp20?feature=oembed](https://www.youtube.com/embed/rnLjmojIp20?feature=oembed)
+[https://www.youtube.com/embed/rnLjmojIp20](https://www.youtube.com/embed/rnLjmojIp20)
 
-[https://www.youtube.com/embed/JEiBFELvQm4?feature=oembed](https://www.youtube.com/embed/JEiBFELvQm4?feature=oembed)
+[https://www.youtube.com/embed/JEiBFELvQm4](https://www.youtube.com/embed/JEiBFELvQm4)
 
-[https://www.youtube.com/embed/TZZvd-umMfE?feature=oembed](https://www.youtube.com/embed/TZZvd-umMfE?feature=oembed)
+[https://www.youtube.com/embed/TZZvd-umMfE](https://www.youtube.com/embed/TZZvd-umMfE)
 
-[https://www.youtube.com/embed/J0-aFuZj9qc?feature=oembed](https://www.youtube.com/embed/J0-aFuZj9qc?feature=oembed)
+[https://www.youtube.com/embed/J0-aFuZj9qc](https://www.youtube.com/embed/J0-aFuZj9qc)
 
-[https://www.youtube.com/embed/K4w0kyYmYVo?feature=oembed](https://www.youtube.com/embed/K4w0kyYmYVo?feature=oembed)
+[https://www.youtube.com/embed/K4w0kyYmYVo](https://www.youtube.com/embed/K4w0kyYmYVo)
 
-[https://www.youtube.com/embed/NXYNPO3zIj8?feature=oembed](https://www.youtube.com/embed/NXYNPO3zIj8?feature=oembed)
+[https://www.youtube.com/embed/NXYNPO3zIj8](https://www.youtube.com/embed/NXYNPO3zIj8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-15a.png?resize=758%2C1805&amp;ssl=1)
 
@@ -63,7 +63,7 @@ Bruce inducts Jackson Browne into the Rock and Roll Hall of Fame.
 
 **2004:**<br>
 
-[https://www.youtube.com/embed/8YFyC6pnz-k?feature=oembed](https://www.youtube.com/embed/8YFyC6pnz-k?feature=oembed)
+[https://www.youtube.com/embed/8YFyC6pnz-k](https://www.youtube.com/embed/8YFyC6pnz-k)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Ithaca_Journal_Tue__Mar_16__2004_.jpg?resize=758%2C894&amp;ssl=1)
 
@@ -75,21 +75,21 @@ Bruce attends the 25th Annual Rock and Roll Hall of Fame induction ceremony at t
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/VW05XedG4zk?feature=oembed](https://www.youtube.com/embed/VW05XedG4zk?feature=oembed)
+[https://www.youtube.com/embed/VW05XedG4zk](https://www.youtube.com/embed/VW05XedG4zk)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Toronto_Star_Fri__Mar_16__2012_-scaled.jpg?resize=758%2C1348&amp;ssl=1)
 
 After the speech, Bruce plays a warm-up show for the upcoming Wrecking Ball Tour, with guest-stars Jimmy Cliff, Eric Burdon, Joe Ely, Alejandro Escovedo, Tom Morello, Garland Jeffreys, Arcade Fire, and The Low Anthem. Whew!
 
-[https://www.youtube.com/embed/OThmS_hMtHk?feature=oembed](https://www.youtube.com/embed/OThmS_hMtHk?feature=oembed)
+[https://www.youtube.com/embed/OThmS_hMtHk](https://www.youtube.com/embed/OThmS_hMtHk)
 
-[https://www.youtube.com/embed/KDqmMmg4F4c?feature=oembed](https://www.youtube.com/embed/KDqmMmg4F4c?feature=oembed)
+[https://www.youtube.com/embed/KDqmMmg4F4c](https://www.youtube.com/embed/KDqmMmg4F4c)
 
-[https://www.youtube.com/embed/kk7SB6WF2tg?feature=oembed](https://www.youtube.com/embed/kk7SB6WF2tg?feature=oembed)
+[https://www.youtube.com/embed/kk7SB6WF2tg](https://www.youtube.com/embed/kk7SB6WF2tg)
 
-[https://www.youtube.com/embed/j5go6EKl6Ak?feature=oembed](https://www.youtube.com/embed/j5go6EKl6Ak?feature=oembed)
+[https://www.youtube.com/embed/j5go6EKl6Ak](https://www.youtube.com/embed/j5go6EKl6Ak)
 
-[https://www.youtube.com/embed/pYdwoJqkMbA?feature=oembed](https://www.youtube.com/embed/pYdwoJqkMbA?feature=oembed)
+[https://www.youtube.com/embed/pYdwoJqkMbA](https://www.youtube.com/embed/pYdwoJqkMbA)
 
 In today's episode of Legends of Springsteen, Bruce tours around the Lake Okeechobee area of Florida on his motorcycle, taking selfies and photos, hanging out at a local watering hole, and making a PSA for wearing a bike helmet. Ride along with Bruce via his travelogue .
 
@@ -107,7 +107,7 @@ Night One of an outstanding three-night stand along the River Tour (2016 Edition
 
 **2016:** [Where the Band Was](http://estreetshuffle.com/index.php/2018/03/15/where-the-band-was-los-angeles-march-15-2016/)
 
-[https://www.youtube.com/embed/vN0nwWB8sp4?feature=oembed](https://www.youtube.com/embed/vN0nwWB8sp4?feature=oembed)
+[https://www.youtube.com/embed/vN0nwWB8sp4](https://www.youtube.com/embed/vN0nwWB8sp4)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-15a-213x300.jpg?resize=758%2C1068)
 

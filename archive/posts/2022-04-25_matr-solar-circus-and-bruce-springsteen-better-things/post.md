@@ -25,13 +25,13 @@ We do have the band's live performance with Bruce that night, though–and even 
 
 And even if it wasn't: you'd know Bruce was on stage just from the taper/bouncer chatter unfortunately captured in the foreground. A hat tip to the persistent taper who managed to come away with a pretty great recording regardless!
 
-[https://videopress.com/embed/Ub94o55O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ub94o55O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Ub94o55O](https://videopress.com/embed/Ub94o55O)
 
 If you're looking for more definitive evidence of Bruce's on-stage contribution, check out this video clip from that performance. Only the last three-and-a-half minutes or so were captured, but there's a pretty great "" at the end of it (with Bruce's vocals) as a bonus.
 
 [Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)
 
-[https://www.youtube.com/embed/Cq5tE0a3m-M?feature=oembed](https://www.youtube.com/embed/Cq5tE0a3m-M?feature=oembed)
+[https://www.youtube.com/embed/Cq5tE0a3m-M](https://www.youtube.com/embed/Cq5tE0a3m-M)
 
 Bruce never played with Solar Circus again, but at least for that one August night, he joined local musicians and fans in paying tribute to an American music icon taken too soon.
 

@@ -7,8 +7,8 @@ But my favorite performance was during "Springsteen Week" in 2012 on the . Legen
 
 Check it out:
 
-[https://videopress.com/embed/3QbJHFVh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3QbJHFVh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/3QbJHFVh](https://videopress.com/embed/3QbJHFVh)
 
 Bonus: here's another performance–solo this time–from London in 2013:
 
-[https://www.youtube.com/embed/y_zftf3bVUM?feature=oembed](https://www.youtube.com/embed/y_zftf3bVUM?feature=oembed)
+[https://www.youtube.com/embed/y_zftf3bVUM](https://www.youtube.com/embed/y_zftf3bVUM)

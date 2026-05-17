@@ -13,7 +13,7 @@ So today, let's take a listen to Lisa performing Bruce's "" live on E Street Rad
 
 [Secret Garden](http://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)
 
-[https://www.youtube.com/embed/9ntnLKCaaLg?feature=oembed](https://www.youtube.com/embed/9ntnLKCaaLg?feature=oembed)
+[https://www.youtube.com/embed/9ntnLKCaaLg](https://www.youtube.com/embed/9ntnLKCaaLg)
 
 (By the way, there's another familiar talent on display in that performance, although you can't actually see him: that's Larry Eagle of the Sessions Band on percussion.)
 

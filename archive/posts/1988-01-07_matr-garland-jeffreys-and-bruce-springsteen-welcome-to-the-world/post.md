@@ -12,7 +12,7 @@ None of the album's singles charted in America, but "Hail Hail Rock ‘n' Roll" 
 
 Garland played it each night of the run (except for one show he missed), and during his performance December 6th, Bruce joined him at the mic to take a verse. Take a listen below.
 
-[https://videopress.com/embed/IZBPjDQ4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IZBPjDQ4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/IZBPjDQ4](https://videopress.com/embed/IZBPjDQ4)
 
 Bruce and Garland would go on to perform together fifteen times over the next fifteen years, but never again (to date, at least) would they play "Welcome to the World."
 

@@ -13,7 +13,7 @@ If you want a true trading-vocals duet between Bruce Springsteen and Patti Scial
 
 On five of those occasions, Bruce and Patti teamed up on a faithful arrangement of Marvin Gaye and Kim Weston's R&B classic, "It Takes Two."
 
-[https://www.youtube.com/embed/cB5sCP6s120?feature=oembed](https://www.youtube.com/embed/cB5sCP6s120?feature=oembed)
+[https://www.youtube.com/embed/cB5sCP6s120](https://www.youtube.com/embed/cB5sCP6s120)
 
 "It Takes Two" was a huge hit when it was first released, peaking at #4 on the Billboard Soul Singles chart and #14 on the Pop chart in early 1967.
 
@@ -21,7 +21,7 @@ It clearly made a lasting impression on Bruce–he featured it nightly on the Re
 
 [Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)
 
-[https://www.youtube.com/embed/HOLyHZiUkzk?feature=oembed](https://www.youtube.com/embed/HOLyHZiUkzk?feature=oembed)
+[https://www.youtube.com/embed/HOLyHZiUkzk](https://www.youtube.com/embed/HOLyHZiUkzk)
 
 But while Bruce has teased us with a snippet of "It Takes Two" with Steve more than 150 times over the years, he's only performed the entire song five times–all of them with Patti.
 
@@ -29,7 +29,7 @@ Unfortunately, four of those five times either weren't captured or don't circula
 
 On the evening of December 19, 2004, Bruce staged two holiday benefit shows at Harry's Roadhouse in Asbury Park, backed by Bobby Bandiera and his band. Patti joined for the late show, and together Bruce and Patti shared a rare spotlight as true partners in a loose (Bruce sounds like he's at least a couple of tequillas into the evening), joyful performance of "It Takes Two."
 
-[https://videopress.com/embed/c9grjILs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/c9grjILs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/c9grjILs](https://videopress.com/embed/c9grjILs)
 
 April 13, 2002 (Asbury Park, NJ)
 October 17, 2009 (Asbury Park, NJ)

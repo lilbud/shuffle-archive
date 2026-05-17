@@ -9,7 +9,7 @@ Steel Mill records three Springsteen original songs ("," "," and "") at Pacific 
 
 **1970:** [He's Guilty (The Judge Song)](https://estreetshuffle.com/index.php/2020/07/10/roll-of-the-dice-hes-guilty-the-judge-song/)[Goin' Back to Georgia](http://estreetshuffle.com/index.php/2019/03/07/roll-of-the-dice-goin-back-to-georgia/)[The Train Song](https://estreetshuffle.com/index.php/2021/10/06/roll-of-the-dice-the-train-song/)*Chapter and Verse*
 
-[https://www.youtube.com/embed/FyVMIHwt8oI?feature=oembed](https://www.youtube.com/embed/FyVMIHwt8oI?feature=oembed)
+[https://www.youtube.com/embed/FyVMIHwt8oI](https://www.youtube.com/embed/FyVMIHwt8oI)
 
 Bruce's gig at the Santa Clara County Fairgrounds in San Jose is cancelled.
 
@@ -21,7 +21,7 @@ Bruce and the E Street Band play the Milwaukee Auditorium, where an especially p
 
 **1977:** [Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
 
-[https://videopress.com/embed/KV1LTetk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KV1LTetk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/KV1LTetk](https://videopress.com/embed/KV1LTetk)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCnerwc6mpNeuvl5X7xEXd3](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCnerwc6mpNeuvl5X7xEXd3)
 
@@ -29,7 +29,7 @@ Bruce and the band play the Carolina Coliseum in Columbia, South Carolina.
 
 **1981:**<br>
 
-[https://videopress.com/embed/SL4ZQMbz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SL4ZQMbz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/SL4ZQMbz](https://videopress.com/embed/SL4ZQMbz)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1981-02-22-300x186.jpg?resize=758%2C470)
 
@@ -37,19 +37,19 @@ airs part one of a "private reel" segment on Bruce. Watch the entire segment bel
 
 **1985:***Friday Night Videos*
 
-[https://www.youtube.com/embed/OoNfKZHGmk0?feature=oembed](https://www.youtube.com/embed/OoNfKZHGmk0?feature=oembed)
+[https://www.youtube.com/embed/OoNfKZHGmk0](https://www.youtube.com/embed/OoNfKZHGmk0)
 
 Alone in his home studio, Bruce records "" and "." It will be more than a decade before these songs are released on .
 
 **1987:** [The Honeymooners](http://estreetshuffle.com/index.php/2018/04/04/roll-of-the-dice-the-honeymooners/)[The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)*Tracks*
 
-[https://www.youtube.com/embed/6WRbJD_Nsb8?feature=oembed](https://www.youtube.com/embed/6WRbJD_Nsb8?feature=oembed)
+[https://www.youtube.com/embed/6WRbJD_Nsb8](https://www.youtube.com/embed/6WRbJD_Nsb8)
 
 Bruce plays his second of two solo acoustic shows in Paris.
 
 **1996:**<br>
 
-[https://videopress.com/embed/CN6bfARH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CN6bfARH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/CN6bfARH](https://videopress.com/embed/CN6bfARH)
 
 (video version) is certified triple platinum by the Recording Industry Association of America.
 
@@ -61,13 +61,13 @@ Bruce and the E Street Band play the first of two shows in Hunter Valley, Austra
 
 **2014:** [Drinkin' Wine, Spo-Dee-O-Dee](https://estreetshuffle.com/index.php/2021/02/06/cover-me-drinkin-wine-spo-dee-o-dee/)[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)[Friday on My Mind](http://estreetshuffle.com/index.php/2019/06/07/cover-me-friday-on-my-mind/)
 
-[https://www.youtube.com/embed/UFghhh2ohI8?feature=oembed](https://www.youtube.com/embed/UFghhh2ohI8?feature=oembed)
+[https://www.youtube.com/embed/UFghhh2ohI8](https://www.youtube.com/embed/UFghhh2ohI8)
 
-[https://www.youtube.com/embed/_XLcQbaGx2o?feature=oembed](https://www.youtube.com/embed/_XLcQbaGx2o?feature=oembed)
+[https://www.youtube.com/embed/_XLcQbaGx2o](https://www.youtube.com/embed/_XLcQbaGx2o)
 
-[https://www.youtube.com/embed/YV3t_hTDNbw?feature=oembed](https://www.youtube.com/embed/YV3t_hTDNbw?feature=oembed)
+[https://www.youtube.com/embed/YV3t_hTDNbw](https://www.youtube.com/embed/YV3t_hTDNbw)
 
-[https://www.youtube.com/embed/UfkQTsiABMA?feature=oembed](https://www.youtube.com/embed/UfkQTsiABMA?feature=oembed)
+[https://www.youtube.com/embed/UfkQTsiABMA](https://www.youtube.com/embed/UfkQTsiABMA)
 
 Bruce and former President Barack Obama debut their new podcast: on Spotify. Two episodes are released today, "Outsiders: An Unlikely Friendship" and "American Skin: Race in the United States."
 

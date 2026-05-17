@@ -17,7 +17,7 @@ Bruce joins Southside Johnny and the Asbury Jukes at The Stone Pony for four son
 
 **1977:**<br>
 
-[https://videopress.com/embed/ztiTtNxb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ztiTtNxb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ztiTtNxb](https://videopress.com/embed/ztiTtNxb)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1977-0417.jpg?resize=600%2C407&amp;ssl=1)
 
@@ -25,11 +25,11 @@ Bruce's Tunnel of Love Express show at the St. Louis Arena is captured by a fan 
 
 **1988:**<br>
 
-[https://videopress.com/embed/L1ps9QQt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/L1ps9QQt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/L1ps9QQt](https://videopress.com/embed/L1ps9QQt)
 
-[https://videopress.com/embed/QauqQWqO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QauqQWqO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/QauqQWqO](https://videopress.com/embed/QauqQWqO)
 
-[https://videopress.com/embed/1nnfAY8D?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1nnfAY8D?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1nnfAY8D](https://videopress.com/embed/1nnfAY8D)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-17a.jpg?resize=758%2C488&amp;ssl=1)
 
@@ -39,13 +39,13 @@ Bruce plays a second solo acoustic show at Royal Albert Hall in London, where "T
 
 **1996:**<br>
 
-[https://videopress.com/embed/ueRkPB8b?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ueRkPB8b?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ueRkPB8b](https://videopress.com/embed/ueRkPB8b)
 
 The Reunion Tour arrives in Italy, starting with a single show in Bologna. The set list features a rare outing for "Brilliant Disguise" and an unusual opening arrangement for "She's the One."
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/q2pvUIVEWyg?feature=oembed](https://www.youtube.com/embed/q2pvUIVEWyg?feature=oembed)
+[https://www.youtube.com/embed/q2pvUIVEWyg](https://www.youtube.com/embed/q2pvUIVEWyg)
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1D8WN5_7CYB27KD-kHzweL0](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1D8WN5_7CYB27KD-kHzweL0)
 
@@ -53,7 +53,7 @@ Joe Ely guest-stars for "All Just to Get to You" at Bruce and the E Street Band'
 
 **2000:**<br>
 
-[https://www.youtube.com/embed/ndgNa1X41jQ?feature=oembed](https://www.youtube.com/embed/ndgNa1X41jQ?feature=oembed)
+[https://www.youtube.com/embed/ndgNa1X41jQ](https://www.youtube.com/embed/ndgNa1X41jQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-04-17.jpg?resize=758%2C800&amp;ssl=1)
 
@@ -67,21 +67,21 @@ Bruce brings the Wrecking Ball Tour to Quicken Loans Arena in Cleveland, where "
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/R0ix0kveYrc?feature=oembed](https://www.youtube.com/embed/R0ix0kveYrc?feature=oembed)
+[https://www.youtube.com/embed/R0ix0kveYrc](https://www.youtube.com/embed/R0ix0kveYrc)
 
-[https://www.youtube.com/embed/DAMqwgr-oOA?feature=oembed](https://www.youtube.com/embed/DAMqwgr-oOA?feature=oembed)
+[https://www.youtube.com/embed/DAMqwgr-oOA](https://www.youtube.com/embed/DAMqwgr-oOA)
 
-[https://www.youtube.com/embed/UOMdP1Bo2ow?feature=oembed](https://www.youtube.com/embed/UOMdP1Bo2ow?feature=oembed)
+[https://www.youtube.com/embed/UOMdP1Bo2ow](https://www.youtube.com/embed/UOMdP1Bo2ow)
 
 The High Hopes Tour stops at Nashville's Bridgestone Arena and brings with it tour premieres of "Burning Love" and "Point Blank," and "(I Can't Get No) Satisfaction."
 
 **2014:**<br>
 
-[https://www.youtube.com/embed/OQDFsN_saAY?feature=oembed](https://www.youtube.com/embed/OQDFsN_saAY?feature=oembed)
+[https://www.youtube.com/embed/OQDFsN_saAY](https://www.youtube.com/embed/OQDFsN_saAY)
 
-[https://www.youtube.com/embed/ysd3Nz7JZ90?feature=oembed](https://www.youtube.com/embed/ysd3Nz7JZ90?feature=oembed)
+[https://www.youtube.com/embed/ysd3Nz7JZ90](https://www.youtube.com/embed/ysd3Nz7JZ90)
 
-[https://www.youtube.com/embed/1TbsfN5h5UA?feature=oembed](https://www.youtube.com/embed/1TbsfN5h5UA?feature=oembed)
+[https://www.youtube.com/embed/1TbsfN5h5UA](https://www.youtube.com/embed/1TbsfN5h5UA)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2014-04-17.jpg?resize=663%2C917&amp;ssl=1)
 

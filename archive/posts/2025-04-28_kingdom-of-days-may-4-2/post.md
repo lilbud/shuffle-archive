@@ -33,7 +33,7 @@ Bruce and the E Street Band record "" at the Power Station in New York City.
 
 **1982:** [Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)
 
-[https://www.youtube.com/embed/oshU-C5zTWE?feature=oembed](https://www.youtube.com/embed/oshU-C5zTWE?feature=oembed)
+[https://www.youtube.com/embed/oshU-C5zTWE](https://www.youtube.com/embed/oshU-C5zTWE)
 
 As "" starts its decline on the charts, host Casey Kasem shares the story of the night Bruce broke into Graceland.
 
@@ -47,11 +47,11 @@ Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the
 
 **2008:** [I Thank You](https://estreetshuffle.com/index.php/2020/08/20/matr-bruce-springsteen-and-sam-moore-i-thank-you/)[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
-[https://www.youtube.com/embed/sK8Khz0YLlE?feature=oembed](https://www.youtube.com/embed/sK8Khz0YLlE?feature=oembed)
+[https://www.youtube.com/embed/sK8Khz0YLlE](https://www.youtube.com/embed/sK8Khz0YLlE)
 
-[https://www.youtube.com/embed/Wt7TKLqX_SE?feature=oembed](https://www.youtube.com/embed/Wt7TKLqX_SE?feature=oembed)
+[https://www.youtube.com/embed/Wt7TKLqX_SE](https://www.youtube.com/embed/Wt7TKLqX_SE)
 
-[https://www.youtube.com/embed/4hAAehP6UxM?feature=oembed](https://www.youtube.com/embed/4hAAehP6UxM?feature=oembed)
+[https://www.youtube.com/embed/4hAAehP6UxM](https://www.youtube.com/embed/4hAAehP6UxM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-05-04a-300x137.jpg?resize=758%2C346)
 
@@ -61,33 +61,33 @@ Bruce brings the Working on a Dream Tour to the Nassau Coliseum in Uniondale, Ne
 
 **2009:** [Expressway to Your Heart](http://estreetshuffle.com/index.php/2018/12/18/cover-me-expressway-to-your-heart/)[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[here](http://live.brucespringsteen.net/live-music/0,23958/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-5-4-2009-Nassau-Veterans-Memorial-Coliseum-Uniondale-NY.html)
 
-[https://videopress.com/embed/g6oM2O3x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/g6oM2O3x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/g6oM2O3x](https://videopress.com/embed/g6oM2O3x)
 
-[https://videopress.com/embed/PBcnDGH2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PBcnDGH2?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/PBcnDGH2](https://videopress.com/embed/PBcnDGH2)
 
-[https://www.youtube.com/embed/PJFF1Dd759s?feature=oembed](https://www.youtube.com/embed/PJFF1Dd759s?feature=oembed)
+[https://www.youtube.com/embed/PJFF1Dd759s](https://www.youtube.com/embed/PJFF1Dd759s)
 
-[https://www.youtube.com/embed/E3prYxdUfUk?feature=oembed](https://www.youtube.com/embed/E3prYxdUfUk?feature=oembed)
+[https://www.youtube.com/embed/E3prYxdUfUk](https://www.youtube.com/embed/E3prYxdUfUk)
 
-[https://www.youtube.com/embed/oQVwoOUQhlI?feature=oembed](https://www.youtube.com/embed/oQVwoOUQhlI?feature=oembed)
+[https://www.youtube.com/embed/oQVwoOUQhlI](https://www.youtube.com/embed/oQVwoOUQhlI)
 
-[https://www.youtube.com/embed/fxykBcPTu7s?feature=oembed](https://www.youtube.com/embed/fxykBcPTu7s?feature=oembed)
+[https://www.youtube.com/embed/fxykBcPTu7s](https://www.youtube.com/embed/fxykBcPTu7s)
 
 Bruce followed up an amazing Night One in Solna, Sweden, with an even hotter Night Two, opening with "," "Leap of Faith," ", "and "," before finally dipping into the album. As he did the prior night, Bruce plays another full album–this time .
 
 **2013:** [My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)[Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)[Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)
 
-[https://videopress.com/embed/e8uA40R8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/e8uA40R8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/e8uA40R8](https://videopress.com/embed/e8uA40R8)
 
-[https://videopress.com/embed/xnjI7AHO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xnjI7AHO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/xnjI7AHO](https://videopress.com/embed/xnjI7AHO)
 
-[https://videopress.com/embed/txzSEx2C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/txzSEx2C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/txzSEx2C](https://videopress.com/embed/txzSEx2C)
 
-[https://videopress.com/embed/VMfFmfiC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VMfFmfiC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/VMfFmfiC](https://videopress.com/embed/VMfFmfiC)
 
-[https://videopress.com/embed/lay25WsO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lay25WsO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/lay25WsO](https://videopress.com/embed/lay25WsO)
 
-[https://www.youtube.com/embed/k0OalnfuIws?feature=oembed](https://www.youtube.com/embed/k0OalnfuIws?feature=oembed)
+[https://www.youtube.com/embed/k0OalnfuIws](https://www.youtube.com/embed/k0OalnfuIws)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -97,7 +97,7 @@ Bruce makes a surprise appearance at the Saban Theater in Los Angeles, joining L
 
 **2019:** [Tenth Avenue Freeze-Out,](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[I Don't Want to Go Home](http://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)
 
-[https://www.youtube.com/embed/3quQa4c7n_4?feature=oembed](https://www.youtube.com/embed/3quQa4c7n_4?feature=oembed)
+[https://www.youtube.com/embed/3quQa4c7n_4](https://www.youtube.com/embed/3quQa4c7n_4)
 
 In the area early for his upcoming shows in Dublin, Bruce stops by The Burrow pub in Rathangan, County Kildare, his Irish ancestral home. Over a pint, he leads the locals through a verse of "."
 

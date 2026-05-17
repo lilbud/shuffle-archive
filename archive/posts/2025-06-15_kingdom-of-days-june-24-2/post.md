@@ -13,13 +13,13 @@ Bruce and the E Street Band record "" at Atlantic Studios in New York City.
 
 **1977:** [Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)
 
-[https://www.youtube.com/embed/HzIm7Ek6Vv0?feature=oembed](https://www.youtube.com/embed/HzIm7Ek6Vv0?feature=oembed)
+[https://www.youtube.com/embed/HzIm7Ek6Vv0](https://www.youtube.com/embed/HzIm7Ek6Vv0)
 
 Bruce and the E Street Band bring the Darkness Tour to the Pacific Northwest, starting with a show at the Paramount Theater in Portland.
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/1tApe9uQUCs?feature=oembed](https://www.youtube.com/embed/1tApe9uQUCs?feature=oembed)
+[https://www.youtube.com/embed/1tApe9uQUCs](https://www.youtube.com/embed/1tApe9uQUCs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/1978-06-23-scaled.jpg?resize=758%2C300&amp;ssl=1)
 
@@ -31,7 +31,7 @@ Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three son
 
 **1989:**[Under the Boardwalk](http://estreetshuffle.com/index.php/2018/05/04/meeting-across-the-river-bruce-springsteen-and-bobby-bandiera-under-the-boardwalk/)
 
-[https://www.youtube.com/embed/j0h8kVXEdX0?feature=oembed](https://www.youtube.com/embed/j0h8kVXEdX0?feature=oembed)
+[https://www.youtube.com/embed/j0h8kVXEdX0](https://www.youtube.com/embed/j0h8kVXEdX0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1989-06-24.jpg?resize=758%2C558&amp;ssl=1)
 
@@ -39,25 +39,25 @@ A momentous night: Bruce and his touring band play a special "Concert to Fight H
 
 **1993:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[here](http://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html)
 
-[https://www.youtube.com/embed/gc2zE_AcJBc?feature=oembed](https://www.youtube.com/embed/gc2zE_AcJBc?feature=oembed)
+[https://www.youtube.com/embed/gc2zE_AcJBc](https://www.youtube.com/embed/gc2zE_AcJBc)
 
-[https://www.youtube.com/embed/9Y0RSF242Dw?feature=oembed](https://www.youtube.com/embed/9Y0RSF242Dw?feature=oembed)
+[https://www.youtube.com/embed/9Y0RSF242Dw](https://www.youtube.com/embed/9Y0RSF242Dw)
 
-[https://www.youtube.com/embed/rbSBt9Jp8Ms?feature=oembed](https://www.youtube.com/embed/rbSBt9Jp8Ms?feature=oembed)
+[https://www.youtube.com/embed/rbSBt9Jp8Ms](https://www.youtube.com/embed/rbSBt9Jp8Ms)
 
-[https://www.youtube.com/embed/okzsJ72I7WY?feature=oembed](https://www.youtube.com/embed/okzsJ72I7WY?feature=oembed)
+[https://www.youtube.com/embed/okzsJ72I7WY](https://www.youtube.com/embed/okzsJ72I7WY)
 
-[https://www.youtube.com/embed/kQNaQRPs_v8?feature=oembed](https://www.youtube.com/embed/kQNaQRPs_v8?feature=oembed)
+[https://www.youtube.com/embed/kQNaQRPs_v8](https://www.youtube.com/embed/kQNaQRPs_v8)
 
-[https://www.youtube.com/embed/hvsiTwqhD4k?feature=oembed](https://www.youtube.com/embed/hvsiTwqhD4k?feature=oembed)
+[https://www.youtube.com/embed/hvsiTwqhD4k](https://www.youtube.com/embed/hvsiTwqhD4k)
 
-[https://www.youtube.com/embed/jAIHCIOk6Qw?feature=oembed](https://www.youtube.com/embed/jAIHCIOk6Qw?feature=oembed)
+[https://www.youtube.com/embed/jAIHCIOk6Qw](https://www.youtube.com/embed/jAIHCIOk6Qw)
 
-[https://www.youtube.com/embed/9dpFvFasyPw?feature=oembed](https://www.youtube.com/embed/9dpFvFasyPw?feature=oembed)
+[https://www.youtube.com/embed/9dpFvFasyPw](https://www.youtube.com/embed/9dpFvFasyPw)
 
-[https://www.youtube.com/embed/QebZyM3ehlQ?feature=oembed](https://www.youtube.com/embed/QebZyM3ehlQ?feature=oembed)
+[https://www.youtube.com/embed/QebZyM3ehlQ](https://www.youtube.com/embed/QebZyM3ehlQ)
 
-[https://www.youtube.com/embed/U5oB2t2djEU?feature=oembed](https://www.youtube.com/embed/U5oB2t2djEU?feature=oembed)
+[https://www.youtube.com/embed/U5oB2t2djEU](https://www.youtube.com/embed/U5oB2t2djEU)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1993-06-24.jpg?resize=758%2C993&amp;ssl=1)
 
@@ -65,15 +65,15 @@ Night Two in Stockholm on the Reunion Tour.
 
 **1999:**<br>
 
-[https://www.youtube.com/embed/vIBrhlatcuA?feature=oembed](https://www.youtube.com/embed/vIBrhlatcuA?feature=oembed)
+[https://www.youtube.com/embed/vIBrhlatcuA](https://www.youtube.com/embed/vIBrhlatcuA)
 
-[https://videopress.com/embed/w2v4c6sh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/w2v4c6sh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/w2v4c6sh](https://videopress.com/embed/w2v4c6sh)
 
 The Seeger Sessions Tour starts its last American stand at the PNC Bank Arts Center in Holmdel, New Jersey.
 
 **2006:**<br>
 
-[https://www.youtube.com/embed/aff_zv76sCY?feature=oembed](https://www.youtube.com/embed/aff_zv76sCY?feature=oembed)
+[https://www.youtube.com/embed/aff_zv76sCY](https://www.youtube.com/embed/aff_zv76sCY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2006-06-24-300x291.jpg?resize=758%2C735)
 
@@ -81,17 +81,17 @@ Bruce performs "" at a wedding for friends of his in River Vale, New Jersey; he 
 
 **2007:** [If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)[You Never Can Tell](http://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)
 
-[https://www.youtube.com/embed/QIQjpeIfk9s?feature=oembed](https://www.youtube.com/embed/QIQjpeIfk9s?feature=oembed)
+[https://www.youtube.com/embed/QIQjpeIfk9s](https://www.youtube.com/embed/QIQjpeIfk9s)
 
 Bruce and the E Street Band headline at the Isle of Wight Festival.
 
 **2012:**<br>
 
-[https://www.youtube.com/embed/RYR7oQYvBiU?feature=oembed](https://www.youtube.com/embed/RYR7oQYvBiU?feature=oembed)
+[https://www.youtube.com/embed/RYR7oQYvBiU](https://www.youtube.com/embed/RYR7oQYvBiU)
 
-[https://www.youtube.com/embed/BwGvGjaXLQU?feature=oembed](https://www.youtube.com/embed/BwGvGjaXLQU?feature=oembed)
+[https://www.youtube.com/embed/BwGvGjaXLQU](https://www.youtube.com/embed/BwGvGjaXLQU)
 
-[https://www.youtube.com/embed/XNoFc-kna6g?feature=oembed](https://www.youtube.com/embed/XNoFc-kna6g?feature=oembed)
+[https://www.youtube.com/embed/XNoFc-kna6g](https://www.youtube.com/embed/XNoFc-kna6g)
 
 debuts at #2 on the Billboard Album chart, just behind Madonna's album–the first time Bruce and Madonna have sat atop the chart together since 1985.
 
@@ -105,8 +105,8 @@ Bruce and the E Street Band play their first of three nights at Ullevi in Gothen
 
 **2023:** [here](https://www.nugs.net/live-download-of-bruce-springsteen-ullevi-gothenburg-sweden-06-24-2023-mp3-flac-or-online-music-streaming/31084.html)
 
-[https://www.youtube.com/embed/gQWm01XhFac?feature=oembed](https://www.youtube.com/embed/gQWm01XhFac?feature=oembed)
+[https://www.youtube.com/embed/gQWm01XhFac](https://www.youtube.com/embed/gQWm01XhFac)
 
-[https://www.youtube.com/embed/E8ViDIvaxyw?feature=oembed](https://www.youtube.com/embed/E8ViDIvaxyw?feature=oembed)
+[https://www.youtube.com/embed/E8ViDIvaxyw](https://www.youtube.com/embed/E8ViDIvaxyw)
 
-[https://www.youtube.com/embed/mP79UWrWZWI?feature=oembed](https://www.youtube.com/embed/mP79UWrWZWI?feature=oembed)
+[https://www.youtube.com/embed/mP79UWrWZWI](https://www.youtube.com/embed/mP79UWrWZWI)

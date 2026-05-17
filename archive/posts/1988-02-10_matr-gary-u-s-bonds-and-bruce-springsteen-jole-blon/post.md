@@ -36,7 +36,7 @@ Bruce first broke out "Jole Blon" during the last show of his River Tour stand a
 
 He performed it twice more that week, but he may have considered all three to be rehearsals for his stateside appearance a week later at the Hollywood Bowl, at the fourth annual Survival Sunday anti-nuclear benefit concert. While it's Bruce's duets with Jackson Browne that get most of the attention from that show, that Survival Sunday show is also the first time that Bruce and Gary performed "Jole Blon" live. Unfortunately, the recording is incomplete and has cuts, but you can still listen to much of it below:
 
-[https://videopress.com/embed/pompYzul?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pompYzul?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/pompYzul](https://videopress.com/embed/pompYzul)
 
 While it's disappointing that our recording of Bruce and Gary's first "Jole Blon" performance is incomplete, we've had plenty more opportunities to catch the two men performing it together. Here's one of the better quality captures, from the Wrecking Ball Tour in 2012:
 

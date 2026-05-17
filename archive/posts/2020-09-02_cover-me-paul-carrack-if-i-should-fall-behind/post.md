@@ -9,6 +9,6 @@ His solo recordings are well worth seeking out, though. Case in point: here's Ca
 
 [If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)*Good Feeling.*
 
-[https://www.youtube.com/embed/KrKjjlghIwk?feature=oembed](https://www.youtube.com/embed/KrKjjlghIwk?feature=oembed)
+[https://www.youtube.com/embed/KrKjjlghIwk](https://www.youtube.com/embed/KrKjjlghIwk)
 
 Often hailed for his beautiful voice, Carrack is an accomplished instrumentalist as well–other than the drums (played by Carrack's son Jack). that's Paul on every instrument in the track.

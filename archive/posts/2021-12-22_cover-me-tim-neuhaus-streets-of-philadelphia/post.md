@@ -5,7 +5,7 @@ He's got one more coming out imminently: an album of covers recorded during lock
 
 *Echoes Volume I*, [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
-[https://www.youtube.com/embed/JceLUA6GMgM?feature=oembed](https://www.youtube.com/embed/JceLUA6GMgM?feature=oembed)
+[https://www.youtube.com/embed/JceLUA6GMgM](https://www.youtube.com/embed/JceLUA6GMgM)
 
 "Streets of Philadelphia" has always lent itself to acoustic arrangements, but Tim's version (featuring Andi Fins on synth and piano) is particularly lovely, capturing the loneliness, fear, and isolation of Bruce's narrator through tender performance and intimate video direction.
 

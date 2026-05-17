@@ -15,9 +15,9 @@ The Darkness Tour picks up steam as it rolls into Philadelphia for the first of 
 
 **1978:**[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)[It's Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)
 
-[https://www.youtube.com/embed/gTWkVHl3Bw8?feature=oembed](https://www.youtube.com/embed/gTWkVHl3Bw8?feature=oembed)
+[https://www.youtube.com/embed/gTWkVHl3Bw8](https://www.youtube.com/embed/gTWkVHl3Bw8)
 
-[https://www.youtube.com/embed/EgCVHSpz_a0?feature=oembed](https://www.youtube.com/embed/EgCVHSpz_a0?feature=oembed)
+[https://www.youtube.com/embed/EgCVHSpz_a0](https://www.youtube.com/embed/EgCVHSpz_a0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/Courier_Post_1978_05_27_Page_39.jpg?resize=758%2C305&amp;ssl=1)
 
@@ -29,7 +29,7 @@ Bruce's world premiere performance of "" occurs under very strange circumstances
 
 **1984:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://videopress.com/embed/0BTfSZSi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0BTfSZSi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0BTfSZSi](https://videopress.com/embed/0BTfSZSi)
 
 Bruce joins John Mellencamp on stage for "" at the Irvine Meadows Amphitheater in Irvine, California.
 
@@ -41,23 +41,23 @@ Bruce wraps up the Ghost of Tom Joad Tour with the second of two nights in Paris
 
 **1997:** [Blowin' Down This Road](https://estreetshuffle.com/index.php/2020/05/27/matr-bruce-springsteen-and-friends-blowin-down-this-road/)[Diamonds by the Yard](https://estreetshuffle.com/index.php/2022/03/29/matr-elliott-murphy-and-bruce-springsteen-diamonds-by-the-yard/)
 
-[https://www.youtube.com/embed/eIVqrJvUvx4?feature=oembed](https://www.youtube.com/embed/eIVqrJvUvx4?feature=oembed)
+[https://www.youtube.com/embed/eIVqrJvUvx4](https://www.youtube.com/embed/eIVqrJvUvx4)
 
-[https://www.youtube.com/embed/0YKliMT-7Ac?feature=oembed](https://www.youtube.com/embed/0YKliMT-7Ac?feature=oembed)
+[https://www.youtube.com/embed/0YKliMT-7Ac](https://www.youtube.com/embed/0YKliMT-7Ac)
 
-[https://www.youtube.com/embed/hkTQX6x7ufk?feature=oembed](https://www.youtube.com/embed/hkTQX6x7ufk?feature=oembed)
+[https://www.youtube.com/embed/hkTQX6x7ufk](https://www.youtube.com/embed/hkTQX6x7ufk)
 
-[https://www.youtube.com/embed/zADbdvEpuBM?feature=oembed](https://www.youtube.com/embed/zADbdvEpuBM?feature=oembed)
+[https://www.youtube.com/embed/zADbdvEpuBM](https://www.youtube.com/embed/zADbdvEpuBM)
 
-[https://www.youtube.com/embed/Mb6v51Px4NM?feature=oembed](https://www.youtube.com/embed/Mb6v51Px4NM?feature=oembed)
+[https://www.youtube.com/embed/Mb6v51Px4NM](https://www.youtube.com/embed/Mb6v51Px4NM)
 
-[https://www.youtube.com/embed/fFlzC3YXddA?feature=oembed](https://www.youtube.com/embed/fFlzC3YXddA?feature=oembed)
+[https://www.youtube.com/embed/fFlzC3YXddA](https://www.youtube.com/embed/fFlzC3YXddA)
 
 At the first of two Rising shows at the Crystal Palace in London, Bruce tour premieres "" (into "Jungleland," of course).
 
 **2003:** [Meeting Across the River](http://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)
 
-[https://videopress.com/embed/I7tpxG4Z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/I7tpxG4Z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/I7tpxG4Z](https://videopress.com/embed/I7tpxG4Z)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Independent_Tue__May_27__2003_.jpg?resize=758%2C913&amp;ssl=1)
 
@@ -67,11 +67,11 @@ At the first of three shows in Germany–this one in Munich–Bruce opens with a
 
 **2013:** [Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)*Born in the U.S.A.*
 
-[https://www.youtube.com/embed/llBeo074_bA?feature=oembed](https://www.youtube.com/embed/llBeo074_bA?feature=oembed)
+[https://www.youtube.com/embed/llBeo074_bA](https://www.youtube.com/embed/llBeo074_bA)
 
-[https://www.youtube.com/embed/8Hy9zgH3UmY?feature=oembed](https://www.youtube.com/embed/8Hy9zgH3UmY?feature=oembed)
+[https://www.youtube.com/embed/8Hy9zgH3UmY](https://www.youtube.com/embed/8Hy9zgH3UmY)
 
-[https://www.youtube.com/embed/ObN6tG0LeHc?feature=oembed](https://www.youtube.com/embed/ObN6tG0LeHc?feature=oembed)
+[https://www.youtube.com/embed/ObN6tG0LeHc](https://www.youtube.com/embed/ObN6tG0LeHc)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

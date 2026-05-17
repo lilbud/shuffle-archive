@@ -21,7 +21,7 @@ The Darkness Tour stops at the Mecca Arena in Milwaukee.
 
 **1978:**<br>
 
-[https://videopress.com/embed/J4gzbUgC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/J4gzbUgC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/J4gzbUgC](https://videopress.com/embed/J4gzbUgC)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/mecca-300x281.jpg?resize=758%2C709)
 
@@ -37,21 +37,21 @@ Bruce and the E Street Band play their second of two Born in the U.S.A. shows at
 
 **1985:**<br>
 
-[https://www.youtube.com/embed/qQeCrLcCwgg?feature=oembed](https://www.youtube.com/embed/qQeCrLcCwgg?feature=oembed)
+[https://www.youtube.com/embed/qQeCrLcCwgg](https://www.youtube.com/embed/qQeCrLcCwgg)
 
-[https://www.youtube.com/embed/Qjx_Dm5byt0?feature=oembed](https://www.youtube.com/embed/Qjx_Dm5byt0?feature=oembed)
+[https://www.youtube.com/embed/Qjx_Dm5byt0](https://www.youtube.com/embed/Qjx_Dm5byt0)
 
-[https://www.youtube.com/embed/_C12AhdgoTc?feature=oembed](https://www.youtube.com/embed/_C12AhdgoTc?feature=oembed)
+[https://www.youtube.com/embed/_C12AhdgoTc](https://www.youtube.com/embed/_C12AhdgoTc)
 
 Bruce and Max join Nils for four songs at Nils' gig at the Stone Pony.
 
 **1989:**<br>
 
-[https://www.youtube.com/embed/9t233EpGPOk?feature=oembed](https://www.youtube.com/embed/9t233EpGPOk?feature=oembed)
+[https://www.youtube.com/embed/9t233EpGPOk](https://www.youtube.com/embed/9t233EpGPOk)
 
-[https://www.youtube.com/embed/kSDq4tbqniM?feature=oembed](https://www.youtube.com/embed/kSDq4tbqniM?feature=oembed)
+[https://www.youtube.com/embed/kSDq4tbqniM](https://www.youtube.com/embed/kSDq4tbqniM)
 
-[https://www.youtube.com/embed/KMtw59Yefbs?feature=oembed](https://www.youtube.com/embed/KMtw59Yefbs?feature=oembed)
+[https://www.youtube.com/embed/KMtw59Yefbs](https://www.youtube.com/embed/KMtw59Yefbs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1989-06-09-167x300.jpg?resize=758%2C1362)
 
@@ -59,15 +59,15 @@ Norwegian fans enjoy the tour premiere of "" at the first of two Working on a Dr
 
 **2009:** [Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)
 
-[https://www.youtube.com/embed/-qv74yl6Ye0?feature=oembed](https://www.youtube.com/embed/-qv74yl6Ye0?feature=oembed)
+[https://www.youtube.com/embed/-qv74yl6Ye0](https://www.youtube.com/embed/-qv74yl6Ye0)
 
-[https://www.youtube.com/embed/BsrR4VhnJZA?feature=oembed](https://www.youtube.com/embed/BsrR4VhnJZA?feature=oembed)
+[https://www.youtube.com/embed/BsrR4VhnJZA](https://www.youtube.com/embed/BsrR4VhnJZA)
 
-[https://www.youtube.com/embed/wEQWtxsmHQw?feature=oembed](https://www.youtube.com/embed/wEQWtxsmHQw?feature=oembed)
+[https://www.youtube.com/embed/wEQWtxsmHQw](https://www.youtube.com/embed/wEQWtxsmHQw)
 
-[https://www.youtube.com/embed/LziT5xFUPTk?feature=oembed](https://www.youtube.com/embed/LziT5xFUPTk?feature=oembed)
+[https://www.youtube.com/embed/LziT5xFUPTk](https://www.youtube.com/embed/LziT5xFUPTk)
 
-[https://www.youtube.com/embed/XZghbhM7t_I?feature=oembed](https://www.youtube.com/embed/XZghbhM7t_I?feature=oembed)
+[https://www.youtube.com/embed/XZghbhM7t_I](https://www.youtube.com/embed/XZghbhM7t_I)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

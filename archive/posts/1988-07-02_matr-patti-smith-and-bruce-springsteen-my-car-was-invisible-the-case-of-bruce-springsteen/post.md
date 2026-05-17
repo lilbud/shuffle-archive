@@ -6,7 +6,7 @@ Patti's shows were already famous for her improvisational setpieces that bordere
 
 "My Car Was Invisible" followed immediately after, serving as Patti's explanation for why she had to hang around the club a little later than she wanted to the previous night.
 
-[https://videopress.com/embed/vvRhL0zj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vvRhL0zj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/vvRhL0zj](https://videopress.com/embed/vvRhL0zj)
 
 As Patti's vocals grew in power (and distortion, unfortunately), Bruce's piano accompaniment grew more confident as well. After a few minutes, Patti segued her musical monologue into a plea for all present to write letters to the musician's union to plead the case of Bruce Springsteen. For what, I cannot tell–the audio is too muddy. (If you can figure it out, though, please leave a comment and let me know!)
 

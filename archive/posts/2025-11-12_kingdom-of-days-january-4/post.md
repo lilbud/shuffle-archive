@@ -11,13 +11,13 @@ During his L.A. garage recording sessions, Bruce records an early and alternate 
 
 **1983:**<br>
 
-[https://www.youtube.com/embed/omkVpmMkLOY?feature=oembed](https://www.youtube.com/embed/omkVpmMkLOY?feature=oembed)
+[https://www.youtube.com/embed/omkVpmMkLOY](https://www.youtube.com/embed/omkVpmMkLOY)
 
 The Born in the U.S.A. Tour resumes with the first of two shows at the Hampton Roads Coliseum in Hampton, Virginia.
 
 **1985:**<br>
 
-[https://videopress.com/embed/ifgI0KWR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ifgI0KWR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ifgI0KWR](https://videopress.com/embed/ifgI0KWR)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1985-01-04.png?resize=758%2C878&amp;ssl=1)
 
@@ -27,7 +27,7 @@ Bruce and Patti make an appearance at the Hollywood premiere of Bruce wrote "" f
 
 **1994:** *Philadelphia.* [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
-[https://www.youtube.com/embed/3ScFkSlJb4w?feature=oembed](https://www.youtube.com/embed/3ScFkSlJb4w?feature=oembed)
+[https://www.youtube.com/embed/3ScFkSlJb4w](https://www.youtube.com/embed/3ScFkSlJb4w)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/01/The_Daily_Spectrum_Thu__Jan_6__1994_.jpg?resize=758%2C844&amp;ssl=1)
 

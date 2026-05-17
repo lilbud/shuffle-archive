@@ -1,11 +1,11 @@
 
 "Da Doo Ron Ron" was a top ten hit not once, but twice–first for The Crystals, who took it to #3 in 1963…
 
-[https://www.youtube.com/embed/v-qqi7-Q19k?feature=oembed](https://www.youtube.com/embed/v-qqi7-Q19k?feature=oembed)
+[https://www.youtube.com/embed/v-qqi7-Q19k](https://www.youtube.com/embed/v-qqi7-Q19k)
 
 …and later for teen idol Shaun Cassidy, who took it all the way to the top in 1977.
 
-[https://www.youtube.com/embed/l1nTfgUbW48?feature=oembed](https://www.youtube.com/embed/l1nTfgUbW48?feature=oembed)
+[https://www.youtube.com/embed/l1nTfgUbW48](https://www.youtube.com/embed/l1nTfgUbW48)
 
 Written by Jeff Barry, Ellie Greenwich and Phil Spector in their first of many collaborations, "Da Doo Ron Ron" is a girl-meets-boy, girl-wants-boy… well, to call it a "story" is to give it too much credit. If "Da Doo Ron Ron" is about anything at all, it's about teenage lust, pure and simple. To search for anything deeper is to miss the point entirely.
 
@@ -13,13 +13,13 @@ Bruce is no stranger to the Crystals' catalog; back in the seventies, "" made fr
 
 [Then He Kissed Me](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/)[He's Sure the Boy I Love](https://estreetshuffle.com/index.php/2020/08/27/cover-me-shes-sure-the-girl-i-love/)
 
-[https://www.youtube.com/embed/qlIbQ_X-MK8?feature=oembed](https://www.youtube.com/embed/qlIbQ_X-MK8?feature=oembed)
+[https://www.youtube.com/embed/qlIbQ_X-MK8](https://www.youtube.com/embed/qlIbQ_X-MK8)
 
 That performance was impromptu and charmingly loose–but just over a month later, Bruce had a perfect opportunity for a fully rehearsed second shot at the Rock and Roll Hall of Fame's 25th Anniversary Concert.
 
 During the first of a pair of concerts that featured an outstanding array of talent and team-ups, Bruce invited Darlene Love to the stage to sing one of her greatest hits.
 
-[https://www.youtube.com/embed/hS0hn3o0FnE?feature=oembed](https://www.youtube.com/embed/hS0hn3o0FnE?feature=oembed)
+[https://www.youtube.com/embed/hS0hn3o0FnE](https://www.youtube.com/embed/hS0hn3o0FnE)
 
 Ironically, though, "Da Doo Ron Ron" doesn't actually feature Darlene's vocals. The Crystals' membership was fluid during those years, and though Love claims to have recorded the lead vocal for the original single, it appears that Phil Spector replaced her lead vocal with La La Brooks' instead.
 

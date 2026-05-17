@@ -13,13 +13,13 @@ Bruce and his studio team complete the mix for "Prove It All Night" at the Recor
 
 **1978:**<br>
 
-[https://www.youtube.com/embed/UzjkWdRqWFo?feature=oembed](https://www.youtube.com/embed/UzjkWdRqWFo?feature=oembed)
+[https://www.youtube.com/embed/UzjkWdRqWFo](https://www.youtube.com/embed/UzjkWdRqWFo)
 
 Bruce and his studio team complete the mix for "Independence Day" at Clover studios in Los Angeles.
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/9GggK3Sn258?feature=oembed](https://www.youtube.com/embed/9GggK3Sn258?feature=oembed)
+[https://www.youtube.com/embed/9GggK3Sn258](https://www.youtube.com/embed/9GggK3Sn258)
 
 Bruce catches Cats on a Smooth Surface performing at The Stone Pony in Asbury Park, but he does not take the stage.
 
@@ -29,7 +29,7 @@ Night Three (of five) for the Tunnel of Love Express Tour at the L.A. Sports Are
 
 **1988:**<br>
 
-[https://videopress.com/embed/77lAhHBZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/77lAhHBZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/77lAhHBZ](https://videopress.com/embed/77lAhHBZ)
 
 At Micky Rourke's Rubber Club in Los Angeles, Bruce joins a local band on stage for "Stand By Me."
 
@@ -41,17 +41,17 @@ Elliott Murphy and Joe Grushecky join Bruce for a final encore of "Blowin' Down 
 
 **1996:**<br>
 
-[https://www.youtube.com/embed/3vI9BTN8l8E?feature=oembed](https://www.youtube.com/embed/3vI9BTN8l8E?feature=oembed)
+[https://www.youtube.com/embed/3vI9BTN8l8E](https://www.youtube.com/embed/3vI9BTN8l8E)
 
-[https://videopress.com/embed/4cjlbQWl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4cjlbQWl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4cjlbQWl](https://videopress.com/embed/4cjlbQWl)
 
 The first of two Reunion shows at Mellon Arena in Pittsburgh features the first E Street Band performance of "Human Touch" and a Joe Grushecky guest appearance on "Idiot's Delight."
 
 **2000:**<br>
 
-[https://videopress.com/embed/txuqoZGk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/txuqoZGk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/txuqoZGk](https://videopress.com/embed/txuqoZGk)
 
-[https://videopress.com/embed/ZCVQXnYW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZCVQXnYW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ZCVQXnYW](https://videopress.com/embed/ZCVQXnYW)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-04-25a.jpg?resize=758%2C337&amp;ssl=1)
 
@@ -65,9 +65,9 @@ Bruce kicks off his solo acoustic tour with a show at the Fox Theater in Detroit
 
 **2005:**<br>
 
-[https://videopress.com/embed/bZmO5Gza?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bZmO5Gza?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/bZmO5Gza](https://videopress.com/embed/bZmO5Gza)
 
-[https://videopress.com/embed/DZZkyhyC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DZZkyhyC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/DZZkyhyC](https://videopress.com/embed/DZZkyhyC)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-25a.jpg?resize=758%2C228&amp;ssl=1)
 
@@ -79,15 +79,15 @@ Bruce releases and appears on to promote the album and upcoming tour.
 
 **2006:** *We Shall Overcome: The Seeger Sessions* *Good Morning America*
 
-[https://www.youtube.com/embed/aicCuu5YWHQ?feature=oembed](https://www.youtube.com/embed/aicCuu5YWHQ?feature=oembed)
+[https://www.youtube.com/embed/aicCuu5YWHQ](https://www.youtube.com/embed/aicCuu5YWHQ)
 
-[https://videopress.com/embed/g0YVno40?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/g0YVno40?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/g0YVno40](https://videopress.com/embed/g0YVno40)
 
-[https://videopress.com/embed/0RYCqo7d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0RYCqo7d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/0RYCqo7d](https://videopress.com/embed/0RYCqo7d)
 
 That evening, a more awake Bruce and the Sessions Band play a third public warm-up show for their upcoming tour. Notable in the set list: Bruce's first-ever performance and tour one-off of "Turn! Turn! Turn (To Everything There is a Season)."
 
-[https://videopress.com/embed/yTqnj3vq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yTqnj3vq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/yTqnj3vq](https://videopress.com/embed/yTqnj3vq)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2006-04-25a.jpg?resize=590%2C824&amp;ssl=1)
 
@@ -99,7 +99,7 @@ The Magic Tour moves to Atlanta for a show at Philips Arena, where "Blinded by t
 
 **2008:**<br>
 
-[https://videopress.com/embed/CcJp0LLz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CcJp0LLz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/CcJp0LLz](https://videopress.com/embed/CcJp0LLz)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-04-25a.jpg?resize=758%2C608&amp;ssl=1)
 
@@ -109,13 +109,13 @@ The closing night of the first U.S. leg of the River Tour (2016 version) at Barc
 
 **2016:**<br>
 
-[https://www.youtube.com/embed/QTMfT2Pr_P4?feature=oembed](https://www.youtube.com/embed/QTMfT2Pr_P4?feature=oembed)
+[https://www.youtube.com/embed/QTMfT2Pr_P4](https://www.youtube.com/embed/QTMfT2Pr_P4)
 
-[https://www.youtube.com/embed/97Gy9LxZi88?feature=oembed](https://www.youtube.com/embed/97Gy9LxZi88?feature=oembed)
+[https://www.youtube.com/embed/97Gy9LxZi88](https://www.youtube.com/embed/97Gy9LxZi88)
 
-[https://www.youtube.com/embed/rrCV839_MSU?feature=oembed](https://www.youtube.com/embed/rrCV839_MSU?feature=oembed)
+[https://www.youtube.com/embed/rrCV839_MSU](https://www.youtube.com/embed/rrCV839_MSU)
 
-[https://www.youtube.com/embed/a_dmf59F9P0?feature=oembed](https://www.youtube.com/embed/a_dmf59F9P0?feature=oembed)
+[https://www.youtube.com/embed/a_dmf59F9P0](https://www.youtube.com/embed/a_dmf59F9P0)
 
 After days of teasing and speculation, Bruce officially announces his next album, coming in June.
 

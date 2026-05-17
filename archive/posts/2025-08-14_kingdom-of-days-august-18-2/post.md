@@ -5,7 +5,7 @@ Bruce and the E Street Band bring the Darkness Tour to Philadelphia for the firs
 
 **1978:** [Rave On](http://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)
 
-[https://www.youtube.com/embed/O0Lao3wtYhk?feature=oembed](https://www.youtube.com/embed/O0Lao3wtYhk?feature=oembed)
+[https://www.youtube.com/embed/O0Lao3wtYhk](https://www.youtube.com/embed/O0Lao3wtYhk)
 
 [https://www.youtube.com/embed/dKSxtbFRC6A?list=PLsxNBNx2akeU-ViN-Xcw8F6vwMgp4oQgT](https://www.youtube.com/embed/dKSxtbFRC6A?list=PLsxNBNx2akeU-ViN-Xcw8F6vwMgp4oQgT)
 
@@ -15,9 +15,9 @@ Bruce and the band kick off a four-night stand at Giants Stadium (they will retu
 
 **1985:** <https://estreetshuffle.com/wp-content/uploads/2022/08/101-Born-in-the-USA.mp3><https://estreetshuffle.com/wp-content/uploads/2022/08/306-Jersey-Girl.mp3>
 
-[https://www.youtube.com/embed/Yl845kNMzmA?feature=oembed](https://www.youtube.com/embed/Yl845kNMzmA?feature=oembed)
+[https://www.youtube.com/embed/Yl845kNMzmA](https://www.youtube.com/embed/Yl845kNMzmA)
 
-[https://www.youtube.com/embed/P5hwmtfpgEM?feature=oembed](https://www.youtube.com/embed/P5hwmtfpgEM?feature=oembed)
+[https://www.youtube.com/embed/P5hwmtfpgEM](https://www.youtube.com/embed/P5hwmtfpgEM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1985-08-18a.png?resize=758%2C936&amp;ssl=1)
 
@@ -29,7 +29,7 @@ Bruce and his new touring band play their second night at The Palace of Auburn H
 
 **1992:** [Ramblin' Gamblin' Man](http://estreetshuffle.com/index.php/2020/04/14/cover-me-ramblin-gamblin-man/)
 
-[https://www.youtube.com/embed/BFFi5wbLcTg?feature=oembed](https://www.youtube.com/embed/BFFi5wbLcTg?feature=oembed)
+[https://www.youtube.com/embed/BFFi5wbLcTg](https://www.youtube.com/embed/BFFi5wbLcTg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-18a-206x300.png?resize=758%2C1104)
 
@@ -41,7 +41,7 @@ Bruce makes a surprise afternoon appearance at the annual Clearwater Festival in
 
 **2001:** [Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)*that*
 
-[https://www.youtube.com/embed/RABT8memYGI?feature=oembed](https://www.youtube.com/embed/RABT8memYGI?feature=oembed)
+[https://www.youtube.com/embed/RABT8memYGI](https://www.youtube.com/embed/RABT8memYGI)
 
 Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on stage for four songs, including "" and "…"
 
@@ -65,7 +65,7 @@ After four identical shows, Bruce finally changes up the Rising Tour setlist (ba
 
 **2002:** [Viva Las Vegas](http://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/)
 
-[https://www.youtube.com/embed/CTFBqCPufKI?feature=oembed](https://www.youtube.com/embed/CTFBqCPufKI?feature=oembed)
+[https://www.youtube.com/embed/CTFBqCPufKI](https://www.youtube.com/embed/CTFBqCPufKI)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCBQ5Ubc2UseuhTWCpTHdra](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCBQ5Ubc2UseuhTWCpTHdra)
 
@@ -75,9 +75,9 @@ Bruce and the E Street Band take the Magic Tour into its final week with a show 
 
 **2008:** [Crush on You](http://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)
 
-[https://www.youtube.com/embed/GG57M4yVa4g?feature=oembed](https://www.youtube.com/embed/GG57M4yVa4g?feature=oembed)
+[https://www.youtube.com/embed/GG57M4yVa4g](https://www.youtube.com/embed/GG57M4yVa4g)
 
-[https://www.youtube.com/embed/3NNS7DrhHv0?feature=oembed](https://www.youtube.com/embed/3NNS7DrhHv0?feature=oembed)
+[https://www.youtube.com/embed/3NNS7DrhHv0](https://www.youtube.com/embed/3NNS7DrhHv0)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/08/Richmond_Times_Dispatch_2008_08_19_B1.jpg?resize=758%2C807&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/08/Richmond_Times_Dispatch_2008_08_19_B3.jpg?resize=758%2C417&amp;ssl=1)
 
@@ -85,13 +85,13 @@ Bruce wraps up a three-night Boston stadium stand with a show at Gillette Stadiu
 
 **2012:** [Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)[Drift Away](http://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)
 
-[https://www.youtube.com/embed/ckwC2U4gn-Q?feature=oembed](https://www.youtube.com/embed/ckwC2U4gn-Q?feature=oembed)
+[https://www.youtube.com/embed/ckwC2U4gn-Q](https://www.youtube.com/embed/ckwC2U4gn-Q)
 
-[https://www.youtube.com/embed/RFU-fFGXXPE?feature=oembed](https://www.youtube.com/embed/RFU-fFGXXPE?feature=oembed)
+[https://www.youtube.com/embed/RFU-fFGXXPE](https://www.youtube.com/embed/RFU-fFGXXPE)
 
-[https://www.youtube.com/embed/Wbj6pKxUp-A?feature=oembed](https://www.youtube.com/embed/Wbj6pKxUp-A?feature=oembed)
+[https://www.youtube.com/embed/Wbj6pKxUp-A](https://www.youtube.com/embed/Wbj6pKxUp-A)
 
-[https://www.youtube.com/embed/2n57Eaa7-JA?feature=oembed](https://www.youtube.com/embed/2n57Eaa7-JA?feature=oembed)
+[https://www.youtube.com/embed/2n57Eaa7-JA](https://www.youtube.com/embed/2n57Eaa7-JA)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCcvUAzO5HdDsCOKZGQrZ2G](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCcvUAzO5HdDsCOKZGQrZ2G)
 
@@ -111,6 +111,6 @@ Night Two in Pittsburgh features a rare outing for "" and a customary guest appe
 
 **2024:** [If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)
 
-[https://www.youtube.com/embed/Gc5QxmfH49Q?feature=oembed](https://www.youtube.com/embed/Gc5QxmfH49Q?feature=oembed)
+[https://www.youtube.com/embed/Gc5QxmfH49Q](https://www.youtube.com/embed/Gc5QxmfH49Q)
 
-[https://www.youtube.com/embed/FiPMFIn2cTI?feature=oembed](https://www.youtube.com/embed/FiPMFIn2cTI?feature=oembed)
+[https://www.youtube.com/embed/FiPMFIn2cTI](https://www.youtube.com/embed/FiPMFIn2cTI)

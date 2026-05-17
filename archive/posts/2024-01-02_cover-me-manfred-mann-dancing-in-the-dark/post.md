@@ -9,4 +9,4 @@ From 2009, check out this brilliant mash-up of "" with "House of the Rising Sun"
 
 [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
-[https://www.youtube.com/embed/oNYTkebVDrc?feature=oembed](https://www.youtube.com/embed/oNYTkebVDrc?feature=oembed)
+[https://www.youtube.com/embed/oNYTkebVDrc](https://www.youtube.com/embed/oNYTkebVDrc)

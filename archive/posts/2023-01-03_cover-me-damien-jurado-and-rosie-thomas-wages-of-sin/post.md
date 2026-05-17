@@ -9,7 +9,7 @@ And cuts don't get much deeper than "," Bruce's haunting outtake that finally sa
 
 There aren't many covers of this song out there. In fact, I only know of one: this gorgeous version by Seattle singer-songwriter Damien Jurado and Rosie Thomas.
 
-[https://www.youtube.com/embed/XXpIheVD2JE?feature=oembed](https://www.youtube.com/embed/XXpIheVD2JE?feature=oembed)
+[https://www.youtube.com/embed/XXpIheVD2JE](https://www.youtube.com/embed/XXpIheVD2JE)
 
 Heck, even the cover is a deep cut: it's a bonus track on a tribute compilation released by Sub Pop at the turn of the century. (Yeah, I know the original was recorded post-, but Bruce wrote and demoed it during his period, so we can give it a pass.)
 

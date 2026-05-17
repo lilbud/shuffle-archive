@@ -7,7 +7,7 @@ At the Upstage in Asbury Park, Steel Mill plays its final gig. Listen in on thre
 
 **1971:**<br>
 
-[https://www.youtube.com/embed/RJUvc_TRTHs?feature=oembed](https://www.youtube.com/embed/RJUvc_TRTHs?feature=oembed)
+[https://www.youtube.com/embed/RJUvc_TRTHs](https://www.youtube.com/embed/RJUvc_TRTHs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1971-0123a-213x300.jpg?resize=758%2C1070)
 
@@ -35,7 +35,7 @@ Night One in Providence on the Tour.
 
 **1985:***Born in the U.S.A.*
 
-[https://videopress.com/embed/3Mt9MRp3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3Mt9MRp3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/3Mt9MRp3](https://videopress.com/embed/3Mt9MRp3)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1985-01-23.jpg?resize=758%2C1178&amp;ssl=1)
 
@@ -43,7 +43,7 @@ Bruce performs solo at the Jesse H. Jones Hall for the Performing Arts in Housto
 
 **1996:**<br>
 
-[https://videopress.com/embed/ldxTa26C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ldxTa26C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ldxTa26C](https://videopress.com/embed/ldxTa26C)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1996-01-23b-300x260.jpg?resize=758%2C657)
 

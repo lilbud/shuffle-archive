@@ -11,9 +11,9 @@ Steel Mill opens for two Cactus and Black Sabbath shows at Asbury Park's Sunshin
 
 **1970:**<br>
 
-[https://www.youtube.com/embed/uZV-rKsHjEg?feature=oembed](https://www.youtube.com/embed/uZV-rKsHjEg?feature=oembed)
+[https://www.youtube.com/embed/uZV-rKsHjEg](https://www.youtube.com/embed/uZV-rKsHjEg)
 
-[https://www.youtube.com/embed/Iakqd7kgV2A?feature=oembed](https://www.youtube.com/embed/Iakqd7kgV2A?feature=oembed)
+[https://www.youtube.com/embed/Iakqd7kgV2A](https://www.youtube.com/embed/Iakqd7kgV2A)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Asbury_Park_Press_Fri__Nov_27__1970_-scaled.jpg?resize=758%2C460&amp;ssl=1)
 
@@ -27,7 +27,7 @@ The holidays are approaching! When Bruce and the E Street Band bring the Darknes
 
 **1978:** [Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
-[https://www.youtube.com/embed/yOft2r-2IsY?feature=oembed](https://www.youtube.com/embed/yOft2r-2IsY?feature=oembed)
+[https://www.youtube.com/embed/yOft2r-2IsY](https://www.youtube.com/embed/yOft2r-2IsY)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/47491500642_fa4e3e24cd_o-300x235.jpg?resize=758%2C596)
 
@@ -35,7 +35,7 @@ Bruce plays a Thanksgiving Day concert at Madison Square Garden in New York City
 
 **1980:** [Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)
 
-[https://www.youtube.com/embed/Lsz2RPMWoY8?feature=oembed](https://www.youtube.com/embed/Lsz2RPMWoY8?feature=oembed)
+[https://www.youtube.com/embed/Lsz2RPMWoY8](https://www.youtube.com/embed/Lsz2RPMWoY8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/40492583443_560665e215_o-300x149.jpg?resize=758%2C376)
 
@@ -53,13 +53,13 @@ The features a guest appearance by Bruce, who performs "." The performance will 
 
 **1995:** *Tonight Show with Jay Leno* [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)*Video Anthology.*
 
-[https://www.youtube.com/embed/1ujE0eql_sY?feature=oembed](https://www.youtube.com/embed/1ujE0eql_sY?feature=oembed)
+[https://www.youtube.com/embed/1ujE0eql_sY](https://www.youtube.com/embed/1ujE0eql_sY)
 
 Bruce's appearance was taped during the day. That night, he plays his second of two shows at the Wiltern Theater in Los Angeles, where Bruce debuts a brand new song, "."
 
 [It's the Little Things That Count](https://estreetshuffle.com/index.php/2022/01/12/roll-of-the-dice-its-the-little-things-that-count/)
 
-[https://www.youtube.com/embed/2clbTQ5N7-8?feature=oembed](https://www.youtube.com/embed/2clbTQ5N7-8?feature=oembed)
+[https://www.youtube.com/embed/2clbTQ5N7-8](https://www.youtube.com/embed/2clbTQ5N7-8)
 
 One day prior to the beginning of the last leg of , the promotional push for Bruce's Netflix special begins with the publication of a in
 
@@ -69,8 +69,8 @@ HBO premieres , filmed live in SiriusXM Studio in October.
 
 **2022:** *The Howard Stern Interview: Bruce Springsteen*
 
-[https://www.youtube.com/embed/zQ2KrFoFqao?feature=oembed](https://www.youtube.com/embed/zQ2KrFoFqao?feature=oembed)
+[https://www.youtube.com/embed/zQ2KrFoFqao](https://www.youtube.com/embed/zQ2KrFoFqao)
 
-[https://www.youtube.com/embed/B7cd03N4jN8?feature=oembed](https://www.youtube.com/embed/B7cd03N4jN8?feature=oembed)
+[https://www.youtube.com/embed/B7cd03N4jN8](https://www.youtube.com/embed/B7cd03N4jN8)
 
-[https://www.youtube.com/embed/uZi79ulSp4E?feature=oembed](https://www.youtube.com/embed/uZi79ulSp4E?feature=oembed)
+[https://www.youtube.com/embed/uZi79ulSp4E](https://www.youtube.com/embed/uZi79ulSp4E)

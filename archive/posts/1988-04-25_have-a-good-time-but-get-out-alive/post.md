@@ -52,7 +52,7 @@ Over the years, Joe's been an active school and community fundraiser, helping th
 
 One of the songs Bruce and Joe played that night was "Pumping Iron," the most enduring and Pittsburghian track from *Have a Good Time*.
 
-[https://videopress.com/embed/gYVg7t5Y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gYVg7t5Y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/gYVg7t5Y](https://videopress.com/embed/gYVg7t5Y)
 
 "Pumping Iron" has become Joe's anthem, and over the years, he and Bruce have played it together 25 times. To put that in perspective, until Bruce started playing *The River* in full in 2016, that's about the same number of times he played "[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)" along with about an album-side worth of tracks from Bruce's own 1980 LP.
 

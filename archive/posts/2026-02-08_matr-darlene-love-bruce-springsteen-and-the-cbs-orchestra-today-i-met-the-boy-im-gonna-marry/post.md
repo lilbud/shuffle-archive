@@ -5,7 +5,7 @@ In 2011, Darlene Love was inducted into the Rock and Roll Hall of Fame. Bruce jo
 
 Only parts of the song were broadcast, but it documented the only time Bruce is known to have played this song. Watch it here, intercut with excerpts of Darlene's acceptance speech, acknowledging Bruce and Steve:
 
-[https://videopress.com/embed/6fI9NRMy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6fI9NRMy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/6fI9NRMy](https://videopress.com/embed/6fI9NRMy)
 
 March 14, 2011 (New York City, NY)
 March 14, 2011 (New York City, NY)

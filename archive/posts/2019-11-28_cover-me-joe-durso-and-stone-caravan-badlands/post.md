@@ -5,4 +5,4 @@ It takes guts to reinvent an anthem like "." Even Bruce has never deviated from 
 
 But leave it to fellow Jersey boy Joe D'Urso to take a swing at it, and he certainly puts his own spin on it, giving it almost an island-flavored arrangement with a boost from Miami Horns members Richie LaBamba, Mark Pender, and Jerry Vivino.
 
-[https://www.youtube.com/embed/9LBIzL3rAd8?feature=oembed](https://www.youtube.com/embed/9LBIzL3rAd8?feature=oembed)
+[https://www.youtube.com/embed/9LBIzL3rAd8](https://www.youtube.com/embed/9LBIzL3rAd8)

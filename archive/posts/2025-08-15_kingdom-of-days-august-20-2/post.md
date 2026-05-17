@@ -11,13 +11,13 @@ Bruce records "" with the E Street Band at The Power Station in New York City. I
 
 **1979:** [Dollhouse](https://estreetshuffle.com/index.php/2020/08/15/roll-of-the-dice-dollhouse/)
 
-[https://www.youtube.com/embed/HpF_i71cqVQ?feature=oembed](https://www.youtube.com/embed/HpF_i71cqVQ?feature=oembed)
+[https://www.youtube.com/embed/HpF_i71cqVQ](https://www.youtube.com/embed/HpF_i71cqVQ)
 
 Bruce and the boys play one of their most legendary, emotional and impassioned shows: a benefit for the Vietnam Veterans of America Foundation at the Sports Arena in Los Angeles, the first show of a six-night stand. Opening with "" (played here because of its actual content rather than its literal title), this show also features Bruce's only known performance of "" and a beautiful, emotional rendition of ""
 
 **1981:** [Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)[Ballad of Easy Rider](https://estreetshuffle.com/index.php/2021/01/04/cover-me-ballad-of-easy-rider/)[The River.](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
 
-[https://www.youtube.com/embed/KYg_CB7AElA?feature=oembed](https://www.youtube.com/embed/KYg_CB7AElA?feature=oembed)
+[https://www.youtube.com/embed/KYg_CB7AElA](https://www.youtube.com/embed/KYg_CB7AElA)
 
 [https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeXblEifwMxIN_rVQmHg3JDY](https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeXblEifwMxIN_rVQmHg3JDY)
 
@@ -31,19 +31,19 @@ Yet another of the all-time great shows performed on this date–this time acros
 
 **1984:** [Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Drift Away](http://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)[here](http://live.brucespringsteen.net/live-music/0,19087/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-20-1984-Brendan-Byrne-Arena-East-Rutherford-NJ.html)[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)*Live 1975-85*
 
-[https://www.youtube.com/embed/wh94fFrW9pI?feature=oembed](https://www.youtube.com/embed/wh94fFrW9pI?feature=oembed)
+[https://www.youtube.com/embed/wh94fFrW9pI](https://www.youtube.com/embed/wh94fFrW9pI)
 
-[https://www.youtube.com/embed/EN-YMk9oi1g?feature=oembed](https://www.youtube.com/embed/EN-YMk9oi1g?feature=oembed)
+[https://www.youtube.com/embed/EN-YMk9oi1g](https://www.youtube.com/embed/EN-YMk9oi1g)
 
-[https://www.youtube.com/embed/Eic-jyO0hbs?feature=oembed](https://www.youtube.com/embed/Eic-jyO0hbs?feature=oembed)
+[https://www.youtube.com/embed/Eic-jyO0hbs](https://www.youtube.com/embed/Eic-jyO0hbs)
 
-[https://www.youtube.com/embed/quVN35CdjTs?feature=oembed](https://www.youtube.com/embed/quVN35CdjTs?feature=oembed)
+[https://www.youtube.com/embed/quVN35CdjTs](https://www.youtube.com/embed/quVN35CdjTs)
 
-[https://www.youtube.com/embed/wwjzfLqmY64?feature=oembed](https://www.youtube.com/embed/wwjzfLqmY64?feature=oembed)
+[https://www.youtube.com/embed/wwjzfLqmY64](https://www.youtube.com/embed/wwjzfLqmY64)
 
-[https://www.youtube.com/embed/G5-yWPJynjo?feature=oembed](https://www.youtube.com/embed/G5-yWPJynjo?feature=oembed)
+[https://www.youtube.com/embed/G5-yWPJynjo](https://www.youtube.com/embed/G5-yWPJynjo)
 
-[https://www.youtube.com/embed/9h8p8op0vgg?feature=oembed](https://www.youtube.com/embed/9h8p8op0vgg?feature=oembed)
+[https://www.youtube.com/embed/9h8p8op0vgg](https://www.youtube.com/embed/9h8p8op0vgg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1984-08-20.jpg?resize=758%2C1191&amp;ssl=1)
 
@@ -53,7 +53,7 @@ Bruce makes a guest appearance with Joe Grushecky and the Houserockers (the firs
 
 **1994:** [report](http://estreetshuffle.com/index.php/2019/08/20/where-the-band-was-long-branch-august-20-1994/)*Where the Band Was*
 
-[https://videopress.com/embed/u8yCOevT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u8yCOevT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/u8yCOevT](https://videopress.com/embed/u8yCOevT)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1994-08-20a-293x300.png?resize=758%2C776)
 
@@ -65,9 +65,9 @@ In Portland, Oregon, Bruce starts to loosen up the main set of the Rising Tour, 
 
 **2002:** [Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
 
-[https://videopress.com/embed/POy7Bo4x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/POy7Bo4x?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/POy7Bo4x](https://videopress.com/embed/POy7Bo4x)
 
-[https://www.youtube.com/embed/2IHntRdm9B8?feature=oembed](https://www.youtube.com/embed/2IHntRdm9B8?feature=oembed)
+[https://www.youtube.com/embed/2IHntRdm9B8](https://www.youtube.com/embed/2IHntRdm9B8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2002-08-20a-300x214.png?resize=758%2C541)
 

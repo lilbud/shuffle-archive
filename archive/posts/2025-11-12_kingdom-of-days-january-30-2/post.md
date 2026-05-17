@@ -21,7 +21,7 @@ Night Three (of four) in Tokyo on Bruce's first solo acoustic tour.
 
 **1997:**<br>
 
-[https://videopress.com/embed/gjTxDcPj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gjTxDcPj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/gjTxDcPj](https://videopress.com/embed/gjTxDcPj)
 
 Bruce rehearses for a benefit concert in Red Bank for a New Jersey police officer murdered two months earlier.
 
@@ -31,17 +31,17 @@ Bruce rehearses for a benefit concert in Red Bank for a New Jersey police office
 
 **2017**[Brown Eyed Girl](http://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/)[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[Shout](https://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/)
 
-[https://www.youtube.com/embed/vqeVGnWwnxM?feature=oembed](https://www.youtube.com/embed/vqeVGnWwnxM?feature=oembed)
+[https://www.youtube.com/embed/vqeVGnWwnxM](https://www.youtube.com/embed/vqeVGnWwnxM)
 
-[https://www.youtube.com/embed/KnbRVAnsx5I?feature=oembed](https://www.youtube.com/embed/KnbRVAnsx5I?feature=oembed)
+[https://www.youtube.com/embed/KnbRVAnsx5I](https://www.youtube.com/embed/KnbRVAnsx5I)
 
-[https://www.youtube.com/embed/5wnQSfOAXc0?feature=oembed](https://www.youtube.com/embed/5wnQSfOAXc0?feature=oembed)
+[https://www.youtube.com/embed/5wnQSfOAXc0](https://www.youtube.com/embed/5wnQSfOAXc0)
 
-[https://www.youtube.com/embed/Z4F9Zdg_-RI?feature=oembed](https://www.youtube.com/embed/Z4F9Zdg_-RI?feature=oembed)
+[https://www.youtube.com/embed/Z4F9Zdg_-RI](https://www.youtube.com/embed/Z4F9Zdg_-RI)
 
-[https://www.youtube.com/embed/iUrBQ5_xv_I?feature=oembed](https://www.youtube.com/embed/iUrBQ5_xv_I?feature=oembed)
+[https://www.youtube.com/embed/iUrBQ5_xv_I](https://www.youtube.com/embed/iUrBQ5_xv_I)
 
-[https://www.youtube.com/embed/eN1Y66j_go8?feature=oembed](https://www.youtube.com/embed/eN1Y66j_go8?feature=oembed)
+[https://www.youtube.com/embed/eN1Y66j_go8](https://www.youtube.com/embed/eN1Y66j_go8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2017-01-30.png?resize=758%2C753&amp;ssl=1)
 
@@ -49,7 +49,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-[https://videopress.com/embed/skrkDRF5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/skrkDRF5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/skrkDRF5](https://videopress.com/embed/skrkDRF5)
 
 Bruce chats with Clive Davis at Clive's virtual pre-Grammy party.
 

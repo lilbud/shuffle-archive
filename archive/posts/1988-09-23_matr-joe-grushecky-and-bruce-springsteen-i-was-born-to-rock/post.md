@@ -12,7 +12,7 @@ That moment came in May 2014, when Bruce joined Joe for a pair of Pittsburgh sho
 
 Take a listen below and enjoy Joe and Bruce's only team-up to date on "I Was Born to Rock."
 
-[https://videopress.com/embed/TTD71Lro?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/TTD71Lro?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/TTD71Lro](https://videopress.com/embed/TTD71Lro)
 
 **I Was Born to Rock**<br>
 **First performed:** May 22, 2014 (Pittsburgh, PA)<br>

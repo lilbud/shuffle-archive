@@ -5,17 +5,17 @@ Bruce and the E Street Band open for Chicago at the Baltimore Civic Center. Prio
 
 **1973:**<br>
 
-[https://www.youtube.com/embed/NPAVhepem1A?feature=oembed](https://www.youtube.com/embed/NPAVhepem1A?feature=oembed)
+[https://www.youtube.com/embed/NPAVhepem1A](https://www.youtube.com/embed/NPAVhepem1A)
 
 Listen to Bruce recall his memory of this show 36 years later:
 
-[https://www.youtube.com/embed/KhV6i-sWdBg?feature=oembed](https://www.youtube.com/embed/KhV6i-sWdBg?feature=oembed)
+[https://www.youtube.com/embed/KhV6i-sWdBg](https://www.youtube.com/embed/KhV6i-sWdBg)
 
 Bruce and the band headline at the Agora in Toledo, Ohio. This show is notable for its opener: the only known performance of "A Night Like This" (also known as "Angel Baby" or "Dance On Little Angel"), an outtake that remains unreleased to this day.
 
 **1974:**<br>
 
-[https://www.youtube.com/embed/iBgH1Irpf2w?feature=oembed](https://www.youtube.com/embed/iBgH1Irpf2w?feature=oembed)
+[https://www.youtube.com/embed/iBgH1Irpf2w](https://www.youtube.com/embed/iBgH1Irpf2w)
 
 Recording continues for Bruce's fourth album. Today the band works on "."
 
@@ -37,15 +37,15 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 [Sea Cruise](http://estreetshuffle.com/index.php/2018/04/08/cover-me-sea-cruise/)
 
-[https://videopress.com/embed/BynSK9FG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BynSK9FG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/BynSK9FG](https://videopress.com/embed/BynSK9FG)
 
 At Night Four at London's Wembley Arena, Link Wray guest-stars on "." In attendance at tonight's show: Joe Jackson, Kim Carnes, Elvis Costello, Paul Cook of The Sex Pistols, all of The Pretenders except for Chrissie Hynde, all of the Ants except for Adam, and unnamed members of U2, The Psychedelic Furs, The Fabulous Thunderbirds, and The Members.
 
 **1981:** [I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)
 
-[https://videopress.com/embed/ITvqaqNw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ITvqaqNw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ITvqaqNw](https://videopress.com/embed/ITvqaqNw)
 
-[https://www.youtube.com/embed/ibBf1Xvalvg?feature=oembed](https://www.youtube.com/embed/ibBf1Xvalvg?feature=oembed)
+[https://www.youtube.com/embed/ibBf1Xvalvg](https://www.youtube.com/embed/ibBf1Xvalvg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/1981-06-02.jpg?w=758&amp;ssl=1)
 
@@ -57,7 +57,7 @@ Bruce, Roy, Patti, and the Miami Horns join Max Weinberg's band Killer Joe on st
 
 **1989:**<br>
 
-[https://videopress.com/embed/Z5HLzrqT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Z5HLzrqT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Z5HLzrqT](https://videopress.com/embed/Z5HLzrqT)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1989-06-02-152x300.jpg?resize=758%2C1496)
 
@@ -65,7 +65,7 @@ Bruce and the E Street Band bring the Reunion Tour to Paris for the first of two
 
 **1999:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
-[https://videopress.com/embed/uFeEsKEc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uFeEsKEc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uFeEsKEc](https://videopress.com/embed/uFeEsKEc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Fort_Worth_Star_Telegram_Thu__Jun_3__1999_-scaled.jpg?resize=758%2C844&amp;ssl=1)
 
@@ -79,7 +79,7 @@ Bruce plays a solo acoustic show in Madrid.
 
 **2005:**<br>
 
-[https://videopress.com/embed/HAYMQ1R9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HAYMQ1R9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/HAYMQ1R9](https://videopress.com/embed/HAYMQ1R9)
 
 The Working on a Dream Tour starts its Scandinavian swing with a show at Ratinan Stadion in Tampere, Finland. It may be June, but that doesn't stop Bruce from playing "" as a request, along with a wonderful cover of "."
 
@@ -87,19 +87,19 @@ The Working on a Dream Tour starts its Scandinavian swing with a show at Ratinan
 
 [https://videopress.com/embed/76xBJLMt?hd=0&amp;cover=1](https://videopress.com/embed/76xBJLMt?hd=0&amp;cover=1)
 
-[https://videopress.com/embed/5wnxi5ha?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5wnxi5ha?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/5wnxi5ha](https://videopress.com/embed/5wnxi5ha)
 
-[https://videopress.com/embed/qdxQG7Bg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qdxQG7Bg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/qdxQG7Bg](https://videopress.com/embed/qdxQG7Bg)
 
-[https://videopress.com/embed/iLz3cZeB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iLz3cZeB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/iLz3cZeB](https://videopress.com/embed/iLz3cZeB)
 
 The Wrecking Ball Tour makes a brief stop in Spain for a show at San Sebastian, opening with the tour premiere of "."
 
 **2012:**[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)
 
-[https://www.youtube.com/embed/oZ8IoszA4Y0?feature=oembed](https://www.youtube.com/embed/oZ8IoszA4Y0?feature=oembed)
+[https://www.youtube.com/embed/oZ8IoszA4Y0](https://www.youtube.com/embed/oZ8IoszA4Y0)
 
-[https://www.youtube.com/embed/5iUpbVxRILQ?feature=oembed](https://www.youtube.com/embed/5iUpbVxRILQ?feature=oembed)
+[https://www.youtube.com/embed/5iUpbVxRILQ](https://www.youtube.com/embed/5iUpbVxRILQ)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 

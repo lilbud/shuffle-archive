@@ -19,13 +19,13 @@ Bruce rehearses with the E Street Band at his home studio in Holmdel. Listen to 
 
 **1979:**<br>
 
-[https://www.youtube.com/embed/48hBjV19GlM?feature=oembed](https://www.youtube.com/embed/48hBjV19GlM?feature=oembed)
+[https://www.youtube.com/embed/48hBjV19GlM](https://www.youtube.com/embed/48hBjV19GlM)
 
 Those poor ticket holders for Bruce's second River Tour show in Manchester, England: The original concert was postponed from March 24th when Bruce took ill, and on this night, Bruce is sick again. He performs an abbreviated set (five songs fewer than the night before) at the Apollo Theatre, the shortest show of the European leg.
 
 **1981:**<br>
 
-[https://videopress.com/embed/oAGgq6zb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oAGgq6zb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/oAGgq6zb](https://videopress.com/embed/oAGgq6zb)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1981-0514.jpg?resize=758%2C539&amp;ssl=1)
 
@@ -49,17 +49,17 @@ Bruce's World Tour 1993 moves on to Germany for the first of four shows. The ope
 
 **1993:**<br>
 
-[https://www.youtube.com/embed/Fg1Uze7_2W4?feature=oembed](https://www.youtube.com/embed/Fg1Uze7_2W4?feature=oembed)
+[https://www.youtube.com/embed/Fg1Uze7_2W4](https://www.youtube.com/embed/Fg1Uze7_2W4)
 
-[https://www.youtube.com/embed/ndB2ehvz51o?feature=oembed](https://www.youtube.com/embed/ndB2ehvz51o?feature=oembed)
+[https://www.youtube.com/embed/ndB2ehvz51o](https://www.youtube.com/embed/ndB2ehvz51o)
 
-[https://www.youtube.com/embed/spuJ2Tg638s?feature=oembed](https://www.youtube.com/embed/spuJ2Tg638s?feature=oembed)
+[https://www.youtube.com/embed/spuJ2Tg638s](https://www.youtube.com/embed/spuJ2Tg638s)
 
 At his solo show at the Patriot Center in Fairfax, Bruce treats fans to the tour premieres of "Wreck on the Highway" (his first performance of that song in over a decade), "The Ghost of Tom Joad," and "Dry Lightning."
 
 **2005:**<br>
 
-[https://www.youtube.com/embed/aurDV4QN-Os?feature=oembed](https://www.youtube.com/embed/aurDV4QN-Os?feature=oembed)
+[https://www.youtube.com/embed/aurDV4QN-Os](https://www.youtube.com/embed/aurDV4QN-Os)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Richmond_Times_Dispatch_Mon__May_16__2005_.jpg?resize=758%2C295&amp;ssl=1)
 
@@ -67,9 +67,9 @@ The Seeger Sessions Tour stops in Barcelona. Watch the local news coverage and i
 
 **2006:**<br>
 
-[https://www.youtube.com/embed/mC9qvPAAtWQ?feature=oembed](https://www.youtube.com/embed/mC9qvPAAtWQ?feature=oembed)
+[https://www.youtube.com/embed/mC9qvPAAtWQ](https://www.youtube.com/embed/mC9qvPAAtWQ)
 
-[https://www.youtube.com/embed/NwWucsw4CHY?feature=oembed](https://www.youtube.com/embed/NwWucsw4CHY?feature=oembed)
+[https://www.youtube.com/embed/NwWucsw4CHY](https://www.youtube.com/embed/NwWucsw4CHY)
 
 [https://www.youtube.com/embed/L0WRrA5EiO4?start=195&amp;feature=oembed](https://www.youtube.com/embed/L0WRrA5EiO4?start=195&amp;feature=oembed)
 
@@ -77,11 +77,11 @@ Max Weinberg misses his first show in 35 years as his son Jay takes over the dru
 
 **2009:**<br>
 
-[https://www.youtube.com/embed/W9yRr0nYzTQ?feature=oembed](https://www.youtube.com/embed/W9yRr0nYzTQ?feature=oembed)
+[https://www.youtube.com/embed/W9yRr0nYzTQ](https://www.youtube.com/embed/W9yRr0nYzTQ)
 
-[https://www.youtube.com/embed/TDE_1WmFqo0?feature=oembed](https://www.youtube.com/embed/TDE_1WmFqo0?feature=oembed)
+[https://www.youtube.com/embed/TDE_1WmFqo0](https://www.youtube.com/embed/TDE_1WmFqo0)
 
-[https://videopress.com/embed/1rgn9jg5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1rgn9jg5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1rgn9jg5](https://videopress.com/embed/1rgn9jg5)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2009-05-14.jpg?resize=758%2C949&amp;ssl=1)
 
@@ -89,27 +89,27 @@ Bruce continues playing full albums on the Wrecking Ball Tour, this time in Cope
 
 **2013:** *Born to Run*
 
-[https://www.youtube.com/embed/8wH4V9rMXCI?feature=oembed](https://www.youtube.com/embed/8wH4V9rMXCI?feature=oembed)
+[https://www.youtube.com/embed/8wH4V9rMXCI](https://www.youtube.com/embed/8wH4V9rMXCI)
 
-[https://www.youtube.com/embed/RnWZVuOAJbg?feature=oembed](https://www.youtube.com/embed/RnWZVuOAJbg?feature=oembed)
+[https://www.youtube.com/embed/RnWZVuOAJbg](https://www.youtube.com/embed/RnWZVuOAJbg)
 
-[https://www.youtube.com/embed/DjeFNBDQCnc?feature=oembed](https://www.youtube.com/embed/DjeFNBDQCnc?feature=oembed)
+[https://www.youtube.com/embed/DjeFNBDQCnc](https://www.youtube.com/embed/DjeFNBDQCnc)
 
-[https://www.youtube.com/embed/tkucXqYD6I0?feature=oembed](https://www.youtube.com/embed/tkucXqYD6I0?feature=oembed)
+[https://www.youtube.com/embed/tkucXqYD6I0](https://www.youtube.com/embed/tkucXqYD6I0)
 
 The High Hopes Tour makes its penultimate stop in Hershey, Pennsylvania, where the set includes an opening "Clampdown," the tour premiere of "Be True," and a stunning solo piano performance of "For You."
 
 **2014:**<br>
 
-[https://www.youtube.com/embed/ZWwZoz9pRWE?feature=oembed](https://www.youtube.com/embed/ZWwZoz9pRWE?feature=oembed)
+[https://www.youtube.com/embed/ZWwZoz9pRWE](https://www.youtube.com/embed/ZWwZoz9pRWE)
 
-[https://www.youtube.com/embed/xZuMWcKdRT0?feature=oembed](https://www.youtube.com/embed/xZuMWcKdRT0?feature=oembed)
+[https://www.youtube.com/embed/xZuMWcKdRT0](https://www.youtube.com/embed/xZuMWcKdRT0)
 
-[https://www.youtube.com/embed/SGiIjWDlM0o?feature=oembed](https://www.youtube.com/embed/SGiIjWDlM0o?feature=oembed)
+[https://www.youtube.com/embed/SGiIjWDlM0o](https://www.youtube.com/embed/SGiIjWDlM0o)
 
-[https://www.youtube.com/embed/Pg_HcKbWbd4?feature=oembed](https://www.youtube.com/embed/Pg_HcKbWbd4?feature=oembed)
+[https://www.youtube.com/embed/Pg_HcKbWbd4](https://www.youtube.com/embed/Pg_HcKbWbd4)
 
-[https://www.youtube.com/embed/qz-EYmmp7_g?feature=oembed](https://www.youtube.com/embed/qz-EYmmp7_g?feature=oembed)
+[https://www.youtube.com/embed/qz-EYmmp7_g](https://www.youtube.com/embed/qz-EYmmp7_g)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2014-05-14a-1.jpg?resize=758%2C817&amp;ssl=1)
 
@@ -117,18 +117,18 @@ The European leg of the River Tour kicks off with a show at Camp Nou in Barcelon
 
 **2016:** *The River*
 
-[https://www.youtube.com/embed/c5qV9LPdRss?feature=oembed](https://www.youtube.com/embed/c5qV9LPdRss?feature=oembed)
+[https://www.youtube.com/embed/c5qV9LPdRss](https://www.youtube.com/embed/c5qV9LPdRss)
 
-[https://www.youtube.com/embed/5iwY2o496cI?feature=oembed](https://www.youtube.com/embed/5iwY2o496cI?feature=oembed)
+[https://www.youtube.com/embed/5iwY2o496cI](https://www.youtube.com/embed/5iwY2o496cI)
 
 The Land of Hope and Dreams Tour kicks off in Manchester with a defiant setlist that includes the live debut of "Rainmaker" and the long-awaited return of "Chimes of Freedom." Bruce's opening remarks make news worldwide.
 
 **2025:**<br>
 
-[https://www.youtube.com/embed/M2-y-3a9RPg?feature=oembed](https://www.youtube.com/embed/M2-y-3a9RPg?feature=oembed)
+[https://www.youtube.com/embed/M2-y-3a9RPg](https://www.youtube.com/embed/M2-y-3a9RPg)
 
-[https://www.youtube.com/embed/HhKnhDbDn7g?feature=oembed](https://www.youtube.com/embed/HhKnhDbDn7g?feature=oembed)
+[https://www.youtube.com/embed/HhKnhDbDn7g](https://www.youtube.com/embed/HhKnhDbDn7g)
 
-[https://www.youtube.com/embed/HK1WMIHRsQM?feature=oembed](https://www.youtube.com/embed/HK1WMIHRsQM?feature=oembed)
+[https://www.youtube.com/embed/HK1WMIHRsQM](https://www.youtube.com/embed/HK1WMIHRsQM)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/The_Guardian_2025_05_16_9.jpg?w=758&amp;ssl=1)

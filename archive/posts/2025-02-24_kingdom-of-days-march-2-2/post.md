@@ -11,7 +11,7 @@ Bruce and the E Street Band open for Blood, Sweat & Tears at Berkeley Community 
 
 **1973:**<br>
 
-[https://www.youtube.com/embed/iGvbEvZtK1Q?feature=oembed](https://www.youtube.com/embed/iGvbEvZtK1Q?feature=oembed)
+[https://www.youtube.com/embed/iGvbEvZtK1Q](https://www.youtube.com/embed/iGvbEvZtK1Q)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1973-03-02a.jpg?resize=758%2C1058&amp;ssl=1)
 
@@ -39,7 +39,7 @@ The River Tour moves on to the Hampton Roads Coliseum in Hampton, Virginia.
 
 **1981:**<br>
 
-[https://videopress.com/embed/1tSamoBy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1tSamoBy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/1tSamoBy](https://videopress.com/embed/1tSamoBy)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1981-03-02.jpg?resize=484%2C1513&amp;ssl=1)
 
@@ -47,7 +47,7 @@ A rare "E Street Sneak Attack" as the entire band (minus Roy) plays a set at The
 
 **1986:**<br>
 
-[https://videopress.com/embed/cfkCcj42?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cfkCcj42?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/cfkCcj42](https://videopress.com/embed/cfkCcj42)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1986-03-02.jpg?resize=758%2C1034&amp;ssl=1)
 
@@ -55,7 +55,7 @@ Bruce wins the Best Rock Vocal Performance (Solo) Grammy Award for "" Although h
 
 **1988:** [Tunnel of Love.](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[Paradise by the ‘C'](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)
 
-[https://www.youtube.com/embed/M4K7XZGeHTE?feature=oembed](https://www.youtube.com/embed/M4K7XZGeHTE?feature=oembed)
+[https://www.youtube.com/embed/M4K7XZGeHTE](https://www.youtube.com/embed/M4K7XZGeHTE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-02.png?resize=758%2C1895&amp;ssl=1)
 
@@ -63,19 +63,19 @@ Bruce plays a solo acoustic show at City Hall in Newcastle, England.
 
 **1996:**<br>
 
-[https://videopress.com/embed/ZMVCQBKw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZMVCQBKw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/ZMVCQBKw](https://videopress.com/embed/ZMVCQBKw)
 
-[https://videopress.com/embed/YXSuSBPK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YXSuSBPK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/YXSuSBPK](https://videopress.com/embed/YXSuSBPK)
 
-[https://www.youtube.com/embed/_gFzjfrLx6Q?feature=oembed](https://www.youtube.com/embed/_gFzjfrLx6Q?feature=oembed)
+[https://www.youtube.com/embed/_gFzjfrLx6Q](https://www.youtube.com/embed/_gFzjfrLx6Q)
 
-[https://www.youtube.com/embed/k6AXwphqK_Q?feature=oembed](https://www.youtube.com/embed/k6AXwphqK_Q?feature=oembed)
+[https://www.youtube.com/embed/k6AXwphqK_Q](https://www.youtube.com/embed/k6AXwphqK_Q)
 
 Bruce joins Joe Grushecky and the Houserockers for a set at Nick's Fat City in Pittsburgh.
 
 **1998:**<br>
 
-[https://videopress.com/embed/4T7qarfJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4T7qarfJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/4T7qarfJ](https://videopress.com/embed/4T7qarfJ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1998-03-02.jpg?resize=758%2C1011&amp;ssl=1)
 
@@ -85,7 +85,7 @@ Joe Ely joins the E Street Band for "" and "" during the Austin stop on the Risi
 
 **2003:** [All Just to Get to You](https://estreetshuffle.com/index.php/2022/02/23/matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/)[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)[War](http://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)
 
-[https://www.youtube.com/embed/PD3t4lMXybc?feature=oembed](https://www.youtube.com/embed/PD3t4lMXybc?feature=oembed)
+[https://www.youtube.com/embed/PD3t4lMXybc](https://www.youtube.com/embed/PD3t4lMXybc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2003-03-02-rotated.jpg?resize=405%2C3556&amp;ssl=1)
 
@@ -93,9 +93,9 @@ The Magic Tour begins its Canadian leg with a show at Bell Center in Montreal. A
 
 **2008:** [Livin' in the Future](https://estreetshuffle.com/index.php/2023/06/24/roll-of-the-dice-livin-in-the-future/)
 
-[https://www.youtube.com/embed/xuib4SIvRYo?feature=oembed](https://www.youtube.com/embed/xuib4SIvRYo?feature=oembed)
+[https://www.youtube.com/embed/xuib4SIvRYo](https://www.youtube.com/embed/xuib4SIvRYo)
 
-[https://www.youtube.com/embed/wiE2z3gYOwQ?feature=oembed](https://www.youtube.com/embed/wiE2z3gYOwQ?feature=oembed)
+[https://www.youtube.com/embed/wiE2z3gYOwQ](https://www.youtube.com/embed/wiE2z3gYOwQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2008-03-02a-300x140.jpg?resize=758%2C354)
 
@@ -105,21 +105,21 @@ Bruce is a guest on , where he pokes fun of himself by dressing as his -era self
 
 **2012:***Late Night with Jimmy Fallon**Born in the U.S.A.*[Sexy and I Know It](http://estreetshuffle.com/index.php/2018/03/24/matr-bruce-springsteen-and-jimmy-fallon-sexy-and-i-know-it/)[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)[Jack of All Trades](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)
 
-[https://videopress.com/embed/9ki7nHat?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9ki7nHat?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/9ki7nHat](https://videopress.com/embed/9ki7nHat)
 
-[https://videopress.com/embed/HbJUzeGe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HbJUzeGe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/HbJUzeGe](https://videopress.com/embed/HbJUzeGe)
 
-[https://videopress.com/embed/I43auK8y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/I43auK8y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/I43auK8y](https://videopress.com/embed/I43auK8y)
 
 Night two in Auckland, New Zealand again features an acoustic cover of "" to open, along with another full album performance–this time .
 
 **2014:**[Royals](https://estreetshuffle.com/index.php/2020/04/25/cover-me-royals/)*Born to Run*
 
-[https://www.youtube.com/embed/xfJvrH7iQ3c?feature=oembed](https://www.youtube.com/embed/xfJvrH7iQ3c?feature=oembed)
+[https://www.youtube.com/embed/xfJvrH7iQ3c](https://www.youtube.com/embed/xfJvrH7iQ3c)
 
-[https://www.youtube.com/embed/jCQr8tBOrX8?feature=oembed](https://www.youtube.com/embed/jCQr8tBOrX8?feature=oembed)
+[https://www.youtube.com/embed/jCQr8tBOrX8](https://www.youtube.com/embed/jCQr8tBOrX8)
 
-[https://www.youtube.com/embed/EOHpfEA8CbQ?feature=oembed](https://www.youtube.com/embed/EOHpfEA8CbQ?feature=oembed)
+[https://www.youtube.com/embed/EOHpfEA8CbQ](https://www.youtube.com/embed/EOHpfEA8CbQ)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -129,6 +129,6 @@ For the first time since the tour's opening week, the entire E Street Band is on
 
 **2023:**<br>
 
-[https://www.youtube.com/embed/g5oP1quX97Q?feature=oembed](https://www.youtube.com/embed/g5oP1quX97Q?feature=oembed)
+[https://www.youtube.com/embed/g5oP1quX97Q](https://www.youtube.com/embed/g5oP1quX97Q)
 
-[https://www.youtube.com/embed/fJK7SXLdq_Q?feature=oembed](https://www.youtube.com/embed/fJK7SXLdq_Q?feature=oembed)
+[https://www.youtube.com/embed/fJK7SXLdq_Q](https://www.youtube.com/embed/fJK7SXLdq_Q)

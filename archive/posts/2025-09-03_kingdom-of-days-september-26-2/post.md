@@ -11,9 +11,9 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1975:** [Meeting Across the River](http://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)
 
-[https://www.youtube.com/embed/_faCjM2_xbY?feature=oembed](https://www.youtube.com/embed/_faCjM2_xbY?feature=oembed)
+[https://www.youtube.com/embed/_faCjM2_xbY](https://www.youtube.com/embed/_faCjM2_xbY)
 
-[https://www.youtube.com/embed/H9BsJXUt0EQ?feature=oembed](https://www.youtube.com/embed/H9BsJXUt0EQ?feature=oembed)
+[https://www.youtube.com/embed/H9BsJXUt0EQ](https://www.youtube.com/embed/H9BsJXUt0EQ)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1975-09-26.jpg?resize=758%2C2125&amp;ssl=1)
 
@@ -21,9 +21,9 @@ The Lawsuit Tour kicks off at the Arizona Veterans Memorial Coliseum in Phoenix,
 
 **1976:** [Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
 
-[https://www.youtube.com/embed/hsJjFUCRk7k?feature=oembed](https://www.youtube.com/embed/hsJjFUCRk7k?feature=oembed)
+[https://www.youtube.com/embed/hsJjFUCRk7k](https://www.youtube.com/embed/hsJjFUCRk7k)
 
-[https://videopress.com/embed/uRqygABS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uRqygABS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/uRqygABS](https://videopress.com/embed/uRqygABS)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1976-09-26-238x300.jpg?resize=758%2C956)
 
@@ -39,15 +39,15 @@ Bruce and the boys rehearse for the upcoming River Tour at Clair Brothers Audio 
 
 **1980:**<br>
 
-[https://www.youtube.com/embed/ypJO5gYTrIU?feature=oembed](https://www.youtube.com/embed/ypJO5gYTrIU?feature=oembed)
+[https://www.youtube.com/embed/ypJO5gYTrIU](https://www.youtube.com/embed/ypJO5gYTrIU)
 
-[https://www.youtube.com/embed/U3e4VsNMdHk?feature=oembed](https://www.youtube.com/embed/U3e4VsNMdHk?feature=oembed)
+[https://www.youtube.com/embed/U3e4VsNMdHk](https://www.youtube.com/embed/U3e4VsNMdHk)
 
-[https://www.youtube.com/embed/ONG9z8R4kFA?feature=oembed](https://www.youtube.com/embed/ONG9z8R4kFA?feature=oembed)
+[https://www.youtube.com/embed/ONG9z8R4kFA](https://www.youtube.com/embed/ONG9z8R4kFA)
 
-[https://www.youtube.com/embed/DE4eSXVm6Yo?feature=oembed](https://www.youtube.com/embed/DE4eSXVm6Yo?feature=oembed)
+[https://www.youtube.com/embed/DE4eSXVm6Yo](https://www.youtube.com/embed/DE4eSXVm6Yo)
 
-[https://www.youtube.com/embed/cXxpliYZ-dg?feature=oembed](https://www.youtube.com/embed/cXxpliYZ-dg?feature=oembed)
+[https://www.youtube.com/embed/cXxpliYZ-dg](https://www.youtube.com/embed/cXxpliYZ-dg)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1980-09-26-300x260.jpg?resize=732%2C634)
 
@@ -55,7 +55,7 @@ Bruce makes a guest appearance with Southside Johnny and The Asbury Jukes at Mor
 
 **1984:**<br>
 
-[https://videopress.com/embed/BLB6tDyx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BLB6tDyx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/BLB6tDyx](https://videopress.com/embed/BLB6tDyx)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1984-0926-192x300.jpg?resize=758%2C1185)
 
@@ -71,9 +71,9 @@ Bruce joins Southside Johnny and The Asbury Jukes at The Stone Pony, where the s
 
 **1991:** *Having a Party With Southside Johnny**Better Days*
 
-[https://www.youtube.com/embed/uN_88I-2HDM?feature=oembed](https://www.youtube.com/embed/uN_88I-2HDM?feature=oembed)
+[https://www.youtube.com/embed/uN_88I-2HDM](https://www.youtube.com/embed/uN_88I-2HDM)
 
-[https://www.youtube.com/embed/nQQquAfM89A?feature=oembed](https://www.youtube.com/embed/nQQquAfM89A?feature=oembed)
+[https://www.youtube.com/embed/nQQquAfM89A](https://www.youtube.com/embed/nQQquAfM89A)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1991-09-26a.jpg?resize=758%2C1131&amp;ssl=1)
 
@@ -83,9 +83,9 @@ At his solo acoustic show at the University of Michigan in Ann Arbor, Bruce repr
 
 **1996:** [In Michigan](https://estreetshuffle.com/index.php/2022/04/12/roll-of-the-dice-in-michigan/)[Plane Wreck at Los Gatos (Deportee)](http://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)
 
-[https://www.youtube.com/embed/Y_HHMd94a0s?feature=oembed](https://www.youtube.com/embed/Y_HHMd94a0s?feature=oembed)
+[https://www.youtube.com/embed/Y_HHMd94a0s](https://www.youtube.com/embed/Y_HHMd94a0s)
 
-[https://www.youtube.com/embed/Ob8WU6LhsVs?feature=oembed](https://www.youtube.com/embed/Ob8WU6LhsVs?feature=oembed)
+[https://www.youtube.com/embed/Ob8WU6LhsVs](https://www.youtube.com/embed/Ob8WU6LhsVs)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/The_South_Bend_Tribune_1996_09_27_35.jpg?w=758&amp;ssl=1)
 

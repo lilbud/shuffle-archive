@@ -5,4 +5,4 @@ I'm a big Catie Curtis fan, so I've known and loved her cover of "" for years, s
 
 This is the exact take that's on the album, and it's fascinating to see her record it live.
 
-[https://www.youtube.com/embed/aFNaQ23r-IM?feature=oembed](https://www.youtube.com/embed/aFNaQ23r-IM?feature=oembed)
+[https://www.youtube.com/embed/aFNaQ23r-IM](https://www.youtube.com/embed/aFNaQ23r-IM)
