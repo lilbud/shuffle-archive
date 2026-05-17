@@ -1,102 +1,81 @@
+***New for 2025:** Reviews for 1973; new entry for 1977 and 1983*
 
-*Reviews for 1973; new entry for 1977 and 1983***New for 2025:**
+**1973:** Bruce and his band open for Chicago at the Civic Center in Springfield.
 
-Bruce and his band open for Chicago at the Civic Center in Springfield.
+![](https://estreetshuffle.com/wp-content/uploads/2025/06/The_Morning_Union_1973_06_11_4.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/06/The_Republican_1973_06_11_11-scaled.jpg)
 
-**1973:**<br>
+**1977:** Bruce and the E Street Band hold recording sessions for what will become *Darkness on the Edge of Town* at Atlantic Studios in New York City.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/06/The_Morning_Union_1973_06_11_4.jpg?resize=758%2C367&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/06/The_Republican_1973_06_11_11.jpg?w=758&amp;ssl=1)
+**1978:** When the Darkness Tour stops in Bloomington, Minnesota, snippets of several songs are filmed on Super-8 film by fans.
 
-Bruce and the E Street Band hold recording sessions for what will become at Atlantic Studios in New York City.
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Live at Bloomington 1978 (10/06/1978)](https://www.youtube.com/watch?v=m0EoHOCSym4)
 
-**1977:** *Darkness on the Edge of Town*
+[Watch on Youtube: She's the One-78.Ipod.mp4](https://www.youtube.com/watch?v=LH4de0n_t9U)
 
-When the Darkness Tour stops in Bloomington, Minnesota, snippets of several songs are filmed on Super-8 film by fans.
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-06-10a.jpg)
 
-**1978:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-06-10b.jpg)
 
-[https://www.youtube.com/embed/m0EoHOCSym4](https://www.youtube.com/embed/m0EoHOCSym4)
+**1983:** Bruce and the E Street Band record “[Richfield Whistle](https://estreetshuffle.com/index.php/2022/12/01/roll-of-the-dice-richfield-whistle/)” at The Hit Factory in New York City. As of this writing, it has yet to see an official release (but stay tuned).
 
-[https://www.youtube.com/embed/LH4de0n_t9U](https://www.youtube.com/embed/LH4de0n_t9U)
+**1984:** Bruce and Nils join Cats on a Smooth Surface at the band’s Stone Pony gig.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-06-10a-266x300.jpg?resize=758%2C855)
+**1988:** Bruce and the E Street Band play a warm-up set at Stadio Comunale in Turin, the day before the kick-off of the European leg of the Tunnel of Love Tour.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-06-10b-300x140.jpg?resize=758%2C354)
+**2003:** “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” makes its first post-Reunion appearance at Bruce’s Rising show in Munich. Bruce opens the show with a solo acoustic “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” and plays “[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)” in Germany for the first time.
 
-Bruce and the E Street Band record "" at The Hit Factory in New York City. As of this writing, it has yet to see an official release (but stay tuned).
+[Watch on Youtube: Bruce Springsteen Munich 10/06/2003 soundcheck](https://www.youtube.com/watch?v=vyyQCkZul3I)
 
-**1983:** [Richfield Whistle](https://estreetshuffle.com/index.php/2022/12/01/roll-of-the-dice-richfield-whistle/)
+[Watch on Youtube: Bruce Springsteen Born in the USA München 2003](https://www.youtube.com/watch?v=EhgTAmIdbZM)
 
-Bruce and Nils join Cats on a Smooth Surface at the band's Stone Pony gig.
+[Watch on Youtube: Jackson Cage](https://www.youtube.com/watch?v=R6mW7rhr37c)
 
-**1984:**<br>
+[Watch Video Highlight](https://videopress.com/embed/AToQ8tHh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the E Street Band play a warm-up set at Stadio Comunale in Turin, the day before the kick-off of the European leg of the Tunnel of Love Tour.
+[Watch on Youtube: Bruce Springsteen Further on up the road München 2003](https://www.youtube.com/watch?v=D2GwqWnz8Dk)
 
-**1988:**<br>
+Also on this date in 2003: the BBC premieres a three-part series narrated by Johnnie Walker, profiling Bruce’s life and career.
 
-"" makes its first post-Reunion appearance at Bruce's Rising show in Munich. Bruce opens the show with a solo acoustic "" and plays "" in Germany for the first time.
+[An American Life - The Bruce Springsteen Story - Episode 1 - June 10, 2003](https://www.mixcloud.com/widget/iframe/?feed=https%3A%2F%2Fwww.mixcloud.com%2Fcameron-mcmenemy%2Fan-american-life-the-bruce-springsteen-story-episode-1-june-10-2003%2F&hide_cover=1)
 
-**2003:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)
 
-[https://www.youtube.com/embed/vyyQCkZul3I](https://www.youtube.com/embed/vyyQCkZul3I)
 
-[https://www.youtube.com/embed/EhgTAmIdbZM](https://www.youtube.com/embed/EhgTAmIdbZM)
+**2006:** The Seeger Sessions Tour stops at the Wells Fargo Arena in Des Moines, Iowa.
 
-[https://www.youtube.com/embed/R6mW7rhr37c](https://www.youtube.com/embed/R6mW7rhr37c)
+[Watch Video Highlight](https://videopress.com/embed/DrAHXxgk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/AToQ8tHh](https://videopress.com/embed/AToQ8tHh)
+[Watch Video Highlight](https://videopress.com/embed/opayhzP9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/D2GwqWnz8Dk](https://www.youtube.com/embed/D2GwqWnz8Dk)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2006-06-10.jpg)
 
-Also on this date in 2003: the BBC premieres a three-part series narrated by Johnnie Walker, profiling Bruce's life and career.
+**2009:** At Night Two in Bergen on the Working on a Dream Tour, Bruce treats Norwegian fans to the tour premieres of “[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)” and “[Two Hearts.](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)”
 
-[https://www.mixcloud.com/widget/iframe/?feed=https%3A%2F%2Fwww.mixcloud.com%2Fcameron-mcmenemy%2Fan-american-life-the-bruce-springsteen-story-episode-1-june-10-2003%2F&amp;hide_cover=1](https://www.mixcloud.com/widget/iframe/?feed=https%3A%2F%2Fwww.mixcloud.com%2Fcameron-mcmenemy%2Fan-american-life-the-bruce-springsteen-story-episode-1-june-10-2003%2F&amp;hide_cover=1)
+[Watch on Youtube: Bruce Springsteen - Koengen - Bergen, Norway - June 10th 2009 - Night #2 (Pro-Shot)](https://www.youtube.com/watch?v=FqnIxkrtA48)
 
-The Seeger Sessions Tour stops at the Wells Fargo Arena in Des Moines, Iowa.
+[Watch on Youtube: Bruce Springsteen - Boom Boom - Bergen 2009-06-10 CLOSEUP](https://www.youtube.com/watch?v=6rSQee5iRsk)
 
-**2006:**<br>
+**2012:** The Italian leg of the Wrecking Ball Tour continues with a show at Stadio Artemio Franchi in Florence, where fans witness the tour premieres of “[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)” and “[Burning Love](https://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/).”
 
-[https://videopress.com/embed/DrAHXxgk](https://videopress.com/embed/DrAHXxgk)
+[Watch on Youtube: Bruce Springsteen - Intro(Ennio Morricone), Badlands, No Surrender (Firenze - 10/06/12)](https://www.youtube.com/watch?v=lUSZtl0sQPo)
 
-[https://videopress.com/embed/opayhzP9](https://videopress.com/embed/opayhzP9)
+[Watch on Youtube: Bruce Springsteen - Burning Love Firenze 2012](https://www.youtube.com/watch?v=D-wa_zByHMw)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2006-06-10-269x300.jpg?resize=758%2C846)
+[Watch on Youtube: Bruce Springsteen - The River, Firenze 10 june 2012](https://www.youtube.com/watch?v=j9U-OV0Jmm4)
 
-At Night Two in Bergen on the Working on a Dream Tour, Bruce treats Norwegian fans to the tour premieres of "" and ""
+**2013:** Bruce arrives in London for his Wrecking Ball show and sings “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” (in support of ONE) with an acoustic guitar from the balcony of MTV Networks Europe. Watch the performance below–the video is wonderfully shot and recorded.
 
-**2009:** [Boom Boom](http://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)[Two Hearts.](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)
+[Watch on Youtube: Bruce Springsteen The Promised Land Acoustic](https://www.youtube.com/watch?v=NtAlPiVtqD0)
 
-[https://www.youtube.com/embed/FqnIxkrtA48](https://www.youtube.com/embed/FqnIxkrtA48)
+**2018:** Bruce receives a special Tony Award from Billy Joel for *Springsteen on Broadway*. He performs “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” at the televised ceremonies (introduced by Robert De Niro), along with an abridged version of its introduction from the show.
 
-[https://www.youtube.com/embed/6rSQee5iRsk](https://www.youtube.com/embed/6rSQee5iRsk)
+[Watch Video Highlight](https://videopress.com/embed/VuOKNznQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-The Italian leg of the Wrecking Ball Tour continues with a show at Stadio Artemio Franchi in Florence, where fans witness the tour premieres of "" and "."
+**2021:** Bruce phones in to E Street Radio and talks about the upcoming return of *Springsteen on Broadway*.
 
-**2012:** [Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)[Burning Love](http://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/)
+[https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-10-Bruce-on-E-St-Radio.m4a?_=9](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-10-Bruce-on-E-St-Radio.m4a?_=9)
 
-[https://www.youtube.com/embed/lUSZtl0sQPo](https://www.youtube.com/embed/lUSZtl0sQPo)
+<https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-10-Bruce-on-E-St-Radio.m4a>
 
-[https://www.youtube.com/embed/D-wa_zByHMw](https://www.youtube.com/embed/D-wa_zByHMw)
+**2023:** On their last night before resuming their European tour, Bruce and Stevie catch Peter Gabriel on stage in Cologne.
 
-[https://www.youtube.com/embed/j9U-OV0Jmm4](https://www.youtube.com/embed/j9U-OV0Jmm4)
-
-Bruce arrives in London for his Wrecking Ball show and sings "" (in support of ONE) with an acoustic guitar from the balcony of MTV Networks Europe. Watch the performance below–the video is wonderfully shot and recorded.
-
-**2013:** [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
-
-[https://www.youtube.com/embed/NtAlPiVtqD0](https://www.youtube.com/embed/NtAlPiVtqD0)
-
-Bruce receives a special Tony Award from Billy Joel for . He performs "" at the televised ceremonies (introduced by Robert De Niro), along with an abridged version of its introduction from the show.
-
-**2018:** *Springsteen on Broadway*[My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
-
-[https://videopress.com/embed/VuOKNznQ](https://videopress.com/embed/VuOKNznQ)
-
-Bruce phones in to E Street Radio and talks about the upcoming return of .
-
-**2021:** *Springsteen on Broadway*<https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-10-Bruce-on-E-St-Radio.m4a>
-
-On their last night before resuming their European tour, Bruce and Stevie catch Peter Gabriel on stage in Cologne.
-
-**2023:**<br>
+ 

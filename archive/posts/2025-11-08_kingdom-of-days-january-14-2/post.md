@@ -1,78 +1,61 @@
+**1973:** Bruce and the E Street Band conclude their seven-day, twice-a-day gig at Paul’s Mall in Boston.
 
-Bruce and the E Street Band conclude their seven-day, twice-a-day gig at Paul's Mall in Boston.
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/1973-01-14.png)
 
-**1973:**<br>
+**1980:** At the Power Station in New York City, Bruce and the E Street Band record “Restless Nights.”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1973-01-14.png?resize=758%2C1270&amp;ssl=1)
+[Watch on Youtube: Restless Nights (Studio Outtake - 1980)](https://www.youtube.com/watch?v=DCFYLa02WzE)
 
-At the Power Station in New York City, Bruce and the E Street Band record "Restless Nights."
+**1984**: Bruce joins John Eddie for six songs at the Patrix in New Brunswick, New Jersey.
 
-**1980:**<br>
+[Watch Video Highlight](https://videopress.com/embed/ATjdzWXO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/DCFYLa02WzE](https://www.youtube.com/embed/DCFYLa02WzE)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/1984-01-14a.png)
 
-: Bruce joins John Eddie for six songs at the Patrix in New Brunswick, New Jersey.
+![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Central_New_Jersey_Home_News_1984_01_16_7-1.jpg)
 
-**1984**<br>
+**2005:** *MTV Unplugged* (the home video release) is certified gold by the Recording Industry Association of America.
 
-[https://videopress.com/embed/ATjdzWXO](https://videopress.com/embed/ATjdzWXO)
+[Watch on Youtube: In Concert/MTV Plugged](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pbccXmiIkXNfQ2dUMIu6OVT)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1984-01-14a.png?resize=758%2C265&amp;ssl=1)
+**2006:** Bruce attends *The Nebraska Project*, a tribute event to the Springsteen album of the same name, at the World Financial Center Winter Garden in New York City. A series of performers cover the tracks from the album; Bruce then joins all the artists for an encore of “[Oklahoma Hills](https://estreetshuffle.com/index.php/2021/05/17/matr-bruce-springsteen-arlo-guthrie-joe-ely-and-jimmy-lafave-oklahoma-hills/)” and explains the true motivation behind the famous album.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Central_New_Jersey_Home_News_1984_01_16_7-1.jpg?resize=758%2C458&amp;ssl=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3?_=8)
 
-(the home video release) is certified gold by the Recording Industry Association of America.
+<https://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3>
 
-**2005:** *MTV Unplugged*
+[Watch on Youtube: SPRINGSTEEN JOKES NEBRASKA PROJECT GOT IT WRONG](https://www.youtube.com/watch?v=fzmcmc6s35U)
 
-[https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pbccXmiIkXNfQ2dUMIu6OVT](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pbccXmiIkXNfQ2dUMIu6OVT)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/2006-01-14.png)
 
-Bruce attends , a tribute event to the Springsteen album of the same name, at the World Financial Center Winter Garden in New York City. A series of performers cover the tracks from the album; Bruce then joins all the artists for an encore of "" and explains the true motivation behind the famous album.
+**2012:** Bruce makes a “surprise” appearance at the Light of Day benefit in Asbury Park (it’s usually more of a surprise when he *doesn’t* show up), joining Garland Jeffreys for “[Wild in the Streets](https://estreetshuffle.com/index.php/2018/04/18/matr-garland-jeffreys-and-bruce-springsteen-wild-in-the-streets/),” Willie Nile for “[One Guitar](https://estreetshuffle.com/index.php/2018/05/16/meeting-across-the-river-bruce-springsteen-and-willie-nile-one-guitar/),” a solo rendition of “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” and then an entire set with Joe Grushecky and the Houserockers.
 
-**2006:***The Nebraska Project*[Oklahoma Hills](https://estreetshuffle.com/index.php/2021/05/17/matr-bruce-springsteen-arlo-guthrie-joe-ely-and-jimmy-lafave-oklahoma-hills/)<http://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3>
+[Watch on Youtube: Garland Jeffreys - Wild in the Streets (Live w/ Bruce Springsteen)](https://www.youtube.com/watch?v=dC092YbIK80)
 
-[https://www.youtube.com/embed/fzmcmc6s35U](https://www.youtube.com/embed/fzmcmc6s35U)
+[Watch on Youtube: Willie Nile & Bruce Springsteen perform One Guitar, LoD 2012](https://www.youtube.com/watch?v=45lgN76_IYo)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2006-01-14.png?resize=758%2C243&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen LIght of Day "Incident on 57th Street" 1/14/12](https://www.youtube.com/watch?v=0P4j7mIRX9E)
 
-Bruce makes a "surprise" appearance at the Light of Day benefit in Asbury Park (it's usually more of a surprise when he show up), joining Garland Jeffreys for "," Willie Nile for "," a solo rendition of "," and then an entire set with Joe Grushecky and the Houserockers.
+[Watch on Youtube: Bruce Springsteen Light of Day "Save my Love" 1/14/12](https://www.youtube.com/watch?v=KBQrF3cu6eo)
 
-**2012:***doesn't*[Wild in the Streets](http://estreetshuffle.com/index.php/2018/04/18/matr-garland-jeffreys-and-bruce-springsteen-wild-in-the-streets/)[One Guitar](http://estreetshuffle.com/index.php/2018/05/16/meeting-across-the-river-bruce-springsteen-and-willie-nile-one-guitar/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
+[Watch on Youtube: Bruce Springsteen LIght of Day "Darkness on the Edge of Town" Light of day 1/14/12 .MOV](https://www.youtube.com/watch?v=K191g1aU07I)
 
-[https://www.youtube.com/embed/dC092YbIK80](https://www.youtube.com/embed/dC092YbIK80)
+[Watch on Youtube: Bruce Springsteen "Light of Day" Light of Day 12 1/14/2012](https://www.youtube.com/watch?v=v14MwFI7Uhk)
 
-[https://www.youtube.com/embed/45lgN76_IYo](https://www.youtube.com/embed/45lgN76_IYo)
+**2014:** *High Hopes* is released, Bruce’s eighteenth studio album.
 
-[https://www.youtube.com/embed/0P4j7mIRX9E?start=292&amp;feature=oembed](https://www.youtube.com/embed/0P4j7mIRX9E?start=292&amp;feature=oembed)
+[Watch on Youtube: High Hopes](https://www.youtube.com/playlist?list=OLAK5uy_kbLz3tpjFtb1WpZRb5KL6heqhqKuCpuzM)
 
-[https://www.youtube.com/embed/KBQrF3cu6eo](https://www.youtube.com/embed/KBQrF3cu6eo)
+To mark the occasion, Bruce and the E Street Band (+Tom Morello, -Steve Van Zandt) appear on *Late Night With Jimmy Fallon*, playing “[Heaven’s Wall](https://estreetshuffle.com/index.php/2020/02/02/roll-of-the-dice-heavens-wall/)” (the first live performance of that song), and “[Just Like Fire Would.](https://estreetshuffle.com/index.php/2020/05/24/cover-me-just-like-fire-would/)”
 
-[https://www.youtube.com/embed/K191g1aU07I](https://www.youtube.com/embed/K191g1aU07I)
+Oh, and the first and only performance of “[Gov. Christie Traffic Jam](https://estreetshuffle.com/index.php/2022/08/31/matr-rotd-bruce-springsteen-and-jimmy-fallon-gov-christie-traffic-jam/).”
 
-[https://www.youtube.com/embed/v14MwFI7Uhk](https://www.youtube.com/embed/v14MwFI7Uhk)
+[www.facebook.com/SpringsteenChile](https://player.vimeo.com/video/84278263?dnt=1&app_id=122963)
 
-is released, Bruce's eighteenth studio album.
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/2014-01-14.png)
 
-**2014:** *High Hopes*
+**2020:** Bruce and Patti attend the swearing-in ceremony for their son Sam as he becomes a firefighter for the Jersey City Fire Department.
 
-[https://www.youtube.com/embed/videoseries?list=OLAK5uy_kbLz3tpjFtb1WpZRb5KL6heqhqKuCpuzM](https://www.youtube.com/embed/videoseries?list=OLAK5uy_kbLz3tpjFtb1WpZRb5KL6heqhqKuCpuzM)
+[Watch on Youtube: Sam Springsteen, Bruce Springsteen's son, sworn in as Jersey City firefighter](https://www.youtube.com/watch?v=LT9bWyCtO6E)
 
-To mark the occasion, Bruce and the E Street Band (+Tom Morello, -Steve Van Zandt) appear on , playing "" (the first live performance of that song), and ""
-
-*Late Night With Jimmy Fallon*[Heaven's Wall](https://estreetshuffle.com/index.php/2020/02/02/roll-of-the-dice-heavens-wall/)[Just Like Fire Would.](https://estreetshuffle.com/index.php/2020/05/24/cover-me-just-like-fire-would/)
-
-Oh, and the first and only performance of "."
-
-[Gov. Christie Traffic Jam](https://estreetshuffle.com/index.php/2022/08/31/matr-rotd-bruce-springsteen-and-jimmy-fallon-gov-christie-traffic-jam/)
-
-[https://player.vimeo.com/video/84278263?dnt=1&amp;app_id=122963](https://player.vimeo.com/video/84278263?dnt=1&amp;app_id=122963)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2014-01-14.png?resize=758%2C720&amp;ssl=1)
-
-Bruce and Patti attend the swearing-in ceremony for their son Sam as he becomes a firefighter for the Jersey City Fire Department.
-
-**2020:**<br>
-
-[https://www.youtube.com/embed/LT9bWyCtO6E](https://www.youtube.com/embed/LT9bWyCtO6E)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2020-01-14.png?resize=758%2C1300&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/2020-01-14.png)

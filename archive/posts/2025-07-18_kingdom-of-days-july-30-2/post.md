@@ -1,118 +1,89 @@
+***New for 2025:** No updates*
 
-*No updates***New for 2025:**
+**1974:** Bruce and the E Street Band co-headline with Roger McGuinn at The Troubadour in West Hollywood, a surprise gig that only became public three days prior. (Bruce doesn’t actually take the stage until almost 2am, however, so this technically qualifies as an entry for July 31.)
 
-Bruce and the E Street Band co-headline with Roger McGuinn at The Troubadour in West Hollywood, a surprise gig that only became public three days prior. (Bruce doesn't actually take the stage until almost 2am, however, so this technically qualifies as an entry for July 31.)
+**1975:** Bruce wraps up a three-night stand at the Carter Barron Amphitheater in Washington DC’s Rock Creek Park, where he debuts his cover of The Drifters’ “[Up on the Roof](https://estreetshuffle.com/index.php/2018/12/15/cover-me-up-on-the-roof/).”
 
-**1974:**<br>
+[Watch on Youtube: Bruce Springsteen - "Up on the Roof" - Washington DC, 1975-07-30](https://www.youtube.com/watch?v=eYu78f4lNvs)
 
-Bruce wraps up a three-night stand at the Carter Barron Amphitheater in Washington DC's Rock Creek Park, where he debuts his cover of The Drifters' "."
+![](https://estreetshuffle.com/wp-content/uploads/2018/07/1975-0730.jpg)
 
-**1975:** [Up on the Roof](http://estreetshuffle.com/index.php/2018/12/15/cover-me-up-on-the-roof/)
+**1981:** Southside Johnny guest-stars on “[I Don’t Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)” when Bruce and the E Street Band bring the River Tour to Richfield, Ohio for the second of two nights.
 
-[https://www.youtube.com/embed/eYu78f4lNvs](https://www.youtube.com/embed/eYu78f4lNvs)
+[Watch Video Highlight](https://videopress.com/embed/RwhE4R38?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1975-0730-300x248.jpg?resize=758%2C627)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1981-07-30.png)
 
-Southside Johnny guest-stars on "" when Bruce and the E Street Band bring the River Tour to Richfield, Ohio for the second of two nights.
+![](https://estreetshuffle.com/wp-content/uploads/2018/07/1981-0730.jpg)
 
-**1981:** [I Don't Want to Go Home](http://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)
+![](https://estreetshuffle.com/wp-content/uploads/2018/07/1984-0730.jpg)
 
-[https://videopress.com/embed/RwhE4R38](https://videopress.com/embed/RwhE4R38)
+**1984:** At the first of two nights in Detroit on the Born in the U.S.A. Tour, Bruce tour premieres “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” in a new arrangement. In attendance tonight: *Funky Winkerbean* cartoonist Tom Batiuk.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1981-07-30-300x254.png?resize=758%2C641)
+[Watch Video Highlight](https://videopress.com/embed/1Tbv8N9O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1981-0730-272x300.jpg?resize=758%2C836)
+[Watch on Youtube: Bruce Springsteen Born in the USA Concert - 7/30/84](https://www.youtube.com/watch?v=dLdutnQxZUI)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1984-0730-208x300.jpg?resize=758%2C1093)
+![](https://estreetshuffle.com/wp-content/uploads/2021/07/1984-07-30a-scaled.jpg)
 
-At the first of two nights in Detroit on the Born in the U.S.A. Tour, Bruce tour premieres "" in a new arrangement. In attendance tonight: cartoonist Tom Batiuk.
+![](https://estreetshuffle.com/wp-content/uploads/2021/07/1984-07-30b.jpg)
 
-**1984:** [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)*Funky Winkerbean*
+**1985:** Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former home of Big Man’s West in Red Bank.
 
-[https://videopress.com/embed/1Tbv8N9O](https://videopress.com/embed/1Tbv8N9O)
+**1987:** Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey, playing reggae versions of “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” and “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/),” along with covers of “[One Love](https://estreetshuffle.com/index.php/2019/11/28/matr-bruce-springsteen-and-jah-love-one-love-people-get-ready/)” and “[People Get Ready.](https://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)”
 
-[https://www.youtube.com/embed/dLdutnQxZUI](https://www.youtube.com/embed/dLdutnQxZUI)
+[Watch Video Highlight](https://videopress.com/embed/r1cTI473?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1984-07-30a.jpg?resize=758%2C412&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - My hometown (reggae version)](https://www.youtube.com/watch?v=xVV5FTnI4FM)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1984-07-30b.jpg?resize=758%2C959&amp;ssl=1)
+**1988:** The Tunnel of Love Tour nears its end with this final German show in Bremen, where “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” makes its tour debut.
 
-Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
+[Watch Video Highlight](https://videopress.com/embed/mpsQeIHo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1985:**<br>
+**1992:** At Night Five of eleven at World Tour 1992’s opening stand in the Meadowlands, Bruce performs “[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)” for the first time, and “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” comes out as well, accompanied by only Bruce and Roy.
 
-Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey, playing reggae versions of "" and "," along with covers of "" and ""
+[Watch on Youtube: Bruce Springsteen All the way home meadowlands 1992](https://www.youtube.com/watch?v=_FhpvZT3dks)
 
-**1987:** [Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)[My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)[One Love](http://estreetshuffle.com/index.php/2019/11/28/matr-bruce-springsteen-and-jah-love-one-love-people-get-ready/)[People Get Ready.](http://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)
+**2002:** Finally! After 18 years, Bruce releases a new E Street Band album. *The Rising* is an instant success, the darling of music reviewers and critics, and the catalyst for a new era that lasts to this day, cementing the return of the E Street Band. To celebrate the occasion, Bruce and the band get up early to appear on NBC’s *Today Show* for a mini-concert. Katie Couric interviews virtually the entire band (poor Garry!) before the show. Watch that fun interview below, followed by the songs performed that morning.
 
-[https://videopress.com/embed/r1cTI473](https://videopress.com/embed/r1cTI473)
+[Watch on Youtube: Bruce Springsteen - Today Show Interview and "The Rising" - 7/30/02](https://www.youtube.com/watch?v=ar-qvX1F0t4)
 
-[https://www.youtube.com/embed/xVV5FTnI4FM](https://www.youtube.com/embed/xVV5FTnI4FM)
+[Watch on Youtube: Bruce Springsteen Lonesome Day Today Show](https://www.youtube.com/watch?v=-Nv6q-7zj-c)
 
-The Tunnel of Love Tour nears its end with this final German show in Bremen, where "" makes its tour debut.
+[Watch on Youtube: Bruce Springsteen & ESB 03 Glory Days Today Show 7 30 02](https://www.youtube.com/watch?v=OiMBq3xASts)
 
-**1988:** [Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
+[Watch on Youtube: Bruce Springsteen - "Into the Fire" - Today Show 7/30/02](https://www.youtube.com/watch?v=CBFOdcaPAI0)
 
-[https://videopress.com/embed/mpsQeIHo](https://videopress.com/embed/mpsQeIHo)
+That night, Bruce and the band play a public warm-up show, where “[Paradise](https://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/)” debuts and “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)” returns after a decade of absence. “Into the Fire” features a stunning introduction that features Clarence on bagpipes, but it will be gone when the tour begins in proper.
 
-At Night Five of eleven at World Tour 1992's opening stand in the Meadowlands, Bruce performs "" for the first time, and "" comes out as well, accompanied by only Bruce and Roy.
+[Watch on Youtube: Bruce Springsteen Convention Hall Asbury Park 30/07/2002 Full Concert](https://www.youtube.com/watch?v=YdsNXmNw1PI)
 
-**1992:** [All the Way Home](http://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
+[Watch on Youtube: Bruce Springsteen - Paradise (Live 2002, Audio)](https://www.youtube.com/watch?v=5Oh6eapJuPI)
 
-[https://www.youtube.com/embed/_FhpvZT3dks](https://www.youtube.com/embed/_FhpvZT3dks)
+[Watch Video Highlight](https://videopress.com/embed/u6r6AnpC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Finally! After 18 years, Bruce releases a new E Street Band album. is an instant success, the darling of music reviewers and critics, and the catalyst for a new era that lasts to this day, cementing the return of the E Street Band. To celebrate the occasion, Bruce and the band get up early to appear on NBC's for a mini-concert. Katie Couric interviews virtually the entire band (poor Garry!) before the show. Watch that fun interview below, followed by the songs performed that morning.
+Finally, ABC’s *Nightline* airs Bruce’s performance of “[Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/)” recorded a few days earlier.
 
-**2002:** *The Rising**Today Show*
+[Watch on Youtube: Bruce Springsteen Empty Sky live nightline 080102](https://www.youtube.com/watch?v=-pgzJ7Iyg6Q)
 
-[https://www.youtube.com/embed/ar-qvX1F0t4](https://www.youtube.com/embed/ar-qvX1F0t4)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30a.png)
 
-[https://www.youtube.com/embed/-Nv6q-7zj-c](https://www.youtube.com/embed/-Nv6q-7zj-c)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30b.png)
 
-[https://www.youtube.com/embed/OiMBq3xASts](https://www.youtube.com/embed/OiMBq3xASts)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30c.png)
 
-[https://www.youtube.com/embed/CBFOdcaPAI0](https://www.youtube.com/embed/CBFOdcaPAI0)
+**2007:** Bruce’s close friend, personal assistant, and right-hand man Terry Magovern passes away at the age of 67. Terry’s life and death will inspire Bruce to write “[Terry’s Song](https://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/).”
 
-That night, Bruce and the band play a public warm-up show, where "" debuts and "" returns after a decade of absence. "Into the Fire" features a stunning introduction that features Clarence on bagpipes, but it will be gone when the tour begins in proper.
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/2007-07-30.png)
 
-[Paradise](http://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/)[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)
+**2009:** A beautiful set list in Benidorm, Spain, on the Working on a Dream Tour, as “[Janey, Don’t You Lose Heart,](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” “[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/),” and “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” receive their tour debuts and “[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)” gets a rare outing.
 
-[https://www.youtube.com/embed/YdsNXmNw1PI](https://www.youtube.com/embed/YdsNXmNw1PI)
+[Watch on Youtube: Bruce Springsteen - Prove It All Night - 30 07 09](https://www.youtube.com/watch?v=mZw8n91G2nY)
 
-[https://www.youtube.com/embed/5Oh6eapJuPI](https://www.youtube.com/embed/5Oh6eapJuPI)
+[Watch on Youtube: Bruce Springsteen, Janey Don't You Lose Heart, Benidorm, 30/07/09](https://www.youtube.com/watch?v=Ye-LtocznFQ)
 
-[https://videopress.com/embed/u6r6AnpC](https://videopress.com/embed/u6r6AnpC)
+[Watch on Youtube: Bruce Springsteen Benidorm 30 -7- 2009 tv canal 9](https://www.youtube.com/watch?v=TsAkWxv8AdA)
 
-Finally, ABC's airs Bruce's performance of "" recorded a few days earlier.
+[Watch on Youtube: Bruce Springsteen, Girls in Their Summer Clothes, Benidorm, 30th July 2009](https://www.youtube.com/watch?v=G5AgJr1q0b4)
 
-*Nightline*[Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/)
-
-[https://www.youtube.com/embed/-pgzJ7Iyg6Q](https://www.youtube.com/embed/-pgzJ7Iyg6Q)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30a-260x300.png?resize=758%2C874)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30b-266x300.png?resize=758%2C855)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30c-300x267.png?resize=758%2C674)
-
-Bruce's close friend, personal assistant, and right-hand man Terry Magovern passes away at the age of 67. Terry's life and death will inspire Bruce to write "."
-
-**2007:** [Terry's Song](http://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2007-07-30-300x110.png?resize=758%2C278)
-
-A beautiful set list in Benidorm, Spain, on the Working on a Dream Tour, as "" "," and "" receive their tour debuts and "" gets a rare outing.
-
-**2009:** [Janey, Don't You Lose Heart,](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)[Girls in Their Summer Clothes](http://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)
-
-[https://www.youtube.com/embed/mZw8n91G2nY](https://www.youtube.com/embed/mZw8n91G2nY)
-
-[https://www.youtube.com/embed/Ye-LtocznFQ](https://www.youtube.com/embed/Ye-LtocznFQ)
-
-[https://www.youtube.com/embed/TsAkWxv8AdA](https://www.youtube.com/embed/TsAkWxv8AdA)
-
-[https://www.youtube.com/embed/G5AgJr1q0b4](https://www.youtube.com/embed/G5AgJr1q0b4)
-
-As the Wrecking Ball Tour prepares to wrap up its European leg and return to America, publishes an on Bruce and the E Street Band.
-
-**2012:** *The New Yorker* [extensive piece](https://www.newyorker.com/magazine/2012/07/30/we-are-alive)
+**2012:** As the Wrecking Ball Tour prepares to wrap up its European leg and return to America, *The New Yorker* publishes an [extensive piece](https://www.newyorker.com/magazine/2012/07/30/we-are-alive) on Bruce and the E Street Band.

@@ -1,60 +1,45 @@
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/2016-02-04.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/2016-02-04-229x300.jpg?resize=758%2C993)
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/1973-02-04.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1973-02-04.jpg?resize=436%2C500&amp;ssl=1)
+**1972:** The Bruce Springsteen Band opens a nine-show stand at The Back Door in Richmond, where the band will play for much of the month. Listen to their set below.
 
-The Bruce Springsteen Band opens a nine-show stand at The Back Door in Richmond, where the band will play for much of the month. Listen to their set below.
+[Watch Video Highlight](https://videopress.com/embed/x5Fk6fi8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1972:**<br>
+**1973:** Bruce and the as-yet-unnamed E Street Band play their fifth of six nights at Max’s Kansas City in New York, both opening and closing for headliner Biff Rose.
 
-[https://videopress.com/embed/x5Fk6fi8](https://videopress.com/embed/x5Fk6fi8)
+**1981:** Bruce and the band play Southern Illinois University in Carbondale along the original River Tour.
 
-Bruce and the as-yet-unnamed E Street Band play their fifth of six nights at Max's Kansas City in New York, both opening and closing for headliner Biff Rose.
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/1981-02-04.jpg)
 
-**1973:**<br>
+**1991:** Bruce and Patti attend the opening night of Sting’s stand at the Wiltern Theater in Los Angeles. Entertainment Tonight catches a brief glimpse of the pair (not yet married) during their segment covering the show.
 
-Bruce and the band play Southern Illinois University in Carbondale along the original River Tour.
+[Watch on Youtube: Entertainment Tonight - 1991-02-05 - Sting profile with Bruce and Patti cameo](https://www.youtube.com/watch?v=wGnu-V5Yeeo)
 
-**1981:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/1991-02-04.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-02-04.jpg?resize=605%2C936&amp;ssl=1)
+**1997:** Bruce plays his first ever Australian solo acoustic show at the QPAC Concert Hall in Brisbane.
 
-Bruce and Patti attend the opening night of Sting's stand at the Wiltern Theater in Los Angeles. Entertainment Tonight catches a brief glimpse of the pair (not yet married) during their segment covering the show.
+[Watch Video Highlight](https://videopress.com/embed/vJwTbTcJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1991:**<br>
+**2009:** *Working on a Dream* debuts at #1 on the Billboard album chart, bumping defending champion Taylor Swift.
 
-[https://www.youtube.com/embed/wGnu-V5Yeeo](https://www.youtube.com/embed/wGnu-V5Yeeo)
+![](https://estreetshuffle.com/wp-content/uploads/2025/02/Star_Phoenix_2009_02_05_22-scaled.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1991-02-04.png?resize=758%2C624&amp;ssl=1)
+**2016:** The River Tour (2016 version) stops at TD Garden in Boston, where “[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)” makes its tour debut and Peter Wolf joins for the closing “[Shout](https://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/).”
 
-Bruce plays his first ever Australian solo acoustic show at the QPAC Concert Hall in Brisbane.
+[Watch on Youtube: Bruce Springsteen - 2016 - Boston - Roulette - HQ Audio](https://www.youtube.com/watch?v=_a90c44zGXY)
 
-**1997:**<br>
+[Watch on Youtube: Bruce Springsteen w/ Peter Wolf & the E Street Band - Shout - Boston - 2.4.16](https://www.youtube.com/watch?v=iWiE_zd0Ve0)
 
-[https://videopress.com/embed/vJwTbTcJ](https://videopress.com/embed/vJwTbTcJ)
+**2017:** On Night Two in Melbourne, Bruce continues to make subtle political statements by opening with “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/).” Surprisingly (given how many times he’s played it) and comically, Bruce completely spaces on how to start “[Waitin’ on a Sunny Day.](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)” He and Steve spend about two minutes repeatedly trying to figure it out before the crowd finally takes matters into their own hands. Also making their tour debut tonight: “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/),” “This Hard Land,” “and [Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/).”
 
-debuts at #1 on the Billboard album chart, bumping defending champion Taylor Swift.
+[Watch on Youtube: Bruce Springsteen, ESB, American Land, Melbourne, AAMI Park, 4 February 2017](https://www.youtube.com/watch?v=3cU0klJsEOc)
 
-**2009:** *Working on a Dream*
+[Watch on Youtube: Bruce Springsteen & The E Street Band - This Hard Land [Melbourne, AUS - 04.FEB.2017]](https://www.youtube.com/watch?v=OArUh9n8MYI)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/Star_Phoenix_2009_02_05_22.jpg?w=758&amp;ssl=1)
+[Watch on Youtube: 2017-02-04 - Bruce Springsteen - Melbourne, AAMI Park - NEW YORK CITY SERENADE - incomplete](https://www.youtube.com/watch?v=vw7MkHJoNgU)
 
-The River Tour (2016 version) stops at TD Garden in Boston, where "" makes its tour debut and Peter Wolf joins for the closing "."
+[Watch on Youtube: Waiting on A Sunny Day - Bruce Springsteen - Melbourne AAMI Stadium - 4th February 2017](https://www.youtube.com/watch?v=cbfeXiETnnM)
 
-**2016:**[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)[Shout](http://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/)
-
-[https://www.youtube.com/embed/_a90c44zGXY](https://www.youtube.com/embed/_a90c44zGXY)
-
-[https://www.youtube.com/embed/iWiE_zd0Ve0](https://www.youtube.com/embed/iWiE_zd0Ve0)
-
-On Night Two in Melbourne, Bruce continues to make subtle political statements by opening with "." Surprisingly (given how many times he's played it) and comically, Bruce completely spaces on how to start "" He and Steve spend about two minutes repeatedly trying to figure it out before the crowd finally takes matters into their own hands. Also making their tour debut tonight: "," "This Hard Land," "and ."
-
-**2017:**[American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)[Waitin' on a Sunny Day.](http://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)
-
-[https://www.youtube.com/embed/3cU0klJsEOc](https://www.youtube.com/embed/3cU0klJsEOc)
-
-[https://www.youtube.com/embed/OArUh9n8MYI](https://www.youtube.com/embed/OArUh9n8MYI)
-
-[https://www.youtube.com/embed/vw7MkHJoNgU](https://www.youtube.com/embed/vw7MkHJoNgU)
-
-[https://www.youtube.com/embed/cbfeXiETnnM](https://www.youtube.com/embed/cbfeXiETnnM)
+ 

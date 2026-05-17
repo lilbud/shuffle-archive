@@ -1,188 +1,143 @@
+***New for 2025:** New entry for 1974 and 2024*
 
-*New entry for 1974 and 2024***New for 2025:**
+**1970:** Steel Mill headlines at Monmouth College, where Danny Federici, still on the lam after the infamous swim club show, makes an appearance and turns himself in shortly thereafter.
 
-Steel Mill headlines at Monmouth College, where Danny Federici, still on the lam after the infamous swim club show, makes an appearance and turns himself in shortly thereafter.
+![](https://estreetshuffle.com/wp-content/uploads/2021/10/1970-10-17a.png)
 
-**1970:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1970-10-17b.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1970-10-17a.png?resize=758%2C1395&amp;ssl=1)
+**1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1970-10-17b-116x300.png?resize=758%2C1960)
+![](https://estreetshuffle.com/wp-content/uploads/2018/09/1971-1017.jpg)
 
-The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
+**1973:** Bruce and the E Street Band play their third of five nights at Oliver’s in Boston.
 
-**1971:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/10/1973-1016.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-1017-185x300.jpg?resize=758%2C1229)
+**1974:** Bruce and the E Street Band work on “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” during a recording session at 914 Sound Studios in Blauvelt, New York.
 
-Bruce and the E Street Band play their third of five nights at Oliver's in Boston.
+**1975:** Bruce and the E Street Band play two shows at the Roxy in West Hollywood, the first of which is broadcast live on the radio.
 
-**1973:**<br>
+[Watch on Youtube: Bruce Springsteen Live Concert - The Roxy 10/17/75](https://www.youtube.com/watch?v=Lg01I4qSQf4)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1973-1016-240x300.jpg?resize=758%2C947)
-
-Bruce and the E Street Band work on "" during a recording session at 914 Sound Studios in Blauvelt, New York.
-
-**1974:** [Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
-
-Bruce and the E Street Band play two shows at the Roxy in West Hollywood, the first of which is broadcast live on the radio.
-
-**1975:**<br>
-
-[https://www.youtube.com/embed/Lg01I4qSQf4](https://www.youtube.com/embed/Lg01I4qSQf4)
+[https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3?_=16](https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3?_=16)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3>
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/47753636752_5d704a5bfc_o-300x249.jpg?resize=758%2C629)
+![](https://estreetshuffle.com/wp-content/uploads/2019/10/47753636752_5d704a5bfc_o.jpg)
 
-Bruce and the boys play their first of two Lawsuit Tour shows at Georgetown University.
+**1976:** Bruce and the boys play their first of two Lawsuit Tour shows at Georgetown University.
 
-**1976:**<br>
+[Watch Video Highlight](https://videopress.com/embed/y9o1VLNX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/y9o1VLNX](https://videopress.com/embed/y9o1VLNX)
+![](https://estreetshuffle.com/wp-content/uploads/2021/10/1976-1017.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1976-1017.jpg?resize=731%2C573&amp;ssl=1)
+**1978:** Bruce makes a guest appearance with The Knack at their show at the Troubadour in West Hollywood, where they jam to “Mona” into “[Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/).”
 
-Bruce makes a guest appearance with The Knack at their show at the Troubadour in West Hollywood, where they jam to "Mona" into "."
+[Watch on Youtube: Bruce Springsteen and The Knack, "Mona/Not Fade Away" - 1978-10-17](https://www.youtube.com/watch?v=2mn9G4zdRQ0)
 
-**1978:** [Not Fade Away](http://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)
+**1979:** Photographer David Gahr captures Bruce and the E Street Band on film during a day of photo shoots in New Jersey.
 
-[https://www.youtube.com/embed/2mn9G4zdRQ0](https://www.youtube.com/embed/2mn9G4zdRQ0)
+![](https://estreetshuffle.com/wp-content/uploads/2019/10/1979-10-17a.jpg)
 
-Photographer David Gahr captures Bruce and the E Street Band on film during a day of photo shoots in New Jersey.
+![](https://estreetshuffle.com/wp-content/uploads/2019/10/1979-10-17b.jpg)
 
-**1979:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2019/10/1979-10-17c.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1979-10-17a-300x199.jpg?resize=758%2C503)
+**1980:** Bruce and the E Street Band play a show–the first of two on the River Tour–at the Kiel Opera House in St. Louis.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1979-10-17b-300x198.jpg?resize=758%2C500)
+[Watch Video Highlight](https://videopress.com/embed/bxlCMxZT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1979-10-17c-300x200.jpg?resize=758%2C505)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1980-10-17.png)
 
-Bruce and the E Street Band play a show–the first of two on the River Tour–at the Kiel Opera House in St. Louis.
+**1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. Tour shows at the Tacoma Dome. Bruce starts to come down with flu symptoms earlier in the day, and by the time the show ends, he is full-blown sick.
 
-**1980:**<br>
+[Watch Video Highlight](https://videopress.com/embed/VH3WetqL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/bxlCMxZT](https://videopress.com/embed/bxlCMxZT)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17d.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-10-17-300x215.png?resize=758%2C543)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17a.png)
 
-Bruce and the E Street Band play their first of two Born in the U.S.A. Tour shows at the Tacoma Dome. Bruce starts to come down with flu symptoms earlier in the day, and by the time the show ends, he is full-blown sick.
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17b.png)
 
-**1984:**<br>
+**1992:** World Tour 1992 continues its Canadian leg with a show at the Olympic Saddledome in Calgary, Bruce’s first-ever show in Alberta.
 
-[https://videopress.com/embed/VH3WetqL](https://videopress.com/embed/VH3WetqL)
+[Watch Video Highlight](https://videopress.com/embed/6SNwRz24?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17d-243x300.png?resize=758%2C936)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1992-10-17.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17a-290x300.png?resize=758%2C784)
+**1994:** *The River* is certified 3x multi-platinum and *Born in the U.S.A.* 14x multi-platinum by the Recording Industry Association of America.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17b-300x300.png?resize=758%2C758)
+[Watch on Youtube: The River](https://www.youtube.com/playlist?list=OLAK5uy_nQCRH689dsWcnQUgI1Tv3xx4UqJCzlHA4)
 
-World Tour 1992 continues its Canadian leg with a show at the Olympic Saddledome in Calgary, Bruce's first-ever show in Alberta.
+[Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1992:**<br>
+**1995:** Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushecky at The Stone Pony for the kick-off of a mini-tour in support of [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/), Joe’s new Bruce-produced album released earlier today.
 
-[https://videopress.com/embed/6SNwRz24](https://videopress.com/embed/6SNwRz24)
+[Watch on Youtube: Bruce Springsteen - Down The Road Apiece (audio)](https://www.youtube.com/watch?v=k3hhViVRpf0)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-10-17-300x264.png?resize=758%2C667)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17a.png)
 
-is certified 3x multi-platinum and 14x multi-platinum by the Recording Industry Association of America.
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17b.png)
 
-**1994:***The River* *Born in the U.S.A.*
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17c.png)
 
-[https://www.youtube.com/embed/videoseries?list=OLAK5uy_nQCRH689dsWcnQUgI1Tv3xx4UqJCzlHA4](https://www.youtube.com/embed/videoseries?list=OLAK5uy_nQCRH689dsWcnQUgI1Tv3xx4UqJCzlHA4)
+**1996:** Bruce plays the second of two solo acoustic Ghost of Tom Joad Tour shows at Denver’s Paramount Theater.
 
-[https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0](https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
+[Watch Video Highlight](https://videopress.com/embed/0padY2o4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushecky at The Stone Pony for the kick-off of a mini-tour in support of , Joe's new Bruce-produced album released earlier today.
+**1999:** Bruce and the reunited E Street Band kick off a four-night stand in Los Angeles with the very first concert to be held at the new Staples Center.
 
-**1995:** [](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*American Babylon*
+[Watch Video Highlight](https://videopress.com/embed/vZj3KOnV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/k3hhViVRpf0](https://www.youtube.com/embed/k3hhViVRpf0)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-10-17a.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17a-276x300.png?resize=758%2C824)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-10-17b.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17b-300x205.png?resize=758%2C518)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-10-17c.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17c-300x206.png?resize=758%2C520)
+![](https://estreetshuffle.com/wp-content/uploads/2018/10/1999-1017.jpg)
 
-Bruce plays the second of two solo acoustic Ghost of Tom Joad Tour shows at Denver's Paramount Theater.
+**2005:** Bruce straps on an electric guitar for a change, when he takes a short break from his solo acoustic tour to join U2 on stage (along with Patti) for “[People Get Ready](https://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)” at the Wachovia Center in Philadelphia.
 
-**1996:**<br>
+[Watch Video Highlight](https://videopress.com/embed/Ds6Exsh4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/0padY2o4](https://videopress.com/embed/0padY2o4)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/2005-10-17.png)
 
-Bruce and the reunited E Street Band kick off a four-night stand in Los Angeles with the very first concert to be held at the new Staples Center.
+**2007:** The young Magic Tour moves on to Madison Square Garden for the first of two nights.
 
-**1999:**<br>
+[Watch Video Highlight](https://videopress.com/embed/U5CleNrI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/vZj3KOnV](https://videopress.com/embed/vZj3KOnV)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Adam Raised A Cain](https://www.youtube.com/watch?v=HWertakKIDE)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-17a-270x300.png?resize=758%2C842)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - She's The One](https://www.youtube.com/watch?v=5b4XHHNm1cY)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-17b-190x300.png?resize=758%2C1197)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Brilliant Disguise](https://www.youtube.com/watch?v=uoEUwljiHv4)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-17c-95x300.png?resize=758%2C2394)
+[Watch on Youtube: Bruce Springsteen Born to Run New York 17/10/2007](https://www.youtube.com/watch?v=EIW2U8CUNUs)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1999-1017-181x300.jpg?resize=758%2C1258)
+**2009:** Bruce, Patti, Southside Johnny, and Bobby Bandiera and his band perform at a school benefit show at The Stone Pony.
 
-Bruce straps on an electric guitar for a change, when he takes a short break from his solo acoustic tour to join U2 on stage (along with Patti) for "" at the Wachovia Center in Philadelphia.
+**2016:** Bruce speaks his mind on the U.S. presidential election and other topics at a press event at the Institute of Contemporary Arts in London. Later in the day, he makes a promotional book tour appearance at Waterstones book store.
 
-**2005:** [People Get Ready](http://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)
+[Watch on Youtube: Bruce Springsteen on Donald Trump, and his own depression](https://www.youtube.com/watch?v=1_UoZ8wP6zg)
 
-[https://videopress.com/embed/Ds6Exsh4](https://videopress.com/embed/Ds6Exsh4)
+**2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gayle King and Oprah Winfrey.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-10-17-300x297.png?resize=758%2C750)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/2017-10-17.png)
 
-The young Magic Tour moves on to Madison Square Garden for the first of two nights.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2007:**<br>
+**2021:** Bruce and Little Steven hold court at Asbury Lanes as a promotional event for *Unrequited Infatuations*, Steven’s autobiography, and as a benefit for TeachRock. Jon Stewart, Jon Landau, Nona Hendryx, Steve Buscemi, and Richie Sambora appear as panelists before the main event.
 
-[https://videopress.com/embed/U5CleNrI](https://videopress.com/embed/U5CleNrI)
+[Watch on Youtube: Stevie Van Zandt & Bruce Springsteen - Between the Lines (Trailer)](https://www.youtube.com/watch?v=5G8dvv_sHqs)
 
-[https://www.youtube.com/embed/HWertakKIDE](https://www.youtube.com/embed/HWertakKIDE)
+**2024:** Bruce appears on the Graham Norton Show in London to promote his new film, *Road Diary*.
 
-[https://www.youtube.com/embed/5b4XHHNm1cY](https://www.youtube.com/embed/5b4XHHNm1cY)
+[Watch on Youtube: Bruce Springsteen's Hilariously Wild Fan Story | The Graham Norton Show](https://www.youtube.com/watch?v=lx0GllhVJks)
 
-[https://www.youtube.com/embed/uoEUwljiHv4](https://www.youtube.com/embed/uoEUwljiHv4)
+[Watch on Youtube: Bruce Springsteen Fans Love When The Band Messes Up | The Graham Norton Show](https://www.youtube.com/watch?v=feUGs3CTebU)
 
-[https://www.youtube.com/embed/EIW2U8CUNUs](https://www.youtube.com/embed/EIW2U8CUNUs)
+[Watch on Youtube: Bruce Springsteen's Incredible Prison Performance | The Graham Norton Show](https://www.youtube.com/watch?v=K_9Gz0os0zg)
 
-Bruce, Patti, Southside Johnny, and Bobby Bandiera and his band perform at a school benefit show at The Stone Pony.
-
-**2009:**<br>
-
-Bruce speaks his mind on the U.S. presidential election and other topics at a press event at the Institute of Contemporary Arts in London. Later in the day, he makes a promotional book tour appearance at Waterstones book store.
-
-**2016:**<br>
-
-[https://www.youtube.com/embed/1_UoZ8wP6zg](https://www.youtube.com/embed/1_UoZ8wP6zg)
-
-continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gayle King and Oprah Winfrey.
-
-**2017:** *Springsteen on Broadway*
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2017-10-17-300x298.png?resize=758%2C753)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Bruce and Little Steven hold court at Asbury Lanes as a promotional event for , Steven's autobiography, and as a benefit for TeachRock. Jon Stewart, Jon Landau, Nona Hendryx, Steve Buscemi, and Richie Sambora appear as panelists before the main event.
-
-**2021:** *Unrequited Infatuations*
-
-[https://www.youtube.com/embed/5G8dvv_sHqs](https://www.youtube.com/embed/5G8dvv_sHqs)
-
-Bruce appears on the Graham Norton Show in London to promote his new film, .
-
-**2024:** *Road Diary*
-
-[https://www.youtube.com/embed/lx0GllhVJks](https://www.youtube.com/embed/lx0GllhVJks)
-
-[https://www.youtube.com/embed/feUGs3CTebU](https://www.youtube.com/embed/feUGs3CTebU)
-
-[https://www.youtube.com/embed/K_9Gz0os0zg](https://www.youtube.com/embed/K_9Gz0os0zg)
-
-[https://www.youtube.com/embed/32Slqmht1KQ](https://www.youtube.com/embed/32Slqmht1KQ)
+[Watch on Youtube: Why Bruce Springsteen Will Never Stop Performing | The Graham Norton Show](https://www.youtube.com/watch?v=32Slqmht1KQ)

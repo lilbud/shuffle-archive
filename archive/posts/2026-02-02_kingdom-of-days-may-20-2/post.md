@@ -1,50 +1,37 @@
+**1981:** The River Tour continues its almost month-long U.K. leg with a show at waterlogged New Bingley Hall in Stafford.
 
-The River Tour continues its almost month-long U.K. leg with a show at waterlogged New Bingley Hall in Stafford.
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg)
 
-**1981:**<br>
+**1992:** Bruce and his new touring band rehearse for their upcoming tour on a Hollywood soundstage.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg?resize=758%2C533&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg?resize=758%2C789&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen "Guide to Summer" June '92](https://www.youtube.com/watch?v=V8GA_hlYbzg)
 
-Bruce and his new touring band rehearse for their upcoming tour on a Hollywood soundstage.
+**1993:** Not one but two guest-stars when Bruce’s World Tour 1993 stops at the RDS Arena in Dublin: Joe Ely joins Bruce for Joe’s “Settle for Love” (which the two played at Joe’s show the night before), and Jerry Lee Lewis joined Bruce for encores of “Great Balls of Fire” and “Whole Lotta Shakin’ Goin’ On.” Despite the special guests, the show is poorly reviewed by local press.
 
-**1992:**<br>
+[Watch on Youtube: Jerry Lee Lewis & Bruce Springsteen live in Dublin (1993)](https://www.youtube.com/watch?v=JkrlvfNoivc)
 
-[https://www.youtube.com/embed/V8GA_hlYbzg](https://www.youtube.com/embed/V8GA_hlYbzg)
+[Watch on Youtube: Dublin 20/05/1993](https://www.youtube.com/playlist?list=PLJTyL9twk3zDzppKusEmmORcXq2EtkfRa)
 
-Not one but two guest-stars when Bruce's World Tour 1993 stops at the RDS Arena in Dublin: Joe Ely joins Bruce for Joe's "Settle for Love" (which the two played at Joe's show the night before), and Jerry Lee Lewis joined Bruce for encores of "Great Balls of Fire" and "Whole Lotta Shakin' Goin' On." Despite the special guests, the show is poorly reviewed by local press.
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Star_Tue__May_25__1993_.jpg)
 
-**1993:**<br>
+**1995:** Bruce and Patti attend Don Henley’s wedding. Several musicians are in attendance and perform, including Bruce on “634-5789 (Soulsville, U.S.A.)”
 
-[https://www.youtube.com/embed/JkrlvfNoivc](https://www.youtube.com/embed/JkrlvfNoivc)
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1995-0520.jpg)
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDzppKusEmmORcXq2EtkfRa](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDzppKusEmmORcXq2EtkfRa)
+**2005:** The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheum Theater in Boston.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Star_Tue__May_25__1993_.jpg?resize=758%2C793&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20a.jpg)
 
-Bruce and Patti attend Don Henley's wedding. Several musicians are in attendance and perform, including Bruce on "634-5789 (Soulsville, U.S.A.)"
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20b.jpg)
 
-**1995:**<br>
+**2006:** “Devils & Dust” makes its Seeger Sessions Tour debut at the Oslo Spektrum.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1995-0520.jpg?resize=446%2C387&amp;ssl=1)
+**2020:** Sirius XM debuts the fourth installment of Bruce’s *From My Home to Yours* series.
 
-The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheum Theater in Boston.
+[https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-20-Bruce-E-Street-Radio-DJ-set-4.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-20-Bruce-E-Street-Radio-DJ-set-4.mp3?_=5)
 
-**2005:**<br>
+<https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-20-Bruce-E-Street-Radio-DJ-set-4.mp3>
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20a.jpg?resize=501%2C963&amp;ssl=1)
+**2025:** Bruce and the E Street Band play their last of three nights at Co-op Live in Manchester.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20b.jpg?resize=758%2C348&amp;ssl=1)
-
-"Devils & Dust" makes its Seeger Sessions Tour debut at the Oslo Spektrum.
-
-**2006:**<br>
-
-Sirius XM debuts the fourth installment of Bruce's series.
-
-**2020:** *From My Home to Yours* <https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-20-Bruce-E-Street-Radio-DJ-set-4.mp3>
-
-Bruce and the E Street Band play their last of three nights at Co-op Live in Manchester.
-
-**2025:**<br>
-
-[https://www.youtube.com/embed/IAVJ1nh2gzg](https://www.youtube.com/embed/IAVJ1nh2gzg)
+[Watch on Youtube: Bruce Springsteen, Glory Days, Manchester Co-op Live, Manchester, 2025-05-20 in 4K 2160p](https://www.youtube.com/watch?v=IAVJ1nh2gzg)

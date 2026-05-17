@@ -1,104 +1,73 @@
+***New for 2025:** Audio for 1970; new entry for 1979*
 
-*Audio for 1970; new entry for 1979***New for 2025:**
+**1968:** The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank, New Jersey. Jeannie Clark opens for the band; she will later join Dr. Zoom and the Sonic Boom as a Zoomette.
 
-The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank, New Jersey. Jeannie Clark opens for the band; she will later join Dr. Zoom and the Sonic Boom as a Zoomette.
+![](https://estreetshuffle.com/wp-content/uploads/2018/07/1968-0717.jpg)
 
-**1968:**<br>
+**1969:** Child plays their third of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1968-0717-300x179.jpg?resize=740%2C440)
+**1970:** Steel Mill headlines at Asbury Park’s Sunshine In, with a setlist that features “[Garden State Parkway Blues](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/),” “[Sherlock Goes Home](https://estreetshuffle.com/index.php/2018/09/21/roll-of-the-dice-sherlock-goes-holmes/),” and “[KT-88](https://estreetshuffle.com/index.php/2018/03/12/roll-of-the-dice-kt-88/).”
 
-Child plays their third of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.
+[Watch on Youtube: Bruce Springsteen (Steel Mill) - 1970-07-17 Sunshine In, Asbury Park, NJ](https://www.youtube.com/watch?v=40fj8jiZGsM)
 
-**1969:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1970-07-17.png)
 
-Steel Mill headlines at Asbury Park's Sunshine In, with a setlist that features "," "," and "."
+**1974:** Bruce and the E Street Band play two shows at Le Garage in Spray Beach, New Jersey.
 
-**1970:** [Garden State Parkway Blues](http://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)[Sherlock Goes Home](http://estreetshuffle.com/index.php/2018/09/21/roll-of-the-dice-sherlock-goes-holmes/)[KT-88](http://estreetshuffle.com/index.php/2018/03/12/roll-of-the-dice-kt-88/)
+![](https://estreetshuffle.com/wp-content/uploads/2019/07/garage717.jpg)
 
-[https://www.youtube.com/embed/40fj8jiZGsM](https://www.youtube.com/embed/40fj8jiZGsM)
+**1979:** Bruce and the E Street Band work on “[Cindy](https://estreetshuffle.com/index.php/2018/08/03/roll-of-the-dice-cindy/)” during a recording session at the Power Station in New York City.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1970-07-17-184x300.png?resize=758%2C1236)
+**1982:** Bruce joins Joe Grushecky and the Iron City Houserockers on stage for the first time when Joe plays Big Man’s West in Red Bank.
 
-Bruce and the E Street Band play two shows at Le Garage in Spray Beach, New Jersey.
+[Watch Video Highlight](https://videopress.com/embed/vfcrn5r7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1974:**<br>
+**1984:** On Night Two at the Rosemont Horizon near Chicago, Bruce tour premieres “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” and “Because the Night.” Watch news coverage and footage below.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/garage717-196x300.jpg?resize=758%2C1160)
+[Watch on Youtube: Bruce Springsteen - Chicago News coverage - July 17, 1984](https://www.youtube.com/watch?v=kkUCWM9MA5k)
 
-Bruce and the E Street Band work on "" during a recording session at the Power Station in New York City.
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-17.png)
 
-**1979:** [Cindy](https://estreetshuffle.com/index.php/2018/08/03/roll-of-the-dice-cindy/)
+**1988:** The Tunnel of Love Tour arrives in Munich, where “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” makes its tour premiere.
 
-Bruce joins Joe Grushecky and the Iron City Houserockers on stage for the first time when Joe plays Big Man's West in Red Bank.
+[Watch Video Highlight](https://videopress.com/embed/Hg1d3CbK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1982:**<br>
+[Watch Video Highlight](https://videopress.com/embed/xZriKscC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/vfcrn5r7](https://videopress.com/embed/vfcrn5r7)
+**2003:** Night Two (of ten!) at the legendary Giants Stadium stand of the Rising Tour is a standard one, but shake-ups are on their way.
 
-On Night Two at the Rosemont Horizon near Chicago, Bruce tour premieres "" and "Because the Night." Watch news coverage and footage below.
+[Watch Video Highlight](https://videopress.com/embed/woWaq6U5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1984:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
+**2004:** Bruce, Patti, and Soozie join Joe Grushecky and the Houserockers on stage at The Stone Pony in Asbury Park.
 
-[https://www.youtube.com/embed/kkUCWM9MA5k](https://www.youtube.com/embed/kkUCWM9MA5k)
+![](https://estreetshuffle.com/wp-content/uploads/2019/07/grusheck.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-07-17-300x123.png?resize=758%2C311)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/2004-07-17.png)
 
-The Tunnel of Love Tour arrives in Munich, where "" makes its tour premiere.
+**2008:** The Magic Tour’s Spanish leg continues with a show in Madrid, featuring a rare performance of “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/).”
 
-**1988:** [Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)
+[Watch on Youtube: Bruce Springsteen - Cover Me (Madrid 2008)](https://www.youtube.com/watch?v=xzVzqJEkbJ4)
 
-[https://videopress.com/embed/Hg1d3CbK](https://videopress.com/embed/Hg1d3CbK)
+[Watch on Youtube: Bruce Springsteen Santiago Bernabeu TVE 1 Madrid 2008 ana b](https://www.youtube.com/watch?v=bA7WK-awFnY)
 
-[https://videopress.com/embed/xZriKscC](https://videopress.com/embed/xZriKscC)
+**2011:** Bruce makes a guest appearance at J.T. Bowen and The Sensational Soul Cruisers’ tribute to Clarence Clemons at The Wonder Bar in Asbury Park. The setlist highlights: long-awaited returns of “[Action in the Streets](https://estreetshuffle.com/index.php/2022/06/27/roll-of-the-dice-action-in-the-streets/)” (the first in 34 years) and “[Savin’ Up](https://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/)” (the first in 24 years).
 
-Night Two (of ten!) at the legendary Giants Stadium stand of the Rising Tour is a standard one, but shake-ups are on their way.
+[Watch Video Highlight](https://videopress.com/embed/9neskCQb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2003:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/2011-07-17.png)
 
-[https://videopress.com/embed/woWaq6U5](https://videopress.com/embed/woWaq6U5)
+**2012:** “Before we were so rudely interrupted…”Bruce picks up in Dublin where he left off–or rather, was cut off–at Hyde Park, bringing his own mock generator on stage, flipping the switch to “ON” and finishing “Twist and Shout” from the previous show. He then launches directly into “[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/),” a very appropriate tour premiere. Other tour premieres include “[I’m a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)” and “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).”
 
-Bruce, Patti, and Soozie join Joe Grushecky and the Houserockers on stage at The Stone Pony in Asbury Park.
+[Watch on Youtube: Bruce Springsteen, Dublin, RDS, 2012, Intro/Twist & Shout (London Cont.)](https://www.youtube.com/watch?v=4Ehdf2SbIDI)
 
-**2004:**<br>
+[Watch on Youtube: I Fought the Law - Springsteen - Dublin Ireland July 17 2012](https://www.youtube.com/watch?v=6R68gn0eE2E)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/grusheck-300x200.jpg?resize=758%2C505)
+![](https://estreetshuffle.com/wp-content/uploads/2024/07/The_Leader_Post_2012_07_20_15.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2004-07-17-225x300.png?resize=758%2C1010)
+**2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores (“[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” and “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)“) and will be released on the streaming service to much acclaim later in the year.
 
-The Magic Tour's Spanish leg continues with a show in Madrid, featuring a rare performance of "."
+[Watch on Youtube: Springsteen on Broadway | Official Trailer [HD] | Netflix](https://www.youtube.com/watch?v=M1xDzgob1JI)
 
-**2008:** [Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)
+**2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York city, In attendance tonight: Danny DeVito and Adam Duritz.
 
-[https://www.youtube.com/embed/xzVzqJEkbJ4](https://www.youtube.com/embed/xzVzqJEkbJ4)
-
-[https://www.youtube.com/embed/bA7WK-awFnY](https://www.youtube.com/embed/bA7WK-awFnY)
-
-Bruce makes a guest appearance at J.T. Bowen and The Sensational Soul Cruisers' tribute to Clarence Clemons at The Wonder Bar in Asbury Park. The setlist highlights: long-awaited returns of "" (the first in 34 years) and "" (the first in 24 years).
-
-**2011:** [Action in the Streets](https://estreetshuffle.com/index.php/2022/06/27/roll-of-the-dice-action-in-the-streets/)[Savin' Up](http://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/)
-
-[https://videopress.com/embed/9neskCQb](https://videopress.com/embed/9neskCQb)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2011-07-17-300x221.png?resize=758%2C558)
-
-"Before we were so rudely interrupted…"Bruce picks up in Dublin where he left off–or rather, was cut off–at Hyde Park, bringing his own mock generator on stage, flipping the switch to "ON" and finishing "Twist and Shout" from the previous show. He then launches directly into "," a very appropriate tour premiere. Other tour premieres include "" and "."
-
-**2012:** [I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)[My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
-
-[https://www.youtube.com/embed/4Ehdf2SbIDI](https://www.youtube.com/embed/4Ehdf2SbIDI)
-
-[https://www.youtube.com/embed/6R68gn0eE2E](https://www.youtube.com/embed/6R68gn0eE2E)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/07/The_Leader_Post_2012_07_20_15.jpg?resize=758%2C831&amp;ssl=1)
-
-Netflix films a special invitation-only performance of at the Walter Kerr Theater in New York City. The show features two special encores ("" and "") and will be released on the streaming service to much acclaim later in the year.
-
-**2018:** *Springsteen on Broadway* [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
-
-[https://www.youtube.com/embed/M1xDzgob1JI](https://www.youtube.com/embed/M1xDzgob1JI)
-
-continues its limited return engagement at the St. James Theater in New York city, In attendance tonight: Danny DeVito and Adam Duritz.
-
-**2021:** *Springsteen on Broadway*
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/07/2021-07-17.jpg?resize=309%2C500&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-17.jpg)

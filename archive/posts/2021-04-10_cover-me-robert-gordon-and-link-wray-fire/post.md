@@ -1,12 +1,9 @@
-
-Robert Gordon and Link Wray were the first to record and release Bruce Springsteen's "." Bruce gave Gordon the song after seeing him perform with Wray; they released it in 1978, years before Bruce's version debuted on , and decades before the Bruce's studio version surfaced on
-
-[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)*Live 1975-1985**The Promise.*
+Robert Gordon and Link Wray were the first to record and release Bruce Springsteen’s “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/).” Bruce gave Gordon the song after seeing him perform with Wray; they released it in 1978, years before Bruce’s version debuted on *Live 1975-1985*, and decades before the Bruce’s studio version surfaced on *The Promise.*
 
 This recording from a BBC studio session very well be the definitive take on the song–just listen to Link Wray go to town on it.
 
-[https://videopress.com/embed/gTYrUMsj](https://videopress.com/embed/gTYrUMsj)
+[Watch Video Highlight](https://videopress.com/embed/gTYrUMsj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bonus: Here's the original 1978 recording (with Bruce Springsteen on piano) for comparison.
+Bonus: Here’s the original 1978 recording (with Bruce Springsteen on piano) for comparison.
 
-[https://www.youtube.com/embed/rQJaMpXH0X0](https://www.youtube.com/embed/rQJaMpXH0X0)
+[Watch on Youtube: Fire](https://www.youtube.com/watch?v=rQJaMpXH0X0)

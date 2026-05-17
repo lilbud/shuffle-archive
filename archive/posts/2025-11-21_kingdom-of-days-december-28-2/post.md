@@ -1,60 +1,43 @@
+***New for 2025:** No updates*
 
-*No updates***New for 2025:**
+**1968:** Earth plays to their largest crowd yet at the Crystal Ballroom in New York City’s Hotel Diplomat, but the show almost doesn’t happen. One week out, not even 100 tickets had been sold for this fundraiser in an 1,800-seat ballroom, but the administration of Ocean County College contributed funds and transportation to help drive attendance and support their students who organized the event.
 
-Earth plays to their largest crowd yet at the Crystal Ballroom in New York City's Hotel Diplomat, but the show almost doesn't happen. One week out, not even 100 tickets had been sold for this fundraiser in an 1,800-seat ballroom, but the administration of Ocean County College contributed funds and transportation to help drive attendance and support their students who organized the event.
+![](https://estreetshuffle.com/wp-content/uploads/2018/12/1968-1228.jpg)
 
-**1968:**<br>
+**1973:** Bruce and the E Street Band play two shows on their second of four nights at The Main Point in Bryn Mawr, Pennsylvania.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1968-1228-88x300.jpg?resize=758%2C2589)
+**1975:** On their second of a four-night stand at Philadelphia’s Tower Theater, Bruce and the band open with a new arrangement of “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” and play “[Sha La La](https://estreetshuffle.com/index.php/2018/02/21/cover-me-sha-la-la/)” for the last time for 34 years. It would appear that this year-end stand was hastily booked, as a mere four days ago Toronto press was aggressively promoting Bruce’s scheduled appearance on this date at Seneca college.
 
-Bruce and the E Street Band play two shows on their second of four nights at The Main Point in Bryn Mawr, Pennsylvania.
+[Watch on Youtube: Bruce Springsteen - 1975-12-28 Tower Theater, Upper Darby, Philadelphia, PA](https://www.youtube.com/watch?v=Z9CHbbvogto)
 
-**1973:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2024/12/The_North_York_Mirror_1975_12_24_18-scaled.jpg)
 
-On their second of a four-night stand at Philadelphia's Tower Theater, Bruce and the band open with a new arrangement of "" and play "" for the last time for 34 years. It would appear that this year-end stand was hastily booked, as a mere four days ago Toronto press was aggressively promoting Bruce's scheduled appearance on this date at Seneca college.
+**1978:** Bruce opens Night Two in Pittsburgh on the Darkness Tour with a world premiere: the as-yet-unreleased and still work-in-progress “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/).”
 
-**1975:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[Sha La La](http://estreetshuffle.com/index.php/2018/02/21/cover-me-sha-la-la/)
+[Watch Video Highlight](https://videopress.com/embed/qET8tGlm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/Z9CHbbvogto](https://www.youtube.com/embed/Z9CHbbvogto)
+**1980:** Christmas may be over, but you’d never know it in Uniondale. Bruce opens his three-night, year-closing stand at the Nassau Coliseum by playing “[Merry Christmas Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)” for the very first time. And that’s not the only world premiere at this show–toward the end of the first set, Bruce debuts his cover of “[This Land is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/).” In the second set, Flo and Eddie guest star on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).” “Because the Night” and “Hungry Heart” from this show will be officially released six years from now on *Live 1975-85.* This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,27914/bruce-springsteen-and-the-e-street-band-nassau-coliseum-uniondale-ny-12-28-1980-mp3-flac-or-online-music-streaming.html).
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_North_York_Mirror_1975_12_24_18-scaled.jpg?resize=758%2C290&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen and the E Street Band "Merry Christmas Baby" 12/28/1980](https://www.youtube.com/watch?v=seep_i99ydE)
 
-Bruce opens Night Two in Pittsburgh on the Darkness Tour with a world premiere: the as-yet-unreleased and still work-in-progress "."
+[Watch on Youtube: Hungry Heart (Live at Nassau Coliseum, Uniondale, NY - December 1980)](https://www.youtube.com/watch?v=K7YhtgZeXsA)
 
-**1978:** [Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)
+[Watch on Youtube: Because the Night (Live at Nassau Coliseum, Uniondale, NY - December 1980)](https://www.youtube.com/watch?v=Hwn4MTbI4k4)
 
-[https://videopress.com/embed/qET8tGlm](https://videopress.com/embed/qET8tGlm)
+**1983:** Bruce makes a surprise appearance at La Bamba’s Holiday Hurrah benefit show for the Monmouth County chapter of Big Brothers.
 
-Christmas may be over, but you'd never know it in Uniondale. Bruce opens his three-night, year-closing stand at the Nassau Coliseum by playing "" for the very first time. And that's not the only world premiere at this show–toward the end of the first set, Bruce debuts his cover of "." In the second set, Flo and Eddie guest star on "." "Because the Night" and "Hungry Heart" from this show will be officially released six years from now on This show is available as part of Bruce's official archive series–get it .
+[Watch Video Highlight](https://videopress.com/embed/roAY4OcD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1980:** [Merry Christmas Baby](http://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)[This Land is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)*Live 1975-85.* [here](https://live.brucespringsteen.net/live-music/0,27914/bruce-springsteen-and-the-e-street-band-nassau-coliseum-uniondale-ny-12-28-1980-mp3-flac-or-online-music-streaming.html)
+![](https://estreetshuffle.com/wp-content/uploads/2018/12/1983-1228.jpg)
 
-[https://www.youtube.com/embed/seep_i99ydE](https://www.youtube.com/embed/seep_i99ydE)
+**1998:** Bruce joins Mike Ness in the studio in Los Angeles, lending his vocals and guitar on “[Misery Loves Company](https://estreetshuffle.com/index.php/2020/01/22/matr-mike-ness-and-bruce-springsteen-misery-loves-company/).”
 
-[https://www.youtube.com/embed/K7YhtgZeXsA](https://www.youtube.com/embed/K7YhtgZeXsA)
+[Watch on Youtube: Mike Ness (feat. Bruce Springsteen) "Misery Loves Company"](https://www.youtube.com/watch?v=AaF2pZcVFKA)
 
-[https://www.youtube.com/embed/Hwn4MTbI4k4](https://www.youtube.com/embed/Hwn4MTbI4k4)
+**2008:** Bruce releases “[Life Itself](https://estreetshuffle.com/index.php/2018/03/26/roll-of-the-dice-life-itself/),” the second advance single from his upcoming *Working on a Dream.*
 
-Bruce makes a surprise appearance at La Bamba's Holiday Hurrah benefit show for the Monmouth County chapter of Big Brothers.
+[Watch on Youtube: Bruce Springsteen - Life Itself (Official Video)](https://www.youtube.com/watch?v=Pk8KPdWgAJY)
 
-**1983:**<br>
+**2017:** Patti Scialfa is sick with the flu, so Bruce continues playing the “B” setlist at *Springsteen on Broadway* at the Walter Kerr Theater in New York City.
 
-[https://videopress.com/embed/roAY4OcD](https://videopress.com/embed/roAY4OcD)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1983-1228-300x78.jpg?resize=758%2C198)
-
-Bruce joins Mike Ness in the studio in Los Angeles, lending his vocals and guitar on "."
-
-**1998:** [Misery Loves Company](https://estreetshuffle.com/index.php/2020/01/22/matr-mike-ness-and-bruce-springsteen-misery-loves-company/)
-
-[https://www.youtube.com/embed/AaF2pZcVFKA](https://www.youtube.com/embed/AaF2pZcVFKA)
-
-Bruce releases "," the second advance single from his upcoming
-
-**2008:** [Life Itself](http://estreetshuffle.com/index.php/2018/03/26/roll-of-the-dice-life-itself/)*Working on a Dream.*
-
-[https://www.youtube.com/embed/Pk8KPdWgAJY](https://www.youtube.com/embed/Pk8KPdWgAJY)
-
-Patti Scialfa is sick with the flu, so Bruce continues playing the "B" setlist at at the Walter Kerr Theater in New York City.
-
-**2017:** *Springsteen on Broadway*
+ 

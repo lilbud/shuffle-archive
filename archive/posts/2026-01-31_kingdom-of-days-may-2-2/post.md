@@ -1,168 +1,129 @@
+**1969:** Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
-Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1969-0502.jpg)
 
-**1969:**<br>
+**1970:** Steel Mill attempts to crash a three-day music festival at the University of North Carolina in Chapel Hill–not to attend, but to play! Bruce and the band sneak past security and set up their gear. They are caught and ejected just before they are about to start playing. All is not lost, however, since they have a scheduled gig at the Hullaballoo in Richmond that evening, just a few hours drive away.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1969-0502.jpg?resize=410%2C600&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen & E Street Band snuck into James Taylor, Eric Clapton](https://www.youtube.com/watch?v=z771CnLdzO8)
 
-Steel Mill attempts to crash a three-day music festival at the University of North Carolina in Chapel Hill–not to attend, but to play! Bruce and the band sneak past security and set up their gear. They are caught and ejected just before they are about to start playing. All is not lost, however, since they have a scheduled gig at the Hullaballoo in Richmond that evening, just a few hours drive away.
+**1972:** A watershed day for Bruce: Mike Appel arranges a meeting and audition for Bruce with John Hammond at Hammond’s Columbia Records office in New York City. By the time Bruce finishes playing “It’s Hard to Be a Saint in the City,” Hammond knows he wants to sign Bruce.
 
-**1970:**<br>
+Bruce plays three more songs (including “If I Was the Priest”), and then Hammond asks how Bruce is with a live audience. Mike Appel immediately arranges a gig at the Gaslight Au Go Go for early that evening, opening for Garland Jeffreys and Charlie Musselwhite. Satisfied with the performance, Hammond invites Bruce to come down the next day to make a demo.
 
-[https://www.youtube.com/embed/z771CnLdzO8](https://www.youtube.com/embed/z771CnLdzO8)
+**1974:** The *Camden Courier-Post* publishes a long, revealing profile of and interview with Bruce.
 
-A watershed day for Bruce: Mike Appel arranges a meeting and audition for Bruce with John Hammond at Hammond's Columbia Records office in New York City. By the time Bruce finishes playing "It's Hard to Be a Saint in the City," Hammond knows he wants to sign Bruce.
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1974-05-02a.jpg)
 
-**1972:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1974-05-02b.jpg)
 
-Bruce plays three more songs (including "If I Was the Priest"), and then Hammond asks how Bruce is with a live audience. Mike Appel immediately arranges a gig at the Gaslight Au Go Go for early that evening, opening for Garland Jeffreys and Charlie Musselwhite. Satisfied with the performance, Hammond invites Bruce to come down the next day to make a demo.
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1974-05-02c.jpg)
 
-The publishes a long, revealing profile of and interview with Bruce.
+**1977:** *The Wild, The Innocent, & The E Street Shuffle* is certified gold by the Recording Industry Association of America.
 
-**1974:** *Camden Courier-Post*
+[Watch on Youtube: The E Street Shuffle](https://www.youtube.com/watch?v=LWLMaZ7H3B0)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1974-05-02a.jpg?resize=531%2C982&amp;ssl=1)
+**1980:** Bruce works on mixing and overdubs for “Restless Nights” at Clover Studios in Los Angeles.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1974-05-02b.jpg?resize=720%2C977&amp;ssl=1)
+[Watch on Youtube: Restless Nights (Studio Outtake - 1980)](https://www.youtube.com/watch?v=DCFYLa02WzE)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1974-05-02c.jpg?resize=758%2C287&amp;ssl=1)
+**1981:** Bruce and the E Street Band play their first proper show in Denmark, at Brøndbyhallen in Copenhagen.
 
-is certified gold by the Recording Industry Association of America.
+[Watch on Youtube: Bruce Springsteen & the E Street Band - 1981-05-02 - Copenhagen Brondby Hallen, DK](https://www.youtube.com/watch?v=q7EsVf2suLc)
 
-**1977:** *The Wild, The Innocent, & The E Street Shuffle*
+**1982:** The first of a series of “secret” shows in which Bruce joined Cats on a Smooth Surface for late-night gigs at The Stone Pony in Asbury Park.
 
-[https://www.youtube.com/embed/LWLMaZ7H3B0?list=OLAK5uy_kVpI9n-dmnHW7df2Iloxk8nXaya4yEzEw](https://www.youtube.com/embed/LWLMaZ7H3B0?list=OLAK5uy_kVpI9n-dmnHW7df2Iloxk8nXaya4yEzEw)
+![](https://estreetshuffle.com/wp-content/uploads/2019/04/catspony.jpg)
 
-Bruce works on mixing and overdubs for "Restless Nights" at Clover Studios in Los Angeles.
+**1988:** Bruce brings the Tunnel of Love Express Tour to Mountain View, California, for the first of two nights at the Shoreline Amphitheater. Local news coverage and a pro-shot “Be True” below.
 
-**1980:**<br>
+[Watch on Youtube: Bruce Springsteen - News coverage from 1988 Mountain View concerts](https://www.youtube.com/watch?v=9pwFHwTFeU4)
 
-[https://www.youtube.com/embed/DCFYLa02WzE](https://www.youtube.com/embed/DCFYLa02WzE)
+[Watch on Youtube: Bruce Springsteen - Be True](https://www.youtube.com/watch?v=aOZ_6M8YcQs)
 
-Bruce and the E Street Band play their first proper show in Denmark, at Brøndbyhallen in Copenhagen.
+[Watch on Youtube: Bruce Springsteen - Two Faces 1988](https://www.youtube.com/watch?v=ReH1XE5qFx0)
 
-**1981:**<br>
+[Watch on Youtube: Bruce Springsteen - Walk Like A Man (Live 1988)](https://www.youtube.com/watch?v=BC_ExSDf_ow)
 
-[https://www.youtube.com/embed/q7EsVf2suLc](https://www.youtube.com/embed/q7EsVf2suLc)
+[Watch on Youtube: Bruce Springsteen - Live In Mountain View 02/05/1988 - Part 1 (HD Remastered)](https://www.youtube.com/watch?v=a4OcGN4xScU)
 
-The first of a series of "secret" shows in which Bruce joined Cats on a Smooth Surface for late-night gigs at The Stone Pony in Asbury Park.
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02a.jpg)
 
-**1982:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02b.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/04/catspony.jpg?resize=275%2C199&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02c.jpg)
 
-Bruce brings the Tunnel of Love Express Tour to Mountain View, California, for the first of two nights at the Shoreline Amphitheater. Local news coverage and a pro-shot "Be True" below.
+**1996:** Bruce’s solo acoustic tour stops in Switzerland for a single show at Kongresshaus in Zurich. In honor of his Swiss hosts, Bruce performs “Red Headed Woman” with extra yodeling.
 
-**1988:**<br>
+[Watch Video Highlight](https://videopress.com/embed/eqMkI4fK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/9pwFHwTFeU4](https://www.youtube.com/embed/9pwFHwTFeU4)
+**1999:** On Night Two in Manchester on the Reunion Tour, Bruce plays “Rendezvous” in England for the first time.
 
-[https://www.youtube.com/embed/aOZ_6M8YcQs](https://www.youtube.com/embed/aOZ_6M8YcQs)
+[Watch on Youtube: Bruce Springsteen - Rendezvous (Manchester, may 2. 1999)](https://www.youtube.com/watch?v=WItR0RGJTrY)
 
-[https://www.youtube.com/embed/ReH1XE5qFx0](https://www.youtube.com/embed/ReH1XE5qFx0)
+[Watch on Youtube: Bruce Springsteen - Jungleland - Manchester, England, 1999-05-02](https://www.youtube.com/watch?v=R-nOxl077a4)
 
-[https://www.youtube.com/embed/BC_ExSDf_ow](https://www.youtube.com/embed/BC_ExSDf_ow)
+[Watch on Youtube: Manchester 02/05/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zC6W2Gl4LhnzU4DZNDHIeMk)
 
-[https://www.youtube.com/embed/a4OcGN4xScU](https://www.youtube.com/embed/a4OcGN4xScU)
+**2002:** Bruce joins Soozie Tyrell at Scullville Studios in Egg Harbor, New Jersey, where he contributes guitar and backing vocals to Soozie’s “[W](https://estreetshuffle.com/index.php/2021/09/30/matr-soozie-tyrell-and-bruce-springsteen-white-lines/)h[ite Lines](https://estreetshuffle.com/index.php/2021/09/30/matr-soozie-tyrell-and-bruce-springsteen-white-lines/)” and “Ste. Genevieve” respectively.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02a.jpg?resize=758%2C749&amp;ssl=1)
+[Watch on Youtube: White Lines (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=dnz2SeT9IP4)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02b.jpg?resize=758%2C672&amp;ssl=1)
+[Watch on Youtube: Ste. Genevieve (feat. Bruce Springsteen, Patti Scialfa)](https://www.youtube.com/watch?v=xKGo5s6EHkc)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02c.jpg?resize=758%2C749&amp;ssl=1)
+**2003:** A year to the day later, Bruce and Patti join Soozie on stage at her solo gig at The Stone Pony for “Ste. Genevieve” and “It’s All Over Now.”
 
-Bruce's solo acoustic tour stops in Switzerland for a single show at Kongresshaus in Zurich. In honor of his Swiss hosts, Bruce performs "Red Headed Woman" with extra yodeling.
+[Watch on Youtube: Soozie Tyrell : Ste Genevieve (2003-05-02 - THE STONE PONY)](https://www.youtube.com/watch?v=sQE2tQMzsQs)
 
-**1996:**<br>
+[Watch on Youtube: It's All Over Now - Soozie Tyrell ft. Bruce Springsteen (The Stone Pony, 2 May 2003)](https://www.youtube.com/watch?v=J_Q803Ov1QE)
 
-[https://videopress.com/embed/eqMkI4fK](https://videopress.com/embed/eqMkI4fK)
+**2005:** At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Bruce tour premieres “Incident on 57th Street,” “If I Should Fall Behind,” “Johnny 99,” and “Cautious Man” (in only its second performance ever).
 
-On Night Two in Manchester on the Reunion Tour, Bruce plays "Rendezvous" in England for the first time.
+[Watch Video Highlight](https://videopress.com/embed/628Kn0VK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1999:**<br>
+[Watch Video Highlight](https://videopress.com/embed/K0obKMqu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/WItR0RGJTrY](https://www.youtube.com/embed/WItR0RGJTrY)
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/Sun_Herald_Thu__May_5__2005_.jpg)
 
-[https://www.youtube.com/embed/R-nOxl077a4](https://www.youtube.com/embed/R-nOxl077a4)
+**2006:** Bruce, Southside Johnny, and Bobby Bandiera perform at the fifth annual Rumson Country Day School benefit concert at The Stone Pony in Asbury Park.
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC6W2Gl4LhnzU4DZNDHIeMk](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC6W2Gl4LhnzU4DZNDHIeMk)
+**2008:** Bruce wraps up the second U.S. leg of the Magic Tour with a show at BankAtlantic center in Sunrise, Florida, where he plays the tour premiere of “I Wanna Be With You.”
 
-Bruce joins Soozie Tyrell at Scullville Studios in Egg Harbor, New Jersey, where he contributes guitar and backing vocals to Soozie's "h" and "Ste. Genevieve" respectively.
+[Watch Video Highlight](https://videopress.com/embed/zNJ22b8k?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2002:** [W](https://estreetshuffle.com/index.php/2021/09/30/matr-soozie-tyrell-and-bruce-springsteen-white-lines/)[ite Lines](https://estreetshuffle.com/index.php/2021/09/30/matr-soozie-tyrell-and-bruce-springsteen-white-lines/)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2008-05-02.jpg)
 
-[https://www.youtube.com/embed/dnz2SeT9IP4](https://www.youtube.com/embed/dnz2SeT9IP4)
+**2009:** Bruce plays one of the best shows of the Working on a Dream Tour at the Greensboro Coliseum in North Carolina, featuring tour premiere by-request covers of “Seventh Son” and “Hang on Sloopy,” and the tour premiere of “Human Touch.”
 
-[https://www.youtube.com/embed/xKGo5s6EHkc](https://www.youtube.com/embed/xKGo5s6EHkc)
+[Watch on Youtube: Bruce Springsteen Outlaw Pete Greensboro 2009 05 02 (with Jay Weinberg on drums)](https://www.youtube.com/watch?v=Ve_sdS7AKfU)
 
-A year to the day later, Bruce and Patti join Soozie on stage at her solo gig at The Stone Pony for "Ste. Genevieve" and "It's All Over Now."
+[Watch on Youtube: Bruce Springsteen Badlands Greensboro 2009 05 02 (with Jay Weinberg on drums)](https://www.youtube.com/watch?v=OJRZYUwJX1E)
 
-**2003:**<br>
+[Watch on Youtube: Radio Nowhere Greensboro 2009 05 02 (with Jay Weinberg on drums)](https://www.youtube.com/watch?v=6_SN7MAcTxY)
 
-[https://www.youtube.com/embed/sQE2tQMzsQs](https://www.youtube.com/embed/sQE2tQMzsQs)
+[Watch on Youtube: Bruce Springsteen Greensboro 5-2-09 7th Son](https://www.youtube.com/watch?v=YvGzfGxFdjE)
 
-[https://www.youtube.com/embed/J_Q803Ov1QE](https://www.youtube.com/embed/J_Q803Ov1QE)
+[Watch on Youtube: Bruce Springsteen Greensboro 5-2-09 Hang On Sloopy](https://www.youtube.com/watch?v=NfXi1CnA0Bg)
 
-At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Bruce tour premieres "Incident on 57th Street," "If I Should Fall Behind," "Johnny 99," and "Cautious Man" (in only its second performance ever).
+[Watch on Youtube: Bruce Springsteen - The Human Touch, Greensboro NC, May 2 2009](https://www.youtube.com/watch?v=M8Sf9vQuFTU)
 
-**2005:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2025/05/News_and_Record_2009_05_04_3.jpg)
 
-[https://videopress.com/embed/628Kn0VK](https://videopress.com/embed/628Kn0VK)
+**2010:** Bruce joins newly inducted New Jersey Hall of Fame member Danny DeVito on stage for “Glory Days.”
 
-[https://videopress.com/embed/K0obKMqu](https://videopress.com/embed/K0obKMqu)
+[Watch on Youtube: Bruce Springsteen and Danny DeVito perform "Glory Days" at the 2010 New Jersey Hall of Fame.](https://www.youtube.com/watch?v=wGdNnhyqq94)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Sun_Herald_Thu__May_5__2005_.jpg?resize=758%2C530&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2010-05-02.jpg)
 
-Bruce, Southside Johnny, and Bobby Bandiera perform at the fifth annual Rumson Country Day School benefit concert at The Stone Pony in Asbury Park.
+**2012:** Bruce wraps up the first leg of the Wrecking Ball Tour with an epic show in Newark that features the first “Bishop Danced” in 39 years, the tour premiere of “It’s Hard to Be a Saint in the City,” and a cover of “The Weight” in memory of Levon Helm.
 
-**2006:**<br>
+[Watch on Youtube: Bruce Springsteen Bishop Danced 2012 05 02 Newark, NJ CamMix Dubbed HD 720p](https://www.youtube.com/watch?v=8YntGDsYzlY)
 
-Bruce wraps up the second U.S. leg of the Magic Tour with a show at BankAtlantic center in Sunrise, Florida, where he plays the tour premiere of "I Wanna Be With You."
+[Watch on Youtube: Bruce Springsteen - The Weight (Prudential Center, Newark, NJ, 2012-05-02) - Multicam, dubbed.](https://www.youtube.com/watch?v=OY2DO_QLRIA)
 
-**2008:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2012-05-02-scaled.jpg)
 
-[https://videopress.com/embed/zNJ22b8k](https://videopress.com/embed/zNJ22b8k)
+**2018:** *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater after a two-week break. Bruce and team celebrate his Tony award (announced the day prior) with a special cake.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-02.jpg?resize=695%2C958&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2019/05/bruce-springsteen.jpg)
 
-Bruce plays one of the best shows of the Working on a Dream Tour at the Greensboro Coliseum in North Carolina, featuring tour premiere by-request covers of "Seventh Son" and "Hang on Sloopy," and the tour premiere of "Human Touch."
-
-**2009:**<br>
-
-[https://www.youtube.com/embed/Ve_sdS7AKfU](https://www.youtube.com/embed/Ve_sdS7AKfU)
-
-[https://www.youtube.com/embed/OJRZYUwJX1E](https://www.youtube.com/embed/OJRZYUwJX1E)
-
-[https://www.youtube.com/embed/6_SN7MAcTxY](https://www.youtube.com/embed/6_SN7MAcTxY)
-
-[https://www.youtube.com/embed/YvGzfGxFdjE](https://www.youtube.com/embed/YvGzfGxFdjE)
-
-[https://www.youtube.com/embed/NfXi1CnA0Bg](https://www.youtube.com/embed/NfXi1CnA0Bg)
-
-[https://www.youtube.com/embed/M8Sf9vQuFTU](https://www.youtube.com/embed/M8Sf9vQuFTU)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/News_and_Record_2009_05_04_3.jpg?resize=758%2C604&amp;ssl=1)
-
-Bruce joins newly inducted New Jersey Hall of Fame member Danny DeVito on stage for "Glory Days."
-
-**2010:**<br>
-
-[https://www.youtube.com/embed/wGdNnhyqq94](https://www.youtube.com/embed/wGdNnhyqq94)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2010-05-02.jpg?resize=758%2C712&amp;ssl=1)
-
-Bruce wraps up the first leg of the Wrecking Ball Tour with an epic show in Newark that features the first "Bishop Danced" in 39 years, the tour premiere of "It's Hard to Be a Saint in the City," and a cover of "The Weight" in memory of Levon Helm.
-
-**2012:**<br>
-
-[https://www.youtube.com/embed/8YntGDsYzlY](https://www.youtube.com/embed/8YntGDsYzlY)
-
-[https://www.youtube.com/embed/OY2DO_QLRIA](https://www.youtube.com/embed/OY2DO_QLRIA)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2012-05-02-scaled.jpg?resize=758%2C1461&amp;ssl=1)
-
-resumes its theatrical run at the Walter Kerr Theater after a two-week break. Bruce and team celebrate his Tony award (announced the day prior) with a special cake.
-
-**2018:** *Springsteen on Broadway*
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/05/bruce-springsteen-252x300.jpg?resize=758%2C902)
+ 

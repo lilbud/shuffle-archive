@@ -1,112 +1,85 @@
+***New for 2025:** New entry for 1977; audio for 1993*
 
-*New entry for 1977; audio for 1993***New for 2025:**
+**1973:** Bruce and the E Street Band play their third consecutive night at Fat City in Seaside Heights, New Jersey.
 
-Bruce and the E Street Band play their third consecutive night at Fat City in Seaside Heights, New Jersey.
+![](https://estreetshuffle.com/wp-content/uploads/2020/06/1973-06-23.jpg)
 
-**1973:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/06/1973-0624.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1973-06-23-300x95.jpg?resize=758%2C238)
+**1977:** Bruce and the E Street Band record “[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)” at Atlantic Studios in New York City.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1973-0624-172x300.jpg?resize=758%2C1323)
+[Watch on Youtube: Streets of Fire](https://www.youtube.com/watch?v=HzIm7Ek6Vv0)
 
-Bruce and the E Street Band record "" at Atlantic Studios in New York City.
+**1978:** Bruce and the E Street Band bring the Darkness Tour to the Pacific Northwest, starting with a show at the Paramount Theater in Portland.
 
-**1977:** [Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)
+[Watch on Youtube: Bruce Springsteen and the E Street Band 06.24.1978 Portland, OR SBD](https://www.youtube.com/watch?v=1tApe9uQUCs)
 
-[https://www.youtube.com/embed/HzIm7Ek6Vv0](https://www.youtube.com/embed/HzIm7Ek6Vv0)
+![](https://estreetshuffle.com/wp-content/uploads/2022/06/1978-06-23-scaled.jpg)
 
-Bruce and the E Street Band bring the Darkness Tour to the Pacific Northwest, starting with a show at the Paramount Theater in Portland.
+**1984:** Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man’s West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.
 
-**1978:**<br>
+**1989:** Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including “[Under the Boardwalk](https://estreetshuffle.com/index.php/2018/05/04/meeting-across-the-river-bruce-springsteen-and-bobby-bandiera-under-the-boardwalk/).”
 
-[https://www.youtube.com/embed/1tApe9uQUCs](https://www.youtube.com/embed/1tApe9uQUCs)
+[Watch on Youtube: Bruce Springsteen with Bobby Bandiera - UNDER THE BOARDWALK 1989 (audio)](https://www.youtube.com/watch?v=j0h8kVXEdX0)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/1978-06-23-scaled.jpg?resize=758%2C300&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/06/1989-06-24.jpg)
 
-Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man's West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.
+**1993:** A momentous night: Bruce and his touring band play a special “Concert to Fight Hunger” at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell… and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/).” For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording, available for purchase [here](https://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html).
 
-**1984:**<br>
+[Watch on Youtube: Seeds (Live at Brendan Byrne Arena, E. Rutherford, NJ - 6/24/1993)](https://www.youtube.com/watch?v=gc2zE_AcJBc)
 
-Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including "."
+[Watch on Youtube: Bruce Springsteen - SATAN'S JEWELLED CROWN 1993 live](https://www.youtube.com/watch?v=9Y0RSF242Dw)
 
-**1989:**[Under the Boardwalk](http://estreetshuffle.com/index.php/2018/05/04/meeting-across-the-river-bruce-springsteen-and-bobby-bandiera-under-the-boardwalk/)
+[Watch on Youtube: Tenth Avenue Freeze Out Bruce Springsteen with THE BIG MAN Clarence Clemons June 24 93 NJ](https://www.youtube.com/watch?v=rbSBt9Jp8Ms)
 
-[https://www.youtube.com/embed/j0h8kVXEdX0](https://www.youtube.com/embed/j0h8kVXEdX0)
+[Watch on Youtube: Bruce Springsteen - News coverage of Concert for Hunger 6/24/93](https://www.youtube.com/watch?v=okzsJ72I7WY)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1989-06-24.jpg?resize=758%2C558&amp;ssl=1)
+[Watch on Youtube: Human Touch (Live at Brendan Byrne Arena, East Rutherford, NJ - 6/24/93 - Official Audio)](https://www.youtube.com/watch?v=kQNaQRPs_v8)
 
-A momentous night: Bruce and his touring band play a special "Concert to Fight Hunger" at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell… and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in "." For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording, available for purchase .
+[Watch on Youtube: Better Days (Live at the Brendan Byrne Arena, East Rutherford, NJ - 06/24/93 - Official...](https://www.youtube.com/watch?v=hvsiTwqhD4k)
 
-**1993:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[here](http://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html)
+[Watch on Youtube: It's Been A Long Time (Live at Brendan Byrne Arena, East Rutherford, NJ - 06/24/93 - Of...](https://www.youtube.com/watch?v=jAIHCIOk6Qw)
 
-[https://www.youtube.com/embed/gc2zE_AcJBc](https://www.youtube.com/embed/gc2zE_AcJBc)
+[Watch on Youtube: Tenth Avenue Freeze-Out (Live at Brendan Byrne Arena, E. Rutherford, NJ - 6/24/1993)](https://www.youtube.com/watch?v=9dpFvFasyPw)
 
-[https://www.youtube.com/embed/9Y0RSF242Dw](https://www.youtube.com/embed/9Y0RSF242Dw)
+[Watch on Youtube: My Beautiful Reward (Live at Brendan Byrne Arena, E. Rutherford, NJ - 6/24/1993)](https://www.youtube.com/watch?v=QebZyM3ehlQ)
 
-[https://www.youtube.com/embed/rbSBt9Jp8Ms](https://www.youtube.com/embed/rbSBt9Jp8Ms)
+[Watch on Youtube: Having A Party (Live at Brendan Byrne Arena, E. Rutherford, NJ - 6/24/1993)](https://www.youtube.com/watch?v=U5oB2t2djEU)
 
-[https://www.youtube.com/embed/okzsJ72I7WY](https://www.youtube.com/embed/okzsJ72I7WY)
+![](https://estreetshuffle.com/wp-content/uploads/2021/06/1993-06-24.jpg)
 
-[https://www.youtube.com/embed/kQNaQRPs_v8](https://www.youtube.com/embed/kQNaQRPs_v8)
+**1999:** Night Two in Stockholm on the Reunion Tour.
 
-[https://www.youtube.com/embed/hvsiTwqhD4k](https://www.youtube.com/embed/hvsiTwqhD4k)
+[Watch on Youtube: Bruce Springsteen I Wanna Be With You Stockholm 24/06/1999](https://www.youtube.com/watch?v=vIBrhlatcuA)
 
-[https://www.youtube.com/embed/jAIHCIOk6Qw](https://www.youtube.com/embed/jAIHCIOk6Qw)
+[Watch Video Highlight](https://videopress.com/embed/w2v4c6sh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/9dpFvFasyPw](https://www.youtube.com/embed/9dpFvFasyPw)
+**2006:** The Seeger Sessions Tour starts its last American stand at the PNC Bank Arts Center in Holmdel, New Jersey.
 
-[https://www.youtube.com/embed/QebZyM3ehlQ](https://www.youtube.com/embed/QebZyM3ehlQ)
+[Watch on Youtube: When The Saints Go Marching In](https://www.youtube.com/watch?v=aff_zv76sCY)
 
-[https://www.youtube.com/embed/U5oB2t2djEU](https://www.youtube.com/embed/U5oB2t2djEU)
+![](https://estreetshuffle.com/wp-content/uploads/2020/06/2006-06-24.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1993-06-24.jpg?resize=758%2C993&amp;ssl=1)
+**2007:** Bruce performs “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for “[You Never Can Tell](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/).”
 
-Night Two in Stockholm on the Reunion Tour.
+[Watch on Youtube: Bruce with the JLB](https://www.youtube.com/watch?v=QIQjpeIfk9s)
 
-**1999:**<br>
+**2012:** Bruce and the E Street Band headline at the Isle of Wight Festival.
 
-[https://www.youtube.com/embed/vIBrhlatcuA](https://www.youtube.com/embed/vIBrhlatcuA)
+[Watch on Youtube: bruce springsteen-2012 isle of wight festival.](https://www.youtube.com/watch?v=RYR7oQYvBiU)
 
-[https://videopress.com/embed/w2v4c6sh](https://videopress.com/embed/w2v4c6sh)
+[Watch on Youtube: bruce springsteen-2012 isle of wight festival-shackled and drawn.](https://www.youtube.com/watch?v=BwGvGjaXLQU)
 
-The Seeger Sessions Tour starts its last American stand at the PNC Bank Arts Center in Holmdel, New Jersey.
+[Watch on Youtube: # IOW Bruce Springsteen + E Street Band @ Isle of Wight festival 2012 HQ.](https://www.youtube.com/watch?v=XNoFc-kna6g)
 
-**2006:**<br>
+**2019:** *Western Stars* debuts at #2 on the Billboard Album chart, just behind Madonna’s *Madame X* album–the first time Bruce and Madonna have sat atop the chart together since 1985.
 
-[https://www.youtube.com/embed/aff_zv76sCY](https://www.youtube.com/embed/aff_zv76sCY)
+**2021:** Bruce holds a friends-and-family rehearsal show for the return of *Springsteen on Broadway* at the St. James Theater in New York City.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2006-06-24-300x291.jpg?resize=758%2C735)
+**2023:** Bruce and the E Street Band play their first of three nights at Ullevi in Gothenburg, Sweden. Stream or purchase this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-ullevi-gothenburg-sweden-06-24-2023-mp3-flac-or-online-music-streaming/31084.html).
 
-Bruce performs "" at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for "."
+[Watch on Youtube: THE RIVER Bruce Springsteen & The E Street Band live Ullevi Gothenburg 06/24/2023](https://www.youtube.com/watch?v=gQWm01XhFac)
 
-**2007:** [If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)[You Never Can Tell](http://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)
+[Watch on Youtube: Bruce Springsteen - Born to Run (Live @ Ullevi, Gothenburg, Sweden 2023)](https://www.youtube.com/watch?v=E8ViDIvaxyw)
 
-[https://www.youtube.com/embed/QIQjpeIfk9s](https://www.youtube.com/embed/QIQjpeIfk9s)
-
-Bruce and the E Street Band headline at the Isle of Wight Festival.
-
-**2012:**<br>
-
-[https://www.youtube.com/embed/RYR7oQYvBiU](https://www.youtube.com/embed/RYR7oQYvBiU)
-
-[https://www.youtube.com/embed/BwGvGjaXLQU](https://www.youtube.com/embed/BwGvGjaXLQU)
-
-[https://www.youtube.com/embed/XNoFc-kna6g](https://www.youtube.com/embed/XNoFc-kna6g)
-
-debuts at #2 on the Billboard Album chart, just behind Madonna's album–the first time Bruce and Madonna have sat atop the chart together since 1985.
-
-**2019:** *Western Stars**Madame X*
-
-Bruce holds a friends-and-family rehearsal show for the return of at the St. James Theater in New York City.
-
-**2021:** *Springsteen on Broadway*
-
-Bruce and the E Street Band play their first of three nights at Ullevi in Gothenburg, Sweden. Stream or purchase this show .
-
-**2023:** [here](https://www.nugs.net/live-download-of-bruce-springsteen-ullevi-gothenburg-sweden-06-24-2023-mp3-flac-or-online-music-streaming/31084.html)
-
-[https://www.youtube.com/embed/gQWm01XhFac](https://www.youtube.com/embed/gQWm01XhFac)
-
-[https://www.youtube.com/embed/E8ViDIvaxyw](https://www.youtube.com/embed/E8ViDIvaxyw)
-
-[https://www.youtube.com/embed/mP79UWrWZWI](https://www.youtube.com/embed/mP79UWrWZWI)
+[Watch on Youtube: BRUCE SPRINGSTEEN & The E Street Band - Glory Days - Gothenburg - 2023-06-24](https://www.youtube.com/watch?v=mP79UWrWZWI)

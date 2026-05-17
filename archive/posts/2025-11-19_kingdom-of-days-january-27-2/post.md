@@ -1,90 +1,69 @@
+**1973:** Night Four of five for Bruce at The Quiet Knight in Chicago opening for the Persuasions.
 
-Night Four of five for Bruce at The Quiet Knight in Chicago opening for the Persuasions.
+**1985:** Bruce and the E Street Band wrap the first leg of the *Born in the U.S.A.* Tour at the Carrier Dome in Syracuse. The show is captured by a fan on video, and you can watch it here.
 
-**1973:**<br>
+[Watch Video Highlight](https://videopress.com/embed/oIAPRV7U?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the E Street Band wrap the first leg of the Tour at the Carrier Dome in Syracuse. The show is captured by a fan on video, and you can watch it here.
+![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Ithaca_Journal_1985_01_28_Page_1.jpg)
 
-**1985:***Born in the U.S.A.*
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/1985-01-27b.png)
 
-[https://videopress.com/embed/oIAPRV7U](https://videopress.com/embed/oIAPRV7U)
+**1986:** Bruce wins three American Music Awards: Favorite Pop/Rock Male Artist, Favorite Pop/Rock Album (for *Born in the U.S.A.*), and Favorite Pop/Rock Male Video Artist. He’s not in attendance though, so his awards are accepted on his behalf by…
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Ithaca_Journal_1985_01_28_Page_1.jpg?resize=758%2C1093&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen Wins Pop/Rock Male Video - AMA 1986](https://www.youtube.com/watch?v=BbB4dkQ5xFc)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1985-01-27b.png?resize=758%2C422&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen Wins Pop/Rock Album - AMA 1986](https://www.youtube.com/watch?v=YzXsgSu3fRk)
 
-Bruce wins three American Music Awards: Favorite Pop/Rock Male Artist, Favorite Pop/Rock Album (for ), and Favorite Pop/Rock Male Video Artist. He's not in attendance though, so his awards are accepted on his behalf by…
+[Watch on Youtube: Bruce Springsteen wins Favorite Pop/Rock Male- AMA 1986](https://www.youtube.com/watch?v=_DSPk3PM1w8)
 
-**1986:** *Born in the U.S.A.*
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/1986-01-27.png)
 
-[https://www.youtube.com/embed/BbB4dkQ5xFc](https://www.youtube.com/embed/BbB4dkQ5xFc)
+**1994:** Bruce debuts “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” at the *Commitment to Life* AIDS benefit in Los Angeles.
 
-[https://www.youtube.com/embed/YzXsgSu3fRk](https://www.youtube.com/embed/YzXsgSu3fRk)
+[Watch on Youtube: Bruce Springsteen - Los Angeles - 1994-01-27 news coverage](https://www.youtube.com/watch?v=lhL-btWA-o4)
 
-[https://www.youtube.com/embed/_DSPk3PM1w8](https://www.youtube.com/embed/_DSPk3PM1w8)
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/1994-01-27.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1986-01-27.png?resize=758%2C369&amp;ssl=1)
+**1997:** Bruce takes his solo tour to Tokyo, playing the first of four shows at the International Forum. Before the show, he appears on local news for a somewhat awkward (due to the need for asynchronous translation) interview.
 
-Bruce debuts "" at the AIDS benefit in Los Angeles.
+[Watch on Youtube: Bruce Springsteen interviewed on Tokyo TV, January 27 1997](https://www.youtube.com/watch?v=TjXAs8LiE4E)
 
-**1994:** [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)*Commitment to Life*
+[Watch on Youtube: Darkness on the Edge of Town - Tokyo, January 27, 1997](https://www.youtube.com/watch?v=eTBpPeipg-M)
 
-[https://www.youtube.com/embed/lhL-btWA-o4](https://www.youtube.com/embed/lhL-btWA-o4)
+[Watch on Youtube: No Surrender - Tokyo, January 27, 1997](https://www.youtube.com/watch?v=dWPetn7eKCU)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1994-01-27-104x300.jpg?resize=758%2C2187)
+[Watch on Youtube: Across the Border - Tokyo, January 27, 1997](https://www.youtube.com/watch?v=wIjVa0j4N68)
 
-Bruce takes his solo tour to Tokyo, playing the first of four shows at the International Forum. Before the show, he appears on local news for a somewhat awkward (due to the need for asynchronous translation) interview.
+**2009**: *Working on a Dream,* Bruce’s sixteenth studio album, is released. Meanwhile, Bruce and the E Street Band rehearse for their upcoming Super Bowl halftime show at Raymond James Stadium in Tampa.
 
-**1997:**<br>
+[Watch on Youtube: Working On A Dream](https://www.youtube.com/playlist?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ)
 
-[https://www.youtube.com/embed/TjXAs8LiE4E](https://www.youtube.com/embed/TjXAs8LiE4E)
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/2009-01-27a.png)
 
-[https://www.youtube.com/embed/eTBpPeipg-M](https://www.youtube.com/embed/eTBpPeipg-M)
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/2009-01-27b.png)
 
-[https://www.youtube.com/embed/dWPetn7eKCU](https://www.youtube.com/embed/dWPetn7eKCU)
+**2016:** The River Tour (2016 Edition) moves on to Madison Square Garden, where “[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)” makes its tour premiere.
 
-[https://www.youtube.com/embed/wIjVa0j4N68](https://www.youtube.com/embed/wIjVa0j4N68)
+[Watch on Youtube: Bruce Springsteen "Meet Me in the City" MSG NYC 1/27/16](https://www.youtube.com/watch?v=2vkOSjgsP0s)
 
-: Bruce's sixteenth studio album, is released. Meanwhile, Bruce and the E Street Band rehearse for their upcoming Super Bowl halftime show at Raymond James Stadium in Tampa.
+[Watch on Youtube: Bruce Springsteen - 2016-01-27 New York - I Wanna Marry You (intro with false start)](https://www.youtube.com/watch?v=K1Gb78wYysI)
 
-**2009***Working on a Dream*,
+[Watch on Youtube: Bruce Springsteen "Thunder Road" MSG NYC 1/27/16](https://www.youtube.com/watch?v=GvpWKA6oIaY)
 
-[https://www.youtube.com/embed/videoseries?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ](https://www.youtube.com/embed/videoseries?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ)
+![](https://estreetshuffle.com/wp-content/uploads/2024/01/The_Journal_Times_Fri__Jan_29__2016_.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2009-01-27a.png?resize=758%2C1073&amp;ssl=1)
+**2017:** Night 3 in Perth features the first and only performance of “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” in Australia to date.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2009-01-27b.png?resize=758%2C1448&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen Perth Australia 2017. Drive All Night.](https://www.youtube.com/watch?v=tMo4WuOlqV8)
 
-The River Tour (2016 Edition) moves on to Madison Square Garden, where "" makes its tour premiere.
+[Watch on Youtube: Bruce Springsteen - Glory Days, Perth, Western Australia 27/1/17](https://www.youtube.com/watch?v=646s35JmvTI)
 
-**2016:** [Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)
+[Watch on Youtube: Bruce Springsteen - Backstreets, Perth Arena, 27th Jan 2017](https://www.youtube.com/watch?v=R9qu7FLRe74)
 
-[https://www.youtube.com/embed/2vkOSjgsP0s](https://www.youtube.com/embed/2vkOSjgsP0s)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. David Crosby is in attendance tonight.
 
-[https://www.youtube.com/embed/K1Gb78wYysI](https://www.youtube.com/embed/K1Gb78wYysI)
+![](https://estreetshuffle.com/wp-content/uploads/2019/01/patticrosby.jpg)
 
-[https://www.youtube.com/embed/GvpWKA6oIaY](https://www.youtube.com/embed/GvpWKA6oIaY)
+**2023:** Bruce takes a break from rehearsing for his upcoming world tour and stops by the Springsteen Archives and Center for American Music at Monmouth University. (photo from Springsteen Archives Instagram)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/01/The_Journal_Times_Fri__Jan_29__2016_.jpg?resize=758%2C967&amp;ssl=1)
-
-Night 3 in Perth features the first and only performance of "" in Australia to date.
-
-**2017:**[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)
-
-[https://www.youtube.com/embed/tMo4WuOlqV8](https://www.youtube.com/embed/tMo4WuOlqV8)
-
-[https://www.youtube.com/embed/646s35JmvTI](https://www.youtube.com/embed/646s35JmvTI)
-
-[https://www.youtube.com/embed/R9qu7FLRe74](https://www.youtube.com/embed/R9qu7FLRe74)
-
-continues its theatrical run at the Walter Kerr Theater in New York City. David Crosby is in attendance tonight.
-
-**2018:** *Springsteen on Broadway*
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/01/patticrosby-300x300.jpg?resize=758%2C757)
-
-Bruce takes a break from rehearsing for his upcoming world tour and stops by the Springsteen Archives and Center for American Music at Monmouth University. (photo from Springsteen Archives Instagram)
-
-**2023:**<br>
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Screenshot-2025-11-12-101723.jpg?resize=758%2C571&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/01/Screenshot-2025-11-12-101723.jpg)

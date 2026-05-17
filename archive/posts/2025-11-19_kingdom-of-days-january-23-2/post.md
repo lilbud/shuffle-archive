@@ -1,56 +1,41 @@
+**1950:** Founding E Street Band member “Phantom” Dan Federici is born in Flemington, New Jersey.
 
-Founding E Street Band member "Phantom" Dan Federici is born in Flemington, New Jersey.
+**1971:** At the Upstage in Asbury Park, Steel Mill plays its final gig. Listen in on three songs from that show below.
 
-**1950:**<br>
+[Watch on Youtube: Steel Mill (Bruce Springsteen) 1971-01-23 live at The Upstage, Asbury Park](https://www.youtube.com/watch?v=RJUvc_TRTHs)
 
-At the Upstage in Asbury Park, Steel Mill plays its final gig. Listen in on three songs from that show below.
+![](https://estreetshuffle.com/wp-content/uploads/2018/01/1971-0123a.jpg)
 
-**1971:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/1971-01-22.jpg)
 
-[https://www.youtube.com/embed/RJUvc_TRTHs](https://www.youtube.com/embed/RJUvc_TRTHs)
+**1972:** Bruce sits in with the Sundance Blues Band at The Captain’s Garter in Neptune, NJ.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1971-0123a-213x300.jpg?resize=758%2C1070)
+**1981:** The original River Tour continues its Canadian leg with a stop at the Montreal Forum. The show is captured on video–the quality isn’t great (it’s 1981, after all), but it’s quite watchable.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1971-01-22-300x138.jpg?resize=758%2C349)
+[Watch on Youtube: 1981-01-23 Montreal, QC](https://www.youtube.com/playlist?list=PLnbVaK2f4rag1FRO13B9e2PprQP-HQFcW)
 
-Bruce sits in with the Sundance Blues Band at The Captain's Garter in Neptune, NJ.
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/1996-01-23a.jpg)
 
-**1972:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/monreal81.jpg)
 
-The original River Tour continues its Canadian leg with a stop at the Montreal Forum. The show is captured on video–the quality isn't great (it's 1981, after all), but it's quite watchable.
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/1981-01-23.png)
 
-**1981:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/soup.jpg)
 
-[https://www.youtube.com/embed/videoseries?list=PLnbVaK2f4rag1FRO13B9e2PprQP-HQFcW](https://www.youtube.com/embed/videoseries?list=PLnbVaK2f4rag1FRO13B9e2PprQP-HQFcW)
+**1985:** Night One in Providence on the *Born in the U.S.A.* Tour.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1996-01-23a-233x300.jpg?resize=758%2C976)
+[Watch Video Highlight](https://videopress.com/embed/3Mt9MRp3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/monreal81.jpg?resize=382%2C1071&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/1985-01-23.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1981-01-23.png?resize=758%2C462&amp;ssl=1)
+**1996:** Bruce performs solo at the Jesse H. Jones Hall for the Performing Arts in Houston.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/soup-300x202.jpg?resize=758%2C511)
+[Watch Video Highlight](https://videopress.com/embed/ldxTa26C?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Night One in Providence on the Tour.
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/1996-01-23b.jpg)
 
-**1985:***Born in the U.S.A.*
+**2010:** Backed by Bobby Bandiera and his band, Bruce plays a benefit for his kids’ school at the Stone Pony, with guest appearances by Patti, Southside, and Brian Williams.
 
-[https://videopress.com/embed/3Mt9MRp3](https://videopress.com/embed/3Mt9MRp3)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Bono.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1985-01-23.jpg?resize=758%2C1178&amp;ssl=1)
-
-Bruce performs solo at the Jesse H. Jones Hall for the Performing Arts in Houston.
-
-**1996:**<br>
-
-[https://videopress.com/embed/ldxTa26C](https://videopress.com/embed/ldxTa26C)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1996-01-23b-300x260.jpg?resize=758%2C657)
-
-Backed by Bobby Bandiera and his band, Bruce plays a benefit for his kids' school at the Stone Pony, with guest appearances by Patti, Southside, and Brian Williams.
-
-**2010:**<br>
-
-continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Bono.
-
-**2018:** *Springsteen on Broadway*
+ 

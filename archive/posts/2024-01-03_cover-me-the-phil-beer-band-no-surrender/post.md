@@ -1,18 +1,15 @@
+Singer, songwriter, and multi-instrumentalist Phil Beer is no stranger to Bruce Springsteen’s catalog, having played covers of Bruce’s music at least as far back as his Albion Band days a couple of decades ago.
 
-Singer, songwriter, and multi-instrumentalist Phil Beer is no stranger to Bruce Springsteen's catalog, having played covers of Bruce's music at least as far back as his Albion Band days a couple of decades ago.
+Even today, he’s likely to feature songs like “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” and “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)” in his acoustic sets.
 
-Even today, he's likely to feature songs like "" and "" in his acoustic sets.
+[Watch on Youtube: Phil Beer:Youngstown](https://www.youtube.com/watch?v=COWapD2t-jQ)
 
-[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)
+His high-water mark, though, is undoubtedly his band’s joyously rollicking cover of “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” from his *Mandorock 2000 Live* album.
 
-[https://www.youtube.com/embed/COWapD2t-jQ](https://www.youtube.com/embed/COWapD2t-jQ)
+[Watch on Youtube: No Surrender](https://www.youtube.com/watch?v=0uZ-UY0KVHo)
 
-His high-water mark, though, is undoubtedly his band's joyously rollicking cover of "" from his album.
+Beer’s version of “No Surrender” leans heavily on Gareth Turner’s melodeon, infusing Bruce’s song with a zydeco spirit that’s impossible to resist.
 
-[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)*Mandorock 2000 Live*
+Introduced as a one-off cover, “No Surrender” immediately became a fan favorite and has remained a consistent encore number ever since.
 
-[https://www.youtube.com/embed/0uZ-UY0KVHo](https://www.youtube.com/embed/0uZ-UY0KVHo)
-
-Beer's version of "No Surrender" leans heavily on Gareth Turner's melodeon, infusing Bruce's song with a zydeco spirit that's impossible to resist.
-
-Introduced as a one-off cover, "No Surrender" immediately became a fan favorite and has remained a consistent encore number ever since.
+ 

@@ -1,98 +1,71 @@
+**1973:** Bruce opens for Blood, Sweat and Tears, The Eagles, Joe Walsh, Billy Preston, and more at the Ohio University Music Festival.
 
-Bruce opens for Blood, Sweat and Tears, The Eagles, Joe Walsh, Billy Preston, and more at the Ohio University Music Festival.
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1973-0427.jpg)
 
-**1973:**<br>
+**1974:** Bruce plays three(!) shows at three schools in two states: First, a midnight show at Brown University in Providence. Next, an outdoor afternoon show with Aerosmith at the University of Connecticut. Finally, an evening show at the University of Hartford.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0427.jpg?resize=430%2C626&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/48959561473_bd28364ebd_6k-scaled.jpg)
 
-Bruce plays three(!) shows at three schools in two states: First, a midnight show at Brown University in Providence. Next, an outdoor afternoon show with Aerosmith at the University of Connecticut. Finally, an evening show at the University of Hartford.
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1974-0427a.jpg)
 
-**1974:**<br>
+**1976:** Bruce and the band are fifty miles into their drive from Chattanooga (where they played last night) to Nashville (where they play tomorrow) before they realize they’d left Max behind. Upon arriving in Nashville, Bruce plays tourist and checks out local record stores and clothing shops.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/48959561473_bd28364ebd_6k-scaled.jpg?resize=758%2C1159&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2022/04/1976-04-27-scaled.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0427a.jpg?resize=480%2C800&amp;ssl=1)
+**1982:** At the Power Station in New York City, Bruce works on several songs for what would eventually become *Born in the U.S.A.*
 
-Bruce and the band are fifty miles into their drive from Chattanooga (where they played last night) to Nashville (where they play tomorrow) before they realize they'd left Max behind. Upon arriving in Nashville, Bruce plays tourist and checks out local record stores and clothing shops.
+**1983:** Bruce makes a guest appearance with The Diamonds at The Stone Pony.
 
-**1976:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1983-0427.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/1976-04-27-scaled.jpg?resize=758%2C1526&amp;ssl=1)
+**1988:** At the fourth of five nights at the Los Angeles Sports Arena, Bruce premieres “Across the Borderline” and records “Tougher Than the Rest” and “Born to Run” for inclusion on *Chimes of Freedom* and *Video Anthology*.
 
-At the Power Station in New York City, Bruce works on several songs for what would eventually become
+[Watch on Youtube: Bruce Springsteen - Tougher Than the Rest (Official Video)](https://www.youtube.com/watch?v=_91hNV6vuBY)
 
-**1982:** *Born in the U.S.A.*
+[Watch on Youtube: Bruce Springsteen - Born to Run (Acoustic)](https://www.youtube.com/watch?v=dONEgrsYoOk)
 
-Bruce makes a guest appearance with The Diamonds at The Stone Pony.
+[Watch Video Highlight](https://videopress.com/embed/r8cmoMkh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1983:**<br>
+**1996:** At the second of two shows at Royal Albert Hall, Bruce opens with “Pony Boy” for the first and only time, before segueing seamlessly (if awkwardly) into “The Ghost of Tom Joad.” Played twice before in New Jersey four years prior, “Pony Boy” hasn’t been heard from since.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1983-0427.jpg?resize=347%2C512&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/Ty8xxuZl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-At the fourth of five nights at the Los Angeles Sports Arena, Bruce premieres "Across the Borderline" and records "Tougher Than the Rest" and "Born to Run" for inclusion on and .
+**2008:** At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bobcats Arena enjoy the tour premieres of “Souls of the Departed” (the show opener) and “Wild Billy’s Circus Story,”
 
-**1988:** *Chimes of Freedom**Video Anthology*
+[Watch on Youtube: Souls of The Departed - Bruce Sprinsgteen](https://www.youtube.com/watch?v=nHlzZofJQwQ)
 
-[https://www.youtube.com/embed/_91hNV6vuBY](https://www.youtube.com/embed/_91hNV6vuBY)
+[Watch Video Highlight](https://videopress.com/embed/YELHaaky?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/dONEgrsYoOk](https://www.youtube.com/embed/dONEgrsYoOk)
+[Watch Video Highlight](https://videopress.com/embed/zqt0avd3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/r8cmoMkh](https://videopress.com/embed/r8cmoMkh)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2008-04-27.jpg)
 
-At the second of two shows at Royal Albert Hall, Bruce opens with "Pony Boy" for the first and only time, before segueing seamlessly (if awkwardly) into "The Ghost of Tom Joad." Played twice before in New Jersey four years prior, "Pony Boy" hasn't been heard from since.
+**2009:** Bruce and Patti sing “Streets of Philadelphia” at a Tom Hanks tribute at New York City’s Lincoln Center.
 
-**1996:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2009-04-27.jpg)
 
-[https://videopress.com/embed/Ty8xxuZl](https://videopress.com/embed/Ty8xxuZl)
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/2009-0427.jpg)
 
-At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bobcats Arena enjoy the tour premieres of "Souls of the Departed" (the show opener) and "Wild Billy's Circus Story,"
+**2012:** At night two in Los Angeles, Bruce surprises early arrivals by walking out on stage pre-show with a group of relatives and playing an acoustic “For You.” Bruce fakes out Kevin Buell with a fake guitar mishap before “Waitin’ on a Sunny Day,” only to honor him for reaching the 1,000 show milestone when he came out on stage. Making their tour debuts tonight: “No Surrender” and “Bobby Jean.”
 
-**2008:**<br>
+[Watch on Youtube: Bruce Springsteen - For You (Acoustic - Live Los Angeles April 27 2012)](https://www.youtube.com/watch?v=I46gjoZQtws)
 
-[https://www.youtube.com/embed/nHlzZofJQwQ](https://www.youtube.com/embed/nHlzZofJQwQ)
+[Watch on Youtube: Bruce Springsteen - Waiting on a sunny day (Live Los Angeles April 27 2012)](https://www.youtube.com/watch?v=UTtlHPJRsQU)
 
-[https://videopress.com/embed/YELHaaky](https://videopress.com/embed/YELHaaky)
+[Watch on Youtube: Bruce Springsteen - 634-5789 (Live Los Angeles April 27 2012)](https://www.youtube.com/watch?v=vrJHvpldjX4)
 
-[https://videopress.com/embed/zqt0avd3](https://videopress.com/embed/zqt0avd3)
+[Watch on Youtube: Bruce Springsteen - Dancing in the Dark (Live Los Angeles April 27 2012)](https://www.youtube.com/watch?v=gmp6OH15jaM)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-27.jpg?resize=401%2C984&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen @ L.A. Sports Arena (4/27/12) - "Tenth Avenue Freeze-Out"](https://www.youtube.com/watch?v=IKMUqp4jzpA)
 
-Bruce and Patti sing "Streets of Philadelphia" at a Tom Hanks tribute at New York City's Lincoln Center.
+**2013:** The E Street Band (minus Bruce) rehearses for the next leg of the Wrecking Ball Tour at Nordisk Film Studios in Oslo.
 
-**2009:**<br>
+**2019:** Lucky fans (including this blogger) view never-before-seen (and many never-since) archival clips of Bruce Springsteen and the E Street Band at a special Bruce Springsteen Archives event at the Asbury Park Music and Film Festival. Following the film, Bruce makes a surprise appearance on stage with Thom Zimny, sitting down for a Q&A discussion with *Backstreets* editor Chris Phillips.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2009-04-27.jpg?resize=566%2C962&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2019-04-27a.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2009-0427.jpg?resize=580%2C398&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2019-04-27b.jpg)
 
-At night two in Los Angeles, Bruce surprises early arrivals by walking out on stage pre-show with a group of relatives and playing an acoustic "For You." Bruce fakes out Kevin Buell with a fake guitar mishap before "Waitin' on a Sunny Day," only to honor him for reaching the 1,000 show milestone when he came out on stage. Making their tour debuts tonight: "No Surrender" and "Bobby Jean."
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/46975588464_1553b90db6_o.jpg)
 
-**2012:**<br>
-
-[https://www.youtube.com/embed/I46gjoZQtws](https://www.youtube.com/embed/I46gjoZQtws)
-
-[https://www.youtube.com/embed/UTtlHPJRsQU](https://www.youtube.com/embed/UTtlHPJRsQU)
-
-[https://www.youtube.com/embed/vrJHvpldjX4](https://www.youtube.com/embed/vrJHvpldjX4)
-
-[https://www.youtube.com/embed/gmp6OH15jaM](https://www.youtube.com/embed/gmp6OH15jaM)
-
-[https://www.youtube.com/embed/IKMUqp4jzpA](https://www.youtube.com/embed/IKMUqp4jzpA)
-
-The E Street Band (minus Bruce) rehearses for the next leg of the Wrecking Ball Tour at Nordisk Film Studios in Oslo.
-
-**2013:**<br>
-
-Lucky fans (including this blogger) view never-before-seen (and many never-since) archival clips of Bruce Springsteen and the E Street Band at a special Bruce Springsteen Archives event at the Asbury Park Music and Film Festival. Following the film, Bruce makes a surprise appearance on stage with Thom Zimny, sitting down for a Q&A discussion with editor Chris Phillips.
-
-**2019:** *Backstreets*
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-04-27a.jpg?resize=669%2C985&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-04-27b.jpg?resize=758%2C412&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/46975588464_1553b90db6_o.jpg?resize=550%2C367&amp;ssl=1)
-
-Bruce and the E Street Band rehearse in Barcelona for the imminent European leg of their World Tour.
-
-**2023:**<br>
+**2023:** Bruce and the E Street Band rehearse in Barcelona for the imminent European leg of their World Tour.

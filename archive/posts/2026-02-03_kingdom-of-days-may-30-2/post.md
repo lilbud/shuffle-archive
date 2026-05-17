@@ -1,120 +1,87 @@
+**1964**: Honorary E Streeter Tom Morello is born in New York City.
 
-: Honorary E Streeter Tom Morello is born in New York City.
-
-**1964**<br>
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/Tom-Morello.jpg?resize=758%2C505&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/Tom-Morello.jpg)
 
 **1969:** Child plays a gig at Pandemonium in Wanamassa, New Jersey.
 
-Bruce plays his first North Carolina show, opening for Chicago at the Cumberland County Memorial Arena in Fayetteville. This is the start of a thirteen-show tour with Chicago, which will not go well–Bruce's music and style are not a good fit for Chicago fans.
+**1973:** Bruce plays his first North Carolina show, opening for Chicago at the Cumberland County Memorial Arena in Fayetteville. This is the start of a thirteen-show tour with Chicago, which will not go well–Bruce’s music and style are not a good fit for Chicago fans.
 
-**1973:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1973-0530.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1973-0530.jpg?resize=758%2C465&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1973-05-30.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1973-05-30.jpg?resize=758%2C774&amp;ssl=1)
+**1976:** Southside Johnny’s debut album release party at The Stone Pony is broadcast live on WNEW-FM and other stations. Bruce, Stevie, Max, Clarence, Ronnie Spector, and other notables are in attendance and join Southside for the encore performance of “Having a Party.”
 
-Southside Johnny's debut album release party at The Stone Pony is broadcast live on WNEW-FM and other stations. Bruce, Stevie, Max, Clarence, Ronnie Spector, and other notables are in attendance and join Southside for the encore performance of "Having a Party."
+[Watch on Youtube: Southside Johnny & Asbury Jukes debut album release party: Stone Pony Asbury Park 1976](https://www.youtube.com/watch?v=AyS5BOOhbEw)
 
-**1976:**<br>
-
-[https://www.youtube.com/embed/AyS5BOOhbEw](https://www.youtube.com/embed/AyS5BOOhbEw)
+[https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3?_=1)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3>
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1976-05-30a.jpg?resize=758%2C504&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1976-05-30a.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1976-05-30b.jpg?resize=758%2C635&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1976-05-30b.jpg)
 
-At Night Two of three at Boston's Music Hall, Bruce tour premieres "Because the Night" as an encore.
+**1978:** At Night Two of three at Boston’s Music Hall, Bruce tour premieres “Because the Night” as an encore.
 
-**1978:**<br>
+[Watch on Youtube: Bruce Springsteen Prove It All Night Live In Boston 30/05/1978](https://www.youtube.com/watch?v=The8c38RJr0)
 
-[https://www.youtube.com/embed/The8c38RJr0](https://www.youtube.com/embed/The8c38RJr0)
+**1979:** Bruce and the E Street Band work on “Mary Lou” and “Point Blank” at the Power Station in New York City.
 
-Bruce and the E Street Band work on "Mary Lou" and "Point Blank" at the Power Station in New York City.
+[Watch on Youtube: Bruce Springsteen - Mary Lou (V12) - Band Rehearsal at The Power Station (May 30, 1979)](https://www.youtube.com/watch?v=xcka1wNBS9Q)
 
-**1979:**<br>
+**1981**: Bruce and the E Street Band play “Jackson Cage” for the first time in Europe at their second of six nights at London’s Wembley Arena on the original River Tour.
 
-[https://www.youtube.com/embed/xcka1wNBS9Q](https://www.youtube.com/embed/xcka1wNBS9Q)
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1981-0530.jpg)
 
-: Bruce and the E Street Band play "Jackson Cage" for the first time in Europe at their second of six nights at London's Wembley Arena on the original River Tour.
+**1993:** Bruce’s World Tour 1993 stops for a night in the town of Gentofte, Denmark.
 
-**1981**<br>
+[Watch on Youtube: Bruce Springsteen - Brilliant Disguise - Gentofte 1993 - Denmark](https://www.youtube.com/watch?v=bZvWPUzT75Q)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1981-0530.jpg?resize=758%2C1045&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - My Beautiful Reward - Gentofte 1993 - Denmark](https://www.youtube.com/watch?v=CcTqWBfRP2E)
 
-Bruce's World Tour 1993 stops for a night in the town of Gentofte, Denmark.
+**1999:** Bruce opens the second Reunion show in Berlin with “I Wanna Be With You.”
 
-**1993:**<br>
+**2005:** Bruce plays a solo acoustic show at Forest National in Brussels, where “State Trooper” makes its Devils & Dust Tour premiere.
 
-[https://www.youtube.com/embed/bZvWPUzT75Q](https://www.youtube.com/embed/bZvWPUzT75Q)
+**2006:** The Seeger Sessions Tour arrives at the Germain Amphitheater in Columbus, where Bruce premieres The Band’s “Rag Mama Rag.”
 
-[https://www.youtube.com/embed/CcTqWBfRP2E](https://www.youtube.com/embed/CcTqWBfRP2E)
+[Watch on Youtube: Bruce Springsteen - "Rag Mama Rag" - Columbus, May 30 2006](https://www.youtube.com/watch?v=iH1zAoS99gE)
 
-Bruce opens the second Reunion show in Berlin with "I Wanna Be With You."
+**2008:** The Magic Tour gets its longest show to date, at Emirates Stadium in London.
 
-**1999:**<br>
+[Watch on Youtube: Bruce Springsteen - Working On The Highway- London 30 May 2008](https://www.youtube.com/watch?v=u7HfoSgA1bw)
 
-Bruce plays a solo acoustic show at Forest National in Brussels, where "State Trooper" makes its Devils & Dust Tour premiere.
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2008-05-30.jpg)
 
-**2005:**<br>
+**2009:** Bruce and the E Street Band kick off the European leg of the Working on a Dream Tour by headlining Pinkpop in The Netherlands, where “From Small Things (Big Things One Day Come)” makes its tour debut and Brandon Flowers guest-stars on “Thunder Road.”
 
-The Seeger Sessions Tour arrives at the Germain Amphitheater in Columbus, where Bruce premieres The Band's "Rag Mama Rag."
+[Watch on Youtube: Bruce Springsteen and the E Street Band - Pinkpop 2009 [upscaled 1080p]](https://www.youtube.com/watch?v=dzkecxiSwdY)
 
-**2006:**<br>
+[Watch on Youtube: im on fire (pinkpop pro shot 2009- bruce springsteen](https://www.youtube.com/watch?v=zQOWT77B2Yo)
 
-[https://www.youtube.com/embed/iH1zAoS99gE](https://www.youtube.com/embed/iH1zAoS99gE)
+[Watch on Youtube: Bruce Springsteen @ Pinkpop 2009 - Thunder Road with Brandon Flowers (Killers)](https://www.youtube.com/watch?v=x49CyXVo15c)
 
-The Magic Tour gets its longest show to date, at Emirates Stadium in London.
+**2012:** The Wrecking Ball Tour arrives in Berlin, and Bruce marks the occasion by opening with his only known performance of Wizz Jones’ “When I Leave Berlin” and tour debuting “Save My Love.”
 
-**2008:**<br>
+[Watch on Youtube: When I Leave Berlin (Berlin 05/30/12)](https://www.youtube.com/watch?v=MsjkqHT0O-o)
 
-[https://www.youtube.com/embed/u7HfoSgA1bw](https://www.youtube.com/embed/u7HfoSgA1bw)
+[Watch on Youtube: BRUCE SPRINGSTEEN WE ARE ALIVE @ BERLIN 30-05-2012](https://www.youtube.com/watch?v=UoK7-pBGw8c)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-30.jpg?resize=758%2C1420&amp;ssl=1)
+**2015:** Bruce and Patti perform some classic covers with Bobby Bandiera’s band at the wedding of Patti’s personal assistant in Oakland, New Jersey.
 
-Bruce and the E Street Band kick off the European leg of the Working on a Dream Tour by headlining Pinkpop in The Netherlands, where "From Small Things (Big Things One Day Come)" makes its tour debut and Brandon Flowers guest-stars on "Thunder Road."
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/2015-0530.jpg)
 
-**2009:**<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/dzkecxiSwdY](https://www.youtube.com/embed/dzkecxiSwdY)
+**2019:** Bruce releases “Tucson Train,” the third single from his upcoming *Western Stars* album.
 
-[https://www.youtube.com/embed/zQOWT77B2Yo](https://www.youtube.com/embed/zQOWT77B2Yo)
+[Watch on Youtube: Bruce Springsteen - Tucson Train (Official Video)](https://www.youtube.com/watch?v=bsH4URIWNRE)
 
-[https://www.youtube.com/embed/x49CyXVo15c](https://www.youtube.com/embed/x49CyXVo15c)
+**2023:** Bruce and the E Street Band play their first show in Edinburgh in more than four decades.
 
-The Wrecking Ball Tour arrives in Berlin, and Bruce marks the occasion by opening with his only known performance of Wizz Jones' "When I Leave Berlin" and tour debuting "Save My Love."
+[Watch on Youtube: Bruce Springsteen - Nightshift (Edinburgh Murrayfield 30.5.23)](https://www.youtube.com/watch?v=FGZn78VoIco)
 
-**2012:**<br>
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Glory Days - Edinburgh 30/05/2023](https://www.youtube.com/watch?v=lI8kvK_eUak)
 
-[https://www.youtube.com/embed/MsjkqHT0O-o](https://www.youtube.com/embed/MsjkqHT0O-o)
-
-[https://www.youtube.com/embed/UoK7-pBGw8c](https://www.youtube.com/embed/UoK7-pBGw8c)
-
-Bruce and Patti perform some classic covers with Bobby Bandiera's band at the wedding of Patti's personal assistant in Oakland, New Jersey.
-
-**2015:**<br>
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/2015-0530.jpg?resize=375%2C462&amp;ssl=1)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Bruce releases "Tucson Train," the third single from his upcoming album.
-
-**2019:** *Western Stars*
-
-[https://www.youtube.com/embed/bsH4URIWNRE](https://www.youtube.com/embed/bsH4URIWNRE)
-
-Bruce and the E Street Band play their first show in Edinburgh in more than four decades.
-
-**2023:**<br>
-
-[https://www.youtube.com/embed/FGZn78VoIco](https://www.youtube.com/embed/FGZn78VoIco)
-
-[https://www.youtube.com/embed/lI8kvK_eUak](https://www.youtube.com/embed/lI8kvK_eUak)
-
-[https://www.youtube.com/embed/r2dRoaoBj6A](https://www.youtube.com/embed/r2dRoaoBj6A)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Band intro & 10th Avenue Freeze-Out - Edinburgh 30/05/2023](https://www.youtube.com/watch?v=r2dRoaoBj6A)

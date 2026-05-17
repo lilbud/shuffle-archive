@@ -1,70 +1,51 @@
+***New for 2025:** Expanded entry for 1977; new entry for 1989*
 
-*Expanded entry for 1977; new entry for 1989***New for 2025:**
+**1973:** Bruce cancels a scheduled show at Quinnipiac University in Hamden, Connecticut.
 
-Bruce cancels a scheduled show at Quinnipiac University in Hamden, Connecticut.
+**1977:** Bruce holds a recording session for his next album at The Record Plant in New York City. Also today, he drops by Robert Gordon’s recording session at nearby Radio City Music Hall to gift Gordon with “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” and play piano on the recorded track.
 
-**1973:**<br>
+[Watch on Youtube: Fire](https://www.youtube.com/watch?v=rQJaMpXH0X0)
 
-Bruce holds a recording session for his next album at The Record Plant in New York City. Also today, he drops by Robert Gordon's recording session at nearby Radio City Music Hall to gift Gordon with "" and play piano on the recorded track.
+**1978:** The Darkness Tour enters into its final month with a show at the University of Oklahoma in Norman. If you’re a fan of the tour arrangement of “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/),” this is your show–the epic intro is the longest ever.
 
-**1977:** [Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)
+[Watch Video Highlight](https://videopress.com/embed/GtxsiOUU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/rQJaMpXH0X0](https://www.youtube.com/embed/rQJaMpXH0X0)
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/1978-12-01.jpg)
 
-The Darkness Tour enters into its final month with a show at the University of Oklahoma in Norman. If you're a fan of the tour arrangement of "," this is your show–the epic intro is the longest ever.
+**1980:** Bruce and the E Street Band play their second of two River Tour nights at the Civic Arena in Pittsburgh.
 
-**1978:** [Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)
+[Watch on Youtube: Bruce Springsteen - "The Price You Pay" - Pittsburgh, 1980-12-01](https://www.youtube.com/watch?v=JtWlz2mOPgk)
 
-[https://videopress.com/embed/GtxsiOUU](https://videopress.com/embed/GtxsiOUU)
+**1989:** Bruce records “[Trouble in Paradise](https://estreetshuffle.com/index.php/2021/11/30/roll-of-the-dice-trouble-in-paradise/)” at Soundworks West in Los Angeles.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1978-12-01.jpg?resize=758%2C632&amp;ssl=1)
+[Watch on Youtube: Trouble In Paradise (Studio Outtake - 1989)](https://www.youtube.com/watch?v=iaasO-GTR24)
 
-Bruce and the E Street Band play their second of two River Tour nights at the Civic Arena in Pittsburgh.
+**2007:** Bruce ushers in the season when he tour premieres “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” at his Magic show in Arnhem.
 
-**1980:**<br>
+[Watch on Youtube: Bruce Springsteen - She's the One (Arnhem 07)](https://www.youtube.com/watch?v=6zc5lez_sUw)
 
-[https://www.youtube.com/embed/JtWlz2mOPgk](https://www.youtube.com/embed/JtWlz2mOPgk)
+[Watch on Youtube: Bruce Springsteen - Darlington County live in Arnhem 2007](https://www.youtube.com/watch?v=pZGgitwO068)
 
-Bruce records "" at Soundworks West in Los Angeles.
+[Watch Video Highlight](https://videopress.com/embed/Tks8hr21?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1989:** [Trouble in Paradise](https://estreetshuffle.com/index.php/2021/11/30/roll-of-the-dice-trouble-in-paradise/)
+[Watch on Youtube: Bruce Springsteen Arnhem 1/12/2007 Full Concert](https://www.youtube.com/watch?v=NWYKZHbDLzc)
 
-[https://www.youtube.com/embed/iaasO-GTR24](https://www.youtube.com/embed/iaasO-GTR24)
+**2011:** Bruce joins Bob Seger and The Silver Bullet Band on stage at their Madison Square Garden show, joining them in “[Old Time Rock and Roll](https://estreetshuffle.com/index.php/2020/02/01/matr-bob-seger-and-bruce-springsteen-old-time-rock-and-roll/).”
 
-Bruce ushers in the season when he tour premieres "" at his Magic show in Arnhem.
+[Watch on Youtube: Bob Seger and Bruce Springsteen Old Time Rock and Roll NYC MSG 12/1/11](https://www.youtube.com/watch?v=OJyjp06AE-w)
 
-**2007:** [Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
+**2014:** U2 performs in Times Square for World AIDS Day, but Bono is out of action following a bike accident last month. Bono’s buddies come to the rescue: Bruce and Chris Martin each take a turn fronting the band, with Bruce taking point on “[Where the Streets Have No Name](https://estreetshuffle.com/index.php/2020/10/02/matr-u2-and-bruce-springsteen-where-the-streets-have-no-name/)” and “[I Still Haven’t Found What I’m Looking For](https://estreetshuffle.com/index.php/2019/02/25/matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/).”
 
-[https://www.youtube.com/embed/6zc5lez_sUw](https://www.youtube.com/embed/6zc5lez_sUw)
+[Watch on Youtube: U2 with BRUCE SPRINGSTEEN WHERE THE STREETS HAVE NO NAME from TIMES SQUARE NYC 12/1/14](https://www.youtube.com/watch?v=6pTo3SE0VFs)
 
-[https://www.youtube.com/embed/pZGgitwO068](https://www.youtube.com/embed/pZGgitwO068)
+[Watch on Youtube: U2 with BRUCE SPRINGSTEEN I STILL HAVEN'T FOUND WHAT I'M LOOKING FOR at TIMES SQUARE NYC 12/1/14](https://www.youtube.com/watch?v=8smHql_MCcI)
 
-[https://videopress.com/embed/Tks8hr21](https://videopress.com/embed/Tks8hr21)
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/2014-12-01.jpg)
 
-[https://www.youtube.com/embed/NWYKZHbDLzc](https://www.youtube.com/embed/NWYKZHbDLzc)
+**2016:** Bruce continues his promotional book tour, stopping in Austin to meet fans at BookPeople.
 
-Bruce joins Bob Seger and The Silver Bullet Band on stage at their Madison Square Garden show, joining them in "."
+[Watch on Youtube: Bruce Springsteen greets fans at BookPeople](https://www.youtube.com/watch?v=QsJU5ykkZRk)
 
-**2011:** [Old Time Rock and Roll](https://estreetshuffle.com/index.php/2020/02/01/matr-bob-seger-and-bruce-springsteen-old-time-rock-and-roll/)
+**2018:** *Springsteen on Broadway* enters the final month of its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/OJyjp06AE-w](https://www.youtube.com/embed/OJyjp06AE-w)
-
-U2 performs in Times Square for World AIDS Day, but Bono is out of action following a bike accident last month. Bono's buddies come to the rescue: Bruce and Chris Martin each take a turn fronting the band, with Bruce taking point on "" and "."
-
-**2014:** [Where the Streets Have No Name](https://estreetshuffle.com/index.php/2020/10/02/matr-u2-and-bruce-springsteen-where-the-streets-have-no-name/)[I Still Haven't Found What I'm Looking For](https://estreetshuffle.com/index.php/2019/02/25/matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/)
-
-[https://www.youtube.com/embed/6pTo3SE0VFs](https://www.youtube.com/embed/6pTo3SE0VFs)
-
-[https://www.youtube.com/embed/8smHql_MCcI](https://www.youtube.com/embed/8smHql_MCcI)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2014-12-01.jpg?resize=758%2C1330&amp;ssl=1)
-
-Bruce continues his promotional book tour, stopping in Austin to meet fans at BookPeople.
-
-**2016:**<br>
-
-[https://www.youtube.com/embed/QsJU5ykkZRk](https://www.youtube.com/embed/QsJU5ykkZRk)
-
-enters the final month of its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
+ 

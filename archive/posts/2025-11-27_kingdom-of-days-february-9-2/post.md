@@ -1,46 +1,33 @@
+**1964:** Bruce watches The Beatles make their live American debut on The Ed Sullivan Show. Bruce is inspired, galvanized, and dedicates himself to learning music and playing his guitar.
 
-Bruce watches The Beatles make their live American debut on The Ed Sullivan Show. Bruce is inspired, galvanized, and dedicates himself to learning music and playing his guitar.
+[Watch on Youtube: The Beatles - I Want To Hold Your Hand - Performed Live On The Ed Sullivan Show 2/9/64](https://www.youtube.com/watch?v=jenWdylTtzs)
 
-**1964:**<br>
+**1973:** The *Asbury Park Press* reviews Bruce’s debut album, [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)
 
-[https://www.youtube.com/embed/jenWdylTtzs](https://www.youtube.com/embed/jenWdylTtzs)
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/1973-02-09.jpg)
 
-The reviews Bruce's debut album,
+**1974:** Bruce and his band play their last of three nights at Richards in Altanta, opening for NRBQ.
 
-**1973:** *Asbury Park Press* [](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J.*
+**1977:** Bruce and the E Street Band bring the “Lawsuit Tour” to Kleinhan’s Music Hall in Buffalo.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1973-02-09.jpg?resize=632%2C1226&amp;ssl=1)
+*![](https://estreetshuffle.com/wp-content/uploads/2021/02/1977-0209.jpg)*
 
-Bruce and his band play their last of three nights at Richards in Altanta, opening for NRBQ.
+**1981:** Hours before he is scheduled to perform, Bruce cancels his River Tour show in Indianapolis when he comes down with strep throat.
 
-**1974:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/1981-02-09.jpg)
 
-Bruce and the E Street Band bring the "Lawsuit Tour" to Kleinhan's Music Hall in Buffalo.
+**1991:** Following a benefit concert for Sting’s Rainforest Foundation, Sting invites Bruce, Joni Mitchell and other musician friends to a party at his house.
 
-**1977:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/01/1991-0209.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1977-0209.jpg?resize=602%2C737&amp;ssl=1)
+**2017:** Night Two in Sydney again features the Australian Urban Orchestra for “New York City Serenade” along with a River outtake pairing of “[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)” and “[Be True.](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)” Also tour premiering tonight: “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)” and “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/).”
 
-Hours before he is scheduled to perform, Bruce cancels his River Tour show in Indianapolis when he comes down with strep throat.
+[Watch on Youtube: Bruce Springsteen "New York City Serenade" Sydney 09.02.2017](https://www.youtube.com/watch?v=VDKm_1xZXVA)
 
-**1981:**<br>
+[Watch on Youtube: Rendevouz - Bruce Springsteen - Sydney Qudos Arena - 9th February 2017](https://www.youtube.com/watch?v=lGxg5Atl1Mk)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-02-09-300x183.jpg?resize=758%2C462)
+[Watch on Youtube: Be True - Bruce Springsteen - Sydney Qudos Arena - 9th February 2017](https://www.youtube.com/watch?v=lfpkS8epHWk)
 
-Following a benefit concert for Sting's Rainforest Foundation, Sting invites Bruce, Joni Mitchell and other musician friends to a party at his house.
+[Watch on Youtube: Bruce Springsteen - Sydney, February 9, 2017 - Detroit Medley](https://www.youtube.com/watch?v=sut4A5aYFl8)
 
-**1991:**<br>
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1991-0209-300x197.jpg?resize=758%2C499)
-
-Night Two in Sydney again features the Australian Urban Orchestra for "New York City Serenade" along with a River outtake pairing of "" and "" Also tour premiering tonight: "" and "."
-
-**2017:**[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Be True.](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
-
-[https://www.youtube.com/embed/VDKm_1xZXVA](https://www.youtube.com/embed/VDKm_1xZXVA)
-
-[https://www.youtube.com/embed/lGxg5Atl1Mk](https://www.youtube.com/embed/lGxg5Atl1Mk)
-
-[https://www.youtube.com/embed/lfpkS8epHWk](https://www.youtube.com/embed/lfpkS8epHWk)
-
-[https://www.youtube.com/embed/sut4A5aYFl8](https://www.youtube.com/embed/sut4A5aYFl8)
+ 

@@ -1,19 +1,15 @@
+Dropkick Murphys co-wrote “I’m Shipping Up to Boston” with Woody Guthrie. Seriously.
 
-Dropkick Murphys co-wrote "I'm Shipping Up to Boston" with Woody Guthrie. Seriously.
+Chancing upon the hand-written lyrics on a scrap of paper in Guthrie’s archives, Ken Casey and crew set them to music in 2006 and scored their biggest hit in the process.
 
-Chancing upon the hand-written lyrics on a scrap of paper in Guthrie's archives, Ken Casey and crew set them to music in 2006 and scored their biggest hit in the process.
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=x-64CaD8GXw)
 
-[https://www.youtube.com/embed/x-64CaD8GXw?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/x-64CaD8GXw?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+On St. Patrick’s Day in 2011, Bruce shipped up to Boston to perform it with the original artists–his one and only performance of the song to date. It was a fantastic performance, captured in great quality. Check it out below.
 
-On St. Patrick's Day in 2011, Bruce shipped up to Boston to perform it with the original artists–his one and only performance of the song to date. It was a fantastic performance, captured in great quality. Check it out below.
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=a7QsVPYWQFE)
 
-[https://www.youtube.com/embed/a7QsVPYWQFE?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/a7QsVPYWQFE?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
-
-March 18, 2011 (Boston, MA)
-March 18, 2011 (Boston, MA)
-
-**I'm Shipping Up to Boston**<br>
-**First performed:**<br>
-**Last performed:**<br>
+**I’m Shipping Up to Boston**  
+**First performed:** March 18, 2011 (Boston, MA)  
+**Last performed:** March 18, 2011 (Boston, MA)
 
 © December 26, 2018

@@ -1,78 +1,59 @@
+***New for 2025:** New entry for 1977*
 
-*New entry for 1977***New for 2025:**
+**1967:** The Castiles play the Senior Farewell Dance at Freehold Regional High School.
 
-The Castiles play the Senior Farewell Dance at Freehold Regional High School.
+**1972:** Bruce signs with Columbia Records, receiving an advance of $25,000 for his first album. He immediately begins assembling a band.
 
-**1967:**<br>
+**1973:** Bruce and his band open for Chicago at the second of two nights in Boston.
 
-Bruce signs with Columbia Records, receiving an advance of $25,000 for his first album. He immediately begins assembling a band.
+**1977:** Bruce and the E Street Band hold recording sessions for *Darkness on the Edge of Town* at Atlantic Studios in New York City.
 
-**1972:**<br>
+**1978:** The Darkness Tour stops at the Mecca Arena in Milwaukee.
 
-Bruce and his band open for Chicago at the second of two nights in Boston.
+[Watch Video Highlight](https://videopress.com/embed/J4gzbUgC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1973:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2019/06/mecca.jpg)
 
-Bruce and the E Street Band hold recording sessions for at Atlantic Studios in New York City.
+**1981:** Bruce and Pete Townshend catch U2’s gig at the Hammersmith Palais in London.
 
-**1977:** *Darkness on the Edge of Town*
+![](https://estreetshuffle.com/wp-content/uploads/2018/06/1981-0609.jpg)
 
-The Darkness Tour stops at the Mecca Arena in Milwaukee.
+![](https://estreetshuffle.com/wp-content/uploads/2021/06/1981-06-09.jpg)
 
-**1978:**<br>
+**1985:** Bruce and the E Street Band play their second of two Born in the U.S.A. shows at Ullevi in Gothenburg, Sweden.
 
-[https://videopress.com/embed/J4gzbUgC](https://videopress.com/embed/J4gzbUgC)
+[Watch on Youtube: Bruce Springsteen-Racing in the Street (Live-1985).](https://www.youtube.com/watch?v=qQeCrLcCwgg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/mecca-300x281.jpg?resize=758%2C709)
+[Watch on Youtube: Bruce Springsteen-Bobby Jean (Live-1985).](https://www.youtube.com/watch?v=Qjx_Dm5byt0)
 
-Bruce and Pete Townshend catch U2's gig at the Hammersmith Palais in London.
+[Watch on Youtube: Bruce Springsteen-Dancing in the Dark (Live-1985).](https://www.youtube.com/watch?v=_C12AhdgoTc)
 
-**1981:**<br>
+**1989:** Bruce and Max join Nils for four songs at Nils’ gig at the Stone Pony.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1981-0609-300x224.jpg?resize=758%2C566)
+[Watch on Youtube: Not Fade Away](https://www.youtube.com/watch?v=9t233EpGPOk)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1981-06-09.jpg?resize=758%2C351&amp;ssl=1)
+[Watch on Youtube: In The Midnight Hour](https://www.youtube.com/watch?v=kSDq4tbqniM)
 
-Bruce and the E Street Band play their second of two Born in the U.S.A. shows at Ullevi in Gothenburg, Sweden.
+[Watch on Youtube: Lean On Me](https://www.youtube.com/watch?v=KMtw59Yefbs)
 
-**1985:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1989-06-09.jpg)
 
-[https://www.youtube.com/embed/qQeCrLcCwgg](https://www.youtube.com/embed/qQeCrLcCwgg)
+**2009:** Norwegian fans enjoy the tour premiere of “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)” at the first of two Working on a Dream shows in Bergen.
 
-[https://www.youtube.com/embed/Qjx_Dm5byt0](https://www.youtube.com/embed/Qjx_Dm5byt0)
+[Watch on Youtube: Bruce Springsteen - Intro & Badlands (Live Norway Bergen 2009)](https://www.youtube.com/watch?v=-qv74yl6Ye0)
 
-[https://www.youtube.com/embed/_C12AhdgoTc](https://www.youtube.com/embed/_C12AhdgoTc)
+[Watch on Youtube: Bruce Springsteen - My Lucky Day - Bergen 2009-06-09 CLOSEUP](https://www.youtube.com/watch?v=BsrR4VhnJZA)
 
-Bruce and Max join Nils for four songs at Nils' gig at the Stone Pony.
+[Watch on Youtube: Bruce Springsteen - Back In Your Arms](https://www.youtube.com/watch?v=wEQWtxsmHQw)
 
-**1989:**<br>
+[Watch on Youtube: Bruce Springsteen - Because The Night - Bergen 2009-06-09 CLOSEUP](https://www.youtube.com/watch?v=LziT5xFUPTk)
 
-[https://www.youtube.com/embed/9t233EpGPOk](https://www.youtube.com/embed/9t233EpGPOk)
+[Watch on Youtube: Bruce Springsteen - The Rising - Bergen 2009-06-09 CLOSEUP](https://www.youtube.com/watch?v=XZghbhM7t_I)
 
-[https://www.youtube.com/embed/kSDq4tbqniM](https://www.youtube.com/embed/kSDq4tbqniM)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/KMtw59Yefbs](https://www.youtube.com/embed/KMtw59Yefbs)
+**2021:** *From My Home to Yours* continues its run on E Street Radio with Episode 23, “Old Bones.”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1989-06-09-167x300.jpg?resize=758%2C1362)
+[https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3?_=1)
 
-Norwegian fans enjoy the tour premiere of "" at the first of two Working on a Dream shows in Bergen.
-
-**2009:** [Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)
-
-[https://www.youtube.com/embed/-qv74yl6Ye0](https://www.youtube.com/embed/-qv74yl6Ye0)
-
-[https://www.youtube.com/embed/BsrR4VhnJZA](https://www.youtube.com/embed/BsrR4VhnJZA)
-
-[https://www.youtube.com/embed/wEQWtxsmHQw](https://www.youtube.com/embed/wEQWtxsmHQw)
-
-[https://www.youtube.com/embed/LziT5xFUPTk](https://www.youtube.com/embed/LziT5xFUPTk)
-
-[https://www.youtube.com/embed/XZghbhM7t_I](https://www.youtube.com/embed/XZghbhM7t_I)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-continues its run on E Street Radio with Episode 23, "Old Bones."
-
-**2021:** *From My Home to Yours* <https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3>

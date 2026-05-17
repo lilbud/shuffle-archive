@@ -1,13 +1,13 @@
-In 2011, Darlene Love was inducted into the Rock and Roll Hall of Fame. Bruce joined Darlene and the house band on stage at the induction ceremony for three of her songs, including her 1963 hit, "Today I Met the Boy I'm Gonna Marry."
+In 2011, Darlene Love was inducted into the Rock and Roll Hall of Fame. Bruce joined Darlene and the house band on stage at the induction ceremony for three of her songs, including her 1963 hit, “Today I Met the Boy I’m Gonna Marry.”
 
-[https://www.youtube.com/embed/MLAbXua2WxU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/MLAbXua2WxU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MLAbXua2WxU)
 
-Only parts of the song were broadcast, but it documented the only time Bruce is known to have played this song. Watch it here, intercut with excerpts of Darlene's acceptance speech, acknowledging Bruce and Steve:
+Only parts of the song were broadcast, but it documented the only time Bruce is known to have played this song. Watch it here, intercut with excerpts of Darlene’s acceptance speech, acknowledging Bruce and Steve:
 
-[https://videopress.com/embed/6fI9NRMy](https://videopress.com/embed/6fI9NRMy)
+[Watch Video Highlight](https://videopress.com/embed/6fI9NRMy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Today I Met the Boy I'm Gonna Marry**<br>
-**First performed:** March 14, 2011 (New York City, NY)<br>
-**Last performed:** March 14, 2011 (New York City, NY)<br>
+**Today I Met the Boy I’m Gonna Marry  
+First performed:** March 14, 2011 (New York City, NY)  
+**Last performed:** March 14, 2011 (New York City, NY)
 
 © November 12, 2018

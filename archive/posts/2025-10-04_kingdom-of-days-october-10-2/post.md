@@ -1,82 +1,67 @@
+***New for 2025:** New entry for 1983; audio for 2006*
 
-*New entry for 1983; audio for 2006***New for 2025:**
+**1973:** Bruce plays at Grendel's Lair Coffee House in Philadelphia.
 
-Bruce plays at Grendel's Lair Coffee House in Philadelphia.
+![](https://estreetshuffle.com/wp-content/uploads/2021/10/1973-10-09.png)
 
-**1973:**<br>
+**1976:** Bruce and the E Street Band play a Lawsuit Tour show at Miami University in Oxford, Ohio. Based on the student newspaper clipping below, it seems that Bruce’s shows are not necessarily easy to book or facilitate due to Bruce’s legal battle with Mike Appel. At one point, the school seemed unsure about whether this concert would happen.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1973-10-09.png?resize=758%2C1648&amp;ssl=1)
+[https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3?_=2)
 
-Bruce and the E Street Band play a Lawsuit Tour show at Miami University in Oxford, Ohio. Based on the student newspaper clipping below, it seems that Bruce's shows are not necessarily easy to book or facilitate due to Bruce's legal battle with Mike Appel. At one point, the school seemed unsure about whether this concert would happen.
+<https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3>
 
-**1976:** <https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3>
+![](https://estreetshuffle.com/wp-content/uploads/2018/10/1976-1010.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1976-1010-219x300.jpg?resize=726%2C994)
+**1980:** Bruce and the E Street Band bring the River Tour to Chicago for the first of two nights at the Uptown Theater, where they tour premiere a show-closing “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/).”
 
-Bruce and the E Street Band bring the River Tour to Chicago for the first of two nights at the Uptown Theater, where they tour premiere a show-closing "."
+[Watch Video Highlight](https://videopress.com/embed/OALtiJWP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1980:** [Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/1980-10-10.jpg)
 
-[https://videopress.com/embed/OALtiJWP](https://videopress.com/embed/OALtiJWP)
+![](https://estreetshuffle.com/wp-content/uploads/2019/09/1980-10-10.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1980-10-10-300x171.jpg?resize=758%2C432)
+**1983:** Bruce completes “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” during a mixing and overdub session at The Hit Factory in New York City.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1980-10-10-300x246.jpg?resize=739%2C606)
+[Watch on Youtube: Bobby Jean](https://www.youtube.com/watch?v=iGR_Rk74tOk)
 
-Bruce completes "" during a mixing and overdub session at The Hit Factory in New York City.
+**1985:** Bruce appears on the cover of *Rolling Stone*.
 
-**1983:** [Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/rollingstone.jpg)
 
-[https://www.youtube.com/embed/iGR_Rk74tOk](https://www.youtube.com/embed/iGR_Rk74tOk)
+**2006:** Bruce’s Italian tour comes to a close in Rome, where he and the Sessions Band tour premiere “[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29845/bruce-springsteen-palalottomatica-rome-it-10-10-2006.html).
 
-Bruce appears on the cover of .
+[Watch on Youtube: Bruce Springsteen - Long Black Veil - Live from Rome (10/10/2006)](https://www.youtube.com/watch?v=zfy9Q9vWsvU)
 
-**1985:** *Rolling Stone*
+[Watch on Youtube: All The Way Home Rome 10/10/2006](https://www.youtube.com/watch?v=PiDrdW64Vs8)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/rollingstone-242x300.jpg?resize=758%2C940)
+[Watch on Youtube: "Atlantic City" - Bruce Springsteen and the Seeger Sessions Band 10/10/2006](https://www.youtube.com/watch?v=2cqxXfofgH0)
 
-Bruce's Italian tour comes to a close in Rome, where he and the Sessions Band tour premiere "." This show is available as part of Bruce's official archive series–get it .
+[Watch on Youtube: Long Black Veil (Live at Palalottomatica, Rome, Italy - 10/10/2006)](https://www.youtube.com/watch?v=Bt7QcIUERsc)
 
-**2006:** [All the Way Home](http://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)[here](https://live.brucespringsteen.net/live-music/0,29845/bruce-springsteen-palalottomatica-rome-it-10-10-2006.html)
+**2007:** The Night Two rule is in effect in East Rutherford: Bruce and the E Street Band tour premiere “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/),” “[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/),” “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)” and the live debut of “[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)” at their Magic show at the Continental Airlines Arena.
 
-[https://www.youtube.com/embed/zfy9Q9vWsvU](https://www.youtube.com/embed/zfy9Q9vWsvU)
+[Watch on Youtube: Bruce Springsteen And The E Street Band - Radio Nowhere - 10/10/07 - Izod Center (PROSHOT)](https://www.youtube.com/watch?v=ZgVyP3aoOGw)
 
-[https://www.youtube.com/embed/PiDrdW64Vs8](https://www.youtube.com/embed/PiDrdW64Vs8)
+[Watch on Youtube: Bruce Springsteen - Your Own Worst Enemy live](https://www.youtube.com/watch?v=0xAhY7nmSKk)
 
-[https://www.youtube.com/embed/2cqxXfofgH0](https://www.youtube.com/embed/2cqxXfofgH0)
+[Watch on Youtube: Bruce Springsteen Cynthia East Rutherford 10/10/2007](https://www.youtube.com/watch?v=HAgznnVjYwE)
 
-[https://www.youtube.com/embed/Bt7QcIUERsc](https://www.youtube.com/embed/Bt7QcIUERsc)
+**2016:** Bruce makes a promotional appearance at The Harvard Coop to promote his new autobiography.
 
-The Night Two rule is in effect in East Rutherford: Bruce and the E Street Band tour premiere "," "," "" and the live debut of "" at their Magic show at the Continental Airlines Arena.
+[Watch on Youtube: Bruce Springsteen Meets Fans, Promotes Book In Cambridge](https://www.youtube.com/watch?v=rpT2MYElKzM)
 
-**2007:** [Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)[Cynthia](http://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)[You Can Look (But You Better Not Touch)](http://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)[Your Own Worst Enemy](http://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/2016-10-10.jpg)
 
-[https://www.youtube.com/embed/ZgVyP3aoOGw](https://www.youtube.com/embed/ZgVyP3aoOGw)
+**2017:** Previews continue for *Springsteen on Broadway* at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/0xAhY7nmSKk](https://www.youtube.com/embed/0xAhY7nmSKk)
+[https://estreetshuffle.com/wp-content/uploads/2024/10/101-Welcome.-I-Have-A-Magic-Trick-Bruce-Springsteen.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2024/10/101-Welcome.-I-Have-A-Magic-Trick-Bruce-Springsteen.mp3?_=3)
 
-[https://www.youtube.com/embed/HAgznnVjYwE](https://www.youtube.com/embed/HAgznnVjYwE)
+<https://estreetshuffle.com/wp-content/uploads/2024/10/101-Welcome.-I-Have-A-Magic-Trick-Bruce-Springsteen.mp3>
 
-Bruce makes a promotional appearance at The Harvard Coop to promote his new autobiography.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2016:**<br>
+**2019:** Bruce appears on *The Graham Norton Show* to promote his new film, *Western Stars*.
 
-[https://www.youtube.com/embed/rpT2MYElKzM](https://www.youtube.com/embed/rpT2MYElKzM)
+[Watch on Youtube: Did Bruce Springsteen raid Graceland? | The Graham Norton Show - BBC](https://www.youtube.com/watch?v=Wbxd3A5E9Os)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2016-10-10-300x216.jpg?resize=758%2C546)
-
-Previews continue for at the Walter Kerr Theater in New York City.
-
-**2017:***Springsteen on Broadway* <https://estreetshuffle.com/wp-content/uploads/2024/10/101-Welcome.-I-Have-A-Magic-Trick-Bruce-Springsteen.mp3>
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Bruce appears on to promote his new film, .
-
-**2019:** *The Graham Norton Show**Western Stars*
-
-[https://www.youtube.com/embed/Wbxd3A5E9Os](https://www.youtube.com/embed/Wbxd3A5E9Os)
-
-[https://www.bbc.co.uk/programmes/p07qtsrh/player](https://www.bbc.co.uk/programmes/p07qtsrh/player)
+[Watch Video](https://www.bbc.co.uk/programmes/p07qtsrh/player)

@@ -1,134 +1,99 @@
+***New for 2025:** New entry for 1979; video for 2016*
 
-*New entry for 1979; video for 2016***New for 2025:**
+**1969:** Child plays a gig at Pandemonium in Wanamassa, New Jersey.
 
-Child plays a gig at Pandemonium in Wanamassa, New Jersey.
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1969-0529.jpg)
 
-**1969:**<br>
+**1971:** The Sundance Blues Band plays The Student Prince in Asbury Park.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1969-0529-158x300.jpg?resize=758%2C1441)
+**1974:** Bruce and the E Street Band play two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-The Sundance Blues Band plays The Student Prince in Asbury Park.
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Philadelphia_Inquirer_Mon__Jun_3__1974_-scaled.jpg)
 
-**1971:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1974-0529.jpg)
 
-Bruce and the E Street Band play two shows at The Main Point in Bryn Mawr, Pennsylvania.
+**1978:** The still-young Darkness Tour reaches Boston for the first of three nights. This show features the first segue of “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” into “Thunder Road,” which will remain a staple of the set for the remainder of the tour. The J. Geils Band is in attendance tonight, and Peter Wolf hangs out with Bruce and the band after the show.
 
-**1974:**<br>
+[Watch Video Highlight](https://videopress.com/embed/XXl8vEEQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Philadelphia_Inquirer_Mon__Jun_3__1974_.jpg?w=758&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-05-29.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1974-0529-300x176.jpg?resize=758%2C444)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-05-29b.jpg)
 
-The still-young Darkness Tour reaches Boston for the first of three nights. This show features the first segue of "" into "Thunder Road," which will remain a staple of the set for the remainder of the tour. The J. Geils Band is in attendance tonight, and Peter Wolf hangs out with Bruce and the band after the show.
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1978-05-29c.jpg)
 
-**1978:** [Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)
+**1979:** Bruce and the E Street Band work on “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” and “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” at the Power Station in New York City.
 
-[https://videopress.com/embed/XXl8vEEQ](https://videopress.com/embed/XXl8vEEQ)
+[Watch on Youtube: Bruce Springsteen Point Blank (Complete different arrangement)](https://www.youtube.com/watch?v=tHkii-j_Cac)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-29-158x300.jpg?resize=758%2C1439)
+**1981:** At the first of six River shows at London’s Wembley Arena, Bruce performs “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” for the very first time.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-29b-300x190.jpg?resize=758%2C480)
+[Watch on Youtube: Bruce Springsteen - live debut of "Trapped" - 1981-05-29](https://www.youtube.com/watch?v=RpGVwh0NkY4)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1978-05-29c.jpg?resize=586%2C1675&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1981-05-29.jpg)
 
-Bruce and the E Street Band work on "" and "" at the Power Station in New York City.
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1981-0529.jpg)
 
-**1979:** [Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)
+**1982:** Bruce and Southside Johnny join Beaver Brown on stage at Big Man’s West in Red Bank.
 
-[https://www.youtube.com/embed/tHkii-j_Cac](https://www.youtube.com/embed/tHkii-j_Cac)
+[Watch Video Highlight](https://videopress.com/embed/oqbaupOb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-At the first of six River shows at London's Wembley Arena, Bruce performs "" for the very first time.
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1982-05-29.jpg)
 
-**1981:** [Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)
+**1986:** The town of Freehold cancels the permit for a planned Jersey Artists for Mankind outdoor benefit show when a rumor spread that Bruce would appear. The small park can’t hold the expected throngs, so the town cancels the event.
 
-[https://www.youtube.com/embed/RpGVwh0NkY4](https://www.youtube.com/embed/RpGVwh0NkY4)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1986-05-29.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1981-05-29.jpg?resize=758%2C513&amp;ssl=1)
+**1991:** *Newsday* reports that Bruce and Patti will marry on June 9th, according to a mysterious source “close to the bride-to-be.” After Bruce’s publicist coyly refuses to confirm or deny (“I can’t confirm that date…”), the worldwide press runs rampant with the story and anticipation builds for the big day. It’s highly likely that Bruce and Patti planted the story (or authorized the leak) themselves in order to throw the press off the scent, as their actual wedding ceremony will take place a day earlier, on June 8th–a lesson learned from Bruce’s experience the last time around.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1981-0529.jpg?resize=758%2C836&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1991-05-29.jpg)
 
-Bruce and Southside Johnny join Beaver Brown on stage at Big Man's West in Red Bank.
+**1992:** Bruce hires Gia Ciambotti, Carol Dennis, Cleo Kennedy, and Angel Rogers as backup singers for his upcoming World Tour.
 
-**1982:**<br>
+**1994:** Bruce makes one of his most unusual guest appearances with The Rock Bottom Remainders, a band comprised entirely of famous authors, including Stephen King, Amy Tan, Matt Groening, and others at a booksellers convention in Hollywood. Bruce joins the motley crew for “[Gloria](https://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/).”
 
-[https://videopress.com/embed/oqbaupOb](https://videopress.com/embed/oqbaupOb)
+[Watch on Youtube: Bruce Springsteen joins the Rock Bottom Remainders - May 29, 1994](https://www.youtube.com/watch?v=c1wzfR82-7c)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1982-05-29.jpg?resize=758%2C495&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen](https://www.youtube.com/watch?v=8tifOAGe0Is)
 
-The town of Freehold cancels the permit for a planned Jersey Artists for Mankind outdoor benefit show when a rumor spread that Bruce would appear. The small park can't hold the expected throngs, so the town cancels the event.
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1994-05-29.jpg)
 
-**1986:**<br>
+**1999:** Bruce and the E Street Band deliver a typical Night One show at the first of two Reunion shows in Berlin.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1986-05-29-300x126.jpg?resize=758%2C318)
+[Watch Video Highlight](https://videopress.com/embed/3HRnAU3V?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-reports that Bruce and Patti will marry on June 9th, according to a mysterious source "close to the bride-to-be." After Bruce's publicist coyly refuses to confirm or deny ("I can't confirm that date…"), the worldwide press runs rampant with the story and anticipation builds for the big day. It's highly likely that Bruce and Patti planted the story (or authorized the leak) themselves in order to throw the press off the scent, as their actual wedding ceremony will take place a day earlier, on June 8th–a lesson learned from Bruce's experience the last time around.
+**2000:** When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” for the first time in 19 years.
 
-**1991:** *Newsday*
+[Watch Video Highlight](https://videopress.com/embed/7evt8l2F?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1991-05-29.jpg?resize=758%2C1307&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29a.jpg)
 
-Bruce hires Gia Ciambotti, Carol Dennis, Cleo Kennedy, and Angel Rogers as backup singers for his upcoming World Tour.
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29b.jpg)
 
-**1992:**<br>
+**2003:** Bruce and the E Street Band play a single Rising show at the Old Trafford Cricket Ground in Manchester, featuring rare performances of “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” and “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”
 
-Bruce makes one of his most unusual guest appearances with The Rock Bottom Remainders, a band comprised entirely of famous authors, including Stephen King, Amy Tan, Matt Groening, and others at a booksellers convention in Hollywood. Bruce joins the motley crew for "."
+[Watch on Youtube: Manchester 29/05/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zDMU0AazrmXfyJGJHtVPaic)
 
-**1994:** [Gloria](http://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/)
+**2014:** Bruce makes a guest appearance on “[Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/)” with The Rolling Stones at Rock in Rio in Lisbon.
 
-[https://www.youtube.com/embed/c1wzfR82-7c](https://www.youtube.com/embed/c1wzfR82-7c)
+[Watch on Youtube: The Rolling Stones & Bruce Springsteen - Rock In Rio Lisboa](https://www.youtube.com/watch?v=YQ9a6lh9sps)
 
-[https://www.youtube.com/embed/8tifOAGe0Is](https://www.youtube.com/embed/8tifOAGe0Is)
+[Watch on Youtube: The Rolling Stones With Bruce Springsteen - Tumbling Dice](https://www.youtube.com/watch?v=GVPGA9gI_Dw)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1994-05-29-276x300.jpg?resize=758%2C824)
+**2016:** Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acoustic piano “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” followed by a [*Greetings*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)three-pack. The entire U2 band is at the show, and Bono joins Bruce on stage for “Because the Night.”
 
-Bruce and the E Street Band deliver a typical Night One show at the first of two Reunion shows in Berlin.
+[Watch on Youtube: 2016-05-29 Bruce Springsteen - Dublin soundcheck - Streets Of Fire](https://www.youtube.com/watch?v=GCYKxpavmyM)
 
-**1999:**<br>
+[Watch on Youtube: Bruce Springsteen - Incident on 57th Street, Dublin 2016](https://www.youtube.com/watch?v=bjwjKtev0-s)
 
-[https://videopress.com/embed/3HRnAU3V](https://videopress.com/embed/3HRnAU3V)
+[Watch on Youtube: Bruce Springsteen The River Croke Park Dublin 29/5/216](https://www.youtube.com/watch?v=KSOa2fRFG_Q)
 
-When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays "" for the first time in 19 years.
+[Watch on Youtube: 2016-05-29 Bruce Springsteen - Because The Night (with Bono)](https://www.youtube.com/watch?v=cgF00A17LwQ)
 
-**2000:** [It's Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)
+[Watch on Youtube: Bruce Springsteen - Croke Park - Dublin - 29 May 2016 - Thunder Road](https://www.youtube.com/watch?v=dYl5h2vAxOs)
 
-[https://videopress.com/embed/7evt8l2F](https://videopress.com/embed/7evt8l2F)
+**2020:** Bruce makes one of his strangest pandemic appearances, remotely joining Dropkick Murphys on “Rose Tattoo” and “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)” in their empty stadium performance at Fenway Park.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29a-300x228.jpg?resize=758%2C576)
+[Watch on Youtube: Dropkick Murphys & Bruce Springsteen live streaming at Fenway Park, 29-5-2020 - American Land](https://www.youtube.com/watch?v=0I4SBPyGD9g)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29b-211x300.jpg?resize=758%2C1078)
-
-Bruce and the E Street Band play a single Rising show at the Old Trafford Cricket Ground in Manchester, featuring rare performances of "" and "."
-
-**2003:** [Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
-
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDMU0AazrmXfyJGJHtVPaic](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDMU0AazrmXfyJGJHtVPaic)
-
-Bruce makes a guest appearance on "" with The Rolling Stones at Rock in Rio in Lisbon.
-
-**2014:** [Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/)
-
-[https://www.youtube.com/embed/YQ9a6lh9sps](https://www.youtube.com/embed/YQ9a6lh9sps)
-
-[https://www.youtube.com/embed/GVPGA9gI_Dw](https://www.youtube.com/embed/GVPGA9gI_Dw)
-
-Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acoustic piano "" followed by a three-pack. The entire U2 band is at the show, and Bono joins Bruce on stage for "Because the Night."
-
-**2016:** [Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings*
-
-[https://www.youtube.com/embed/GCYKxpavmyM?start=92&amp;feature=oembed](https://www.youtube.com/embed/GCYKxpavmyM?start=92&amp;feature=oembed)
-
-[https://www.youtube.com/embed/bjwjKtev0-s](https://www.youtube.com/embed/bjwjKtev0-s)
-
-[https://www.youtube.com/embed/KSOa2fRFG_Q](https://www.youtube.com/embed/KSOa2fRFG_Q)
-
-[https://www.youtube.com/embed/cgF00A17LwQ](https://www.youtube.com/embed/cgF00A17LwQ)
-
-[https://www.youtube.com/embed/dYl5h2vAxOs](https://www.youtube.com/embed/dYl5h2vAxOs)
-
-Bruce makes one of his strangest pandemic appearances, remotely joining Dropkick Murphys on "Rose Tattoo" and "" in their empty stadium performance at Fenway Park.
-
-**2020:** [American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)
-
-[https://www.youtube.com/embed/0I4SBPyGD9g](https://www.youtube.com/embed/0I4SBPyGD9g)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2020-05-29.jpg?resize=758%2C452&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-29-scaled.jpg)

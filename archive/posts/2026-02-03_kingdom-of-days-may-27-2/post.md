@@ -1,142 +1,105 @@
+**1976:** Bruce and the E Street Band play for the U.S. Military Academy at West Point.
 
-Bruce and the E Street Band play for the U.S. Military Academy at West Point.
+**1978:** At Night Two in Philadelphia on the Darkness Tour, the core of the set finally gels, as fans hear the first consecutive plays of “The Promised Land,” “Prove It All Night,” “Racing in the Street,” “Thunder Road,” and “Jungleland.” This core five-pack will last throughout the rest of the tour.
 
-**1976:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-05-26.jpg)
 
-At Night Two in Philadelphia on the Darkness Tour, the core of the set finally gels, as fans hear the first consecutive plays of "The Promised Land," "Prove It All Night," "Racing in the Street," "Thunder Road," and "Jungleland." This core five-pack will last throughout the rest of the tour.
+**1979:** Bruce joins Robert Gordon on stage for “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” at the Paramount Theater in Asbury Park. Garry joins them for “Heartbreak Hotel” as well.
 
-**1978:**<br>
+[Watch on Youtube: Robert Gordon Bruce Springsteen duet-'79](https://www.youtube.com/watch?v=kdSQPILL2Nw)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-26.jpg?resize=758%2C789&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1979-05-27.jpg)
 
-Bruce joins Robert Gordon on stage for "" at the Paramount Theater in Asbury Park. Garry joins them for "Heartbreak Hotel" as well.
+**1981:** At the Brighton Center on the River Tour, Bruce and the E Street Band perform “The Price You Pay” for the last time for 28 years.
 
-**1979:** [Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)
+**1983:** Bruce and the E Street Band record at The Hit Factory in New York City for *Born in the U.S.A.*, although none of the tracks from today’s session will make the album.
 
-[https://www.youtube.com/embed/kdSQPILL2Nw](https://www.youtube.com/embed/kdSQPILL2Nw)
+**1985:** Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell’s in Hoboken for the first of two days of filming for the video for “Glory Days.” Watch local news coverage below.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1979-05-27.jpg?resize=758%2C470&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen: Making of Glory Days video at Maxwell's, Hoboken, NJ 5-28-85](https://www.youtube.com/watch?v=NeJrkyzmyS0)
 
-At the Brighton Center on the River Tour, Bruce and the E Street Band perform "The Price You Pay" for the last time for 28 years.
+**1999:** Bruce and the E Street Band make a Reunion Tour stop at the Flanders Expo in Ghent, where Elliott Murphy guest-stars on “Hungry Heart” and “Born to Run.”
 
-**1981:**<br>
+**2000:** Bruce plays his first-ever show in Las Vegas when the Reunion Tour stops at the MGM Grand Garden Arena. Bruce opens and closes with the premiere of “Viva Las Vegas,” and he tour premieres “Can’t Help Falling in Love” for the occasion as well.
 
-Bruce and the E Street Band record at The Hit Factory in New York City for , although none of the tracks from today's session will make the album.
+[Watch on Youtube: Las Vegas 27/05/2000](https://www.youtube.com/playlist?list=PLJTyL9twk3zC6-aOkAImq5An0nRfHsd63)
 
-**1983:** *Born in the U.S.A.*
+**2001:** Bruce and Graham Parker join Southside Johnny and the Asbury Jukes at The Stone Pony’s 25th anniversary celebration of Southside’s live radio broadcast.
 
-Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell's in Hoboken for the first of two days of filming for the video for "Glory Days." Watch local news coverage below.
+[Watch on Youtube: Bruce Springsteen and Southside Johnny - The Stone Pony, May 27 2001](https://www.youtube.com/watch?v=VyrkKwtkNzg)
 
-**1985:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2001-05-27.jpg)
 
-[https://www.youtube.com/embed/NeJrkyzmyS0](https://www.youtube.com/embed/NeJrkyzmyS0)
+**2003:** At Night Two at London’s Crystal Palace on the Rising Tour, Bruce opens with a solo acoustic “Born in the U.S.A.”
 
-Bruce and the E Street Band make a Reunion Tour stop at the Flanders Expo in Ghent, where Elliott Murphy guest-stars on "Hungry Heart" and "Born to Run."
+[Watch on Youtube: Bruce Springsteen - She's The One](https://www.youtube.com/watch?v=dlAdt0dbmIM)
 
-**1999:**<br>
+[Watch on Youtube: Detroit Medley](https://www.youtube.com/watch?v=qB76ZtWtdcg)
 
-Bruce plays his first-ever show in Las Vegas when the Reunion Tour stops at the MGM Grand Garden Arena. Bruce opens and closes with the premiere of "Viva Las Vegas," and he tour premieres "Can't Help Falling in Love" for the occasion as well.
+[Watch on Youtube: SPRINGSTEEN, SEVEN NIGHTS TO ROCK](https://www.youtube.com/watch?v=ZVMwjbbsE7M)
 
-**2000:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2003-05-27.jpg)
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC6-aOkAImq5An0nRfHsd63](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC6-aOkAImq5An0nRfHsd63)
+**2005:** Bruce brings his solo acoustic tour to London for the first of two nights at Royal Albert Hall.
 
-Bruce and Graham Parker join Southside Johnny and the Asbury Jukes at The Stone Pony's 25th anniversary celebration of Southside's live radio broadcast.
+[Watch on Youtube: Bruce Springsteen - Cautious Man, Royal Albert Hall 2005](https://www.youtube.com/watch?v=I1lus3XUg7c)
 
-**2001:**<br>
+[Watch on Youtube: Bruce Springsteen The Wish London 27/05/2005](https://www.youtube.com/watch?v=odXCc5sXc_A)
 
-[https://www.youtube.com/embed/VyrkKwtkNzg](https://www.youtube.com/embed/VyrkKwtkNzg)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2005-05-27a.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2001-05-27.jpg?resize=758%2C217&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2005-05-27b.jpg)
 
-At Night Two at London's Crystal Palace on the Rising Tour, Bruce opens with a solo acoustic "Born in the U.S.A."
+**2006:** The American leg of the Seeger Sessions Tour begins with a show at the Tweeter Center in Mansfield, Massachusetts. Peter Wolf guest-stars on a “Dirty Water” / “Buffalo Gals” medley.
 
-**2003:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2006-05-27.jpg)
 
-[https://www.youtube.com/embed/dlAdt0dbmIM](https://www.youtube.com/embed/dlAdt0dbmIM)
+**2012:** “Seven Nights to Rock” makes its Wrecking Ball Tour premiere when Bruce and the band stop in Cologne, Germany. For the first time since *Darkness on the Edge of Town* was released in 1978, no songs from that album are performed.
 
-[https://www.youtube.com/embed/qB76ZtWtdcg](https://www.youtube.com/embed/qB76ZtWtdcg)
+[Watch on Youtube: Bruce Springsteen - Wrecking Ball (2012-05-27 - Cologne)](https://www.youtube.com/watch?v=ck5otci0htU)
 
-[https://www.youtube.com/embed/ZVMwjbbsE7M](https://www.youtube.com/embed/ZVMwjbbsE7M)
+[Watch on Youtube: Bruce Springsteen - Seven Nights To Rock - Cologne 27 May 2012](https://www.youtube.com/watch?v=_auKcK1i1rY)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2003-05-27.jpg?resize=758%2C725&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - My City Of Ruins (2012-05-27 - Cologne)](https://www.youtube.com/watch?v=nn2DBJaaepU)
 
-Bruce brings his solo acoustic tour to London for the first of two nights at Royal Albert Hall.
+[Watch on Youtube: Bruce Springsteen - The E Street Shuffle (2012-05-27 - Cologne) -MULTICAM PREVIEW-](https://www.youtube.com/watch?v=5kvzRoYGWtY)
 
-**2005:**<br>
+[Watch on Youtube: Bruce Springsteen - Apollo Medley (2012-05-27 - Cologne)](https://www.youtube.com/watch?v=rB8iRilbi30)
 
-[https://www.youtube.com/embed/I1lus3XUg7c](https://www.youtube.com/embed/I1lus3XUg7c)
+[Watch on Youtube: Bruce Springsteen - Land Of Hope And Dreams (2012-05-27 - Cologne)](https://www.youtube.com/watch?v=lGa65Wt94Ws)
 
-[https://www.youtube.com/embed/odXCc5sXc_A](https://www.youtube.com/embed/odXCc5sXc_A)
+**2016:** Bruce and the E Street Band play the first of two River Tour (2016 edition) shows at Croke Park in Dublin. “Back in Your Arms” and “Lost in the Flood” both make their tour debuts.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-27a.jpg?resize=758%2C687&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen Dublin 27/05/2016 tv report](https://www.youtube.com/watch?v=Nq28PzXDr8Y)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-27b.jpg?resize=758%2C564&amp;ssl=1)
+[Watch on Youtube: Back in your arms - Bruce Springsteen & The E Street Band Croke Park Dublin](https://www.youtube.com/watch?v=fzvtm9eCmeI)
 
-The American leg of the Seeger Sessions Tour begins with a show at the Tweeter Center in Mansfield, Massachusetts. Peter Wolf guest-stars on a "Dirty Water" / "Buffalo Gals" medley.
+[Watch on Youtube: Bruce Springsteen - Lost In The Flood, Live in Dublin 2016[HD]](https://www.youtube.com/watch?v=irF2LJC0Poo)
 
-**2006:**<br>
+[Watch on Youtube: Bruce Springsteen Croke Park Dublin 27/05/2016 Full Concert Multicam](https://www.youtube.com/watch?v=e9dHBmVTk6c)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2006-05-27.jpg?resize=758%2C860&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_National_Sat__May_28__2016_-scaled.jpg)
 
-"Seven Nights to Rock" makes its Wrecking Ball Tour premiere when Bruce and the band stop in Cologne, Germany. For the first time since was released in 1978, no songs from that album are performed.
+**2017:** Bruce joins Little Steven and the Disciples of Soul on stage at the Count Basie Theater in Red Bank four a four-song encore performance.
 
-**2012:** *Darkness on the Edge of Town*
+[Watch on Youtube: Little Steven (feat Bruce Springsteen) - Count Basie Theatre 2017](https://www.youtube.com/watch?v=wd8AfjeVLyw)
 
-[https://www.youtube.com/embed/ck5otci0htU](https://www.youtube.com/embed/ck5otci0htU)
+**2021:** Bruce attends his niece’s graduation ceremony at the Ranney School in Tinton Falls.
 
-[https://www.youtube.com/embed/_auKcK1i1rY](https://www.youtube.com/embed/_auKcK1i1rY)
+![](https://estreetshuffle.com/wp-content/uploads/2022/05/2019-05-27.jpg)
 
-[https://www.youtube.com/embed/nn2DBJaaepU](https://www.youtube.com/embed/nn2DBJaaepU)
+**2023:** Bruce takes a tumble during “Ghosts” when he and the E Street Band play their second of two nights in Amsterdam on their 2023 World Tour.
 
-[https://www.youtube.com/embed/5kvzRoYGWtY](https://www.youtube.com/embed/5kvzRoYGWtY)
+[Watch on Youtube: Bruce Springsteen - Ghosts (Amsterdam #2, 2023)](https://www.youtube.com/watch?v=S4PFmorEK0M)
 
-[https://www.youtube.com/embed/rB8iRilbi30](https://www.youtube.com/embed/rB8iRilbi30)
+[Watch on Youtube: Bruce Springsteen & E Street Band | 2023 Tour | Live @ Johan Cruijff ArenA, Amsterdam (NL) 27-5-2023](https://www.youtube.com/watch?v=9xh9lokwJ54)
 
-[https://www.youtube.com/embed/lGa65Wt94Ws](https://www.youtube.com/embed/lGa65Wt94Ws)
+[Watch on Youtube: BRUCE SPRINGSTEEN - Kitty's Back - Amsterdam Johan Cruijff Arena - 2023-05-27](https://www.youtube.com/watch?v=1fbEqkY5lDM)
 
-Bruce and the E Street Band play the first of two River Tour (2016 edition) shows at Croke Park in Dublin. "Back in Your Arms" and "Lost in the Flood" both make their tour debuts.
+[Watch on Youtube: BRUCE SPRINGSTEEN - She's The One - Amsterdam Johan Cruijff Arena - 2023-05-27](https://www.youtube.com/watch?v=gaHxZQ0v41E)
 
-**2016:**<br>
+**2025:** Bruce and the E Street Band play their second of two nights in Lille, France.
 
-[https://www.youtube.com/embed/Nq28PzXDr8Y](https://www.youtube.com/embed/Nq28PzXDr8Y)
+[Watch on Youtube: Bruce Springteen / Décathlon Arena Lille 27 Mai 2025](https://www.youtube.com/watch?v=7ls_uypxUf4)
 
-[https://www.youtube.com/embed/fzvtm9eCmeI](https://www.youtube.com/embed/fzvtm9eCmeI)
-
-[https://www.youtube.com/embed/irF2LJC0Poo](https://www.youtube.com/embed/irF2LJC0Poo)
-
-[https://www.youtube.com/embed/e9dHBmVTk6c](https://www.youtube.com/embed/e9dHBmVTk6c)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_National_Sat__May_28__2016_-scaled.jpg?resize=758%2C544&amp;ssl=1)
-
-Bruce joins Little Steven and the Disciples of Soul on stage at the Count Basie Theater in Red Bank four a four-song encore performance.
-
-**2017:**<br>
-
-[https://www.youtube.com/embed/wd8AfjeVLyw](https://www.youtube.com/embed/wd8AfjeVLyw)
-
-Bruce attends his niece's graduation ceremony at the Ranney School in Tinton Falls.
-
-**2021:**<br>
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/05/2019-05-27.jpg?resize=758%2C777&amp;ssl=1)
-
-Bruce takes a tumble during "Ghosts" when he and the E Street Band play their second of two nights in Amsterdam on their 2023 World Tour.
-
-**2023:**<br>
-
-[https://www.youtube.com/embed/S4PFmorEK0M](https://www.youtube.com/embed/S4PFmorEK0M)
-
-[https://www.youtube.com/embed/9xh9lokwJ54](https://www.youtube.com/embed/9xh9lokwJ54)
-
-[https://www.youtube.com/embed/1fbEqkY5lDM](https://www.youtube.com/embed/1fbEqkY5lDM)
-
-[https://www.youtube.com/embed/gaHxZQ0v41E](https://www.youtube.com/embed/gaHxZQ0v41E)
-
-Bruce and the E Street Band play their second of two nights in Lille, France.
-
-**2025:**<br>
-
-[https://www.youtube.com/embed/7ls_uypxUf4](https://www.youtube.com/embed/7ls_uypxUf4)
-
-[https://www.youtube.com/embed/9VXbdd59b1s](https://www.youtube.com/embed/9VXbdd59b1s)
+[Watch on Youtube: Bruce Springsteen - Chimes of freedom - Lille 27.05.2025](https://www.youtube.com/watch?v=9VXbdd59b1s)

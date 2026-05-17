@@ -1,140 +1,108 @@
+***New for 2025:** New entry for 1977 and 1987*
 
-*New entry for 1977 and 1987***New for 2025:**
+**1973:** Bruce and the as-yet-unnamed E Street Band play a gig at Waynesburg College in Pennsylvania.
 
-Bruce and the as-yet-unnamed E Street Band play a gig at Waynesburg College in Pennsylvania.
+**1976:** “The Promise” makes its second-ever appearance, still a work-in-progress, when the Lawsuit Tour stops in Santa Monica for the first of two nights.
 
-**1973:**<br>
+[Watch on Youtube: Bruce Springsteen - THE PROMISE 1976 (audio)](https://www.youtube.com/watch?v=Q4pJ5hDqxTA)
 
-"The Promise" makes its second-ever appearance, still a work-in-progress, when the Lawsuit Tour stops in Santa Monica for the first of two nights.
+[Watch on Youtube: Bruce Springsteen - 1976-09-29, Santa Monica Civic Auditorium, Santa Monica, CA](https://www.youtube.com/watch?v=4IL4uob4KjE)
 
-**1976:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/1976-09-29.jpg)
 
-[https://www.youtube.com/embed/Q4pJ5hDqxTA](https://www.youtube.com/embed/Q4pJ5hDqxTA)
+![](https://estreetshuffle.com/wp-content/uploads/2019/09/1976-09-29.jpg)
 
-[https://www.youtube.com/embed/4IL4uob4KjE](https://www.youtube.com/embed/4IL4uob4KjE)
+**1977:** Bruce records “[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)” and “[Someday (We’ll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)” at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1976-09-29-300x201.jpg?resize=758%2C508)
+[Watch on Youtube: Rendezvous](https://www.youtube.com/watch?v=0ena3tWYo-g)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1976-09-29-300x298.jpg?resize=758%2C753)
+[Watch on Youtube: Someday (We'll Be Together)](https://www.youtube.com/watch?v=ZKFREGdtncg)
 
-Bruce records "" and "" at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.
+**1978:** The Darkness Tour moves on to Boutwell Memorial Auditorium in Birmingham. (Photo credit: William E. Allen)
 
-**1977:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)
+[Watch Video Highlight](https://videopress.com/embed/PNdFeC4l?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/0ena3tWYo-g](https://www.youtube.com/embed/0ena3tWYo-g)
+![](https://estreetshuffle.com/wp-content/uploads/2024/09/Birmingham_Post_Herald_1978_09_30_19-scaled.jpg)
 
-[https://www.youtube.com/embed/ZKFREGdtncg](https://www.youtube.com/embed/ZKFREGdtncg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/09/1978-0929.jpg)
 
-The Darkness Tour moves on to Boutwell Memorial Auditorium in Birmingham.
+**1982:** Bruce plays two songs (although this is up for debate) with Billy Rancher & The Unreal Gods on stage at On Broadway in Westwood, New Jersey.
 
-**1978:** (Photo credit: William E. Allen)
+**1985:** Bruce and the E Street Band play their second of four shows at the final stand of the Born in the U.S.A. Tour in Los Angeles. In attendance tonight: The cast of television’s *Growing Pains*.
 
-[https://videopress.com/embed/PNdFeC4l](https://videopress.com/embed/PNdFeC4l)
+[Watch Video Highlight](https://videopress.com/embed/Tu2dlnHp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Birmingham_Post_Herald_1978_09_30_19.jpg?w=758&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/09/1985-09-29.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0929-200x300.jpg?resize=758%2C1137)
+**1987:** Bruce rehearses with Roy Orbison at the Cocoanut Grove in Los Angeles for the filming of *Black & White Night* the following day.
 
-Bruce plays two songs (although this is up for debate) with Billy Rancher & The Unreal Gods on stage at On Broadway in Westwood, New Jersey.
+**1989:** Bruce makes a pit-stop at Matt’s Saloon in Prescott, Arizona while on a motorcycle trip from Los Angeles, joining house band Mile High Band on stage for about an hour and befriending and changing the life of a bartender before heading off to the Grand Canyon.
 
-**1982:**<br>
+[Watch on Youtube: The Time Bruce Springsteen Paid Off an Arizona Bartender's $160,000 in Medical Bills](https://www.youtube.com/watch?v=ordKJO1_Rxg)
 
-Bruce and the E Street Band play their second of four shows at the final stand of the Born in the U.S.A. Tour in Los Angeles. In attendance tonight: The cast of television's .
+![](https://estreetshuffle.com/wp-content/uploads/2018/09/1989-0929.jpg)
 
-**1985:** *Growing Pains*
+![](https://estreetshuffle.com/wp-content/uploads/2021/09/1989-09-29a.jpg)
 
-[https://videopress.com/embed/Tu2dlnHp](https://videopress.com/embed/Tu2dlnHp)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/1989-09-29b.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1985-09-29.jpg?resize=758%2C1068&amp;ssl=1)
+**1992:** Bruce and his new band play the San Diego Sports Arena on World Tour 1992.
 
-Bruce rehearses with Roy Orbison at the Cocoanut Grove in Los Angeles for the filming of the following day.
+[Watch on Youtube: Bruce Springsteen in San Diego 1992](https://www.youtube.com/watch?v=c-IWG0XJeWk)
 
-**1987:** *Black & White Night*
+[Watch on Youtube: Bruce Springsteen San Diego Sports Arena 9-29-92](https://www.youtube.com/watch?v=96jehWdf8BM)
 
-Bruce makes a pit-stop at Matt's Saloon in Prescott, Arizona while on a motorcycle trip from Los Angeles, joining house band Mile High Band on stage for about an hour and befriending and changing the life of a bartender before heading off to the Grand Canyon.
+**1996:** Bruce plays with Pete Seeger for the very first time at a Woody Guthrie tribute concert in Cleveland, along with Joe Ely, Arlo Guthrie, Ani DiFranco, the Indigo Girls, and more.
 
-**1989:**<br>
+[Watch on Youtube: I've Got to Know - Bruce Springsteen and others, Cleveland, September 29 1996](https://www.youtube.com/watch?v=0G8dDlLkG7c)
 
-[https://www.youtube.com/embed/ordKJO1_Rxg](https://www.youtube.com/embed/ordKJO1_Rxg)
+[Watch on Youtube: Bruce Springsteen, Arlo Gurthrie & Joe Ely - Oklahoma Hills](https://www.youtube.com/watch?v=_56dNOn0mIw)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1989-0929-166x300.jpg?resize=758%2C1370)
+[Watch on Youtube: Plane Wreck At Los Gatos (Deportee) - Bruce Springsteen - Til We Outnumber Em](https://www.youtube.com/watch?v=-HPnNUUC-ww)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1989-09-29a.jpg?resize=758%2C1516&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - Hobo's Lullaby](https://www.youtube.com/watch?v=FbiiRUSdUyg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1989-09-29b-154x300.jpg?resize=758%2C1477)
+![](https://estreetshuffle.com/wp-content/uploads/2021/09/1996-09-29.jpg)
 
-Bruce and his new band play the San Diego Sports Arena on World Tour 1992.
+**2002:** Bruce tour premieres “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” when the Rising Tour stops at the Fargodome in North Dakota.
 
-**1992:**<br>
+[Watch Video Highlight](https://videopress.com/embed/VydrrUiL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/c-IWG0XJeWk](https://www.youtube.com/embed/c-IWG0XJeWk)
+**2004:** Bruce, the E Street Band, and John Fogerty rehearse at Asbury Park’s Convention Hall for their upcoming Vote for Change Tour.
 
-[https://www.youtube.com/embed/96jehWdf8BM](https://www.youtube.com/embed/96jehWdf8BM)
+**2016:** Bruce makes a book tour appearance at the Free Library of Philadelphia to promote his new autobiography, *Born to Run*. A local schoolboy skips class to meet Bruce and convinces Bruce to sign his absence note, which he duly hands to his teacher the next day.
 
-Bruce plays with Pete Seeger for the very first time at a Woody Guthrie tribute concert in Cleveland, along with Joe Ely, Arlo Guthrie, Ani DiFranco, the Indigo Girls, and more.
+[Watch on Youtube: Life-Long Bruce Springsteen Fans Meet Their Idol At Philly Book Signing](https://www.youtube.com/watch?v=fUZnsrgbojQ)
 
-**1996:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/09/2016-0929.jpg)
 
-[https://www.youtube.com/embed/0G8dDlLkG7c](https://www.youtube.com/embed/0G8dDlLkG7c)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/2016-09-29b.jpg)
 
-[https://www.youtube.com/embed/_56dNOn0mIw](https://www.youtube.com/embed/_56dNOn0mIw)
+![](https://estreetshuffle.com/wp-content/uploads/2021/09/2016-09-29a.jpg)
 
-[https://www.youtube.com/embed/-HPnNUUC-ww](https://www.youtube.com/embed/-HPnNUUC-ww)
+**2017:** Bruce holds his first and only dress rehearsal (invite-only) for Springsteen on Broadway at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/FbiiRUSdUyg](https://www.youtube.com/embed/FbiiRUSdUyg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/2017-09-29.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1996-09-29.jpg?resize=758%2C1277&amp;ssl=1)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of “This Hard Land” in place of his duet of “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” with Patti. In attendance tonight: Hozier.
 
-Bruce tour premieres "" when the Rising Tour stops at the Fargodome in North Dakota.
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/2018-09-29.jpg)
 
-**2002:** [Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
+**2022:** Bruce announces his twenty-first studio album, *Only the Strong Survive*, and releases a video for the album’s lead single, “Do I Love You (Indeed I Do).”
 
-[https://videopress.com/embed/VydrrUiL](https://videopress.com/embed/VydrrUiL)
+[Watch on Youtube: Bruce Springsteen - Do I Love You (Indeed I Do) (Official Video)](https://www.youtube.com/watch?v=O0jBwk71Qcw)
 
-Bruce, the E Street Band, and John Fogerty rehearse at Asbury Park's Convention Hall for their upcoming Vote for Change Tour.
+That evening, Bruce and Patti perform “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
+> View this post on Instagram
+> 
+> 
+> 
+> [A post shared by covenant- alex (@borntorunboss1)](https://www.instagram.com/tv/CjTHuJAtR9O/?utm_source=ig_embed&utm_campaign=loading)
 
-**2004:**<br>
 
-Bruce makes a book tour appearance at the Free Library of Philadelphia to promote his new autobiography, . A local schoolboy skips class to meet Bruce and convinces Bruce to sign his absence note, which he duly hands to his teacher the next day.
 
-**2016:** *Born to Run*
+[Watch on Youtube: Oscar Isaac Bruce Springsteen take their wives to Albie Awards NYC! #brucespringsteen #oscarisaac](https://www.youtube.com/watch?v=yhCl8la_aeU)
 
-[https://www.youtube.com/embed/fUZnsrgbojQ](https://www.youtube.com/embed/fUZnsrgbojQ)
+**2023:** Bruce’s scheduled show at Nationals Park in Washington D.C.–already rescheduled once from a month earlier–is postponed for almost another a full year.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/2016-0929-300x169.jpg?resize=758%2C427)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2016-09-29b-300x289.jpg?resize=758%2C730)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2016-09-29a.jpg?resize=758%2C3115&amp;ssl=1)
-
-Bruce holds his first and only dress rehearsal (invite-only) for Springsteen on Broadway at the Walter Kerr Theater in New York City.
-
-**2017:**<br>
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2017-09-29-266x300.jpg?resize=758%2C855)
-
-continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of "This Hard Land" in place of his duet of "" with Patti. In attendance tonight: Hozier.
-
-**2018:** *Springsteen on Broadway* [Tougher Than the Rest](http://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2018-09-29-298x300.jpg?resize=758%2C763)
-
-Bruce announces his twenty-first studio album, , and releases a video for the album's lead single, "Do I Love You (Indeed I Do)."
-
-**2022:** *Only the Strong Survive*
-
-[https://www.youtube.com/embed/O0jBwk71Qcw](https://www.youtube.com/embed/O0jBwk71Qcw)
-
-That evening, Bruce and Patti perform "" at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
-
-[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
-
-View this post on Instagram
-
-[A post shared by covenant- alex (@borntorunboss1)](https://www.instagram.com/tv/CjTHuJAtR9O/?utm_source=ig_embed&utm_campaign=loading)
-
-[https://www.youtube.com/embed/yhCl8la_aeU](https://www.youtube.com/embed/yhCl8la_aeU)
-
-Bruce's scheduled show at Nationals Park in Washington D.C.–already rescheduled once from a month earlier–is postponed for almost another a full year.
-
-**2023:**<br>
+ 

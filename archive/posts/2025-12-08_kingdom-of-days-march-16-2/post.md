@@ -1,76 +1,55 @@
+**1973:** Bruce and the (not yet named) E Street Band play a gig at Oliver’s in Boston, their fifth of seven straight nights.
 
-Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, their fifth of seven straight nights.
+**1974:** Bruce and the band play their second of two nights at Armadillo World Headquarters in Austin.
 
-**1973:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/47802963802_7161fc584d_o.jpg)
 
-Bruce and the band play their second of two nights at Armadillo World Headquarters in Austin.
+**1988:** The Tunnel of Love Express Tour moves on to Chicagoland for the first of two nights at the Rosemont Horizon.
 
-**1974:**<br>
+[Watch Video Highlight](https://videopress.com/embed/N9EzSYt4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/47802963802_7161fc584d_o.jpg?resize=635%2C1500&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-03-16.jpg)
 
-The Tunnel of Love Express Tour moves on to Chicagoland for the first of two nights at the Rosemont Horizon.
+**1996:** Bruce plays a solo acoustic show at Falkoner Salen in Copenhagen.
 
-**1988:**<br>
+[Watch on Youtube: Bruce Springsten, news report, interview and live from Copenhagen, Denmark 1996](https://www.youtube.com/watch?v=_p690qQT8L0)
 
-[https://videopress.com/embed/N9EzSYt4](https://videopress.com/embed/N9EzSYt4)
+**2004:** Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on “Take It Easy.”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-16.jpg?resize=758%2C731&amp;ssl=1)
+[Watch on Youtube: Jackson Browne and Bruce Springsteen - "Take It Easy" - 2004-03-16](https://www.youtube.com/watch?v=b7y7zEisP1k)
 
-Bruce plays a solo acoustic show at Falkoner Salen in Copenhagen.
+**2006:** Bruce rehearses with the Sessions Band at the Paramount Theater in Asbury Park.
 
-**1996:**<br>
+**2008:** The Magic Tour moves on to Xcel Energy Center in St. Paul.
 
-[https://www.youtube.com/embed/_p690qQT8L0](https://www.youtube.com/embed/_p690qQT8L0)
+[Watch on Youtube: Bruce Springsteen Live Radion Nowhere St. Paul MN 3/16/2008](https://www.youtube.com/watch?v=JgVGkrDf42M)
 
-Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on "Take It Easy."
+[Watch on Youtube: Bruce Springsteen - Darkness on the edge of town](https://www.youtube.com/watch?v=FsyOByxpBXM)
 
-**2004:**<br>
+[Watch on Youtube: Bruce Springsteen ~ Xcel Center ~ St Paul 3-16-08 ~ Magic](https://www.youtube.com/watch?v=nNvJ_sZfNwQ)
 
-[https://www.youtube.com/embed/b7y7zEisP1k](https://www.youtube.com/embed/b7y7zEisP1k)
+![](https://estreetshuffle.com/wp-content/uploads/2022/03/2008-03-16.jpg)
 
-Bruce rehearses with the Sessions Band at the Paramount Theater in Asbury Park.
+**2013:** Night Two in Brisbane opens with the live debut of “High Hopes.”
 
-**2006:**<br>
+[Watch on Youtube: Bruce Springsteen - High Hopes - Brisbane March 16](https://www.youtube.com/watch?v=Z7ksWwv3GtQ)
 
-The Magic Tour moves on to Xcel Energy Center in St. Paul.
+[Watch on Youtube: Bruce Springsteen - Spirit In The Night - Brisbane, Australia, 16 March 2013](https://www.youtube.com/watch?v=kWWooLaeMjc)
 
-**2008:**<br>
+[Watch on Youtube: Bruce Springsteen - Blinded By The Light - Brisbane, Australia 16 March 2013](https://www.youtube.com/watch?v=yOR_WJF6Bp4)
 
-[https://www.youtube.com/embed/JgVGkrDf42M](https://www.youtube.com/embed/JgVGkrDf42M)
+[Watch on Youtube: Bruce Springsteen - Brisbane - 16-03-2013](https://www.youtube.com/watch?v=7AnPee9K7iE)
 
-[https://www.youtube.com/embed/FsyOByxpBXM](https://www.youtube.com/embed/FsyOByxpBXM)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/nNvJ_sZfNwQ](https://www.youtube.com/embed/nNvJ_sZfNwQ)
+**2023:** Bruce returns to the stage at Wells Fargo Center in Philadelphia, recovered from an illness that forced the cancellation of three shows the previous week.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2008-03-16.jpg?resize=527%2C824&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance +](https://www.youtube.com/watch?v=r6p-giPN5qI)
 
-Night Two in Brisbane opens with the live debut of "High Hopes."
+[Watch on Youtube: Trapped - Springsteen - Philadelphia March 16, 2023](https://www.youtube.com/watch?v=G_bAlbzUkVk)
 
-**2013:**<br>
+[Watch on Youtube: BADLANDS- Bruce Springsteen and the E-Street Band- Philadelphia- Wells Fargo- 3/16/23](https://www.youtube.com/watch?v=jMnCm66J_oQ)
 
-[https://www.youtube.com/embed/Z7ksWwv3GtQ](https://www.youtube.com/embed/Z7ksWwv3GtQ)
+[Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=gn8tNdOaWQY)
 
-[https://www.youtube.com/embed/kWWooLaeMjc](https://www.youtube.com/embed/kWWooLaeMjc)
-
-[https://www.youtube.com/embed/yOR_WJF6Bp4](https://www.youtube.com/embed/yOR_WJF6Bp4)
-
-[https://www.youtube.com/embed/7AnPee9K7iE](https://www.youtube.com/embed/7AnPee9K7iE)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Bruce returns to the stage at Wells Fargo Center in Philadelphia, recovered from an illness that forced the cancellation of three shows the previous week.
-
-**2023:**<br>
-
-[https://www.youtube.com/embed/r6p-giPN5qI](https://www.youtube.com/embed/r6p-giPN5qI)
-
-[https://www.youtube.com/embed/G_bAlbzUkVk](https://www.youtube.com/embed/G_bAlbzUkVk)
-
-[https://www.youtube.com/embed/jMnCm66J_oQ](https://www.youtube.com/embed/jMnCm66J_oQ)
-
-[https://www.youtube.com/embed/gn8tNdOaWQY](https://www.youtube.com/embed/gn8tNdOaWQY)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Philadelphia_Inquirer_Sat__Mar_18__2023_-scaled.jpg?resize=758%2C1535&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2024/03/Philadelphia_Inquirer_Sat__Mar_18__2023_-scaled.jpg)

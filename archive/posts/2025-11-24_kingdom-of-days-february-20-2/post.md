@@ -1,62 +1,45 @@
+**1971:** Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
 
-Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
+**1972:** The Bruce Springsteen Band plays their sixth of nine shows this month at The Back Door in Richmond, Virginia.
 
-**1971:**<br>
+**1975:** Bruce and the band co-headline with Richie Havens at Syria Mosque in Pittsburgh.
 
-The Bruce Springsteen Band plays their sixth of nine shows this month at The Back Door in Richmond, Virginia.
+![](https://estreetshuffle.com/wp-content/uploads/2018/02/1975-0220.jpg)
 
-**1972:**<br>
+**1977:** Bruce and the band play Dane County Memorial Coliseum in Madison on the Lawsuit Tour.
 
-Bruce and the band co-headline with Richie Havens at Syria Mosque in Pittsburgh.
+![](https://estreetshuffle.com/wp-content/uploads/2020/02/1977-02-20.jpg)
 
-**1975:**<br>
+**1981:** The River Tour finishes its Florida leg at the Hollywood Sportatorium. According to the local reviewer, the crowd is not on its best behavior.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1975-0220-218x300.jpg?resize=758%2C1043)
+[Watch Video Highlight](https://videopress.com/embed/noKMOp30?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the band play Dane County Memorial Coliseum in Madison on the Lawsuit Tour.
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/1981-02-20a.png)
 
-**1977:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/1981-02-19b.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1977-02-20-300x151.jpg?resize=758%2C382)
+**1982:** Bruce joins John Cafferty and Beaver Brown at Big Man’s West in Red Bank, New Jersey for “[Ain’t That a Shame](https://estreetshuffle.com/index.php/2018/03/08/meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/),” “[Money (That’s What I Want)](https://estreetshuffle.com/index.php/2019/11/26/matr-bruce-springsteen-and-beaver-brown-money-thats-what-i-want/)” and “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/).”
 
-The River Tour finishes its Florida leg at the Hollywood Sportatorium. According to the local reviewer, the crowd is not on its best behavior.
+[Watch on Youtube: ain't that a shame ( cover Fats Domino )](https://www.youtube.com/watch?v=4E-nYKWhBOw)
 
-**1981:**<br>
+[Watch on Youtube: Bruce Springsteen - MONEY 1982 (audio)](https://www.youtube.com/watch?v=6izI6xtDOf8)
 
-[https://videopress.com/embed/noKMOp30](https://videopress.com/embed/noKMOp30)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-20a.png?resize=758%2C602&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-19b.png?resize=758%2C1299&amp;ssl=1)
-
-Bruce joins John Cafferty and Beaver Brown at Big Man's West in Red Bank, New Jersey for "," "" and "."
-
-**1982:** [Ain't That a Shame](http://estreetshuffle.com/index.php/2018/03/08/meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/)[Money (That's What I Want)](http://estreetshuffle.com/index.php/2019/11/26/matr-bruce-springsteen-and-beaver-brown-money-thats-what-i-want/)[You Can't Sit Down](http://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)
-
-[https://www.youtube.com/embed/4E-nYKWhBOw](https://www.youtube.com/embed/4E-nYKWhBOw)
-
-[https://www.youtube.com/embed/6izI6xtDOf8](https://www.youtube.com/embed/6izI6xtDOf8)
+[https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3?_=6)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3>
 
-Bruce records a new song, "Ida Rose (No One Knows)." It hasn't surfaced as of this writing, but it was included on an unreleased 1993 prototype for
+**1984:** Bruce records a new song, “Ida Rose (No One Knows).” It hasn’t surfaced as of this writing, but it was included on an unreleased 1993 prototype for *Tracks.*
 
-**1984:** *Tracks.*
+**1996:** Bruce opens the San Remo Music Festival with an acoustic performance of “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” on Italian TV.
 
-Bruce opens the San Remo Music Festival with an acoustic performance of "" on Italian TV.
+[Watch Video Highlight](https://videopress.com/embed/WaIiOtaN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1996:** [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)
+**2003:** Bruce plays the second of two acoustic shows in Somerville, Massachusetts, a benefit for *Doubletake Magazine*.
 
-[https://videopress.com/embed/WaIiOtaN](https://videopress.com/embed/WaIiOtaN)
+[Watch Video Highlight](https://videopress.com/embed/Ho9TQzo4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce plays the second of two acoustic shows in Somerville, Massachusetts, a benefit for .
+**2007:** Bruce’s instrumental cover of “[Once Upon a Time in the West](https://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/),” is released on the tribute album *We All Love Ennio Morricone.* The gorgeous track will go on to win a Grammy Award.
 
-**2003:** *Doubletake Magazine*
+[Watch on Youtube: Once Upon A Time In The West](https://www.youtube.com/watch?v=CBTy5EF7upk)
 
-[https://videopress.com/embed/Ho9TQzo4](https://videopress.com/embed/Ho9TQzo4)
-
-Bruce's instrumental cover of "," is released on the tribute album The gorgeous track will go on to win a Grammy Award.
-
-**2007:** [Once Upon a Time in the West](http://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/)*We All Love Ennio Morricone.*
-
-[https://www.youtube.com/embed/CBTy5EF7upk](https://www.youtube.com/embed/CBTy5EF7upk)
+ 

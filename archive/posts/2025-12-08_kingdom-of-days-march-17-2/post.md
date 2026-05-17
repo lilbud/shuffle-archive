@@ -1,90 +1,61 @@
+**1972:** The Bruce Springsteen Band opens for Mitch Ryder (of “Detroit Medley” fame) in Richmond. Also on the bill: the Mike Quatro Jamband. Mike’s sister Suzi will go on to become a well-known rocker (and minor TV star), someday covering Bruce’s signature song, “Born to Run.”
 
-The Bruce Springsteen Band opens for Mitch Ryder (of "Detroit Medley" fame) in Richmond. Also on the bill: the Mike Quatro Jamband. Mike's sister Suzi will go on to become a well-known rocker (and minor TV star), someday covering Bruce's signature song, "Born to Run."
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/47944265348_83c10b3f14_o.jpg)
 
-**1972:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1972-0317.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/47944265348_83c10b3f14_o.jpg?resize=758%2C956&amp;ssl=1)
+**1973:** Bruce and the as-yet-unnamed E Street Band play a gig at Oliver’s in Boston, their sixth of seven straight nights.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1972-0317.jpg?resize=402%2C605&amp;ssl=1)
+**1975:** At Columbia Recording Studios in New York City, Bruce attempts to remix “Born to Run” for his upcoming album but ultimately decide to stick with the original.
 
-Bruce and the as-yet-unnamed E Street Band play a gig at Oliver's in Boston, their sixth of seven straight nights.
+**1978:** Bruce attends Warren Zevon’s show at Trax in New York City–and may possibly have contributed backup howls on “Werewolves of London.” (Accounts vary.)
 
-**1973:**<br>
+**1981**: The scheduled European opener of the River Tour is postponed to give Bruce time to recover from the first two legs of the tour.
 
-At Columbia Recording Studios in New York City, Bruce attempts to remix "Born to Run" for his upcoming album but ultimately decide to stick with the original.
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
 
-**1975:**<br>
+**1988:** Bruce and the E Street Band play their second of two nights at the Rosemont Horizon near Chicago, where they tour premiere “Darkness on the Edge of Town” and “Backstreets.”
 
-Bruce attends Warren Zevon's show at Trax in New York City–and may possibly have contributed backup howls on "Werewolves of London." (Accounts vary.)
+[Watch Video Highlight](https://videopress.com/embed/iEJOIMJg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1978:**<br>
+**1996:** On a night off from his solo tour, Bruce joins Joe Ely on stage at The Mean Fiddler in Dublin for three songs during the main set; he returns for two more in the encore. Listen to both appearances below.
 
-: The scheduled European opener of the River Tour is postponed to give Bruce time to recover from the first two legs of the tour.
+[Watch Video Highlight](https://videopress.com/embed/rys9ZuBP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1981**<br>
+[Watch on Youtube: Joe Ely and Bruce Springsteen - Dublin - 1996-03-17 (encore)](https://www.youtube.com/watch?v=m6cZU3iSdzY)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg?resize=379%2C502&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1996-0317.jpg)
 
-Bruce and the E Street Band play their second of two nights at the Rosemont Horizon near Chicago, where they tour premiere "Darkness on the Edge of Town" and "Backstreets."
+![](https://estreetshuffle.com/wp-content/uploads/2024/03/Austin_American_Statesman_Thu__Mar_21__1996_-scaled.jpg)
 
-**1988:**<br>
+**1998:** *Where Have All the Flowers Gone,* a Pete Seeger tribute album, is released, featuring Bruce’s cover of “We Shall Overcome,” the very first Seeger Session recording to see the light of day, eight years before the release of the album for which it will serve as the title track.
 
-[https://videopress.com/embed/iEJOIMJg](https://videopress.com/embed/iEJOIMJg)
+[Watch on Youtube: Bruce Springsteen - "We Shall Overcome" (original 1998 version)](https://www.youtube.com/watch?v=026oa4oMG5k)
 
-On a night off from his solo tour, Bruce joins Joe Ely on stage at The Mean Fiddler in Dublin for three songs during the main set; he returns for two more in the encore. Listen to both appearances below.
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1998-03-17.png)
 
-**1996:**<br>
+**2008:** Richard Davis, bassist on the studio recording of “Meeting Across the River,” guest-stars when Bruce and the E Street Band play that song at the Bradley Center in Milwaukee during the Magic Tour. “Streets of Fire” tour premieres tonight as well.
 
-[https://videopress.com/embed/rys9ZuBP](https://videopress.com/embed/rys9ZuBP)
+[Watch on Youtube: Springsteen Meeting Across The River FULL Milwaukee 3/17/08](https://www.youtube.com/watch?v=2gnWNO0l-y4)
 
-[https://www.youtube.com/embed/m6cZU3iSdzY](https://www.youtube.com/embed/m6cZU3iSdzY)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/2008-03-17.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1996-0317.jpg?resize=758%2C507&amp;ssl=1)
+**2009:** Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park’s Convention Hall.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Austin_American_Statesman_Thu__Mar_21__1996_-scaled.jpg?resize=758%2C643&amp;ssl=1)
+**2012:** The night before he kicks off the Wrecking Ball Tour, Bruce visits the Red Light Cafe in Atlanta to take in local guitarist Glenn Phillips.
 
-a Pete Seeger tribute album, is released, featuring Bruce's cover of "We Shall Overcome," the very first Seeger Session recording to see the light of day, eight years before the release of the album for which it will serve as the title track.
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2012-03-17-1.jpg)
 
-**1998:** *Where Have All the Flowers Gone*,
+**2016:** At Night Two (of three) at the Los Angeles Sports Arena, Bruce tour premieres “Death to My Hometown” and “American Land” for St. Patrick’s Day.
 
-[https://www.youtube.com/embed/026oa4oMG5k](https://www.youtube.com/embed/026oa4oMG5k)
+[Watch Video Highlight](https://videopress.com/embed/vlByZSBh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1998-03-17.png?resize=758%2C375&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - 2016-03-17 - Los Angeles - Backstreets - Multicam](https://www.youtube.com/watch?v=SjhzlnVOKp8)
 
-Richard Davis, bassist on the studio recording of "Meeting Across the River," guest-stars when Bruce and the E Street Band play that song at the Bradley Center in Milwaukee during the Magic Tour. "Streets of Fire" tour premieres tonight as well.
+[Watch on Youtube: "American Land" - Bruce Springsteen - The River Tour - Los Angeles 3/17/2016](https://www.youtube.com/watch?v=TcFpvn7M0iM)
 
-**2008:**<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/2gnWNO0l-y4](https://www.youtube.com/embed/2gnWNO0l-y4)
+**2024**: In Phoenix for tour rehearsals with the E Street Band, Bruce takes a break to record a message for fans coming to town for the show.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2008-03-17.jpg?resize=305%2C821&amp;ssl=1)
-
-Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park's Convention Hall.
-
-**2009:**<br>
-
-The night before he kicks off the Wrecking Ball Tour, Bruce visits the Red Light Cafe in Atlanta to take in local guitarist Glenn Phillips.
-
-**2012:**<br>
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-17-1.jpg?resize=758%2C351&amp;ssl=1)
-
-At Night Two (of three) at the Los Angeles Sports Arena, Bruce tour premieres "Death to My Hometown" and "American Land" for St. Patrick's Day.
-
-**2016:**<br>
-
-[https://videopress.com/embed/vlByZSBh](https://videopress.com/embed/vlByZSBh)
-
-[https://www.youtube.com/embed/SjhzlnVOKp8](https://www.youtube.com/embed/SjhzlnVOKp8)
-
-[https://www.youtube.com/embed/TcFpvn7M0iM](https://www.youtube.com/embed/TcFpvn7M0iM)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-: In Phoenix for tour rehearsals with the E Street Band, Bruce takes a break to record a message for fans coming to town for the show.
-
-**2024**<br>
-
-[https://videopress.com/embed/nfEDvruw](https://videopress.com/embed/nfEDvruw)
+[Watch Video Highlight](https://videopress.com/embed/nfEDvruw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)

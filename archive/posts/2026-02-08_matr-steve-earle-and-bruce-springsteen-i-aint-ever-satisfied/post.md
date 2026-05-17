@@ -1,22 +1,17 @@
+“I Ain’t Ever Satisfied” may never have the hit it deserved to be (it only peaked at #26 on the U.S. Mainstream Rock chart), but Earle’s fans still rank it as one of their favorites, and it’s still one of Earle’s most frequently performed songs.
 
-"I Ain't Ever Satisfied" may never have the hit it deserved to be (it only peaked at #26 on the U.S. Mainstream Rock chart), but Earle's fans still rank it as one of their favorites, and it's still one of Earle's most frequently performed songs.
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ituFNPXAaE8)
 
-[https://www.youtube.com/embed/ituFNPXAaE8?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/ituFNPXAaE8?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+With its defiant theme and wordless “Woh-oh-oh-oh-oh-oh-oh-oh ” chorus, “I Ain’t Ever Satisfied” sounds tailor-made for a Springsteen cover or duet.
 
-With its defiant theme and wordless "Woh-oh-oh-oh-oh-oh-oh-oh " chorus, "I Ain't Ever Satisfied" sounds tailor-made for a Springsteen cover or duet.
+We got the latter when Bruce joined Steve Earle on stage during the encore set at Earle’s 1998 show at Tradewinds in Sea Bright, New Jersey.
 
-We got the latter when Bruce joined Steve Earle on stage during the encore set at Earle's 1998 show at Tradewinds in Sea Bright, New Jersey.
+Here’s that one-time only performance, from February 6, 1998. Bruce is on guitar the whole time, and you’ll hear his vocals kick in at around the halfway point.
 
-Here's that one-time only performance, from February 6, 1998. Bruce is on guitar the whole time, and you'll hear his vocals kick in at around the halfway point.
+[Watch Video Highlight](https://videopress.com/embed/tRGCYnzg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/tRGCYnzg](https://videopress.com/embed/tRGCYnzg)
-
-February 6, 1998 (Sea Bright, NJ)
-February 6, 1998 (Sea Bright, NJ)
-
-**I Ain't Ever Satisfied**<br>
-**First performed:**<br>
-
-**Last performed:**<br>
+**I Ain’t Ever Satisfied  
+First performed:** February 6, 1998 (Sea Bright, NJ)  
+**Last performed:** February 6, 1998 (Sea Bright, NJ)
 
 © July 6, 2019

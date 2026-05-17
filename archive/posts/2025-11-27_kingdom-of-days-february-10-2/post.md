@@ -1,82 +1,57 @@
+**1970:** Steel Mill plays the Fillmore West in San Francisco, a last minute-replacement for a band cancellation. Venue owner Bill Graham is impressed enough to invite the band back for a second gig the following week.
 
-Steel Mill plays the Fillmore West in San Francisco, a last minute-replacement for a band cancellation. Venue owner Bill Graham is impressed enough to invite the band back for a second gig the following week.
+**1973:** Bruce and his band play their final show at Asbury Park’s Sunshine In. Unfortunately, it’s a short set–only forty minutes–disappointing fans who came to hear Bruce. To add insult to injury, the scheduled opening band (John Lennon’s backing band, Elephant’s Memory) is a no-show. A frustrated fan writes to the Asbury Park Press to complain.
 
-**1970:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/2008-02-10.png)
 
-Bruce and his band play their final show at Asbury Park's Sunshine In. Unfortunately, it's a short set–only forty minutes–disappointing fans who came to hear Bruce. To add insult to injury, the scheduled opening band (John Lennon's backing band, Elephant's Memory) is a no-show. A frustrated fan writes to the Asbury Park Press to complain.
+**1977:** Bruce and the E Street Band play their fourth straight night on the Lawsuit Tour, this time to a crowd of 5,500 at the Memorial Auditorium in Utica, New York.
 
-**1973:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/1977-0210.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2008-02-10.png?resize=758%2C787&amp;ssl=1)
+**1981:** A rare show postponement: The River Tour stop in Lexington is rescheduled for the following month when Bruce comes down with strep throat.
 
-Bruce and the E Street Band play their fourth straight night on the Lawsuit Tour, this time to a crowd of 5,500 at the Memorial Auditorium in Utica, New York.
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/1981-02-10.png)
 
-**1977:**<br>
+**1990:** Sting assembles a band for a benefit show for the Rainforest Foundation. The band includes Bruce, Paul Simon, Don Henley, Bruce Hornsby, Herbie Hancock, Brandford Marsalis, Paulinho Da Costa, and Sting. The all-star band meets to rehearse in Beverly Hills.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1977-0210.jpg?resize=700%2C684&amp;ssl=1)
+**1996:** Bruce announces the postponement of his upcoming U.K. solo acoustic shows due to his invitation to perform at the Academy Awards. To make it up to his fans, he announces additional shows along with the new dates for the postponed shows.
 
-A rare show postponement: The River Tour stop in Lexington is rescheduled for the following month when Bruce comes down with strep throat.
+**1997:** Bruce plays his third of five solo acoustic nights at Sydney’s Capitol Theater.
 
-**1981:**<br>
+[Watch Video Highlight](https://videopress.com/embed/MEFuhDtd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-10.png?resize=758%2C480&amp;ssl=1)
+**2008:** Bruce scores three Grammy Awards: two for “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)” (Best Solo Rock Vocal Performance and Best Rock Song) and one for “[Once Upon a Time in the West](https://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/)” (Best Rock Instrumental Performance). Bruce’s current album, *Magic*, is also nominated for Best Rock Album but does not win.
 
-Sting assembles a band for a benefit show for the Rainforest Foundation. The band includes Bruce, Paul Simon, Don Henley, Bruce Hornsby, Herbie Hancock, Brandford Marsalis, Paulinho Da Costa, and Sting. The all-star band meets to rehearse in Beverly Hills.
+[Watch on Youtube: Radio Nowhere](https://www.youtube.com/watch?v=2f3XaoHqQuQ)
 
-**1990:**<br>
+[Watch on Youtube: Once Upon A Time In The West](https://www.youtube.com/watch?v=CBTy5EF7upk)
 
-Bruce announces the postponement of his upcoming U.K. solo acoustic shows due to his invitation to perform at the Academy Awards. To make it up to his fans, he announces additional shows along with the new dates for the postponed shows.
+**2012:** Bruce and the E Street Band rehearse for their upcoming Grammy Awards performance of “[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/).”
 
-**1996:**<br>
+**2013:** Although nominated for three Grammy Awards (Best Rock Performance and Best Rock Song for “We Take Care of Our Own” and Best Rock Album for [*Wrecking Ball*)](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/), Bruce goes home empty-handed for the first time since 2000.
 
-Bruce plays his third of five solo acoustic nights at Sydney's Capitol Theater.
+**2016:** In Hartford’s XL Center, Bruce and the band play “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” for the first time on the new River Tour.
 
-**1997:**<br>
+[Watch on Youtube: Bruce Springsteen-Meet Me In The City, Hartford 2016-02-10](https://www.youtube.com/watch?v=6J9EtXyqgd8)
 
-[https://videopress.com/embed/MEFuhDtd](https://videopress.com/embed/MEFuhDtd)
+[Watch on Youtube: Bruce Springsteen-Loose Ends, Hartford 2016-02-10 (Tour debut)](https://www.youtube.com/watch?v=4X3JCEs2Czs)
 
-Bruce scores three Grammy Awards: two for "" (Best Solo Rock Vocal Performance and Best Rock Song) and one for "" (Best Rock Instrumental Performance). Bruce's current album, , is also nominated for Best Rock Album but does not win.
+[Watch on Youtube: Bruce Springsteen-Point Blank, Hartford 2016-02-10](https://www.youtube.com/watch?v=iKYu6e29PNY)
 
-**2008:** [Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)[Once Upon a Time in the West](http://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/)*Magic*
+[Watch on Youtube: Bruce Springsteen-The Price You Pay, Hartford 2016-02-10](https://www.youtube.com/watch?v=GwFWmbWZvq8)
 
-[https://www.youtube.com/embed/2f3XaoHqQuQ](https://www.youtube.com/embed/2f3XaoHqQuQ)
+[Watch on Youtube: Bruce Springsteen-Dancing In The Dark, Hartford 2016-02-10](https://www.youtube.com/watch?v=7t_HpRjcgwg)
 
-[https://www.youtube.com/embed/CBTy5EF7upk](https://www.youtube.com/embed/CBTy5EF7upk)
+[Watch on Youtube: Bruce Springsteen "Bobby Jean" 02-10-16 XL Center Hartford CT](https://www.youtube.com/watch?v=dM_BDvIvmcM)
 
-Bruce and the E Street Band rehearse for their upcoming Grammy Awards performance of "."
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/2016-02-10.png)
 
-**2012:** [We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)
+**2023:** At the American Airlines Center in Dallas, Soozie is still down for the count with COVID, and now Little Steven is as well. Patti is absent too, as she will be for the rest of the tour, but while the E Street Band is diminished in size, they perform at full strength and tour premiere “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” in the encores.
 
-Although nominated for three Grammy Awards (Best Rock Performance and Best Rock Song for "We Take Care of Our Own" and Best Rock Album for , Bruce goes home empty-handed for the first time since 2000.
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Detroit Medley [Dallas TX, USA - 10.FEB.2023] Official Audio](https://www.youtube.com/watch?v=XqA3NOz52gM)
 
-**2013:** [)](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Dallas - 2023-02-10 - Thunder Road](https://www.youtube.com/watch?v=mRFr28PyO64)
 
-In Hartford's XL Center, Bruce and the band play "" for the first time on the new River Tour.
+![](https://estreetshuffle.com/wp-content/uploads/2024/02/Fort_Worth_Star_Telegram_Sun__Feb_12__2023_-scaled.jpg)
 
-**2016:** [Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)
-
-[https://www.youtube.com/embed/6J9EtXyqgd8](https://www.youtube.com/embed/6J9EtXyqgd8)
-
-[https://www.youtube.com/embed/4X3JCEs2Czs](https://www.youtube.com/embed/4X3JCEs2Czs)
-
-[https://www.youtube.com/embed/iKYu6e29PNY](https://www.youtube.com/embed/iKYu6e29PNY)
-
-[https://www.youtube.com/embed/GwFWmbWZvq8](https://www.youtube.com/embed/GwFWmbWZvq8)
-
-[https://www.youtube.com/embed/7t_HpRjcgwg](https://www.youtube.com/embed/7t_HpRjcgwg)
-
-[https://www.youtube.com/embed/dM_BDvIvmcM](https://www.youtube.com/embed/dM_BDvIvmcM)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2016-02-10.png?resize=758%2C2186&amp;ssl=1)
-
-At the American Airlines Center in Dallas, Soozie is still down for the count with COVID, and now Little Steven is as well. Patti is absent too, as she will be for the rest of the tour, but while the E Street Band is diminished in size, they perform at full strength and tour premiere "" in the encores.
-
-**2023:** [Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
-
-[https://www.youtube.com/embed/XqA3NOz52gM](https://www.youtube.com/embed/XqA3NOz52gM)
-
-[https://www.youtube.com/embed/mRFr28PyO64](https://www.youtube.com/embed/mRFr28PyO64)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Fort_Worth_Star_Telegram_Sun__Feb_12__2023_-scaled.jpg?resize=758%2C2278&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1973_02_15_Page_21.jpg?w=758&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1973_02_15_Page_21-scaled.jpg)

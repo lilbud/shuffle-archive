@@ -1,92 +1,67 @@
+***New for 2025:** New entry for 1977 and 1979*
 
-*New entry for 1977 and 1979***New for 2025:**
+**1969:** Child plays a gig at the Ocean Side Surf Club in Sea Bright, New Jersey.
 
-Child plays a gig at the Ocean Side Surf Club in Sea Bright, New Jersey.
+![](https://estreetshuffle.com/wp-content/uploads/2021/08/1969-0829.jpg)
 
-**1969:**<br>
+**1970:** Bruce plays his first-ever show in Tennessee when Steel Mill opens for Roy Orbison, Ronnie Milsap and others at the 3rd Annual Nashville Music Festival. About 50,000 people attend, making this show the largest Bruce will play until he starts playing stadiums in the mid-1980s.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1969-0829.jpg?resize=758%2C913&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/08/1970-08-29.png)
 
-Bruce plays his first-ever show in Tennessee when Steel Mill opens for Roy Orbison, Ronnie Milsap and others at the 3rd Annual Nashville Music Festival. About 50,000 people attend, making this show the largest Bruce will play until he starts playing stadiums in the mid-1980s.
+![](https://estreetshuffle.com/wp-content/uploads/2018/08/1970-0829.jpg)
 
-**1970:**<br>
+**1975:** Bruce cancels a scheduled show at the University of Miami.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1970-08-29-249x300.png?resize=758%2C913)
+![](https://estreetshuffle.com/wp-content/uploads/2020/08/1975-08-29a.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1970-0829-228x300.jpg?resize=758%2C997)
+![](https://estreetshuffle.com/wp-content/uploads/2020/08/1975-08-29b.png)
 
-Bruce cancels a scheduled show at the University of Miami.
+![](https://estreetshuffle.com/wp-content/uploads/2019/08/1975-08-29.jpg)
 
-**1975:**<br>
+**1977:** Bruce and the band are in the studio, recording for what will become *Darkness on the Edge of Town*.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1975-08-29a-228x300.png?resize=758%2C998)
+**1978:** Bruce and the E Street Band play their second of two nights at the Stanley Theater in Pittsburgh, where Bruce tour premieres “[It’s My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)” and plays “[(I Heard That) Lonesome Whistle](https://estreetshuffle.com/index.php/2019/12/07/cover-me-i-heard-that-lonesome-whistle/)” for the first and only time to date. The TV show *PM Magazine* airs a segment shortly afterward, featuring footage from this show–check it out below.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1975-08-29b-300x288.png?resize=758%2C728)
+[Watch on Youtube: Bruce Springsteen - I HEARD THAT LONESOME WHISTLE 1978 (audio)](https://www.youtube.com/watch?v=eScrQVnfB34)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1975-08-29-300x152.jpg?resize=758%2C384)
+[Watch on Youtube: Bruce Springsteen, PM Magazine 1978](https://www.youtube.com/watch?v=NuJ-g62ekzc)
 
-Bruce and the band are in the studio, recording for what will become .
+**1979:** Bruce and the E Street Band record an alternate version of “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” at The Power Station in New York City.
 
-**1977:** *Darkness on the Edge of Town*
+[Watch on Youtube: The River](https://www.youtube.com/watch?v=BjSsFvrrh7g)
 
-Bruce and the E Street Band play their second of two nights at the Stanley Theater in Pittsburgh, where Bruce tour premieres "" and plays "" for the first and only time to date. The TV show airs a segment shortly afterward, featuring footage from this show–check it out below.
+**1984:** Bruce and the boys wrap up their four-night stand at the Capital Center in Largo, Maryland.
 
-**1978:** [It's My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)[(I Heard That) Lonesome Whistle](http://estreetshuffle.com/index.php/2019/12/07/cover-me-i-heard-that-lonesome-whistle/)*PM Magazine*
+[Watch Video Highlight](https://videopress.com/embed/lUINKgNF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/eScrQVnfB34](https://www.youtube.com/embed/eScrQVnfB34)
+**1992:** Night Two at The Philadelphia Spectrum on World Tour 1992 features the last “[All or Nothin’ at All](https://estreetshuffle.com/index.php/2018/01/30/roll-of-the-dice-all-or-nothing-at-all/)” for seventeen years and a “Follow That Dream” show closer.
 
-[https://www.youtube.com/embed/NuJ-g62ekzc](https://www.youtube.com/embed/NuJ-g62ekzc)
+[Watch Video Highlight](https://videopress.com/embed/C5ZvQSju?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the E Street Band record an alternate version of "" at The Power Station in New York City.
+![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-08-29.png)
 
-**1979:** [The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
+**1995:** Bruce and Joe Grushecky sit down for an interview at Cheers in Long Branch to promote Joe’s upcoming Bruce-produced album, [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/).
 
-[https://www.youtube.com/embed/BjSsFvrrh7g](https://www.youtube.com/embed/BjSsFvrrh7g)
+[Watch on Youtube: Joe Grushecky and Bruce Springsteen in conversation](https://www.youtube.com/playlist?list=PL39D3CD52696EBA54)
 
-Bruce and the boys wrap up their four-night stand at the Capital Center in Largo, Maryland.
+**2002:** On a rainy night, Bruce and the E Street Band kick off the MTV Video Music Awards, performing “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)” outside Hayden Planetarium in New York City for the cameras followed by a private 75-minute concert in the rain.
 
-**1984:**<br>
+[Watch Video Highlight](https://videopress.com/embed/DJSBoofS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/lUINKgNF](https://videopress.com/embed/lUINKgNF)
+[Watch Video Highlight](https://videopress.com/embed/GLcWAlPv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Night Two at The Philadelphia Spectrum on World Tour 1992 features the last "" for seventeen years and a "Follow That Dream" show closer.
+![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-29.png)
 
-**1992:** [All or Nothin' at All](http://estreetshuffle.com/index.php/2018/01/30/roll-of-the-dice-all-or-nothing-at-all/)
+**2012:** Bruce and the band play an unusual venue: the Vernon Downs Raceway, a horse racing track in central New York State. Bruce delivers a great set list, tour premiering [“Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)” and “[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)” and giving rare outings to “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/),” “[I’m a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/),” the 1978 version of “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” and “[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/).”
 
-[https://videopress.com/embed/C5ZvQSju](https://videopress.com/embed/C5ZvQSju)
+[Watch on Youtube: Bruce Springsteen plays concert at Vernon Downs](https://www.youtube.com/watch?v=1nsW3dQSPAY)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-29.png?resize=753%2C1405&amp;ssl=1)
+[Watch on Youtube: BRUCE SPRINGSTEEN "HUNGRY HEART" VERNON DOWNS 08/29/12](https://www.youtube.com/watch?v=HNUWGvC-dvk)
 
-Bruce and Joe Grushecky sit down for an interview at Cheers in Long Branch to promote Joe's upcoming Bruce-produced album, .
+[Watch on Youtube: MULTICAM HD-I'm a rocker-Bruce Springsteen -Vernon 2012.flv](https://www.youtube.com/watch?v=Brdh8HS4M_w)
 
-**1995:** [](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*American Babylon*
+[Watch on Youtube: Born to Run- Bruce Springsteen- Vernon Downs- 8/29/12](https://www.youtube.com/watch?v=S6GTb8JIfzU)
 
-[https://www.youtube.com/embed/videoseries?list=PL39D3CD52696EBA54](https://www.youtube.com/embed/videoseries?list=PL39D3CD52696EBA54)
+![](https://estreetshuffle.com/wp-content/uploads/2024/08/The_Buffalo_News_2012_09_01_31.jpg)
 
-On a rainy night, Bruce and the E Street Band kick off the MTV Video Music Awards, performing "" outside Hayden Planetarium in New York City for the cameras followed by a private 75-minute concert in the rain.
-
-**2002:** [The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)
-
-[https://videopress.com/embed/DJSBoofS](https://videopress.com/embed/DJSBoofS)
-
-[https://videopress.com/embed/GLcWAlPv](https://videopress.com/embed/GLcWAlPv)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2002-08-29-300x272.png?resize=758%2C687)
-
-Bruce and the band play an unusual venue: the Vernon Downs Raceway, a horse racing track in central New York State. Bruce delivers a great set list, tour premiering " and "" and giving rare outings to "," "," the 1978 version of "" and "."
-
-**2012:** ["Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)[Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)[Frankie](http://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)
-
-[https://www.youtube.com/embed/1nsW3dQSPAY](https://www.youtube.com/embed/1nsW3dQSPAY)
-
-[https://www.youtube.com/embed/HNUWGvC-dvk](https://www.youtube.com/embed/HNUWGvC-dvk)
-
-[https://www.youtube.com/embed/Brdh8HS4M_w](https://www.youtube.com/embed/Brdh8HS4M_w)
-
-[https://www.youtube.com/embed/S6GTb8JIfzU](https://www.youtube.com/embed/S6GTb8JIfzU)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/The_Buffalo_News_2012_09_01_31.jpg?resize=758%2C695&amp;ssl=1)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.

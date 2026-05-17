@@ -1,82 +1,61 @@
+***New for 2025:** New entry for 1979; audio for 1988 and 2006; review for 2005*
 
-*New entry for 1979; audio for 1988 and 2006; review for 2005***New for 2025:**
+**1974:** Bruce and the E Street Band play two shows at Princeton University.
 
-Bruce and the E Street Band play two shows at Princeton University.
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Princeton, NJ 1974-10-12 (Joe Kivak Master)](https://www.youtube.com/watch?v=jdykicq8iFU)
 
-**1974:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/10/1974-10-12.jpg)
 
-[https://www.youtube.com/embed/jdykicq8iFU](https://www.youtube.com/embed/jdykicq8iFU)
+**1976:** Bruce and the boys play a Lawsuit Tour show at Rutgers University in New Brunswick.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1974-10-12.jpg?resize=758%2C460&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/OAaqtbDj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the boys play a Lawsuit Tour show at Rutgers University in New Brunswick.
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/1976-10-12.jpg)
 
-**1976:**<br>
+**1979:** Bruce records “[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)” with the E Street Band at The Power Station in New York City.
 
-[https://videopress.com/embed/OAaqtbDj](https://videopress.com/embed/OAaqtbDj)
+[Watch on Youtube: Crush on You](https://www.youtube.com/watch?v=zDN8pvyKYkU)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1976-10-12-300x107.jpg?resize=758%2C270)
+**1988:** Bruce plays his first ever show in Brazil when the Human Rights Now! Tour stops in São Paolo.
 
-Bruce records "" with the E Street Band at The Power Station in New York City.
+[Watch on Youtube: Bruce Springsteen - Live In São Paulo 1988 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=0Xf1IjEfD9c)
 
-**1979:** [Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/1988-10-12.jpg)
 
-[https://www.youtube.com/embed/zDN8pvyKYkU](https://www.youtube.com/embed/zDN8pvyKYkU)
+**2005:** Bruce tour premieres “Thunder Road” (in its only tour performance) and “[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)” (on autoharp), at his solo acoustic show in Minneapolis.
 
-Bruce plays his first ever show in Brazil when the Human Rights Now! Tour stops in São Paolo.
+[Watch Video Highlight](https://videopress.com/embed/OSxHcFEA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1988:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2025/10/Star_Tribune_2005_10_23_F2-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/10/Star_Tribune_2005_10_13_B5.jpg)
 
-[https://www.youtube.com/embed/0Xf1IjEfD9c](https://www.youtube.com/embed/0Xf1IjEfD9c)
+**2006:** The Seeger Sessions Tour moves on from Italy to Germany, stopping in Hamburg for a show at the Color Line Arena.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-10-12-252x300.jpg?resize=758%2C903)
+[Watch on Youtube: Bruce Springsteen - Live In Hamburg 2006 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=xAFTKJwio8k)
 
-Bruce tour premieres "Thunder Road" (in its only tour performance) and "" (on autoharp), at his solo acoustic show in Minneapolis.
+**2013:** In Cambridge, Massachusetts, the American Academy of Arts and Sciences inducts Bruce into their ranks, along with Pete Seeger, Herbie Hancock, Sally Field, and Robert De Niro.
 
-**2005:** [The New Timer](http://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)
+**2017:** It’s officially opening night for *Springsteen on Broadway* at a star-studded premiere (including the entire E Street Band) that follows seven preview performances. In attendance tonight: Tom Hanks, Steven Spielberg, Kate Capshaw, Nathan Lane, Andrew Lloyd Weber, Ralph Lauren, Tina Fey, Jimmy Iovine, David Geffen, Laura Linney, Jon Stewart, Senator Chuck Schumer, the entire E Street Band and more.
 
-[https://videopress.com/embed/OSxHcFEA](https://videopress.com/embed/OSxHcFEA)
+[Watch on Youtube: 'The Boss' Takes The Stage On Broadway](https://www.youtube.com/watch?v=xCn3Ffh0qjk)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/Star_Tribune_2005_10_23_F2-scaled.jpg?resize=758%2C1220&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/Star_Tribune_2005_10_13_B5.jpg?resize=758%2C454&amp;ssl=1)
+[Watch on Youtube: Springsteen kicks off Broadway run](https://www.youtube.com/watch?v=rqz8SskJ5aA)
 
-The Seeger Sessions Tour moves on from Italy to Germany, stopping in Hamburg for a show at the Color Line Arena.
+[Watch on Youtube: Bruce Springsteen Makes His Broadway Debut](https://www.youtube.com/watch?v=9qUqdEv8alI)
 
-**2006:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/2017-10-12c.jpg)
 
-[https://www.youtube.com/embed/xAFTKJwio8k](https://www.youtube.com/embed/xAFTKJwio8k)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/2017-10-12b.jpg)
 
-In Cambridge, Massachusetts, the American Academy of Arts and Sciences inducts Bruce into their ranks, along with Pete Seeger, Herbie Hancock, Sally Field, and Robert De Niro.
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/2017-10-12a.jpg)
 
-**2013:**<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-It's officially opening night for at a star-studded premiere (including the entire E Street Band) that follows seven preview performances. In attendance tonight: Tom Hanks, Steven Spielberg, Kate Capshaw, Nathan Lane, Andrew Lloyd Weber, Ralph Lauren, Tina Fey, Jimmy Iovine, David Geffen, Laura Linney, Jon Stewart, Senator Chuck Schumer, the entire E Street Band and more.
+[Watch Video Highlight](https://videopress.com/embed/WYIMReN2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2017:** *Springsteen on Broadway*
+**2019:** Bruce spends the weekend at the Ham Yard Hotel in London. speaking to print and broadcast journalists about his *Western Stars* film, most of which will be printed and aired over the weeks to come.
 
-[https://www.youtube.com/embed/xCn3Ffh0qjk](https://www.youtube.com/embed/xCn3Ffh0qjk)
+[Watch on Youtube: Bruce Springsteen talks in depth about Western Stars](https://www.youtube.com/watch?v=ixvSoOG_Vu0)
 
-[https://www.youtube.com/embed/rqz8SskJ5aA](https://www.youtube.com/embed/rqz8SskJ5aA)
+**2020:** Bruce is interviewed by Chris Jordan of the *Asbury Park Press* for his upcoming album and film. The interview will be published in two weeks.
 
-[https://www.youtube.com/embed/9qUqdEv8alI](https://www.youtube.com/embed/9qUqdEv8alI)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2017-10-12c-300x296.jpg?resize=758%2C748)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2017-10-12b-225x300.jpg?resize=758%2C1011)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2017-10-12a-300x300.jpg?resize=758%2C758)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-[https://videopress.com/embed/WYIMReN2](https://videopress.com/embed/WYIMReN2)
-
-Bruce spends the weekend at the Ham Yard Hotel in London. speaking to print and broadcast journalists about his film, most of which will be printed and aired over the weeks to come.
-
-**2019:** *Western Stars*
-
-[https://www.youtube.com/embed/ixvSoOG_Vu0](https://www.youtube.com/embed/ixvSoOG_Vu0)
-
-Bruce is interviewed by Chris Jordan of the for his upcoming album and film. The interview will be published in two weeks.
-
-**2020:** *Asbury Park Press*
+ 

@@ -1,116 +1,93 @@
+***New for 2025:** Audio for 1972; new entry for 1982; video for 1988*
 
-*Audio for 1972; new entry for 1982; video for 1988***New for 2025:**
+**1972:** After impressing John Hammond the day prior, Bruce records fourteen demo tracks at Columbia Records in New York City. Four of them (“[Mary Queen of Arkansas,](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)” “[It’s Hard to Be a Saint in the City,](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/),” and “[Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)” will be released more than a quarter century later on *Tracks*. Others, like “[Two Hearts in True Waltz Time](https://estreetshuffle.com/index.php/2019/09/10/roll-of-the-dice-two-hearts-in-true-waltz-time/)” and “[Street Queen](https://estreetshuffle.com/index.php/2019/06/19/roll-of-the-dice-street-queen/),” remain unreleased.
 
-After impressing John Hammond the day prior, Bruce records fourteen demo tracks at Columbia Records in New York City. Four of them ("" "" "," and "" will be released more than a quarter century later on . Others, like "" and "," remain unreleased.
+[Watch on Youtube: Mary Queen Of Arkansas (Demo Version - 1972)](https://www.youtube.com/watch?v=MvabtjLsDGI)
 
-**1972:** [Mary Queen of Arkansas,](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)[It's Hard to Be a Saint in the City,](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)[Does This Bus Stop at 82nd Street?](http://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)*Tracks*[Two Hearts in True Waltz Time](http://estreetshuffle.com/index.php/2019/09/10/roll-of-the-dice-two-hearts-in-true-waltz-time/)[Street Queen](https://estreetshuffle.com/index.php/2019/06/19/roll-of-the-dice-street-queen/)
+[Watch on Youtube: It's Hard To Be A Saint In The City (Demo Version - 1972)](https://www.youtube.com/watch?v=93AoZt9rZ7o)
 
-[https://www.youtube.com/embed/MvabtjLsDGI](https://www.youtube.com/embed/MvabtjLsDGI)
+[Watch on Youtube: Does This Bus Stop At 82nd Street? (Demo Version - 1972)](https://www.youtube.com/watch?v=YeicNZPARZg)
 
-[https://www.youtube.com/embed/93AoZt9rZ7o](https://www.youtube.com/embed/93AoZt9rZ7o)
+[Watch Video Highlight](https://videopress.com/embed/54i5lVp4?hd=0&cover=1)
 
-[https://www.youtube.com/embed/YeicNZPARZg](https://www.youtube.com/embed/YeicNZPARZg)
 
-[https://videopress.com/embed/54i5lVp4?hd=0&amp;cover=1](https://videopress.com/embed/54i5lVp4?hd=0&amp;cover=1)
 
-Bruce plays his first-ever show in Arkansas, at the Robinson Auditorium in Little Rock.
+**1976:** Bruce plays his first-ever show in Arkansas, at the Robinson Auditorium in Little Rock.
 
-**1976:**<br>
+**1981:** The original River Tour stops for a night at the Scandinavium in Gothenburg, Sweden. This is Bruce’s first show in Sweden since 1975, so local fans are treated to their first performances of “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/),” “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” and other [*Darkness*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)tracks along with cuts from *The River*.
 
-The original River Tour stops for a night at the Scandinavium in Gothenburg, Sweden. This is Bruce's first show in Sweden since 1975, so local fans are treated to their first performances of "," "" and other tracks along with cuts from .
+[Watch Video Highlight](https://videopress.com/embed/UaOmLbOj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1981:**[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness* *The River*
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1981-0503.jpg)
 
-[https://videopress.com/embed/UaOmLbOj](https://videopress.com/embed/UaOmLbOj)
+**1982:** At the Power Station in New York City, Bruce records what will eventually (upon its release more than two years later) become his most recognizable anthem: “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1981-0503-252x300.jpg?resize=758%2C902)
+[Watch on Youtube: Bruce Springsteen - Born in the U.S.A. (Official Video)](https://www.youtube.com/watch?v=EPhWR4d3FJQ)
 
-At the Power Station in New York City, Bruce records what will eventually (upon its release more than two years later) become his most recognizable anthem: ""
+**1988:** Night Two at the Shoreline Amphitheater in Mountain View, California for the Tunnel of Love Express features the first “[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)” in over ten years, along with the tour debut of “Twist and Shout.” Check out the rare soundcheck of “[I’m So Lonesome I Could Cry](https://estreetshuffle.com/index.php/2018/11/01/cover-me-im-so-lonesome-i-could-cry/).”
 
-**1982:** [Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
+[Watch on Youtube: Bruce Springsteen - I'm So Lonesome I Could Cry (Soundcheck) (1988-05-03)](https://www.youtube.com/watch?v=ZC_y56qVXX4)
 
-[https://www.youtube.com/embed/EPhWR4d3FJQ](https://www.youtube.com/embed/EPhWR4d3FJQ)
+[Watch on Youtube: Bruce Springsteen - I'm On Fire (Live 1988-05-03)](https://www.youtube.com/watch?v=-GTLzVm0mZU)
 
-Night Two at the Shoreline Amphitheater in Mountain View, California for the Tunnel of Love Express features the first "" in over ten years, along with the tour debut of "Twist and Shout." Check out the rare soundcheck of "."
+[Watch on Youtube: Bruce Springsteen - Light of Day - May 3, 1988 - Shoreline Amphitheatre, Mountain View, CA](https://www.youtube.com/watch?v=FrSshFvcedU)
 
-**1988:** [Little Latin Lupe Lu](http://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)[I'm So Lonesome I Could Cry](http://estreetshuffle.com/index.php/2018/11/01/cover-me-im-so-lonesome-i-could-cry/)
+[Watch on Youtube: Bruce Springsteen - Little Latin Lupe Lu/Twist And Shout (Live 1988-05-03)](https://www.youtube.com/watch?v=fKD2MUFfLds)
 
-[https://www.youtube.com/embed/ZC_y56qVXX4](https://www.youtube.com/embed/ZC_y56qVXX4)
+**2000:** *Born to Run* is certified 6x multi-platinum by the Recording Industry Association of America, and Canada gets its first Reunion show (and first-ever “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)“) on the first of two nights at the Air Canada Center in Toronto.
 
-[https://www.youtube.com/embed/-GTLzVm0mZU](https://www.youtube.com/embed/-GTLzVm0mZU)
+[https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3?_=8)
 
-[https://www.youtube.com/embed/FrSshFvcedU](https://www.youtube.com/embed/FrSshFvcedU)
+<https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3>
 
-[https://www.youtube.com/embed/fKD2MUFfLds](https://www.youtube.com/embed/fKD2MUFfLds)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2000-05-03.jpg)
 
-is certified 6x multi-platinum by the Recording Industry Association of America, and Canada gets its first Reunion show (and first-ever "") on the first of two nights at the Air Canada Center in Toronto.
+**2001:** *Live in New York City* is certified platinum by the Recording Industry Association of America.
 
-**2000:***Born to Run* [Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)<https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3>
+[Watch on Youtube: Bruce Springsteen: Live In New York City](https://www.youtube.com/playlist?list=PL9tY0BWXOZFtiWf7eTl4vMN8PCpNL0jdu)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2000-05-03.jpg?resize=758%2C1458&amp;ssl=1)
+**2005:** At the second night at the Pantages Theater in Hollywood, fans hear the tour premieres of “My Beautiful Reward” (in a beautiful new pump organ arrangement), “[Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/),” “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/),” “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/),” “[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/),” and “[The Line.](https://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/)” Nils makes a guest appearance on “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/).”
 
-is certified platinum by the Recording Industry Association of America.
+[Watch Video Highlight](https://videopress.com/embed/4EoHPdBo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2001:** *Live in New York City*
+[Watch Video Highlight](https://videopress.com/embed/xf0AgEfe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/videoseries?list=PL9tY0BWXOZFtiWf7eTl4vMN8PCpNL0jdu](https://www.youtube.com/embed/videoseries?list=PL9tY0BWXOZFtiWf7eTl4vMN8PCpNL0jdu)
+**2009:** Bruce performs at the Clearwater Concert at Madison Square Garden, honoring Pete Seeger’s 90th birthday.
 
-At the second night at the Pantages Theater in Hollywood, fans hear the tour premieres of "My Beautiful Reward" (in a beautiful new pump organ arrangement), "," "," "," "," and "" Nils makes a guest appearance on "."
+[Watch on Youtube: Bruce's Introduction At Pete Seeger's 90th Birthday Concert](https://www.youtube.com/watch?v=B4i8ziSHkNA)
 
-**2005:** [Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/)[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)[All the Way Home](http://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)[The Line.](http://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/)[Waitin' on a Sunny Day](http://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)
+[Watch Video Highlight](https://videopress.com/embed/VDL84VIC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/4EoHPdBo](https://videopress.com/embed/4EoHPdBo)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2009-05-03.jpg)
 
-[https://videopress.com/embed/xf0AgEfe](https://videopress.com/embed/xf0AgEfe)
+**2013:** At the first of three Wrecking Ball shows at Friends Arena in Solna, Sweden, Bruce plays the full *Born to Run* album start to finish–the first time he has done this outside of the United States. In the encores, Bruce opens with an acoustic performance of “[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/),” and Elliott Murphy joins Bruce and the band for “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/).”
 
-Bruce performs at the Clearwater Concert at Madison Square Garden, honoring Pete Seeger's 90th birthday.
+[Watch Video Highlight](https://videopress.com/embed/SaSEYKdE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2009:**<br>
+[Watch Video Highlight](https://videopress.com/embed/NiJfyusR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/B4i8ziSHkNA?start=2&amp;feature=oembed](https://www.youtube.com/embed/B4i8ziSHkNA?start=2&amp;feature=oembed)
+[Watch Video Highlight](https://videopress.com/embed/T6ViRv5h?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/VDL84VIC](https://videopress.com/embed/VDL84VIC)
+[Watch Video Highlight](https://videopress.com/embed/wQCCstNg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2009-05-03-300x192.jpg?resize=758%2C485)
+[Watch Video Highlight](https://videopress.com/embed/9ilCSqQc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-At the first of three Wrecking Ball shows at Friends Arena in Solna, Sweden, Bruce plays the full album start to finish–the first time he has done this outside of the United States. In the encores, Bruce opens with an acoustic performance of "," and Elliott Murphy joins Bruce and the band for "."
+**2014:** Bruce makes a return visit (his third) to the New Orleans Jazz Festival for an afternoon show. Rickie Lee Jones joins Bruce for seven songs, and John Fogerty for two of his own (“[Green River](https://estreetshuffle.com/index.php/2021/10/27/matr-bruce-springsteen-and-john-fogerty-green-river/)” and “Proud Mary”). Tour debuting tonight: “[How Can a Poor Man Stand Such Times and Live](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/)” and “[When the Saints Go Marching In](https://estreetshuffle.com/index.php/2021/03/28/cover-me-when-the-saints-go-marching-in/).”
 
-**2013:** *Born to Run*[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
+[Watch on Youtube: Bruce Springsteen and John Fogerty with Green River@JazzFest 2014 New Orleans](https://www.youtube.com/watch?v=wiH1MXrcWaA)
 
-[https://videopress.com/embed/SaSEYKdE](https://videopress.com/embed/SaSEYKdE)
+[Watch on Youtube: Bruce Springsteen singing " Saints Go Marchin In" at 2014 New Orleans Jazz and Heritage Festival](https://www.youtube.com/watch?v=ov5qaju5CtU)
 
-[https://videopress.com/embed/NiJfyusR](https://videopress.com/embed/NiJfyusR)
+[Watch on Youtube: Bruce Springsteen with Tenth Avenue Freeze Out@JazzFest 2014 New Orleans](https://www.youtube.com/watch?v=rDrvxMO1naE)
 
-[https://videopress.com/embed/T6ViRv5h](https://videopress.com/embed/T6ViRv5h)
+That evening, Bruce opens a tribute show to Dr. John, performing “[Right Place, Wrong Time](https://estreetshuffle.com/index.php/2019/12/02/matr-dr-john-and-bruce-springsteen-right-place-wrong-time/)” as a duet with Dr. John.
 
-[https://videopress.com/embed/wQCCstNg](https://videopress.com/embed/wQCCstNg)
+[Watch on Youtube: Bruce Springsteen and Dr. John -- "Right Place Wrong Time" 03 May 2014, New Orleans](https://www.youtube.com/watch?v=fvxJxLwGOMI)
 
-[https://videopress.com/embed/9ilCSqQc](https://videopress.com/embed/9ilCSqQc)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2014-05-03.jpg)
 
-Bruce makes a return visit (his third) to the New Orleans Jazz Festival for an afternoon show. Rickie Lee Jones joins Bruce for seven songs, and John Fogerty for two of his own ("" and "Proud Mary"). Tour debuting tonight: "" and "."
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2014:** [Green River](https://estreetshuffle.com/index.php/2021/10/27/matr-bruce-springsteen-and-john-fogerty-green-river/)[How Can a Poor Man Stand Such Times and Live](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/)[When the Saints Go Marching In](https://estreetshuffle.com/index.php/2021/03/28/cover-me-when-the-saints-go-marching-in/)
+**2023:** Bruce stops by Windmill Lane Recording Studio in Dublin to contribute vocals for “History Books” the title track for Gaslight Anthem’s upcoming album.
 
-[https://www.youtube.com/embed/wiH1MXrcWaA](https://www.youtube.com/embed/wiH1MXrcWaA)
-
-[https://www.youtube.com/embed/ov5qaju5CtU](https://www.youtube.com/embed/ov5qaju5CtU)
-
-[https://www.youtube.com/embed/rDrvxMO1naE](https://www.youtube.com/embed/rDrvxMO1naE)
-
-That evening, Bruce opens a tribute show to Dr. John, performing "" as a duet with Dr. John.
-
-[Right Place, Wrong Time](http://estreetshuffle.com/index.php/2019/12/02/matr-dr-john-and-bruce-springsteen-right-place-wrong-time/)
-
-[https://www.youtube.com/embed/fvxJxLwGOMI](https://www.youtube.com/embed/fvxJxLwGOMI)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2014-05-03-209x300.jpg?resize=758%2C1088)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:***Springsteen on Broadway*
-
-Bruce stops by Windmill Lane Recording Studio in Dublin to contribute vocals for "History Books" the title track for Gaslight Anthem's upcoming album.
-
-**2023:**<br>
-
-[https://www.youtube.com/embed/gyUgfrCegOs](https://www.youtube.com/embed/gyUgfrCegOs)
+[Watch on Youtube: The Gaslight Anthem - History Books (ft. Bruce Springsteen) - Official Video](https://www.youtube.com/watch?v=gyUgfrCegOs)

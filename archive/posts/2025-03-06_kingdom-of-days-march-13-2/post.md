@@ -1,76 +1,53 @@
+***New for 2025:** No updates*
 
-*No updates***New for 2025:**
+**1969:** Child, Bruce’s new band, performs at Pandemonium in Wanamassa, New Jersey.
 
-Child, Bruce's new band, performs at Pandemonium in Wanamassa, New Jersey.
+**1971:** Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
 
-**1969:**<br>
+**1973:** Night Two of seven at Oliver’s in Boston.
 
-Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1.jpg)
 
-**1971:**<br>
+**1975:** Extended studio sessions for *Born to Run* prompt the postponement of a scheduled show in Atlanta.
 
-Night Two of seven at Oliver's in Boston.
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1975-03-13.jpg)
 
-**1973:**<br>
+**1977:** Bruce and the E Street Band play Towson State University on the Lawsuit Tour.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1-190x300.jpg?resize=758%2C1197)
+[Watch Video Highlight](https://videopress.com/embed/SsdSEZB7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Extended studio sessions for prompt the postponement of a scheduled show in Atlanta.
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1977-0313.jpg)
 
-**1975:***Born to Run*
+**1988**: The Tunnel of Love Express Tour moves on to the Coliseum in Richfield, Ohio, where Kid Leo provides a unique introduction.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1975-03-13-64x300.jpg?resize=758%2C3553)
+[Watch Video Highlight](https://videopress.com/embed/qnlgh7uK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the E Street Band play Towson State University on the Lawsuit Tour.
+[Watch on Youtube: Bruce Springsteen Love Me Tender Live In Cleveland March 1988](https://www.youtube.com/watch?v=4QcKYlVoBTc)
 
-**1977:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-03-13.jpg)
 
-[https://videopress.com/embed/SsdSEZB7](https://videopress.com/embed/SsdSEZB7)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1988-0313.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1977-0313.jpg?resize=758%2C1083&amp;ssl=1)
+**1996:** Bruce begins a mini-tour of Scandinavia with a solo acoustic show in Stockholm.
 
-: The Tunnel of Love Express Tour moves on to the Coliseum in Richfield, Ohio, where Kid Leo provides a unique introduction.
+[Watch Video Highlight](https://videopress.com/embed/Fng7zE6y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1988**<br>
+**2000:** Bruce and the E Street Band play the aptly named Reunion Arena in Dallas.
 
-[https://videopress.com/embed/qnlgh7uK](https://videopress.com/embed/qnlgh7uK)
+[Watch Video Highlight](https://videopress.com/embed/eMM9d2g9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/4QcKYlVoBTc](https://www.youtube.com/embed/4QcKYlVoBTc)
+[Watch Video Highlight](https://videopress.com/embed/JiijcG3N?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-13-288x300.jpg?resize=758%2C790)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/2000-03-13-rotated.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1988-0313-300x149.jpg?resize=758%2C377)
+**2006:** Bruce and the Sessions Band rehearse for their upcoming tour at Asbury Park’s Paramount Theater.
 
-Bruce begins a mini-tour of Scandinavia with a solo acoustic show in Stockholm.
+**2009**: The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg’s benefit.
 
-**1996:**<br>
+**2016:** The River Tour (2016 Edition) moves on to the Oracle Arena in Oakland. For highlights, see my [*Where the Band Was*](https://estreetshuffle.com/index.php/2018/03/13/where-the-band-was-oakland-march-13-2016/) report for that show.
 
-[https://videopress.com/embed/Fng7zE6y](https://videopress.com/embed/Fng7zE6y)
+[Watch on Youtube: Candys Room - Bruce Springsteen - Oakland - 13th March 2016](https://www.youtube.com/watch?v=YckePW-ReLw)
 
-Bruce and the E Street Band play the aptly named Reunion Arena in Dallas.
+[Watch on Youtube: Bruce Springsteen Oakland Born to Run and surrounding snippets 3-13-2016](https://www.youtube.com/watch?v=SEUJFzNe69U)
 
-**2000:**<br>
-
-[https://videopress.com/embed/eMM9d2g9](https://videopress.com/embed/eMM9d2g9)
-
-[https://videopress.com/embed/JiijcG3N](https://videopress.com/embed/JiijcG3N)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2000-03-13.jpg?resize=601%2C4745&amp;ssl=1)
-
-Bruce and the Sessions Band rehearse for their upcoming tour at Asbury Park's Paramount Theater.
-
-**2006:**<br>
-
-: The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg's benefit.
-
-**2009**<br>
-
-The River Tour (2016 Edition) moves on to the Oracle Arena in Oakland. For highlights, see my report for that show.
-
-**2016:** [](http://estreetshuffle.com/index.php/2018/03/13/where-the-band-was-oakland-march-13-2016/)*Where the Band Was*
-
-[https://www.youtube.com/embed/YckePW-ReLw](https://www.youtube.com/embed/YckePW-ReLw)
-
-[https://www.youtube.com/embed/SEUJFzNe69U](https://www.youtube.com/embed/SEUJFzNe69U)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-13-300x237.jpg?resize=758%2C599)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2016-03-13.jpg)

@@ -1,102 +1,79 @@
+***New for 2025:** Deleted entry for 1973 (mis-dated); new entry for 1977 and 2024; audio for 1999; review for 2006*
 
-*Deleted entry for 1973 (mis-dated); new entry for 1977 and 2024; audio for 1999; review for 2006***New for 2025:**
+**1974:** Bruce and the band play the Agora in Cleveland. The show is recorded by WMMS-FM in Cleveland and is well worth a listen for its superb sound quality and rare performances of “Tokyo,” “[You Never Can Tell](https://www.youtube.com/watch?v=cAhFjk05aaM),” and “[Let the Four Winds Blow](https://estreetshuffle.com/index.php/2022/02/24/cover-me-let-the-four-winds-blow/).”
 
-Bruce and the band play the Agora in Cleveland. The show is recorded by WMMS-FM in Cleveland and is well worth a listen for its superb sound quality and rare performances of "Tokyo," "," and "."
+[Watch on Youtube: Bruce Springsteen - YOU NEVER CAN TELL 1974 (audio)](https://www.youtube.com/watch?v=Clmk7R1mlTI)
 
-**1974:** [You Never Can Tell](https://www.youtube.com/watch?v=cAhFjk05aaM)[Let the Four Winds Blow](https://estreetshuffle.com/index.php/2022/02/24/cover-me-let-the-four-winds-blow/)
+[Watch on Youtube: Bruce Springsteen - And The Band Played [Tokyo] (Super RARE live!)](https://www.youtube.com/watch?v=V_MSbAcVExM)
 
-[https://www.youtube.com/embed/Clmk7R1mlTI](https://www.youtube.com/embed/Clmk7R1mlTI)
+**1977:** Recording continues for Bruce’s fourth album. Today the band works on “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/),” “[Candy’s Boy](https://estreetshuffle.com/index.php/2020/09/02/roll-of-the-dice-candys-boy/),” and “[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/).”
 
-[https://www.youtube.com/embed/V_MSbAcVExM](https://www.youtube.com/embed/V_MSbAcVExM)
+**1978:** The Darkness Tour stops at the Nassau Coliseum in Uniondale, New York. Bruce tour premieres “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” in the encore.
 
-Recording continues for Bruce's fourth album. Today the band works on "," "," and "."
+[Watch Video Highlight](https://videopress.com/embed/hOUDtFAd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1977:** [Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)[Candy's Boy](https://estreetshuffle.com/index.php/2020/09/02/roll-of-the-dice-candys-boy/)[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)
+![](https://estreetshuffle.com/wp-content/uploads/2021/06/1978-0603.jpg)
 
-The Darkness Tour stops at the Nassau Coliseum in Uniondale, New York. Bruce tour premieres "" in the encore.
+**1979:** Bruce attends the wedding of his lighting director and travel agent at the Whisky a Go Go in West Hollywood. Bruce performs a three hour wedding-themed set (including “Wedding March,” “[Wear My Ring Around Your Neck](https://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/),” “Mother-in-Law” and “Hava Nagila”) with the E Street Band, Rickie Lee Jones, and Boz Scaggs.
 
-**1978:** [4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
+![](https://estreetshuffle.com/wp-content/uploads/2018/06/1979-0603.jpg)
 
-[https://videopress.com/embed/hOUDtFAd](https://videopress.com/embed/hOUDtFAd)
+**1989:** Bruce serenades the attendees of Roy Bittan’s wedding with a cover of Elvis’ “Loving You.”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1978-0603.jpg?resize=758%2C1249&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2018/06/1989-0603.jpg)
 
-Bruce attends the wedding of his lighting director and travel agent at the Whisky a Go Go in West Hollywood. Bruce performs a three hour wedding-themed set (including "Wedding March," "," "Mother-in-Law" and "Hava Nagila") with the E Street Band, Rickie Lee Jones, and Boz Scaggs.
+**1999:** Reunion Night Two in Paris brings a setlist shake-up, featuring the first-ever performances of “[Lion’s Den](https://estreetshuffle.com/index.php/2019/06/21/roll-of-the-dice-lions-den/)” and “[Loose Ends,](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” plus the welcome return of “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/).”
 
-**1979:** [Wear My Ring Around Your Neck](https://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)
+[Watch on Youtube: Lion's Den](https://www.youtube.com/watch?v=l7GHh5unGfg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1979-0603-300x226.jpg?resize=745%2C561)
+[Watch on Youtube: Bruce Springsteen loose ends paris June 3rd 1999](https://www.youtube.com/watch?v=8CgiUjpqmQY)
 
-Bruce serenades the attendees of Roy Bittan's wedding with a cover of Elvis' "Loving You."
+[Watch Video Highlight](https://videopress.com/embed/KajRzjKw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1989:**<br>
+[Watch on Youtube: Paris 03/06/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zDmiDy9PJp1SFjbNX61zqmq)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1989-0603.jpg?resize=758%2C819)
+**2000:** The Reunion Tour enters its final month with the first of two nights at Philips Arena in Atlanta, where Clarence ad libs his usual line in “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” with a pretty funny replacement.
 
-Reunion Night Two in Paris brings a setlist shake-up, featuring the first-ever performances of "" and "" plus the welcome return of "."
+[Watch Video Highlight](https://videopress.com/embed/jyjJsCaU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1999:** [Lion's Den](http://estreetshuffle.com/index.php/2019/06/21/roll-of-the-dice-lions-den/)[Loose Ends,](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2000-06-02.jpg)
 
-[https://www.youtube.com/embed/l7GHh5unGfg](https://www.youtube.com/embed/l7GHh5unGfg)
+**2006:** Nils guest-stars on “[Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)” (and enjoys the show from the pit!) when the Seeger Sessions Tour stops in Glendale, Arizona. For more on this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/06/03/where-the-band-was-glendale-june-3-2006/) from this show.
 
-[https://www.youtube.com/embed/8CgiUjpqmQY](https://www.youtube.com/embed/8CgiUjpqmQY)
+[Watch Video Highlight](https://videopress.com/embed/4kABHXOv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/KajRzjKw](https://videopress.com/embed/KajRzjKw)
+[Watch Video Highlight](https://videopress.com/embed/1qRVUZKR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDmiDy9PJp1SFjbNX61zqmq](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDmiDy9PJp1SFjbNX61zqmq)
+[Watch on Youtube: Bruce Springsteen - Ramrod (With The Seeger Sessions) (2006-06-03)](https://www.youtube.com/watch?v=rV8Coai6W0k)
 
-The Reunion Tour enters its final month with the first of two nights at Philips Arena in Atlanta, where Clarence ad libs his usual line in "" with a pretty funny replacement.
+![](https://estreetshuffle.com/wp-content/uploads/2025/06/The_Arizona_Republic_2006_06_07_Page_458-scaled.jpg)
 
-**2000:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
+**2012:** In Lisbon’s Bela Vista Park, Bruce and the E Street Band headline Rock in Rio. (Technically this show is performed on June 4th, as Bruce starts the show after midnight.) Bruce closes the show with the tour premiere of “Twist and Shout.”
 
-[https://videopress.com/embed/jyjJsCaU](https://videopress.com/embed/jyjJsCaU)
+[Watch Video Highlight](https://videopress.com/embed/KbsRPLnm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-06-02-300x284.jpg?resize=758%2C718)
+[Watch on Youtube: Rock in Rio Lisboa - Bruce Springsteen](https://www.youtube.com/watch?v=4xz4QdYeTDM)
 
-Nils guest-stars on "" (and enjoys the show from the pit!) when the Seeger Sessions Tour stops in Glendale, Arizona. For more on this show, see my from this show.
+**2013:** Bruce plays San Siro in Milan, always the site of amazing shows. Bruce delivers a full album performance of *Born in the U.S.A.,* along with the tour premiere of “[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/).”
 
-**2006:** [Pay Me My Money Down](http://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)[report](http://estreetshuffle.com/index.php/2018/06/03/where-the-band-was-glendale-june-3-2006/)*Where the Band Was*
+[Watch Video Highlight](https://videopress.com/embed/AMvoPOh4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/4kABHXOv](https://videopress.com/embed/4kABHXOv)
+[Watch Video Highlight](https://videopress.com/embed/Xbgy7LJ6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/1qRVUZKR](https://videopress.com/embed/1qRVUZKR)
+**2016:** A stunning River show in Coventry, England: Bruce opens with the tour premieres of “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)” and “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/),” and tour premieres “[Save My Love](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/),” “Travelin’ Band,” and “[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)” as well.
 
-[https://www.youtube.com/embed/rV8Coai6W0k](https://www.youtube.com/embed/rV8Coai6W0k)
+[Watch on Youtube: Bruce Springsteen - 2016-06-03 - Something In The Night](https://www.youtube.com/watch?v=QWZTduaV8vY)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/06/The_Arizona_Republic_2006_06_07_Page_458-scaled.jpg?resize=758%2C900&amp;ssl=1)
+[Watch on Youtube: 2016-06-03 Bruce Springsteen - Save My Love](https://www.youtube.com/watch?v=yVI_YWnlTmI)
 
-In Lisbon's Bela Vista Park, Bruce and the E Street Band headline Rock in Rio. (Technically this show is performed on June 4th, as Bruce starts the show after midnight.) Bruce closes the show with the tour premiere of "Twist and Shout."
+[Watch on Youtube: Bruce Springsteen Sherry Darling Coventry 3rd June 2016](https://www.youtube.com/watch?v=qsosWEaYqwg)
 
-**2012:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2024/06/Penarth_Times_Thu__Jun_9__2016_-scaled.jpg)
 
-[https://videopress.com/embed/KbsRPLnm](https://videopress.com/embed/KbsRPLnm)
+**2020:** With no fanfare, Bruce premieres his own recording of “[Idiot’s Delight](https://estreetshuffle.com/index.php/2021/03/12/rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/),” (originally released by Joe Grushecky but co-written by both artists) on the fifth installment of his *From My Home to Yours* radio show on Sirius XM.
 
-[https://www.youtube.com/embed/4xz4QdYeTDM](https://www.youtube.com/embed/4xz4QdYeTDM)
+[https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3?_=3)
 
-Bruce plays San Siro in Milan, always the site of amazing shows. Bruce delivers a full album performance of along with the tour premiere of "."
+<https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3>
 
-**2013:** *Born in the U.S.A.*, [Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
-
-[https://videopress.com/embed/AMvoPOh4](https://videopress.com/embed/AMvoPOh4)
-
-[https://videopress.com/embed/Xbgy7LJ6](https://videopress.com/embed/Xbgy7LJ6)
-
-A stunning River show in Coventry, England: Bruce opens with the tour premieres of "" and "," and tour premieres "," "Travelin' Band," and "" as well.
-
-**2016:** [For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[Save My Love](http://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/)[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)
-
-[https://www.youtube.com/embed/QWZTduaV8vY](https://www.youtube.com/embed/QWZTduaV8vY)
-
-[https://www.youtube.com/embed/yVI_YWnlTmI](https://www.youtube.com/embed/yVI_YWnlTmI)
-
-[https://www.youtube.com/embed/qsosWEaYqwg](https://www.youtube.com/embed/qsosWEaYqwg)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Penarth_Times_Thu__Jun_9__2016_-scaled.jpg?resize=758%2C1394&amp;ssl=1)
-
-With no fanfare, Bruce premieres his own recording of "," (originally released by Joe Grushecky but co-written by both artists) on the fifth installment of his radio show on Sirius XM.
-
-**2020:** [Idiot's Delight](https://estreetshuffle.com/index.php/2021/03/12/rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/)*From My Home to Yours*<https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3>
-
-Bruce postpones his scheduled show at San Siro Stadium in Milan due to vocal challenges. As of this writing, the rescheduled show has not yet taken place.
-
-**2024:**<br>
+**2024:** Bruce postpones his scheduled show at San Siro Stadium in Milan due to vocal challenges. As of this writing, the rescheduled show has not yet taken place.

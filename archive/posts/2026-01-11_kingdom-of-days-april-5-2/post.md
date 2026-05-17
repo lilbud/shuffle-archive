@@ -1,108 +1,85 @@
+**1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.
 
-Child performs at the Pandemonium in Wanamassa, New Jersey.
+**1974:** Bruce and the E Street Band headline a show at Widener College.
 
-**1969:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1974-0405.jpg)
 
-Bruce and the E Street Band headline a show at Widener College.
+**1976:** The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a show at the Ohio Theater in Columbus.
 
-**1974:**<br>
+[Watch on Youtube: Bruce Springsteen - 1976-04-05 Ohio Theatre, Columbus, OH](https://www.youtube.com/watch?v=lGkeKgZblAo)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1974-0405.jpg?resize=758%2C512&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1976-0405.jpg)
 
-The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a show at the Ohio Theater in Columbus.
+**1978:** “Streets of Fire” receives its final mix at the Record Plant in New York City.
 
-**1976:**<br>
+[Watch on Youtube: Streets of Fire](https://www.youtube.com/watch?v=HzIm7Ek6Vv0)
 
-[https://www.youtube.com/embed/lGkeKgZblAo](https://www.youtube.com/embed/lGkeKgZblAo)
+**1988:** Night Two at the Capital Center in Largo, Maryland, along the Tunnel of Love Express Tour.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0405.jpg?resize=610%2C1000&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/v5RXcyFL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-"Streets of Fire" receives its final mix at the Record Plant in New York City.
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-04-05.jpg)
 
-**1978:**<br>
+**1995:** A busy day for Bruce and the (temporarily) reunited E Street Band: First, they make an appearance on *The Late Show with David Letterman,* where they premiere “Secret Garden.”
 
-[https://www.youtube.com/embed/HzIm7Ek6Vv0](https://www.youtube.com/embed/HzIm7Ek6Vv0)
+[Watch on Youtube: Bruce Springsteen & E Street Band on Letterman, April 5, 1995](https://www.youtube.com/watch?v=KLtihzJ6gdw)
 
-Night Two at the Capital Center in Largo, Maryland, along the Tunnel of Love Express Tour.
+…and then later that night, they play a private gig at Sony Music Studios in New York City. Highlights include the debuts of “I’m Turning Into Elvis,” “Blood Brothers,” and the first full-band “This Hard Land.”
 
-**1988:**<br>
+[Watch Video Highlight](https://videopress.com/embed/VFJF5tXA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/v5RXcyFL](https://videopress.com/embed/v5RXcyFL)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1995-04-05.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-04-05.jpg?resize=722%2C825&amp;ssl=1)
+**2006:** Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Theater in Asbury Park.
 
-A busy day for Bruce and the (temporarily) reunited E Street Band: First, they make an appearance on where they premiere "Secret Garden."
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2006-04-05.jpg)
 
-**1995:** *The Late Show with David Letterman*,
+**2007:** Bruce makes a surprise appearance at a Carnegie Hall benefit show, *Celebrating the Music of Bruce Springsteen: Music for Youth*, joining Craig Finn, Jesse Malin, and Badly Drawn Boy on stage.
 
-[https://www.youtube.com/embed/KLtihzJ6gdw](https://www.youtube.com/embed/KLtihzJ6gdw)
+[Watch on Youtube: bruce & friends - rosalita](https://www.youtube.com/watch?v=jtjPO47XIbs)
 
-…and then later that night, they play a private gig at Sony Music Studios in New York City. Highlights include the debuts of "I'm Turning Into Elvis," "Blood Brothers," and the first full-band "This Hard Land."
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2007-04-05.jpg)
 
-[https://videopress.com/embed/VFJF5tXA](https://videopress.com/embed/VFJF5tXA)
+**2008:** Another radio station contest to pick a song for the set list–this time “Fire” is the winner for this Magic Tour stop at HP Pavilion in San Jose. “Out in the Street” and “Bobby Jean” make their tour debut tonight as well.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1995-04-05.jpg?resize=758%2C1558&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/4ds7LEvR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Theater in Asbury Park.
+**2009:** Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare “I’m a Rocker” and “Sherry Darling.”
 
-**2006:**<br>
+[Watch on Youtube: BRUCE SPRINGSTEEN - SEEDS - AUSTIN 2009](https://www.youtube.com/watch?v=1yChqkwXgbI)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2006-04-05.jpg?resize=758%2C360&amp;ssl=1)
+[Watch on Youtube: BRUCE SPRINGSTEEN "Sherry Darling" 4-5-09 Austin](https://www.youtube.com/watch?v=T0lCBVUQguk)
 
-Bruce makes a surprise appearance at a Carnegie Hall benefit show, , joining Craig Finn, Jesse Malin, and Badly Drawn Boy on stage.
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2009-04-05a.jpg)
 
-**2007:** *Celebrating the Music of Bruce Springsteen: Music for Youth*
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/2009-04-05b.jpg)
 
-[https://www.youtube.com/embed/jtjPO47XIbs](https://www.youtube.com/embed/jtjPO47XIbs)
+**2016:** At a River Tour stop in Dallas, things get a little out of hand during “Dancing in the Dark.”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2007-04-05.jpg?resize=758%2C494&amp;ssl=1)
+[Watch on Youtube: Born to Run / Dancing in the Dark - Bruce Springsteen. AA Center, Dallas TX. April 5, 2016.](https://www.youtube.com/watch?v=nXqgo0oSJc0)
 
-Another radio station contest to pick a song for the set list–this time "Fire" is the winner for this Magic Tour stop at HP Pavilion in San Jose. "Out in the Street" and "Bobby Jean" make their tour debut tonight as well.
+[Watch on Youtube: Bruce Springsteen & the E-Street Band - The River - Dallas - April 5, 2016](https://www.youtube.com/watch?v=XLFr0WAtBSM)
 
-**2008:**<br>
+[Watch on Youtube: Bruce Springsteen & the E-Street Band - Cadillac Ranch - Dallas - April 5, 2016](https://www.youtube.com/watch?v=ynUvaSq_ynM)
 
-[https://videopress.com/embed/4ds7LEvR](https://videopress.com/embed/4ds7LEvR)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn’t present tonight, so theatergoers get the “B” setlist featuring “Long Time Comin'” and “The Ghost of Tom Joad” in place of “Brilliant Disguise” and “Tougher Than the Rest.”
 
-Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare "I'm a Rocker" and "Sherry Darling."
+**2021:** Bruce and President Barack Obama release the final episode of their Spotify podcast, *Renegades: Born in the U.S.A.* This episode is entitled “The Rising: Looking Towards American Renewal” and features an acoustic performance of “Born in the U.S.A.”
 
-**2009:**<br>
+[Spotify Embed: Looking Towards American Renewal](https://open.spotify.com/embed/episode/3w2WPhbgj9xfaIitFYDfif?si=8269cf5fbab84393&utm_source=oembed)
 
-[https://www.youtube.com/embed/1yChqkwXgbI](https://www.youtube.com/embed/1yChqkwXgbI)
 
-[https://www.youtube.com/embed/T0lCBVUQguk](https://www.youtube.com/embed/T0lCBVUQguk)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2009-04-05a.jpg?resize=758%2C232&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2009-04-05b.jpg?resize=415%2C961&amp;ssl=1)
-
-At a River Tour stop in Dallas, things get a little out of hand during "Dancing in the Dark."
-
-**2016:**<br>
-
-[https://www.youtube.com/embed/nXqgo0oSJc0](https://www.youtube.com/embed/nXqgo0oSJc0)
-
-[https://www.youtube.com/embed/XLFr0WAtBSM](https://www.youtube.com/embed/XLFr0WAtBSM)
-
-[https://www.youtube.com/embed/ynUvaSq_ynM](https://www.youtube.com/embed/ynUvaSq_ynM)
-
-continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "Long Time Comin'" and "The Ghost of Tom Joad" in place of "Brilliant Disguise" and "Tougher Than the Rest."
-
-**2018:** *Springsteen on Broadway*
-
-Bruce and President Barack Obama release the final episode of their Spotify podcast, This episode is entitled "The Rising: Looking Towards American Renewal" and features an acoustic performance of "Born in the U.S.A."
-
-**2021:** *Renegades: Born in the U.S.A.*
-
-[https://open.spotify.com/embed/episode/3w2WPhbgj9xfaIitFYDfif?si=8269cf5fbab84393&amp;utm_source=oembed](https://open.spotify.com/embed/episode/3w2WPhbgj9xfaIitFYDfif?si=8269cf5fbab84393&amp;utm_source=oembed)
+[https://estreetshuffle.com/wp-content/uploads/2025/04/79a3-710a-498b-8305-22729e94d6c8.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2025/04/79a3-710a-498b-8305-22729e94d6c8.mp3?_=5)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/04/79a3-710a-498b-8305-22729e94d6c8.mp3>
 
-For the fourth show in a row, Bruce introduces a tour debut into his mostly static World Tour setlist. Tonight, "Atlantic City" premieres at Rocket Mortgage Fieldhouse in Cleveland.
+**2023:** For the fourth show in a row, Bruce introduces a tour debut into his mostly static World Tour setlist. Tonight, “Atlantic City” premieres at Rocket Mortgage Fieldhouse in Cleveland.
 
-**2023:**<br>
+[Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=Q_whKRSfRYg)
 
-[https://www.youtube.com/embed/Q_whKRSfRYg](https://www.youtube.com/embed/Q_whKRSfRYg)
+[Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=N9QzxUWExDc)
 
-[https://www.youtube.com/embed/N9QzxUWExDc](https://www.youtube.com/embed/N9QzxUWExDc)
+[Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=L91LYQt3s_k)
 
-[https://www.youtube.com/embed/L91LYQt3s_k](https://www.youtube.com/embed/L91LYQt3s_k)
+ 

@@ -1,90 +1,65 @@
+***New for 2025:** New entry for 1973 and 1975; video for 2012*
 
-*New entry for 1973 and 1975; video for 2012***New for 2025:**
+**1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
+![](https://estreetshuffle.com/wp-content/uploads/2018/07/1968-0724.jpg)
 
-**1968:**<br>
+**1973:** Bruce works on mixing and overdubs for “[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)” and “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)” at 914 Sound Studios in Blauvelt, New York.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1968-0724-210x300.jpg?resize=758%2C1083)
+**1975:** The Born to Run Tour is already underway, but the album *still* isn’t finished. Bruce hustles back from his sow in Stockbridge the night before to record a new verse and bridge for “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)” at the Record Plant in New York City.
 
-Bruce works on mixing and overdubs for "" and "" at 914 Sound Studios in Blauvelt, New York.
+**1981:** Bruce takes ill and must postpone his scheduled Rosemont show to September.
 
-**1973:** [Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
+![](https://estreetshuffle.com/wp-content/uploads/2021/07/1981-07-23.jpg)
 
-The Born to Run Tour is already underway, but the album isn't finished. Bruce hustles back from his sow in Stockbridge the night before to record a new verse and bridge for "" at the Record Plant in New York City.
+**1984:** At Night Two in Toronto on the Born in the U.S.A. Tour, Bruce tour premieres “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/).”
 
-**1975:** *still*[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
+[Watch Video Highlight](https://videopress.com/embed/ul3sptBK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce takes ill and must postpone his scheduled Rosemont show to September.
+**1999:** Night Four of fifteen at the Meadowlands at the opening stand of the U.S. Reunion Tour features the tour premiere of “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/),” its first performance in 14 years, recast in a new contemplative arrangement.
 
-**1981:**<br>
+[Watch on Youtube: Bruce Springsteen "Point Blank" - tour premiere, July 24, 1999](https://www.youtube.com/watch?v=HPdJWh3R5x8)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1981-07-23.jpg?resize=758%2C483&amp;ssl=1)
+**2002:** Bruce takes Matt Lauer on a tour of Asbury Park for an upcoming segment of *The Today Show*. They end their tour at Sonny’s Southern Cuisine, where Bruce plays “[I’ve Got a Feeling (Everything’s Gonna Be Alright](https://estreetshuffle.com/index.php/2020/11/04/matr-the-south-community-choir-of-asbury-park-and-bruce-springsteen-ive-got-a-feeling-everythings-gonna-be-alright/)” and “My City of Ruins” on his acoustic guitar. The segment will air on July 29th.
 
-At Night Two in Toronto on the Born in the U.S.A. Tour, Bruce tour premieres "."
+[Watch on Youtube: Bruce Springsteen Besuch in Asbury Park](https://www.youtube.com/watch?v=W5A6P8r3emk)
 
-**1984:** [Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/2002-07-24.png)
 
-[https://videopress.com/embed/ul3sptBK](https://videopress.com/embed/ul3sptBK)
+**2003:** Night Four of the ten-night Giants Stadium stand on the Rising Tour features a rare “[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)” in the opening pack.
 
-Night Four of fifteen at the Meadowlands at the opening stand of the U.S. Reunion Tour features the tour premiere of "," its first performance in 14 years, recast in a new contemplative arrangement.
+[Watch Video Highlight](https://videopress.com/embed/2Mij3jw4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1999:**[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
+[Watch Video Highlight](https://videopress.com/embed/oHoE4Uus?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/HPdJWh3R5x8](https://www.youtube.com/embed/HPdJWh3R5x8)
+**2005:** Bruce plays a solo acoustic show at the Charlotte Coliseum, one of only two shows on the entire summer leg without at least one tour premiere.
 
-Bruce takes Matt Lauer on a tour of Asbury Park for an upcoming segment of . They end their tour at Sonny's Southern Cuisine, where Bruce plays "" and "My City of Ruins" on his acoustic guitar. The segment will air on July 29th.
+[Watch Video Highlight](https://videopress.com/embed/1YABZAFn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2002:** *The Today Show*[I've Got a Feeling (Everything's Gonna Be Alright](https://estreetshuffle.com/index.php/2020/11/04/matr-the-south-community-choir-of-asbury-park-and-bruce-springsteen-ive-got-a-feeling-everythings-gonna-be-alright/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/2005-07-24.png)
 
-[https://www.youtube.com/embed/W5A6P8r3emk](https://www.youtube.com/embed/W5A6P8r3emk)
+**2012:** Bruce opens Night Two in Bergen with an acoustic “[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” (a Wrecking Ball tour premiere). The show features four additional tour premieres, including the live debut of “[You’ve Got It](https://estreetshuffle.com/index.php/2020/07/29/roll-of-the-dice-youve-got-it/),” the first full-band “[This Depression](https://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/),” and rare outings for “[My Lucky Day](https://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)” and “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/).”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2002-07-24-300x241.png?resize=758%2C609)
+[Watch on Youtube: Long Walk Home (solo acoustic) Bruce Springsteen Bergen, Norway July 24, 2012](https://www.youtube.com/watch?v=U1TUxEH0Gyw)
 
-Night Four of the ten-night Giants Stadium stand on the Rising Tour features a rare "" in the opening pack.
+[Watch on Youtube: You've got it - Bruce Springsteen Bergen, Norway 2012-07-24 (World Premiere)](https://www.youtube.com/watch?v=5SvhxN-ifKY)
 
-**2003:** [Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)
+[Watch on Youtube: This Depression Bruce Springsteen Bergen, Norway July 24, 2012 (FULL VIDEO)](https://www.youtube.com/watch?v=90JKjWbuNDY)
 
-[https://videopress.com/embed/2Mij3jw4](https://videopress.com/embed/2Mij3jw4)
+**2013:** As the Wrecking Ball Tour nears its end, the tour premieres continue to delight and astound. At this show in Leeds, Bruce pulls out back-to-back-to-back premieres of “[Local Hero](https://estreetshuffle.com/index.php/2019/01/17/roll-of-the-dice-local-hero/),” “[Gotta Get That Feeling](https://estreetshuffle.com/index.php/2021/02/08/roll-of-the-dice-gotta-get-that-feeling/)” and “[Bad Moon Rising](https://estreetshuffle.com/index.php/2023/01/18/matr-bruce-springsteen-and-john-fogerty-bad-moon-rising/),” and an ultra-rare “[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)” opens the encores, accompanied by Bruce’s heartfelt dedication to travelling fans. This show is available for purchase as part of Bruce’s official archive series. Get it [here](https://live.brucespringsteen.net/live-music/0,20534/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-24-2013-First-Direct-Arena-Leeds-UK.html).
 
-[https://videopress.com/embed/oHoE4Uus](https://videopress.com/embed/oHoE4Uus)
+[Watch on Youtube: Local Hero (Leeds 07/24/13)](https://www.youtube.com/watch?v=ELEGhf7dMJw)
 
-Bruce plays a solo acoustic show at the Charlotte Coliseum, one of only two shows on the entire summer leg without at least one tour premiere.
+[Watch on Youtube: Bruce Springsteen - 2013-07-24 Leeds - Bad Moon Rising (UK debut)](https://www.youtube.com/watch?v=9TTcrhfRjjM)
 
-**2005:**<br>
+[Watch on Youtube: Bruce Springsteen - Secret Garden (Leeds 7/24/13)](https://www.youtube.com/watch?v=dMriDhHDB1E)
 
-[https://videopress.com/embed/1YABZAFn](https://videopress.com/embed/1YABZAFn)
+[Watch on Youtube: Bruce Springsteen "Gotta Get That Feeling" Live in Leeds from July 24, 2013](https://www.youtube.com/watch?v=3rWAygcoOsI)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2005-07-24-112x300.png?resize=758%2C2030)
+[Watch on Youtube: Bruce Springsteen - 2013-07-24 Leeds - 10th Avenue Freeze Out (the important part)](https://www.youtube.com/watch?v=JxN53Liuxe4)
 
-Bruce opens Night Two in Bergen with an acoustic "" (a Wrecking Ball tour premiere). The show features four additional tour premieres, including the live debut of "," the first full-band "," and rare outings for "" and "."
+[Watch on Youtube: Bruce Springsteen - 2013-07-24 Leeds - Dancing In The Dark (dances to end)](https://www.youtube.com/watch?v=cZbPnO2jyBY)
 
-**2012:** [Long Walk Home](http://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)[You've Got It](https://estreetshuffle.com/index.php/2020/07/29/roll-of-the-dice-youve-got-it/)[This Depression](http://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)[My Lucky Day](http://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Beck is in attendance tonight.
 
-[https://www.youtube.com/embed/U1TUxEH0Gyw](https://www.youtube.com/embed/U1TUxEH0Gyw)
-
-[https://www.youtube.com/embed/5SvhxN-ifKY](https://www.youtube.com/embed/5SvhxN-ifKY)
-
-[https://www.youtube.com/embed/90JKjWbuNDY](https://www.youtube.com/embed/90JKjWbuNDY)
-
-As the Wrecking Ball Tour nears its end, the tour premieres continue to delight and astound. At this show in Leeds, Bruce pulls out back-to-back-to-back premieres of "," "" and "," and an ultra-rare "" opens the encores, accompanied by Bruce's heartfelt dedication to travelling fans. This show is available for purchase as part of Bruce's official archive series. Get it .
-
-**2013:** [Local Hero](http://estreetshuffle.com/index.php/2019/01/17/roll-of-the-dice-local-hero/)[Gotta Get That Feeling](https://estreetshuffle.com/index.php/2021/02/08/roll-of-the-dice-gotta-get-that-feeling/)[Bad Moon Rising](https://estreetshuffle.com/index.php/2023/01/18/matr-bruce-springsteen-and-john-fogerty-bad-moon-rising/)[Secret Garden](http://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)[here](http://live.brucespringsteen.net/live-music/0,20534/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-24-2013-First-Direct-Arena-Leeds-UK.html)
-
-[https://www.youtube.com/embed/ELEGhf7dMJw](https://www.youtube.com/embed/ELEGhf7dMJw)
-
-[https://www.youtube.com/embed/9TTcrhfRjjM](https://www.youtube.com/embed/9TTcrhfRjjM)
-
-[https://www.youtube.com/embed/dMriDhHDB1E](https://www.youtube.com/embed/dMriDhHDB1E)
-
-[https://www.youtube.com/embed/3rWAygcoOsI](https://www.youtube.com/embed/3rWAygcoOsI)
-
-[https://www.youtube.com/embed/JxN53Liuxe4](https://www.youtube.com/embed/JxN53Liuxe4)
-
-[https://www.youtube.com/embed/cZbPnO2jyBY](https://www.youtube.com/embed/cZbPnO2jyBY)
-
-continues its theatrical run at the Walter Kerr Theater in New York City. Beck is in attendance tonight.
-
-**2018:** *Springsteen on Broadway*
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/beck-300x300.jpg?resize=758%2C758)
+![](https://estreetshuffle.com/wp-content/uploads/2019/07/beck.jpg)

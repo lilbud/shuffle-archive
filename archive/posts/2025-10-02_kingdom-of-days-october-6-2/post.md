@@ -1,104 +1,83 @@
+***New for 2025:** Review for 1980*
 
-*Review for 1980***New for 2025:**
+**1973:** Bruce opens for Jackson Browne at Villanova University. Before the show, the two future rock legends play a cover of The Eagles’ “Peaceful Easy Feeling” in a pre-show jam.
 
-Bruce opens for Jackson Browne at Villanova University. Before the show, the two future rock legends play a cover of The Eagles' "Peaceful Easy Feeling" in a pre-show jam.
+![](https://estreetshuffle.com/wp-content/uploads/2018/10/1973-1006.jpg)
 
-**1973:**<br>
+**1974:** Bruce and the E Street Band play a gig at Clark University in Worcester, Massachusetts.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1973-1006-281x300.jpg?resize=758%2C809)
+![](https://estreetshuffle.com/wp-content/uploads/2019/09/1974-10-06.jpg)
 
-Bruce and the E Street Band play a gig at Clark University in Worcester, Massachusetts.
+![](https://estreetshuffle.com/wp-content/uploads/2018/10/1974-1006.jpg)
 
-**1974:**<br>
+**1979:** Bruce joins Ellen Shipley on stage for “Twist and Shout” at The Fast Lane in Asbury Park.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1974-10-06-254x300.jpg?resize=758%2C895)
+**1980:** At the first of two River Tour nights at the Richfield Coliseum, Bruce and the E Street Band play “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” for the very first time.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1974-1006-208x300.jpg?resize=758%2C1092)
+[Watch on Youtube: Bruce Springsteen, first ever "Two Hearts" - Richfield, 1980-10-06](https://www.youtube.com/watch?v=Zv_GJ52eQf0)
 
-Bruce joins Ellen Shipley on stage for "Twist and Shout" at The Fast Lane in Asbury Park.
+![](https://estreetshuffle.com/wp-content/uploads/2025/10/The_Plain_Dealer_1980_10_08_75.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/10/The_Akron_Beacon_Journal_1980_10_07_Page_19-scaled.jpg)
 
-**1979:**<br>
+**1992:** Bruce and his new touring band play a show at Sacramento’s Arco Arena on World Tour 1992.
 
-At the first of two River Tour nights at the Richfield Coliseum, Bruce and the E Street Band play "" for the very first time.
+[Watch Video Highlight](https://videopress.com/embed/wNaquumN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1980:**[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/1992-10-06a.jpg)
 
-[https://www.youtube.com/embed/Zv_GJ52eQf0](https://www.youtube.com/embed/Zv_GJ52eQf0)
+![](https://estreetshuffle.com/wp-content/uploads/2021/10/1992-10-06b.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/The_Plain_Dealer_1980_10_08_75.jpg?resize=758%2C551&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/The_Akron_Beacon_Journal_1980_10_07_Page_19.jpg?w=758&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/1992-10-06c.jpg)
 
-Bruce and his new touring band play a show at Sacramento's Arco Arena on World Tour 1992.
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/1992-10-06d.jpg)
 
-**1992:**<br>
+**2002:** As the first American leg of the Rising Tour starts to wind down, Bruce starts pulling out the stops. At the First Union Center in Philadelphia, Bruce tour premieres “[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/),” “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/),” and as the show-closer, the first E Street Band performance of “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)” in 24 years. In attendance tonight: actors Tim Robbins, Susan Sarandon, MackKenzie Phillips, and Adrian Zmed, plus musician Ryan Adams.
 
-[https://videopress.com/embed/wNaquumN](https://videopress.com/embed/wNaquumN)
+[Watch Video Highlight](https://videopress.com/embed/ElTp7Vvc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1992-10-06a-300x110.jpg?resize=758%2C278)
+[Watch on Youtube: Does This Bus Stop At 82nd Street? Bruce Springsteen 10/6/2002 (Philly)](https://www.youtube.com/watch?v=wic_mm_K9EQ)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1992-10-06b.jpg?resize=758%2C1864&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - Streets Of Philadelphia (piano)](https://www.youtube.com/watch?v=7DoXu2W4hm8)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1992-10-06c-238x300.jpg?resize=758%2C955)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Kitty's Back](https://www.youtube.com/watch?v=cCbnRRn84QQ)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1992-10-06d-181x300.jpg?resize=758%2C1256)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/2002-10-06a.jpg)
 
-As the first American leg of the Rising Tour starts to wind down, Bruce starts pulling out the stops. At the First Union Center in Philadelphia, Bruce tour premieres "," "," and as the show-closer, the first E Street Band performance of "" in 24 years. In attendance tonight: actors Tim Robbins, Susan Sarandon, MackKenzie Phillips, and Adrian Zmed, plus musician Ryan Adams.
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/2002-10-06b.jpg)
 
-**2002:**[Does This Bus Stop at 82nd Street](http://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
+**2005:** Bruce must have his father on his mind, as he plays “[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/),” “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)” and the tour premiere of “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” back-to-back at this solo acoustic show in Rochester.
 
-[https://videopress.com/embed/ElTp7Vvc](https://videopress.com/embed/ElTp7Vvc)
+[Watch Video Highlight](https://videopress.com/embed/JgQkSLq4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/wic_mm_K9EQ](https://www.youtube.com/embed/wic_mm_K9EQ)
+![](https://estreetshuffle.com/wp-content/uploads/2021/10/2005-10-06.jpg)
 
-[https://www.youtube.com/embed/7DoXu2W4hm8](https://www.youtube.com/embed/7DoXu2W4hm8)
+**2007:** It may be early in the Magic Tour, but Philadelphia still gets its special show when Bruce tour premieres “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/),” “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” and “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” on Night Two. (It’s hard to believe that “Dancing” was ever gone!) Also premiering at this show: a full-band arrangement of “[Town Called Heartbreak](https://estreetshuffle.com/index.php/2020/08/09/matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/).”
 
-[https://www.youtube.com/embed/cCbnRRn84QQ](https://www.youtube.com/embed/cCbnRRn84QQ)
+[Watch on Youtube: Bruce Springsteen Radio Nowhere 2007](https://www.youtube.com/watch?v=8WuOoMztbz4)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2002-10-06a-300x166.jpg?resize=758%2C420)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Prove It All Night](https://www.youtube.com/watch?v=Ai0N7XbamLw)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2002-10-06b-290x300.jpg?resize=758%2C784)
+[Watch on Youtube: Bruce Springsteen & E Street Band - Incident On 57th Street](https://www.youtube.com/watch?v=3QFpXgCG2XE)
 
-Bruce must have his father on his mind, as he plays "," "" and the tour premiere of "" back-to-back at this solo acoustic show in Rochester.
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Cadillac Ranch](https://www.youtube.com/watch?v=no0fJTRuBbg)
 
-**2005:** [My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)
+[Watch Video Highlight](https://videopress.com/embed/KbnAzPjC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/JgQkSLq4](https://videopress.com/embed/JgQkSLq4)
+**2008:** Bruce travels to Ypsilanti, Michigan to join presidential candidate Barack Obama at a campaign rally.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2005-10-06.jpg?resize=652%2C3762&amp;ssl=1)
+[Watch on Youtube: CNN - Springsteen rocks for Obama](https://www.youtube.com/watch?v=g3TcRbsm5xc)
 
-It may be early in the Magic Tour, but Philadelphia still gets its special show when Bruce tour premieres "," "," "" and "" on Night Two. (It's hard to believe that "Dancing" was ever gone!) Also premiering at this show: a full-band arrangement of "."
+[Watch on Youtube: Springsteen: Thunder Road (Ypsilanti, MI)](https://www.youtube.com/watch?v=sqISKZbV9FU)
 
-**2007:** [Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Cadillac Ranch](http://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[Town Called Heartbreak](http://estreetshuffle.com/index.php/2020/08/09/matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/)
+[Watch on Youtube: Bruce Springsteen The Rising Ypsilanti](https://www.youtube.com/watch?v=uLOWFeC9puc)
 
-[https://www.youtube.com/embed/8WuOoMztbz4](https://www.youtube.com/embed/8WuOoMztbz4)
+[Watch on Youtube: Bruce Springsteen- Obama Rally at Ypsilanti, MI](https://www.youtube.com/watch?v=0j60L7ZsFLs)
 
-[https://www.youtube.com/embed/Ai0N7XbamLw](https://www.youtube.com/embed/Ai0N7XbamLw)
+![](https://estreetshuffle.com/wp-content/uploads/2021/10/2008-10-06.jpg)
 
-[https://www.youtube.com/embed/3QFpXgCG2XE](https://www.youtube.com/embed/3QFpXgCG2XE)
+**2017:** *Springsteen on Broadway* previews continue at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/no0fJTRuBbg](https://www.youtube.com/embed/no0fJTRuBbg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/10/2017-1003.jpg)
 
-[https://videopress.com/embed/KbnAzPjC](https://videopress.com/embed/KbnAzPjC)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so in place of their two duets, Bruce plays “Long Time Comin'” and “This Hard Land.”
 
-Bruce travels to Ypsilanti, Michigan to join presidential candidate Barack Obama at a campaign rally.
-
-**2008:**<br>
-
-[https://www.youtube.com/embed/g3TcRbsm5xc](https://www.youtube.com/embed/g3TcRbsm5xc)
-
-[https://www.youtube.com/embed/sqISKZbV9FU](https://www.youtube.com/embed/sqISKZbV9FU)
-
-[https://www.youtube.com/embed/uLOWFeC9puc](https://www.youtube.com/embed/uLOWFeC9puc)
-
-[https://www.youtube.com/embed/0j60L7ZsFLs](https://www.youtube.com/embed/0j60L7ZsFLs)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2008-10-06.jpg?resize=758%2C899&amp;ssl=1)
-
-previews continue at the Walter Kerr Theater in New York City.
-
-**2017:** *Springsteen on Broadway*
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/2017-1003-300x152.jpg?resize=758%2C384)
-
-continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so in place of their two duets, Bruce plays "Long Time Comin'" and "This Hard Land."
-
-**2018:** *Springsteen on Broadway*
+ 

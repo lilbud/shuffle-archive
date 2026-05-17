@@ -1,74 +1,59 @@
+**1973:** Bruce and his “strange but adept” band headline a show at Rutgers University.
 
-Bruce and his "strange but adept" band headline a show at Rutgers University.
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/1973-0401.jpg)
 
-**1973:**<br>
+**1976:** Bruce and the band cancel a scheduled show at Butler University when the school is unable to front the band’s appearance fee. Instead, they play a Chicken Scratch gig at Ohio University in Athens, where the venue takes some heavy damage as a result.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1973-0401.jpg?resize=758%2C973&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01a.jpg)
 
-Bruce and the band cancel a scheduled show at Butler University when the school is unable to front the band's appearance fee. Instead, they play a Chicken Scratch gig at Ohio University in Athens, where the venue takes some heavy damage as a result.
+![](https://estreetshuffle.com/wp-content/uploads/2023/04/1976-04-02b.jpg)
 
-**1976:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01d.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01a.jpg?resize=500%2C213&amp;ssl=1)
+**1980:** Bruce and his studio team work on mixing and overdubs for *The River* at the Power Station in New York City.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-02b.jpg?resize=500%2C224&amp;ssl=1)
+**1988:** Bruce and the band play the first of two shows at Nassau Coliseum, where a sneaky fan films the show from behind the stage.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01d.jpg?resize=317%2C500&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/ncuIPX6s?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and his studio team work on mixing and overdubs for at the Power Station in New York City.
+[Watch Video Highlight](https://videopress.com/embed/jX12LT4N?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1980:** *The River*
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-04-01.jpg)
 
-Bruce and the band play the first of two shows at Nassau Coliseum, where a sneaky fan films the show from behind the stage.
+**2009:** The *Working on a Dream* Tour kicks off at HP Pavilion in San Jose. “Good Eye” is performed for the only time on the tour and the last time to date.
 
-**1988:**<br>
+[Watch on Youtube: BRUCE SPRINGSTEEN - THE BOSS OPENS TOUR IN SAN JOSE](https://www.youtube.com/watch?v=Vno7i9l-Kuo)
 
-[https://videopress.com/embed/ncuIPX6s](https://videopress.com/embed/ncuIPX6s)
+[Watch on Youtube: Bruce Springsteen.Good Eye](https://www.youtube.com/watch?v=klRcjOk7tBU)
 
-[https://videopress.com/embed/jX12LT4N](https://videopress.com/embed/jX12LT4N)
+[Watch on Youtube: Bruce Springsteen Good Eye San Jose 01/04/2009](https://www.youtube.com/watch?v=BVLXCMvRB5E)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-04-01.jpg?resize=665%2C827&amp;ssl=1)
+**2011:** On opening night of the Major League Baseball season in Miami, Clarence plays the national anthem.
 
-The Tour kicks off at HP Pavilion in San Jose. "Good Eye" is performed for the only time on the tour and the last time to date.
-
-**2009:** *Working on a Dream*
-
-[https://www.youtube.com/embed/Vno7i9l-Kuo](https://www.youtube.com/embed/Vno7i9l-Kuo)
-
-[https://www.youtube.com/embed/klRcjOk7tBU](https://www.youtube.com/embed/klRcjOk7tBU)
-
-[https://www.youtube.com/embed/BVLXCMvRB5E](https://www.youtube.com/embed/BVLXCMvRB5E)
-
-On opening night of the Major League Baseball season in Miami, Clarence plays the national anthem.
-
-**2011:**<br>
-
-[https://www.youtube.com/embed/uijnPTZfQVY](https://www.youtube.com/embed/uijnPTZfQVY)
+[Watch on Youtube: Clarence Clemons plays the national anthem](https://www.youtube.com/watch?v=uijnPTZfQVY)
 
 Meanwhile, Bruce joins Little Steven at the Underground Garage for part one of a three-part show. A fantastic listen, well worth the time investment.
 
-[https://videopress.com/embed/ygt8x9Zu](https://videopress.com/embed/ygt8x9Zu)
+[Watch Video Highlight](https://videopress.com/embed/ygt8x9Zu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-At the Verizon Center in Washington, DC, Bruce and the E Street Band play "The Promise" in a full-band arrangement for only the third time ever. "Adam Raised a Cain" and "Out in the Street" make their tour premieres tonight as well.
+**2012:** At the Verizon Center in Washington, DC, Bruce and the E Street Band play “The Promise” in a full-band arrangement for only the third time ever. “Adam Raised a Cain” and “Out in the Street” make their tour premieres tonight as well.
 
-**2012:**<br>
+[Watch on Youtube: Bruce Springsteen & ESB: The Promise (Full Band) - April 1, 2012 [dubbed]](https://www.youtube.com/watch?v=w1DPQX36v20)
 
-[https://www.youtube.com/embed/w1DPQX36v20](https://www.youtube.com/embed/w1DPQX36v20)
+[Watch on Youtube: Bruce Springsteen - Apollo Medley - Bruce Body Surfing - Verizon Center - Washington DC - 4-1-12.mpg](https://www.youtube.com/watch?v=qgoT6_ToPCE)
 
-[https://www.youtube.com/embed/qgoT6_ToPCE](https://www.youtube.com/embed/qgoT6_ToPCE)
+[Watch on Youtube: Bruce Springsteen Live Washington DC, April 1, 2012 Thunder Road and Born to Run](https://www.youtube.com/watch?v=UybZAbmLMcY)
 
-[https://www.youtube.com/embed/UybZAbmLMcY](https://www.youtube.com/embed/UybZAbmLMcY)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/44696138581_620944df80_o.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/44696138581_620944df80_o.jpg?resize=758%2C814&amp;ssl=1)
+**2023:** Bruce tour debuts “Jungleland” at Madison Square Garden when the reprise of the River Tour makes a stop in New York City. Paul McCartney is in attendance tonight.
 
-Bruce tour debuts "Jungleland" at Madison Square Garden when the reprise of the River Tour makes a stop in New York City. Paul McCartney is in attendance tonight.
+[Watch on Youtube: No Surrender, New York City 2023/04/01 Pro-Shot Clip](https://www.youtube.com/watch?v=RIMN6GUDKqM)
 
-**2023:**<br>
+[Watch on Youtube: Bruce Springsteen - Jungleland - 01-04-2023 - New York](https://www.youtube.com/watch?v=GI_JQU7iWwE)
 
-[https://www.youtube.com/embed/RIMN6GUDKqM](https://www.youtube.com/embed/RIMN6GUDKqM)
+[Watch on Youtube: Thunder Road / Born to Run - Bruce Springsteen - Madison Square Garden - New York City - 4/1/2023](https://www.youtube.com/watch?v=9mqNMGFafbI)
 
-[https://www.youtube.com/embed/GI_JQU7iWwE](https://www.youtube.com/embed/GI_JQU7iWwE)
+![](https://estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01c.jpg)
 
-[https://www.youtube.com/embed/9mqNMGFafbI](https://www.youtube.com/embed/9mqNMGFafbI)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01c.jpg?resize=469%2C500&amp;ssl=1)
+ 

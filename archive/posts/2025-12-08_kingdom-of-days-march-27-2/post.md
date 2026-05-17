@@ -1,70 +1,53 @@
+**1970:** Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.
 
-Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1970-0327.jpg)
 
-**1970:**<br>
+**1971:** Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional materials but changed to Dr. Zoom and the Sonic Boom by the night of the shows) in order to land a gig opening for the Allman Brothers at Asbury Park’s Sunshine In. These two shows feature an on-stage Monopoly game and a baton twirler during the band’s set. (Lore has it that all Dr. Zoom shows featured these distractions, but this date is the only documented instance of it.)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1970-0327.jpg?resize=338%2C553&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1971-0327.jpg)
 
-Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional materials but changed to Dr. Zoom and the Sonic Boom by the night of the shows) in order to land a gig opening for the Allman Brothers at Asbury Park's Sunshine In. These two shows feature an on-stage Monopoly game and a baton twirler during the band's set. (Lore has it that all Dr. Zoom shows featured these distractions, but this date is the only documented instance of it.)
+**1976:** Bruce and Steve drop by Atlanta’s WQXI-FM for an interview with DJ Cat Simon.
 
-**1971:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1976-0327.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1971-0327.jpg?resize=758%2C707&amp;ssl=1)
+**1981:** Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.
 
-Bruce and Steve drop by Atlanta's WQXI-FM for an interview with DJ Cat Simon.
+**1983:** Bruce checks out The Bangles’ performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.
 
-**1976:**<br>
+[https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3?_=21](https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3?_=21)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0327.jpg?resize=301%2C200&amp;ssl=1)
+<https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3>
 
-Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.
+**1985:** Night Four of five at the Sydney Entertainment Center on the Born in the U.S.A. Tour.
 
-**1981:**<br>
+[Watch Video Highlight](https://videopress.com/embed/RxOJwN5n?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce checks out The Bangles' performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.
+**1996:** Bruce’s scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year’s Oscar ceremony.
 
-**1983:** <https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3>
+**2013:** The final night in Melbourne on the Wrecking Ball Tour features the tour premiere of “Better Days.”
 
-Night Four of five at the Sydney Entertainment Center on the Born in the U.S.A. Tour.
+[Watch on Youtube: Bruce Springsteen - Jungleland - Melbourne, Australia 27 March 2013](https://www.youtube.com/watch?v=VWJ36EUmKPg)
 
-**1985:**<br>
+[Watch on Youtube: I'm Going Down - Bruce Springsteen - Rod Laver Arena - 27-03-2013](https://www.youtube.com/watch?v=XiJTgwgPk2Y)
 
-[https://videopress.com/embed/RxOJwN5n](https://videopress.com/embed/RxOJwN5n)
+[Watch on Youtube: Bruce Springsteen - Better Days (Melbourne March 27, 2013 )](https://www.youtube.com/watch?v=maLgC_inW2Q)
 
-Bruce's scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year's Oscar ceremony.
+[Watch on Youtube: Bruce Springsteen Wrecking Ball Melbourne 27/03/2013](https://www.youtube.com/watch?v=Pv1h0ajnteE)
 
-**1996:**<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-The final night in Melbourne on the Wrecking Ball Tour features the tour premiere of "Better Days."
+**2023:** Bruce and the E Street Band bring their World Tour to the Capital One Arena in Washington, D.C.
 
-**2013:**<br>
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Trapped - Washington DC - 3/27/23](https://www.youtube.com/watch?v=z1BBXmNAASA)
 
-[https://www.youtube.com/embed/VWJ36EUmKPg](https://www.youtube.com/embed/VWJ36EUmKPg)
+[Watch on Youtube: Bruce Springsteen plays Washington's Capital One Arena – March 27, 2023](https://www.youtube.com/watch?v=i1ynj81Dl1k)
 
-[https://www.youtube.com/embed/XiJTgwgPk2Y](https://www.youtube.com/embed/XiJTgwgPk2Y)
+[Watch on Youtube: Bruce Springsteen Washington DC 3-27-23 ENCORE](https://www.youtube.com/watch?v=bLUhR_LSLmc)
 
-[https://www.youtube.com/embed/maLgC_inW2Q](https://www.youtube.com/embed/maLgC_inW2Q)
+**2024:** Bruce makes a surprise appearance with Zach Bryan at Barclays Center in Brooklyn, performing “Sandpaper” and an encore of “Revival” together. Maggie Rogers joins Bruce and Zach for the encore.
 
-[https://www.youtube.com/embed/Pv1h0ajnteE](https://www.youtube.com/embed/Pv1h0ajnteE)
+[Watch on Youtube: Zach Bryan - Sandpaper (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=07MFGBvHiEk)
 
-continues its theatrical run at the Walter Kerr Theater in New York City.
+[Watch on Youtube: Zach Bryan w/ Bruce Springsteen & Maggie Rogers,](https://www.youtube.com/watch?v=G_E1Q3un3iY)
 
-**2018:** *Springsteen on Broadway*
-
-Bruce and the E Street Band bring their World Tour to the Capital One Arena in Washington, D.C.
-
-**2023:**<br>
-
-[https://www.youtube.com/embed/z1BBXmNAASA](https://www.youtube.com/embed/z1BBXmNAASA)
-
-[https://www.youtube.com/embed/i1ynj81Dl1k](https://www.youtube.com/embed/i1ynj81Dl1k)
-
-[https://www.youtube.com/embed/bLUhR_LSLmc](https://www.youtube.com/embed/bLUhR_LSLmc)
-
-Bruce makes a surprise appearance with Zach Bryan at Barclays Center in Brooklyn, performing "Sandpaper" and an encore of "Revival" together. Maggie Rogers joins Bruce and Zach for the encore.
-
-**2024:**<br>
-
-[https://www.youtube.com/embed/07MFGBvHiEk](https://www.youtube.com/embed/07MFGBvHiEk)
-
-[https://www.youtube.com/embed/G_E1Q3un3iY](https://www.youtube.com/embed/G_E1Q3un3iY)
+ 

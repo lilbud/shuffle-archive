@@ -1,104 +1,79 @@
+***New for 2025:** Audio for 1977; video for 2009 and 2012; new entry for 2024*
 
-*Audio for 1977; video for 2009 and 2012; new entry for 2024***New for 2025:**
+**1974:** Bruce and his band play two shows at their second night at Gertie’s in Dallas.
 
-Bruce and his band play two shows at their second night at Gertie's in Dallas.
+**1977:** The Lawsuit Tour moves north to the Central Maine Youth Center in Lewiston, where writer Stephen King is in attendance.
 
-**1974:**<br>
+[Watch on Youtube: Bruce Springsteen - Lewiston, ME, 3/19/77, Joe Maloney Recording](https://www.youtube.com/watch?v=jq3U8CECx54)
 
-The Lawsuit Tour moves north to the Central Maine Youth Center in Lewiston, where writer Stephen King is in attendance.
+[Watch on Youtube: This bag once carried Springsteen's denim jacket](https://www.youtube.com/watch?v=fEOcwFaOlos)
 
-**1977:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2024/03/The_Lewiston_Daily_Sun_Sat__Mar_19__1977_-scaled.jpg)
 
-[https://www.youtube.com/embed/jq3U8CECx54](https://www.youtube.com/embed/jq3U8CECx54)
+**1981:** A scheduled show in London is postponed due to Bruce’s exhaustion from the first two legs of the River Tour.
 
-[https://www.youtube.com/embed/fEOcwFaOlos](https://www.youtube.com/embed/fEOcwFaOlos)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Lewiston_Daily_Sun_Sat__Mar_19__1977_-scaled.jpg?resize=617%2C2560&amp;ssl=1)
+**1985:** Bruce arrives in Sydney two days before what will be his first-ever show in Australia.
 
-A scheduled show in London is postponed due to Bruce's exhaustion from the first two legs of the River Tour.
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1985-03-19.png)
 
-**1981:**<br>
+**1996:** Bruce plays his first-ever show in Northern Ireland, at King’s Hall in Belfast. This show is available as part of Bruce’s official archive series–[go get it](https://live.brucespringsteen.net/live-music/0,17589/Bruce-Springsteen-mp3-flac-download-3-19-1996-Kings-Hall-Belfast-UK.html).
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1002)
+[Watch on Youtube: Highway 29 (Live at King's Hall, Belfast, UK - 3/19/1996)](https://www.youtube.com/watch?v=t21WgfwCqB8)
 
-Bruce arrives in Sydney two days before what will be his first-ever show in Australia.
+[Watch on Youtube: Bruce Springsteen - Youngstown (Live at King's Hall, Belfast UK - 03/19/96 - Official Audio)](https://www.youtube.com/watch?v=-A6tzqdK7ds)
 
-**1985:**<br>
+[Watch on Youtube: Murder Incorporated (Live at King's Hall, Belfast, UK - 3/19/1996)](https://www.youtube.com/watch?v=UEf8P4jNB7E)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1985-03-19.png?resize=758%2C460&amp;ssl=1)
+[Watch on Youtube: Bobby Jean (Live at King's Hall, Belfast UK - 03/19/96 - Official Audio)](https://www.youtube.com/watch?v=Z6KsXi0adkE)
 
-Bruce plays his first-ever show in Northern Ireland, at King's Hall in Belfast. This show is available as part of Bruce's official archive series–.
+[Watch on Youtube: The Promised Land (Live at King's Hall, Belfast, UK - 3/19/1996)](https://www.youtube.com/watch?v=EeoIWeyMqnc)
 
-**1996:** [go get it](http://live.brucespringsteen.net/live-music/0,17589/Bruce-Springsteen-mp3-flac-download-3-19-1996-Kings-Hall-Belfast-UK.html)
+**1999:** A second public warm-up show for Bruce Springsteen and the E Street Band, their last in the U.S. before the Reunion Tour kicks off. “[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)” makes its live debut, and “The Promise” is played for the first time in 21 years.
 
-[https://www.youtube.com/embed/t21WgfwCqB8](https://www.youtube.com/embed/t21WgfwCqB8)
+[Watch Video Highlight](https://videopress.com/embed/yPtVKHzK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/-A6tzqdK7ds](https://www.youtube.com/embed/-A6tzqdK7ds)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19a.jpg)
 
-[https://www.youtube.com/embed/UEf8P4jNB7E](https://www.youtube.com/embed/UEf8P4jNB7E)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19b.jpg)
 
-[https://www.youtube.com/embed/Z6KsXi0adkE](https://www.youtube.com/embed/Z6KsXi0adkE)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1999-03-19c.jpg)
 
-[https://www.youtube.com/embed/EeoIWeyMqnc](https://www.youtube.com/embed/EeoIWeyMqnc)
+**2000:** Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.
 
-A second public warm-up show for Bruce Springsteen and the E Street Band, their last in the U.S. before the Reunion Tour kicks off. "" makes its live debut, and "The Promise" is played for the first time in 21 years.
+[Watch Video Highlight](https://videopress.com/embed/KtVROHSG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1999:** [Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)
+[Watch Video Highlight](https://videopress.com/embed/eLzC9Wo8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/yPtVKHzK](https://videopress.com/embed/yPtVKHzK)
+**2005:** With the Seeger Sessions Band in his home studio, Bruce records “[Old Dan Tucker](https://estreetshuffle.com/index.php/2020/11/24/cover-me-old-dan-tucker/),” “[Mrs. McGrath](https://estreetshuffle.com/index.php/2019/05/26/cover-me-rotd-mrs-mcgrath/),” “[Erie Canal](https://estreetshuffle.com/index.php/2019/11/02/cover-me-erie-canal/),” “[O Mary Don’t You Weep,](https://estreetshuffle.com/index.php/2022/07/15/cover-me-o-mary-dont-you-weep/)” “[John Henry](https://estreetshuffle.com/index.php/2021/06/01/cover-me-rotd-john-henry/),” “[Shenandoah](https://estreetshuffle.com/index.php/2022/03/22/cover-me-shenandoah/),” “[Froggie Went A-courtin](https://estreetshuffle.com/index.php/2021/01/26/roll-of-the-dice-cover-me-froggie-went-a-courtin/)‘” and “[Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/).”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19a-300x218.jpg?resize=758%2C551)
+[Watch on Youtube: Bruce Springsteen - O Mary Don't You Weep (The Seeger Sessions)](https://www.youtube.com/watch?v=tebjshm7f_I)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19b-300x287.jpg?resize=758%2C725)
+**2009:** Jon Stewart interviews Bruce on The Daily Show, where Bruce performs an acoustic version of “[Working on a Dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/).” Later that evening, Bruce and the E Street Band (with Jay Weinberg filling in for his dad) rehearse at Asbury Park Convention Hall.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-19c.jpg?resize=758%2C493&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/5Dsw0eAI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.
+**2012:** Night Two of the Wrecking Ball Tour, at the Greensboro Coliseum. For show highlights, see my [*Where the Band Was* report for this show.](https://estreetshuffle.com/index.php/2018/03/19/where-the-band-was-greensboro-march-19-2012/)
 
-**2000:**<br>
+[Watch on Youtube: Bruce Springsteen & The E Street Band - We Take Care of Our Own (Greensboro)](https://www.youtube.com/watch?v=8mHqlZioB3g)
 
-[https://videopress.com/embed/KtVROHSG](https://videopress.com/embed/KtVROHSG)
+[Watch on Youtube: Bruce Springsteen 3/19/12 10th Avenue Freeze Out Greensboro](https://www.youtube.com/watch?v=iEWmlk5mmEI)
 
-[https://videopress.com/embed/eLzC9Wo8](https://videopress.com/embed/eLzC9Wo8)
+**2016:** The final night (for anyone) at the L.A. Sports Arena features a magical “[Drive All Night.](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” The arena is demolished shortly thereafter. For more highlights from this night, see my [*Where the Band Was* report for this show.](https://estreetshuffle.com/index.php/2018/03/19/where-the-band-was-los-angeles-march-19-2016/)
 
-With the Seeger Sessions Band in his home studio, Bruce records "," "," "," "" "," "," "‘" and "."
+[Watch on Youtube: Drive All Night - Bruce Springsteen - Los Angeles Sports Arena - 19th March 2016](https://www.youtube.com/watch?v=c9g0jM7KDy4)
 
-**2005:** [Old Dan Tucker](https://estreetshuffle.com/index.php/2020/11/24/cover-me-old-dan-tucker/)[Mrs. McGrath](http://estreetshuffle.com/index.php/2019/05/26/cover-me-rotd-mrs-mcgrath/)[Erie Canal](http://estreetshuffle.com/index.php/2019/11/02/cover-me-erie-canal/)[O Mary Don't You Weep,](https://estreetshuffle.com/index.php/2022/07/15/cover-me-o-mary-dont-you-weep/)[John Henry](https://estreetshuffle.com/index.php/2021/06/01/cover-me-rotd-john-henry/)[Shenandoah](https://estreetshuffle.com/index.php/2022/03/22/cover-me-shenandoah/)[Froggie Went A-courtin](https://estreetshuffle.com/index.php/2021/01/26/roll-of-the-dice-cover-me-froggie-went-a-courtin/)[Pay Me My Money Down](http://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)
+[Watch on Youtube: "Tougher Than The Rest" (MULTI-CAM) - Bruce Springsteen LA 3/19/2016](https://www.youtube.com/watch?v=UxYJ1Flk5H4)
 
-[https://www.youtube.com/embed/tebjshm7f_I](https://www.youtube.com/embed/tebjshm7f_I)
+[Watch on Youtube: "Thunder Road" (MULTI-CAM) - Bruce Springsteen LA 3/19/2016](https://www.youtube.com/watch?v=3zc2E7N2xPg)
 
-Jon Stewart interviews Bruce on The Daily Show, where Bruce performs an acoustic version of "." Later that evening, Bruce and the E Street Band (with Jay Weinberg filling in for his dad) rehearse at Asbury Park Convention Hall.
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2016-03-19a.jpg)
 
-**2009:** [Working on a Dream](http://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2016-03-19b.jpg)
 
-[https://videopress.com/embed/5Dsw0eAI](https://videopress.com/embed/5Dsw0eAI)
+**2024:** Bruce and the E Street Band resume their world tour at Footprint Center in Phoenix, where “[Don’t Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)” makes a welcome return to the set and “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)” is notably and sadly absent.
 
-Night Two of the Wrecking Ball Tour, at the Greensboro Coliseum. For show highlights, see my
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance +](https://www.youtube.com/watch?v=E3yzf78emYk)
 
-**2012:** [report for this show.](http://estreetshuffle.com/index.php/2018/03/19/where-the-band-was-greensboro-march-19-2012/)*Where the Band Was*
-
-[https://www.youtube.com/embed/8mHqlZioB3g](https://www.youtube.com/embed/8mHqlZioB3g)
-
-[https://www.youtube.com/embed/iEWmlk5mmEI](https://www.youtube.com/embed/iEWmlk5mmEI)
-
-The final night (for anyone) at the L.A. Sports Arena features a magical "" The arena is demolished shortly thereafter. For more highlights from this night, see my
-
-**2016:** [Drive All Night.](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)[report for this show.](http://estreetshuffle.com/index.php/2018/03/19/where-the-band-was-los-angeles-march-19-2016/)*Where the Band Was*
-
-[https://www.youtube.com/embed/c9g0jM7KDy4](https://www.youtube.com/embed/c9g0jM7KDy4)
-
-[https://www.youtube.com/embed/UxYJ1Flk5H4](https://www.youtube.com/embed/UxYJ1Flk5H4)
-
-[https://www.youtube.com/embed/3zc2E7N2xPg](https://www.youtube.com/embed/3zc2E7N2xPg)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-19a-180x300.jpg?resize=758%2C1263)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-19b-300x300.jpg?resize=758%2C758)
-
-Bruce and the E Street Band resume their world tour at Footprint Center in Phoenix, where "" makes a welcome return to the set and "" is notably and sadly absent.
-
-**2024:** [Don't Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
-
-[https://www.youtube.com/embed/E3yzf78emYk](https://www.youtube.com/embed/E3yzf78emYk)
-
-[https://www.youtube.com/embed/n-hFWBU8uuY](https://www.youtube.com/embed/n-hFWBU8uuY)
+[Watch on Youtube: Don't Play That Song- Bruce Springsteen The E-Street Band- Phoenix Arizona-Footprint Arena 3/19/24](https://www.youtube.com/watch?v=n-hFWBU8uuY)

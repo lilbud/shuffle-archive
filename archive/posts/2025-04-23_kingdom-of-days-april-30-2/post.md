@@ -1,110 +1,83 @@
+***New for 2025:** New entry for 1982; audio for 2000; video for 2023*
 
-*New entry for 1982; audio for 2000; video for 2023***New for 2025:**
+**1971:** At the Student Prince in Asbury Park, Bruce makes a guest appearance at the debut performance of The Sundance Blues Band, led by Steve Van Zandt and Southside Johnny, and featuring Vini Lopez, Garry Tallent, and Joe Hagstrom.
 
-At the Student Prince in Asbury Park, Bruce makes a guest appearance at the debut performance of The Sundance Blues Band, led by Steve Van Zandt and Southside Johnny, and featuring Vini Lopez, Garry Tallent, and Joe Hagstrom.
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/1971-04-30.jpg)
 
-**1971:**<br>
+**1976:** Bruce plays in Alabama for the first time, at a very sparsely-attended show at the Boutwell Memorial Auditorium in Birmingham.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1971-04-30.jpg?resize=758%2C1613&amp;ssl=1)
+**1982:** At the Power Station in New York City, Bruce records for what will eventually become *Born in the U.S.A.*
 
-Bruce plays in Alabama for the first time, at a very sparsely-attended show at the Boutwell Memorial Auditorium in Birmingham.
+**1988:** MTV premieres a new documentary, *Inside the Tunnel of Love*.
 
-**1976:**<br>
+[Watch Video Highlight](https://videopress.com/embed/pXf5J7uB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-At the Power Station in New York City, Bruce records for what will eventually become
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-30.jpg)
 
-**1982:** *Born in the U.S.A.*
+**1992:** While Bruce rehearses with his new band in Los Angeles for his upcoming tour, riots take place only blocks away following the acquittal of four police officers who were captured on video beating Rodney King. The incident and riots will influence Bruce’s set list arrangements and performances throughout the tour.
 
-MTV premieres a new documentary, .
+**1994:** Imagine this line-up: Bruce joins James Brown on stage at the opening of the West Hollywood House of Blues for “Get Up – I Feel Like Being a Sex Machine,” with Dan Aykroyd, Magic Johnson, Wesley Snipes, and Woody Harrelson on backing vocals.
 
-**1988:** *Inside the Tunnel of Love*
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1994-0430.jpg)
 
-[https://videopress.com/embed/pXf5J7uB](https://videopress.com/embed/pXf5J7uB)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/1994-04-30.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-30-300x164.jpg?resize=758%2C414)
+**1996:** Bruce brings his solo acoustic tour to Strasbourg, France.
 
-While Bruce rehearses with his new band in Los Angeles for his upcoming tour, riots take place only blocks away following the acquittal of four police officers who were captured on video beating Rodney King. The incident and riots will influence Bruce's set list arrangements and performances throughout the tour.
+[https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3?_=9)
 
-**1992:**<br>
+<https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3>
 
-Imagine this line-up: Bruce joins James Brown on stage at the opening of the West Hollywood House of Blues for "Get Up – I Feel Like Being a Sex Machine," with Dan Aykroyd, Magic Johnson, Wesley Snipes, and Woody Harrelson on backing vocals.
+**2000:** “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” makes its Reunion-era debut in a unique and short-lived country arrangement at the Firstar Center in Cincinnati.
 
-**1994:**<br>
+[Watch on Youtube: Bruce Springsteen - Dancing in the Dark (country swing version) - April 30 2000](https://www.youtube.com/watch?v=z22ca5w4cdU)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1994-0430-300x199.jpg?resize=758%2C504)
+[Watch on Youtube: Bruce Springsteen - BORN IN THE USA 2000 (audio)](https://www.youtube.com/watch?v=YQfHdjKujP4)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1994-04-30.jpg?resize=758%2C968&amp;ssl=1)
+[Watch on Youtube: Cincinnati 30/04/2000](https://www.youtube.com/playlist?list=PLJTyL9twk3zAcxJ3pnXVufsDoJGZGVmm1)
 
-Bruce brings his solo acoustic tour to Strasbourg, France.
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2000-04-30a.jpg)
 
-**1996:** <http://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3>
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2000-04-30b.jpg)
 
-"" makes its Reunion-era debut in a unique and short-lived country arrangement at the Firstar Center in Cincinnati.
+**2003:** Back-to-back benefits: following the previous night’s benefit for Bobby Bandiera Jr., Bruce plays a benefit for the Rumson County Day School at The Stone Pony with much of the same line-up: Patti Scialfa, Jon Bon Jovi, Southside Johnny, and Bobby Bandiera.
 
-**2000:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
+**2005:** Nils Lofgren makes a guest appearance on a gorgeous “This Hard Land” at Bruce’s solo acoustic show in Glendale, where Bruce plays “[Book of Dreams](https://estreetshuffle.com/index.php/2019/06/04/roll-of-the-dice-book-of-dreams/)” for the first time in thirteen years and debuts “[All I’m Thinkin’ About](https://estreetshuffle.com/index.php/2020/11/05/roll-of-the-dice-all-im-thinkin-about/).”
 
-[https://www.youtube.com/embed/z22ca5w4cdU](https://www.youtube.com/embed/z22ca5w4cdU)
+[Watch Video Highlight](https://videopress.com/embed/Io7Odebr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/YQfHdjKujP4](https://www.youtube.com/embed/YQfHdjKujP4)
+[Watch Video Highlight](https://videopress.com/embed/iXCqUPGO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAcxJ3pnXVufsDoJGZGVmm1](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAcxJ3pnXVufsDoJGZGVmm1)
+[Watch Video Highlight](https://videopress.com/embed/MsLsmces?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-04-30a-300x237.jpg?resize=758%2C599)
+**2006:** In the aftermath of Hurricane Katrina, Bruce and the Sessions Band kick off their tour with an emotional, legendary show at New Orleans Jazz Fest. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,18553/Bruce-Springsteen-mp3-flac-download-4-30-2006-New-Orleans-Jazz-and-Heritage-Festival-New-Orleans-LA.html), and watch the entire show below.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2000-04-30b.jpg?resize=561%2C3581&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - The New Orleans Jazz & Heritage Festival, 2006](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZHPNfXH8OrXBrsFLpmZvIi)
 
-Back-to-back benefits: following the previous night's benefit for Bobby Bandiera Jr., Bruce plays a benefit for the Rumson County Day School at The Stone Pony with much of the same line-up: Patti Scialfa, Jon Bon Jovi, Southside Johnny, and Bobby Bandiera.
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2006-04-30.jpg)
 
-**2003:**<br>
+**2008:** Bruce opens with a rare “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” when the Magic Tour stops for a night at the John Paul Jones Arena in Charlottesville, Virginia.
 
-Nils Lofgren makes a guest appearance on a gorgeous "This Hard Land" at Bruce's solo acoustic show in Glendale, where Bruce plays "" for the first time in thirteen years and debuts "."
+[Watch on Youtube: Bruce Springsteen—Loose Ends—Live in Charlottesville-2008-04-30](https://www.youtube.com/watch?v=TaVWfsMuO18)
 
-**2005:** [Book of Dreams](http://estreetshuffle.com/index.php/2019/06/04/roll-of-the-dice-book-of-dreams/)[All I'm Thinkin' About](https://estreetshuffle.com/index.php/2020/11/05/roll-of-the-dice-all-im-thinkin-about/)
+![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Daily_Progress_Thu__May_1__2008_.jpg)
 
-[https://videopress.com/embed/Io7Odebr](https://videopress.com/embed/Io7Odebr)
+**2013:** Night Two in Oslo starts off strong with the tour premiere of “Leap of Faith.”
 
-[https://videopress.com/embed/iXCqUPGO](https://videopress.com/embed/iXCqUPGO)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Oslo 2013 2nd Night (PROSHOT)](https://www.youtube.com/watch?v=6aX28r8nxzc)
 
-[https://videopress.com/embed/MsLsmces](https://videopress.com/embed/MsLsmces)
+[Watch on Youtube: Bruce Springsteen 2013-04-30 Oslo - Leap Of Faith](https://www.youtube.com/watch?v=jmm4AL0gLnA)
 
-In the aftermath of Hurricane Katrina, Bruce and the Sessions Band kick off their tour with an emotional, legendary show at New Orleans Jazz Fest. This show is available as part of Bruce's official archive series–get it , and watch the entire show below.
+[Watch on Youtube: Bruce Springsteen 2013-04-30 Oslo - Savin' Up (false start)](https://www.youtube.com/watch?v=lHZCGII66hM)
 
-**2006:** [here](http://live.brucespringsteen.net/live-music/0,18553/Bruce-Springsteen-mp3-flac-download-4-30-2006-New-Orleans-Jazz-and-Heritage-Festival-New-Orleans-LA.html)
+[Watch on Youtube: Bruce Springsteen 2013-04-30 Oslo - Open All Night](https://www.youtube.com/watch?v=U7tAOJ-da-U)
 
-[https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZHPNfXH8OrXBrsFLpmZvIi](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZHPNfXH8OrXBrsFLpmZvIi)
+**2015:** Bruce and the E Street Band attend the funeral of Lenore Travis, wife of concert producer and long-time friend George Travis. Bruce, Nils and Patti perform “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” and “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/).”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2006-04-30.jpg?resize=758%2C858&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2015-04-30.jpg)
 
-Bruce opens with a rare "" when the Magic Tour stops for a night at the John Paul Jones Arena in Charlottesville, Virginia.
+**2023:** Night Two of the European leg of Bruce’s 2023 World Tour kicks off with the tour premiere of “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)” in Barcelona.
 
-**2008:** [Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)
+[Watch on Youtube: Bruce Springsteen - My Love Will Not Let You Down, Barcelona 4/30/23](https://www.youtube.com/watch?v=4XOvr5Ro2xk)
 
-[https://www.youtube.com/embed/TaVWfsMuO18](https://www.youtube.com/embed/TaVWfsMuO18)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Daily_Progress_Thu__May_1__2008_.jpg?resize=758%2C699&amp;ssl=1)
-
-Night Two in Oslo starts off strong with the tour premiere of "Leap of Faith."
-
-**2013:**<br>
-
-[https://www.youtube.com/embed/6aX28r8nxzc](https://www.youtube.com/embed/6aX28r8nxzc)
-
-[https://www.youtube.com/embed/jmm4AL0gLnA](https://www.youtube.com/embed/jmm4AL0gLnA)
-
-[https://www.youtube.com/embed/lHZCGII66hM](https://www.youtube.com/embed/lHZCGII66hM)
-
-[https://www.youtube.com/embed/U7tAOJ-da-U](https://www.youtube.com/embed/U7tAOJ-da-U)
-
-Bruce and the E Street Band attend the funeral of Lenore Travis, wife of concert producer and long-time friend George Travis. Bruce, Nils and Patti perform "" and "."
-
-**2015:** [I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2015-04-30-300x157.jpg?resize=758%2C397)
-
-Night Two of the European leg of Bruce's 2023 World Tour kicks off with the tour premiere of "" in Barcelona.
-
-**2023:** [My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)
-
-[https://www.youtube.com/embed/4XOvr5Ro2xk](https://www.youtube.com/embed/4XOvr5Ro2xk)
-
-[https://www.youtube.com/embed/YMW9SeQTfE0](https://www.youtube.com/embed/YMW9SeQTfE0)
+[Watch on Youtube: Tom Hanks & Rita Wilson sing Because the night at Bruce Springsteen show in Barcelona April 30, 2023](https://www.youtube.com/watch?v=YMW9SeQTfE0)

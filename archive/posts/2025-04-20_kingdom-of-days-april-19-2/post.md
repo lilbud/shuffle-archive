@@ -1,126 +1,95 @@
+***New for 2025:** New entry for 1975 and 1980; video for 2014*
 
-*New entry for 1975 and 1980; video for 2014***New for 2025:**
+**1974:** Bruce and the not quite E Street Band play a poorly advertised (and therefore poorly attended) show at the New Jersey State Theater in New Brunswick. In attendance tonight: Penn Jillette.
 
-Bruce and the not quite E Street Band play a poorly advertised (and therefore poorly attended) show at the New Jersey State Theater in New Brunswick. In attendance tonight: Penn Jillette.
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/1974-04-19.jpg)
 
-**1974:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1974-0419.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1974-04-19.jpg?resize=758%2C291&amp;ssl=1)
+**1975:** Bruce works on “Thunder Road” in the studio at the Record Plant in New York City.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0419-300x234.jpg?resize=758%2C591)
+**1980:** Bruce finalizes the mix for “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)” at Clover Studios in Los Angeles.
 
-Bruce works on "Thunder Road" in the studio at the Record Plant in New York City.
+[Watch on Youtube: Ramrod](https://www.youtube.com/watch?v=BEhmiGQvjOY)
 
-**1975:**<br>
+**1981:** One night after debuting “[Can’t Help Falling in Love,](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)” Bruce opens his second show in Paris by premiering his cover/adaptation of “Follow That Dream.” The encores include another world premiere: Bruce’s first cover of “[Sweet Soul Music](https://estreetshuffle.com/index.php/2019/11/01/cover-me-sweet-soul-music/).”
 
-Bruce finalizes the mix for "" at Clover Studios in Los Angeles.
+[Watch on Youtube: Bruce Springsteen - FOLLOW THAT DREAM 1981 (audio)](https://www.youtube.com/watch?v=isH0CoR8feg)
 
-**1980:** [Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/1981-04-18-1.jpg)
 
-[https://www.youtube.com/embed/BEhmiGQvjOY](https://www.youtube.com/embed/BEhmiGQvjOY)
+**1985:** Bruce’s tour of Japan moves from Tokyo to Kyoto for a night at Furitsu Taikukan.
 
-One night after debuting "" Bruce opens his second show in Paris by premiering his cover/adaptation of "Follow That Dream." The encores include another world premiere: Bruce's first cover of "."
+[Watch Video Highlight](https://videopress.com/embed/TVhMNdU8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1981:**[Can't Help Falling in Love,](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)[Sweet Soul Music](http://estreetshuffle.com/index.php/2019/11/01/cover-me-sweet-soul-music/)
+**1988:** [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) is certified 3x multi-platinum by the Recording Industry Association of America.
 
-[https://www.youtube.com/embed/isH0CoR8feg](https://www.youtube.com/embed/isH0CoR8feg)
+[Watch on Youtube: Tunnel of Love](https://www.youtube.com/playlist?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1981-04-18-1.jpg?resize=758%2C745&amp;ssl=1)
+**1993:** Bruce brings his World Tour 1993 to Rotterdam for the first of two nights at Sportpaleis Ahoy. Watch the final encore of “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” below.
 
-Bruce's tour of Japan moves from Tokyo to Kyoto for a night at Furitsu Taikukan.
+[Watch on Youtube: Bruce Springsteen - Working On The Highway - April 19th 1993](https://www.youtube.com/watch?v=9OJC24_OS6k)
 
-**1985:**<br>
+**1995:** *Born in the U.S.A.* is certified 15x multi-platinum by the Recording Industry Association of America.
 
-[https://videopress.com/embed/TVhMNdU8](https://videopress.com/embed/TVhMNdU8)
+[Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-is certified 3x multi-platinum by the Recording Industry Association of America.
+**1996:** Bruce plays a solo acoustic show in Berlin. Three songs from tonight’s show (“[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/),” “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” and “[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)“) will be released on Bruce’s *Missing* EP later in the year.
 
-**1988:**[](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love*
+[Watch on Youtube: Darkness On the Edge of Town (Live at ICC SAAL 1, Berlin, Germany - April 1996)](https://www.youtube.com/watch?v=1rh5xrkopE4)
 
-[https://www.youtube.com/embed/videoseries?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU](https://www.youtube.com/embed/videoseries?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
+[Watch on Youtube: Born In the USA (Live at ICC SAAL 1, Berlin, Germany - April 1996)](https://www.youtube.com/watch?v=bZtQJMeV9yw)
 
-Bruce brings his World Tour 1993 to Rotterdam for the first of two nights at Sportpaleis Ahoy. Watch the final encore of "" below.
+[Watch on Youtube: Spare Parts (Live at ICC SAAL 1, Berlin, Germany - April 1996)](https://www.youtube.com/watch?v=hlEKiRlJSdc)
 
-**1993:** [Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
+[Watch Video Highlight](https://videopress.com/embed/djUWDP3c?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/9OJC24_OS6k](https://www.youtube.com/embed/9OJC24_OS6k)
+**1999:** At the first of two Reunion shows at the Fila Forum in Milan, fans witness the live debut of “[Where the Bands Are](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/).” “Jungleland” makes its tour debut as well.
 
-is certified 15x multi-platinum by the Recording Industry Association of America.
+[Watch on Youtube: Bruce Springsteen where the bands are Milan 99](https://www.youtube.com/watch?v=DUFmXltd774)
 
-**1995:** *Born in the U.S.A.*
+[Watch on Youtube: Buce Springsteen My Love Will Not Let You Milan 99](https://www.youtube.com/watch?v=gInfbhn9Zmo)
 
-[https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0](https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
+[Watch on Youtube: Bruce Springsteen Mansion On the Hill milan 99](https://www.youtube.com/watch?v=s8H7slVBD-k)
 
-Bruce plays a solo acoustic show in Berlin. Three songs from tonight's show ("," "" and "") will be released on Bruce's EP later in the year.
+[Watch on Youtube: Bruce Springsteen Badlands milan 99](https://www.youtube.com/watch?v=3v51WPrTK5s)
 
-**1996:** [Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)[Spare Parts](http://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)*Missing*
+[Watch on Youtube: Bruce Springsteen & The E Street Band, Jungleland milan 99](https://www.youtube.com/watch?v=nLRHLGQyruQ)
 
-[https://www.youtube.com/embed/1rh5xrkopE4](https://www.youtube.com/embed/1rh5xrkopE4)
+[Watch on Youtube: Bruce Springsteen Hungry Heart Milan 99](https://www.youtube.com/watch?v=FHc1CvoAUUk)
 
-[https://www.youtube.com/embed/bZtQJMeV9yw](https://www.youtube.com/embed/bZtQJMeV9yw)
+[Watch on Youtube: Bruce Springsteen Land Of Hope And Dreams Milan 99](https://www.youtube.com/watch?v=zea6oQnSUDk)
 
-[https://www.youtube.com/embed/hlEKiRlJSdc](https://www.youtube.com/embed/hlEKiRlJSdc)
+**2003:** The Canadian leg of the Rising Tour concludes with a show at Bell Center in Montreal, where “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” makes its tour debut. The set also features a solo piano “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).”
 
-[https://videopress.com/embed/djUWDP3c](https://videopress.com/embed/djUWDP3c)
+[Watch on Youtube: Bruce Springsteen & The E-Street Band - My Love Will Not Let You Down (Live in Montreal)](https://www.youtube.com/watch?v=JnFxl9G1hIw)
 
-At the first of two Reunion shows at the Fila Forum in Milan, fans witness the live debut of "." "Jungleland" makes its tour debut as well.
+[Watch on Youtube: Incident On 57th Street (solo piano) Bruce Springsteen April 19, 2003 Montreal, QC](https://www.youtube.com/watch?v=F9Bnc98emoU)
 
-**1999:** [Where the Bands Are](http://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Out In The Street (Live in Montreal)](https://www.youtube.com/watch?v=1LRT003HCIc)
 
-[https://www.youtube.com/embed/DUFmXltd774](https://www.youtube.com/embed/DUFmXltd774)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2003-04-19.jpg)
 
-[https://www.youtube.com/embed/gInfbhn9Zmo](https://www.youtube.com/embed/gInfbhn9Zmo)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2003-04-19b-rotated.jpg)
 
-[https://www.youtube.com/embed/s8H7slVBD-k](https://www.youtube.com/embed/s8H7slVBD-k)
+**2008:** Bruce reschedules a scheduled show in Orlando due to the passing of Danny Federici.
 
-[https://www.youtube.com/embed/3v51WPrTK5s](https://www.youtube.com/embed/3v51WPrTK5s)
+![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Miami_Herald_Fri__Apr_18__2008_-scaled.jpg)
 
-[https://www.youtube.com/embed/nLRHLGQyruQ](https://www.youtube.com/embed/nLRHLGQyruQ)
+**2014:** Record Store Day is a busy one: Bruce releases a new EP, [*American Beauty*](https://estreetshuffle.com/index.php/2022/02/05/album-companion-american-beauty/), performs [the title track](https://estreetshuffle.com/index.php/2019/02/21/roll-of-the-dice-american-beauty/) at soundcheck in Charlotte, and films it for release a few days later. That night, Bruce stuns the audience by opening with only the second-ever performance of “[Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)” and a cover-filled set that included “[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/),” “[Mustang Sally,](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)” and “[Brown-Eyed Girl](https://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/).” One of my favorite shows. For highlights, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/04/19/where-the-band-was-charlotte-april-19-2014/) from this show.
 
-[https://www.youtube.com/embed/FHc1CvoAUUk](https://www.youtube.com/embed/FHc1CvoAUUk)
+[Watch on Youtube: American Beauty](https://www.youtube.com/playlist?list=OLAK5uy_k70_Le9KRCKkEF_kcPE13iAdPz2NpJER4)
 
-[https://www.youtube.com/embed/zea6oQnSUDk](https://www.youtube.com/embed/zea6oQnSUDk)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Charlotte, NC April 19, 2014 - Iceman](https://www.youtube.com/watch?v=_4rwJ--zjmA)
 
-The Canadian leg of the Rising Tour concludes with a show at Bell Center in Montreal, where "" makes its tour debut. The set also features a solo piano "."
+[Watch on Youtube: Bruce Springsteen "Mustang Sally" Charlotte 4.19.14](https://www.youtube.com/watch?v=rU6p1-aawow)
 
-**2003:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
+[Watch on Youtube: Bruce Springsteen- "The Wall" (Charlotte, NC 04/19/14)](https://www.youtube.com/watch?v=j3m0BXVKPu0)
 
-[https://www.youtube.com/embed/JnFxl9G1hIw](https://www.youtube.com/embed/JnFxl9G1hIw)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2014-04-19-scaled.jpg)
 
-[https://www.youtube.com/embed/F9Bnc98emoU](https://www.youtube.com/embed/F9Bnc98emoU)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/1LRT003HCIc](https://www.youtube.com/embed/1LRT003HCIc)
+**2019:** Director Emilio J. Ruiz releases the trailer for his new movie, *Broken Poet*, featuring cameos by Bruce and Patti.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2003-04-19.jpg?resize=758%2C341&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2003-04-19b.jpg?resize=758%2C1660&amp;ssl=1)
-
-Bruce reschedules a scheduled show in Orlando due to the passing of Danny Federici.
-
-**2008:**<br>
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Miami_Herald_Fri__Apr_18__2008_-scaled.jpg?resize=758%2C387&amp;ssl=1)
-
-Record Store Day is a busy one: Bruce releases a new EP, , performs at soundcheck in Charlotte, and films it for release a few days later. That night, Bruce stuns the audience by opening with only the second-ever performance of "" and a cover-filled set that included "," "" and "." One of my favorite shows. For highlights, see my from this show.
-
-**2014:**[](https://estreetshuffle.com/index.php/2022/02/05/album-companion-american-beauty/)*American Beauty*[the title track](http://estreetshuffle.com/index.php/2019/02/21/roll-of-the-dice-american-beauty/)[Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)[Louie Louie](http://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)[Mustang Sally,](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)[Brown-Eyed Girl](http://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/)[report](http://estreetshuffle.com/index.php/2018/04/19/where-the-band-was-charlotte-april-19-2014/)*Where the Band Was*
-
-[https://www.youtube.com/embed/videoseries?list=OLAK5uy_k70_Le9KRCKkEF_kcPE13iAdPz2NpJER4](https://www.youtube.com/embed/videoseries?list=OLAK5uy_k70_Le9KRCKkEF_kcPE13iAdPz2NpJER4)
-
-[https://www.youtube.com/embed/_4rwJ--zjmA](https://www.youtube.com/embed/_4rwJ--zjmA)
-
-[https://www.youtube.com/embed/rU6p1-aawow](https://www.youtube.com/embed/rU6p1-aawow)
-
-[https://www.youtube.com/embed/j3m0BXVKPu0](https://www.youtube.com/embed/j3m0BXVKPu0)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2014-04-19.jpg?resize=758%2C1126&amp;ssl=1)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Director Emilio J. Ruiz releases the trailer for his new movie, , featuring cameos by Bruce and Patti.
-
-**2019:** *Broken Poet*
-
-[https://player.vimeo.com/video/331402772?dnt=1&amp;app_id=122963](https://player.vimeo.com/video/331402772?dnt=1&amp;app_id=122963)
+[BROKEN POET - TRAILER](https://player.vimeo.com/video/331402772?dnt=1&app_id=122963)

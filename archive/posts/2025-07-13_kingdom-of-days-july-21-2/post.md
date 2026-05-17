@@ -1,90 +1,73 @@
+***New for 2025:** New entry for 2024*
 
-*New entry for 2024***New for 2025:**
+**1973:** Bruce and the E Street Band headline two shows at Max’s Kansas City in New York, with The Wailers opening for them.
 
-Bruce and the E Street Band headline two shows at Max's Kansas City in New York, with The Wailers opening for them.
+![](https://estreetshuffle.com/wp-content/uploads/2019/07/1973-07-19.jpg)
 
-**1973:**<br>
+**1978:** Bruce brings the Darkness Tour to Nashville and plays the earliest known performance of “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/).”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/1973-07-19-182x300.jpg?resize=758%2C1250)
+[Watch on Youtube: Bruce Springsteen - "Factory" - Nashville, 1978-07-21](https://www.youtube.com/watch?v=VRKoRUCKFH8)
 
-Bruce brings the Darkness Tour to Nashville and plays the earliest known performance of "."
+![](https://estreetshuffle.com/wp-content/uploads/2021/07/1978-07-21.png)
 
-**1978:** [Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)
+**1984:** The Born in the U.S.A. Tour starts its Canadian leg with a show at the Montreal Forum.
 
-[https://www.youtube.com/embed/VRKoRUCKFH8](https://www.youtube.com/embed/VRKoRUCKFH8)
+[Watch Video Highlight](https://videopress.com/embed/mQ0tWBPe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1978-07-21.png?resize=758%2C1547&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21c.png)
 
-The Born in the U.S.A. Tour starts its Canadian leg with a show at the Montreal Forum.
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21a.png)
 
-**1984:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21b.png)
 
-[https://videopress.com/embed/mQ0tWBPe](https://videopress.com/embed/mQ0tWBPe)
+**2003:** Night Three of ten at the Rising Tour’s Giants Stadium stand features a special guest star: original E Street Band drummer Vini Lopez takes the drums on “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/).”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21c-137x300.png?resize=758%2C1660)
+[Watch on Youtube: Bruce Springsteen and the E Street Band at Giants Stadium, 2003](https://www.youtube.com/watch?v=SE9VhyFLlCY)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21a-300x241.png?resize=758%2C609)
+[Watch Video Highlight](https://videopress.com/embed/YhPvxRZh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21b-260x300.png?resize=758%2C875)
+**2009:** A stunner of a Working on a Dream show at the Stadio Olimpico in Turin–Bruce opens with the tour premiere of “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” and delights with additional tour premieres of “[Drive All Night,](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” “[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/),” “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/),” “Travelin’ Band,” and “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).”
 
-Night Three of ten at the Rising Tour's Giants Stadium stand features a special guest star: original E Street Band drummer Vini Lopez takes the drums on "."
+[Watch Video Highlight](https://videopress.com/embed/rh2cqQ7y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2003:** [Spirit in the Night](http://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)
+[Watch on Youtube: Bruce Springsteen & the E Street Band - Drive All Night, Torino 21st July 2009](https://www.youtube.com/watch?v=PpuUmRgn8-Q)
 
-[https://www.youtube.com/embed/SE9VhyFLlCY](https://www.youtube.com/embed/SE9VhyFLlCY)
+[Watch on Youtube: Turin 21/07/2009](https://www.youtube.com/playlist?list=PLJTyL9twk3zB01lb7dEjsgb_Lj1bmvwyA)
 
-[https://videopress.com/embed/YhPvxRZh](https://videopress.com/embed/YhPvxRZh)
+**2012:** The Wrecking Ball Tour starts a Scandinavian swing with a show at Valle Hovin Stadion in Oslo. Bruce opens with an acoustic “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/),” tour premieres “[Ain’t Good Enough for You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)” and “[Streets of Fire,](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)” and ends the show with a surprise bonus encore of “[Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/).”
 
-A stunner of a Working on a Dream show at the Stadio Olimpico in Turin–Bruce opens with the tour premiere of "" and delights with additional tour premieres of "" "," "," "Travelin' Band," and "."
+[Watch on Youtube: Bruce Springsteen (live) - Wrecking Ball - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=fSB2ZPD8Tow)
 
-**2009:** [Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)[Drive All Night,](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)[Murder Incorporated](http://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)[My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)[My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
+[Watch on Youtube: Bruce Springsteen (live) - Working On The Highway - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=8hR7blLrfOQ)
 
-[https://videopress.com/embed/rh2cqQ7y](https://videopress.com/embed/rh2cqQ7y)
+[Watch on Youtube: Bruce Springsteen (live) - We Are Alive - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=rpBU-GLkiio)
 
-[https://www.youtube.com/embed/PpuUmRgn8-Q](https://www.youtube.com/embed/PpuUmRgn8-Q)
+[Watch on Youtube: Bruce Springsteen (live) - Glory Days - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=oJ6mVqCqIxQ)
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB01lb7dEjsgb_Lj1bmvwyA](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB01lb7dEjsgb_Lj1bmvwyA)
+[Watch on Youtube: Bruce Springsteen (live) - Night - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=Wej5bdoR1VI)
 
-The Wrecking Ball Tour starts a Scandinavian swing with a show at Valle Hovin Stadion in Oslo. Bruce opens with an acoustic "," tour premieres "" and "" and ends the show with a surprise bonus encore of "."
+[Watch on Youtube: Bruce Springsteen (live) - Rocky Ground - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=buBNGQcuSHE)
 
-**2012:** [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[Ain't Good Enough for You](http://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)[Streets of Fire,](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)[Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/fSB2ZPD8Tow](https://www.youtube.com/embed/fSB2ZPD8Tow)
+[Watch Video Highlight](https://videopress.com/embed/uyHtj0Yc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/8hR7blLrfOQ](https://www.youtube.com/embed/8hR7blLrfOQ)
+**2021:** Bruce releases episode 25 of *From My Home to Yours* on E Street Radio. This episode is entitled “Frat Party.”
 
-[https://www.youtube.com/embed/rpBU-GLkiio](https://www.youtube.com/embed/rpBU-GLkiio)
+[https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3?_=4)
 
-[https://www.youtube.com/embed/oJ6mVqCqIxQ](https://www.youtube.com/embed/oJ6mVqCqIxQ)
+<https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3>
 
-[https://www.youtube.com/embed/Wej5bdoR1VI](https://www.youtube.com/embed/Wej5bdoR1VI)
+**2023:** Bruce and the E Street Band play the same setlist for the third consecutive night when World Tour 2023 arrives in Hockenheim, Germany. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,31095/Bruce-Springsteen-mp3-flac-download-7-21-2023-Hockenheimring-Hockenheim-GERMANY.html).
 
-[https://www.youtube.com/embed/buBNGQcuSHE](https://www.youtube.com/embed/buBNGQcuSHE)
+[Watch on Youtube: Bruce Springsteen - NO SURRENDER (full version) - July 21th, 2023 Hockenheim](https://www.youtube.com/watch?v=2M-hUo_g-W4)
 
-continues its theatrical run at the Walter Kerr Theater in New York City.
+[Watch on Youtube: Bruce Springsteen – Working on the Highway – Live at Hockenheimring 2023](https://www.youtube.com/watch?v=gYkyuVWG85Y)
 
-**2018:** *Springsteen on Broadway*
+[Watch on Youtube: Bruce Springsteen - NIGHTSHIFT (excerpt) - July 21th, 2023 Hockenheim](https://www.youtube.com/watch?v=0R944uPLF8M)
 
-[https://videopress.com/embed/uyHtj0Yc](https://videopress.com/embed/uyHtj0Yc)
+**2024:** On a rainy eve in Bergen, Bruce opens his show with “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/).”
 
-Bruce releases episode 25 of on E Street Radio. This episode is entitled "Frat Party."
+[Watch on Youtube: Bruce Springsteen Bergen Live - Dokken 21 juli 2024 - timelapse and drone shots!](https://www.youtube.com/watch?v=vkClE_ZkDPY)
 
-**2021:** *From My Home to Yours* <https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3>
-
-Bruce and the E Street Band play the same setlist for the third consecutive night when World Tour 2023 arrives in Hockenheim, Germany. This show is available to stream or purchase .
-
-**2023:** [here](https://live.brucespringsteen.net/live-music/0,31095/Bruce-Springsteen-mp3-flac-download-7-21-2023-Hockenheimring-Hockenheim-GERMANY.html)
-
-[https://www.youtube.com/embed/2M-hUo_g-W4](https://www.youtube.com/embed/2M-hUo_g-W4)
-
-[https://www.youtube.com/embed/gYkyuVWG85Y](https://www.youtube.com/embed/gYkyuVWG85Y)
-
-[https://www.youtube.com/embed/0R944uPLF8M](https://www.youtube.com/embed/0R944uPLF8M)
-
-On a rainy eve in Bergen, Bruce opens his show with "."
-
-**2024:** [Waitin' on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)
-
-[https://www.youtube.com/embed/vkClE_ZkDPY](https://www.youtube.com/embed/vkClE_ZkDPY)
-
-[https://www.youtube.com/embed/wEwGSEVAzDo](https://www.youtube.com/embed/wEwGSEVAzDo)
+[Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=wEwGSEVAzDo)

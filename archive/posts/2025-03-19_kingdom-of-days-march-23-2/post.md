@@ -1,118 +1,91 @@
+***New for 2025:** New entry for 1978, 1996, and 2018; audio for 1988; video for 1993*
 
-*New entry for 1978, 1996, and 2018; audio for 1988; video for 1993***New for 2025:**
+**1973:** Bruce opens for Lou Reed at the Palace Concert Theater in Providence.
 
-Bruce opens for Lou Reed at the Palace Concert Theater in Providence.
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0323.jpg)
 
-**1973:**<br>
+**1974:** Bruce plays guest DJ on KDKB-FM in Phoenix, spinning platters for over an hour.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0323-193x300.jpg?resize=758%2C1179)
+**1977:** Night Two in Boston features Bruce’s live premiere of “[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/).”
 
-Bruce plays guest DJ on KDKB-FM in Phoenix, spinning platters for over an hour.
+[Watch on Youtube: Boston (3/23/1977)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1Aq-sMiaBgq2zwKlLwAXQo3)
 
-**1974:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1977-03-23.jpg)
 
-Night Two in Boston features Bruce's live premiere of "."
+**1978:** At the Record Plant in New York City, Bruce completes “Racing in the Street.”
 
-**1977:** [Little Latin Lupe Lu](http://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)
+[Watch on Youtube: Racing in the Street](https://www.youtube.com/watch?v=cm9UuM3UXdc)
 
-[https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1Aq-sMiaBgq2zwKlLwAXQo3](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1Aq-sMiaBgq2zwKlLwAXQo3)
+**1981:** Bruce postpones a scheduled show in Manchester in order to recover from the first two legs of the River Tour.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1977-03-23.jpg?resize=758%2C1430&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
 
-At the Record Plant in New York City, Bruce completes "Racing in the Street."
+**1985:** Bruce and the E Street Band play their second of six nights at the Sydney Entertainment Center, as Rosie returns to the set list for the first time this year.
 
-**1978:**<br>
+[Watch Video Highlight](https://videopress.com/embed/4R9wQY6l?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/cm9UuM3UXdc](https://www.youtube.com/embed/cm9UuM3UXdc)
+**1988:** The second of two nights at The Omni in Atlanta along the Tunnel of Love Express Tour. The set list is largely unremarkable, but the soundcheck is astounding, full of rare covers like “[Crazy Love](https://estreetshuffle.com/index.php/2019/06/27/cover-me-crazy-love/),” “[A Change Is Gonna Come](https://estreetshuffle.com/index.php/2019/02/06/cover-me-a-change-is-gonna-come/),” “[Just Like a Woman](https://estreetshuffle.com/index.php/2018/05/08/cover-me-just-like-a-woman/)” and more–and luckily we have a recording of it (thanks to friend of the blog Chris Nierling).
 
-Bruce postpones a scheduled show in Manchester in order to recover from the first two legs of the River Tour.
+[Watch on Youtube: Bruce Springsteen - Atlanta soundcheck - 1988-03-23](https://www.youtube.com/watch?v=pCaj8fF5U4U)
 
-**1981:**<br>
+[Watch on Youtube: Bruce Springsteen - Little White Lies (Live in Atlanta) (March 23, 1988)](https://www.youtube.com/watch?v=z8Hd5TpbzAE)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1007)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Atlanta, GA 1988-03-23 (NEW SOURCE)](https://www.youtube.com/watch?v=TM1e8Yu-4E0)
 
-Bruce and the E Street Band play their second of six nights at the Sydney Entertainment Center, as Rosie returns to the set list for the first time this year.
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1988-0323.jpg)
 
-**1985:**<br>
+**1993:** Bruce plays a food bank benefit show at the Count Basie Theater in Red Bank before kicking off the next European leg of his 1992-1993 tour. The set list holds an embarrassment of riches: the first “[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)” in 18 years, the live debut of “This Hard Land,” “[Viva Las Vegas](https://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/)” and “[When You’re Alone,](https://estreetshuffle.com/index.php/2020/11/15/roll-of-the-dice-when-youre-alone/)” and only the second-ever performances of “[I Ain’t Got No Home](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)” and “[Janey, Don’t You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” to close the show. All that plus a one-off cover of “[Achy Breaky Heart.](https://estreetshuffle.com/index.php/2020/04/10/cover-me-achy-breaky-heart/)” Watch Bruce soundcheck below.
 
-[https://videopress.com/embed/4R9wQY6l](https://videopress.com/embed/4R9wQY6l)
+[Watch on Youtube: Bruce Springsteen Red Bank Rehearsal 23rd March 1993, Count Basie Theater, Red Bank, NJ](https://www.youtube.com/watch?v=2lfIHGtB5wE)
 
-The second of two nights at The Omni in Atlanta along the Tunnel of Love Express Tour. The set list is largely unremarkable, but the soundcheck is astounding, full of rare covers like "," "," "" and more–and luckily we have a recording of it (thanks to friend of the blog Chris Nierling).
+[Watch on Youtube: Bruce Springsteen - Soul Driver (rehearsal)](https://www.youtube.com/watch?v=ziVw8itIXVU)
 
-**1988:** [Crazy Love](http://estreetshuffle.com/index.php/2019/06/27/cover-me-crazy-love/)[A Change Is Gonna Come](http://estreetshuffle.com/index.php/2019/02/06/cover-me-a-change-is-gonna-come/)[Just Like a Woman](http://estreetshuffle.com/index.php/2018/05/08/cover-me-just-like-a-woman/)
+[Watch on Youtube: Bruce Springsteen - ACHY BREAKY HEART 1993 (audio)](https://www.youtube.com/watch?v=vdcKiLSFVOY)
 
-[https://www.youtube.com/embed/pCaj8fF5U4U](https://www.youtube.com/embed/pCaj8fF5U4U)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1993-03-23.png)
 
-[https://www.youtube.com/embed/z8Hd5TpbzAE](https://www.youtube.com/embed/z8Hd5TpbzAE)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1993-03-23a.jpg)
 
-[https://www.youtube.com/embed/TM1e8Yu-4E0](https://www.youtube.com/embed/TM1e8Yu-4E0)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1993-03-23b.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1988-0323-300x224.jpg?resize=758%2C565)
+**1996:** Bruce’s scheduled show in London is postponed until the following month so that he can perform at this year’s Oscar ceremony.
 
-Bruce plays a food bank benefit show at the Count Basie Theater in Red Bank before kicking off the next European leg of his 1992-1993 tour. The set list holds an embarrassment of riches: the first "" in 18 years, the live debut of "This Hard Land," "" and "" and only the second-ever performances of "" and "" to close the show. All that plus a one-off cover of "" Watch Bruce soundcheck below.
+![](https://estreetshuffle.com/wp-content/uploads/2025/03/19960322_Press_01_Reschedule.jpg)
 
-**1993:** [Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)[Viva Las Vegas](http://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/)[When You're Alone,](https://estreetshuffle.com/index.php/2020/11/15/roll-of-the-dice-when-youre-alone/)[I Ain't Got No Home](http://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)[Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)[Achy Breaky Heart.](https://estreetshuffle.com/index.php/2020/04/10/cover-me-achy-breaky-heart/)
+**2009:** Live premieres galore (six album tracks and two covers, including “[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)” with John Eddie) at the first rehearsal show for the Working on a Dream Tour at Asbury Park’s Convention Hall, as the E Street Band embarks on a six-year growth spurt with the addition of Curtis King, Cindy Mizelle, and part-timer Jay Weinberg. Surprisingly, Bruce will drop most of his new material from the set list *very* early in the tour, so these early shows feature rare opportunities to hear them live.
 
-[https://www.youtube.com/embed/2lfIHGtB5wE?start=872&amp;feature=oembed](https://www.youtube.com/embed/2lfIHGtB5wE?start=872&amp;feature=oembed)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Rehearsal Show In Asbury Park - 2009-03-23 - Pro Shot](https://www.youtube.com/watch?v=LKsdT3P_DH4)
 
-[https://www.youtube.com/embed/ziVw8itIXVU](https://www.youtube.com/embed/ziVw8itIXVU)
+[Watch on Youtube: Bruce Springsteen - My Lucky Day](https://www.youtube.com/watch?v=ChJzpKOCIt4)
 
-[https://www.youtube.com/embed/vdcKiLSFVOY](https://www.youtube.com/embed/vdcKiLSFVOY)
+[Watch on Youtube: Bruce Springsteen - Mustang Sally (With John Eddie) (2009-03-23)](https://www.youtube.com/watch?v=SQhr9EGXP1E)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-23.png?resize=758%2C1006&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/2009-03-23a.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1993-03-23a-216x300.jpg?resize=758%2C1052)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2009-03-23b.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1993-03-23b-300x138.jpg?resize=758%2C349)
+**2012:** The Wrecking Ball Tour moves on to Tampa, with a surprising number of set list change-ups and wild cards for this early in the tour. Most notable: the E Street Band premiere of “[Talk to Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/).” Bruce and Patti are adorable in this fantastic close-up clip:
 
-Bruce's scheduled show in London is postponed until the following month so that he can perform at this year's Oscar ceremony.
+[Watch on Youtube: Talk to Me - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=O3vJ2-IZqME)
 
-**1996:**<br>
+[Watch on Youtube: We Take Care of Our Own - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=31tgD-JVpIc)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/19960322_Press_01_Reschedule.jpg?resize=500%2C751&amp;ssl=1)
+[Watch on Youtube: Easy Money - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=7lzRDbg_6IQ)
 
-Live premieres galore (six album tracks and two covers, including "" with John Eddie) at the first rehearsal show for the Working on a Dream Tour at Asbury Park's Convention Hall, as the E Street Band embarks on a six-year growth spurt with the addition of Curtis King, Cindy Mizelle, and part-timer Jay Weinberg. Surprisingly, Bruce will drop most of his new material from the set list early in the tour, so these early shows feature rare opportunities to hear them live.
+[Watch on Youtube: "American Skin (41 Shots)" Live in Tampa, FL 03/23/12](https://www.youtube.com/watch?v=nghqjBwZTiE)
 
-**2009:** [Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)*very*
+[Watch on Youtube: Rocky Ground - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=iLuJ65NLMT4)
 
-[https://www.youtube.com/embed/LKsdT3P_DH4](https://www.youtube.com/embed/LKsdT3P_DH4)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2012-03-23a.jpg)
 
-[https://www.youtube.com/embed/ChJzpKOCIt4](https://www.youtube.com/embed/ChJzpKOCIt4)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/2012-03-23b.jpg)
 
-[https://www.youtube.com/embed/SQhr9EGXP1E](https://www.youtube.com/embed/SQhr9EGXP1E)
+**2018:** *Springsteen on Broadway* continues its Broadway run at the Walter Kerr Theater in New York City.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2009-03-23a.jpg?resize=434%2C2959&amp;ssl=1)
+**2023:** Bruce and the E Street Band bring their World Tour to the Keybank Center in Buffalo.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2009-03-23b-300x157.jpg?resize=758%2C397)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Trapped - Buffalo, NY 3/23/23](https://www.youtube.com/watch?v=anheQ4NAjR8)
 
-The Wrecking Ball Tour moves on to Tampa, with a surprising number of set list change-ups and wild cards for this early in the tour. Most notable: the E Street Band premiere of "." Bruce and Patti are adorable in this fantastic close-up clip:
+[Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=qJTpxUJ6mRE)
 
-**2012:** [Talk to Me](http://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)
-
-[https://www.youtube.com/embed/O3vJ2-IZqME](https://www.youtube.com/embed/O3vJ2-IZqME)
-
-[https://www.youtube.com/embed/31tgD-JVpIc](https://www.youtube.com/embed/31tgD-JVpIc)
-
-[https://www.youtube.com/embed/7lzRDbg_6IQ](https://www.youtube.com/embed/7lzRDbg_6IQ)
-
-[https://www.youtube.com/embed/nghqjBwZTiE](https://www.youtube.com/embed/nghqjBwZTiE)
-
-[https://www.youtube.com/embed/iLuJ65NLMT4](https://www.youtube.com/embed/iLuJ65NLMT4)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-23a-262x300.jpg?resize=758%2C868)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2012-03-23b.jpg?resize=758%2C1088&amp;ssl=1)
-
-continues its Broadway run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Bruce and the E Street Band bring their World Tour to the Keybank Center in Buffalo.
-
-**2023:**<br>
-
-[https://www.youtube.com/embed/anheQ4NAjR8](https://www.youtube.com/embed/anheQ4NAjR8)
-
-[https://www.youtube.com/embed/qJTpxUJ6mRE](https://www.youtube.com/embed/qJTpxUJ6mRE)
-
-[https://www.youtube.com/embed/9CHbSU4XCwM](https://www.youtube.com/embed/9CHbSU4XCwM)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Band Introductions - Buffalo, New York - March 23, 2023](https://www.youtube.com/watch?v=9CHbSU4XCwM)

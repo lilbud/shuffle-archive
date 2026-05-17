@@ -1,136 +1,105 @@
+**1976:** Four days before Bruce’s scheduled show at Auburn University, Bruce makes an unannounced visit to the campus… or does he? (h/t Bud McLaughlin)
 
-Four days before Bruce's scheduled show at Auburn University, Bruce makes an unannounced visit to the campus… or does he? (h/t Bud McLaughlin)
+[Watch on Youtube: It's Pronounced Jordan: That time Bruce Springsteen didn't hang out on Auburn's campus](https://www.youtube.com/watch?v=mG2oL2ONmvc)
 
-**1976:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1976-05-07.jpg)
 
-[https://www.youtube.com/embed/mG2oL2ONmvc?start=11&amp;feature=oembed](https://www.youtube.com/embed/mG2oL2ONmvc?start=11&amp;feature=oembed)
+**1980:** At a mixing station for *The River* at Clover Studios in Los Angeles, Bruce and team complete the mix for “I Wanna Marry You.”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1976-05-07.jpg?resize=581%2C908&amp;ssl=1)
+[Watch on Youtube: I Wanna Marry You](https://www.youtube.com/watch?v=6ZYsaQyOHD0)
 
-At a mixing station for at Clover Studios in Los Angeles, Bruce and team complete the mix for "I Wanna Marry You."
+**1981:** Bruce and the E Street Band play their first of two nights at Johanneshovs Isstadion in Stockholm.
 
-**1980:** *The River*
+[Watch on Youtube: Bruce Springsteen - 1981-05-07 - Stockholm, Sweden](https://www.youtube.com/watch?v=WskRlbSBWuU)
 
-[https://www.youtube.com/embed/6ZYsaQyOHD0](https://www.youtube.com/embed/6ZYsaQyOHD0)
+**1982:** Bruce and the E Street Band work on “My Love Will Not Let You Down” at the Power Station in New York City.
 
-Bruce and the E Street Band play their first of two nights at Johanneshovs Isstadion in Stockholm.
+**1984:** Bruce and the E Street Band rehearse for the Born in the U.S.A. Tour at what was once Big Man’s West.
 
-**1981:**<br>
+**1992:** Bruce appears in a commercial with Tom Hanks to promote his upcoming appearance on *Saturday Night Live*.
 
-[https://www.youtube.com/embed/WskRlbSBWuU](https://www.youtube.com/embed/WskRlbSBWuU)
+[Watch on Youtube: Saturday Night Live Promo 1992](https://www.youtube.com/watch?v=Eh6vxRrjnv4)
 
-Bruce and the E Street Band work on "My Love Will Not Let You Down" at the Power Station in New York City.
+**1993:** Bruce’s mini-tour of Spain continues with a show in Gijon, featuring the tour premiere of “Across the Borderline” (with its final verse in Spanish).
 
-**1982:**<br>
+[Watch on Youtube: 57 Channels (and nothing on) Bruce Springsteen live in Gijon, May 93](https://www.youtube.com/watch?v=p3uQfHSFNzw)
 
-Bruce and the E Street Band rehearse for the Born in the U.S.A. Tour at what was once Big Man's West.
+[Watch on Youtube: Badlands, Bruce Springsteen, Estadio Municipal El Molinon, Gijon, May 7 1993](https://www.youtube.com/watch?v=ideieXHjajI)
 
-**1984:**<br>
+[Watch on Youtube: BRUCE SPRINGSTEEN Leap of Faith (GIJON Estadio El Molinon 07-05-1993)](https://www.youtube.com/watch?v=pK5WIPK8-CY)
 
-Bruce appears in a commercial with Tom Hanks to promote his upcoming appearance on .
+[Watch on Youtube: Bruce Springsteen - Light of Day (full version Live in Gijon 93)](https://www.youtube.com/watch?v=WPvDauwS4iA)
 
-**1992:** *Saturday Night Live*
+[Watch on Youtube: Bruce Springsteen - Across The Borderline](https://www.youtube.com/watch?v=H3qIgQ5Rurg)
 
-[https://www.youtube.com/embed/Eh6vxRrjnv4](https://www.youtube.com/embed/Eh6vxRrjnv4)
+[Watch on Youtube: Bruce Springsteen - Workin on the Highway (Live in Gijon 93)](https://www.youtube.com/watch?v=C2uCFVrl_jw)
 
-Bruce's mini-tour of Spain continues with a show in Gijon, featuring the tour premiere of "Across the Borderline" (with its final verse in Spanish).
+**1996:** Bruce performs his second of two solo acoustic shows at Teatro Tivoli in Barcelona.
 
-**1993:**<br>
+[https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3?_=4)
 
-[https://www.youtube.com/embed/p3uQfHSFNzw](https://www.youtube.com/embed/p3uQfHSFNzw)
+<https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3>
 
-[https://www.youtube.com/embed/ideieXHjajI](https://www.youtube.com/embed/ideieXHjajI)
+**1997:** On Night Two in Vienna during Bruce’s first-ever tour stop in Austria, Patti makes a guest appearance in the encores, joining Bruce on “Two Hearts.”
 
-[https://www.youtube.com/embed/pK5WIPK8-CY](https://www.youtube.com/embed/pK5WIPK8-CY)
+[Watch Video Highlight](https://videopress.com/embed/vUOwcBfv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/WPvDauwS4iA](https://www.youtube.com/embed/WPvDauwS4iA)
+**2000:** Bruce brings the Reunion Tour to Hartford for the first of two nights.
 
-[https://www.youtube.com/embed/H3qIgQ5Rurg](https://www.youtube.com/embed/H3qIgQ5Rurg)
+[Watch Video Highlight](https://videopress.com/embed/owthSofs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/C2uCFVrl_jw](https://www.youtube.com/embed/C2uCFVrl_jw)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2000-05-07.jpg)
 
-Bruce performs his second of two solo acoustic shows at Teatro Tivoli in Barcelona.
+**2005:** At his solo acoustic show in Denver, Bruce plays the tour debut of “The Promise.”
 
-**1996:** <https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3>
+[Watch Video Highlight](https://videopress.com/embed/NWEGes7W?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-On Night Two in Vienna during Bruce's first-ever tour stop in Austria, Patti makes a guest appearance in the encores, joining Bruce on "Two Hearts."
+**2006:** The Seeger Sessions Tour picks up steam in Manchester with the live premiere of “[How Can I Keep From Singing](https://estreetshuffle.com/index.php/2019/11/21/cover-me-how-can-i-keep-from-singing/)” and the tour debut of the “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)/[Mystery Train](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)” mash-up.
 
-**1997:**<br>
+[Watch Video Highlight](https://videopress.com/embed/iHzc5aGI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/vUOwcBfv](https://videopress.com/embed/vUOwcBfv)
+**2008:** Bruce and the E Street Band (with guests The Mighty Max Horns) play a benefit show at and for the Count Basie Theater in Red Bank, New Jersey. For the very first time, Bruce plays an album in sequence–two, in fact: *Darkness on the Edge of Town* and *Born to Run*.
 
-Bruce brings the Reunion Tour to Hartford for the first of two nights.
+[Watch Video Highlight](https://videopress.com/embed/Zz6MlGoC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2000:**<br>
+[Watch Video Highlight](https://videopress.com/embed/AUI2bQ57?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/owthSofs](https://videopress.com/embed/owthSofs)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2008-05-07a.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-05-07.jpg?resize=638%2C958&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2008-05-07b.jpg)
 
-At his solo acoustic show in Denver, Bruce plays the tour debut of "The Promise."
+**2009:** Bruce plays the tour premiere of “Louie Louie” at the Air Canada Center in Toronto on the Working on a Dream Tour.
 
-**2005:**<br>
+[Watch Video Highlight](https://videopress.com/embed/BEpViGto?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/NWEGes7W](https://videopress.com/embed/NWEGes7W)
+[Watch on Youtube: Louie Louie - Bruce Springsteen Toronto 05-07-09](https://www.youtube.com/watch?v=dHFAS5CcUVY)
 
-The Seeger Sessions Tour picks up steam in Manchester with the live premiere of "" and the tour debut of the "/" mash-up.
+[Watch on Youtube: E Street Shuffle - Toronto, May 7, 2009 - Bruce Springsteen](https://www.youtube.com/watch?v=3LRO9aIZi38)
 
-**2006:** [How Can I Keep From Singing](http://estreetshuffle.com/index.php/2019/11/21/cover-me-how-can-i-keep-from-singing/)[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Mystery Train](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2009-05-07.jpg)
 
-[https://videopress.com/embed/iHzc5aGI](https://videopress.com/embed/iHzc5aGI)
+**2013:** At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce and the band play “Brilliant Disguise” for the first time on the tour and open the encores with a rare “Queen of the Supermarket.”
 
-Bruce and the E Street Band (with guests The Mighty Max Horns) play a benefit show at and for the Count Basie Theater in Red Bank, New Jersey. For the very first time, Bruce plays an album in sequence–two, in fact: and .
+[Watch on Youtube: Bruce Springsteen 2013-05-07 Turku - My Lucky Day](https://www.youtube.com/watch?v=QuKwfdLA4gQ)
 
-**2008:** *Darkness on the Edge of Town**Born to Run*
+[Watch on Youtube: Bruce Springsteen 2013-05-07 Turku - From Small Things (Big Things One Day Come)](https://www.youtube.com/watch?v=D4ryh1r2fsA)
 
-[https://videopress.com/embed/Zz6MlGoC](https://videopress.com/embed/Zz6MlGoC)
+[Watch on Youtube: Bruce Springsteen 2013-05-07 Turku - Brilliant Disguise](https://www.youtube.com/watch?v=EF_iXjyeXMM)
 
-[https://videopress.com/embed/AUI2bQ57](https://videopress.com/embed/AUI2bQ57)
+[Watch on Youtube: Bruce Springsteen 2013-05-07 Turku - Queen Of The Supermarket](https://www.youtube.com/watch?v=IEzGTq49Gls)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-07a.jpg?resize=758%2C186&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen 2013-05-07 Turku - Pink Cadillac](https://www.youtube.com/watch?v=gXElNNsFvPM)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-05-07b.jpg?resize=758%2C381&amp;ssl=1)
+**2014:** Bruce and Patti fly to Los Angeles for the USC Shoah Foundation’s Ambassadors for Humanity gala, where Bruce performs “The Promised Land” and “Dancing in the Dark.”
 
-Bruce plays the tour premiere of "Louie Louie" at the Air Canada Center in Toronto on the Working on a Dream Tour.
+[Watch on Youtube: BRUCE SPRINGSTEEN - "The Promised Land" Live At USC Shoah Foundation Gala 5/7/2014](https://www.youtube.com/watch?v=sRHdTW95P_A)
 
-**2009:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2014-05-07.jpg)
 
-[https://videopress.com/embed/BEpViGto](https://videopress.com/embed/BEpViGto)
+**2023:** Bruce and the E Street Band play their second of three shows at RDS Arena in Dublin.
 
-[https://www.youtube.com/embed/dHFAS5CcUVY](https://www.youtube.com/embed/dHFAS5CcUVY)
+[Watch on Youtube: Bruce Springsteen live, Death to my Hometown, Dublin May 7 2023](https://www.youtube.com/watch?v=dh7XP_cIJ7E)
 
-[https://www.youtube.com/embed/3LRO9aIZi38](https://www.youtube.com/embed/3LRO9aIZi38)
+[Watch on Youtube: BRUCE SPRINGSTEEN - Pay Me My Money Down - Dublin RDS Arena - 2023-05-07](https://www.youtube.com/watch?v=0_D5_4Em6Jg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2009-05-07.jpg?resize=758%2C279&amp;ssl=1)
-
-At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce and the band play "Brilliant Disguise" for the first time on the tour and open the encores with a rare "Queen of the Supermarket."
-
-**2013:**<br>
-
-[https://www.youtube.com/embed/QuKwfdLA4gQ](https://www.youtube.com/embed/QuKwfdLA4gQ)
-
-[https://www.youtube.com/embed/D4ryh1r2fsA](https://www.youtube.com/embed/D4ryh1r2fsA)
-
-[https://www.youtube.com/embed/EF_iXjyeXMM](https://www.youtube.com/embed/EF_iXjyeXMM)
-
-[https://www.youtube.com/embed/IEzGTq49Gls](https://www.youtube.com/embed/IEzGTq49Gls)
-
-[https://www.youtube.com/embed/gXElNNsFvPM](https://www.youtube.com/embed/gXElNNsFvPM)
-
-Bruce and Patti fly to Los Angeles for the USC Shoah Foundation's Ambassadors for Humanity gala, where Bruce performs "The Promised Land" and "Dancing in the Dark."
-
-**2014:**<br>
-
-[https://www.youtube.com/embed/sRHdTW95P_A](https://www.youtube.com/embed/sRHdTW95P_A)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2014-05-07.jpg?resize=426%2C964&amp;ssl=1)
-
-Bruce and the E Street Band play their second of three shows at RDS Arena in Dublin.
-
-**2023:**<br>
-
-[https://www.youtube.com/embed/dh7XP_cIJ7E](https://www.youtube.com/embed/dh7XP_cIJ7E)
-
-[https://www.youtube.com/embed/0_D5_4Em6Jg](https://www.youtube.com/embed/0_D5_4Em6Jg)
-
-[https://www.youtube.com/embed/qhA_85QqC5o](https://www.youtube.com/embed/qhA_85QqC5o)
+[Watch on Youtube: BRUCE SPRINGSTEEN - Backstreets - RDS Arena - 2023-05-07](https://www.youtube.com/watch?v=qhA_85QqC5o)

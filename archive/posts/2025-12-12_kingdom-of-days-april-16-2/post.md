@@ -1,82 +1,57 @@
+![](https://estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G1-1-scaled.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G1-1-scaled.jpg?resize=758%2C1084&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3-1-scaled.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3-1-scaled.jpg?resize=758%2C1083&amp;ssl=1)
+**1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
-Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1971-04-16.jpg)
 
-**1971:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1971-0416.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1971-04-16.jpg?resize=758%2C456&amp;ssl=1)
+**1976:** Bruce and the E Street Band play Allegheny College in Meadville, Pennsylvania. The school paper pans the concert *twice* by two different reviewers.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1971-0416.jpg?resize=701%2C800&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1976-0416.jpg)
 
-Bruce and the E Street Band play Allegheny College in Meadville, Pennsylvania. The school paper pans the concert by two different reviewers.
+**1981:** The River Tour continues its European leg with a show in Munich, where “The Ties That Bind” receives its first European performance. Guest blogger Dan French was at this show; read part two of his epic E Street adventure [here](https://estreetshuffle.com/index.php/2021/04/16/where-the-band-was-munich-april-16-1981-dans-story/).
 
-**1976:** *twice*
+[Watch Video Highlight](https://videopress.com/embed/r86O6U5P?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0416.jpg?resize=757%2C800&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/IahVMWyt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-The River Tour continues its European leg with a show in Munich, where "The Ties That Bind" receives its first European performance. Guest blogger Dan French was at this show; read part two of his epic E Street adventure .
+**1982:** Bruce joins Clarence Clemons and the Red Bank Rockers for “Tenth Avenue Freeze-Out” at Big Man’s West.
 
-**1981:** [here](https://estreetshuffle.com/index.php/2021/04/16/where-the-band-was-munich-april-16-1981-dans-story/)
+**1983:** Bruce works on “Unsatisfied Heart” at his home studio in Los Angeles.
 
-[https://videopress.com/embed/r86O6U5P](https://videopress.com/embed/r86O6U5P)
+**1985:** The final night of five in Tokyo on the Born in the U.S.A. Tour.
 
-[https://videopress.com/embed/IahVMWyt](https://videopress.com/embed/IahVMWyt)
+[Watch Video Highlight](https://videopress.com/embed/IW12P88W?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce joins Clarence Clemons and the Red Bank Rockers for "Tenth Avenue Freeze-Out" at Big Man's West.
+**1993:** At Night Two in Sheffield, Bruce honors a request and plays a one-off (for the tour) acoustic “Point Blank.” It’s a lovely, unique arrangement and very worth a listen.
 
-**1982:**<br>
+[Watch Video Highlight](https://videopress.com/embed/uFt2pexl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce works on "Unsatisfied Heart" at his home studio in Los Angeles.
+**1996:** Bruce plays the first of two shows at Royal Albert Hall in London and premieres the dubious classic, “Pilgrim in the Temple of Love.” This show was rescheduled from its original scheduled date in March.
 
-**1983:**<br>
+[Watch Video Highlight](https://videopress.com/embed/xlOP1Ixx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-The final night of five in Tokyo on the Born in the U.S.A. Tour.
+**2008:** Bruce endorses Senator Barack Obama for president of the United States in an endorsement on his web site. Later, at Sloan-Kettering Hospital in New York City, Bruce and the E Street Band gather at the bedside of ailing bandmate Danny Federici to say their final goodbyes and sing together one last time.
 
-**1985:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2008-04-16.jpg)
 
-[https://videopress.com/embed/IW12P88W](https://videopress.com/embed/IW12P88W)
+**2009:** At Night Two at the L.A. Sports Arena, Mike Ness guest stars on “Bad Luck” and “The Rising.” Making their tour debuts: “Candy’s Room,” “Adam Raised a Cain,” “Proud Mary,” “Hungry Heart,” and “Backstreets.”
 
-At Night Two in Sheffield, Bruce honors a request and plays a one-off (for the tour) acoustic "Point Blank." It's a lovely, unique arrangement and very worth a listen.
+[Watch on Youtube: Bruce Springsteen - Bad Luck - Live from Los Angeles - With Mike Ness from Social Distortion - 2009](https://www.youtube.com/watch?v=NCHI_PBXRvk)
 
-**1993:**<br>
+[Watch on Youtube: Bruce Springsteen "Adam Raised A Cain" 4/16/09 Los Angeles Sports Arena](https://www.youtube.com/watch?v=_Ak-xNSsbzw)
 
-[https://videopress.com/embed/uFt2pexl](https://videopress.com/embed/uFt2pexl)
+[Watch on Youtube: BRUCE SPRINGSTEEN DOES BACKSTREETS APRIL 16, 2009 LOS ANGELES SPORTS ARENA](https://www.youtube.com/watch?v=x8RqRx7ftd0)
 
-Bruce plays the first of two shows at Royal Albert Hall in London and premieres the dubious classic, "Pilgrim in the Temple of Love." This show was rescheduled from its original scheduled date in March.
+**2012:** Albany’s Wrecking Ball show includes a rare, solo acoustic “Janey, Don’t You Lose Heart,” played by request, and the tour premieres of “Downbound Train” and “Darlington County.” Watch the entire show below.
 
-**1996:**<br>
+[Watch Video Highlight](https://videopress.com/embed/QeL22Nwg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/xlOP1Ixx](https://videopress.com/embed/xlOP1Ixx)
+[Watch Video Highlight](https://videopress.com/embed/c0DmZePn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce endorses Senator Barack Obama for president of the United States in an endorsement on his web site. Later, at Sloan-Kettering Hospital in New York City, Bruce and the E Street Band gather at the bedside of ailing bandmate Danny Federici to say their final goodbyes and sing together one last time.
+**2013:** Bruce, Patti, and Little Steven attend opening night of *The Rascals: Once Upon a Dream* on Broadway.
 
-**2008:**<br>
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-04-16.jpg?resize=758%2C820&amp;ssl=1)
-
-At Night Two at the L.A. Sports Arena, Mike Ness guest stars on "Bad Luck" and "The Rising." Making their tour debuts: "Candy's Room," "Adam Raised a Cain," "Proud Mary," "Hungry Heart," and "Backstreets."
-
-**2009:**<br>
-
-[https://www.youtube.com/embed/NCHI_PBXRvk](https://www.youtube.com/embed/NCHI_PBXRvk)
-
-[https://www.youtube.com/embed/_Ak-xNSsbzw](https://www.youtube.com/embed/_Ak-xNSsbzw)
-
-[https://www.youtube.com/embed/x8RqRx7ftd0](https://www.youtube.com/embed/x8RqRx7ftd0)
-
-Albany's Wrecking Ball show includes a rare, solo acoustic "Janey, Don't You Lose Heart," played by request, and the tour premieres of "Downbound Train" and "Darlington County." Watch the entire show below.
-
-**2012:**<br>
-
-[https://videopress.com/embed/QeL22Nwg](https://videopress.com/embed/QeL22Nwg)
-
-[https://videopress.com/embed/c0DmZePn](https://videopress.com/embed/c0DmZePn)
-
-Bruce, Patti, and Little Steven attend opening night of on Broadway.
-
-**2013:** *The Rascals: Once Upon a Dream*
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/medium-4.jpg?resize=500%2C333&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/04/medium-4.jpg)

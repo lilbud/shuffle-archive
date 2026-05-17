@@ -1,16 +1,11 @@
+***New for 2025:** No updates*
 
-*No updates***New for 2025:**
+**1964:** Adele Springsteen delights her fifteen -year-old son Bruce on Christmas morning, presenting him with a brand-new Japanese electric guitar and amplifier. Decades later, Bruce will retell the tale in “[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/).”
 
-Adele Springsteen delights her fifteen -year-old son Bruce on Christmas morning, presenting him with a brand-new Japanese electric guitar and amplifier. Decades later, Bruce will retell the tale in "."
+![](https://estreetshuffle.com/wp-content/uploads/2018/10/1stguitar.jpg)
 
-**1964:** [The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)
+[Watch on Youtube: The Wish (Studio Outtake - 1987)](https://www.youtube.com/watch?v=KgkOPd5nHJk)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1stguitar-202x300.jpg?resize=758%2C1125)
+**1986:** MTV airs a segment on Bruce during their year in review recap.
 
-[https://www.youtube.com/embed/KgkOPd5nHJk](https://www.youtube.com/embed/KgkOPd5nHJk)
-
-MTV airs a segment on Bruce during their year in review recap.
-
-**1986:**<br>
-
-[https://www.youtube.com/embed/6utss3VmnNg](https://www.youtube.com/embed/6utss3VmnNg)
+[Watch on Youtube: MTV - The Year in Bruce Springsteen - 1986-12-25](https://www.youtube.com/watch?v=6utss3VmnNg)

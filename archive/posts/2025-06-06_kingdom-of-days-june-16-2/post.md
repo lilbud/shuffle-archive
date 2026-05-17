@@ -1,132 +1,97 @@
+***New for 2025:** New entry for 1977; video for 2023*
 
-*New entry for 1977; video for 2023***New for 2025:**
+**1949:** Steel Mill member Robbin Thompson is born.
 
-Steel Mill member Robbin Thompson is born.
+![](https://estreetshuffle.com/wp-content/uploads/2018/06/robbin.jpg)
 
-**1949:**<br>
+**1974:** Under record label pressure to release a new single, Bruce cancels a scheduled performance at Houston’s Music Hall.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/robbin-300x180.jpg?resize=758%2C456)
+**1977:** Bruce and the E Street Band work on material for their upcoming album at Atlantic Studios in New York City. Listen to their early cut of “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” from this session below.
 
-Under record label pressure to release a new single, Bruce cancels a scheduled performance at Houston's Music Hall.
+[Watch on Youtube: Bruce Springsteen Drive All Night #1 Original Version](https://www.youtube.com/watch?v=uFm3Y9-BYIs)
 
-**1974:**<br>
+**1978:** [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)is certified gold by the Recording Industry Association of America. That evening, Bruce and the E Street Band bring the Darkness Tour to Memorial Hall in Kansas City.
 
-Bruce and the E Street Band work on material for their upcoming album at Atlantic Studios in New York City. Listen to their early cut of "" from this session below.
+[Watch Video Highlight](https://videopress.com/embed/MGKx3kdr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1977:** [Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/06/1978-06-16.jpg)
 
-[https://www.youtube.com/embed/uFm3Y9-BYIs](https://www.youtube.com/embed/uFm3Y9-BYIs)
+**1983:** At The Hit Factory in New York City, Bruce records both “[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)” and “[Janey Don’t You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/).”
 
-is certified gold by the Recording Industry Association of America. That evening, Bruce and the E Street Band bring the Darkness Tour to Memorial Hall in Kansas City.
+[Watch on Youtube: Stand On It (Single B-Side - 1985)](https://www.youtube.com/watch?v=8CxaXbCEYzE)
 
-**1978:** [https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness on the Edge of Town*
+**1988**: Bruce and the E Street Band play their second of two nights at Stadio Flaminio in Rome. “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” makes its tour debut, as the Tunnel of Love Tour set lists begin morphing away from the album.
 
-[https://videopress.com/embed/MGKx3kdr](https://videopress.com/embed/MGKx3kdr)
+[Watch Video Highlight](https://videopress.com/embed/Ec4vKeYf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1978-06-16-300x168.jpg?resize=758%2C424)
+[Watch on Youtube: Bruce Springsteen Rome 16/06/1988 Full Concert](https://www.youtube.com/watch?v=44AasCX75Z0)
 
-At The Hit Factory in New York City, Bruce records both "" and "."
+**2003:** Bruce and the E Street Band play their first-ever show in Finland on this first of two nights at Olympiastadion in Helsinki. Before the show, Stevie sits down for an interview with Tomi Lindblom. This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,20275/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-16-2003-Olympiastadion-Helsinki-FI.html).
 
-**1983:** [Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)[Janey Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)
+[Watch on Youtube: Little Steven interview by Tomi Lindblom (2003) / Finland](https://www.youtube.com/watch?v=vgXUcM5065g)
 
-[https://www.youtube.com/embed/8CxaXbCEYzE](https://www.youtube.com/embed/8CxaXbCEYzE)
+[Watch on Youtube: Lonesome Day (Live at Olympiastadion, Helsinki, Finland- 6/16/2003)](https://www.youtube.com/watch?v=FESX21tP_Hk)
 
-: Bruce and the E Street Band play their second of two nights at Stadio Flaminio in Rome. "" makes its tour debut, as the Tunnel of Love Tour set lists begin morphing away from the album.
+[Watch on Youtube: Bruce Springsteen "You're Missing" Live in Helsinki from June 16, 2003](https://www.youtube.com/watch?v=8d-aV9tT2Fo)
 
-**1988**[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
+[Watch on Youtube: Waitin' on a Sunny Day (Live at Olympiastadion, Helsinki, Finland - 06/16/03 - Official...](https://www.youtube.com/watch?v=xUaJ9Ezyeo8)
 
-[https://videopress.com/embed/Ec4vKeYf](https://videopress.com/embed/Ec4vKeYf)
+**2004:** Patti Scialfa makes a guest appearance on *Late Night With Conan O’Brien* in support of her new album, *23rd Street Lullaby*. Watch the rehearsals and full performance below.
 
-[https://www.youtube.com/embed/44AasCX75Z0?start=1&amp;feature=oembed](https://www.youtube.com/embed/44AasCX75Z0?start=1&amp;feature=oembed)
+[Watch Video Highlight](https://videopress.com/embed/D7F2dU9X?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the E Street Band play their first-ever show in Finland on this first of two nights at Olympiastadion in Helsinki. Before the show, Stevie sits down for an interview with Tomi Lindblom. This show is available for purchase as part of Bruce's official archive series–get it .
+[Watch Video Highlight](https://videopress.com/embed/8DUOtFWl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2003:** [here](http://live.brucespringsteen.net/live-music/0,20275/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-16-2003-Olympiastadion-Helsinki-FI.html)
+**2005:** The Devils & Dust Tour finishes its German leg with a show at Philipshalle in Dusseldorf. Bruce tour premieres “[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/),” “[I Wish I Were Blind,](https://estreetshuffle.com/index.php/2021/10/17/roll-of-the-dice-i-wish-i-were-blind/)” and “[Mary’s Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/).”
 
-[https://www.youtube.com/embed/vgXUcM5065g](https://www.youtube.com/embed/vgXUcM5065g)
+[Watch on Youtube: Highway 29 - Bruce Springsteen - Dussledorf 05](https://www.youtube.com/watch?v=cXMvpyM2at4)
 
-[https://www.youtube.com/embed/FESX21tP_Hk](https://www.youtube.com/embed/FESX21tP_Hk)
+[Watch on Youtube: Tougher Than the Rest - Bruce Springsteen - Dussledorf 05](https://www.youtube.com/watch?v=DjxStzk7QBo)
 
-[https://www.youtube.com/embed/8d-aV9tT2Fo](https://www.youtube.com/embed/8d-aV9tT2Fo)
+[Watch on Youtube: I Wish I Were Blind - Bruce Springsteen - Dussledorf 05](https://www.youtube.com/watch?v=xYbEckbtxPU)
 
-[https://www.youtube.com/embed/xUaJ9Ezyeo8](https://www.youtube.com/embed/xUaJ9Ezyeo8)
+[Watch on Youtube: Mary's Place - Bruce Springsteen - Dussledorf 05](https://www.youtube.com/watch?v=21fRod4H30w)
 
-Patti Scialfa makes a guest appearance on in support of her new album, . Watch the rehearsals and full performance below.
+[Watch on Youtube: I'm on Fire - Bruce Springsteen - Dussledorf 05](https://www.youtube.com/watch?v=bKPZq41Xd0Q)
 
-**2004:** *Late Night With Conan O'Brien**23rd Street Lullaby*
+[Watch on Youtube: Bruce Springsteen - The Promised Land - Düsseldorf 2005-06-16 CLOSEUP](https://www.youtube.com/watch?v=QJhsH1TlB8Y)
 
-[https://videopress.com/embed/D7F2dU9X](https://videopress.com/embed/D7F2dU9X)
+**2006:** Bruce and the Sessions Band tour premiere “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)” and a solo acoustic “Into the Fire” at their show in Cuyahoga Falls, Ohio.
 
-[https://videopress.com/embed/8DUOtFWl](https://videopress.com/embed/8DUOtFWl)
+[Watch on Youtube: Bruse Springsteen - We Shall Over Come](https://www.youtube.com/watch?v=rbxru9dl0sc)
 
-The Devils & Dust Tour finishes its German leg with a show at Philipshalle in Dusseldorf. Bruce tour premieres "," "" and "."
+[Watch Video Highlight](https://videopress.com/embed/BuKjUSBn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2005:** [Highway 29](http://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)[I Wish I Were Blind,](https://estreetshuffle.com/index.php/2021/10/17/roll-of-the-dice-i-wish-i-were-blind/)[Mary's Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/06/2006-06-16.jpg)
 
-[https://www.youtube.com/embed/cXMvpyM2at4](https://www.youtube.com/embed/cXMvpyM2at4)
+**2008:** The Magic Tour stops at LTU Arena in Dusseldorf, where power outages interrupt the show twice during the opening songs.
 
-[https://www.youtube.com/embed/DjxStzk7QBo](https://www.youtube.com/embed/DjxStzk7QBo)
+[Watch on Youtube: Bruce Springsteen-Radio Nowhere #1 /Düsseldorf 16-06-2008](https://www.youtube.com/watch?v=CKuPtL_sBAo)
 
-[https://www.youtube.com/embed/xYbEckbtxPU](https://www.youtube.com/embed/xYbEckbtxPU)
+**2011:** While Clarence fights for his life, Lady Gaga releases the video for “The Edge of Glory,” featuring Clarence’s final performance.
 
-[https://www.youtube.com/embed/21fRod4H30w](https://www.youtube.com/embed/21fRod4H30w)
+[Watch on Youtube: Lady Gaga - The Edge Of Glory](https://www.youtube.com/watch?v=QeWBS0JBNzQ)
 
-[https://www.youtube.com/embed/bKPZq41Xd0Q?list=PLnbVaK2f4railYTOqmVfnxj1SVcGlzR3F](https://www.youtube.com/embed/bKPZq41Xd0Q?list=PLnbVaK2f4railYTOqmVfnxj1SVcGlzR3F)
+**2017:** The [New York Post](https://nypost.com/2017/06/16/bruce-springsteen-heads-to-broadway-this-fall/) breaks the news–unconfirmed–that Bruce will play an eight-week run on Broadway at the Walter Kerr Theater. The news is greeted with a mix of excitement, skepticism and bewilderment. No confirmation or denial is issued by the Springsteen camp.
 
-[https://www.youtube.com/embed/QJhsH1TlB8Y](https://www.youtube.com/embed/QJhsH1TlB8Y)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: U2’s The Edge.
 
-Bruce and the Sessions Band tour premiere "" and a solo acoustic "Into the Fire" at their show in Cuyahoga Falls, Ohio.
+**2021:** The Killers release their new video for “Dustland,” featuring an appearance by Bruce. Bruce and Brandon Flowers appear remotely on *Today* that morning to discuss their collaboration.
 
-**2006:** [Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
+[Watch on Youtube: The Killers - Dustland (Official Music Video) ft. Bruce Springsteen](https://www.youtube.com/watch?v=M3BZ8hnLyRc)
 
-[https://www.youtube.com/embed/rbxru9dl0sc](https://www.youtube.com/embed/rbxru9dl0sc)
+[Watch on Youtube: Bruce Springsteen and Killers on Today Show 6-16-2021](https://www.youtube.com/watch?v=REXG6XCXDPA)
 
-[https://videopress.com/embed/BuKjUSBn](https://videopress.com/embed/BuKjUSBn)
+**2022:** Bruce makes a surprise appearance at Paul McCartney’s show at MetLife Stadium in East Rutherford, dueting with McCartney on “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” and “[I Wanna Be Your Man](https://estreetshuffle.com/index.php/2023/07/15/matr-paul-mccartney-and-bruce-springsteen-i-wanna-be-your-man/).” He returns during the encore to play guitar on “[The End](https://estreetshuffle.com/index.php/2024/07/06/matr-paul-mccartney-and-bruce-springsteen-the-end/).”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2006-06-16-300x184.jpg?resize=758%2C465)
+[Watch on Youtube: "Glory Days & I Wanna Be Your Man" Paul McCartney & Bruce Springsteen@New York 6/16/22](https://www.youtube.com/watch?v=F5lZnNsNPIA)
 
-The Magic Tour stops at LTU Arena in Dusseldorf, where power outages interrupt the show twice during the opening songs.
+[Watch on Youtube: Paul McCartney with special guest Bruce Springsteen - Abbey Road Medley at MetLife Stadium (4K)](https://www.youtube.com/watch?v=utjQOi0NPuE)
 
-**2008:**<br>
+**2023:** Bruce and the E Street Band tour debut “The River” at their World Tour 2023 gig in Villa Park in Birmingham, England. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,31081/Bruce-Springsteen-mp3-flac-download-6-16-2023-Villa-Park-Birmingham-UK.html).
 
-[https://www.youtube.com/embed/CKuPtL_sBAo](https://www.youtube.com/embed/CKuPtL_sBAo)
+[Watch on Youtube: 2023-06-16 Bruce Springsteen - The River (tour debut)](https://www.youtube.com/watch?v=Gbgj1AoN9qY)
 
-While Clarence fights for his life, Lady Gaga releases the video for "The Edge of Glory," featuring Clarence's final performance.
+[Watch on Youtube: bruce Springsteen Glory days Birmingham 2023/06/15](https://www.youtube.com/watch?v=eNwVcaAfljY)
 
-**2011:**<br>
-
-[https://www.youtube.com/embed/QeWBS0JBNzQ](https://www.youtube.com/embed/QeWBS0JBNzQ)
-
-The breaks the news–unconfirmed–that Bruce will play an eight-week run on Broadway at the Walter Kerr Theater. The news is greeted with a mix of excitement, skepticism and bewilderment. No confirmation or denial is issued by the Springsteen camp.
-
-**2017:** [New York Post](https://nypost.com/2017/06/16/bruce-springsteen-heads-to-broadway-this-fall/)
-
-continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: U2's The Edge.
-
-**2018:** *Springsteen on Broadway*
-
-The Killers release their new video for "Dustland," featuring an appearance by Bruce. Bruce and Brandon Flowers appear remotely on that morning to discuss their collaboration.
-
-**2021:** *Today*
-
-[https://www.youtube.com/embed/M3BZ8hnLyRc](https://www.youtube.com/embed/M3BZ8hnLyRc)
-
-[https://www.youtube.com/embed/REXG6XCXDPA](https://www.youtube.com/embed/REXG6XCXDPA)
-
-Bruce makes a surprise appearance at Paul McCartney's show at MetLife Stadium in East Rutherford, dueting with McCartney on "" and "." He returns during the encore to play guitar on "."
-
-**2022:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[I Wanna Be Your Man](https://estreetshuffle.com/index.php/2023/07/15/matr-paul-mccartney-and-bruce-springsteen-i-wanna-be-your-man/)[The End](https://estreetshuffle.com/index.php/2024/07/06/matr-paul-mccartney-and-bruce-springsteen-the-end/)
-
-[https://www.youtube.com/embed/F5lZnNsNPIA](https://www.youtube.com/embed/F5lZnNsNPIA)
-
-[https://www.youtube.com/embed/utjQOi0NPuE](https://www.youtube.com/embed/utjQOi0NPuE)
-
-Bruce and the E Street Band tour debut "The River" at their World Tour 2023 gig in Villa Park in Birmingham, England. This show is available to stream or purchase .
-
-**2023:** [here](https://live.brucespringsteen.net/live-music/0,31081/Bruce-Springsteen-mp3-flac-download-6-16-2023-Villa-Park-Birmingham-UK.html)
-
-[https://www.youtube.com/embed/Gbgj1AoN9qY](https://www.youtube.com/embed/Gbgj1AoN9qY)
-
-[https://www.youtube.com/embed/eNwVcaAfljY](https://www.youtube.com/embed/eNwVcaAfljY)
-
-[https://www.youtube.com/embed/Ay074mRTnnQ](https://www.youtube.com/embed/Ay074mRTnnQ)
+[Watch on Youtube: Bruce Springsteen- Dancing In The Dark- Birmingham Aston Villa- 16.6.23](https://www.youtube.com/watch?v=Ay074mRTnnQ)

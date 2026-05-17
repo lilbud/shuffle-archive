@@ -1,48 +1,37 @@
+***New for 2025:** New entry for 1977*
 
-*New entry for 1977***New for 2025:**
+**1974:** Bruce and the E Street Band play their very last opening set ever, at the Wollman Ice Rink in New York City’s Central Park. The story will become legend: Bruce is a late substitution for original headliner Boz Scaggs, but managers for opening act Anne Murray successfully argue that she has a greater claim to the headliner slot than Bruce does due to her greater album sales. Murray therefore ends up headlining a show that was originally advertised with Bruce as the headliner, and as a result only a quarter of the crowd stays to the end of Murray’s set. Bruce has become an impossible act to follow, and no one will attempt it again.
 
-Bruce and the E Street Band play their very last opening set ever, at the Wollman Ice Rink in New York City's Central Park. The story will become legend: Bruce is a late substitution for original headliner Boz Scaggs, but managers for opening act Anne Murray successfully argue that she has a greater claim to the headliner slot than Bruce does due to her greater album sales. Murray therefore ends up headlining a show that was originally advertised with Bruce as the headliner, and as a result only a quarter of the crowd stays to the end of Murray's set. Bruce has become an impossible act to follow, and no one will attempt it again.
+![](https://estreetshuffle.com/wp-content/uploads/2018/08/1974-0803.jpg)
 
-**1974:**<br>
+**1976:** Bruce debuts an early version of “The Promise” on Night Three of six at the Monmouth Arts Center in Red Bank. The lyrics are different from the final version, most notably the chorus. Take a listen–it’s the only time this version will ever be performed.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1974-0803-300x154.jpg?resize=758%2C389)
+[Watch on Youtube: Bruce Springsteen - THE PROMISE 1976 (audio)](https://www.youtube.com/watch?v=ku_IeAijmzs)
 
-Bruce debuts an early version of "The Promise" on Night Three of six at the Monmouth Arts Center in Red Bank. The lyrics are different from the final version, most notably the chorus. Take a listen–it's the only time this version will ever be performed.
+**1977:** Bruce and the E Street Band work on “Racing in the Street” at Atlantic Studios in New York City.
 
-**1976:**<br>
+**1988:** The Tunnel of Love Tour wraps up with a final show at Camp Nou in Barcelona.
 
-[https://www.youtube.com/embed/ku_IeAijmzs](https://www.youtube.com/embed/ku_IeAijmzs)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Tunnel of Love](https://www.youtube.com/watch?v=xPd7_f9dLgQ)
 
-Bruce and the E Street Band work on "Racing in the Street" at Atlantic Studios in New York City.
+[Watch on Youtube: Bruce Springsteen Barcelona 1988](https://www.youtube.com/watch?v=sya6FmwnHyM)
 
-**1977:**<br>
+[Watch Video Highlight](https://videopress.com/embed/0ivPeKdV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-The Tunnel of Love Tour wraps up with a final show at Camp Nou in Barcelona.
+[Watch on Youtube: Bruce Springsteen Barcelona 1988 Hungry Heart](https://www.youtube.com/watch?v=9thsullhy8k)
 
-**1988:**<br>
+[Watch on Youtube: Barcelona 03/08/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zCGD5qSBP2c-A-zsF8zymgh)
 
-[https://www.youtube.com/embed/xPd7_f9dLgQ](https://www.youtube.com/embed/xPd7_f9dLgQ)
+![](https://estreetshuffle.com/wp-content/uploads/2021/08/1988-08-03.jpg)
 
-[https://www.youtube.com/embed/sya6FmwnHyM](https://www.youtube.com/embed/sya6FmwnHyM)
+**2005:** Bruce opens his solo acoustic show in Grand Rapids with the tour premiere of “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/).” Later in the show, Bruce also tour premieres “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” and “[It’s Hard to Be a Saint in the City.](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” It’s a fantastic performance, captured in full as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,18918/Bruce-Springsteen-mp3-flac-download-8-3-2005-Van-Andel-Arena-Grand-Rapids-MI.html).
 
-[https://videopress.com/embed/0ivPeKdV](https://videopress.com/embed/0ivPeKdV)
+[Watch on Youtube: Bruce Springsteen - Odds and Sods Rarities - Tunnel Of Love Live 2005 - electric piano](https://www.youtube.com/watch?v=6tmhf6NPoe4)
 
-[https://www.youtube.com/embed/9thsullhy8k](https://www.youtube.com/embed/9thsullhy8k)
+[Watch on Youtube: Tunnel of Love (Live at the Van Andel Arena, Grand Rapids, MI - 8/3/05 - Official Audio)](https://www.youtube.com/watch?v=92yhQNYpMCw)
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCGD5qSBP2c-A-zsF8zymgh](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCGD5qSBP2c-A-zsF8zymgh)
+[Watch on Youtube: The River (Live at Van Andel Arena, Grand Rapids, MI - 08/03/05 - Official Audio)](https://www.youtube.com/watch?v=pt00y098nj4)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1988-08-03.jpg?resize=758%2C346&amp;ssl=1)
+[Watch on Youtube: I Wish I Were Blind (Live at Van Andel Arena, Grand Rapids, MI - 8/3/2005)](https://www.youtube.com/watch?v=MdqjNuzCWY0)
 
-Bruce opens his solo acoustic show in Grand Rapids with the tour premiere of "." Later in the show, Bruce also tour premieres "" and "" It's a fantastic performance, captured in full as part of Bruce's official archive series–get it .
-
-**2005:** [Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)[It's Hard to Be a Saint in the City.](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[here](http://live.brucespringsteen.net/live-music/0,18918/Bruce-Springsteen-mp3-flac-download-8-3-2005-Van-Andel-Arena-Grand-Rapids-MI.html)
-
-[https://www.youtube.com/embed/6tmhf6NPoe4](https://www.youtube.com/embed/6tmhf6NPoe4)
-
-[https://www.youtube.com/embed/92yhQNYpMCw](https://www.youtube.com/embed/92yhQNYpMCw)
-
-[https://www.youtube.com/embed/pt00y098nj4](https://www.youtube.com/embed/pt00y098nj4)
-
-[https://www.youtube.com/embed/MdqjNuzCWY0](https://www.youtube.com/embed/MdqjNuzCWY0)
-
-[https://www.youtube.com/embed/bQg38PmPLS8](https://www.youtube.com/embed/bQg38PmPLS8)
+[Watch on Youtube: Racing in the Street (Live at Van Andel Arena, Grand Rapids, MI - 08/03/05 - Official A...](https://www.youtube.com/watch?v=bQg38PmPLS8)

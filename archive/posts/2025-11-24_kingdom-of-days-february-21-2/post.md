@@ -1,68 +1,55 @@
+**1975:** Bruce cancels a show at Moravian College to make room for *Born to Run* recording sessions.
 
-Bruce cancels a show at Moravian College to make room for recording sessions.
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/1975-02-21.png)
 
-**1975:** *Born to Run*
+![](https://estreetshuffle.com/wp-content/uploads/2020/02/1975-02-21.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1975-02-21.png?resize=758%2C359&amp;ssl=1)
+**1995:** After more than five years apart, Bruce reconvenes the E Street Band to promote his *Greatest Hits* album. The band gathers at Tramps nightclub in New York City and rehearses for their gig that evening, where they will debut and record a live performance video for “[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/).” Many fan favorites also make their return on this night, including the first-ever full-band performance of “This Hard Land.”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1975-02-21-300x194.jpg?resize=758%2C490)
+[Watch Video Highlight](https://videopress.com/embed/o98o5YmB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-After more than five years apart, Bruce reconvenes the E Street Band to promote his album. The band gathers at Tramps nightclub in New York City and rehearses for their gig that evening, where they will debut and record a live performance video for "." Many fan favorites also make their return on this night, including the first-ever full-band performance of "This Hard Land."
+[Watch on Youtube: Thunder Road Bruce Springsteen The E Street Band Reunion 2-21-1995 Tramps Nightclub NY](https://www.youtube.com/watch?v=aZpKw4XQHOY)
 
-**1995:** *Greatest Hits* [Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)
+[Watch on Youtube: Bruce Springsteen - Bobby Jean (1995-02-21)](https://www.youtube.com/watch?v=mvhjLVLV8Qk)
 
-[https://videopress.com/embed/o98o5YmB](https://videopress.com/embed/o98o5YmB)
+[Watch on Youtube: Bruce Springsteen - Murder Incorporated](https://www.youtube.com/watch?v=Jj7hvKQ6Uhc)
 
-[https://www.youtube.com/embed/aZpKw4XQHOY](https://www.youtube.com/embed/aZpKw4XQHOY)
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/1995-02-21.png)
 
-[https://www.youtube.com/embed/mvhjLVLV8Qk](https://www.youtube.com/embed/mvhjLVLV8Qk)
+**1996:** Bruce brings his solo acoustic tour to Paris for the first of two shows at Le Zenith de Paris.
 
-[https://www.youtube.com/embed/Jj7hvKQ6Uhc](https://www.youtube.com/embed/Jj7hvKQ6Uhc)
+[Watch Video Highlight](https://videopress.com/embed/yVJU9zQW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1995-02-21.png?resize=758%2C1088&amp;ssl=1)
+**2016:** The 2016 version of the River Tour stops at KFC Yum! Center in Louisville, where “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” makes its tour debut. Bruce and Patti also record a tribute greeting for James Burrows, which airs on television that evening.
 
-Bruce brings his solo acoustic tour to Paris for the first of two shows at Le Zenith de Paris.
+[Watch Video Highlight](https://videopress.com/embed/oa55aClm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1996:**<br>
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Meet Me In The City - Louisville - 2-21-2016](https://www.youtube.com/watch?v=mS1yuLp_k_w)
 
-[https://videopress.com/embed/yVJU9zQW](https://videopress.com/embed/yVJU9zQW)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Hungry Heart - Louisville - 2-21-2016](https://www.youtube.com/watch?v=M9WvYolfYlA)
 
-The 2016 version of the River Tour stops at KFC Yum! Center in Louisville, where "" makes its tour debut. Bruce and Patti also record a tribute greeting for James Burrows, which airs on television that evening.
+[Watch on Youtube: Bruce Springsteen - Born In The USA - 2016 - Louisville, KY Yum Center - Soundboard Audio](https://www.youtube.com/watch?v=j2lsK9DWqRM)
 
-**2016:** [Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
+[Watch on Youtube: Bruce Springsteen - "Cadillac Ranch" Yum Center 2/21/16 (The Cat in the Hat by Dr. Bruce)](https://www.youtube.com/watch?v=gMCyJkD0VKA)
 
-[https://videopress.com/embed/oa55aClm](https://videopress.com/embed/oa55aClm)
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/2016-02-21a.jpg)
 
-[https://www.youtube.com/embed/mS1yuLp_k_w](https://www.youtube.com/embed/mS1yuLp_k_w)
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/2016-02-21b.jpg)
 
-[https://www.youtube.com/embed/M9WvYolfYlA](https://www.youtube.com/embed/M9WvYolfYlA)
+**2017:** Bruce plays his first show ever in Christchurch, New Zealand. The show features a poignant “My City of Ruins,” played for the city that suffered a devastating earthquake in 2011.
 
-[https://www.youtube.com/embed/j2lsK9DWqRM](https://www.youtube.com/embed/j2lsK9DWqRM)
+[Watch on Youtube: 30,000 to watch Springsteen on eve of quake anniversary: RNZ Checkpoint](https://www.youtube.com/watch?v=NKPQm6C4VvI)
 
-[https://www.youtube.com/embed/gMCyJkD0VKA](https://www.youtube.com/embed/gMCyJkD0VKA)
+[Watch on Youtube: Bruce Springsteen - No Surrender - Christchurch NZ - Tuesday 21 February 2017](https://www.youtube.com/watch?v=IgWA9U9Rk7A)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2016-02-21a.jpg?resize=758%2C1109&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - "My City Of Ruins"](https://www.youtube.com/watch?v=ntgpWPwTVnM)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2016-02-21b.jpg?resize=758%2C1149&amp;ssl=1)
+**2023:** Jake is back in action in Tulsa after a bout with COVID, but the virus continues its tour of the E Street Band. Lisa Lowell misses this show and the next one, but the rest of the band turns in a great show in the undersold BOK Center, tour premiering “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” in the encores.
 
-Bruce plays his first show ever in Christchurch, New Zealand. The show features a poignant "My City of Ruins," played for the city that suffered a devastating earthquake in 2011.
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance +](https://www.youtube.com/watch?v=-bxN1RTASUU)
 
-**2017:**<br>
+[Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=qjxfJla5oIc)
 
-[https://www.youtube.com/embed/NKPQm6C4VvI](https://www.youtube.com/embed/NKPQm6C4VvI)
+[Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=2AqGRt4kw5U)
 
-[https://www.youtube.com/embed/IgWA9U9Rk7A](https://www.youtube.com/embed/IgWA9U9Rk7A)
-
-[https://www.youtube.com/embed/ntgpWPwTVnM](https://www.youtube.com/embed/ntgpWPwTVnM)
-
-Jake is back in action in Tulsa after a bout with COVID, but the virus continues its tour of the E Street Band. Lisa Lowell misses this show and the next one, but the rest of the band turns in a great show in the undersold BOK Center, tour premiering "" in the encores.
-
-**2023:** [Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)
-
-[https://www.youtube.com/embed/-bxN1RTASUU](https://www.youtube.com/embed/-bxN1RTASUU)
-
-[https://www.youtube.com/embed/qjxfJla5oIc](https://www.youtube.com/embed/qjxfJla5oIc)
-
-[https://www.youtube.com/embed/2AqGRt4kw5U](https://www.youtube.com/embed/2AqGRt4kw5U)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Tulsa_World_Thu__Feb_23__2023_-scaled.jpg?resize=758%2C1567&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2024/02/Tulsa_World_Thu__Feb_23__2023_-scaled.jpg)

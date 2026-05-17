@@ -1,72 +1,49 @@
+**1973:** Bruce plays his first ever show in Washington, D.C. at Childe Harold. David Sancious (not yet a member of the E Street Band) sits in.
 
-Bruce plays his first ever show in Washington, D.C. at Childe Harold. David Sancious (not yet a member of the E Street Band) sits in.
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1973-0524.jpg)
 
-**1973:**<br>
+**1974:** Bruce and the E Street Band headline a show at the War Memorial Theater in Trenton.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1973-0524.jpg?resize=758%2C432&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1974-05-24.jpg)
 
-Bruce and the E Street Band headline a show at the War Memorial Theater in Trenton.
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1974-0524.jpg)
 
-**1974:**<br>
+**1978:** Night Two of the Darkness Tour (at Albany’s Palace Theater) is similar to Night One, but “The Promise” is now performed solo on the piano, as it will be until the next full-band performance 32 years later.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1974-05-24.jpg?resize=525%2C419&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/Bennington_Banner_Fri__May_26__1978_-scaled.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1974-0524.jpg?resize=758%2C534&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1978-0524.jpg)
 
-Night Two of the Darkness Tour (at Albany's Palace Theater) is similar to Night One, but "The Promise" is now performed solo on the piano, as it will be until the next full-band performance 32 years later.
+**1983:** Bruce and the E Street Band work on “King’s Highway” at The Hit Factory in New York City. It hasn’t surfaced in any form to this day.
 
-**1978:**<br>
+**1985:** Director John Sayles films background footage at Maxwell’s in Hoboken for Bruce’s “Glory Days” video.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Bennington_Banner_Fri__May_26__1978_-scaled.jpg?resize=758%2C964&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - Glory Days (Official Video)](https://www.youtube.com/watch?v=6vQpW9XRiyM)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1978-0524.jpg?resize=758%2C354&amp;ssl=1)
+**1993:** Before leaving the U.K., Bruce sings karaoke (“Jumpin’ Jack Flash”) at the Stanhope Arms pub in London.
 
-Bruce and the E Street Band work on "King's Highway" at The Hit Factory in New York City. It hasn't surfaced in any form to this day.
+**2003:** At a rainy Rising show in Saint-Denis, France, Bruce plays an acoustic pre-show, opens with “Who’ll Stop the Rain” and tour debuts “Trapped,” “Be True,” and “Seven Nights to Rock.”
 
-**1983:**<br>
+[Watch on Youtube: BRUCE SPRINGSTEEN 3 HOURS BEFORE HIS CONCERT OF PARIS IN MAY 2003](https://www.youtube.com/watch?v=xpCBRXh2lmM)
 
-Director John Sayles films background footage at Maxwell's in Hoboken for Bruce's "Glory Days" video.
+[Watch on Youtube: Bruce Springsteen Paris 24/05/2003 Full Concert (with acoustic pre-show)](https://www.youtube.com/watch?v=k2u5kz9t1QU)
 
-**1985:**<br>
+**2005:** The European leg of the Devils & Dust Tour begins with a show at Point Theater in Dublin.
 
-[https://www.youtube.com/embed/6vQpW9XRiyM](https://www.youtube.com/embed/6vQpW9XRiyM)
+[Watch on Youtube: Bruce Springsteen Dublin 24/05/2005 Full Concert](https://www.youtube.com/watch?v=sD4KMfhF7hg)
 
-Before leaving the U.K., Bruce sings karaoke ("Jumpin' Jack Flash") at the Stanhope Arms pub in London.
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Daily_Telegraph_Thu__May_26__2005_-scaled.jpg)
 
-**1993:**<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-At a rainy Rising show in Saint-Denis, France, Bruce plays an acoustic pre-show, opens with "Who'll Stop the Rain" and tour debuts "Trapped," "Be True," and "Seven Nights to Rock."
+**2022:** Bruce announces the return of the E Street Band to the concert stage for their first tour after an unplanned six-year hiatus. On E Street Radio, Bruce gives fans and host Jim Rotolo an idea of what to expect.
 
-**2003:**<br>
+[Watch on Youtube: Bruce Springsteen Announces E Street Band's 2023 International Tour | SiriusXM](https://www.youtube.com/watch?v=CK4OdLh5UVs)
 
-[https://www.youtube.com/embed/xpCBRXh2lmM](https://www.youtube.com/embed/xpCBRXh2lmM)
+**2025:** Bruce brings the Land of Hope and Dreams Tour to Lille, France.
 
-[https://www.youtube.com/embed/k2u5kz9t1QU](https://www.youtube.com/embed/k2u5kz9t1QU)
+[Watch on Youtube: Bruce Springsteen and the E Street Band - No Surrender - Lille 24/05/2025](https://www.youtube.com/watch?v=VpfAfR1dCag)
 
-The European leg of the Devils & Dust Tour begins with a show at Point Theater in Dublin.
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Murder Incorporated - Lille 24/05/2025](https://www.youtube.com/watch?v=xczeUIOxhoM)
 
-**2005:**<br>
-
-[https://www.youtube.com/embed/sD4KMfhF7hg](https://www.youtube.com/embed/sD4KMfhF7hg)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Daily_Telegraph_Thu__May_26__2005_-scaled.jpg?resize=592%2C2560&amp;ssl=1)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Bruce announces the return of the E Street Band to the concert stage for their first tour after an unplanned six-year hiatus. On E Street Radio, Bruce gives fans and host Jim Rotolo an idea of what to expect.
-
-**2022:**<br>
-
-[https://www.youtube.com/embed/CK4OdLh5UVs](https://www.youtube.com/embed/CK4OdLh5UVs)
-
-Bruce brings the Land of Hope and Dreams Tour to Lille, France.
-
-**2025:**<br>
-
-[https://www.youtube.com/embed/VpfAfR1dCag](https://www.youtube.com/embed/VpfAfR1dCag)
-
-[https://www.youtube.com/embed/xczeUIOxhoM](https://www.youtube.com/embed/xczeUIOxhoM)
-
-[https://www.youtube.com/embed/ZgS4tCCYc4c](https://www.youtube.com/embed/ZgS4tCCYc4c)
+[Watch on Youtube: Bruce Springsteen - House Of A Thousand Guitars - Lille 24/05/2025](https://www.youtube.com/watch?v=ZgS4tCCYc4c)

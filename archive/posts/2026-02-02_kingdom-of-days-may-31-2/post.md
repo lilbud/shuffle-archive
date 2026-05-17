@@ -1,92 +1,63 @@
+**1964:** Bruce watches the debut of The Dave Clark Five on *The Ed Sullivan Show*. Below, Bruce, Steve, and Max describe the influence they had on the E Street Band’s shows.
 
-Bruce watches the debut of The Dave Clark Five on . Below, Bruce, Steve, and Max describe the influence they had on the E Street Band's shows.
+**1969:** Child opens for Nicky Addeo at Pandemonium in Wanamassa, New Jersey.
 
-**1964:***The Ed Sullivan Show*
+**1973:** Before their evening show opening for Chicago at the Richmond Coliseum, Bruce and the band stop by Alpha Sound Studios in Richmond, Virginia, where they perform only their second-ever radio show, broadcast live on WGOE-FM. The show features an early version of “New York City Serenade” with a completely different melody (and very different lyrics), and a gorgeous “You Mean So Much to Me.”
 
-Child opens for Nicky Addeo at Pandemonium in Wanamassa, New Jersey.
+[Watch on Youtube: 1973-05-31 Richmond, VA](https://www.youtube.com/playlist?list=PLnbVaK2f4rajZ4F6a2347-r_YflRMhJd3)
 
-**1969:**<br>
+Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicago at the Richmond Coliseum, where the set list features an ultra-rare “Secret to the Blues.” The local music reviewer is more impressed with the opening act than than the headliner.
 
-Before their evening show opening for Chicago at the Richmond Coliseum, Bruce and the band stop by Alpha Sound Studios in Richmond, Virginia, where they perform only their second-ever radio show, broadcast live on WGOE-FM. The show features an early version of "New York City Serenade" with a completely different melody (and very different lyrics), and a gorgeous "You Mean So Much to Me."
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/Richmond_Times_Dispatch_Fri__Jun_1__1973_-scaled.jpg)
 
-**1973:**<br>
+**1974:** A scheduled gig at the Agora in Columbus is cancelled due to low ticket sales.
 
-[https://www.youtube.com/embed/videoseries?list=PLnbVaK2f4rajZ4F6a2347-r_YflRMhJd3](https://www.youtube.com/embed/videoseries?list=PLnbVaK2f4rajZ4F6a2347-r_YflRMhJd3)
+**1978:** Bruce wraps his three-night Darkness Tour stand at Boston’s Music Hall with the tour premiere of “Quarter to Three.”
 
-Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicago at the Richmond Coliseum, where the set list features an ultra-rare "Secret to the Blues." The local music reviewer is more impressed with the opening act than than the headliner.
+[Watch on Youtube: Boston 31/05/1978](https://www.youtube.com/playlist?list=PLJTyL9twk3zDfRI7JVRMsPUjYC8GkmrSl)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Richmond_Times_Dispatch_Fri__Jun_1__1973_-scaled.jpg?resize=586%2C2560&amp;ssl=1)
+**1979:** At the Power Station in New York, Bruce records “I Wanna Be With You.” It will remain unreleased for almost two decades.
 
-A scheduled gig at the Agora in Columbus is cancelled due to low ticket sales.
+[Watch on Youtube: I Wanna Be With You (Studio Outtake - 1979)](https://www.youtube.com/watch?v=Ie4bDLGnfR0)
 
-**1974:**<br>
+**1983:** At The Hit Factory in New York City, Bruce records “Pink Cadillac,” “Car Wash,” “Gone, Gone, Gone” (which will evolve into “Seeds”), and “Invitation to Your Party.” The former two won’t see an album release for fifteen years (although “Pink Cadillac” will surface sooner as a B-side). The latter two remain unreleased to this day.
 
-Bruce wraps his three-night Darkness Tour stand at Boston's Music Hall with the tour premiere of "Quarter to Three."
+[Watch on Youtube: Pink Cadillac (Single B-Side - 1984)](https://www.youtube.com/watch?v=Wk5cIUI6Zac)
 
-**1978:**<br>
+[Watch on Youtube: Car Wash (Studio Outtake - 1983)](https://www.youtube.com/watch?v=I9m2UMyBBWU)
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDfRI7JVRMsPUjYC8GkmrSl](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDfRI7JVRMsPUjYC8GkmrSl)
+**1985:** Bruce and the E Street Band play a warm-up rehearsal at Slane Castle in Ireland in preparation for the kick-off of the European leg of the Born in the U.S.A. Tour. Meanwhile, “Glory Days” is released as the fifth single from *Born in the U.S.A*.
 
-At the Power Station in New York, Bruce records "I Wanna Be With You." It will remain unreleased for almost two decades.
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/1985-05-31.jpg)
 
-**1979:**<br>
+[Watch on Youtube: Glory Days](https://www.youtube.com/watch?v=GLBnj159q3s)
 
-[https://www.youtube.com/embed/Ie4bDLGnfR0](https://www.youtube.com/embed/Ie4bDLGnfR0)
+**2003:** Bruce treats Irish fans to a rare “Kitty’s Back” when the Rising tour stops at RDS Arena in Dublin.
 
-At The Hit Factory in New York City, Bruce records "Pink Cadillac," "Car Wash," "Gone, Gone, Gone" (which will evolve into "Seeds"), and "Invitation to Your Party." The former two won't see an album release for fifteen years (although "Pink Cadillac" will surface sooner as a B-side). The latter two remain unreleased to this day.
+[Watch on Youtube: Bruce Springsteen Dublin 31/05/2003 Full Concert](https://www.youtube.com/watch?v=duv8guPDvlE)
 
-**1983:**<br>
+**2006:** At his Seeger show in Noblesville, Indiana, Bruce opens with the premiere of a new arrangement of “Atlantic City,” and debuts “Froggie Went A-Courtin'” by request for a seven-year-old boy.
 
-[https://www.youtube.com/embed/Wk5cIUI6Zac](https://www.youtube.com/embed/Wk5cIUI6Zac)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2006-05-31.jpg)
 
-[https://www.youtube.com/embed/I9m2UMyBBWU](https://www.youtube.com/embed/I9m2UMyBBWU)
+**2008:** Back-to-back tour premieres at Night Two at London’s Emirates Stadium, both from *Born in the U.S.A.*: “Downbound Train” and “I’m on Fire.”
 
-Bruce and the E Street Band play a warm-up rehearsal at Slane Castle in Ireland in preparation for the kick-off of the European leg of the Born in the U.S.A. Tour. Meanwhile, "Glory Days" is released as the fifth single from .
+[Watch on Youtube: I'm on Fire Bruce Springsteen @ Emirates 31/5/08](https://www.youtube.com/watch?v=SjT-Zg4h3U0)
 
-**1985:** *Born in the U.S.A*
+[Watch on Youtube: Bruce Springsteen - Marys Place 2 - London 2008-05-31](https://www.youtube.com/watch?v=FG-PdPAc4e0)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1985-05-31.jpg?resize=758%2C709&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - Because the Night (2008-05-31, London)](https://www.youtube.com/watch?v=xKNmgmvXrEQ)
 
-[https://www.youtube.com/embed/GLBnj159q3s](https://www.youtube.com/embed/GLBnj159q3s)
+**2013:** Bruce’s Italian shows are always special, and this show in Padua is no exception: Bruce plays an acoustic pre-show for early arrivals, opens the show with an acoustic “The Ghost of Tom Joad,” and performs the entire *Born to Run* album in sequence.
 
-Bruce treats Irish fans to a rare "Kitty's Back" when the Rising tour stops at RDS Arena in Dublin.
+[Watch on Youtube: THE PROMISE LAND - Bruce Springsteen - Padova 2013 - Pre show](https://www.youtube.com/watch?v=jSXx366ZD5Q)
 
-**2003:**<br>
+[Watch on Youtube: springsteen padova 2013 meeting across the river](https://www.youtube.com/watch?v=2TdZ3Muc-8c)
 
-[https://www.youtube.com/embed/duv8guPDvlE](https://www.youtube.com/embed/duv8guPDvlE)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-At his Seeger show in Noblesville, Indiana, Bruce opens with the premiere of a new arrangement of "Atlantic City," and debuts "Froggie Went A-Courtin'" by request for a seven-year-old boy.
+**2025:** The Land of Hope and Dreams Tour makes a brief stop in Marseilles for a single show.
 
-**2006:**<br>
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Thunder Road - Marseille 31/05/2025](https://www.youtube.com/watch?v=tolp7gYzirs)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2006-05-31.jpg?resize=758%2C869&amp;ssl=1)
-
-Back-to-back tour premieres at Night Two at London's Emirates Stadium, both from : "Downbound Train" and "I'm on Fire."
-
-**2008:***Born in the U.S.A.*
-
-[https://www.youtube.com/embed/SjT-Zg4h3U0](https://www.youtube.com/embed/SjT-Zg4h3U0)
-
-[https://www.youtube.com/embed/FG-PdPAc4e0](https://www.youtube.com/embed/FG-PdPAc4e0)
-
-[https://www.youtube.com/embed/xKNmgmvXrEQ](https://www.youtube.com/embed/xKNmgmvXrEQ)
-
-Bruce's Italian shows are always special, and this show in Padua is no exception: Bruce plays an acoustic pre-show for early arrivals, opens the show with an acoustic "The Ghost of Tom Joad," and performs the entire album in sequence.
-
-**2013:** *Born to Run*
-
-[https://www.youtube.com/embed/jSXx366ZD5Q](https://www.youtube.com/embed/jSXx366ZD5Q)
-
-[https://www.youtube.com/embed/2TdZ3Muc-8c](https://www.youtube.com/embed/2TdZ3Muc-8c)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-The Land of Hope and Dreams Tour makes a brief stop in Marseilles for a single show.
-
-**2025:**<br>
-
-[https://www.youtube.com/embed/tolp7gYzirs](https://www.youtube.com/embed/tolp7gYzirs)
-
-[https://www.youtube.com/embed/o4mPOo7QRtQ](https://www.youtube.com/embed/o4mPOo7QRtQ)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Twist And Shout - Marseille 31/05/2025](https://www.youtube.com/watch?v=o4mPOo7QRtQ)

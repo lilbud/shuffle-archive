@@ -1,104 +1,77 @@
+**1974:** Bruce and his band play two shows at their third night at Gertie’s in Dallas.
 
-Bruce and his band play two shows at their third night at Gertie's in Dallas.
+**1977:** “Juicy Brucey” and the E Street Band bring the Lawsuit Tour to Providence College.
 
-**1974:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1977-0320.jpg)
 
-"Juicy Brucey" and the E Street Band bring the Lawsuit Tour to Providence College.
+**1981:** A scheduled show in London is postponed due to Bruce’s exhaustion from the first two legs of the River Tour.
 
-**1977:**<br>
+**1985:** A New Zealand news station covers the anticipation over the Australian leg of the Born in the U.S.A. Tour.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1977-0320.jpg?resize=681%2C1743&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen fans - Down Under 1985 (RARE)](https://www.youtube.com/watch?v=17lftoPySfs)
 
-A scheduled show in London is postponed due to Bruce's exhaustion from the first two legs of the River Tour.
+**1987:** The official live video for “Born to Run” premieres on NBC’s *Friday Night Videos*.
 
-**1981:**<br>
+[Watch on Youtube: Bruce Springsteen - Born to Run (Official Video)](https://www.youtube.com/watch?v=IxuThNgl3YA)
 
-A New Zealand news station covers the anticipation over the Australian leg of the Born in the U.S.A. Tour.
+**1988:** Joe Grushecky guest-stars for a final encore of “Raise Your Hand” as the Tunnel of Love Express Tour hits the Civic Arena in Pittsburgh.
 
-**1985:**<br>
+[Watch Video Highlight](https://videopress.com/embed/TD3n5kg4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/17lftoPySfs](https://www.youtube.com/embed/17lftoPySfs)
+[Watch on Youtube: Pittsburgh 20/03/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zD7MZ_zC-wkYmD5Zh3bGN6p)
 
-The official live video for "Born to Run" premieres on NBC's .
+[Watch on Youtube: Bruce Springsteen - Evening Magazine (Pittsburgh), April 22, 1988](https://www.youtube.com/watch?v=DzQHe4A1mkk)
 
-**1987:***Friday Night Videos*
+![](https://estreetshuffle.com/wp-content/uploads/2022/03/1988-03-20a-scaled.jpg)
 
-[https://www.youtube.com/embed/IxuThNgl3YA](https://www.youtube.com/embed/IxuThNgl3YA)
+![](https://estreetshuffle.com/wp-content/uploads/2022/03/1988-03-20b.jpg)
 
-Joe Grushecky guest-stars for a final encore of "Raise Your Hand" as the Tunnel of Love Express Tour hits the Civic Arena in Pittsburgh.
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-03-20.jpg)
 
-**1988:**<br>
+ 
 
-[https://videopress.com/embed/TD3n5kg4](https://videopress.com/embed/TD3n5kg4)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1988-0320.jpg)
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD7MZ_zC-wkYmD5Zh3bGN6p](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD7MZ_zC-wkYmD5Zh3bGN6p)
+**1996:** Bruce brings his solo acoustic tour to the Point Theater in Dublin.
 
-[https://www.youtube.com/embed/DzQHe4A1mkk](https://www.youtube.com/embed/DzQHe4A1mkk)
+[Watch Video Highlight](https://videopress.com/embed/GAhWMl2F?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-20a-scaled.jpg?resize=758%2C1325&amp;ssl=1)
+**2000:** The day after the E Street Band plays a reunion show in New Orleans, Bruce and Patti visit Emmylou Harris in her producer’s New Orleans studio, where they contribute backing vocals for Emmylou’s song “Tragedy.”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-20b.jpg?resize=758%2C702&amp;ssl=1)
+[Watch on Youtube: Tragedy](https://www.youtube.com/watch?v=jf7BSf5ezUY)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-20.jpg?resize=470%2C821&amp;ssl=1)
+**2003:** On the eve of the Iraq War, Bruce opens the Australia leg of The Rising Tour with an acoustic “Born in the U.S.A.” at the Telstra Dome in Melbourne. “War” also receives a rare outing.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1988-0320.jpg?resize=430%2C1000&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/uZuuks3s?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce brings his solo acoustic tour to the Point Theater in Dublin.
+**2006:** Bruce rehearses with The Sessions Band at the Paramount Theater in Asbury Park.
 
-**1996:**<br>
+**2008:** Danny Federici appears on-stage with the E Street Band for the final time at Bruce’s Magic show at the Conseco Fieldhouse in Indianapolis, where Bruce and the band tour premiere “Rendezvous.” Watch the official, emotional video of “4th of July, Asbury Park (Sandy)” (also available on the *Magic Tour Highlights* EP). This show is available as part of Bruce’s official archive series.
 
-[https://videopress.com/embed/GAhWMl2F](https://videopress.com/embed/GAhWMl2F)
+[Watch on Youtube: 4th Of July, Asbury Park (Sandy) (Live Video Version featuring Danny Federici)](https://www.youtube.com/watch?v=kB1d0eey5ho)
 
-The day after the E Street Band plays a reunion show in New Orleans, Bruce and Patti visit Emmylou Harris in her producer's New Orleans studio, where they contribute backing vocals for Emmylou's song "Tragedy."
+[Watch on Youtube: Long Walk Home (Live at Conseco Fieldhouse, Indianapolis, IN - 3/20/2008)](https://www.youtube.com/watch?v=7n7k0fBXgXw)
 
-**2000:**<br>
+[Watch on Youtube: American Land (Live at Conseco Fieldhouse, Indianapolis, IN - 3/20/2008)](https://www.youtube.com/watch?v=yK8BTJle8KI)
 
-[https://www.youtube.com/embed/jf7BSf5ezUY](https://www.youtube.com/embed/jf7BSf5ezUY)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/2008-03-20.jpg)
 
-On the eve of the Iraq War, Bruce opens the Australia leg of The Rising Tour with an acoustic "Born in the U.S.A." at the Telstra Dome in Melbourne. "War" also receives a rare outing.
+**2013:** Bruce marks the tenth anniversary of the Iraq War at Allphones Arena in Sydney, opening with an acoustic “Devils & Dust” and launching into a full-band “Last to Die.”
 
-**2003:**<br>
+[Watch on Youtube: Devils and Dust (acoustic) - Bruce Springsteen - Sydney Allphones Arena 20-03-2013](https://www.youtube.com/watch?v=wClrxR6YW2Q)
 
-[https://videopress.com/embed/uZuuks3s](https://videopress.com/embed/uZuuks3s)
+[Watch on Youtube: Bruce Springsteen Sydney 20 March 2013 FRONT ROW CENTRE "Death to My Hometown"](https://www.youtube.com/watch?v=yIu-YWFR9JQ)
 
-Bruce rehearses with The Sessions Band at the Paramount Theater in Asbury Park.
+[Watch on Youtube: Bruce Springsteen - Sydney, March 20, 2013 - I'm on Fire](https://www.youtube.com/watch?v=vHbZ2scnytk)
 
-**2006:**<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-Danny Federici appears on-stage with the E Street Band for the final time at Bruce's Magic show at the Conseco Fieldhouse in Indianapolis, where Bruce and the band tour premiere "Rendezvous." Watch the official, emotional video of "4th of July, Asbury Park (Sandy)" (also available on the EP). This show is available as part of Bruce's official archive series.
+**2023:** Bruce and the E Street Band tour premiere Boston standard “Dirty Water” at their show at TD Garden.
 
-**2008:** *Magic Tour Highlights*
+[Watch on Youtube: Bruce Springsteen - Dirty Water (The Standells cover) - Live in Boston (03/20/2023)](https://www.youtube.com/watch?v=JZCsXUXU_xo)
 
-[https://www.youtube.com/embed/kB1d0eey5ho](https://www.youtube.com/embed/kB1d0eey5ho)
+[Watch on Youtube: Mighty Max beats his way into Johnny 99..Bruce Springsteen and the E Street Band](https://www.youtube.com/watch?v=l2QeRG6eq-Q)
 
-[https://www.youtube.com/embed/7n7k0fBXgXw](https://www.youtube.com/embed/7n7k0fBXgXw)
+[Watch on Youtube: BADLANDS Bruce Springsteen & The E Street Band at TD Garden Boston MA 3/20/23](https://www.youtube.com/watch?v=Yl6GiZoDF3U)
 
-[https://www.youtube.com/embed/yK8BTJle8KI](https://www.youtube.com/embed/yK8BTJle8KI)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2008-03-20.jpg?resize=469%2C936&amp;ssl=1)
-
-Bruce marks the tenth anniversary of the Iraq War at Allphones Arena in Sydney, opening with an acoustic "Devils & Dust" and launching into a full-band "Last to Die."
-
-**2013:**<br>
-
-[https://www.youtube.com/embed/wClrxR6YW2Q](https://www.youtube.com/embed/wClrxR6YW2Q)
-
-[https://www.youtube.com/embed/yIu-YWFR9JQ](https://www.youtube.com/embed/yIu-YWFR9JQ)
-
-[https://www.youtube.com/embed/vHbZ2scnytk](https://www.youtube.com/embed/vHbZ2scnytk)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Bruce and the E Street Band tour premiere Boston standard "Dirty Water" at their show at TD Garden.
-
-**2023:**<br>
-
-[https://www.youtube.com/embed/JZCsXUXU_xo](https://www.youtube.com/embed/JZCsXUXU_xo)
-
-[https://www.youtube.com/embed/l2QeRG6eq-Q](https://www.youtube.com/embed/l2QeRG6eq-Q)
-
-[https://www.youtube.com/embed/Yl6GiZoDF3U](https://www.youtube.com/embed/Yl6GiZoDF3U)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Boston_Globe_Wed__Mar_22__2023_.jpg?resize=758%2C389&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2024/03/The_Boston_Globe_Wed__Mar_22__2023_.jpg)

@@ -1,16 +1,13 @@
+Bruce’s connection with Dion DiMucci goes way back to 1975 (even further if you count a second-degree association between Dion and Steve Van Zandt when Steve and The Dovells backed Dion in a 1972 show in Miami), and Bruce has called Dion “the link between Sinatra and rock and roll.”
 
-Bruce's connection with Dion DiMucci goes way back to 1975 (even further if you count a second-degree association between Dion and Steve Van Zandt when Steve and The Dovells backed Dion in a 1972 show in Miami), and Bruce has called Dion "the link between Sinatra and rock and roll."
+The two have performed together on stage in every decade since the 1970s, so it was perhaps only a matter of time before Dion tried his hand at covering one or two of Bruce’s songs.
 
-The two have performed together on stage in every decade since the 1970s, so it was perhaps only a matter of time before Dion tried his hand at covering one or two of Bruce's songs.
+Dion first covered Bruce in 1992 in a [doo-wop version](https://estreetshuffle.com/index.php/2018/09/07/cover-me-dion-if-i-should-fall-behind/) of Bruce’s 1992 standard “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/).” His second cover came eight years later on his *Deja Nu* album, with a loving reading of his former cover’s album-mate, “[Book of Dreams](https://estreetshuffle.com/index.php/2019/06/04/roll-of-the-dice-book-of-dreams/).”
 
-Dion first covered Bruce in 1992 in a of Bruce's 1992 standard "." His second cover came eight years later on his album, with a loving reading of his former cover's album-mate, "."
+In a 2000 NPR interview, Dion explained why “Book of Dreams” was so special to him:
 
-[doo-wop version](http://estreetshuffle.com/index.php/2018/09/07/cover-me-dion-if-i-should-fall-behind/)[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)*Deja Nu*[Book of Dreams](http://estreetshuffle.com/index.php/2019/06/04/roll-of-the-dice-book-of-dreams/)
+[Watch Video Highlight](https://videopress.com/embed/romJbOOm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-In a 2000 NPR interview, Dion explained why "Book of Dreams" was so special to him:
+Let’s take a listen to Dion’s lovely version of “Book of Dreams.” It’s both faithful to the album version yet distinctly Dion. I have to imagine Bruce strongly approves.
 
-[https://videopress.com/embed/romJbOOm](https://videopress.com/embed/romJbOOm)
-
-Let's take a listen to Dion's lovely version of "Book of Dreams." It's both faithful to the album version yet distinctly Dion. I have to imagine Bruce strongly approves.
-
-[https://www.youtube.com/embed/1e78uWtJdD0](https://www.youtube.com/embed/1e78uWtJdD0)
+[Watch on Youtube: Book of Dreams](https://www.youtube.com/watch?v=1e78uWtJdD0)

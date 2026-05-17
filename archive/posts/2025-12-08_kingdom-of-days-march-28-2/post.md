@@ -1,100 +1,75 @@
+**1970:** Steel Mill plays a second night at the Hullabaloo in Richmond.
 
-Steel Mill plays a second night at the Hullabaloo in Richmond.
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1970-0328.jpg)
 
-**1970:**<br>
+**1976:** Bruce and the E Street Band play a gig at Duke University, where “Raise Your Hand” makes its proper live debut.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1970-0328.jpg?resize=652%2C800&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - 1976-03-28 Cameron Indoor Stadium, Durham, NC](https://www.youtube.com/watch?v=5oWCb3rgJHA)
 
-Bruce and the E Street Band play a gig at Duke University, where "Raise Your Hand" makes its proper live debut.
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1976-03-28.jpg)
 
-**1976:**<br>
+**1979:** Three Mile Island nuclear power plant partially melts down in Pennsylvania. The incident inspires Bruce to write “Roulette.”
 
-[https://www.youtube.com/embed/5oWCb3rgJHA](https://www.youtube.com/embed/5oWCb3rgJHA)
+**1981:** Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1976-03-28.jpg?resize=758%2C669&amp;ssl=1)
+**1985:** At their fifth and final night in Sydney on the Born in the U.S.A. Tour, Bruce and the E Street Band play “Wreck on the Highway.” It will be a full twenty-five years before anyone hears the E Street Band perform it again.
 
-Three Mile Island nuclear power plant partially melts down in Pennsylvania. The incident inspires Bruce to write "Roulette."
+[Watch Video Highlight](https://videopress.com/embed/Wk0wuyNr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1979:**<br>
+**1988:** A rather significant show from the Tunnel of Love Express Tour in Detroit–the live recording of “Be True” that appears on *Chimes of Freedom* hails from this date. Also, *Inside the Tunnel of Love*, an MTV special, will air late this year, featuring footage from this night. The entire show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24299/bruce-springsteen-the-e-street-band-joe-louis-arena-detroit-mi-03-28-1988-mp3-flac-or-online-music-streaming.html). Backstage before the show, Bruce meets Gino Washington, the original recording artist for “Gino is a Coward,” for the first time. (Bruce has been covering Gino’s song in a transformed version called “I’m a Coward” nightly.)
 
-Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.
+[Watch on Youtube: Be True (Live at Joe Louis Arena, Detroit, MI - March 1988)](https://www.youtube.com/watch?v=oNjm71mWGpc)
 
-**1981:**<br>
+[Watch on Youtube: Springsteen - Tunnel Of Love - Detroit-3/28/88](https://www.youtube.com/watch?v=QW5JKTi2FjI)
 
-At their fifth and final night in Sydney on the Born in the U.S.A. Tour, Bruce and the E Street Band play "Wreck on the Highway." It will be a full twenty-five years before anyone hears the E Street Band perform it again.
+[Watch on Youtube: Bruce Springsteen "Walk Like A Man" Joe Louis Arena, Detroit, MI March 28, 1988](https://www.youtube.com/watch?v=Gk0km8Ge3Es)
 
-**1985:**<br>
+[Watch on Youtube: Springsteen - Brilliant Disguise - Detroit-3/28/88](https://www.youtube.com/watch?v=6u_Z0W67eKA)
 
-[https://videopress.com/embed/Wk0wuyNr](https://videopress.com/embed/Wk0wuyNr)
+[Watch on Youtube: Love Me Tender (Live at Joe Louis Arena, Detroit, MI - 03/28/88 - Official Audio)](https://www.youtube.com/watch?v=-biwMNiBLCg)
 
-A rather significant show from the Tunnel of Love Express Tour in Detroit–the live recording of "Be True" that appears on hails from this date. Also, , an MTV special, will air late this year, featuring footage from this night. The entire show is available as part of Bruce's official archive series–get it . Backstage before the show, Bruce meets Gino Washington, the original recording artist for "Gino is a Coward," for the first time. (Bruce has been covering Gino's song in a transformed version called "I'm a Coward" nightly.)
+[Watch on Youtube: Bruce Springsteen: Inside Tunnel of Love on VH1 1988](https://www.youtube.com/watch?v=Ms1q_1m69ng)
 
-**1988:***Chimes of Freedom**Inside the Tunnel of Love*[here](http://live.brucespringsteen.net/live-music/0,24299/bruce-springsteen-the-e-street-band-joe-louis-arena-detroit-mi-03-28-1988-mp3-flac-or-online-music-streaming.html)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-03-28b.jpg)
 
-[https://www.youtube.com/embed/oNjm71mWGpc](https://www.youtube.com/embed/oNjm71mWGpc)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-03-28c.jpg)
 
-[https://www.youtube.com/embed/QW5JKTi2FjI](https://www.youtube.com/embed/QW5JKTi2FjI)
+![](https://estreetshuffle.com/wp-content/uploads/2022/03/1988-03-28a.jpg)
 
-[https://www.youtube.com/embed/Gk0km8Ge3Es](https://www.youtube.com/embed/Gk0km8Ge3Es)
+**2003:** Bruce and the E Street Band play their first-ever show in New Zealand at the Western Springs Stadium in Auckland, where he tour premieres “Who’ll Stop the Rain.”
 
-[https://www.youtube.com/embed/6u_Z0W67eKA](https://www.youtube.com/embed/6u_Z0W67eKA)
+**2008:** The Magic Tour begins its Pacific Northwest swing with a show at the Rose Garden in Portland.
 
-[https://www.youtube.com/embed/-biwMNiBLCg](https://www.youtube.com/embed/-biwMNiBLCg)
+[Watch on Youtube: Bruce Springsteen "Lonesome Days" Portland OR March 28 2008](https://www.youtube.com/watch?v=xT7LMmSwdxA)
 
-[https://www.youtube.com/embed/Ms1q_1m69ng](https://www.youtube.com/embed/Ms1q_1m69ng)
+[Watch on Youtube: Bruce Springsteen - For You - Portland - March 28, 2008](https://www.youtube.com/watch?v=l9TWdEzs04g)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-28b.jpg?resize=758%2C395&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-28c.jpg?resize=415%2C826&amp;ssl=1)
+**2012:** At the first of two nights at the Wells Fargo Center in Philadelphia, “Seaside Bar Song” makes a very rare appearance.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-28a.jpg?resize=565%2C822&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/xaRe5dtt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the E Street Band play their first-ever show in New Zealand at the Western Springs Stadium in Auckland, where he tour premieres "Who'll Stop the Rain."
+[Watch Video Highlight](https://videopress.com/embed/yWlgWPb5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2003:**<br>
+[Watch on Youtube: Bruce Springsteen - Seaside Bar Song (2012-03-28, Philadelphia)](https://www.youtube.com/watch?v=Pi-92tTOCUM)
 
-The Magic Tour begins its Pacific Northwest swing with a show at the Rose Garden in Portland.
+![](https://estreetshuffle.com/wp-content/uploads/2022/03/2012-03-28-scaled.jpg)
 
-**2008:**<br>
+**2016:** At Madison Square Garden in NYC, Bruce breaks out the tour premiere of “Meeting Across the River” with its classic segue into “Jungleland” in the post-album set.
 
-[https://www.youtube.com/embed/xT7LMmSwdxA](https://www.youtube.com/embed/xT7LMmSwdxA)
+[Watch on Youtube: Bruce Springsteen Meet Me in the City New York MSG 2016](https://www.youtube.com/watch?v=HHcf30KilOI)
 
-[https://www.youtube.com/embed/l9TWdEzs04g](https://www.youtube.com/embed/l9TWdEzs04g)
+[Watch on Youtube: Bruce Springsteen & E-Street Band - NYC - 3-28-16 - "The Price you Pay"](https://www.youtube.com/watch?v=8IhwO2QtzRM)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg?resize=758%2C1019&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg?resize=758%2C1036&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - "Meeting Across The River/Jungleland" - MSG - 3/28/16](https://www.youtube.com/watch?v=jknFgrtUmnw)
 
-At the first of two nights at the Wells Fargo Center in Philadelphia, "Seaside Bar Song" makes a very rare appearance.
+**2018:** *Springsteen on Broadway* reaches a milestone–the 100th show–in its theatrical run at the Walter Kerr Theater in New York City. Michael Bloomberg is in attendance tonight.
 
-**2012:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2019/03/bloomberg.jpg)
 
-[https://videopress.com/embed/xaRe5dtt](https://videopress.com/embed/xaRe5dtt)
+**2024:** Bruce and the E Street Band return to San Francisco after more than two decades away, opening the show with “Something in the Night” for the first time in 47 years.
 
-[https://videopress.com/embed/yWlgWPb5](https://videopress.com/embed/yWlgWPb5)
+[Watch on Youtube: Something in the Night / Lonesome Day - Bruce Springsteen & ESB (live at SF 3/28/2024)](https://www.youtube.com/watch?v=aDptrfS-xP4)
 
-[https://www.youtube.com/embed/Pi-92tTOCUM](https://www.youtube.com/embed/Pi-92tTOCUM)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2012-03-28-scaled.jpg?resize=758%2C1226&amp;ssl=1)
-
-At Madison Square Garden in NYC, Bruce breaks out the tour premiere of "Meeting Across the River" with its classic segue into "Jungleland" in the post-album set.
-
-**2016:**<br>
-
-[https://www.youtube.com/embed/HHcf30KilOI](https://www.youtube.com/embed/HHcf30KilOI)
-
-[https://www.youtube.com/embed/8IhwO2QtzRM](https://www.youtube.com/embed/8IhwO2QtzRM)
-
-[https://www.youtube.com/embed/jknFgrtUmnw](https://www.youtube.com/embed/jknFgrtUmnw)
-
-reaches a milestone–the 100th show–in its theatrical run at the Walter Kerr Theater in New York City. Michael Bloomberg is in attendance tonight.
-
-**2018:** *Springsteen on Broadway*
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/03/bloomberg.jpg?resize=447%2C500&amp;ssl=1)
-
-Bruce and the E Street Band return to San Francisco after more than two decades away, opening the show with "Something in the Night" for the first time in 47 years.
-
-**2024:**<br>
-
-[https://www.youtube.com/embed/aDptrfS-xP4](https://www.youtube.com/embed/aDptrfS-xP4)
-
-[https://www.youtube.com/embed/xRHJI0tsWOo](https://www.youtube.com/embed/xRHJI0tsWOo)
+[Watch on Youtube: Two Hearts (Are Better Than One) - Bruce Springsteen @ Chase Arena, San Francisco CA 28 March 2024](https://www.youtube.com/watch?v=xRHJI0tsWOo)

@@ -1,68 +1,55 @@
+***New for 2025:** No updates*
 
-*No updates***New for 2025:**
+**1969:** Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they’ll rename themselves Steel Mill.
 
-Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they'll rename themselves Steel Mill.
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1969-0402.jpg)
 
-**1969:**<br>
+**1971:** Bruce and Steve play The Upstage in Asbury Park, leading separate bands but each playing a slate of hits from the 1950s.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1969-0402-158x300.jpg?resize=758%2C1441)
+**1976:** The Chicken Scratch Tour moves on to Louisville with a show at the Macauley Theater.
 
-Bruce and Steve play The Upstage in Asbury Park, leading separate bands but each playing a slate of hits from the 1950s.
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/1976-04-02.jpg)![](https://estreetshuffle.com/wp-content/uploads/2021/04/1976-04-02.jpg)![](https://estreetshuffle.com/wp-content/uploads/2020/03/1976-04-02.jpg)
 
-**1971:**<br>
+**1981:** Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.
 
-The Chicken Scratch Tour moves on to Louisville with a show at the Macauley Theater.
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
 
-**1976:**<br>
+**1988:** Bruce and the E Street Band play their second of two Tunnel of Love Express shows at Nassau Coliseum in Uniondale, New York.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1976-04-02.jpg?w=758&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1976-04-02.jpg?resize=1%2C1&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1976-04-02-300x234.jpg?resize=758%2C591)
+[Watch Video Highlight](https://videopress.com/embed/HHgVWkOa?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.
+[Watch Video Highlight](https://videopress.com/embed/4VNnCD69?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1981:**<br>
+[Watch on Youtube: Bruce Springsteen | Love Me Tender | April 2, 1988](https://www.youtube.com/watch?v=9wopuObCeV0)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1007)
+**2011:** The Garden State Film Festival premieres *Who Do I Think I Am,* a biographical film about Clarence Clemons, at the Paramount Theater in Asbury Park. Meanwhile, Bruce joins local Asbury musicians (including Southside Johnny, Vini Lopez, Ed Manion, and more) at a panel and Nicky Addeo concert at the Wonder Bar. Watch the complete panel discussion below and concert highlights below.
 
-Bruce and the E Street Band play their second of two Tunnel of Love Express shows at Nassau Coliseum in Uniondale, New York.
+[Watch on Youtube: West Side Sound AP 1 of 8](https://www.youtube.com/watch?v=S_LsNVa_HZ8)
 
-**1988:**<br>
+[Watch on Youtube: West Side Sound AP 2 of 8](https://www.youtube.com/watch?v=U1njfWNpzKY)
 
-[https://videopress.com/embed/HHgVWkOa](https://videopress.com/embed/HHgVWkOa)
+[Watch on Youtube: West Side Sound AP 3 of 8](https://www.youtube.com/watch?v=lwCNTWnLX00)
 
-[https://videopress.com/embed/4VNnCD69](https://videopress.com/embed/4VNnCD69)
+[Watch on Youtube: West Side Sound AP 4 of 8](https://www.youtube.com/watch?v=6--D9952Mag)
 
-[https://www.youtube.com/embed/9wopuObCeV0](https://www.youtube.com/embed/9wopuObCeV0)
+[Watch on Youtube: West Side Sound AP 5 of 8](https://www.youtube.com/watch?v=3D5qB2tELAU)
 
-The Garden State Film Festival premieres a biographical film about Clarence Clemons, at the Paramount Theater in Asbury Park. Meanwhile, Bruce joins local Asbury musicians (including Southside Johnny, Vini Lopez, Ed Manion, and more) at a panel and Nicky Addeo concert at the Wonder Bar. Watch the complete panel discussion below and concert highlights below.
+[Watch on Youtube: West Side Sound AP 6 of 8](https://www.youtube.com/watch?v=pWgGGe7ozuc)
 
-**2011:** *Who Do I Think I Am*,
+[Watch on Youtube: West Side Sound AP 7 of 8](https://www.youtube.com/watch?v=EQEdedi_BWc)
 
-[https://www.youtube.com/embed/S_LsNVa_HZ8](https://www.youtube.com/embed/S_LsNVa_HZ8)
+[Watch on Youtube: West Side Sound AP 8 of 8](https://www.youtube.com/watch?v=JfCV1lMKp8c)
 
-[https://www.youtube.com/embed/U1njfWNpzKY](https://www.youtube.com/embed/U1njfWNpzKY)
+[Watch on Youtube: "C. C. RIDER" featuring Bruce Springsteen ~ Video by Rose A Montana](https://www.youtube.com/watch?v=3mBASCpD06g)
 
-[https://www.youtube.com/embed/lwCNTWnLX00](https://www.youtube.com/embed/lwCNTWnLX00)
+[Watch on Youtube: Bruce Springsteen: What's Your Name @ The Wonder Bar 4/2/11](https://www.youtube.com/watch?v=eKmbOZuR9NU)
 
-[https://www.youtube.com/embed/6--D9952Mag](https://www.youtube.com/embed/6--D9952Mag)
+[Watch on Youtube: Bruce Springsteen: Johnny B. Goode @ The Wonder Bar 4/2/11](https://www.youtube.com/watch?v=lDmD6K13Jdk)
 
-[https://www.youtube.com/embed/3D5qB2tELAU](https://www.youtube.com/embed/3D5qB2tELAU)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2011-04-02a.jpg)
 
-[https://www.youtube.com/embed/pWgGGe7ozuc](https://www.youtube.com/embed/pWgGGe7ozuc)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2011-04-02b.jpg)
 
-[https://www.youtube.com/embed/EQEdedi_BWc](https://www.youtube.com/embed/EQEdedi_BWc)
+Following the show, Bruce stops by the after-party for Clarence’s film at Syanxis. It’s the last time Bruce and Clarence will be seen together in public.
 
-[https://www.youtube.com/embed/JfCV1lMKp8c](https://www.youtube.com/embed/JfCV1lMKp8c)
-
-[https://www.youtube.com/embed/3mBASCpD06g](https://www.youtube.com/embed/3mBASCpD06g)
-
-[https://www.youtube.com/embed/eKmbOZuR9NU](https://www.youtube.com/embed/eKmbOZuR9NU)
-
-[https://www.youtube.com/embed/lDmD6K13Jdk](https://www.youtube.com/embed/lDmD6K13Jdk)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2011-04-02a.jpg?resize=758%2C1506&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2011-04-02b-300x219.jpg?resize=758%2C553)
-
-Following the show, Bruce stops by the after-party for Clarence's film at Syanxis. It's the last time Bruce and Clarence will be seen together in public.
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2011-04-02b.png?resize=758%2C789&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2011-04-02b.png)

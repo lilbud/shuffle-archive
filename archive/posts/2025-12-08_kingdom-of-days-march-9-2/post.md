@@ -1,110 +1,85 @@
+**1973:** Bruce’s scheduled gig opening for Paul Butterfield in Phoenix is cancelled due to poor ticket sales.
 
-Bruce's scheduled gig opening for Paul Butterfield in Phoenix is cancelled due to poor ticket sales.
+![](https://estreetshuffle.com/wp-content/uploads/2021/02/1973-03-09.png)
 
-**1973:**<br>
+**1974:** In the afternoon, Bruce stops by KLOL-FM for the second day in a row, this time with the band. They play an extended on-air set that includes “The Fever,” a local radio favorite.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1973-03-09.png?resize=579%2C716&amp;ssl=1)
-
-In the afternoon, Bruce stops by KLOL-FM for the second day in a row, this time with the band. They play an extended on-air set that includes "The Fever," a local radio favorite.
-
-**1974:**<br>
-
-[https://www.youtube.com/embed/videoseries?list=PLmxwNSnqgfeeaSVGDu7VP_yaRzcaz7s2P](https://www.youtube.com/embed/videoseries?list=PLmxwNSnqgfeeaSVGDu7VP_yaRzcaz7s2P)
+[Watch on Youtube: Bruce Springsteen - "The lost radio show, remastered"](https://www.youtube.com/playlist?list=PLmxwNSnqgfeeaSVGDu7VP_yaRzcaz7s2P)
 
 That night, the boys play two shows at Liberty Hall.
 
-[https://videopress.com/embed/VC633j2B](https://videopress.com/embed/VC633j2B)
+[Watch Video Highlight](https://videopress.com/embed/VC633j2B?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Violinist Suki Lahav makes her last appearance with Bruce and the E Street Band when the Wild & Innocent Tour wraps up at DAR Constitution Hall in Washington, DC.
+**1975:** Violinist Suki Lahav makes her last appearance with Bruce and the E Street Band when the Wild & Innocent Tour wraps up at DAR Constitution Hall in Washington, DC.
 
-**1975:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1975-03-09.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1975-03-09.jpg?resize=264%2C499&amp;ssl=1)
+**1983:** Bruce records “Johnny Bye Bye” at his home studio in Los Angeles. It won’t be released for over forty years.
 
-Bruce records "Johnny Bye Bye" at his home studio in Los Angeles. It won't be released for over forty years.
+[Watch on Youtube: Bruce Springsteen - Johnny Bye Bye (Official Audio)](https://www.youtube.com/watch?v=JhZH2sekSQ8)
 
-**1983:**<br>
+**1985:** On this week’s edition of *American Top 40,* host Casey Kasem regales listeners with tales of Bruce’s Monopoly prowess while introducing his latest chart-climber, “I’m on Fire.”
 
-[https://www.youtube.com/embed/JhZH2sekSQ8](https://www.youtube.com/embed/JhZH2sekSQ8)
+[https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3?_=25](https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3?_=25)
 
-On this week's edition of host Casey Kasem regales listeners with tales of Bruce's Monopoly prowess while introducing his latest chart-climber, "I'm on Fire."
+<https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3>
 
-**1985:** *American Top 40*, <https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3>
+**1988:** Bruce and the E Street Band play the second of two nights at the Spectrum in Philadelphia, where “Raise Your Hand” closes the show in its first appearance in seven years.
 
-Bruce and the E Street Band play the second of two nights at the Spectrum in Philadelphia, where "Raise Your Hand" closes the show in its first appearance in seven years.
+[Watch Video Highlight](https://videopress.com/embed/JEl15R0m?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1988:**<br>
+**1992:** MTV debuts Bruce’s new video for “Human Touch” at 9pm Eastern Time, and then plays it every hour on the hour through 4pm the following day.
 
-[https://videopress.com/embed/JEl15R0m](https://videopress.com/embed/JEl15R0m)
+[Watch on Youtube: Bruce Springsteen - Human Touch (Official HD Video)](https://www.youtube.com/watch?v=85cNRQo1m3A)
 
-MTV debuts Bruce's new video for "Human Touch" at 9pm Eastern Time, and then plays it every hour on the hour through 4pm the following day.
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1992-03-09.png)
 
-**1992:**<br>
+**2000:** The Reunion Tour’s Florida swing continues with a show at the National Car Rental Center in Sunrise.
 
-[https://www.youtube.com/embed/85cNRQo1m3A](https://www.youtube.com/embed/85cNRQo1m3A)
+[Watch Video Highlight](https://videopress.com/embed/dWAWaSej?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1992-03-09.png?resize=758%2C468&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/hoNIyp2z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-The Reunion Tour's Florida swing continues with a show at the National Car Rental Center in Sunrise.
+[Watch Video Highlight](https://videopress.com/embed/OIp6vgk0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2000:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09a.jpg)
 
-[https://videopress.com/embed/dWAWaSej](https://videopress.com/embed/dWAWaSej)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09b.jpg)
 
-[https://videopress.com/embed/hoNIyp2z](https://videopress.com/embed/hoNIyp2z)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09c.jpg)
 
-[https://videopress.com/embed/OIp6vgk0](https://videopress.com/embed/OIp6vgk0)
+**2003:** Bruce grants an interview to *60 Minutes Australia* at his home in New Jersey.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09a.jpg?resize=758%2C589&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen on his farm in New Jersey | 60 Minutes Australia](https://www.youtube.com/watch?v=fp1Jy9uSvJ4)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09b.jpg?resize=758%2C757&amp;ssl=1)
+**2005:** Bruce rehearses for his upcoming solo tour at the Paramount Theater in Asbury Park.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09c.jpg?resize=585%2C873&amp;ssl=1)
+**2006:** Another tour rehearsal at the Paramount, this time with the Sessions Band.
 
-Bruce grants an interview to at his home in New Jersey.
+**2012:** Bruce and the E Street Band play a historic show at the Apollo Theater in New York City. Jake Clemons makes his E Street Band debut (this is the band’s first show without Clarence), and to ease the transition, the band now features a full horn section. The show itself is semi-private, sponsored by SiriusXM and broadcast live. This show will eventually kick off the official archive series of releases in 2014, and it is well worth owning.
 
-**2003:** *60 Minutes Australia*
+[Watch on Youtube: Bruce Springsteen and the E Street Band at the Apollo // SiriusXM // E Street](https://www.youtube.com/watch?v=8ojhFzOKibA)
 
-[https://www.youtube.com/embed/fp1Jy9uSvJ4](https://www.youtube.com/embed/fp1Jy9uSvJ4)
+[Watch on Youtube: Bruce Springsteen Rocks the Apollo Theater](https://www.youtube.com/watch?v=XKk5ne_0K_4)
 
-Bruce rehearses for his upcoming solo tour at the Paramount Theater in Asbury Park.
+[Watch on Youtube: Death To My Hometown (Apollo Theater 3/2/12)](https://www.youtube.com/watch?v=DgcJDNcyRFA)
 
-**2005:**<br>
+[Watch on Youtube: Springsteen@The Apollo Theatre ...Things You Do & 634-5789 Spiderman Multi-Cam](https://www.youtube.com/watch?v=9gLBvgvXTok)
 
-Another tour rehearsal at the Paramount, this time with the Sessions Band.
+[Watch on Youtube: Land of Hope and Dreams (Live at the Apollo Theater, New York, NY - 03/09/12 - Official Audio)](https://www.youtube.com/watch?v=Z8mwuDHAUEI)
 
-**2006:**<br>
+[Watch on Youtube: Bruce Springsteen plays intimate venue](https://www.youtube.com/watch?v=iyIfdt9O50g)
 
-Bruce and the E Street Band play a historic show at the Apollo Theater in New York City. Jake Clemons makes his E Street Band debut (this is the band's first show without Clarence), and to ease the transition, the band now features a full horn section. The show itself is semi-private, sponsored by SiriusXM and broadcast live. This show will eventually kick off the official archive series of releases in 2014, and it is well worth owning.
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2012-03-09a.jpg)
 
-**2012:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/2012-03-09b.jpg)
 
-[https://www.youtube.com/embed/8ojhFzOKibA](https://www.youtube.com/embed/8ojhFzOKibA)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is not present tonight, so Bruce plays “Long Time Comin'” and “The Ghost of Tom Joad” in place of “Tougher Than the Rest” and “Brilliant Disguise.”
 
-[https://www.youtube.com/embed/XKk5ne_0K_4](https://www.youtube.com/embed/XKk5ne_0K_4)
+**2022:** Bruce reminisces about his legendary Apollo Theater show on its tenth anniversary, with E Street Radio host Jim Rotolo.
 
-[https://www.youtube.com/embed/DgcJDNcyRFA](https://www.youtube.com/embed/DgcJDNcyRFA)
+[Watch on Youtube: Bruce talking 10 year anniversary of Apollo Theater performance. 3/9/22.](https://www.youtube.com/watch?v=mCk-8jeJJzw)
 
-[https://www.youtube.com/embed/9gLBvgvXTok](https://www.youtube.com/embed/9gLBvgvXTok)
+**2023:** Columbus fans are dejected when Bruce is forced to postpone his show at Nationwide Arena to September due to illness. But hey, it’s only a six month wait, right? Nope–the show will be postponed once more and finally take place more than a year after it’s originally scheduled date.
 
-[https://www.youtube.com/embed/Z8mwuDHAUEI](https://www.youtube.com/embed/Z8mwuDHAUEI)
-
-[https://www.youtube.com/embed/iyIfdt9O50g](https://www.youtube.com/embed/iyIfdt9O50g)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-09a.jpg?resize=758%2C296&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2012-03-09b.jpg?resize=317%2C935&amp;ssl=1)
-
-continues its theatrical run at the Walter Kerr Theater in New York City. Patti is not present tonight, so Bruce plays "Long Time Comin'" and "The Ghost of Tom Joad" in place of "Tougher Than the Rest" and "Brilliant Disguise."
-
-**2018:** *Springsteen on Broadway*
-
-Bruce reminisces about his legendary Apollo Theater show on its tenth anniversary, with E Street Radio host Jim Rotolo.
-
-**2022:**<br>
-
-[https://www.youtube.com/embed/mCk-8jeJJzw](https://www.youtube.com/embed/mCk-8jeJJzw)
-
-Columbus fans are dejected when Bruce is forced to postpone his show at Nationwide Arena to September due to illness. But hey, it's only a six month wait, right? Nope–the show will be postponed once more and finally take place more than a year after it's originally scheduled date.
-
-**2023:**<br>
+ 

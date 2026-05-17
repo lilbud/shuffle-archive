@@ -1,10 +1,11 @@
+Passenger broke through in 2012 with his global hit, “Let Her Go.” About two years later, he covered Bruce’s “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” during a promotional appearance at SiriusXM.
 
-Passenger broke through in 2012 with his global hit, "Let Her Go." About two years later, he covered Bruce's "" during a promotional appearance at SiriusXM.
+Passenger’s gentle singer-songwriter vibe is well-suited for the quieter side of Bruce’s catalog, and his stripped-down, acoustic approach to “The River” captures its melancholia in sharp black and white.
 
-[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
+(Gotta admit, though, I’m a bit distracted by the checkered-shirt dude in the background. About halfway through, he seems to get lost in the song.)
 
-Passenger's gentle singer-songwriter vibe is well-suited for the quieter side of Bruce's catalog, and his stripped-down, acoustic approach to "The River" captures its melancholia in sharp black and white.
+[Watch on Youtube: Passenger "The River" Bruce Springsteen Cover // The Coffee House // SiriusXM](https://www.youtube.com/watch?v=xb3dlQsIihc)
 
-(Gotta admit, though, I'm a bit distracted by the checkered-shirt dude in the background. About halfway through, he seems to get lost in the song.)
+ 
 
-[https://www.youtube.com/embed/xb3dlQsIihc](https://www.youtube.com/embed/xb3dlQsIihc)
+ 

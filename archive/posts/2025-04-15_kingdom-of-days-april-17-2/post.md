@@ -1,92 +1,69 @@
+***New for 2025:** Audio for 1999*
 
-*Audio for 1999***New for 2025:**
+**1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
-Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1971-0417.jpg)
 
-**1971:**<br>
+**1976:** Bruce and the E Street Band play a show at the University of Rochester.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1971-0417-300x233.jpg?resize=747%2C580)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1976-04-17.jpg)
 
-Bruce and the E Street Band play a show at the University of Rochester.
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1976-0417.jpg)
 
-**1976:**<br>
+**1977:** Bruce joins Southside Johnny and the Asbury Jukes at The Stone Pony for four songs.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-04-17-196x300.jpg?resize=758%2C1160)
+[Watch Video Highlight](https://videopress.com/embed/ztiTtNxb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0417-290x300.jpg?resize=758%2C784)
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1977-0417.jpg)
 
-Bruce joins Southside Johnny and the Asbury Jukes at The Stone Pony for four songs.
+**1988:** Bruce’s Tunnel of Love Express show at the St. Louis Arena is captured by a fan on film. Watch the full show here:
 
-**1977:**<br>
+[Watch Video Highlight](https://videopress.com/embed/L1ps9QQt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/ztiTtNxb](https://videopress.com/embed/ztiTtNxb)
+[Watch Video Highlight](https://videopress.com/embed/QauqQWqO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1977-0417-300x204.jpg?resize=758%2C516)
+[Watch Video Highlight](https://videopress.com/embed/1nnfAY8D?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce's Tunnel of Love Express show at the St. Louis Arena is captured by a fan on film. Watch the full show here:
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-17a.jpg)
 
-**1988:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-17b.jpg)
 
-[https://videopress.com/embed/L1ps9QQt](https://videopress.com/embed/L1ps9QQt)
+**1996:** Bruce plays a second solo acoustic show at Royal Albert Hall in London, where “[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)” is played for the first time in the U.K. This show was rescheduled from its original date in March.
 
-[https://videopress.com/embed/QauqQWqO](https://videopress.com/embed/QauqQWqO)
+[Watch Video Highlight](https://videopress.com/embed/ueRkPB8b?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/1nnfAY8D](https://videopress.com/embed/1nnfAY8D)
+**1999:** The Reunion Tour arrives in Italy, starting with a single show in Bologna. The set list features a rare outing for “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and an unusual opening arrangement for “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/).”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-17a-300x193.jpg?resize=758%2C488)
+[Watch on Youtube: Bruce Springsteen - Brilliant Disguise & Lucky Town (Live Bologna 1999)](https://www.youtube.com/watch?v=q2pvUIVEWyg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-17b-204x300.jpg?resize=758%2C1114)
+[Watch on Youtube: Bologna (4/17/1999)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1D8WN5_7CYB27KD-kHzweL0)
 
-Bruce plays a second solo acoustic show at Royal Albert Hall in London, where "" is played for the first time in the U.K. This show was rescheduled from its original date in March.
+**2000:** Joe Ely guest-stars for “[All Just to Get to You](https://estreetshuffle.com/index.php/2022/02/23/matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/)” at Bruce and the E Street Band’s Reunion show in Austin.
 
-**1996:** [The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)
+[Watch on Youtube: Bruce Springsteen and Joe Ely - "All Just to Get to You" - Austin, 2000-04-17](https://www.youtube.com/watch?v=ndgNa1X41jQ)
 
-[https://videopress.com/embed/ueRkPB8b](https://videopress.com/embed/ueRkPB8b)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2000-04-17.jpg)
 
-The Reunion Tour arrives in Italy, starting with a single show in Bologna. The set list features a rare outing for "" and an unusual opening arrangement for "."
+**2008:** Original E Street Band (and Child and Steel Mill) member Danny Federici passes away after a long battle against melanoma.
 
-**1999:** [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2008-04-17.jpg)
 
-[https://www.youtube.com/embed/q2pvUIVEWyg](https://www.youtube.com/embed/q2pvUIVEWyg)
+**2012:** Bruce brings the Wrecking Ball Tour to Quicken Loans Arena in Cleveland, where “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)” and “[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)” make their tour debuts.
 
-[https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1D8WN5_7CYB27KD-kHzweL0](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1D8WN5_7CYB27KD-kHzweL0)
+[Watch on Youtube: Bruce Springsteen- Badlands- Cleveland Quicken Loans Arena 4/17/12](https://www.youtube.com/watch?v=R0ix0kveYrc)
 
-Joe Ely guest-stars for "" at Bruce and the E Street Band's Reunion show in Austin.
+[Watch on Youtube: Bruce Springsteen - "My Love Will Not Let You Down" - Cleveland - April 17, 2012](https://www.youtube.com/watch?v=DAMqwgr-oOA)
 
-**2000:** [All Just to Get to You](https://estreetshuffle.com/index.php/2022/02/23/matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/)
+[Watch on Youtube: Bruce Springsteen - "634-5789" - Cleveland - April 17, 2012](https://www.youtube.com/watch?v=UOMdP1Bo2ow)
 
-[https://www.youtube.com/embed/ndgNa1X41jQ](https://www.youtube.com/embed/ndgNa1X41jQ)
+**2014:** The High Hopes Tour stops at Nashville’s Bridgestone Arena and brings with it tour premieres of “[Burning Love](https://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/)” and “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/),” and “[(I Can’t Get No) Satisfaction](https://estreetshuffle.com/index.php/2022/02/02/matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/).”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-04-17-284x300.jpg?resize=758%2C800)
+[Watch on Youtube: Bruce Springsteen - Burning Love Into Satisfaction](https://www.youtube.com/watch?v=OQDFsN_saAY)
 
-Original E Street Band (and Child and Steel Mill) member Danny Federici passes away after a long battle against melanoma.
+[Watch on Youtube: Bruce Springsteen - Hungry Heart Into Spirit In The Night](https://www.youtube.com/watch?v=ysd3Nz7JZ90)
 
-**2008:**<br>
+[Watch on Youtube: Bruce Springsteen - Thunder Road live Nashville, April 17, 2014 (TheDailyVinyl official)](https://www.youtube.com/watch?v=1TbsfN5h5UA)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-17.jpg?resize=758%2C1088&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2014-04-17.jpg)
 
-Bruce brings the Wrecking Ball Tour to Quicken Loans Arena in Cleveland, where "" and "" make their tour debuts.
-
-**2012:** [My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)[Light of Day](http://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/)
-
-[https://www.youtube.com/embed/R0ix0kveYrc](https://www.youtube.com/embed/R0ix0kveYrc)
-
-[https://www.youtube.com/embed/DAMqwgr-oOA](https://www.youtube.com/embed/DAMqwgr-oOA)
-
-[https://www.youtube.com/embed/UOMdP1Bo2ow](https://www.youtube.com/embed/UOMdP1Bo2ow)
-
-The High Hopes Tour stops at Nashville's Bridgestone Arena and brings with it tour premieres of "" and "," and "."
-
-**2014:** [Burning Love](http://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/)[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)[(I Can't Get No) Satisfaction](https://estreetshuffle.com/index.php/2022/02/02/matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/)
-
-[https://www.youtube.com/embed/OQDFsN_saAY](https://www.youtube.com/embed/OQDFsN_saAY)
-
-[https://www.youtube.com/embed/ysd3Nz7JZ90](https://www.youtube.com/embed/ysd3Nz7JZ90)
-
-[https://www.youtube.com/embed/1TbsfN5h5UA](https://www.youtube.com/embed/1TbsfN5h5UA)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2014-04-17-217x300.jpg?resize=758%2C1047)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.

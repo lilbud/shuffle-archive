@@ -1,132 +1,105 @@
+***New for 2025:** Audio for 1990; new entry for 2024*
 
-*Audio for 1990; new entry for 2024***New for 2025:**
+**1973:** Bruce headlines his final show of a three-night stand at My Father’s Place in Roslyn, New York.
 
-Bruce headlines his final show of a three-night stand at My Father's Place in Roslyn, New York.
+![](https://estreetshuffle.com/wp-content/uploads/2019/10/1973-11-15.jpg)
 
-**1973:**<br>
+**1974:** Bruce and the E Street Band play a gig at American University in Washington, DC, where Bruce’s cover of “[Wear My Ring Around Your Neck](https://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)” makes its debut.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1973-11-15-300x213.jpg?resize=758%2C538)
+![](https://estreetshuffle.com/wp-content/uploads/2019/10/1974-11-16.jpg)
 
-Bruce and the E Street Band play a gig at American University in Washington, DC, where Bruce's cover of "" makes its debut.
+**1978:** Bruce opens his Darkness show in Toronto with his first-ever performance of “[Ready Teddy.](https://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)”
 
-**1974:** [Wear My Ring Around Your Neck](http://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3?_=11](https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3?_=11)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1974-11-16.jpg?resize=758%2C640)
+<https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3>
 
-Bruce opens his Darkness show in Toronto with his first-ever performance of ""
+![](https://estreetshuffle.com/wp-content/uploads/2023/11/The_Toronto_Star_Fri__Nov_17__1978_.jpg)
 
-**1978:** [Ready Teddy.](http://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)<http://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3>
+**1984:** When the Born in the U.S.A. Tour stops at Iowa State University at Ames, Bruce debuts a new song–an outtake from *Born in the U.S.A.* called “Sugarland.”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Toronto_Star_Fri__Nov_17__1978_.jpg?resize=758%2C615&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen-Sugarland-11/16/84-Ames Iowa](https://www.youtube.com/watch?v=YmWslNfHwbw)
 
-When the Born in the U.S.A. Tour stops at Iowa State University at Ames, Bruce debuts a new song–an outtake from called "Sugarland."
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-11-16a.png)
 
-**1984:** *Born in the U.S.A.*
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-11-16b.png)
 
-[https://www.youtube.com/embed/YmWslNfHwbw](https://www.youtube.com/embed/YmWslNfHwbw)
+**1990:** Bruce plays the first of a pair of unique, remarkable benefit shows for the Christic Institute, a public interest law firm. This is Bruce’s first “official” concert since disbanding the E Street Band. He’s out of his comfort zone, and it shows. His life has changed: he’s firmly attached to Patti now (even if they’re not yet married), he’s a father, and his new life perspective informs the new work that comprises much of the setlist. World premieres abound: “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/),” “[57 Channels (And Nothin’ On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/),” “[When the Lights Go Out](https://estreetshuffle.com/index.php/2021/01/23/roll-of-the-dice-when-the-lights-go-out/),” and “[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)” all get their very first airings. Intimate performances of “[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/),” “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” (which sounds particularly forlorn tonight) take on new life. In the encores, Bonnie Raitt and Jackson Browne join Bruce for “[Highway 61 Revisite](https://estreetshuffle.com/index.php/2018/11/07/meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/)d” and a gorgeous rendition of “[Across the Borderline](https://estreetshuffle.com/index.php/2022/03/26/matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/).” This show is available for purchase as an official archive series installment (get it [here](https://live.brucespringsteen.net/live-music/0,14250/Bruce-Springsteen-mp3-flac-download-11-16-1990-The-Christic-Shows-at-The-Shrine-Los-Angeles-CA.html)) and is essential for any Springsteen fan.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-11-16a-300x166.png?resize=758%2C420)
+[Watch on Youtube: Bruce Springsteen - Real World](https://www.youtube.com/watch?v=RdDzv4C-krM)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-11-16b-238x300.png?resize=758%2C955)
+[Watch on Youtube: Brilliant Disguie (solo acoustic) Bruce Springsteen 11/16/1990 (Christic Benefit)](https://www.youtube.com/watch?v=03dJ0y_nuXY)
 
-Bruce plays the first of a pair of unique, remarkable benefit shows for the Christic Institute, a public interest law firm. This is Bruce's first "official" concert since disbanding the E Street Band. He's out of his comfort zone, and it shows. His life has changed: he's firmly attached to Patti now (even if they're not yet married), he's a father, and his new life perspective informs the new work that comprises much of the setlist. World premieres abound: "," "," "," and "" all get their very first airings. Intimate performances of "," "" and "" (which sounds particularly forlorn tonight) take on new life. In the encores, Bonnie Raitt and Jackson Browne join Bruce for "d" and a gorgeous rendition of "." This show is available for purchase as an official archive series installment (get it ) and is essential for any Springsteen fan.
+[Watch on Youtube: Bruce Springsteen My Fathers House acoustic - 16 Nov 1990 (subtitulado en español)](https://www.youtube.com/watch?v=QsPaVvgq91s)
 
-**1990:** [Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)[57 Channels (And Nothin' On)](http://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)[When the Lights Go Out](https://estreetshuffle.com/index.php/2021/01/23/roll-of-the-dice-when-the-lights-go-out/)[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[Highway 61 Revisite](http://estreetshuffle.com/index.php/2018/11/07/meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/)[Across the Borderline](https://estreetshuffle.com/index.php/2022/03/26/matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/)[here](http://live.brucespringsteen.net/live-music/0,14250/Bruce-Springsteen-mp3-flac-download-11-16-1990-The-Christic-Shows-at-The-Shrine-Los-Angeles-CA.html)
+[Watch on Youtube: Brilliant Disguise (Live at the Shrine, Los Angeles, CA (Set 1) - 11/16/90 - Official A...](https://www.youtube.com/watch?v=tWUgNuJKpgw)
 
-[https://www.youtube.com/embed/RdDzv4C-krM](https://www.youtube.com/embed/RdDzv4C-krM)
+[Watch on Youtube: 57 Channels (And Nothin' On) (Live at the Shrine, Los Angeles, CA - 11/16/1990 - (Set 1))](https://www.youtube.com/watch?v=t0hoIHgwFzw)
 
-[https://www.youtube.com/embed/03dJ0y_nuXY](https://www.youtube.com/embed/03dJ0y_nuXY)
+[Watch on Youtube: Soul Driver (Live at The Shrine, Los Angeles, CA - 11/16/90 - Official Audio)](https://www.youtube.com/watch?v=Igvu_8v0agw)
 
-[https://www.youtube.com/embed/QsPaVvgq91s](https://www.youtube.com/embed/QsPaVvgq91s)
+[Watch on Youtube: My Father's House (Live at the Shrine, Los Angeles, CA - 11/16/90)](https://www.youtube.com/watch?v=DvUtuVXw0m0)
 
-[https://www.youtube.com/embed/tWUgNuJKpgw](https://www.youtube.com/embed/tWUgNuJKpgw)
+[Watch on Youtube: Highway 61 Revisited (Live at the Shrine Auditorium, Los Angeles, CA - 11/16/1990 - Off...](https://www.youtube.com/watch?v=hNUPdBxYJ68)
 
-[https://www.youtube.com/embed/t0hoIHgwFzw](https://www.youtube.com/embed/t0hoIHgwFzw)
+[Watch on Youtube: Bruce Springsteen, Jackson Browne, Bonnie Raitt - CNN coverage of Christic shows 1990-11-16](https://www.youtube.com/watch?v=QhP7dZyzI3Q)
 
-[https://www.youtube.com/embed/Igvu_8v0agw](https://www.youtube.com/embed/Igvu_8v0agw)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/1990-11-16.png)
 
-[https://www.youtube.com/embed/DvUtuVXw0m0](https://www.youtube.com/embed/DvUtuVXw0m0)
+**2002:** Bruce tour premieres “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” and plays a rare solo piano “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” at his Rising show in Greensboro, but it’s his fall during “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)” that almost ends up a literal show-stopper. Bruce stopped a serious fall by a deft save using Max’s drum stand, but the mishap was enough to draw blood, shocking fans who watched Bruce just continue on as if nothing had happened.
 
-[https://www.youtube.com/embed/hNUPdBxYJ68](https://www.youtube.com/embed/hNUPdBxYJ68)
+[Watch on Youtube: Greensboro 16/11/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zBw1XNC6JtojlWZEUUt1QoC)
 
-[https://www.youtube.com/embed/QhP7dZyzI3Q](https://www.youtube.com/embed/QhP7dZyzI3Q)
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/2002-11-16a.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1990-11-16-122x300.png?resize=758%2C1864)
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/2002-11-16b.png)
 
-Bruce tour premieres "" and plays a rare solo piano "" at his Rising show in Greensboro, but it's his fall during "" that almost ends up a literal show-stopper. Bruce stopped a serious fall by a deft save using Max's drum stand, but the mishap was enough to draw blood, shocking fans who watched Bruce just continue on as if nothing had happened.
+**2005:** Bruce opens a two-night solo acoustic stand at the Continental Airlines Arena in East Rutherford, where “[Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)” gets a new arrangement on ukulele.
 
-**2002:** [Cadillac Ranch](http://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Waitin' on a Sunny Day](http://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)
+[Watch on Youtube: The Wall (solo piano) Bruce Springsteen 11/16/2005 NJ](https://www.youtube.com/watch?v=piMyePznQWE)
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBw1XNC6JtojlWZEUUt1QoC](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBw1XNC6JtojlWZEUUt1QoC)
+![](https://estreetshuffle.com/wp-content/uploads/2023/11/Asbury_Park_Press_Sat__Nov_19__2005_.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2002-11-16a.png?resize=457%2C1357&amp;ssl=1)
+**2007:** Bruce hits the beach in Ocean Grove, New Jersey to record the official video for “[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/).” (Thanks to Stan Goldstein for the pointer to the “behind the scenes” video!)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2002-11-16b.png?resize=456%2C3040&amp;ssl=1)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=I7J8UZ_Z23s)
 
-Bruce opens a two-night solo acoustic stand at the Continental Airlines Arena in East Rutherford, where "" gets a new arrangement on ukulele.
+[Watch Video Highlight](https://videopress.com/embed/MjILokkm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2005:** [Does This Bus Stop at 82nd Street?](http://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)
+**2010:** Bruce releases *The Promise: The Darkness on the Edge of Town Story* box set, featuring a new double-album of previously unreleased songs. That evening, he makes a guest appearance on *Late Night with Jimmy Fallon,* masquerading as “1975 Bruce” to perform “[Whip My Hair](https://estreetshuffle.com/index.php/2019/09/05/matr-bruce-springsteen-and-jimmy-fallon-whip-my-hair/)” with Fallon (who is masquerading as Neil Young). Once rid of the disguise, Bruce performs “Because the Night” (with Patti Smith’s lyrics) and “[Save My Love](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/),” accompanied by Steve, Roy, and The Roots.
 
-[https://www.youtube.com/embed/piMyePznQWE](https://www.youtube.com/embed/piMyePznQWE)
+[Watch on Youtube: The Promise](https://www.youtube.com/playlist?list=OLAK5uy_mCQxEZoH6hfjwIUf-N0BouhY-AR5jONxc)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Asbury_Park_Press_Sat__Nov_19__2005_.jpg?resize=758%2C696&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/nyF7ql3o?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce hits the beach in Ocean Grove, New Jersey to record the official video for "." (Thanks to Stan Goldstein for the pointer to the "behind the scenes" video!)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/2010-11-16a.png)
 
-**2007:** [Girls in Their Summer Clothes](http://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/2010-11-16b.png)
 
-[https://www.youtube.com/embed/I7J8UZ_Z23s?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/I7J8UZ_Z23s?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+**2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://videopress.com/embed/MjILokkm](https://videopress.com/embed/MjILokkm)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-Bruce releases box set, featuring a new double-album of previously unreleased songs. That evening, he makes a guest appearance on masquerading as "1975 Bruce" to perform "" with Fallon (who is masquerading as Neil Young). Once rid of the disguise, Bruce performs "Because the Night" (with Patti Smith's lyrics) and "," accompanied by Steve, Roy, and The Roots.
+**2019:** Bruce plays a private benefit show with Bobby Bandiera and his band (and for half the show, Max Weinberg on drums) for Boston College.
 
-**2010:** *The Promise: The Darkness on the Edge of Town Story**Late Night with Jimmy Fallon*, [Whip My Hair](http://estreetshuffle.com/index.php/2019/09/05/matr-bruce-springsteen-and-jimmy-fallon-whip-my-hair/)[Save My Love](http://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/)
+[Watch on Youtube: Bruce Springsteen 634-5789](https://www.youtube.com/watch?v=ldfdgTvQOsY)
 
-[https://www.youtube.com/embed/videoseries?list=OLAK5uy_mCQxEZoH6hfjwIUf-N0BouhY-AR5jONxc](https://www.youtube.com/embed/videoseries?list=OLAK5uy_mCQxEZoH6hfjwIUf-N0BouhY-AR5jONxc)
+[Watch on Youtube: Bruce Springsteen - Growing Up - Stone Pony - 11/16/2019](https://www.youtube.com/watch?v=fXYOB55cGHk)
 
-[https://videopress.com/embed/nyF7ql3o](https://videopress.com/embed/nyF7ql3o)
+[Watch on Youtube: Springsteen Nov 2019 Stone Pony NJ](https://www.youtube.com/watch?v=gN_zJDPHkG0)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2010-11-16a-300x248.png?resize=758%2C626)
+[Watch on Youtube: Bruce Springsteen - Thunder Road (Solo-Acoustic)](https://www.youtube.com/watch?v=79JneALz41c)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2010-11-16b-148x300.png?resize=758%2C1537)
+![](https://estreetshuffle.com/wp-content/uploads/2020/10/2019-11-16.png)
 
-continues its theatrical run at the Walter Kerr Theater in New York City.
+**2022:** On the third night of his *Tonight Show* “takeover,” Bruce performs “Nightshift” (recorded during his studio appearance two days prior.
 
-**2017:***Springsteen on Broadway*
+[Watch Video Highlight](https://videopress.com/embed/7UxhpP9T?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-continues its theatrical run at the Walter Kerr Theater in New York City.
+**2023:** Bruce’s scheduled show in Ottawa is postponed by almost a year due to his peptic ulcer disease.
 
-**2018:***Springsteen on Broadway*
+**2024:** More than a year after it was originally scheduled, Bruce and the E Street Band perform at Scotiabank Saddledome in Calgary.
 
-Bruce plays a private benefit show with Bobby Bandiera and his band (and for half the show, Max Weinberg on drums) for Boston College.
+[Watch on Youtube: She's The One - Bruce Springsteen, Calgary AB, November 22, 2024](https://www.youtube.com/watch?v=76QhRyDrqWw)
 
-**2019:**<br>
-
-[https://www.youtube.com/embed/ldfdgTvQOsY](https://www.youtube.com/embed/ldfdgTvQOsY)
-
-[https://www.youtube.com/embed/fXYOB55cGHk](https://www.youtube.com/embed/fXYOB55cGHk)
-
-[https://www.youtube.com/embed/gN_zJDPHkG0](https://www.youtube.com/embed/gN_zJDPHkG0)
-
-[https://www.youtube.com/embed/79JneALz41c](https://www.youtube.com/embed/79JneALz41c)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2019-11-16-300x282.png?resize=758%2C712)
-
-On the third night of his "takeover," Bruce performs "Nightshift" (recorded during his studio appearance two days prior.
-
-**2022:** *Tonight Show*
-
-[https://videopress.com/embed/7UxhpP9T](https://videopress.com/embed/7UxhpP9T)
-
-Bruce's scheduled show in Ottawa is postponed by almost a year due to his peptic ulcer disease.
-
-**2023:**<br>
-
-More than a year after it was originally scheduled, Bruce and the E Street Band perform at Scotiabank Saddledome in Calgary.
-
-**2024:**<br>
-
-[https://www.youtube.com/embed/76QhRyDrqWw](https://www.youtube.com/embed/76QhRyDrqWw)
-
-[https://www.youtube.com/embed/CXC5Cge2nis](https://www.youtube.com/embed/CXC5Cge2nis)
+[Watch on Youtube: My Hometown - Bruce Springsteen, Calgary AB, November 22, 2024](https://www.youtube.com/watch?v=CXC5Cge2nis)

@@ -1,128 +1,95 @@
+***New for 2025:** Audio for 1974; review for 1978; video for 2002*
 
-*Audio for 1974; review for 1978; video for 2002***New for 2025:**
+**1950:** Bruce’s younger sister Ginny is born in Freehold, New Jersey. Decades later, she will inspire Bruce’s timeless classic, “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/).”
 
-Bruce's younger sister Ginny is born in Freehold, New Jersey. Decades later, she will inspire Bruce's timeless classic, "."
+**1972:** Peter Knobler interviews Bruce for *Crawdaddy* at Bruce’s girlfriend’s house in Bradley Beach. That night, Bruce and the as-yet-unnamed E Street Band play their fourth night of a six-night, two-shows-nightly stand at Kenny’s Castaways in New York City.
 
-**1950:** [The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
+![](https://estreetshuffle.com/wp-content/uploads/2019/11/1972-12-05.jpg)
 
-Peter Knobler interviews Bruce for at Bruce's girlfriend's house in Bradley Beach. That night, Bruce and the as-yet-unnamed E Street Band play their fourth night of a six-night, two-shows-nightly stand at Kenny's Castaways in New York City.
+**1973:** Bruce and his band play three sets at Childe Harold in Washington DC–their last of three nights.
 
-**1972:** *Crawdaddy*
+![](https://estreetshuffle.com/wp-content/uploads/2019/11/1973-12-07.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1972-12-05-300x226.jpg?resize=758%2C571)
+**1974:** Bruce and the E Street Band play their first-ever show in Vermont, at the Burlington Memorial Auditorium. (Thanks to friend of the blog Jym Wilson for the poster scan!)
 
-Bruce and his band play three sets at Childe Harold in Washington DC–their last of three nights.
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Burlington, VT 1974-12-08](https://www.youtube.com/watch?v=XlB14zFL3a4)
 
-**1973:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/1974-12-08a.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1973-12-07-300x134.jpg?resize=758%2C338)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/1974-12-08b.png)
 
-Bruce and the E Street Band play their first-ever show in Vermont, at the Burlington Memorial Auditorium. (Thanks to friend of the blog Jym Wilson for the poster scan!)
+![](https://estreetshuffle.com/wp-content/uploads/2021/12/1974-12-08.jpg)
 
-**1974:**<br>
+**1978:** Bruce and the E Street Band bring the Darkness Tour to The Summit in Houston, where the setlist features a rare outing for “[The Fever,](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)” which has always been popular in Texas. This show will be made available years later as part of Bruce’s official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,17715/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-8-1978-The-Summit-Houston-TX.html)) and in video form in the anniversary box set for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).
 
-[https://www.youtube.com/embed/XlB14zFL3a4](https://www.youtube.com/embed/XlB14zFL3a4)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Badlands (Live in Houston, 1978)](https://www.youtube.com/watch?v=LlvzAnYDCjc)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1974-12-08a.png?resize=758%2C1161&amp;ssl=1)
+[Watch on Youtube: The Ties That Bind (Live at the Summit, Houston, TX - 12/08/78 - Official Audio)](https://www.youtube.com/watch?v=i0Xz99joV2Y)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1974-12-08b.png?resize=758%2C881&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/12/The_Houston_Chronicle_1978_12_09_36.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/12/1974-12-08.jpg?resize=758%2C1068&amp;ssl=1)
+**1980:** Bruce and the boys play their second of three River Tour nights at the Philadelphia Spectrum. Earlier that Day, John Lennon gave an interview praising “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” as his current favorite song. It would prove to be his last favorite song: while Bruce is on stage performing tonight, John Lennon is murdered in New York City.
 
-Bruce and the E Street Band bring the Darkness Tour to The Summit in Houston, where the setlist features a rare outing for "" which has always been popular in Texas. This show will be made available years later as part of Bruce's official archive series (get it ) and in video form in the anniversary box set for .
+[JohnLennonOnHungryHeartTheCars&StartingOver8Dec1980 by Backstreets Magazine](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F236345246&show_artwork=true&maxheight=1000&maxwidth=758)
 
-**1978:** [The Fever,](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)[here](http://live.brucespringsteen.net/live-music/0,17715/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-8-1978-The-Summit-Houston-TX.html)[](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness on the Edge of Town*
 
-[https://www.youtube.com/embed/LlvzAnYDCjc?list=PLJ3gKh8Ty5pbPagh86u0V1A-eeUwzul1Z](https://www.youtube.com/embed/LlvzAnYDCjc?list=PLJ3gKh8Ty5pbPagh86u0V1A-eeUwzul1Z)
 
-[https://www.youtube.com/embed/i0Xz99joV2Y](https://www.youtube.com/embed/i0Xz99joV2Y)
+[Watch on Youtube: Bruce Springsteen - "I'm a Rocker" - Philadelphia, 1980-12-08](https://www.youtube.com/watch?v=6gn4E2g70iw)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/12/The_Houston_Chronicle_1978_12_09_36.jpg?resize=758%2C1425&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/1980-12-08.png)
 
-Bruce and the boys play their second of three River Tour nights at the Philadelphia Spectrum. Earlier that Day, John Lennon gave an interview praising "" as his current favorite song. It would prove to be his last favorite song: while Bruce is on stage performing tonight, John Lennon is murdered in New York City.
+**1992:** On Night Two in Philadelphia, Bruce debuts a new song (sort of) when nature calls in the middle of the show, Frank Bruno makes a guest appearance long before he joins the Sessions Band, and “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” makes its only tour appearance outside of its namesake state.
 
-**1980:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
+[Watch on Youtube: Bruce Springsteen takes a pit-stop](https://www.youtube.com/watch?v=CC2hnnUR9VM)
 
-[https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F236345246&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F236345246&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
+[Watch Video Highlight](https://videopress.com/embed/kc4U9SJP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/6gn4E2g70iw](https://www.youtube.com/embed/6gn4E2g70iw)
+**1995:** Bruce’s solo acoustic performance at Philadelphia’s Tower Theater is recorded. Much of it will be broadcast on the Columbia Records Radio Hour the following week.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1980-12-08.png?resize=758%2C415&amp;ssl=1)
+[Watch on Youtube: Does This Bus Stop at 82nd Street? (Live at the Tower Theatre in Philadelphia, PA - December 1995)](https://www.youtube.com/watch?v=NJHhXqGfSvc)
 
-On Night Two in Philadelphia, Bruce debuts a new song (sort of) when nature calls in the middle of the show, Frank Bruno makes a guest appearance long before he joins the Sessions Band, and "" makes its only tour appearance outside of its namesake state.
+[Watch on Youtube: Sinaloa Cowboys (Live at The Tower Theater, Philadelphia, PA - December 1995)](https://www.youtube.com/watch?v=7FFtfmvmG7U)
 
-**1992:** [Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/1995-12-08.png)
 
-[https://www.youtube.com/embed/CC2hnnUR9VM](https://www.youtube.com/embed/CC2hnnUR9VM)
+**1998:** Continuing his European media blitz, Bruce appears on a Swedish talk show, performing and answering questions at TV4 Studios in Stockholm–and confirming what he’d only hinted at yesterday: the E Street Band will shortly reunite for a world tour. Before the day is out, an official press release will make news worldwide.
 
-[https://videopress.com/embed/kc4U9SJP](https://videopress.com/embed/kc4U9SJP)
+[Watch on Youtube: Bruce Springsteen - ""Born in the USA" - Stockholm, 1998-12-08](https://www.youtube.com/watch?v=iajdfmZVcLE)
 
-Bruce's solo acoustic performance at Philadelphia's Tower Theater is recorded. Much of it will be broadcast on the Columbia Records Radio Hour the following week.
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/1998-12-08.png)
 
-**1995:**<br>
+**2001:** Bruce, The Max Weinberg 7 and a host of friends play their fifth and final holiday show at Asbury Park’s Convention Hall in support of local charities. All of last night’s guests are present (including Bruce Hornsby), but now Elvis Costello joins the ensemble as well.
 
-[https://www.youtube.com/embed/NJHhXqGfSvc](https://www.youtube.com/embed/NJHhXqGfSvc)
+[Watch Video Highlight](https://videopress.com/embed/jrfYsRuK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/7FFtfmvmG7U](https://www.youtube.com/embed/7FFtfmvmG7U)
+**2002:** Bruce and the E Street Band bring the Rising Tour to the Charlotte Coliseum, where the set list features a rare outing for “[Where the Bands Are](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/).”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1995-12-08.png?resize=758%2C1166&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/YYmGDuYj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Continuing his European media blitz, Bruce appears on a Swedish talk show, performing and answering questions at TV4 Studios in Stockholm–and confirming what he'd only hinted at yesterday: the E Street Band will shortly reunite for a world tour. Before the day is out, an official press release will make news worldwide.
+[Watch on Youtube: Bruce Springsteen - Santa Claus Is Comin' To Town - Charlotte, NC (2002)](https://www.youtube.com/watch?v=oUi0Gr3y2uY)
 
-**1998:**<br>
+[Watch Video Highlight](https://videopress.com/embed/cS3pgwTL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/iajdfmZVcLE](https://www.youtube.com/embed/iajdfmZVcLE)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/2002-12-08.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1998-12-08.png?resize=758%2C2274&amp;ssl=1)
+**2003:** Bruce, the Max Weinberg 7, and a host of friends hold their third of a three-pack of holiday shows at Asbury Park’s Convention Hall to benefit local charities. The stage is once again filled with a host of stellar musicians including Jesse Malin, Sam Moore, Willie Nile, and much of the E Street Band.
 
-Bruce, The Max Weinberg 7 and a host of friends play their fifth and final holiday show at Asbury Park's Convention Hall in support of local charities. All of last night's guests are present (including Bruce Hornsby), but now Elvis Costello joins the ensemble as well.
+[Watch Video Highlight](https://videopress.com/embed/AIyBV1Xu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2001:**<br>
+[Watch Video Highlight](https://videopress.com/embed/R4R19Exe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/jrfYsRuK](https://videopress.com/embed/jrfYsRuK)
+**2007:** Bruce tour premieres “The River” when the Magic Tour stops for a night in Copenhagen.
 
-Bruce and the E Street Band bring the Rising Tour to the Charlotte Coliseum, where the set list features a rare outing for "."
+[Watch Video Highlight](https://videopress.com/embed/l0nE1YSr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2002:** [Where the Bands Are](http://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)
+[Watch on Youtube: Bruce Springsteen - The River, Copenhagen 8th december 2007](https://www.youtube.com/watch?v=BFmivpSBvBo)
 
-[https://videopress.com/embed/YYmGDuYj](https://videopress.com/embed/YYmGDuYj)
+**2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/oUi0Gr3y2uY](https://www.youtube.com/embed/oUi0Gr3y2uY)
+**2018:** *Springsteen on Broadway* is in the home stretch of its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://videopress.com/embed/cS3pgwTL](https://videopress.com/embed/cS3pgwTL)
+**2019:** At a closed rehearsal at SIR Stage 37 in New York City, Bruce rehearses with John Mellencamp for Sting’s 30th anniversary benefit show for the Rainforest Fund the following day.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-08.png?resize=758%2C1278&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/2019-12-08.png)
 
-Bruce, the Max Weinberg 7, and a host of friends hold their third of a three-pack of holiday shows at Asbury Park's Convention Hall to benefit local charities. The stage is once again filled with a host of stellar musicians including Jesse Malin, Sam Moore, Willie Nile, and much of the E Street Band.
-
-**2003:**<br>
-
-[https://videopress.com/embed/AIyBV1Xu](https://videopress.com/embed/AIyBV1Xu)
-
-[https://videopress.com/embed/R4R19Exe](https://videopress.com/embed/R4R19Exe)
-
-Bruce tour premieres "The River" when the Magic Tour stops for a night in Copenhagen.
-
-**2007:**<br>
-
-[https://videopress.com/embed/l0nE1YSr](https://videopress.com/embed/l0nE1YSr)
-
-[https://www.youtube.com/embed/BFmivpSBvBo](https://www.youtube.com/embed/BFmivpSBvBo)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2017:** *Springsteen on Broadway*
-
-is in the home stretch of its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-At a closed rehearsal at SIR Stage 37 in New York City, Bruce rehearses with John Mellencamp for Sting's 30th anniversary benefit show for the Rainforest Fund the following day.
-
-**2019:**<br>
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2019-12-08.png?resize=758%2C939&amp;ssl=1)
-
-Months before, Bruce's scheduled show in San Francisco is postponed four days to December 12th. It will end up being postponed again.
-
-**2023:**<br>
+**2023:** Months before, Bruce’s scheduled show in San Francisco is postponed four days to December 12th. It will end up being postponed again.

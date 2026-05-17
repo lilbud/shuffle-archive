@@ -1,66 +1,49 @@
+**1973**: Bruce’s recording career is born with the release of his first album, [*Greetings from Asbury Park, N.J*.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/) It garners some critical praise but sells a mere 25,000 copies in its first run, eventually rising to #60 on the charts.
 
-: Bruce's recording career is born with the release of his first album, It garners some critical praise but sells a mere 25,000 copies in its first run, eventually rising to #60 on the charts.
+[Watch on Youtube: Greetings from Asbury Park, N.J.](https://www.youtube.com/playlist?list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
 
-**1973**[.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J*
+![](https://estreetshuffle.com/wp-content/uploads/2022/01/1973-01-05a.jpg)
 
-[https://www.youtube.com/embed/videoseries?list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0](https://www.youtube.com/embed/videoseries?list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
+![](https://estreetshuffle.com/wp-content/uploads/2022/01/1973-01-05b.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/01/1973-01-05a.jpg?resize=758%2C556&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Philadelphia_Inquirer_1973_01_21_Page_90-1-1.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/01/1973-01-05b.jpg?resize=758%2C556&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/1973-01-05b.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Philadelphia_Inquirer_1973_01_21_Page_90-1-1.jpg?resize=758%2C870&amp;ssl=1)
+That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, opening for Travis, Shook and The Club Wow. These photos are of Bruce tuning up for the show backstage. (Photo credit: Phil Ceccola)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1973-01-05b.png?resize=758%2C1148&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/1973-0105-a.jpg)
 
-That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, opening for Travis, Shook and The Club Wow. These photos are of Bruce tuning up for the show backstage.
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/1973-0105-b.jpg)
 
-(Photo credit: Phil Ceccola)
+**1974**: Bruce plays the second of a three-night stand at Joe’s Place in Cambridge, Massachusetts. (Photo credit: Jeff Albertson)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1973-0105-a.jpg?resize=496%2C334&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2019/12/1974-01-05.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1973-0105-b.jpg?resize=464%2C578&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/1975-0105-b.jpg)
 
-: Bruce plays the second of a three-night stand at Joe's Place in Cambridge, Massachusetts.
+**1975**: Bruce makes a guest appearance at The Stone Pony in Asbury Park. The headliner is The Blackberry Booze Band, forerunners to Southside Johnny and the Asbury Jukes.
 
-**1974**(Photo credit: Jeff Albertson)
+**1982**: Bruce joins the Lord Gunner Group onstage at the Stone Pony for performances of “[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)” and “[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/).”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/1974-01-05-300x192.jpg?resize=758%2C485)
+![1994-0105-a](https://estreetshuffle.com/wp-content/uploads/2018/01/1994-0105-a-1.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1975-0105-b.jpg?resize=472%2C326&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2024/01/The_Courier_News_Sat__Jan_23__1982_.jpg)
 
-: Bruce makes a guest appearance at The Stone Pony in Asbury Park. The headliner is The Blackberry Booze Band, forerunners to Southside Johnny and the Asbury Jukes.
+**1985**: Bruce and the E Street Band play their second of two Born in the U.S.A. shows at the Hampton Roads Coliseum in Virginia.
 
-**1975**<br>
+[Watch Video Highlight](https://videopress.com/embed/uLsPLzGo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-: Bruce joins the Lord Gunner Group onstage at the Stone Pony for performances of "" and "."
-
-**1982**[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)
-
-![1994-0105-a](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1994-0105-a-1.jpg?resize=758%2C758)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/01/The_Courier_News_Sat__Jan_23__1982_.jpg?resize=758%2C557&amp;ssl=1)
-
-: Bruce and the E Street Band play their second of two Born in the U.S.A. shows at the Hampton Roads Coliseum in Virginia.
-
-**1985**<br>
-
-[https://videopress.com/embed/uLsPLzGo](https://videopress.com/embed/uLsPLzGo)
+[https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3?_=3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3>
 
-Bruce's youngest child, Sam Ryan Springsteen, is born in Los Angeles.
+**1994:** Bruce’s youngest child, Sam Ryan Springsteen, is born in Los Angeles.
 
-**1994:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2025/01/Quad_City_Times_1994_01_08_2-scaled.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Quad_City_Times_1994_01_08_2-scaled.jpg?resize=758%2C1111&amp;ssl=1)
+**1995**: Bruce calls each member of the E Street Band for a brief reunion. The band disbanded more than five years prior, but Bruce reassembles them to record some new songs for his upcoming *Greatest Hits* compilation. Clarence gets on a plane so quickly that he reportedly no-shows at his own party.
 
-: Bruce calls each member of the E Street Band for a brief reunion. The band disbanded more than five years prior, but Bruce reassembles them to record some new songs for his upcoming compilation. Clarence gets on a plane so quickly that he reportedly no-shows at his own party.
+**2023:** Bruce releases a video commemorating the 50th anniversary of *Greetings From Asbury Park, N.J.*
 
-**1995***Greatest Hits*
-
-Bruce releases a video commemorating the 50th anniversary of
-
-**2023:** *Greetings From Asbury Park, N.J.*
-
-[https://www.youtube.com/embed/c0m-nCI1B3E](https://www.youtube.com/embed/c0m-nCI1B3E)
+[Watch on Youtube: Bruce Springsteen - Celebrating 50 Years of Bruce Springsteens "Greetings From Asbury Park"](https://www.youtube.com/watch?v=c0m-nCI1B3E)

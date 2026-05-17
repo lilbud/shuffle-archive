@@ -1,92 +1,71 @@
+***New for 2024:** No updates*
 
-*No updates***New for 2024:**
+**1966:** The Castiles play a gig at the Matawan-Keyport Roller Drome.
 
-The Castiles play a gig at the Matawan-Keyport Roller Drome.
+![](https://estreetshuffle.com/wp-content/uploads/2018/12/1966-1203.jpg)
 
-**1966:**<br>
+**1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park. After playing there for weeks, it seems the venue has Bruce’s name spelling down pat. They’ve moved on to mangling Steve’s name now.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1966-1203-192x300.jpg?resize=758%2C1183)
+[Watch on Youtube: Bruce Springsteen Band - SURE CAN FEEL THE PAIN 1971 (audio)](https://www.youtube.com/watch?v=bKUlWPTptBY)
 
-The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park. After playing there for weeks, it seems the venue has Bruce's name spelling down pat. They've moved on to mangling Steve's name now.
+![](https://estreetshuffle.com/wp-content/uploads/2018/12/1971-1203.jpg)
 
-**1971:**<br>
+**1975:** Bruce and the E Street Band play their second of two nights at Boston’s Music Hall, featuring a marathon twenty-minute(!) “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/).”
 
-[https://www.youtube.com/embed/bKUlWPTptBY](https://www.youtube.com/embed/bKUlWPTptBY)
+[Watch on Youtube: Bruce Springsteen - "Kitty's Back" - Boston, 1975-12-03](https://www.youtube.com/watch?v=A1K05Z6w1MI)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1971-1203-300x175.jpg?resize=758%2C442)
+[Watch on Youtube: Bruce Springsteen - Boston 12/3/75](https://www.youtube.com/watch?v=FFPOWal1TkM)
 
-Bruce and the E Street Band play their second of two nights at Boston's Music Hall, featuring a marathon twenty-minute(!) "."
+**1978:** Bruce and the boys bring the Darkness Tour to Southern Illinois University in Carbondale, where they open with “[High School Confidential](https://estreetshuffle.com/index.php/2020/05/04/cover-me-high-school-confidential/)” and feature “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” as part of “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” for only the second and final time.
 
-**1975:** [Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
+[Watch on Youtube: Bruce Springsteen - "Detroit Medley" - Carbondale, 1978-12-03](https://www.youtube.com/watch?v=MoJ2wz8bSU8)
 
-[https://www.youtube.com/embed/A1K05Z6w1MI](https://www.youtube.com/embed/A1K05Z6w1MI)
+![](https://estreetshuffle.com/wp-content/uploads/2023/12/The_Paducah_Sun_Tue__Dec_5__1978_.jpg)
 
-[https://www.youtube.com/embed/FFPOWal1TkM](https://www.youtube.com/embed/FFPOWal1TkM)
+![](https://estreetshuffle.com/wp-content/uploads/2023/12/The_Paducah_Sun_Sun__Dec_10__1978_-scaled.jpg)
 
-Bruce and the boys bring the Darkness Tour to Southern Illinois University in Carbondale, where they open with "" and feature "" as part of "" for only the second and final time.
+**1982:** Bruce drops by the Keystone in Palo Alto to catch Clarence Clemons and The Red Bank Rockers play their late show, joining them on stage for “Lucille” and “From Small Things (Big Things One Day Come).” The Stanford Daily is on the scene to cover it, and you gotta love their headline.
 
-**1978:** [High School Confidential](https://estreetshuffle.com/index.php/2020/05/04/cover-me-high-school-confidential/)[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
+![](https://estreetshuffle.com/wp-content/uploads/2018/12/1982-1203.jpg)
 
-[https://www.youtube.com/embed/MoJ2wz8bSU8](https://www.youtube.com/embed/MoJ2wz8bSU8)
+**1988:** Bruce debuts two new videos (“[Vigilante Man](https://estreetshuffle.com/index.php/2021/09/14/cover-me-vigilante-man/)” and “[I Ain’t Got No Home](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)“) as part of a documentary, *A Vision Shared: A Tribute to Woody Guthrie and Leadbelly.*
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/The_Paducah_Sun_Tue__Dec_5__1978_.jpg?resize=758%2C323&amp;ssl=1)
+[Watch Video](https://www.dailymotion.com/embed/video/x74lcw)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/The_Paducah_Sun_Sun__Dec_10__1978_-scaled.jpg?resize=758%2C1023&amp;ssl=1)
 
-Bruce drops by the Keystone in Palo Alto to catch Clarence Clemons and The Red Bank Rockers play their late show, joining them on stage for "Lucille" and "From Small Things (Big Things One Day Come)." The Stanford Daily is on the scene to cover it, and you gotta love their headline.
 
-**1982:**<br>
+**1992:** Bruce and his new touring band bring World Tour 1992 to the St. Louis Arena.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1982-1203-300x298.jpg?resize=758%2C753)
+[Watch on Youtube: Bruce Springsteen - "Soul Driver" - St. Louis, 1992-12-03](https://www.youtube.com/watch?v=Tg2XI0pVTnw)
 
-Bruce debuts two new videos ("" and "") as part of a documentary,
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/1992-12-03.png)
 
-**1988:** [Vigilante Man](https://estreetshuffle.com/index.php/2021/09/14/cover-me-vigilante-man/)[I Ain't Got No Home](http://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)*A Vision Shared: A Tribute to Woody Guthrie and Leadbelly.*
+**1995:** Bruce plays a solo acoustic show at Chicago’s Rosemont Theater. After the show, Bruce is visited by director Peter Bogdanovich, and their conversation is captured by reporters.
 
-[https://www.dailymotion.com/embed/video/x74lcw](https://www.dailymotion.com/embed/video/x74lcw)
+[Watch on Youtube: Bruce Springsteen - "Spare Parts" - Rosemont, 1995-12-03](https://www.youtube.com/watch?v=q8NodXzYYsE)
 
-Bruce and his new touring band bring World Tour 1992 to the St. Louis Arena.
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/1995-12-03b.png)
 
-**1992:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/1995-12-03.png)
 
-[https://www.youtube.com/embed/Tg2XI0pVTnw](https://www.youtube.com/embed/Tg2XI0pVTnw)
+![](https://estreetshuffle.com/wp-content/uploads/2019/11/1995-12-03.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-12-03.png?resize=758%2C1537&amp;ssl=1)
+**1996:** Bruce plays his second of two solo acoustic shows at the Sunrise Musical Theater in Florida.
 
-Bruce plays a solo acoustic show at Chicago's Rosemont Theater. After the show, Bruce is visited by director Peter Bogdanovich, and their conversation is captured by reporters.
+[Watch Video Highlight](https://videopress.com/embed/7uVp4aK0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1995:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/1996-12-03.png)
 
-[https://www.youtube.com/embed/q8NodXzYYsE](https://www.youtube.com/embed/q8NodXzYYsE)
+**2001:** Bruce hosts the first of five benefit holiday concerts supporting local charities at Convention Hall in Asbury Park. The Max Weinberg 7 serves as the house band, and they’re joined by special guests Patti Scialfa, Soozie Tyrell, Lisa Lowell, Garland Jeffreys, Southside Johnny, Nils Lofgren, and Bobby Bandiera. The setlist is filled with both holiday classics and lost Springsteen treasures: “[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)” returns after a 27-year absence, as does “[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/),” gone for even longer. Bruce pays tribute to the recently departed George Harrison, Patti previews new material, and… really, the show features too many highlights to list them all. Just do yourself a favor and listen to the show.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1995-12-03b.png?resize=758%2C821&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/AEsu394K?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-12-03.png?resize=758%2C599&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/2001-12-03a.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1995-12-03-167x300.png?resize=758%2C1362)
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/2001-12-03b.png)
 
-Bruce plays his second of two solo acoustic shows at the Sunrise Musical Theater in Florida.
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/2001-12-03c.png)
 
-**1996:**<br>
+**2015:** The television show *Pawn Stars* airs an episode that explores the value of a vintage 1984 Born in the U.S.A. Tour jacket.
 
-[https://videopress.com/embed/7uVp4aK0](https://videopress.com/embed/7uVp4aK0)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-12-03.png?resize=758%2C1203&amp;ssl=1)
-
-Bruce hosts the first of five benefit holiday concerts supporting local charities at Convention Hall in Asbury Park. The Max Weinberg 7 serves as the house band, and they're joined by special guests Patti Scialfa, Soozie Tyrell, Lisa Lowell, Garland Jeffreys, Southside Johnny, Nils Lofgren, and Bobby Bandiera. The setlist is filled with both holiday classics and lost Springsteen treasures: "" returns after a 27-year absence, as does "," gone for even longer. Bruce pays tribute to the recently departed George Harrison, Patti previews new material, and… really, the show features too many highlights to list them all. Just do yourself a favor and listen to the show.
-
-**2001:** [Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)
-
-[https://videopress.com/embed/AEsu394K](https://videopress.com/embed/AEsu394K)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2001-12-03a.png?resize=758%2C1216&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2001-12-03b.png?resize=758%2C334&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2001-12-03c.png?resize=758%2C447&amp;ssl=1)
-
-The television show airs an episode that explores the value of a vintage 1984 Born in the U.S.A. Tour jacket.
-
-**2015:** *Pawn Stars*
-
-[https://www.youtube.com/embed/muVcPnnMalY](https://www.youtube.com/embed/muVcPnnMalY)
+[Watch on Youtube: Pawn Stars: Bruce Springsteen Tour Jacket | History](https://www.youtube.com/watch?v=muVcPnnMalY)

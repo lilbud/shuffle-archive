@@ -1,104 +1,79 @@
+***New for 2024:** Audio for 1995*
 
-*Audio for 1995***New for 2024:**
+**1972:** Bruce and the as-yet-unnamed E Street Band play their fifth night of a six-night, two-shows-nightly stand at Kenny’s Castaways in New York City.
 
-Bruce and the as-yet-unnamed E Street Band play their fifth night of a six-night, two-shows-nightly stand at Kenny's Castaways in New York City.
+![](https://estreetshuffle.com/wp-content/uploads/2019/11/1972-12-05.jpg)
 
-**1972:**<br>
+**1978:** Bruce and the E Street Band play the Dallas Convention Center Arena on the Darkness Tour.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1972-12-05-300x226.jpg?resize=758%2C571)
+![](https://estreetshuffle.com/wp-content/uploads/2023/12/Fort_Worth_Star_Telegram_Mon__Dec_11__1978_-scaled.jpg)
 
-Bruce and the E Street Band play the Dallas Convention Center Arena on the Darkness Tour.
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/1978-12-09.png)
 
-**1978:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/12/Dallas_Morning_News_1978-12-11_19A.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/Fort_Worth_Star_Telegram_Mon__Dec_11__1978_-scaled.jpg?resize=758%2C317&amp;ssl=1)
+**1980:** Today is an emotional day for Bruce–John Lennon was murdered the night before, and Bruce has to muster up the composure and presence to perform. He opens his River Tour show in Philadelphia with a tribute to Lennon and goes on to play an intense show that features the tour premiere of both “[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)” and–fittingly–“Twist and Shout.” This is a show worth listening to.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1978-12-09.png?resize=758%2C2369&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - Live in Philadelphia - December 9th, 1980](https://www.youtube.com/watch?v=lGG8IuFlj0E)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/Dallas_Morning_News_1978-12-11_19A-300x283.png?resize=758%2C715)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/1980-12-09.png)
 
-Today is an emotional day for Bruce–John Lennon was murdered the night before, and Bruce has to muster up the composure and presence to perform. He opens his River Tour show in Philadelphia with a tribute to Lennon and goes on to play an intense show that features the tour premiere of both "" and–fittingly–"Twist and Shout." This is a show worth listening to.
+**1984:** The Born in the U.S.A. Tour stops at Middle Tennessee State University in Murfreesboro, where “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” features a one-off “Wabash Cannonball.” A young Steve Earle is in attendance at this show and is inspired by Bruce’s performance to write “[Guitar Town](https://estreetshuffle.com/index.php/2020/11/28/matr-steve-earle-and-bruce-springsteen-guitar-town/).”
 
-**1980:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)
+[Watch on Youtube: Bruce Springsteen - "Detroit Medley" - Murfreesboro, 1984-12-09](https://www.youtube.com/watch?v=ce7PwWx40v4)
 
-[https://www.youtube.com/embed/lGG8IuFlj0E](https://www.youtube.com/embed/lGG8IuFlj0E)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/1984-12-09.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1980-12-09.png?resize=758%2C207&amp;ssl=1)
+**1995:** At Night Two at the Tower Theater in Philadelphia on the Ghost of Tom Joad Tour, Bruce plays a tour one-off of “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/).” Just as the night before, the show is recorded, and parts of it will be broadcast the following week on the Columbia Records Radio Hour.
 
-The Born in the U.S.A. Tour stops at Middle Tennessee State University in Murfreesboro, where "" features a one-off "Wabash Cannonball." A young Steve Earle is in attendance at this show and is inspired by Bruce's performance to write "."
+[Watch on Youtube: Straight Time (Live at The Tower Theater, Philadelphia, PA - December 1995)](https://www.youtube.com/watch?v=JL5x0GNeuBY)
 
-**1984:** [Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)[Guitar Town](https://estreetshuffle.com/index.php/2020/11/28/matr-steve-earle-and-bruce-springsteen-guitar-town/)
+[Watch on Youtube: Darkness On the Edge of Town (Live at the Tower Theatre in Philadelphia, PA - December 1995)](https://www.youtube.com/watch?v=Is3r4TX33Mk)
 
-[https://www.youtube.com/embed/ce7PwWx40v4](https://www.youtube.com/embed/ce7PwWx40v4)
+[Watch on Youtube: This Hard Land (Live at the Tower Theatre in Philadelphia, PA - December 1995)](https://www.youtube.com/watch?v=vmQNzShFhKM)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1984-12-09.png?resize=758%2C763&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen "Galveston Bay" 12/9/1995](https://www.youtube.com/watch?v=E6-tA1_vTYM)
 
-At Night Two at the Tower Theater in Philadelphia on the Ghost of Tom Joad Tour, Bruce plays a tour one-off of "." Just as the night before, the show is recorded, and parts of it will be broadcast the following week on the Columbia Records Radio Hour.
+[Watch on Youtube: Streets of Philadelphia (Live at the Tower Theater, Upper Darby, PA - 12/9/1995)](https://www.youtube.com/watch?v=TkOUULX78vE)
 
-**1995:** [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
+**1998:** From Stockholm to Paris: Bruce appears on French TV show *Nulle Part Ailleurs*, granting an interview and performing “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” Also on this date: *Tracks* is certified platinum by the Recording Industry Association of America.
 
-[https://www.youtube.com/embed/JL5x0GNeuBY](https://www.youtube.com/embed/JL5x0GNeuBY)
+[Watch Video](https://www.dailymotion.com/embed/video/xjumi)
 
-[https://www.youtube.com/embed/Is3r4TX33Mk](https://www.youtube.com/embed/Is3r4TX33Mk)
 
-[https://www.youtube.com/embed/vmQNzShFhKM](https://www.youtube.com/embed/vmQNzShFhKM)
 
-[https://www.youtube.com/embed/E6-tA1_vTYM](https://www.youtube.com/embed/E6-tA1_vTYM)
+**2002:** Bruce and the E Street Band bring the Rising Tour to the brand-new Carolina Center in Columbia, South Carolina, where Bruce tour premieres “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/),” “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/),” and “This Hard Land.”
 
-[https://www.youtube.com/embed/TkOUULX78vE](https://www.youtube.com/embed/TkOUULX78vE)
+[Watch on Youtube: Columbia 09/12/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zB_NE2bJOF-H15O2OPTi0hc)
 
-From Stockholm to Paris: Bruce appears on French TV show , granting an interview and performing "" Also on this date: is certified platinum by the Recording Industry Association of America.
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/2002-12-09a.png)
 
-**1998:** *Nulle Part Ailleurs*[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)*Tracks*
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/2002-12-09b.png)
 
-[https://www.dailymotion.com/embed/video/xjumi](https://www.dailymotion.com/embed/video/xjumi)
+**2011:** Bruce joins Gaslight Anthem on stage at Asbury Park’s Convention Hall for “[American Slang](https://estreetshuffle.com/index.php/2021/06/18/matr-the-gaslight-anthem-and-bruce-springsteen-american-slang/).”
 
-Bruce and the E Street Band bring the Rising Tour to the brand-new Carolina Center in Columbia, South Carolina, where Bruce tour premieres "," "," and "This Hard Land."
+[Watch on Youtube: The Gaslight Anthem and Bruce Springsteen - "American Slang" - Asbury Park, NJ 12-9-11 (HD)](https://www.youtube.com/watch?v=iDGRmyheya8)
 
-**2002:** [My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/2011-12-09.png)
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB_NE2bJOF-H15O2OPTi0hc](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB_NE2bJOF-H15O2OPTi0hc)
+**2015:** Bruce phones SiriusXM for an E Street Radio interview to promote his new box set and upcoming tour for the *The Ties That Bind: The River Collection* box set.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-09a.png?resize=758%2C164&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen's Surprise Call to E Street Radio, Gives The River Tour Scoop // SiriusXM](https://www.youtube.com/watch?v=Lia2zYqeXIw)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-09b.png?resize=758%2C1346&amp;ssl=1)
+**2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-Bruce joins Gaslight Anthem on stage at Asbury Park's Convention Hall for "."
+**2019:** Bruce joins Sting, John Mellencamp, James Taylor, Bob Geldof, The Eurythmics, and more at the 30th anniversary benefit concert for the Rainforest Foundation at the Beacon Theater in New York City. Bruce plays three songs, including duets with John Mellencamp on “[Pink Houses](https://estreetshuffle.com/index.php/2021/03/11/matr-john-mellancamp-and-bruce-springsteen-pink-houses/)” and “[Glory Days,](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” plus an all-star encore of [“Don’t Stop Believin’.](https://estreetshuffle.com/index.php/2020/12/20/matr-bruce-springsteen-sting-lady-gaga-elton-john-and-more-dont-stop-believin/)”
 
-**2011:** [American Slang](https://estreetshuffle.com/index.php/2021/06/18/matr-the-gaslight-anthem-and-bruce-springsteen-american-slang/)
+[Watch on Youtube: John Mellencamp & Bruce Springsteen - Pink House - Rainforest Benefit Show 12-9-2019](https://www.youtube.com/watch?v=nhppxrSzQ24)
 
-[https://www.youtube.com/embed/iDGRmyheya8](https://www.youtube.com/embed/iDGRmyheya8)
+[Watch on Youtube: Bruce Springsteen & John Mellencamp - Glory Days @ Rainforest Benefit Concert 12-9-2019](https://www.youtube.com/watch?v=7FsLcprAVLc)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2011-12-09.png?resize=758%2C1184&amp;ssl=1)
+[Watch on Youtube: "Dont Stop Believin" Bruce Springsteen & John Mellencamp & Sting@Beacon New York 12/9/19](https://www.youtube.com/watch?v=WNNOsOUyknc)
 
-Bruce phones SiriusXM for an E Street Radio interview to promote his new box set and upcoming tour for the box set.
+![](https://estreetshuffle.com/wp-content/uploads/2020/12/2019-12-09.png)
 
-**2015:** *The Ties That Bind: The River Collection*
+**2020:** Bruce and the E Street Band rehearse for their upcoming *Saturday Night Live* appearance at Bruce’s home studio in Colts Neck.
 
-[https://www.youtube.com/embed/Lia2zYqeXIw](https://www.youtube.com/embed/Lia2zYqeXIw)
+**2022:** Bruce appears on NPR’s *World Cafe* to promote his new album, *Only the Strong Survive.*
 
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2017:** *Springsteen on Broadway*
-
-Bruce joins Sting, John Mellencamp, James Taylor, Bob Geldof, The Eurythmics, and more at the 30th anniversary benefit concert for the Rainforest Foundation at the Beacon Theater in New York City. Bruce plays three songs, including duets with John Mellencamp on "" and "" plus an all-star encore of "
-
-**2019:** [Pink Houses](https://estreetshuffle.com/index.php/2021/03/11/matr-john-mellancamp-and-bruce-springsteen-pink-houses/)[Glory Days,](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)["Don't Stop Believin'.](https://estreetshuffle.com/index.php/2020/12/20/matr-bruce-springsteen-sting-lady-gaga-elton-john-and-more-dont-stop-believin/)
-
-[https://www.youtube.com/embed/nhppxrSzQ24](https://www.youtube.com/embed/nhppxrSzQ24)
-
-[https://www.youtube.com/embed/7FsLcprAVLc](https://www.youtube.com/embed/7FsLcprAVLc)
-
-[https://www.youtube.com/embed/WNNOsOUyknc](https://www.youtube.com/embed/WNNOsOUyknc)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2019-12-09.png?resize=758%2C334&amp;ssl=1)
-
-Bruce and the E Street Band rehearse for their upcoming appearance at Bruce's home studio in Colts Neck.
-
-**2020:** *Saturday Night Live*
-
-Bruce appears on NPR's to promote his new album,
-
-**2022:** *World Cafe**Only the Strong Survive.*
-
-[https://www.npr.org/player/embed/1141551196/1141576945](https://www.npr.org/player/embed/1141551196/1141576945)
+[Watch Video](https://www.npr.org/player/embed/1141551196/1141576945)

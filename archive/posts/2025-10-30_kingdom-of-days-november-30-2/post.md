@@ -1,96 +1,69 @@
+***New for 2025:** New entry for 1977*
 
-*New entry for 1977***New for 2025:**
+**1953:** Original E Street Band member David Sancious is born in Asbury Park, New Jersey.
 
-Original E Street Band member David Sancious is born in Asbury Park, New Jersey.
+![](https://estreetshuffle.com/wp-content/uploads/2018/11/david-san.jpg)
 
-**1953:**<br>
+**1973:** A scheduled show at Virginia Commonwealth University in Richmond is postponed to January.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/david-san-300x293.jpg?resize=758%2C740)
+**1974:** Bruce and the E Street Band play their second of two nights at the War Memorial Theater in Trenton.
 
-A scheduled show at Virginia Commonwealth University in Richmond is postponed to January.
+**1977:** At The Record Plant in New York City, Bruce and the E Street Band work on “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/).”
 
-**1973:**<br>
+**1980:** Bruce takes the River Tour to the Civic Arena in Pittsburgh, where Bruce dedicates “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” to Joe Grushecky.
 
-Bruce and the E Street Band play their second of two nights at the War Memorial Theater in Trenton.
+[Watch on Youtube: Bruce Springsteen - "The Promised Land" - Pittsburgh, 1980-11-30](https://www.youtube.com/watch?v=I1Ab0iyJitA)
 
-**1974:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2019/11/32516974517_f2dba9430d_o.jpg)
 
-At The Record Plant in New York City, Bruce and the E Street Band work on "."
+**1983:** Bruce records “Roll Away the Stone,” “Swoop Man,” and “Under the Big Sky,” all of which remain unreleased to this day.
 
-**1977:** [Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)
+**1984:** Bruce and the E Street Band play their second of two nights at The Summit in Houston on the Born in the U.S.A. Tour.
 
-Bruce takes the River Tour to the Civic Arena in Pittsburgh, where Bruce dedicates "" to Joe Grushecky.
+[Watch on Youtube: Bruce Springsteen - "Johnny Bye Bye" - Houston, 1980-11-30](https://www.youtube.com/watch?v=2IEIBCk4wKo)
 
-**1980:** [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
+**1985:** On this week’s episode of *American Top 40,* host Casey Kasem introduces Clarence’s new single with the story of how The Boss and The Big Man first met.
 
-[https://www.youtube.com/embed/I1Ab0iyJitA](https://www.youtube.com/embed/I1Ab0iyJitA)
+[https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp3?_=1)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/32516974517_f2dba9430d_o-213x300.jpg?resize=758%2C1068)
+<https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp3>
 
-Bruce records "Roll Away the Stone," "Swoop Man," and "Under the Big Sky," all of which remain unreleased to this day.
+**1992:** Bruce and his new touring band bring World Tour 1992 to The Omni in Atlanta.
 
-**1983:**<br>
+[Watch on Youtube: Bruce Springsteen - "Local Hero" - Atlanta, 1992-11-30](https://www.youtube.com/watch?v=cjOiRN382kg)
 
-Bruce and the E Street Band play their second of two nights at The Summit in Houston on the Born in the U.S.A. Tour.
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/1992-11-30a.png)
 
-**1984:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/1992-11-30b.png)
 
-[https://www.youtube.com/embed/2IEIBCk4wKo](https://www.youtube.com/embed/2IEIBCk4wKo)
+**1995:** Bruce plays his second of two nights at the Berkeley Community Theater, where “[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)” makes its debut, and the setlist contains the entire [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) album. Once again, John Wesley Harding opens the show with a short set.
 
-On this week's episode of host Casey Kasem introduces Clarence's new single with the story of how The Boss and The Big Man first met.
+[Watch on Youtube: Bruce Springsteen - "The New Timer" - Berkeley, 1995-11-30](https://www.youtube.com/watch?v=6l2Zp_7SXro)
 
-**1985:** *American Top 40*, <https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp3>
+**2007:** Bruce comes down with a severe cold and postpones a scheduled show in Arnhem to the next day.
 
-Bruce and his new touring band bring World Tour 1992 to The Omni in Atlanta.
+**2012:** The Wrecking Ball Tour travels down the west coast to Oakland for a show at Oracle Arena. Notables tonight include a rare full-band “[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)” a by-request “[Pay Me My Money Down,](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)” and a “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)” encore.
 
-**1992:**<br>
+[Watch on Youtube: Bruce Springsteen "Pay Me My Money Down" 11/30/2012 Oakland, CA](https://www.youtube.com/watch?v=bC_Tvu0cDYo)
 
-[https://www.youtube.com/embed/cjOiRN382kg](https://www.youtube.com/embed/cjOiRN382kg)
+[Watch on Youtube: Devils & Dust--Bruce Springsteen & The E St Band Oakland, CA 2012-11-30](https://www.youtube.com/watch?v=vcvWgNBq7SA)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-30a.png?resize=758%2C361&amp;ssl=1)
+[Watch on Youtube: Raise Your Hands - Springsteen+EStreet - 11-30-12- Oakland](https://www.youtube.com/watch?v=GmThjvWku6U)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-30b.png?resize=758%2C6689&amp;ssl=1)
+[Watch on Youtube: Kitty's Back--Bruce Springsteen & The E St Band Oakland, CA 2012-11-30](https://www.youtube.com/watch?v=wJg8MlZUUZs)
 
-Bruce plays his second of two nights at the Berkeley Community Theater, where "" makes its debut, and the setlist contains the entire album. Once again, John Wesley Harding opens the show with a short set.
+![](https://estreetshuffle.com/wp-content/uploads/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-1-scaled.jpg)
 
-**1995:** [The New Timer](http://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)[](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad*
+**2016:** Bruce continues his promotional book tour, stopping at Tattered Cover Bookstore in Denver to meet fans.
 
-[https://www.youtube.com/embed/6l2Zp_7SXro](https://www.youtube.com/embed/6l2Zp_7SXro)
+[Watch on Youtube: Bruce Springsteen Fans From Miles Around Visit Denver For Meet & Greet](https://www.youtube.com/watch?v=DhwHRbF97yQ)
 
-Bruce comes down with a severe cold and postpones a scheduled show in Arnhem to the next day.
+[Watch on Youtube: Bruce Springsteen @ Tattered Cover (11/30/16 in Denver, CO)](https://www.youtube.com/watch?v=Xu0wDdxscMc)
 
-**2007:**<br>
+[Watch on Youtube: Bruce Springsteen stops in Denver for book tour](https://www.youtube.com/watch?v=RdBoT8qxApE)
 
-The Wrecking Ball Tour travels down the west coast to Oakland for a show at Oracle Arena. Notables tonight include a rare full-band "" a by-request "" and a "" encore.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2012:** [Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)[Pay Me My Money Down,](http://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
+**2023;** Bruce’s scheduled show in Phoenix is postponed to the following March due to his peptic ulcer disease. Instead, he makes an appearance at Darlene Love’s holiday concert in New York City to present her with a platinum record for “[Christmas (Baby Please Come Home)](https://estreetshuffle.com/index.php/2021/12/09/matr-bruce-springsteen-jon-bon-jovi-southside-johnny-jesse-malin-and-more-christmas-baby-please-come-home/).”
 
-[https://www.youtube.com/embed/bC_Tvu0cDYo](https://www.youtube.com/embed/bC_Tvu0cDYo)
-
-[https://www.youtube.com/embed/vcvWgNBq7SA](https://www.youtube.com/embed/vcvWgNBq7SA)
-
-[https://www.youtube.com/embed/GmThjvWku6U](https://www.youtube.com/embed/GmThjvWku6U)
-
-[https://www.youtube.com/embed/wJg8MlZUUZs](https://www.youtube.com/embed/wJg8MlZUUZs)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-scaled.jpg?resize=758%2C1557&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-1-scaled.jpg?resize=758%2C2411&amp;ssl=1)
-
-Bruce continues his promotional book tour, stopping at Tattered Cover Bookstore in Denver to meet fans.
-
-**2016:**<br>
-
-[https://www.youtube.com/embed/DhwHRbF97yQ](https://www.youtube.com/embed/DhwHRbF97yQ)
-
-[https://www.youtube.com/embed/Xu0wDdxscMc](https://www.youtube.com/embed/Xu0wDdxscMc)
-
-[https://www.youtube.com/embed/RdBoT8qxApE](https://www.youtube.com/embed/RdBoT8qxApE)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Bruce's scheduled show in Phoenix is postponed to the following March due to his peptic ulcer disease. Instead, he makes an appearance at Darlene Love's holiday concert in New York City to present her with a platinum record for "."
-
-**2023;** [Christmas (Baby Please Come Home)](https://estreetshuffle.com/index.php/2021/12/09/matr-bruce-springsteen-jon-bon-jovi-southside-johnny-jesse-malin-and-more-christmas-baby-please-come-home/)
-
-[https://www.youtube.com/embed/QCL9z1FBXFA](https://www.youtube.com/embed/QCL9z1FBXFA)
+[Watch on Youtube: Darlene Love Platinum Plaque Presentation with Bruce Springsteen](https://www.youtube.com/watch?v=QCL9z1FBXFA)

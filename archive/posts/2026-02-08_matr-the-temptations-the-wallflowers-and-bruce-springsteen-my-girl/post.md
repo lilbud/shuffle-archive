@@ -1,48 +1,45 @@
-
-It's arguably the greatest answer song of all time.
+It’s arguably the greatest answer song of all time.
 
 It turned The Temptations into superstars, reached the top of the Billboard Hot 100 in 1965 and finished in the Top Ten for the entire year.
 
 Anywhere in the world, people can name that tune in just its opening three bass notes.
 
-So why the heck hasn't Bruce Springsteen–a famously avowed Motown fan–ever covered "My Girl" properly in concert?
+So why the heck hasn’t Bruce Springsteen–a famously avowed Motown fan–ever covered “My Girl” properly in concert?
 
-[https://www.youtube.com/embed/8Ff2Z0Dq2sg?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/8Ff2Z0Dq2sg?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8Ff2Z0Dq2sg)
 
-"My Girl" was the second number one hit for its songwriter, Smokey Robinson. (The first was the song he was answering: "My Guy," written for Mary Wells.)
+“My Girl” was the second number one hit for its songwriter, Smokey Robinson. (The first was the song he was answering: “My Guy,” written for Mary Wells.)
 
-[https://www.youtube.com/embed/4WT7nBGX5eU?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/4WT7nBGX5eU?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4WT7nBGX5eU)
 
-"My Guy" was the bigger hit of the pair, but "My Girl" is the more enduring. In 1998, it was inducted into the Grammy Hall of Fame. In 2017, the U.S. Library of Congress enshrined it in the National Recording Registry for its cultural, historical, and artistic significance.
+“My Guy” was the bigger hit of the pair, but “My Girl” is the more enduring. In 1998, it was inducted into the Grammy Hall of Fame. In 2017, the U.S. Library of Congress enshrined it in the National Recording Registry for its cultural, historical, and artistic significance.
 
-In 1989, The Temptations received their due honor when they were inducted into the Rock and Roll Hall of Fame. When the assembled luminaries gathered on stage for the now-customary all-star jam session, everyone wanted to get in on the "My Girl" action–including an unusually reserved Bruce Springsteen, who can be seen supplying rhythm guitar stage right.
+In 1989, The Temptations received their due honor when they were inducted into the Rock and Roll Hall of Fame. When the assembled luminaries gathered on stage for the now-customary all-star jam session, everyone wanted to get in on the “My Girl” action–including an unusually reserved Bruce Springsteen, who can be seen supplying rhythm guitar stage right.
 
-[https://www.youtube.com/embed/eQ6xLX6sFog?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/eQ6xLX6sFog?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eQ6xLX6sFog)
 
-I suppose one could technically argue that was Bruce's first public performance of "My Girl," but it's pretty tough to pick out his contribution among the pantheon of rock royalty on stage.
+I suppose one could technically argue that was Bruce’s first public performance of “My Girl,” but it’s pretty tough to pick out his contribution among the pantheon of rock royalty on stage.
 
-He'd played it once before, at a wedding reception a full decade earlier, but that was a private affair rather than a proper concert. And he played it once after, at a crew party during the Rising Tour's holiday break. That one was invite-only, too.
+He’d played it once before, at a wedding reception a full decade earlier, but that was a private affair rather than a proper concert. And he played it once after, at a crew party during the Rising Tour’s holiday break. That one was invite-only, too.
 
-To find anything resembling a true Springsteen public performance of "My Girl," we'll have to time travel to 1997 and visit the long-gone Tradewinds in Sea Bright, New Jersey, where Bruce made a surprise appearance with The Wallflowers during a break in the Ghost of Tom Joad Tour.
+To find anything resembling a true Springsteen public performance of “My Girl,” we’ll have to time travel to 1997 and visit the long-gone Tradewinds in Sea Bright, New Jersey, where Bruce made a surprise appearance with The Wallflowers during a break in the Ghost of Tom Joad Tour.
 
-Bruce's appearance was heavy on classic rock and roll covers, including a few one-time-only performances like "Brand New Cadillac," "Bring It On Home to Me," and "My Girl." In the recording below, Springsteen starts out respectfully reserved (he was a guest, after all), but he soon finds himself unable to deny his inner crooner. Listen to the crowd's reaction to the return of Bruce's "rock voice" after two years of acoustic touring.
+Bruce’s appearance was heavy on classic rock and roll covers, including a few one-time-only performances like “Brand New Cadillac,” “Bring It On Home to Me,” and “My Girl.” In the recording below, Springsteen starts out respectfully reserved (he was a guest, after all), but he soon finds himself unable to deny his inner crooner. Listen to the crowd’s reaction to the return of Bruce’s “rock voice” after two years of acoustic touring.
+
+[https://estreetshuffle.com/wp-content/uploads/2022/10/1997-03-08-My-Girl.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/10/1997-03-08-My-Girl.mp3?_=2)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/10/1997-03-08-My-Girl.mp3>
 
-Bruce is clearly enjoying himself in that recording, so again we wonder: why haven't we seen him perform it on the E Street stage? Maybe it's because the last time he tried cozying up to Patti with it on stage… well, let's just say he didn't get the reaction he was hoping for.
+Bruce is clearly enjoying himself in that recording, so again we wonder: why haven’t we seen him perform it on the E Street stage? Maybe it’s because the last time he tried cozying up to Patti with it on stage… well, let’s just say he didn’t get the reaction he was hoping for.
 
-[https://videopress.com/embed/pxiim0oC](https://videopress.com/embed/pxiim0oC)
+[Watch Video Highlight](https://videopress.com/embed/pxiim0oC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 He never attempted it on stage again.
 
 Maybe it just works better at home?
 
-June 3, 1979 (West Hollywood, CA)
-December 22, 2002 (Asbury Park, NJ)
-
-**My Girl**<br>
-**First performed:**<br>
-
-**Last performed:**<br>
+**My Girl  
+First performed:** June 3, 1979 (West Hollywood, CA)  
+**Last performed:** December 22, 2002 (Asbury Park, NJ)
 
 © October 26, 2022

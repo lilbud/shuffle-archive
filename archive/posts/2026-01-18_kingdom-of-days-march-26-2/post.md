@@ -1,64 +1,47 @@
+**1976:** At the Fox Theater in Atlanta, Bruce premieres an early version of “Frankie.”
 
-At the Fox Theater in Atlanta, Bruce premieres an early version of "Frankie."
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1976-03-26.png)
 
-**1976:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1976-0326.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1976-03-26.png?resize=758%2C821&amp;ssl=1)
+**1988:** “Ain’t Got You” makes its live debut during Bruce’s Tunnel of Love Express show at the Rupp Arena in Lexington.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0326.jpg?resize=587%2C699&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/2KwzHwiH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-"Ain't Got You" makes its live debut during Bruce's Tunnel of Love Express show at the Rupp Arena in Lexington.
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-03-26.png)
 
-**1988:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-03-26a.jpg)
 
-[https://videopress.com/embed/2KwzHwiH](https://videopress.com/embed/2KwzHwiH)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-03-26b.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-26.png?resize=758%2C1488&amp;ssl=1)
+**1992:** *CBS This Morning* previews Bruce’s upcoming albums, *Human Touch* and *Lucky Town*.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-26a.jpg?resize=482%2C958&amp;ssl=1)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DkC5FrphrVg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-26b.jpg?resize=758%2C715&amp;ssl=1)
+**2003:** Bruce and the E Street Band play their second of two nights in Brisbane on the Rising Tour, opening with an acoustic “Born in the U.S.A.” and featuring a rare “I’m a Rocker.”
 
-previews Bruce's upcoming albums, and .
+[Watch Video Highlight](https://videopress.com/embed/yyUIuX3l?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1992:** *CBS This Morning* *Human Touch* *Lucky Town*
+**2012:** Peter Wolf guest-stars for “Raise Your Hand” (a tour premiere) in the encores at this Wrecking Ball show at Boston’s TD Garden. The show also features tour premieres of “Thundercrack,” “Jackson Cage,” and “She’s the One.”
 
-[https://www.youtube.com/embed/DkC5FrphrVg?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/DkC5FrphrVg?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch Video Highlight](https://videopress.com/embed/JECwsM3m?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the E Street Band play their second of two nights in Brisbane on the Rising Tour, opening with an acoustic "Born in the U.S.A." and featuring a rare "I'm a Rocker."
+[Watch Video Highlight](https://videopress.com/embed/4qMPO9xF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2003:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/2012-03-26.png)
 
-[https://videopress.com/embed/yyUIuX3l](https://videopress.com/embed/yyUIuX3l)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2012-03-26.jpg)
 
-Peter Wolf guest-stars for "Raise Your Hand" (a tour premiere) in the encores at this Wrecking Ball show at Boston's TD Garden. The show also features tour premieres of "Thundercrack," "Jackson Cage," and "She's the One."
+**2013:** Bruce and the E Street Band play their second of three nights at Melbourne’s Rod Laver Arena.
 
-**2012:**<br>
+[Watch on Youtube: Bruce Springsteen - Red Headed Woman - Melbourne, Australia 26 March 2013](https://www.youtube.com/watch?v=7JztbtJwB0w)
 
-[https://videopress.com/embed/JECwsM3m](https://videopress.com/embed/JECwsM3m)
+**2020:** In the early days of the COVID-19 pandemic, Bruce phones E Street Radio DJ Jim Rotolo for a nine-minute interview. (It won’t be broadcast until the next day, though.)
 
-[https://videopress.com/embed/4qMPO9xF](https://videopress.com/embed/4qMPO9xF)
+[Watch on Youtube: Hear Bruce Springsteen Talk About New Jersey Pandemic Relief Fund in Exclusive SiriusXM Conversation](https://www.youtube.com/watch?v=D_RB4j0nS4A)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2012-03-26.png?resize=758%2C364&amp;ssl=1)
+**2025:** Bruce performs “Because the NIght” and joins the show-closing ensembled on “People Have the Power” at a Carnegie Hall benefit tribute to Patti Smith.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-26.jpg?resize=758%2C280&amp;ssl=1)
+[Watch on Youtube: Because the Night - Bruce Springsteen @ The Music of Patti Smith Carnegie Hall 3/26/25](https://www.youtube.com/watch?v=-atK7jHEnGQ)
 
-Bruce and the E Street Band play their second of three nights at Melbourne's Rod Laver Arena.
-
-**2013:**<br>
-
-[https://www.youtube.com/embed/7JztbtJwB0w](https://www.youtube.com/embed/7JztbtJwB0w)
-
-In the early days of the COVID-19 pandemic, Bruce phones E Street Radio DJ Jim Rotolo for a nine-minute interview. (It won't be broadcast until the next day, though.)
-
-**2020:**<br>
-
-[https://www.youtube.com/embed/D_RB4j0nS4A](https://www.youtube.com/embed/D_RB4j0nS4A)
-
-Bruce performs "Because the NIght" and joins the show-closing ensembled on "People Have the Power" at a Carnegie Hall benefit tribute to Patti Smith.
-
-**2025:**<br>
-
-[https://www.youtube.com/embed/-atK7jHEnGQ](https://www.youtube.com/embed/-atK7jHEnGQ)
-
-[https://www.youtube.com/embed/Q42pyOY7A5M](https://www.youtube.com/embed/Q42pyOY7A5M)
+[Watch on Youtube: People Have The Power by Patti Smith @ Patti Smith Tribute Carnegie Hall March 26, 2025](https://www.youtube.com/watch?v=Q42pyOY7A5M)

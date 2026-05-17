@@ -1,112 +1,89 @@
+**1957:** E Street Band violinist Soozie Tyrell is born in Pisa, Italy.
 
-E Street Band violinist Soozie Tyrell is born in Pisa, Italy.
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/soozie.jpg)
 
-**1957:**<br>
+**1969:** Child plays an outdoor set at West End Park in Long Branch, New Jersey. (Note: Brucebase has this show assigned to Monday, May 5th. However, contemporaneous press coverage confirms that the date was actually Sunday, May 4th.)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/soozie.jpg?resize=532%2C322&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/Asbury_Park_Press_Mon__May_5__1969_-1-scaled.jpg)
 
-Child plays an outdoor set at West End Park in Long Branch, New Jersey. (Note: Brucebase has this show assigned to Monday, May 5th. However, contemporaneous press coverage confirms that the date was actually Sunday, May 4th.)
+**1974:** Bruce and the E Street Band headline Montclair State University’s Spring Carnival, opening with “New York City Serenade.”
 
-**1969:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1974-0504.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Asbury_Park_Press_Mon__May_5__1969_-1-scaled.jpg?resize=758%2C1234&amp;ssl=1)
+**1975:** At a *Born to Run* recording session at the Record Plant in New York City, Bruce works on “Lonely Night in the Park” and “She’s the One.”
 
-Bruce and the E Street Band headline Montclair State University's Spring Carnival, opening with "New York City Serenade."
+**1976:** Bruce plays his first-ever show in Mississippi, at the Coliseum in Jackson.
 
-**1974:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1976-05-04.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0504.jpg?resize=758%2C533&amp;ssl=1)
+**1982:** Bruce and the E Street Band record “Murder Incorporated” at the Power Station in New York City.
 
-At a recording session at the Record Plant in New York City, Bruce works on "Lonely Night in the Park" and "She's the One."
+[Watch on Youtube: Murder Incorporated](https://www.youtube.com/watch?v=oshU-C5zTWE)
 
-**1975:** *Born to Run*
+**1985:** As “I’m on Fire” starts its decline on the charts, *American Top 40* host Casey Kasem shares the story of the night Bruce broke into Graceland.
 
-Bruce plays his first-ever show in Mississippi, at the Coliseum in Jackson.
+[https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3?_=2)
 
-**1976:**<br>
+<https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3>
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-05-04.jpg?resize=758%2C729&amp;ssl=1)
+**2000:** On Night Two at the Air Canada Center in Toronto, Bruce plays “Incident on 57th Street” for the first time ever in Canada.
 
-Bruce and the E Street Band record "Murder Incorporated" at the Power Station in New York City.
+[https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3?_=3)
 
-**1982:**<br>
+<https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3>
 
-[https://www.youtube.com/embed/oshU-C5zTWE](https://www.youtube.com/embed/oshU-C5zTWE)
+**2008:** Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the ceremony, Bruce inducts Frank Sinatra and plays “I Thank You” and “Glory Days” with La Bamba and The Hubcaps.
 
-As "I'm on Fire" starts its decline on the charts, host Casey Kasem shares the story of the night Bruce broke into Graceland.
+[Watch on Youtube: HOF2008 Springsteen DannyDeVito](https://www.youtube.com/watch?v=sK8Khz0YLlE)
 
-**1985:** *American Top 40*<https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3>
+[Watch on Youtube: NJHOF 2008 - Bruce Springsteen](https://www.youtube.com/watch?v=Wt7TKLqX_SE)
 
-On Night Two at the Air Canada Center in Toronto, Bruce plays "Incident on 57th Street" for the first time ever in Canada.
+[Watch on Youtube: HOF2008 Sinatra Bruce Springsteen](https://www.youtube.com/watch?v=4hAAehP6UxM)
 
-**2000:** <https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3>
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2008-05-04a.jpg)
 
-Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the ceremony, Bruce inducts Frank Sinatra and plays "I Thank You" and "Glory Days" with La Bamba and The Hubcaps.
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2008-05-04b.jpg)
 
-**2008:**<br>
+**2009:** Bruce brings the Working on a Dream Tour to the Nassau Coliseum in Uniondale, New York, where he plays the tour premieres of “Expressway to Your Heart” (by request) and “Rendezvous.” This show is available as part of Bruce’s official archive series.
 
-[https://www.youtube.com/embed/sK8Khz0YLlE](https://www.youtube.com/embed/sK8Khz0YLlE)
+[Watch Video Highlight](https://videopress.com/embed/g6oM2O3x?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/Wt7TKLqX_SE](https://www.youtube.com/embed/Wt7TKLqX_SE)
+[Watch Video Highlight](https://videopress.com/embed/PBcnDGH2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/4hAAehP6UxM](https://www.youtube.com/embed/4hAAehP6UxM)
+[Watch on Youtube: Johnny 99 (Live at Nassau Coliseum, Uniondale, NY - 5/4/2009)](https://www.youtube.com/watch?v=PJFF1Dd759s)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-05-04a.jpg?resize=758%2C347&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen "Expressway To Your Heart" Nassau Coliseum, Uniondale, NY May 4, 2009](https://www.youtube.com/watch?v=E3prYxdUfUk)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-04b.jpg?resize=758%2C671&amp;ssl=1)
+[Watch on Youtube: The Wrestler (Live at Nassau Coliseum, Uniondale, NY - 5/4/2009)](https://www.youtube.com/watch?v=oQVwoOUQhlI)
 
-Bruce brings the Working on a Dream Tour to the Nassau Coliseum in Uniondale, New York, where he plays the tour premieres of "Expressway to Your Heart" (by request) and "Rendezvous." This show is available as part of Bruce's official archive series.
+[Watch on Youtube: Hard Times Come Again No More (Live at Nassau Coliseum, Uniondale, NY - 5/4/2009)](https://www.youtube.com/watch?v=fxykBcPTu7s)
 
-**2009:**<br>
+**2013:** Bruce followed up an amazing Night One in Solna, Sweden, with an even hotter Night Two, opening with “My Love Will Not Let You Down,” “Leap of Faith,” “I’m a Rocker, “and “Better Days,” before finally dipping into the *Wrecking Ball* album. As he did the prior night, Bruce plays another full album–this time *Darkness on the Edge of Town*.
 
-[https://videopress.com/embed/g6oM2O3x](https://videopress.com/embed/g6oM2O3x)
+[Watch Video Highlight](https://videopress.com/embed/e8uA40R8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/PBcnDGH2](https://videopress.com/embed/PBcnDGH2)
+[Watch Video Highlight](https://videopress.com/embed/xnjI7AHO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/PJFF1Dd759s](https://www.youtube.com/embed/PJFF1Dd759s)
+[Watch Video Highlight](https://videopress.com/embed/txzSEx2C?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/E3prYxdUfUk](https://www.youtube.com/embed/E3prYxdUfUk)
+[Watch Video Highlight](https://videopress.com/embed/VMfFmfiC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/oQVwoOUQhlI](https://www.youtube.com/embed/oQVwoOUQhlI)
+[Watch Video Highlight](https://videopress.com/embed/lay25WsO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/fxykBcPTu7s](https://www.youtube.com/embed/fxykBcPTu7s)
+[Watch on Youtube: Bruce Springsteen Stockholm 04/05/2013 Full Concert](https://www.youtube.com/watch?v=k0OalnfuIws)
 
-Bruce followed up an amazing Night One in Solna, Sweden, with an even hotter Night Two, opening with "My Love Will Not Let You Down," "Leap of Faith," "I'm a Rocker, "and "Better Days," before finally dipping into the album. As he did the prior night, Bruce plays another full album–this time .
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2013:** *Wrecking Ball**Darkness on the Edge of Town*
+**2019:** Bruce makes a surprise appearance at the Saban Theater in Los Angeles, joining Little Steven & The Disciples of Soul on stage for three songs: “Tenth Avenue Freeze-Out,” “Sun City,” and “I Don’t Want to Go Home.”
 
-[https://videopress.com/embed/e8uA40R8](https://videopress.com/embed/e8uA40R8)
+[Watch on Youtube: Little Steven w/ Bruce Springsteen "10th Avenue/Sun City/I Don't Want to Go Home" L.A., 5.4.19](https://www.youtube.com/watch?v=3quQa4c7n_4)
 
-[https://videopress.com/embed/xnjI7AHO](https://videopress.com/embed/xnjI7AHO)
+**2023:** In the area early for his upcoming shows in Dublin, Bruce stops by The Burrow pub in Rathangan, County Kildare, his Irish ancestral home. Over a pint, he leads the locals through a verse of “My Hometown.”
 
-[https://videopress.com/embed/txzSEx2C](https://videopress.com/embed/txzSEx2C)
-
-[https://videopress.com/embed/VMfFmfiC](https://videopress.com/embed/VMfFmfiC)
-
-[https://videopress.com/embed/lay25WsO](https://videopress.com/embed/lay25WsO)
-
-[https://www.youtube.com/embed/k0OalnfuIws](https://www.youtube.com/embed/k0OalnfuIws)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Bruce makes a surprise appearance at the Saban Theater in Los Angeles, joining Little Steven & The Disciples of Soul on stage for three songs: "Tenth Avenue Freeze-Out," "Sun City," and "I Don't Want to Go Home."
-
-**2019:**<br>
-
-[https://www.youtube.com/embed/3quQa4c7n_4](https://www.youtube.com/embed/3quQa4c7n_4)
-
-In the area early for his upcoming shows in Dublin, Bruce stops by The Burrow pub in Rathangan, County Kildare, his Irish ancestral home. Over a pint, he leads the locals through a verse of "My Hometown."
-
-**2023:**<br>
-
-[https://videopress.com/embed/ZleZu0Ri](https://videopress.com/embed/ZleZu0Ri)
+[Watch Video Highlight](https://videopress.com/embed/ZleZu0Ri?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 Upon returning to Dublin later in the day, Bruce pays a visit to the late Shane MacGowan, former lead singer of The Pogues.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/FvN_BMvXsBARCOF.jpg?resize=758%2C1011&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/05/FvN_BMvXsBARCOF.jpg)
 
-Bruce and the E Street Band rehears for their European tour at Principality Stadium in Cardiff.
-
-**2024:**<br>
+**2024:** Bruce and the E Street Band rehears for their European tour at Principality Stadium in Cardiff.

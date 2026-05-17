@@ -1,134 +1,101 @@
+***New for 2025:** Advertisement for 1974*
 
-*Advertisement for 1974***New for 2025:**
+**1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
+![](https://estreetshuffle.com/wp-content/uploads/2018/02/1968-0302.jpg)
 
-**1968:**<br>
+**1973:** Bruce and the E Street Band open for Blood, Sweat & Tears at Berkeley Community Theater.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1968-0302-214x300.jpg?resize=758%2C1065)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Berkeley Community Theatre, March 2, 1973](https://www.youtube.com/watch?v=iGvbEvZtK1Q)
 
-Bruce and the E Street Band open for Blood, Sweat & Tears at Berkeley Community Theater.
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1973-03-02a.jpg)
 
-**1973:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/02/1973-03-02c.jpg)
 
-[https://www.youtube.com/embed/iGvbEvZtK1Q](https://www.youtube.com/embed/iGvbEvZtK1Q)
+**1974:** Bruce cancels a show in Parsippany, New Jersey due to illness.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1973-03-02a.jpg?resize=758%2C1058&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/03/The_Record_1974_03_01_27-scaled.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1973-03-02c-300x290.jpg?resize=758%2C733)
+**1975:** Another cancellation, this one in Syracuse, due to a conflict with mixing sessions for *Born to Run*.
 
-Bruce cancels a show in Parsippany, New Jersey due to illness.
+**1977:** The Lawsuit Tour makes its way to Atlanta’s Civic Center Auditorium.
 
-**1974:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/02/1977-03-02.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Record_1974_03_01_27-scaled.jpg?resize=758%2C994&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2018/02/1977-0302.jpg)
 
-Another cancellation, this one in Syracuse, due to a conflict with mixing sessions for .
+**1981:** The River Tour moves on to the Hampton Roads Coliseum in Hampton, Virginia.
 
-**1975:***Born to Run*
+[Watch Video Highlight](https://videopress.com/embed/1tSamoBy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-The Lawsuit Tour makes its way to Atlanta's Civic Center Auditorium.
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1981-03-02.jpg)
 
-**1977:**<br>
+**1986:** A rare “E Street Sneak Attack” as the entire band (minus Roy) plays a set at The Stone Pony, where standard songs are given new life with extended jams and solos.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1977-03-02.jpg?resize=499%2C1117&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/cfkCcj42?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1977-0302-300x272.jpg?resize=758%2C687)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1986-03-02.jpg)
 
-The River Tour moves on to the Hampton Roads Coliseum in Hampton, Virginia.
+**1988:** Bruce wins the Best Rock Vocal Performance (Solo) Grammy Award for “[Tunnel of Love.](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” Although he’s also nominated for Best Pop Vocal Performance (Male) for “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and Best Rock Instrumental Performance (Orchestra, Group or Soloist) for “[Paradise by the ‘C’](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/),” he fails to win either.
 
-**1981:**<br>
+[Watch on Youtube: Bruce Springsteen - Tunnel of Love (Official Video)](https://www.youtube.com/watch?v=M4K7XZGeHTE)
 
-[https://videopress.com/embed/1tSamoBy](https://videopress.com/embed/1tSamoBy)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-03-02.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1981-03-02.jpg?resize=484%2C1513&amp;ssl=1)
+**1996:** Bruce plays a solo acoustic show at City Hall in Newcastle, England.
 
-A rare "E Street Sneak Attack" as the entire band (minus Roy) plays a set at The Stone Pony, where standard songs are given new life with extended jams and solos.
+[Watch Video Highlight](https://videopress.com/embed/ZMVCQBKw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1986:**<br>
+[Watch Video Highlight](https://videopress.com/embed/YXSuSBPK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/cfkCcj42](https://videopress.com/embed/cfkCcj42)
+[Watch on Youtube: Bruce Springsteen - SELL IT AND THEY WILL COME 1996 (live)](https://www.youtube.com/watch?v=_gFzjfrLx6Q)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1986-03-02.jpg?resize=758%2C1034&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - "Born In The USA" ( acoustic, England 1996)](https://www.youtube.com/watch?v=k6AXwphqK_Q)
 
-Bruce wins the Best Rock Vocal Performance (Solo) Grammy Award for "" Although he's also nominated for Best Pop Vocal Performance (Male) for "" and Best Rock Instrumental Performance (Orchestra, Group or Soloist) for "," he fails to win either.
+**1998:** Bruce joins Joe Grushecky and the Houserockers for a set at Nick’s Fat City in Pittsburgh.
 
-**1988:** [Tunnel of Love.](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[Paradise by the ‘C'](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)
+[Watch Video Highlight](https://videopress.com/embed/4T7qarfJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/M4K7XZGeHTE](https://www.youtube.com/embed/M4K7XZGeHTE)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1998-03-02.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-02.png?resize=758%2C1895&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/02/1998-03-02a.jpg)
 
-Bruce plays a solo acoustic show at City Hall in Newcastle, England.
+**2003:** Joe Ely joins the E Street Band for “[All Just to Get to You](https://estreetshuffle.com/index.php/2022/02/23/matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/)” and “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” during the Austin stop on the Rising Tour. This show also features the tour premiere of “[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)” as the U.S. prepares for war with Iraq.
 
-**1996:**<br>
+[Watch on Youtube: Growin' Up (acoustic) Bruce Springsteen and Clarence Clemons 3/2/2003 Austin, TX](https://www.youtube.com/watch?v=PD3t4lMXybc)
 
-[https://videopress.com/embed/ZMVCQBKw](https://videopress.com/embed/ZMVCQBKw)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2003-03-02-rotated.jpg)
 
-[https://videopress.com/embed/YXSuSBPK](https://videopress.com/embed/YXSuSBPK)
+**2008:** The Magic Tour begins its Canadian leg with a show at Bell Center in Montreal. A local reviewer informs us that the sax solo on “[Livin’ in the Future](https://estreetshuffle.com/index.php/2023/06/24/roll-of-the-dice-livin-in-the-future/)” was played by Clarence Thomas… what a surreal guest appearance that must have been.
 
-[https://www.youtube.com/embed/_gFzjfrLx6Q](https://www.youtube.com/embed/_gFzjfrLx6Q)
+[Watch on Youtube: Bruce Springsteen - Because The Night - Montreal - March 2, 2008](https://www.youtube.com/watch?v=xuib4SIvRYo)
 
-[https://www.youtube.com/embed/k6AXwphqK_Q](https://www.youtube.com/embed/k6AXwphqK_Q)
+[Watch on Youtube: Bruce Springsteen Montreal Feb 2/08 Reason to Believe](https://www.youtube.com/watch?v=wiE2z3gYOwQ)
 
-Bruce joins Joe Grushecky and the Houserockers for a set at Nick's Fat City in Pittsburgh.
+![](https://estreetshuffle.com/wp-content/uploads/2020/02/2008-03-02a.jpg)
 
-**1998:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/2008-03-02b.jpg)
 
-[https://videopress.com/embed/4T7qarfJ](https://videopress.com/embed/4T7qarfJ)
+**2012:** Bruce is a guest on *Late Night with Jimmy Fallon*, where he pokes fun of himself by dressing as his *Born in the U.S.A.*-era self for a parody of “[Sexy and I Know It](https://estreetshuffle.com/index.php/2018/03/24/matr-bruce-springsteen-and-jimmy-fallon-sexy-and-i-know-it/).” Later Bruce and the band (plus Tom Morello) premiere “[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)” and “[Jack of All Trades](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)” and play a rare “[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/).” Watch Bruce’s performance and interview below.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1998-03-02.jpg?resize=758%2C1011&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/9ki7nHat?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1998-03-02a-118x300.jpg?resize=758%2C1927)
+[Watch Video Highlight](https://videopress.com/embed/HbJUzeGe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Joe Ely joins the E Street Band for "" and "" during the Austin stop on the Rising Tour. This show also features the tour premiere of "" as the U.S. prepares for war with Iraq.
+[Watch Video Highlight](https://videopress.com/embed/I43auK8y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2003:** [All Just to Get to You](https://estreetshuffle.com/index.php/2022/02/23/matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/)[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)[War](http://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)
+**2014:** Night two in Auckland, New Zealand again features an acoustic cover of “[Royals](https://estreetshuffle.com/index.php/2020/04/25/cover-me-royals/)” to open, along with another full album performance–this time *Born to Run*.
 
-[https://www.youtube.com/embed/PD3t4lMXybc](https://www.youtube.com/embed/PD3t4lMXybc)
+[Watch on Youtube: Bruce Springsteen - Lorde's "Royals" (Auckland 03/02/14)](https://www.youtube.com/watch?v=xfJvrH7iQ3c)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2003-03-02-rotated.jpg?resize=405%2C3556&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - Jungleland - Auckland - Sunday 2 March 2014](https://www.youtube.com/watch?v=jCQr8tBOrX8)
 
-The Magic Tour begins its Canadian leg with a show at Bell Center in Montreal. A local reviewer informs us that the sax solo on "" was played by Clarence Thomas… what a surreal guest appearance that must have been.
+[Watch on Youtube: Bruce Springsteen - Born to Run, Auckland NZ, 02 March 2014](https://www.youtube.com/watch?v=EOHpfEA8CbQ)
 
-**2008:** [Livin' in the Future](https://estreetshuffle.com/index.php/2023/06/24/roll-of-the-dice-livin-in-the-future/)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/xuib4SIvRYo](https://www.youtube.com/embed/xuib4SIvRYo)
+**2023:** For the first time since the tour’s opening week, the entire E Street Band is on stage and COVID-free, as Bruce’s 2023 World Tour makes a stop at Ball Arena in Denver. Earlier in the day, Bruce stops into a Peruvian goods shop in Larimer Square.
 
-[https://www.youtube.com/embed/wiE2z3gYOwQ](https://www.youtube.com/embed/wiE2z3gYOwQ)
+[Watch on Youtube: Bruce Springsteen drops by Denver store](https://www.youtube.com/watch?v=g5oP1quX97Q)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2008-03-02a-300x140.jpg?resize=758%2C354)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2008-03-02b.jpg?resize=758%2C1058&amp;ssl=1)
-
-Bruce is a guest on , where he pokes fun of himself by dressing as his -era self for a parody of "." Later Bruce and the band (plus Tom Morello) premiere "" and "" and play a rare "." Watch Bruce's performance and interview below.
-
-**2012:***Late Night with Jimmy Fallon**Born in the U.S.A.*[Sexy and I Know It](http://estreetshuffle.com/index.php/2018/03/24/matr-bruce-springsteen-and-jimmy-fallon-sexy-and-i-know-it/)[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)[Jack of All Trades](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)
-
-[https://videopress.com/embed/9ki7nHat](https://videopress.com/embed/9ki7nHat)
-
-[https://videopress.com/embed/HbJUzeGe](https://videopress.com/embed/HbJUzeGe)
-
-[https://videopress.com/embed/I43auK8y](https://videopress.com/embed/I43auK8y)
-
-Night two in Auckland, New Zealand again features an acoustic cover of "" to open, along with another full album performance–this time .
-
-**2014:**[Royals](https://estreetshuffle.com/index.php/2020/04/25/cover-me-royals/)*Born to Run*
-
-[https://www.youtube.com/embed/xfJvrH7iQ3c](https://www.youtube.com/embed/xfJvrH7iQ3c)
-
-[https://www.youtube.com/embed/jCQr8tBOrX8](https://www.youtube.com/embed/jCQr8tBOrX8)
-
-[https://www.youtube.com/embed/EOHpfEA8CbQ](https://www.youtube.com/embed/EOHpfEA8CbQ)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:***Springsteen on Broadway*
-
-For the first time since the tour's opening week, the entire E Street Band is on stage and COVID-free, as Bruce's 2023 World Tour makes a stop at Ball Arena in Denver. Earlier in the day, Bruce stops into a Peruvian goods shop in Larimer Square.
-
-**2023:**<br>
-
-[https://www.youtube.com/embed/g5oP1quX97Q](https://www.youtube.com/embed/g5oP1quX97Q)
-
-[https://www.youtube.com/embed/fJK7SXLdq_Q](https://www.youtube.com/embed/fJK7SXLdq_Q)
+[Watch on Youtube: Bruce Springsteen Tour 2023 Denver, Colorado, March 2, 2023](https://www.youtube.com/watch?v=fJK7SXLdq_Q)

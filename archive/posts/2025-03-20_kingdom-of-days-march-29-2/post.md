@@ -1,78 +1,61 @@
+***New for 2025:** Video for 2023*
 
-*Video for 2023***New for 2025:**
+**1973:** Bruce and his band open for Stevie Wonder at Kutztown State College.
 
-Bruce and his band open for Stevie Wonder at Kutztown State College.
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1973-03-29a.jpg)
 
-**1973:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1973-03-29b.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1973-03-29a-300x230.jpg?resize=758%2C581)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0329.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1973-03-29b-300x171.jpg?resize=758%2C432)
+**1976:** Finding themselves with time to spare following a gig at Duke University, Bruce and the E Street band play an extra show at the Ovens Auditorium in Charlotte.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0329-300x167.jpg?resize=758%2C422)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1976-03-29.jpg)
 
-Finding themselves with time to spare following a gig at Duke University, Bruce and the E Street band play an extra show at the Ovens Auditorium in Charlotte.
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1976-0329.jpg)
 
-**1976:**<br>
+**1988**: Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)” below.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1976-03-29-197x300.jpg?resize=758%2C1149)
+[Watch on Youtube: Bruce Springsteen - "One Step Up" live in Detroit MI on March 29th 1988.](https://www.youtube.com/watch?v=RGj1gGvXJT8)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0329-280x300.jpg?resize=758%2C812)
+**1989:** *Video Anthology/1978-1988* is certified 3x multi-platinum by the Recording Industry Association of America.
 
-: Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform "" below.
+**2008:** Bruce opens with “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” and pulls out the Magic tour premiere of “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” and a very rare “[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)” at his KeyArena show in Seattle. For more highlights see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/03/29/where-the-band-was-seattle-march-29-2008/) from this date.
 
-**1988**[One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)
+[Watch on Youtube: Bruce Springsteen - Point Blank - Seattle - March 29, 2008](https://www.youtube.com/watch?v=RSl5Oe0oXIo)
 
-[https://www.youtube.com/embed/RGj1gGvXJT8?start=117&amp;feature=oembed](https://www.youtube.com/embed/RGj1gGvXJT8?start=117&amp;feature=oembed)
+[Watch on Youtube: Bruce Springsteen Your Own Worst Enemy Seattle 29/03/2008](https://www.youtube.com/watch?v=JwVRaN26LBM)
 
-is certified 3x multi-platinum by the Recording Industry Association of America.
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/2008-03-29.png)
 
-**1989:***Video Anthology/1978-1988*
+**2012:** Night Two in Philadelphia features a rare (outside of Philly, anyway) “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” and a glorious, brassy “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/).” Also today: Bruce appears on the cover of the new issue of *Rolling Stone,* which features [an interview with him by Jon Stewart](https://www.rollingstone.com/music/music-news/bruce-springsteens-state-of-the-union-172644/).
 
-Bruce opens with "" and pulls out the Magic tour premiere of "" and a very rare "" at his KeyArena show in Seattle. For more highlights see my from this date.
+[Watch on Youtube: Trapped - Springsteen - Philadelphia March 29, 2012](https://www.youtube.com/watch?v=QimUtzbHEvg)
 
-**2008:** [Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)[report](http://estreetshuffle.com/index.php/2018/03/29/where-the-band-was-seattle-march-29-2008/)*Where the Band Was*
+[Watch on Youtube: Easy Money - Springsteen - Philadelphia March 29, 2012](https://www.youtube.com/watch?v=CZe0bvLn_nk)
 
-[https://www.youtube.com/embed/RSl5Oe0oXIo](https://www.youtube.com/embed/RSl5Oe0oXIo)
+[Watch on Youtube: Kitty's Back - Springsteen - Philadelphia March 29, 2012](https://www.youtube.com/watch?v=mfA0GQkHIUw)
 
-[https://www.youtube.com/embed/JwVRaN26LBM](https://www.youtube.com/embed/JwVRaN26LBM)
+[Watch Video Highlight](https://videopress.com/embed/gej0C60o?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2008-03-29.png?resize=758%2C1155&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/optZZp65?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Night Two in Philadelphia features a rare (outside of Philly, anyway) "" and a glorious, brassy "." Also today: Bruce appears on the cover of the new issue of which features .
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/RollingStone11.jpg)
 
-**2012:**[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)*Rolling Stone*, [an interview with him by Jon Stewart](https://www.rollingstone.com/music/music-news/bruce-springsteens-state-of-the-union-172644/)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/QimUtzbHEvg](https://www.youtube.com/embed/QimUtzbHEvg)
+**2021:** Bruce and President Barack Obama release Episode 7 of their *Renegades: Born in the U.S.A.* podcast, entitled “Finding Home: Fatherhood.”
 
-[https://www.youtube.com/embed/CZe0bvLn_nk](https://www.youtube.com/embed/CZe0bvLn_nk)
+[Spotify Embed: Fatherhood](https://open.spotify.com/embed/episode/1NTNCe83v8fBXxLe5RKhSY?si=17cb78b9cc6e4a41&utm_source=oembed)
 
-[https://www.youtube.com/embed/mfA0GQkHIUw](https://www.youtube.com/embed/mfA0GQkHIUw)
 
-[https://videopress.com/embed/gej0C60o](https://videopress.com/embed/gej0C60o)
 
-[https://videopress.com/embed/optZZp65](https://videopress.com/embed/optZZp65)
+**2023:** “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/RollingStone11-221x300.jpg?resize=758%2C1029)
+[Watch on Youtube: Bruce Springsteen & The E Street Band Concert - Live in Detroit - March 29, 2023](https://www.youtube.com/watch?v=ozJ7CrhBLKI)
 
-continues its theatrical run at the Walter Kerr Theater in New York City.
+[Watch on Youtube: Nightshift - Bruce Springsteen & the E Street Band, Detroit, 3/29/23](https://www.youtube.com/watch?v=7L-TbAde0e0)
 
-**2018:** *Springsteen on Broadway*
+![](https://estreetshuffle.com/wp-content/uploads/2024/03/Detroit_Free_Press_Fri__Mar_31__2023_-scaled.jpg)
 
-Bruce and President Barack Obama release Episode 7 of their podcast, entitled "Finding Home: Fatherhood."
-
-**2021:** *Renegades: Born in the U.S.A.*
-
-[https://open.spotify.com/embed/episode/1NTNCe83v8fBXxLe5RKhSY?si=17cb78b9cc6e4a41&amp;utm_source=oembed](https://open.spotify.com/embed/episode/1NTNCe83v8fBXxLe5RKhSY?si=17cb78b9cc6e4a41&amp;utm_source=oembed)
-
-"" makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.
-
-**2023:** [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)
-
-[https://www.youtube.com/embed/ozJ7CrhBLKI](https://www.youtube.com/embed/ozJ7CrhBLKI)
-
-[https://www.youtube.com/embed/7L-TbAde0e0](https://www.youtube.com/embed/7L-TbAde0e0)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Detroit_Free_Press_Fri__Mar_31__2023_-scaled.jpg?resize=758%2C1868&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Detroit_Free_Press_Fri__Mar_31__2023_-1-scaled.jpg?resize=758%2C1212&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2024/03/Detroit_Free_Press_Fri__Mar_31__2023_-1-scaled.jpg)

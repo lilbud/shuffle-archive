@@ -50,7 +50,7 @@ with load_db() as conn, conn.cursor() as cur:
         # print(file.parent.name)
         content = file.read_text(encoding="utf-8")
 
-        if re.search(r"https://www.youtube.com/embed/", content):
+        if re.search(r"\*\*(First|Last) performed:\*\*<br>", content):
             print(file.parent.name)
             data = json.loads(
                 Path(

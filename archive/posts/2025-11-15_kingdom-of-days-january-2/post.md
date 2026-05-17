@@ -1,20 +1,13 @@
+**1970:** Steel Mill starts out the year in California, where they play a gig at the Esalen Institute in Big Sur.
 
-Steel Mill starts out the year in California, where they play a gig at the Esalen Institute in Big Sur.
+![](https://estreetshuffle.com/wp-content/uploads/2019/01/1970-0102.jpg)
 
-**1970:**<br>
+**1978:** Bruce holds a recording session for his next album at The Record Plant in New York City.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/01/1970-0102.jpg?resize=758%2C1088)
+**2017:** Bruce appears on Marc Maron’s *WTF* podcast for a wide-ranging, hour-long conversation, but it’s Bruce’s comments on the president-elect that make national news.
 
-Bruce holds a recording session for his next album at The Record Plant in New York City.
+[Watch on Youtube: WTF with Marc Maron - Bruce Springsteen interview](https://www.youtube.com/watch?v=peVxzWLKmiI)
 
-**1978:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/2017-01-02b.png)
 
-Bruce appears on Marc Maron's podcast for a wide-ranging, hour-long conversation, but it's Bruce's comments on the president-elect that make national news.
-
-**2017:** *WTF*
-
-[https://www.youtube.com/embed/peVxzWLKmiI](https://www.youtube.com/embed/peVxzWLKmiI)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2017-01-02b.png?resize=758%2C611&amp;ssl=1)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2017-01-02.png?resize=758%2C376&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/2017-01-02.png)

@@ -1,72 +1,49 @@
+**1978:** At the Record Plant in New York City, Bruce and his studio team complete the mix for “Darkness on the Edge of Town.”
 
-At the Record Plant in New York City, Bruce and his studio team complete the mix for "Darkness on the Edge of Town."
+[Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/watch?v=0LpdEyGhNxM)
 
-**1978:**<br>
+**1979:** Bruce and the E Street Band rehearse for their upcoming album in Bruce’s home studio in Holmdel, although several of the songs they work on won’t see release for almost four decades.
 
-[https://www.youtube.com/embed/0LpdEyGhNxM](https://www.youtube.com/embed/0LpdEyGhNxM)
+[Watch on Youtube: Bruce Springsteen Chain Lightning](https://www.youtube.com/watch?v=6CeHuKvkITU)
 
-Bruce and the E Street Band rehearse for their upcoming album in Bruce's home studio in Holmdel, although several of the songs they work on won't see release for almost four decades.
+[Watch on Youtube: Bruce Springsteen Night Fire](https://www.youtube.com/watch?v=rTA0D28B6QY)
 
-**1979:**<br>
+**1981:** Bruce postpones a show in Edinburgh to recover from the previous leg of the River Tour.
 
-[https://www.youtube.com/embed/6CeHuKvkITU](https://www.youtube.com/embed/6CeHuKvkITU)
+**1988:** Detroit radio station WRIF-FM airs a bootleg of last month’s Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can’t envision a day when bootlegs are commonly played on the radio.
 
-[https://www.youtube.com/embed/rTA0D28B6QY](https://www.youtube.com/embed/rTA0D28B6QY)
+![](https://estreetshuffle.com/wp-content/uploads/2022/03/1988-03-30.jpg)
 
-Bruce postpones a show in Edinburgh to recover from the previous leg of the River Tour.
+**1989:** Bruce and Julianne Phillips finalize their divorce.
 
-**1981:**<br>
+**1993:** Bruce and his new touring band rehearse in Glasgow before kicking off World Tour 1993. Listen in on the rehearsal session below.
 
-Detroit radio station WRIF-FM airs a bootleg of last month's Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can't envision a day when bootlegs are commonly played on the radio.
+[Watch Video Highlight](https://videopress.com/embed/QSdKEveK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1988:**<br>
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30a.png)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-30.jpg?resize=417%2C825&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30b.png)
 
-Bruce and Julianne Phillips finalize their divorce.
+**1996:** Bruce’s scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year’s Oscars ceremony.
 
-**1989:**<br>
+**2000:** The Reunion Tour comes to the Pepsi Center in Denver for the first of two nights.
 
-Bruce and his new touring band rehearse in Glasgow before kicking off World Tour 1993. Listen in on the rehearsal session below.
+[Watch Video Highlight](https://videopress.com/embed/wXh0vJHg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1993:**<br>
+**2008:** In town a day early for their show in Vancouver, Bruce and Max take their sons to see Foo Fighters and Against Me at the Pacific Coliseum.
 
-[https://videopress.com/embed/QSdKEveK](https://videopress.com/embed/QSdKEveK)
+[Watch on Youtube: Dave Grohl on Bruce Springsteen's "secret" letter (CFOX - Vancouver 2017)](https://www.youtube.com/watch?v=ftsBk0Sq2A8)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30a.png?resize=758%2C984&amp;ssl=1)
+**2013:** Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on “Tougher Than the Rest.”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30b.png?resize=758%2C1508&amp;ssl=1)
+[Watch on Youtube: Tougher Than The Rest - Jimmy Barnes & Bruce Springsteen Hanging Rock Sat 30 March 2013](https://www.youtube.com/watch?v=rJtMOZ-MMRQ)
 
-Bruce's scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year's Oscars ceremony.
+[Watch on Youtube: Bruce Springsteen and the E Street Band - Death To My Home Town (Live Hanging Rock 30 March 2013)](https://www.youtube.com/watch?v=apt6sF60rHE)
 
-**1996:**<br>
+[Watch on Youtube: If I Should Fall Behind (solo electric) - Bruce Springsteen - Hanging Rock 1 - 30-03-2013](https://www.youtube.com/watch?v=bGZGcIWrptA)
 
-The Reunion Tour comes to the Pepsi Center in Denver for the first of two nights.
+[Watch on Youtube: Ghost of Tom Joad - Bruce Springsteen and Tom Morello - Hanging Rock 1 - 30-03-2013](https://www.youtube.com/watch?v=VOeDqnUWYMw)
 
-**2000:**<br>
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://videopress.com/embed/wXh0vJHg](https://videopress.com/embed/wXh0vJHg)
-
-In town a day early for their show in Vancouver, Bruce and Max take their sons to see Foo Fighters and Against Me at the Pacific Coliseum.
-
-**2008:**<br>
-
-[https://www.youtube.com/embed/ftsBk0Sq2A8](https://www.youtube.com/embed/ftsBk0Sq2A8)
-
-Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on "Tougher Than the Rest."
-
-**2013:**<br>
-
-[https://www.youtube.com/embed/rJtMOZ-MMRQ](https://www.youtube.com/embed/rJtMOZ-MMRQ)
-
-[https://www.youtube.com/embed/apt6sF60rHE](https://www.youtube.com/embed/apt6sF60rHE)
-
-[https://www.youtube.com/embed/bGZGcIWrptA](https://www.youtube.com/embed/bGZGcIWrptA)
-
-[https://www.youtube.com/embed/VOeDqnUWYMw](https://www.youtube.com/embed/VOeDqnUWYMw)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-[https://videopress.com/embed/fLwEconT](https://videopress.com/embed/fLwEconT)
+[Watch Video Highlight](https://videopress.com/embed/fLwEconT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
