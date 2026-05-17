@@ -10,5 +10,5 @@ Perhaps that’s why Bruce included it in the set when he had the chance to have
 
 [Watch on Youtube: Bruce Springsteen and Jimmy Cliff - "Time Will Tell" - Verona, 1993-04-11](https://www.youtube.com/watch?v=jxeRBjMH_ns)
 
-**Time Will Tell****First performed:** April 11, 1993 (Verona, Italy)  
+**Time Will Tell****First performed:** April 11, 1993 (Verona, Italy)
 **Last performed:** March 15, 2012 (Austin, TX)

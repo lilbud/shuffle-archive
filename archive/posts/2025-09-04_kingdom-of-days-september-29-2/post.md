@@ -94,12 +94,8 @@
 
 That evening, Bruce and Patti perform “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
 > View this post on Instagram
-> 
-> 
-> 
+>
 > [A post shared by covenant- alex (@borntorunboss1)](https://www.instagram.com/tv/CjTHuJAtR9O/?utm_source=ig_embed&utm_campaign=loading)
-
-
 
 [Watch on Youtube: Oscar Isaac Bruce Springsteen take their wives to Albie Awards NYC! #brucespringsteen #oscarisaac](https://www.youtube.com/watch?v=yhCl8la_aeU)
 

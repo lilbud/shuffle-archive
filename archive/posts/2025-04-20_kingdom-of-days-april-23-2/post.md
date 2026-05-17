@@ -76,8 +76,6 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 [Watch Video Highlight](https://videopress.com/embed/Ifqqc6cS?hd=0&cover=1)
 
-
-
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2008-04-23a.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2008-04-23b.jpg)

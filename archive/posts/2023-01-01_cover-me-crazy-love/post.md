@@ -8,7 +8,7 @@ We don’t have a recording from that night, but we do have one from a few weeks
 
 [Watch on Youtube: Crazy Love (2013 Remaster)](https://www.youtube.com/watch?v=OIaKy1vM9hs)
 
-**Crazy Love**  
-**Never performed live**  
-**First soundchecked:** March 4, 1988 (Chapel Hill, NC)  
+**Crazy Love**
+**Never performed live**
+**First soundchecked:** March 4, 1988 (Chapel Hill, NC)
 **Last soundchecked:** April 4, 1988 (Largo, MD)

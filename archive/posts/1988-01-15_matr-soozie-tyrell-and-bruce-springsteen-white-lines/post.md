@@ -16,9 +16,9 @@ For more background on *White Lines* and Soozie herself, take a listen to this r
 
 <https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3>
 
-**White Lines  
-Recorded:** May 2002  
-**Released:** *White Lines* (2003)  
+**White Lines
+Recorded:** May 2002
+**Released:** *White Lines* (2003)
 **Never performed**
 
 © September 30, 2021

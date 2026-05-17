@@ -24,7 +24,7 @@ Enjoy the jam instead.
 
 **Sweet Miss Sally/Mistress Annie**
 **Never recorded or released**
-**First performed:** December 3, 1971 (Asbury Park, NJ)  
+**First performed:** December 3, 1971 (Asbury Park, NJ)
 **Last performed:** January 21, 1972 (Neptune, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

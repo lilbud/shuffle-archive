@@ -1,7 +1,5 @@
 > “I went in the booth, closed my eyes and boom! I said, “Shall I do it again?’ And they said, ‘No, that was it.’ Back in the ’60s, you hadn’t the technology, so you had to do each song, or vocal, over and over. But this was one take. So it means more to me than just the lyrics. It was the fact I had my eyes closed, I stepped up to the mic and it just melted out of me.”
-> 
-> 
-> 
+>
 > — Ronnie Spector, *Uncut* (April 2016)
 
 It sure did.
@@ -34,11 +32,11 @@ Her most memorable E Street stage appearance may have been the evening of Novemb
 
 They weren’t alone. Ronnie Spector passed away this evening (as I write this) after losing her battle with cancer. If there’s an Internet in the afterlife, perhaps she’ll see the tributes pouring in from around the globe and realize how much she meant to a world touched by her inimitable voice.
 
-**Ronnie Spector**  
+**Ronnie Spector**
 **August 10, 1943 – January 12, 2022**
 
-**Walking in the Rain  
-First performed:** November 4, 1976 (New York City, NY)  
+**Walking in the Rain
+First performed:** November 4, 1976 (New York City, NY)
 **Last performed:** May 13, 1977 (Red Bank, NJ)
 
 ©January 13, 2022

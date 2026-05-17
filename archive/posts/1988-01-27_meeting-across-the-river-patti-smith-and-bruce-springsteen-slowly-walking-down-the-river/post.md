@@ -4,8 +4,8 @@ Patti performed two shows that night, and Bruce made was on stage for much of bo
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EKCxYQ-Ssvw)
 
-**Slowly Walking Down the River  
-First performed:** November 26, 1976 (New York City, NY)  
+**Slowly Walking Down the River
+First performed:** November 26, 1976 (New York City, NY)
 **Last performed:** November 26, 1976 (New York City, NY)
 
 © March 29, 2018

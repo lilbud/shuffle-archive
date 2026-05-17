@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor’s Note:*** *Today’s guest blogger is friend of the blog TJ Jones, who was one of the very few fans in attendance at a very special show: Bruce’s first and only rehearsal show with his full eleven-person 1992-93 touring band, just ten days before the tour kicked off in Stockholm.* 
+***Editor’s Note:*** *Today’s guest blogger is friend of the blog TJ Jones, who was one of the very few fans in attendance at a very special show: Bruce’s first and only rehearsal show with his full eleven-person 1992-93 touring band, just ten days before the tour kicked off in Stockholm.*
 
 June 5, 1992. I will always remember that date.
 
@@ -33,16 +33,13 @@ As show time neared, the contest winners were right back up front. The show was 
 - Darkness on the Edge of Town
 - [If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
-
 [Watch Video Highlight](https://videopress.com/embed/eUV8Hd1P?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 - [57 Channels](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/) (w/ Little Steven): This was a rocked up version similar to the SNL version, but extended with audio of news reports related to the L.A. riots, including chants of "No justice, no peace!" at the beginning, and "Prejudice hurts!" at the end.
 
-
 [Watch Video Highlight](https://videopress.com/embed/LQZeF5Jg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 - [The Big Muddy](https://estreetshuffle.com/index.php/2019/01/29/roll-of-the-dice-the-big-muddy/): Primarily Bruce on electric guitar, with Roy and the band coming in during the song
-
 
 [Watch Video Highlight](https://videopress.com/embed/eD05kswB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
@@ -51,26 +48,21 @@ As show time neared, the contest winners were right back up front. The show was 
 - Leap of Faith
 - [Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)
 
-
 [Watch Video Highlight](https://videopress.com/embed/sE7K2fDS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 - [Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/) (an extended version that showed off the background singers)
-
 
 [Watch on Youtube: Bruce Springsteen - Roll Of The Dice. 1992-06-05](https://www.youtube.com/watch?v=yGaDOwpyocA)
 
 - [Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/), with Patti joining to sing backup
 
-
 [Watch Video Highlight](https://videopress.com/embed/K2A6d4DI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 - [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/), with Little Steven
 
-
 [Watch Video Highlight](https://videopress.com/embed/er94Z6vt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 - and an acoustic “Hungry Heart”
-
 
 [Watch Video Highlight](https://videopress.com/embed/71qk28wQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
@@ -83,7 +75,6 @@ He came back out and played five more songs for us. So much fun! He played:
 - [99 ½ Won't Do](https://estreetshuffle.com/index.php/2020/10/11/cover-me-ninety-nine-and-a-half-wont-do/) (a lot of fun even though I had never heard it before)
 - [Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 - [Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/) (w/ Little Steven)
-
 
 When the post-broadcast portion was over we thought that was it, but Bruce announced that he would come out and sign things for us. It seemed to me that Bruce's people might not have been expecting this as they quickly scrambled to put up a table and chair behind a rope and had us form a line. The line of people wasn't just the contest winners, it was a good portion of the 300 or so people there, which also included a lot of music industry people.
 

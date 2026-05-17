@@ -12,6 +12,6 @@ And luckily for us, it was recorded. Take a listen to The Wallflowers and Bruce 
 
 [Watch Video Highlight](https://videopress.com/embed/QODOavVr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Bring it On Home to Me  
-First performed:** March 8, 1997 (Sea Bright, NJ)  
+**Bring it On Home to Me
+First performed:** March 8, 1997 (Sea Bright, NJ)
 **Last performed:** March 8, 1997 (Sea Bright, NJ)

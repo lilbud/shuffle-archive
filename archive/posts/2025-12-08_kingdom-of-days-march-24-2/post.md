@@ -14,8 +14,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/5budtv00?hd=0&cover=1)
 
-
-
 **1980:** At the Power Station in New York City, Bruce and the E Street Band work on “Hungry Heart.”
 
 [Watch on Youtube: Bruce Springsteen - Hungry Heart (Official Audio)](https://www.youtube.com/watch?v=boJhWtw-6Gg)

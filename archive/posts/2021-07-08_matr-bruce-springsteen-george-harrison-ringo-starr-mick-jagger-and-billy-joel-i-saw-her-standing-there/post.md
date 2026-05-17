@@ -20,6 +20,6 @@ Just try to watch this without breaking into a goofy grin when Bruce takes the m
 
 [Watch on Youtube: I Saw Her Standing There (Remastered 2009)](https://www.youtube.com/watch?v=oxwAB3SECtc)
 
-**I Saw Her Standing There**  
-**First performed:** January 20, 1988 (New York City, NY)  
+**I Saw Her Standing There**
+**First performed:** January 20, 1988 (New York City, NY)
 **Last performed:** September 15, 2017 (New York City, NY)

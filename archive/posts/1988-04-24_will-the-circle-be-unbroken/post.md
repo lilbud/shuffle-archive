@@ -2,7 +2,7 @@ It’s a funeral dirge and a celebration of life, a church hymn and a social pro
 
 “Will the Circle Be Unbroken” endures in American music in part due to its tremendous versatility.
 
-It began in 1907 as a Christian hymn by Ada R. Habershon and Charles H. Gabriel, who asked: *does a family reunite in heaven?* 
+It began in 1907 as a Christian hymn by Ada R. Habershon and Charles H. Gabriel, who asked: *does a family reunite in heaven?*
 
  
 
@@ -38,8 +38,8 @@ Featuring Springsteen, Staples, Darlene Love, John Mellencamp, Jackson Browne, a
 
 It was one link in a chain of tradition the continues on, ever unbroken.
 
-**Will the Circle Be Unbroken  
-First performed:** June 12, 2007 (Red Bank, NJ)  
+**Will the Circle Be Unbroken
+First performed:** June 12, 2007 (Red Bank, NJ)
 **Last performed:** April 24, 2024 (West Long Branch, NJ)
 
 © February 10, 2026

@@ -12,8 +12,8 @@ Bonus footage: One minute of pro-shot footage from 2009, where Bruce and the E S
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=21ShrNP31CY)
 
-**My Generation  
-First performed:** September 30, 1967 (Freehold, NJ)  
+**My Generation
+First performed:** September 30, 1967 (Freehold, NJ)
 **Last performed:** May 28, 2015 (New York City, NY)
 
 © March 27, 2018

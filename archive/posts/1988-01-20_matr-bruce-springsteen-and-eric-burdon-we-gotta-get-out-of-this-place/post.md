@@ -6,8 +6,6 @@ And as far as Bruce’s songwriting influences… well, let’s listen to him ex
 
 [Watch Video Highlight](https://videopress.com/embed/Vi2qMA7f?hd=0&cover=1)
 
-
-
 When it comes to songs by The Animals, we typically associate Bruce with his ferocious cover of “It’s My Life,” a regular feature during the Born to Run era. Thematically, though, “We Gotta Get Out of This Place” is at least as resonant with his songwriting themes.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=t6gcxNFc1I0)
@@ -42,8 +40,8 @@ That was the last time to date Bruce performed “We Gotta Get Out of This Place
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZE6evYHrL58)
 
-**We Gotta Get Out of This Place  
-First performed:** October 1965 (Marlboro, NJ)  
+**We Gotta Get Out of This Place
+First performed:** October 1965 (Marlboro, NJ)
 **Last performed:** July 23, 2013 (Cardiff, Wales)
 
 © March 17, 2022

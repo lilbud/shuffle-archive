@@ -10,8 +10,8 @@ Bruce concluded with a fond “Lord bless you, George!” before launching into 
 
 [Watch Video Highlight](https://videopress.com/embed/hniSZMBx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**My Sweet Lord  
-First performed:** December 3, 2001 (Asbury Park, NJ)  
+**My Sweet Lord
+First performed:** December 3, 2001 (Asbury Park, NJ)
 **Last performed:** December 3, 2001 (Asbury Park, NJ)
 
  

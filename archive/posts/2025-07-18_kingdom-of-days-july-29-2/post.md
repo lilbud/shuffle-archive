@@ -20,8 +20,6 @@
 
 [1975-07-29 WHFS interview by Brucebase Wiki](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F187050681&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 **1976:** Mike Appel countersues Bruce for breach of contract, escalating their legal battle.
 
 **1978:** At the Bayfront Center Arena in St. Petersburg, Bruce opens his Darkness Tour show with his debut of “[Oh Boy](https://estreetshuffle.com/index.php/2018/05/17/cover-me-oh-boy/)” and adds a second cover debut later in the show: Chuck Berry’s “[Around and Around](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/).”

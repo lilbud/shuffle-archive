@@ -18,8 +18,8 @@ Although their arrangement was traditional, Bruce found the wry, sarcastic humor
 
 Bruce went on to perform “The Daring Young Man on the Flying Trapeze” once more–in London that autumn. We haven’t heard from that daring young man since.
 
-**The Daring Young Man on the Flying Trapeze  
-First performed:** April 26, 2006 (Asbury Park, NJ)  
+**The Daring Young Man on the Flying Trapeze
+First performed:** April 26, 2006 (Asbury Park, NJ)
 **Last performed:** November 12, 2006 (London, England)
 
 (c) August 17, 2020

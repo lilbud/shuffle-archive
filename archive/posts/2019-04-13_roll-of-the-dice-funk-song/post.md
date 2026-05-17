@@ -16,8 +16,8 @@ So why the “sort of” qualification? Because even though the 1972 and 1975 ve
 
 [Watch Video Highlight](https://videopress.com/embed/68XoKMjo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Funk Song  
-Recorded:** N/A  
-**Released:** N/A  
-**First performed:** July 23, 1975 (Lenox, MA)  
+**Funk Song
+Recorded:** N/A
+**Released:** N/A
+**First performed:** July 23, 1975 (Lenox, MA)
 **Last performed:** August 8, 1975 (Akron, OH)

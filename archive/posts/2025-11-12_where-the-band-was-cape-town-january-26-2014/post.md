@@ -6,7 +6,7 @@ Even the songs I’d heard dozens of times live were fresh and exciting because 
 
 The “arena” itself was strange–it was actually a velodrome, basically a giant bowl. It was really small (you can see that in some of the videos that follow), and Bruce compared it to Asbury Park’s Convention Hall. For the first show, I didn’t make the pit, but I was able to see directly over it with an unobstructed line of sight to the stage by standing off to the side along the edge of the “bowl.” The price I paid for standing and dancing on a steep incline all night: aching calves the next day. It was worth it.
 
-Check out the videos, and you’ll feel the mood that held for the whole evening–an exuberant celebration. The crowd wasn’t quite sure what to do during some of the audience participation parts (“[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” was particularly funny–when Bruce asked the audience if anyone knew the question he was there to ask, he got responses like “I love you!” and “Italy!”) but they figured it out pretty quick on the subsequent nights. 
+Check out the videos, and you’ll feel the mood that held for the whole evening–an exuberant celebration. The crowd wasn’t quite sure what to do during some of the audience participation parts (“[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” was particularly funny–when Bruce asked the audience if anyone knew the question he was there to ask, he got responses like “I love you!” and “Italy!”) but they figured it out pretty quick on the subsequent nights.
 
 [Watch on Youtube: Bruce Springsteen: Mandela Was The Real Boss](https://www.youtube.com/watch?v=FOCnZ6xwxTI)
 

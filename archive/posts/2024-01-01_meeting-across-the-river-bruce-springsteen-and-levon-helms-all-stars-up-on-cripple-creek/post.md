@@ -12,6 +12,6 @@ And of course, here’s the original by The Band from way back in 1969.
 
 [Watch on Youtube: Up On Cripple Creek (Remastered 2000)](https://www.youtube.com/watch?v=kBGSf9kViEY)
 
-**Up on Cripple Creek**  
-**First performed:** August 22, 1987 (Asbury Park, NJ)  
+**Up on Cripple Creek**
+**First performed:** August 22, 1987 (Asbury Park, NJ)
 **Last performed:** April 21, 2017 (Asbury Park, NJ)

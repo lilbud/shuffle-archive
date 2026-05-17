@@ -56,10 +56,10 @@ While it’s disappointing that our recording of Bruce and Gary’s first “Jol
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BqDWGw1MLfY)
 
-**Jole Blon**  
-**Recorded:** July 1980  
-**Released:** *Dedication* (1981)  
-**First performed:** June 5, 1981 (London, England)  
+**Jole Blon**
+**Recorded:** July 1980
+**Released:** *Dedication* (1981)
+**First performed:** June 5, 1981 (London, England)
 **Last performed:** January 26, 2026 (Red Bank, NJ)
 
 © August 29, 2019

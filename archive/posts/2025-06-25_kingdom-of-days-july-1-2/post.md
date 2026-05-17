@@ -24,8 +24,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/NqB6kNCG?hd=0&cover=1)
 
-
-
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-07-01a.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-07-01b.jpg)

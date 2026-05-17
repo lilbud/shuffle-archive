@@ -10,8 +10,8 @@ As for the original song, that was Roy’s first big hit upon its release in the
 
 Despite the song’s popularity and Bruce’s lifelong admiration of Roy, though, that all-star line-up in 1987 represents the only time Bruce has ever performed “Only the Lonely” live.
 
-**Only the Lonely (Know the Way I Feel)**  
-**First performed:** September 30, 1987 (Los Angeles, CA)  
+**Only the Lonely (Know the Way I Feel)**
+**First performed:** September 30, 1987 (Los Angeles, CA)
 **Last performed:** September 30, 1987 (Los Angeles, CA)
 
 © October 20, 2019

@@ -8,8 +8,8 @@ If you’re a fan of how Bruce reinvented “Reason to Believe” on the Magic T
 
 Here are the clues that led up to the reveal of *Born in the U.S.A.* as 2015’s featured album. Can you solve the clues?
 
-Clue #1: “We promise to treat you right.”  
-Clue #2: “Smiling rookie flips out on two joints.”  
+Clue #1: “We promise to treat you right.”
+Clue #2: “Smiling rookie flips out on two joints.”
 Clue #3: “Myrtle Grant, his ex, wanted nightly bar romance.”
 
 While you puzzle those out, here's another of their reinventions of a classic Springsteen song. *This* is how you put your own spin on another artist's song. Check out their version of "Born in the U.S.A."

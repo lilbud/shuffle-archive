@@ -82,8 +82,6 @@ After the speech, Bruce plays a warm-up show for the upcoming Wrecking Ball Tour
 
 [Spotify Embed: Money & the American Dream](https://open.spotify.com/embed/episode/15i7EaLqjjfVeaqMqnj43w?si=4d79a9c9986a40e7&utm_source=oembed)
 
-
-
 [https://estreetshuffle.com/wp-content/uploads/2025/03/bb09-e377-4ad6-b4a4-20805ac2d669.mp3?_=24](https://estreetshuffle.com/wp-content/uploads/2025/03/bb09-e377-4ad6-b4a4-20805ac2d669.mp3?_=24)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/03/bb09-e377-4ad6-b4a4-20805ac2d669.mp3>

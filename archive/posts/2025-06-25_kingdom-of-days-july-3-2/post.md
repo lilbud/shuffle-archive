@@ -74,10 +74,8 @@
 
 **2016:** The first of two nights in Milan kicks off with a surprise *for* Bruce: an amazing fan tribute that spans the entire stadium. But that’s not all that makes this show special: Bruce treats early arrivals to a pre-show “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” and plays the tour premiere of “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”
 > A short video clip of the audience at San Siro stadium tonight [pic.twitter.com/ykRECLtKn2](https://t.co/ykRECLtKn2)
-> 
+>
 > — Lef_iv Ⓥ (@Lef_iv) [July 3, 2016](https://twitter.com/Lef_iv/status/749673280341245956?ref_src=twsrc%5Etfw)
-
-
 
 [Watch on Youtube: Bruce Springsteen Live Milano San Siro 03/07/2016 "Growin' Up" Acoustic](https://www.youtube.com/watch?v=XZ572D_UvZo)
 

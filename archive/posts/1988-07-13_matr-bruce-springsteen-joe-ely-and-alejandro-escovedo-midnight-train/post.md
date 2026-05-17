@@ -1,4 +1,4 @@
-“Midnight Train” is a Joe Ely deep cut from *Wheels of Fortune,* the 2004 comeback album for The Flatlanders, of which Ely was a founding member. 
+“Midnight Train” is a Joe Ely deep cut from *Wheels of Fortune,* the 2004 comeback album for The Flatlanders, of which Ely was a founding member.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=y_TyiFj-3uw)
 
@@ -8,8 +8,8 @@ It happened at SxSW 2012: Bruce joined his Texas buddies Joe Ely and Alejandro E
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DmLPWWvrT6I)
 
-**Midnight Train  
-First performed:** March 14, 2012 (Austin, TX)  
+**Midnight Train
+First performed:** March 14, 2012 (Austin, TX)
 **Last performed:** March 14, 2012 (Austin, TX)
 
 © March 4, 2018

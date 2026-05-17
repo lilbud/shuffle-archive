@@ -76,8 +76,6 @@
 
 [LOHAD_Columbus_110512 by Backstreets Magazine](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F66260973&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2012-11-05a.png)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2012-11-05b.png)

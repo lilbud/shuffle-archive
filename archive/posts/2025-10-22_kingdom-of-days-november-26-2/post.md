@@ -74,8 +74,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/tKxNYA4j?hd=0&cover=1)
 
-
-
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/2012-11-26a-1.png)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/2012-11-26b.png)

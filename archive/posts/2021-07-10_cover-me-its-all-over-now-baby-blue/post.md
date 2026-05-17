@@ -14,8 +14,8 @@ I’m a huge fan of The Bruce Springsteen Band. If I could travel back in time t
 
 And I’d hold up a sign for “It’s All Over Now, Baby Blue.”
 
-**It’s All Over Now, Baby Blue**  
-**First performed:** October 23, 1971 (Richmond, VA)  
+**It’s All Over Now, Baby Blue**
+**First performed:** October 23, 1971 (Richmond, VA)
 **Last performed:** March 14, 1972 (Highlands, NJ)
 
  

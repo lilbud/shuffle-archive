@@ -12,6 +12,6 @@ The other song, however, is much harder to find for some reason. So here it is, 
 
 [Watch on Youtube: Lucinda Williams and Bruce Springsteen, "Disgusted" - London, 2006-11-10](https://www.youtube.com/watch?v=j6xYe_1J3HM)
 
-**Disgusted**  
-**First performed:** November 10, 2006 (London, England)  
+**Disgusted**
+**First performed:** November 10, 2006 (London, England)
 **Last performed:** November 10, 2006 (London, England)

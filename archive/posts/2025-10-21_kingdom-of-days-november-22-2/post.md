@@ -72,10 +72,8 @@
 
 Before the ceremony, Bruce joins the assembled honorees in the Mannequin Challenge.
 > I'm in. [pic.twitter.com/oU344pnYsH](https://t.co/oU344pnYsH)
-> 
+>
 > — The Ellen Show (@TheEllenShow) [November 22, 2016](https://twitter.com/TheEllenShow/status/801127734952853504?ref_src=twsrc%5Etfw)
-
-
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/2016-11-22a.png)
 

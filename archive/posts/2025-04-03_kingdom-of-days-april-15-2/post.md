@@ -78,7 +78,7 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2009-04-15b.jpg)
 
-**2010:** Bruce joins Rosanne Cash on stage at Duke University for a live performance of their duet, “[Sea of Heartbreak](https://estreetshuffle.com/index.php/2018/01/12/meeting-across-the-river-bruce-springsteen-and-rosanne-cash/).”  
+**2010:** Bruce joins Rosanne Cash on stage at Duke University for a live performance of their duet, “[Sea of Heartbreak](https://estreetshuffle.com/index.php/2018/01/12/meeting-across-the-river-bruce-springsteen-and-rosanne-cash/).”
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2010-04-15.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/2010-0415.jpg)

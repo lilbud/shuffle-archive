@@ -30,11 +30,7 @@
 
 [Watch Video](https://www.dailymotion.com/embed/video/x10b1f)
 
-
-
 [Watch Video](https://www.dailymotion.com/embed/video/x10b2f)
-
-
 
 **1999:** Patti is still out of action due to a perforated eardrum when the Reunion Tour stops at Buffalo’s Marine Midland Arena.
 

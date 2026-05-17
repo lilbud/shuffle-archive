@@ -8,8 +8,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/54i5lVp4?hd=0&cover=1)
 
-
-
 **1976:** Bruce plays his first-ever show in Arkansas, at the Robinson Auditorium in Little Rock.
 
 **1981:** The original River Tour stops for a night at the Scandinavium in Gothenburg, Sweden. This is Bruce’s first show in Sweden since 1975, so local fans are treated to their first performances of “Darkness on the Edge of Town,” “The Promised Land” and other *Darkness* tracks along with cuts from *The River*.

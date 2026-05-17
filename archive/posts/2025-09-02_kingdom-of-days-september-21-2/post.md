@@ -82,8 +82,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ODmDrQbM?hd=0&cover=1)
 
-
-
 [Watch on Youtube: Detroit 21/09/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zClqCz-WnKG-OwnxCjyOydh)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/2003-09-21.jpg)

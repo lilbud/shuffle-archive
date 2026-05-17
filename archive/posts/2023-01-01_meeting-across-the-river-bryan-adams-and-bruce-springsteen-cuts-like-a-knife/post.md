@@ -14,6 +14,6 @@ Here’s that wonderfully filmed Bruce and Bryan performance of “Cuts Like a K
 
 [Watch on Youtube: Bryan Adams & Bruce Springsteen performing "Cut's A Knife &](https://www.youtube.com/watch?v=AUTmqptb-XY)
 
-**Cuts Like a Knife**  
-**First performed:** May 13, 2010 (New York City, NY)  
+**Cuts Like a Knife**
+**First performed:** May 13, 2010 (New York City, NY)
 **Last performed:** September 30, 2017 (Toronto, ON)

@@ -12,8 +12,8 @@ Billy wrote it at a time when New York was down on its luck. Crime and drugs wer
 
 He wrote it in a day, and it quickly become a standard. After the events of September 11, 2001, it became an anthem. It remains ever after a signature for a city and an artist.
 
-**New York State of Mind**  
-**First performed:** October 16, 2008 (New York City, NY)  
+**New York State of Mind**
+**First performed:** October 16, 2008 (New York City, NY)
 **Last performed:** October 29, 2009 (New York City, NY)
 
 © June 30 ,2018 / February 7, 2026

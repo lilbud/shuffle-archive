@@ -22,7 +22,6 @@ When Jesse starts the first chorus with “your baby loves you more than you kno
 
 ---
 
-
 Bruce and Jesse performed “Broken Radio” live together twice–almost exactly a year apart.
 
 Their debut performance was at the Light of Day benefit in 2010. Despite the welcome addition of a viola to warm up the sound, though, Jesse and Bruce couldn’t quite match the tenderness of their studio performance. (Bruce also missed his final cue, leaving Jesse hanging, although you’d only know it if you were intimately familiar with the original recording.)
@@ -39,10 +38,10 @@ Perhaps that’s reading too much into it. Regardless, both the studio and 2011 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ucy_O9lXdh8)
 
-**Broken Radio**  
-**Recorded:** August 2006 (audio), April 18, 2007 (video)  
-**Released:** *Glitter in the Gutter* (2007)  
-**First performed:** January 16, 2010 (Asbury Park, NJ)  
+**Broken Radio**
+**Recorded:** August 2006 (audio), April 18, 2007 (video)
+**Released:** *Glitter in the Gutter* (2007)
+**First performed:** January 16, 2010 (Asbury Park, NJ)
 **Last performed:** January 18, 2025 (Red Bank, NJ)
 
 © August 17, 2019

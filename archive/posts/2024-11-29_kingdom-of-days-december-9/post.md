@@ -40,8 +40,6 @@
 
 [Watch Video](https://www.dailymotion.com/embed/video/xjumi)
 
-
-
 **2002:** Bruce and the E Street Band bring the Rising Tour to the brand-new Carolina Center in Columbia, South Carolina, where Bruce tour premieres “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/),” “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/),” and “This Hard Land.”
 
 [Watch on Youtube: Columbia 09/12/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zB_NE2bJOF-H15O2OPTi0hc)

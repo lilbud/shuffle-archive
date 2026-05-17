@@ -14,8 +14,6 @@ And then, that one time only, Prince, Bruce Springsteen (on guitar) and Madonna 
 
 [LA Forum Baby I'm A Star (feat Madonna & Bruce Springsteen) by User THE GREAT VANNELLI 3](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F282257711&show_artwork=true&maxwidth=758&maxheight=1000&dnt=1)
 
-
-
 The original album version of “Baby I’m a Star” was much shorter, of course. Released as the B-side to “Take Me With U” in 1984 it clocked in at a mere four-and-half minutes.
 
 [Watch on Youtube: Baby I'm a Star](https://www.youtube.com/watch?v=4YdPZ1J0KrE)
@@ -28,8 +26,8 @@ Unconfirmed rumors abound that Bruce was on stage for more than just that one so
 
 This is likely a truly one-time-only performance.
 
-**Baby I’m a Star|  
-First performed:** February 23, 1985 (Inglewood, CA)  
+**Baby I’m a Star|
+First performed:** February 23, 1985 (Inglewood, CA)
 **Last performed:** February 23, 1985 (Inglewood, CA)
 
  

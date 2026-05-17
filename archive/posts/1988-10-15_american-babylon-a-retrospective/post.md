@@ -12,7 +12,6 @@ I originally planned to feature excerpts from the interview in a retrospective e
 
 ---
 
-
 **Ken: First of all, Joe, thanks for making time to talk. I’ve been looking forward to this conversation for a long time. I’m a big fan of your music, but *American Babylon* has a special place for me. It’s not only my favorite of your albums, it’s my favorite album that came out that year. It’s probably one of my favorite albums of that entire decade, and since I don’t really get a chance very often to say to an artist how much I appreciate their work, I just want to thank you for that.**
 
 Joe: Oh, I’m glad you liked it!
@@ -44,8 +43,6 @@ He was working at the Power Station, and they just had a phenomenal band: Max, G
 That’s the first time I met Bruce. And I guess he just took a liking to that record. Then what really cemented it was one night in 1982, he came to see us play at Big Man's West and sat in with us, and we went out after and basically hung out the whole night, and just… you know, why do you become friends with a person? We just hit it off. Same age, same influences, sort of same upbringing, real working-class families.
 
 [Watch Video Highlight](https://videopress.com/embed/vfcrn5r7?hd=0&cover=1)
-
-
 
 **Yeah. It’s easy to see. I mean, I don’t know Bruce, but just from what I know about you guys, I can see why you would click and become friends. It’s another thing, though, to collaborate the way you guys have. Bruce hasn't really done that with that many people and certainly with no one outside of Steve to the extent that you guys have. I’d love to know a little bit more about your collaborating relationship. You guys wrote several songs together. How does that work?**
 
@@ -145,7 +142,7 @@ With the stuff I did for MCA when I was on Cleveland International, they would a
 
 I'm really happy with both of those.
 
-**I love the fact that "Chain Smokin’" *sounds* like someone chain smoking. It's just… musically tremendous.** 
+**I love the fact that "Chain Smokin’" *sounds* like someone chain smoking. It's just… musically tremendous.**
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8wQfzwQSSAU)
 
@@ -317,12 +314,9 @@ Yeah. When I first started, I worked with really severely disabled mentally and 
 
 [laughs] I don’t know… I mean why didn't *Have a Good Time But Get Out Alive* become the monster it should’ve been? I mean, you got to have everything going. You got to have the good agents. We couldn’t find a good agent. We couldn’t get on a good tour. We had no money behind us. Nobody could afford to quit their job and go at it full time. You have to have everything firing all at the same time.
 
-
 **It's just mind-boggling to me. I mean… jeez, you even had Bruce out on tour with you!**
 
 [Watch Video Highlight](https://videopress.com/embed/WoQylHbz?hd=0&cover=1)
-
-
 
 **Do you ever look back on it and go, “Boy, if we had done this or tried this maybe…” Or do you think it was the cards that were just dealt at the time?**
 
@@ -330,7 +324,7 @@ I think on this one it was probably the cards were dealt at the time. I mean we 
 
 **I don’t know, man. You certainly had at least a half dozen of them on the album.**
 
-Well, according to *you*, but… [laughs] 
+Well, according to *you*, but… [laughs]
 
 **I told you at the top of the call the reason that this album means so much to me is at that point in my life I felt like music had pretty much left me behind. What I loved about rock and roll… it seemed like nobody was doing it at the time. It was just going in a totally different direction. I had just moved to the Northwest and everything was all grunge and it just never resonated with me.**
 

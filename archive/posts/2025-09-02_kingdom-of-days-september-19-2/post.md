@@ -42,7 +42,7 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 **1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park. The cover-filled set includes “[Ready Teddy,](https://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)” “[Come On, Let’s Go](https://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/),” “[Come on Over to My Place](https://estreetshuffle.com/index.php/2018/04/12/matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/),” “[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/),” and more.
 
-**1984:** At a re-election campaign stop in Hammonton, New Jersey, President Ronald Reagan name-checks Bruce, who is at the height of his popularity with *Born in the U.S.A.* 
+**1984:** At a re-election campaign stop in Hammonton, New Jersey, President Ronald Reagan name-checks Bruce, who is at the height of his popularity with *Born in the U.S.A.*
 
 [Watch on Youtube: Ronald Reagan - Bruce Springsteen (19.09.1984)](https://www.youtube.com/watch?v=z8BRWNaOdlc)
 

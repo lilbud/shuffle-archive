@@ -22,8 +22,8 @@ That’s too bad–because it’s a fantastic performance. Here it is, thankfull
 
 [Watch on Youtube: Bruce Springsteen & Seeger Sessions Band - Samson & Delilah](https://www.youtube.com/watch?v=37Ldb44KngI)
 
-**Samson and Delilah  
-First performed:** October 5, 2006  
+**Samson and Delilah
+First performed:** October 5, 2006
 **Last performed:** October 5, 2006
 
  

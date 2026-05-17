@@ -20,7 +20,7 @@ Why didn’t he actually play it during a show? I have no idea. But we’re fort
 
 <https://estreetshuffle.com/wp-content/uploads/2019/02/307-Needles-And-Pins-Soundcheck.flac>
 
-**Needles and Pins**  
-**Never performed in concert**  
-**First soundchecked:** February 23, 1975 (Westbury, NY)  
+**Needles and Pins**
+**Never performed in concert**
+**First soundchecked:** February 23, 1975 (Westbury, NY)
 **Last soundchecked:** December 12, 1975 (Greenvale, NY)

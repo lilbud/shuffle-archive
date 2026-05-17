@@ -12,7 +12,6 @@ Here’s the review I originally wrote–might not be worth the build-up, but I 
 
 ---
 
-
 https://www.youtube.com/watch?v=QLpkaZq6Dek
 
 Springsteen fans who see a lot of shows dread the “standard set.”

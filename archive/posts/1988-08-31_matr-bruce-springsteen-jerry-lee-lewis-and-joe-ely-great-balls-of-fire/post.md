@@ -1,11 +1,7 @@
 > "I was with my parents in Amarillo, and there was this blinding dust storm–you couldn't even see across the street. Everybody had bandannas across their faces to keep the dust out. We were at a Pontiac dealership, and this guy was selling cars. Suddenly, he said, 'And now we've got a kid up here that's gonna play a little piano for you.' And it was Jerry Lee Lewis–just him and a piano, flailing away.
-> 
-> 
-> 
+>
 > "The wind was blowing so hard, it was knocking the microphone stand over, and you couldn't hardly see the stage through all the dust. Jerry Lee would play a couple songs, then the guy would sell his Pontiacs, and he gave away hot dogs all covered in dirt from the storm. It was just surreal, and my little 7- or 8-year-old mind was saying, 'Damn–that's what I want to do when *I* grow up!'”
-> 
-> 
-> 
+>
 > –Joe Ely, *Los Angeles Times,* November 17, 1992
 
 That was the day Joe Ely decided he wanted to be a rock and roll star. We may never know what the pre-fame Killer played for the Amarillo car shoppers that day, but it was enough to galvanize the young Ely toward a life in music.
@@ -54,8 +50,8 @@ Watch Bruce spontaneously decide to keep it going when Joe tries to end it at ar
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IgNDpFCzDvA)
 
-**Great Balls of Fire  
-First performed:** October 29, 1990 (San Fernando Valley, CA)  
+**Great Balls of Fire
+First performed:** October 29, 1990 (San Fernando Valley, CA)
 **Last performed:** November 5, 2022 (Los Angeles, CA)
 
 © August 10, 2022

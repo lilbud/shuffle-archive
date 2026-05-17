@@ -18,8 +18,8 @@ But in 1995, Bruce had a chance to cover it with the songwriter himself when Dyl
 
 [Watch Video Highlight](https://videopress.com/embed/hQaejU37?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Forever Young**  
-**First performed:** October 23, 1987 (New York City, NY)  
+**Forever Young**
+**First performed:** October 23, 1987 (New York City, NY)
 **Last performed:** September 2, 1995 (Cleveland, OH)
 
 © September 1, 2019

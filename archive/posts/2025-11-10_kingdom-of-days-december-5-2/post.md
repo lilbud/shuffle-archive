@@ -54,15 +54,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/3Q8W4UOi?hd=0&cover=1)
 
-
-
 [Watch Video Highlight](https://videopress.com/embed/Z4Q1LXj7?hd=0&cover=1)
 
-
-
 [Watch Video Highlight](https://videopress.com/embed/wyUyn5aj?hd=0&cover=1)
-
-
 
 **2002:** Bruce and the E Street Band take the Rising Tour north to the Air Canada Center in Toronto.
 

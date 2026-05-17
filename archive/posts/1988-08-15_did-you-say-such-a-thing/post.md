@@ -12,9 +12,9 @@ What happened was Bruce Springsteen became his Indiana houseguest for a week, wh
 
 “Wasted Days” was the single that came out of that session, but “Did You Say Such a Thing” is equally strong. One wonders what might come from their next hang.
 
-**Did You Say Such a Thing  
-Recorded:** April 10, 2021  
-**Released:** *Strictly a One-Eyed Jack* (2022)  
+**Did You Say Such a Thing
+Recorded:** April 10, 2021
+**Released:** *Strictly a One-Eyed Jack* (2022)
 **Never performed**
 
 © February 23, 2026

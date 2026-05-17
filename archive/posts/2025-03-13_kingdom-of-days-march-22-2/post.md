@@ -68,8 +68,6 @@
 
 [Spotify Embed: Relationships with Our Fathers & Masculinity](https://open.spotify.com/embed/episode/5QIX6MfXYK0moHmbukclX1?si=363094f042db43af&utm_source=oembed)
 
-
-
 **2024:** Bruce and the E Street Band perform in Las Vegas for the first time in over two decades, opening with the tour premiere of “[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)” and kicking off the encores with their first performance of “[Viva Las Vegas](https://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/)” since 2002.
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance +](https://www.youtube.com/watch?v=P6t_j51yi30)

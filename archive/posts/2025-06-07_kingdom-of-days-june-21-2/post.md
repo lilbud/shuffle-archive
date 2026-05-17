@@ -66,8 +66,6 @@ Wondering how that show came to happen? Watch the interview below.
 
 [CSC Milano 1992 by Brucebase Wiki](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F437507529&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 **2003:** Nils celebrates his birthday on-stage with the E Street Band in Gothenburg, where the crowd serenades him with a Swedish birthday song at the end of “[Mary’s Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/).”
 
 [Watch Video Highlight](https://videopress.com/embed/2aeAI8cl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)

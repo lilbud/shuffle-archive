@@ -12,8 +12,6 @@ But my favorite performance was during "Springsteen Week" in 2012 on the *The To
 
 [Watch Video Highlight](https://videopress.com/embed/3QbJHFVh?hd=0&cover=1)
 
-
-
 Everyone knows Manfred Mann's cover of Bruce's "Blinded by the Light." True Springsteen fans know Manfred Mann's Earth Band also covered "For You" and "Spirit in the Night."
 
 But the band's most obscure Springsteen adaptation is a brilliant live mash-up of "Dancing in the Dark" with "House of the Rising Sun" by The Animals.

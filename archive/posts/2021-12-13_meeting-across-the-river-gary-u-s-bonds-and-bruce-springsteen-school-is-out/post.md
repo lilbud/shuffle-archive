@@ -14,5 +14,5 @@ The sound quality is terrible, but it’s the only document we have of Bruce per
 
 [Watch on Youtube: Gary US Bonds cover : School is out](https://www.youtube.com/watch?v=k_hSYvYqZ-Q)
 
-**School Is Out****First performed:** June 15, 1981 (San Francisco, CA)  
+**School Is Out****First performed:** June 15, 1981 (San Francisco, CA)
 **Last performed:** June 15, 1981 (San Francisco, CA)

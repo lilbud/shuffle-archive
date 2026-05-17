@@ -32,8 +32,6 @@
 
 [Watch Video](https://www.dailymotion.com/embed/video/x74lcw)
 
-
-
 **1992:** Bruce and his new touring band bring World Tour 1992 to the St. Louis Arena.
 
 [Watch on Youtube: Bruce Springsteen - "Soul Driver" - St. Louis, 1992-12-03](https://www.youtube.com/watch?v=Tg2XI0pVTnw)

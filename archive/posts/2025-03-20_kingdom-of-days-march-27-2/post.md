@@ -20,8 +20,6 @@
 
 [Susanna Hoffs on how Bruce Springsteen helped The Bangles get signed by SiriusXM Entertainment](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F655331276&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 **1985:** Night Four of five at the Sydney Entertainment Center on the Born in the U.S.A. Tour.
 
 [Watch Video Highlight](https://videopress.com/embed/RxOJwN5n?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)

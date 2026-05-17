@@ -46,33 +46,33 @@
 
 **1998:** During a reading event for Black History Month, Bruce recites “We Wear the Mask,” a poem by Paul Lawrence Dunbar at the Count Basie Learning Center in Red Bank, New Jersey.
 > We wear the mask that grins and lies,
-> 
+>
 > It hides our cheeks and shades our eyes,—
-> 
+>
 > This debt we pay to human guile;
-> 
+>
 > With torn and bleeding hearts we smile,
-> 
+>
 > And mouth with myriad subtleties.
-> 
+>
 > Why should the world be over-wise,
-> 
+>
 > In counting all our tears and sighs?
-> 
+>
 > Nay, let them only see us, while
-> 
+>
 > We wear the mask.
-> 
+>
 > We smile, but, O great Christ, our cries
-> 
+>
 > To thee from tortured souls arise.
-> 
+>
 > We sing, but oh the clay is vile
-> 
+>
 > Beneath our feet, and long the mile;
-> 
+>
 > But let the world dream otherwise,
-> 
+>
 > We wear the mask!
 
 **2014:** Night Two in Perth features a great summer setlist, including the tour premieres of “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” “[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/),” “[Save My Love](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/),” “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/),” “[Girls in their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/),” and “[I’ll Work For Your Love](https://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)” (the last two performed acoustically).

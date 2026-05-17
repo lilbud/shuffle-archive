@@ -10,9 +10,9 @@ Bruce’s backing vocals, wails, and call-and-response are prominent throughout 
 
 “Can’t Teach an Old Dog New Tricks” is a rocking, rollicking, but under-the-radar track from some old dogs managing just fine, thank you.
 
-**Can’t Teach an Old Dog New Tricks  
-Recorded:** February 2004  
-**Released:** *Back in 20* (2004)  
+**Can’t Teach an Old Dog New Tricks
+Recorded:** February 2004
+**Released:** *Back in 20* (2004)
 **Never performed**
 
 © July 1, 2019

@@ -2,8 +2,6 @@ Bruce nailed it when he explained Sam and Dave’s appeal on Elvis Costello’s 
 
 [Watch Video Highlight](https://videopress.com/embed/2K7gfajm?hd=0&cover=1)
 
-
-
 Nowhere is that magical, heaven-and-earth, Sam and Dave dichotomy more on display than in their gut-wrenching, heart-swelling 1966 hit single “When Something Is Wrong With My Baby,” which peaked at #42 on the Billboard Hot 100 and #2 on the R&B chart in 1967.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=N3maCEAKZ0s)
@@ -30,8 +28,8 @@ Bruce is clearly in awe of his idol throughout their performance, but he summons
 
 Sam and Bruce only performed “When Something Is Wrong With My Baby” three times (in a four-day period!) back in the 2003 holiday season, but they made those few performances count.
 
-**When Something Is Wrong With My Baby  
-First performed:** December 5, 2003 (Asbury Park, NJ)  
+**When Something Is Wrong With My Baby
+First performed:** December 5, 2003 (Asbury Park, NJ)
 **Last performed:** December 8, 2003 (Asbury Park, NJ)
 
 © May 26, 2021

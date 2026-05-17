@@ -94,11 +94,7 @@
 
 [Watch Video](//cdn.jwplayer.com/players/o8NZxPOs-wAs9ovrq.html)
 
-
-
 [Watch Video](//cdn.jwplayer.com/players/XuHSa09J-RTgEGJrS.html)
-
-
 
 **2020:** E Street Radio airs Volume 14 of Bruce’s *From My Home to Yours* radio show, entitled “Farewell to the Thief.”
 
@@ -110,7 +106,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Don't Play That Song (Official Video)](https://www.youtube.com/watch?v=6bM3L296ZNw)
 
-**2023:** Bruce makes a surprise appearance at Monmouth University during the Springsteen Archives’ symposium celebrating the 50th anniversary of *The Wild, The Innocent & The E Street Shuffle.* 
+**2023:** Bruce makes a surprise appearance at Monmouth University during the Springsteen Archives’ symposium celebrating the 50th anniversary of *The Wild, The Innocent & The E Street Shuffle.*
 
 [Watch on Youtube: Bob Santelli interview Bruce Springsteen 10/28/23 WIESS 50th Anniv Symposium Monmouth U NJ](https://www.youtube.com/watch?v=8MDR2ilvGgc)
 

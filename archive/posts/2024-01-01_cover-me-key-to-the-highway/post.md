@@ -4,7 +4,6 @@ Facebook group contributor, Brucebase admin, Dr. Zoom member, and “[The E Stre
 
 ---
 
-
 “Key to the Highway” dates back to 1940, when it was originally recorded by Charlie Segar…
 
 [Watch on Youtube: Key to the Highway](https://www.youtube.com/watch?v=xxWJWcOQ4LI)
@@ -21,6 +20,6 @@ Take a listen:
 
 <https://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3>
 
-**Key to the Highway**  
-**First performed:** October 23, 1971 (Richmond, VA)  
+**Key to the Highway**
+**First performed:** October 23, 1971 (Richmond, VA)
 **Last performed:** August 1, 2015 (Asbury Park, NJ)

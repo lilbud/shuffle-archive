@@ -10,6 +10,6 @@ Listen to that performance here, from Bruce’s guest appearance at Southside’
 
 [Watch on Youtube: Southside Johnny and Bruce Springsteen, "Trapped Again" - Asbury Park, 2001-05-27](https://www.youtube.com/watch?v=mF6TGMJbN58)
 
-**Trapped Again**  
-**First performed:** May 27, 2001 (Asbury Park, NJ)  
+**Trapped Again**
+**First performed:** May 27, 2001 (Asbury Park, NJ)
 **Last performed:** May 27, 2001 (Asbury Park, NJ)

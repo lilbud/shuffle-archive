@@ -68,8 +68,6 @@
 
 [Spotify Embed: Looking Towards American Renewal](https://open.spotify.com/embed/episode/3w2WPhbgj9xfaIitFYDfif?si=8269cf5fbab84393&utm_source=oembed)
 
-
-
 [https://estreetshuffle.com/wp-content/uploads/2025/04/79a3-710a-498b-8305-22729e94d6c8.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2025/04/79a3-710a-498b-8305-22729e94d6c8.mp3?_=5)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/04/79a3-710a-498b-8305-22729e94d6c8.mp3>

@@ -1,4 +1,4 @@
-In the summer of 1973, mere months after Bruce first recorded it himself, David Bowie recorded a cover of “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” for his forthcoming *Pin Ups* album*.* 
+In the summer of 1973, mere months after Bruce first recorded it himself, David Bowie recorded a cover of “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” for his forthcoming *Pin Ups* album*.*
 
 When it came time to sequence the final album, though, “Growin’ Up” didn’t make the cut. That’s too bad, because Bowie’s version is fantastic–true to the original’s rebellious spirit, but with a very Bowie-esque arrangement and performance.
 

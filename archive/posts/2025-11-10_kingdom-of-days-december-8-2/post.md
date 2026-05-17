@@ -32,8 +32,6 @@
 
 [JohnLennonOnHungryHeartTheCars&StartingOver8Dec1980 by Backstreets Magazine](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F236345246&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 [Watch on Youtube: Bruce Springsteen - "I'm a Rocker" - Philadelphia, 1980-12-08](https://www.youtube.com/watch?v=6gn4E2g70iw)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/1980-12-08.png)

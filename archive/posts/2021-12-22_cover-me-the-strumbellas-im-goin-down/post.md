@@ -2,10 +2,8 @@
 
 How can you not love a band that tweets this from their official Twitter account:
 > Please enjoy this picture of Bruce Springsteen with a puppy in his shirt thank you everyone good job [pic.twitter.com/tjYWRVxCUC](https://t.co/tjYWRVxCUC)
-> 
+>
 > — The Strumbellas (@thestrumbellas) [March 25, 2016](https://twitter.com/thestrumbellas/status/713515659020337153?ref_src=twsrc%5Etfw)
-
-
 
 Canadian alt/indie-country/rock band The Strumbellas may be big Springsteen fans but we only just this month got a chance to see what they could do with Bruce’s material.
 

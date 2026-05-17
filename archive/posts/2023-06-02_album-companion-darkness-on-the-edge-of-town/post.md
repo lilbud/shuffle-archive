@@ -31,7 +31,6 @@ So if you’re inclined to join me, let’s take a look back and a look inside t
 - “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” – rock’s most ferocious wedding song (originally published October 24, 2020)
 - “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” – the title track that embodies the album’s warring themes: the inability to accept defeat, paired with an addiction to the things that ensure it (originally published April 10, 2018)
 
-
 Each of the linked articles above features early outtakes and work-in-progress performances, great live versions, and my own personal reading and consideration of each song. By no means do I consider these authoritative or representative of Bruce’s intentions, but they do reflect the results of deep listening, research, and reflection.
 
 If you have differing opinions on any or all of the above, I’d love to hear them. Otherwise, this closes the book on this site’s treatment of *Darkness on the Edge of Town*.

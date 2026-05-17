@@ -26,8 +26,6 @@ After three consecutive Boston shows over the course of a year featured “Dirty
 
 [Watch Video Highlight](https://videopress.com/embed/T0A7mJ4O?hd=0&cover=1)
 
-
-
 Bruce played it once more in a return appearance at Fenway Park in 2012 (no Peter Wolf this time, though)…
 
 [Watch on Youtube: BRUCE SPRINGSTEEN FENWAY PARK "Dirty Water" 8/14/12](https://www.youtube.com/watch?v=YGyGU8Hc9Cw)
@@ -38,8 +36,8 @@ Bruce played it once more in a return appearance at Fenway Park in 2012 (no Pete
 
 As long as Bruce keeps returning to Boston, it’s a good bet we haven’t heard the end of “Dirty Water.”
 
-**Dirty Water  
-First performed:** April 8, 1984 (Asbury Park, NJ)  
+**Dirty Water
+First performed:** April 8, 1984 (Asbury Park, NJ)
 **Last performed:** March 20, 2023 (Boston, MA)
 
 (c) March 18, 2022

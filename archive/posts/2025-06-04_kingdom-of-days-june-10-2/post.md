@@ -38,8 +38,6 @@ Also on this date in 2003: the BBC premieres a three-part series narrated by Joh
 
 [An American Life - The Bruce Springsteen Story - Episode 1 - June 10, 2003](https://www.mixcloud.com/widget/iframe/?feed=https%3A%2F%2Fwww.mixcloud.com%2Fcameron-mcmenemy%2Fan-american-life-the-bruce-springsteen-story-episode-1-june-10-2003%2F&hide_cover=1)
 
-
-
 **2006:** The Seeger Sessions Tour stops at the Wells Fargo Arena in Des Moines, Iowa.
 
 [Watch Video Highlight](https://videopress.com/embed/DrAHXxgk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)

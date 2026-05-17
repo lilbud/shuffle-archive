@@ -72,8 +72,6 @@ You can definitely hear the punk vein, I said, especially at the outset. “But 
 
 [Dont Let Them Push You Around (demo) by spopovich34](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F819151768&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 “Yeah, Steve heard it and reworked it. We basically just kept the guitar and harp solo!”
 
 What was that like, having those guys take apart your songs and rebuild them?

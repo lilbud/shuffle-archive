@@ -12,5 +12,5 @@ The original, of course, was a huge hit, reaching the top of both the R&B and Ho
 
 Maybe someday the Hall of Fame will release a wider-angle clip and we’ll be able to confirm Bruce’s participation with our own eyes and ears, but for now, this will have to do–because it’s the only time Bruce is ever known to have performed it.
 
-**I Can’t Help Myself (Sugar Pie Honey Bunch)****First performed:** January 17, 1990 (New York City, NY)  
+**I Can’t Help Myself (Sugar Pie Honey Bunch)****First performed:** January 17, 1990 (New York City, NY)
 **Last performed:** January 17, 1990 (New York City, NY)

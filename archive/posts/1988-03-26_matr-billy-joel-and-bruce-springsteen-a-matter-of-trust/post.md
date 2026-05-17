@@ -12,8 +12,8 @@ It turned out to be a great choice–the song is perfectly suited for Bruce’s 
 
 Still, despite four stage-sharing occasions since, that 2008 performance remains the only time that Bruce has ever performed “A Matter of Trust” to this day.
 
-**A Matter of Trust  
-First performed:** October 16, 2008 (New York City, NY)  
+**A Matter of Trust
+First performed:** October 16, 2008 (New York City, NY)
 **Last performed:** October 16, 2008 (New York City, NY)
 
 ® March 17, 2020

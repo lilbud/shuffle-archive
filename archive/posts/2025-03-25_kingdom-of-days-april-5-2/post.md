@@ -74,8 +74,6 @@
 
 [Spotify Embed: Looking Towards American Renewal](https://open.spotify.com/embed/episode/3w2WPhbgj9xfaIitFYDfif?si=8269cf5fbab84393&utm_source=oembed)
 
-
-
 **2023:** For the fourth show in a row, Bruce introduces a tour debut into his mostly static World Tour setlist. Tonight, “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” premieres at Rocket Mortgage Fieldhouse in Cleveland.
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=Q_whKRSfRYg)

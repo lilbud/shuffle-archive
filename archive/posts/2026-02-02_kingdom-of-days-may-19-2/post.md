@@ -38,8 +38,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/SsOq1hBx?hd=0&cover=1)
 
-
-
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/1993-05-19.jpg)
 
 **1997:** Bruce plays a solo acoustic show in Toulon, France.

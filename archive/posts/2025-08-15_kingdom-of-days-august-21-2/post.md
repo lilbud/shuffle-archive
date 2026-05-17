@@ -108,12 +108,10 @@
 
 **2021:** Bruce is scheduled to perform “Because the Night” with Patti Smith at Clive Davis’ *We Love NYC: The Homecoming Concert,* a post-COVID (we thought) celebration of the return of “normal.” A storm builds, however, and the event is cancelled before Bruce and Patti are able to take the stage.
 > Join CNN Saturday August 21st for a once in a lifetime concert event!
-> 
+>
 > WE LOVE NYC – The Homecoming Concert starts at 5 p.m. ET. Presented by [@Expedia](https://twitter.com/Expedia?ref_src=twsrc%5Etfw) [pic.twitter.com/A5RXHG3fHs](https://t.co/A5RXHG3fHs)
-> 
+>
 > — CNN (@CNN) [August 14, 2021](https://twitter.com/CNN/status/1426355433028136960?ref_src=twsrc%5Etfw)
-
-
 
 **2024:** More than a year after its originally scheduled date, Bruce and the E Street Band take the stage at Citizens Bank Park in Philadelphia, where “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” makes its unsurprising tour debut.
 

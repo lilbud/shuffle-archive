@@ -28,8 +28,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/tfj2O84c?hd=0&cover=1)
 
-
-
 [Watch on Youtube: Bruce Springsteen - DRIVE ALL NIGHT 1980 (audio)](https://www.youtube.com/watch?v=rxYcH2Y2Wo8)
 
 [Watch on Youtube: Bruce Springsteen Wreck On The Highway Portland 25/10/1980](https://www.youtube.com/watch?v=M-W5MEL6EHM)
@@ -138,10 +136,8 @@
 
 [Watch on Youtube: Bruce Turned 30 On Stage At Madison Square Garden At The "No Nukes" Concert](https://www.youtube.com/watch?v=5-KlomDM7t4)
 > Here's a special performance from [@springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw) as he sings "The River" on The Late Show! [#LSSC](https://twitter.com/hashtag/LSSC?src=hash&ref_src=twsrc%5Etfw) [pic.twitter.com/aj2mhJVh0g](https://t.co/aj2mhJVh0g)
-> 
+>
 > — The Late Show (@colbertlateshow) [October 26, 2021](https://twitter.com/colbertlateshow/status/1452857149961367560?ref_src=twsrc%5Etfw)
-
-
 
 Earlier in the day, NPR airs their interview with Bruce and the president.
 

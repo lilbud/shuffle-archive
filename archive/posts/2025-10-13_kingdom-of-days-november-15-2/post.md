@@ -62,8 +62,6 @@ Meanwhile, for those of us not at the show, The Ben Stiller show gets educationa
 
 [NPR embedded audio player](https://www.npr.org/player/embed/5079313/5079506)
 
-
-
 ![](https://estreetshuffle.com/wp-content/uploads/2021/11/2005-11-15.png)
 
 **2007:** The Magic Tour comes to Albany, where Bruce and the E Street Band tour premiere a Wild & Innocent double-header: “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” and “[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/).”

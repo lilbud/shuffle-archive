@@ -60,8 +60,6 @@ Also today, NPR airs an interview with Bruce.
 
 [Watch Video](https://www.npr.org/player/embed/925358745/926609762)
 
-
-
 Finally, Apple TV+ releases the *Letter to You* documentary film, featuring Bruce and E Street Band recording their new album.
 
 [Watch on Youtube: BRUCE SPRINGSTEEN: LETTER TO YOU Official Trailer (2020) Documentary Movie](https://www.youtube.com/watch?v=FLHv-ia1M6Y)
