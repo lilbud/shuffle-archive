@@ -1,0 +1,9 @@
+"md009": trim trailing spaces
+"md012": Multiple consecutive blank lines
+"md013": Line length, disabled
+"md027": Multiple spaces after blockquote symbol
+"md031": 
+"md032": 
+"md033": 
+"md041": 
+"md047": 

@@ -1,22 +1,21 @@
 {
+    "log": {
+        "file": "logs/my.log",
+        "level": "error",
+        "stack-trace": true
+    },
     "plugins": {
+        "md009": {
+            "br_spaces": 0,
+            "enabled": true
+        },
+        "md012": {
+            "enabled": true
+        },
         "md013": {
             "enabled": false
         },
-        "md041": {
-            "enabled": false
-        },
-        "md033": {
-            "enabled": false
-        },
-        "md047": {
-            "enabled": true
-        },
-        "md009": {
-            "enabled": true,
-            "br_spaces": 0
-        },
-        "md012": {
+        "md027": {
             "enabled": true
         },
         "md031": {
@@ -25,13 +24,14 @@
         "md032": {
             "enabled": true
         },
-        "md027": {
+        "md033": {
+            "enabled": false
+        },
+        "md041": {
+            "enabled": false
+        },
+        "md047": {
             "enabled": true
         }
-    },
-    "log": {
-        "stack-trace": true,
-        "file": "logs/my.log",
-        "level": "error"
     }
 }
