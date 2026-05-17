@@ -10,8 +10,9 @@ import httpx
 import pandas as pd
 from bs4 import BeautifulSoup as bs4
 from user_agent import generate_user_agent
-from database import load_db
+
 from cleanup import initial_cleanup
+from database import load_db
 
 # toedit = []
 
@@ -31,7 +32,6 @@ headers = {
 }
 
 
-
 # for file in Path("ia_json").glob("*.txt"):
 #     data = json.loads(file.read_text(encoding="utf-8"))
 
@@ -39,17 +39,16 @@ headers = {
 #         data["modified_gmt"],
 #         "%Y-%m-%dT%H:%M:%S",
 #     ).timestamp()
-    
+
 #     with Path(f"ia_json/{data['id']}_{int(timestamp)}.json").open("w", encoding="utf-8") as f:
 #         json.dump(data, f)
 
 with load_db() as conn, conn.cursor() as cur:
-
     folder = Path(r"./archive/posts")
 
     for file in folder.glob("**/*.md"):
         print(file.parent.name)
         content = file.read_text(encoding="utf-8")
-        content = re.sub(r"’", "'", content, flags=re.MULTILINE)
+        content = re.sub(r"'\]", "", content, flags=re.MULTILINE)
 
         file.write_text(content, encoding="utf-8")

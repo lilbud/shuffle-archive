@@ -2,8 +2,8 @@
 "md012": Multiple consecutive blank lines
 "md013": Line length, disabled
 "md027": Multiple spaces after blockquote symbol
-"md031": 
-"md032": 
-"md033": 
-"md041": 
-"md047": 
+"md031": Fenced code blocks should be surrounded by blank lines.
+"md032": List blocks should be surrounded by blank lines.
+"md033": Inline HTML, disabled
+"md041": First line in file should be a top-level heading, disabled
+"md047": Each file should end with a single newline character.

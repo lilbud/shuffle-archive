@@ -25,6 +25,8 @@ def save_to_archive(post: dict) -> None:
 
     if not save_path.exists():
         print(save_path.name)
+    else:
+        print(f"{save_path.name}: already exists")
 
     if not Path(save_path, "meta.json").exists():
         with Path(save_path, "meta.json").open("w", encoding="utf-8") as f:
