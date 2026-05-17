@@ -26,5 +26,3 @@ Unlike "All Just to Get to You," which Bruce has performed with Ely seven times 
 **Recorded** April 1995<br>
 **Released:** *Letter to Laredo* (1995)<br>
 **Never performed**<br>
-
-

@@ -24,7 +24,7 @@ Bruce's guest appearance wasn't by design but rather by serendipity. Lou had alr
 
 Bruce read the lyrics, agreed, and recorded his contribution in two takes. The rest is uncredited rock and roll history.
 
-**Street** **Hassle  
+**Street** **Hassle
 **Recorded:** Autumn 1977<br>
 **Released:** *Street Hassle* (1978)<br>
 **Never performed** (by Bruce)

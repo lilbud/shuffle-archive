@@ -10,8 +10,6 @@ Here's one of my favorite tracks on the album: a cover of "[One Step Up](https:/
 
 [Watch Video](https://bandcamp.com/EmbeddedPlayer/album=136685173/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/track=213265455/transparent=true/)
 
-
-
 The band clearly appreciates the song, managing to preserve its brooding, intimate guitar line while lushly wrapping it in a haunting arrangement that never overpowers the impassioned vocals.
 
 It's a beautifully produced cover of one of Bruce's very best songs.

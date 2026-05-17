@@ -1,5 +1,4 @@
 
-
 A one-time-only performance: Jon Bon Jovi makes a guest appearance at Bruce's 2003 holiday show in Asbury Park, and the two perform Bon Jovi's "It's My Life" together.
 
 [https://www.youtube.com/embed/a8A8IDk_Hd8?feature=oembed](https://www.youtube.com/embed/a8A8IDk_Hd8?feature=oembed)

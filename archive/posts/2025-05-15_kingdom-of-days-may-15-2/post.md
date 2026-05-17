@@ -52,8 +52,6 @@
 
 [APP-Embed Player](https://uw-media.app.com/embed/video/9789590002?placement=snow-embed)
 
-
-
 **2023:** Bruce and the E Street Band play their second of two shows at Paris La Défense Arena. Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,31073/Bruce-Springsteen-mp3-flac-download-5-15-2023-Paris-La-Defense-Arena-Paris-FRANCE.html),
 
 [Watch on Youtube: Bruce Springsteen & E Street Band- Highlights - Audience Sound - Live@U Arena - Paris -15/05/2023](https://www.youtube.com/watch?v=R1WDe_VMXAk)

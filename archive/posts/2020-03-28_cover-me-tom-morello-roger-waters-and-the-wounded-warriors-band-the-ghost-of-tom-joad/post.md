@@ -1,5 +1,4 @@
 
-
 On October 16, 2015, Roger Waters staged a benefit concert for MusiCorps, a non-profit that teaches music to wounded warriors.
 
 Five songs into Waters' nineteen-song set, Roger invited Tom Morello to join him. Roger, Tom, and the Wounded Warriors Band played several classic Pink Floyd songs together, but they made room in the middle of the set for a very special cover.

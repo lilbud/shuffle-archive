@@ -1,10 +1,7 @@
 
-
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1971-0423.jpg?resize=234%2C321&amp;ssl=1)
 
@@ -12,11 +9,7 @@ Bruce opens for Richie Havens at Bushnell Memorial Hall in Hartford, his first s
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0423.jpg?resize=600%2C574&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Hartford_Courant_Sat__Apr_21__1973_-scaled.jpg?resize=758%2C1451&amp;ssl=1)
 
@@ -82,8 +75,6 @@ Bruce's episode of premieres on VH1.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-23a.jpg?resize=556%2C959&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-23b.jpg?resize=758%2C773&amp;ssl=1)
 
 Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with the rock version of "Blood Brothers." Roger McGuinn guests on "Turn! Turn! Turn!" and "Mr. Tambourine Man" in the encores, the former of which will appear on the EP later in the year. Also tour premiering at this show: "Does This Bus Stop at 82nd Street?" This show is available as part of Bruce's official archive series.
@@ -99,8 +90,6 @@ Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with 
 [https://videopress.com/embed/Ifqqc6cS?hd=0&amp;cover=1](https://videopress.com/embed/Ifqqc6cS?hd=0&amp;cover=1)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-04-23a.jpg?resize=508%2C958&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-04-23b.jpg?resize=758%2C940&amp;ssl=1)
 
@@ -127,7 +116,5 @@ At the premiere for the new Patti Smith concert documentary Bruce makes a surpri
 For the second day in a row, Bruce's twitter account offers a mysterious photo with no accompanying text. Rumors begin to fly: is a new album imminent?
 
 **2019:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-04-23.jpg?resize=758%2C696&amp;ssl=1)

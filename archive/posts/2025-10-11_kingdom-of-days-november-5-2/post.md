@@ -1,19 +1,16 @@
 
-
 *New entry for 2024***New for 2025:**
 
-Bruce releases his second studio album, 
+Bruce releases his second studio album,
 
 **1973:** *The Wild, The Innocent & The E Street Shuffle.*
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_kVpI9n-dmnHW7df2Iloxk8nXaya4yEzEw](https://www.youtube.com/embed/videoseries?list=OLAK5uy_kVpI9n-dmnHW7df2Iloxk8nXaya4yEzEw)
 
-
 **1978:**<br>
 Bruce and the E Street Band play a Darkness Tour show at the University of New Hampshire in Durham.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/46819582604_0746517e2b_o-220x300.jpg?resize=758%2C1033)
-
 
 **1980:**<br>
 The night after Ronald Reagan is elected president of the United States, Bruce plays a pointedly intense show at Arizona State University in Tempe. This show will be officially released as part of Bruce's official archive series (get it [here](http://live.brucespringsteen.net/live-music/0,13637/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-5-1980-ASU-Activity-Center-Tempe-AZ.html)), and as press reports note, the show is professionally filmed for release as a "videodisc" in 1981. It will take Bruce a bit longer than that, but the film will finally see the light of day in *The Ties That Bind: The River Collection* 35 years later. Barry Rebo shot the original footage, and he shares his recollections about the experience in [today's installment of *Where the Band Was*](https://estreetshuffle.com/index.php/2021/11/05/where-the-band-was-tempe-november-5-1980-barry-rebos-story/).
@@ -25,20 +22,17 @@ The night after Ronald Reagan is elected president of the United States, Bruce p
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-11-05a-300x98.png?resize=758%2C247)
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-11-05b-288x300.png?resize=758%2C789)
 
-
 **1986:** Bruce and Bob Geldof make a guest appearance in Paris with Huey Lewis and the News on "[Barefootin'.]" Check out the performance below.(https://estreetshuffle.com/index.php/2021/09/22/matr-huey-lewis-and-the-news-bruce-springsteen-and-bob-geldof-barefootin/)
 
 [https://www.youtube.com/embed/WxOQECwAWvs?feature=oembed](https://www.youtube.com/embed/WxOQECwAWvs?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/11/The_San_Francisco_Examiner_1986_11_16_271.jpg?w=758&amp;ssl=1)
 
-
 **1992:**<br>
 Bruce and the '92/'93 band bring World Tour 1992 to Skydome in Toronto.
 [https://www.youtube.com/embed/gPbOwkrI1Jo?feature=oembed](https://www.youtube.com/embed/gPbOwkrI1Jo?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-11-05-298x300.png?resize=758%2C763)
-
 
 **1998:**<br>
 At his surprise jam with Clarence the night before, Bruce finds himself captivated by Clarence's fiddle player, Randi Fishenfeld and makes plans to see her play with the Pamela Stanley Band the following night. The show is rained out however, but a quick-thinking booking agent arranges for the band to play at an indoor venue instead, a nearby bar called Mulvaney's. Bruce and Clarence join the crowd that night and Fishenfeld puts on a great show for them.
@@ -52,7 +46,6 @@ The Magic Tour stops at The Palace of Auburn Hills, where Bruce plays "[I'll Wor
 [https://www.youtube.com/embed/CfT8P-KL6zY?feature=oembed](https://www.youtube.com/embed/CfT8P-KL6zY?feature=oembed)
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-11-05-300x125.png?resize=758%2C316)
 
-
 **2008:**<br>
 Bruce performs three songs at the Stand Up For Heroes benefit at Town Hall in New York City. He also personally raises $120,000 by auctioning off his motorcycle and guitar.
 
@@ -61,7 +54,6 @@ Bruce performs three songs at the Stand Up For Heroes benefit at Town Hall in Ne
 
 **2010:**<br>
 Bruce joins Joe Grushecky and The Houserockers at Soldiers & Sailors Memorial Hall in Pittsburgh for the second of two 15th anniversary shows for [American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/). Bruce opens the show acoustically with "[Your Own Worst Enemy](http://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)," and three other numbers before joining Joe and the band for a set that includes both Grushecky and Springsteen originals, including a fun "[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)."
-
 
 [https://www.youtube.com/embed/9RK0l1zDOBU?feature=oembed](https://www.youtube.com/embed/9RK0l1zDOBU?feature=oembed)
 [https://www.youtube.com/embed/bGER6ZMGRo8?feature=oembed](https://www.youtube.com/embed/bGER6ZMGRo8?feature=oembed)
@@ -75,7 +67,6 @@ Bruce joins Joe Grushecky and The Houserockers at Soldiers & Sailors Memorial Ha
 **2012:**<br>
 On the Election Eve, Bruce performs at an amazing three different rallies in three different states with and for President Obama–first in Madison, then Columbus, and finally in Des Moines. The setlist is the same at each stop–including his hastily penned campaign theme song, "[Forward](http://estreetshuffle.com/index.php/2018/02/09/roll-of-the-dice-forward/)."
 
-
 [https://www.youtube.com/embed/JygWoIeW224?feature=oembed](https://www.youtube.com/embed/JygWoIeW224?feature=oembed)
 [https://www.youtube.com/embed/6oJLKKDLEaQ?feature=oembed](https://www.youtube.com/embed/6oJLKKDLEaQ?feature=oembed)
 [https://www.youtube.com/embed/rqv-3XTlFdc?feature=oembed](https://www.youtube.com/embed/rqv-3XTlFdc?feature=oembed)
@@ -84,7 +75,6 @@ On the Election Eve, Bruce performs at an amazing three different rallies in thr
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2012-11-05a-206x300.png?resize=758%2C1104)
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2012-11-05b-300x283.png?resize=758%2C715)
-
 
 **2014:**<br>
 Bruce performs once again at Stand Up for Heroes, playing a five-song acoustic set and auctioning not just a guitar this year, but a lesson, a ride in his motorcycle sidecar, a lasagna dinner at his house, and more… this one you have to watch, because it raises an amazing $600,000.

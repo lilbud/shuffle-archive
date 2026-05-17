@@ -1,5 +1,4 @@
 
-
 This post ignited a bit of historical debate in the "Bruce Springsteens Friends And Fans" (sic) Facebook group. It seems that the performance in this post that is commonly attributed to The Bruce Springsteen Band at the Student Prince in December 1971 may actually be the Sundance Blues Band at the Captain's Garter in January 1972. (Bruce played at both stands.)
 
 **Update:**<br>
@@ -9,7 +8,6 @@ Facebook group contributor, Brucebase admin, Dr. Zoom member, and "" saxophonist
 [The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)
 
 ---
-
 
 "Key to the Highway" dates back to 1940, when it was originally recorded by Charlie Segar…
 

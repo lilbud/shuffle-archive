@@ -1,12 +1,9 @@
 
-
 *New entry for 1977***New for 2025:**
 
 Bruce and the E Street Band play their very last opening set ever, at the Wollman Ice Rink in New York City's Central Park. The story will become legend: Bruce is a late substitution for original headliner Boz Scaggs, but managers for opening act Anne Murray successfully argue that she has a greater claim to the headliner slot than Bruce does due to her greater album sales. Murray therefore ends up headlining a show that was originally advertised with Bruce as the headliner, and as a result only a quarter of the crowd stays to the end of Murray's set. Bruce has become an impossible act to follow, and no one will attempt it again.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1974-0803-300x154.jpg?resize=758%2C389)
 

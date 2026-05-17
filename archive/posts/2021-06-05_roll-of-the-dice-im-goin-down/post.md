@@ -16,7 +16,6 @@ Both songs even start in the same place: the narrator's car. And if you compare 
 | --- | --- |
 | *I'm driving in my car, I turn on the radio*  *I'm pulling you close, you just say no*  *You say you don't like it, but girl I know you're a liar*  *‘Cause when we kiss, oh, fire* | *We sit in the car outside your house, you're quiet, I can feel the heat coming 'round*  *I go to put my arm around you and you give me a look like I'm way out of bounds*  *Well, you let out one of your bored sighs, well lately when I look into your eyes*  *I'm going down, down, down, down* |
 
-
 The songs diverge from there, and neither rewards lyrical analysis. "Fire" and "I'm Goin' Down" are both pop songs, and Bruce puts everything on the surface.
 
 > *We get dressed up and we go out, baby, for the night*<br>

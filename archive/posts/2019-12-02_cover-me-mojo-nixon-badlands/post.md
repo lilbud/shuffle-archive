@@ -1,5 +1,4 @@
 
-
 Thanks to Jason Luttrull for bringing this one to my attention!
 
 I'm a big fan of Mojo Nixon's cover of "" from his first album with Skid Roper, and I've long wished he'd take a run at another song from Bruce's catalog.

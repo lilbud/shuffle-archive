@@ -7,7 +7,6 @@ It also marks:
 - The end of the Kingdom of Days series (but don't worry–it restarts tomorrow!)
 - The beginning of what will probably be my last full year writing this blog. (I expect to reach the end sometime in late 2022, unless Bruce releases a massive box set or is otherwise prolific during that time.)
 
-
 Whether you've been with me from the beginning or just discovered this site for the first time today, I wanted to take a moment to thank you for reading, following, commenting, liking and/or sharing.
 
 ![](../../assets/2019/01/thank_you_PNG132.png)

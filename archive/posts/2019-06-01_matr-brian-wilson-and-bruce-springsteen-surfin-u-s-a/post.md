@@ -1,5 +1,4 @@
 
-
 It took more than fifty years after its release, but Bruce Springsteen finally covered the immensely popular "Surfin' U.S.A." with its original artist and songwriter.
 
 Brian Wilson wrote "Surfin' U.S.A." (the lyrics at least–the melody was lifted from "") and recorded it with The Beach Boys.

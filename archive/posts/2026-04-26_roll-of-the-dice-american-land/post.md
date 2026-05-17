@@ -111,7 +111,6 @@ Bruce ends the song not with condemnation, but with a reminder of the American p
 
 ---
 
-
 Bruce may have only debuted "American Land" 14 years ago, but he's played it with a vengeance ever since–a whopping 250 times as of this writing–and we are fortunate enough to have several wonderful, professionally filmed performances to choose from.
 
 My favorite is from *Live in Dublin*. By the end of the Seeger Sessions Tour, the band had "American Land" *down*, and this energetic performance is (for my money, at least) the best performance of the song you are ever likely to see.

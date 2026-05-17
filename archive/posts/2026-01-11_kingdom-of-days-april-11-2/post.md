@@ -1,5 +1,4 @@
 
-
 Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long residency.
 
 **1969:**<br>
@@ -8,11 +7,7 @@ Steel Mill holds an invite-only rehearsal show for the local press.
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0411.jpg?resize=387%2C600&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1970-0411.jpg?resize=277%2C200&amp;ssl=1)
 
@@ -23,8 +18,6 @@ The Green Mermaid coffee house underneath The Upstage in Asbury Park plays host 
 Bruce plays his first-ever show in Georgia, opening for The Beach Boys at the Omni Coliseum in Atlanta. Bruce has undoubtedly grown used to people misspelling his name by now, but this poster is probably a new variant.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/48062448203_aacecf6b79_o.jpg?resize=758%2C1215&amp;ssl=1)
 
@@ -93,8 +86,6 @@ Night Two of the Reunion Tour, a second show in Barcelona, features the first "R
 Sick with a cold, Bruce nevertheless turns in a great performance in Vancouver, BC. Before the show, those of us waiting outside in the pit line could hear the band soundcheck an early version of "Devils & Dust." Listen below.
 
 **2003:** <http://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2003-04-11.jpg?resize=758%2C596&amp;ssl=1)
 

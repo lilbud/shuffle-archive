@@ -1,5 +1,4 @@
 
-
 It wasn't their only single to fall victim to the Creedence curse, but given its lyrics, it's amazing "Bad Moon Rising" made it onto the Billboard Hot 100 at all.
 
 John Fogerty paired his foreboding words with a rollicking melody, and the result is a track so bright you have to concentrate to recognize it's pretty nihilistic.

@@ -1,18 +1,13 @@
 
-
 Bruce and his still unnamed band play their final of four nights at Gertie's in Dallas.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1974-0321.jpg?resize=758%2C785&amp;ssl=1)
 
 Bruce and the band play a warm-up for their upcoming Chicken Scratch Tour at The Stone Pony in Asbury Park.
 
 **1976:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0321.jpg?resize=323%2C500&amp;ssl=1)
 
@@ -73,8 +68,6 @@ Bruce and the Sessions band rehearse at the Paramount Theater in Asbury Park.
 Bruce and the E Street Band rehearse for the upcoming Working on a Dream Tour at Asbury Park's Convention Hall. Afterward, Bruce joins the Panther Club Band on-stage at a Ranney School benefit concert in Long Branch.
 
 **2009:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/03/ranney-236x300.jpg?resize=758%2C964)
 

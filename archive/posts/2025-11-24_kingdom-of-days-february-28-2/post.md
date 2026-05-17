@@ -1,5 +1,4 @@
 
-
 Bruce, Vini Lopez, Danny Federici, and Vinnie Roslin jam at the Upstage in Asbury Park. Within weeks, they will debut their new band, Child.
 
 **1969:**<br>
@@ -8,15 +7,11 @@ Steel Mill plays their second of two shows at Richmond's Free University. This i
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1970-0228.jpg?resize=758%2C993&amp;ssl=1)
 
 Bruce and the as-yet-unnamed E Street Band play the only show out of two weeks of scheduled gigs opening for Paul Butterfield's Better Days that is held as scheduled–the rest were cancelled for low ticket sales–and even this show is poorly attended.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1973-02-28-251x300.jpg?resize=758%2C906)
 
@@ -36,15 +31,11 @@ Bruce and the band bring the River Tour to the Coliseum in Greensboro, North Car
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Johnson_City_Press_Chronicle_Sat__Mar_7__1981_.jpg?resize=758%2C1060&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-28.png?resize=758%2C1185&amp;ssl=1)
 
 Bruce makes the cover of when he tops the Readers' Poll for the magazine's annual music awards.
 
 **1985:** *Rolling Stone*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/rolling-stone-cover-volume-442-2-28-1985-bruce-springsteen-250x300.jpg?resize=758%2C910)
 
@@ -62,11 +53,7 @@ The opening stand of the Tunnel of Love Express Tour continues with the second o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-02-28a-300x300.jpg?resize=758%2C758)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-02-28b-300x210.jpg?resize=758%2C531)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1988-0228-300x160.jpg?resize=758%2C404)
 
@@ -77,8 +64,6 @@ Bruce's album is released, featuring four new songs recorded for this collection
 [https://www.youtube.com/embed/1glxaEB5G7I?list=OLAK5uy_m7idMb3iRK0bBG_3z9EyYNrzQy5bDx9zE](https://www.youtube.com/embed/1glxaEB5G7I?list=OLAK5uy_m7idMb3iRK0bBG_3z9EyYNrzQy5bDx9zE)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1995-02-28a.png?resize=758%2C707&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1995-02-28b.png?resize=758%2C1043&amp;ssl=1)
 
@@ -105,8 +90,6 @@ The second leg of The Rising Tour kicks off at the Arena at Gwinnett Center in D
 [https://www.youtube.com/embed/Vpu4nE1BYrE?feature=oembed](https://www.youtube.com/embed/Vpu4nE1BYrE?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2003-02-28a.jpg?resize=522%2C1161&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2003-02-28b-113x300.jpg?resize=758%2C2013)
 
@@ -141,7 +124,5 @@ The Magic Tour resumes at the Hartford Civic Center with the tour premiere of "S
 When a local third-grader profiles Bruce for her biography assignment at school, Bruce surprises her class by attending in person.
 
 **2020:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/bruceschool.jpg?resize=758%2C1345&amp;ssl=1)

@@ -1,5 +1,4 @@
 
-
 I try to steer clear of current events on this blog, even Bruce-related ones–the vault of past treasures is deep enough to keep me busy for years.
 
 But I'm a sucker for a good cover of an obscure Bruce song, and this one from three weeks ago is as obscure as it gets:

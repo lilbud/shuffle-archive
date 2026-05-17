@@ -1,5 +1,4 @@
 
-
 When Bruce took the stage in South Africa for the first time ever, we knew we were in for something special right from the beginning.
 
 From the High Hopes Tour , here's a wonderful pro-shot video of Bruce's opening number: a cover of "Free Nelson Mandela" by The Special A.K.A.

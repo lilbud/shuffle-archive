@@ -80,12 +80,9 @@ There's no resolution in "Dollhouse"–just a warning that Rome is burning. What
 
 ---
 
-
 Bruce has steered clear of "Dollhouse" in concert. He attempted it only once, early on the Reunion Tour in Vienna, but the recently reunited E Street Band couldn't recapture the ferocity and alchemy of the studio track.
 
 [dollhouse-1999-04-24-mp4](https://videopress.com/embed/xVc2UNfN?hd=1)
-
-
 
 We haven't heard from "Dollhouse" since that night over twenty years ago, and it strikes me as a longshot to ever surface in Bruce's set lists again. But that's okay–it's rare for one of Bruce's songs to be perfectly captured in a studio recording, but "Dollhouse" is one of those cases that likely can't be improved on stage.
 

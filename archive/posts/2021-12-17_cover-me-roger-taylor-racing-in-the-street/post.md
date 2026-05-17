@@ -11,5 +11,3 @@ Well, Roger Taylor did at least, and that's what led him to record a cover of on
 Does it work? You decide.
 
 [Watch on Youtube: Roger Taylor - Racing In The Streets](https://www.youtube.com/watch?v=RdNiTbMVmb4)
-
-

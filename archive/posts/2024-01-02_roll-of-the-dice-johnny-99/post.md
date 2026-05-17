@@ -129,7 +129,6 @@ As with many of Bruce's songs, "Johnny 99" would grow in relevance–sadly–wit
 
 ---
 
-
 Bruce released "Johnny 99" as a solo recording on his *Nebraska* album in 1982. But because Bruce didn't tour behind *Nebraska*, "Johnny 99" didn't make its concert debut until the first show of the Born in the U.S.A. Tour. Perhaps by way of apology for not touring to support his previous album, Bruce featured a *Nebraska* mini-set nightly, and the very first song he played from that album was "Johnny 99."
 
 [Watch Video Highlight](https://videopress.com/embed/hLCZeSZX)

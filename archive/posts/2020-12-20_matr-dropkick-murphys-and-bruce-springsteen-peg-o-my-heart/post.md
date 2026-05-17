@@ -25,5 +25,3 @@ This is a live team-up we need to see again someday soon.
 **Released:** *Going Out in Style* (2011)
 **First performed:** March 18, 2011 (Boston, MA)<br>
 **Last performed:** March 18, 2011 (Boston, MA)<br>
-
-

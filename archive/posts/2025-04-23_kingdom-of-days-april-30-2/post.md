@@ -1,12 +1,9 @@
 
-
 *New entry for 1982; audio for 2000; video for 2023***New for 2025:**
 
 At the Student Prince in Asbury Park, Bruce makes a guest appearance at the debut performance of The Sundance Blues Band, led by Steve Van Zandt and Southside Johnny, and featuring Vini Lopez, Garry Tallent, and Joe Hagstrom.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1971-04-30.jpg?resize=758%2C1613&amp;ssl=1)
 
@@ -14,7 +11,7 @@ Bruce plays in Alabama for the first time, at a very sparsely-attended show at t
 
 **1976:**<br>
 
-At the Power Station in New York City, Bruce records for what will eventually become 
+At the Power Station in New York City, Bruce records for what will eventually become
 
 **1982:** *Born in the U.S.A.*
 
@@ -34,11 +31,7 @@ Imagine this line-up: Bruce joins James Brown on stage at the opening of the Wes
 
 **1994:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1994-0430-300x199.jpg?resize=758%2C504)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1994-04-30.jpg?resize=758%2C968&amp;ssl=1)
 
@@ -57,8 +50,6 @@ Bruce brings his solo acoustic tour to Strasbourg, France.
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAcxJ3pnXVufsDoJGZGVmm1](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAcxJ3pnXVufsDoJGZGVmm1)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-04-30a-300x237.jpg?resize=758%2C599)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2000-04-30b.jpg?resize=561%2C3581&amp;ssl=1)
 
@@ -107,8 +98,6 @@ Night Two in Oslo starts off strong with the tour premiere of "Leap of Faith."
 Bruce and the E Street Band attend the funeral of Lenore Travis, wife of concert producer and long-time friend George Travis. Bruce, Nils and Patti perform "" and "."
 
 **2015:** [I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2015-04-30-300x157.jpg?resize=758%2C397)
 

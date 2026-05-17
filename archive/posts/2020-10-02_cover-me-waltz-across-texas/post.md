@@ -1,5 +1,4 @@
 
-
 Even though we know Bruce has covered countless songs across a spectrum of styles, most of us still wouldn't expect Ernest Tubb's "Waltz Across Texas" to be on that list.
 
 [https://www.youtube.com/embed/K16ZNrWRzo0?feature=oembed](https://www.youtube.com/embed/K16ZNrWRzo0?feature=oembed)

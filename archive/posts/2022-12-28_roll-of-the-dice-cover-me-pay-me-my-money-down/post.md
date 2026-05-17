@@ -41,7 +41,7 @@ In concert on the all-too-short Seeger Sessions Tour, "Pay Me My Money Down" was
 
 "Pay Me" is one of the few Seeger songs that Bruce refuses to leave on the shelf. He played it frequently during the Wrecking Ball and High Hopes tours, and although it didn't see an outing on the last tour, it's too much fun for retirement. I'm confident we'll see it again.
 
-**Pay Me My Money Down**  
+**Pay Me My Money Down**
 **Recorded:** March 19, 2005**Released:** *We Shall Overcome: The Seeger Sessions* (2006)*, We Shall Overcome: The Seeger Sessions – American Land Edition* (2006)*, Live in Dublin* (2007)**First performed:** April 20, 2006 (Asbury Park, NJ)
 **Last performed:** May 16, 2015 (New York City, NY)<br>
 

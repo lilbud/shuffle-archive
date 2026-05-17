@@ -90,11 +90,7 @@
 
 [Watch Video](//cdn.jwplayer.com/players/o8NZxPOs-wAs9ovrq.html)
 
-
-
 [Watch Video](//cdn.jwplayer.com/players/XuHSa09J-RTgEGJrS.html)
-
-
 
 **2020:** E Street Radio airs Volume 14 of Bruce's *From My Home to Yours* radio show, entitled "Farewell to the Thief."
 

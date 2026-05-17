@@ -1,5 +1,4 @@
 
-
 Bruce plays the second of three nights at Childe Harold in Washington, DC.
 
 **1973:**<br>

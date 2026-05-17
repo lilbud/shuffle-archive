@@ -1,10 +1,7 @@
 
-
 The Castiles play the Matawan-Keyport Roller Drome in Matawan, serving as the backup band for The Exciters. Bruce will one day witness a young Patti Scialfa cover The Exciters' biggest hit, "," and remember it as the night he first fell in love with Patti's voice.
 
 **1966:**[Tell Him](https://estreetshuffle.com/index.php/2020/03/22/matr-patti-scialfa-and-bruce-springsteen-tell-him/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1966-0226-300x228.jpg?resize=758%2C576)
 
@@ -21,8 +18,6 @@ The Bruce Springsteen Band plays show number eight of nine at The Back Door in R
 Bruce plays his first west coast show since signing his record deal at The Troubadour in West Hollywood, opening for Pan. When his guitar amp dies a couple of songs in, Bruce finishes the rest of his set on piano.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1973-0226-300x194.jpg?resize=758%2C491)
 
@@ -42,8 +37,6 @@ The River Tour moves on to the Nashville Municipal Auditorium.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-26.jpg?resize=758%2C903&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1981-0225-300x256.jpg?resize=758%2C647)
 
 Bruce wins the Grammy for Best Rock Vocal Performance (Male) for "." (He is also nominated for Record of the Year (for "Dancing in the Dark" and Album of the Year (for ) but loses to Tina Turner's "What's Love Got to Do With It" and Lionel Richie's respectively.) Bruce attends the ceremony with his mother and future-first-wife Julianne Phillips. The camera catches Bruce and Juli several times during the show.
@@ -53,8 +46,6 @@ Bruce wins the Grammy for Best Rock Vocal Performance (Male) for "." (He is also
 [https://www.youtube.com/embed/7ucaXZiaXQ8?feature=oembed](https://www.youtube.com/embed/7ucaXZiaXQ8?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1985-02-26.png?resize=758%2C566&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1985-0226a-300x250.jpg?resize=758%2C631)
 
@@ -109,7 +100,5 @@ The E Street Band wraps up their Australian tour in Brisbane with surprises galo
 [https://www.youtube.com/embed/3NRuWmNqBVw?feature=oembed](https://www.youtube.com/embed/3NRuWmNqBVw?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/2016-0226-300x208.jpg?resize=758%2C525)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Toronto_Star_Sat__Mar_8__2014_.jpg?resize=758%2C690&amp;ssl=1)

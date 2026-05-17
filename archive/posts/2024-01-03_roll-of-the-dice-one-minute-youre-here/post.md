@@ -1,7 +1,5 @@
 > "There were trains–passenger and freight–that came through Freehold in the fifties during long summer afternoons. We waited for them to jump and ride from one end of town to the other, or just to lay our pennies down on the rails and pick them up hot and flat. Those trains came and went as sudden as death.
 >
->
->
 > "Back home you knelt at home at your bedside and recited [The Lord's Prayer]. ‘For if I die before I wake…' I never cared for that part. It impressed upon my young mind that someday we will close our eyes and the gray evening sky will unfold above us, bringing that long and endless sleep." — *Bruce Springsteen, Letter to You (2020)*<br>
 
 For a good long stretch, Bruce Springsteen was a searcher, starting each new album with a question.

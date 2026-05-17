@@ -93,7 +93,6 @@ As it stands, we take our leave from Johnny on the river bank rather than in the
 
 ---
 
-
 "Shut Out the Light" is a definite rarity in concert, performed by Bruce only 35 times across his career, and only once since 1996.
 
 Bruce debuted "Shut Out the Light" relatively early on the Born in the U.S.A. Tour, in late October, just as it was being introduced to fans worldwide on the B-side to "Born in the U.S.A." He performed it almost two dozen times that tour, giving fans in North America, Australia, and Europe a chance to hear his new song.

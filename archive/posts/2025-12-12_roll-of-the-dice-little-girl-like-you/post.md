@@ -52,7 +52,6 @@ Check out the lyrics:
 > *Oh honey I need a little girl like you*<br>
 > *Oh baby I need a little girl like you*<br>
 
-
 It's not just the repeated "little girl" phrasing that's problematic. It's the context of a song about a guy who seems more interested in having someone *like* you rather than you in particular. Or more pointedly, he seems more interested in companionship than in a companion.
 
 It's explicitly clear in the last verse that our narrator is addressing a stranger, and in the earlier verses it's clear that he's got quite the hookup history and has his mind set on another.

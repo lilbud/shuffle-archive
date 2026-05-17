@@ -1,5 +1,4 @@
 
-
 Bruce watches the debut of The Dave Clark Five on . Below, Bruce, Steve, and Max describe the influence they had on the E Street Band's shows.
 
 **1964:***The Ed Sullivan Show*
@@ -45,8 +44,6 @@ At The Hit Factory in New York City, Bruce records "Pink Cadillac," "Car Wash," 
 Bruce and the E Street Band play a warm-up rehearsal at Slane Castle in Ireland in preparation for the kick-off of the European leg of the Born in the U.S.A. Tour. Meanwhile, "Glory Days" is released as the fifth single from .
 
 **1985:** *Born in the U.S.A*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1985-05-31.jpg?resize=758%2C709&amp;ssl=1)
 

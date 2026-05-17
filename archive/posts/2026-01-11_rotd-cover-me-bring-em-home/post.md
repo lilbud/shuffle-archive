@@ -28,7 +28,6 @@ But Bruce wasn't done yet–he borrowed and adapted two verses from the standard
 | --- | --- |
 | *The men will cheer and the boys will shout*   *The ladies they will all turn out*   *And we'll all feel gay*   *When Johnny comes marching home.**The old church bell will peal with joy*   *Hurrah! Hurrah!*   *To welcome home our darling boy*,   *Hurrah! Hurrah!* | *The men will cheer and the boys will shout*   *Bring them home, bring them home*   *Yeah and we will all turn out*   *Bring them home, bring them home**The church bells will ring with joy*   *Bring them home, bring them home*   *To welcome our darling girls and boys*   *Bring them home, bring them home* |
 
-
 …and then wrote a seventh verse in tribute:
 
 > *We will lift their voice and sound*<br>

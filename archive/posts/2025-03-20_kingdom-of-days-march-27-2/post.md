@@ -1,12 +1,9 @@
 
-
 *New entry for 1996 and 2024; audio for 2013; video for 2023***New for 2025:**
 
 Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1970-0327-183x300.jpg?resize=758%2C1243)
 
@@ -14,15 +11,11 @@ Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1971-0327-300x280.jpg?resize=758%2C707)
 
 Bruce and Steve drop by Atlanta's WQXI-FM for an interview with DJ Cat Simon.
 
 **1976:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0327-300x199.jpg?resize=758%2C502)
 
@@ -30,15 +23,11 @@ Bruce postpones a show in Birmingham to recover from the previous leg of the Riv
 
 **1981:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1006)
 
 Bruce checks out The Bangles' performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.
 
 **1983:**<br>
-
-
 
 [https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F655331276&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F655331276&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
 
@@ -51,8 +40,6 @@ Night Four of five at the Sydney Entertainment Center on the Born in the U.S.A. 
 Bruce's scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year's Oscar ceremony.
 
 **1996:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/19960322_Press_01_Reschedule.jpg?resize=500%2C751&amp;ssl=1)
 

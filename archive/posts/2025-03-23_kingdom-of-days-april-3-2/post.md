@@ -1,5 +1,4 @@
 
-
 *New entry for 1978; review for 2009; video for2023***New for 2025:**
 
 Child continues their opening stand at the Pandemonium in Wanamassa, New Jersey.
@@ -26,8 +25,6 @@ Bruce postpones a scheduled show in London to recover from the previous leg of t
 
 **1981:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1008)
 
 Bruce and the E Street Band play their first of two shows in Melbourne, Australia. Bruce performs "" for the final time to date.
@@ -41,8 +38,6 @@ Bruce and the E Street Band play their first of two shows in Melbourne, Australi
 spotlights Los Angeles outposts for Springsteen fans.
 
 **1988:***The Asbury Park Press*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1988-04-03-1.jpg?resize=758%2C807&amp;ssl=1)
 
@@ -62,19 +57,13 @@ The Reunion Tour hits the Pacific Northwest, starting with a single show at Port
 
 [https://videopress.com/embed/lUa1zb5B?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lUa1zb5B?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Columbian_Tue__Apr_4__2000_-scaled.jpg?resize=758%2C2438&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Columbian_Tue__Apr_4__2000_-1.jpg?resize=758%2C934&amp;ssl=1)
 
 is released, documenting the E Street Band's Reunion Tour. The album goes on sale shortly after midnight, and Bruce makes a surprise visit to Jack's Music in Red Bank to kick off the festivities and sign autographs for the first buyers.
 
 **2001:** *Live in New York City*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2001-04-03a-167x300.jpg?resize=758%2C1362)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2001-04-03b.jpg?resize=758%2C1624&amp;ssl=1)
 
@@ -83,8 +72,6 @@ In Glendale, Night Two on the Working on a Dream Tour brings six set list change
 **2009:** [Night](http://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)
 
 [https://www.youtube.com/embed/emnJ4gJGdM0?feature=oembed](https://www.youtube.com/embed/emnJ4gJGdM0?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/El_Paso_Times_2009_04_07_21-scaled.jpg?resize=291%2C2560&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/El_Paso_Times_2009_04_07_22.jpg?resize=758%2C147&amp;ssl=1)
 

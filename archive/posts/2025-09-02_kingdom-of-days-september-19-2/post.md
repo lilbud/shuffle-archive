@@ -1,12 +1,9 @@
 
-
 *Review for 2012***New for 2025:**
 
 Child plays their first of two nights at Richmond's Free University.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1969-0919-194x300.jpg?resize=758%2C1173)
 
@@ -14,15 +11,11 @@ Local bands hold a benefit concert at Point Pleasant Beach to raise legal defens
 
 **1970:** [Clearwater Swim Club fiasco](http://estreetshuffle.com/index.php/2018/09/11/kingdom-of-days-september-11/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1970-09-19-234x300.jpg?resize=758%2C972)
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-0917-231x300.jpg?resize=745%2C968)
 
@@ -30,15 +23,11 @@ Max Weinberg and Roy Bittan make their official debut as members of the E Street
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1974-0919-212x300.jpg?resize=758%2C1072)
 
 A scheduled gig at the University of Nebraska is postponed and moved to a large venue due to high demand.
 
 **1975:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1975-0919-300x237.jpg?resize=747%2C591)
 
@@ -56,11 +45,7 @@ Bruce and the band play one of their most legendary shows, opening a three-night
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1978-09-19a-226x300.jpg?resize=758%2C1006)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1978-09-19b-300x87.jpg?resize=758%2C220)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1978-09-19c-300x196.jpg?resize=758%2C495)
 
@@ -72,7 +57,7 @@ Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park. 
 
 **1982:** [Ready Teddy,](http://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)[Come On, Let's Go](http://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/)[Come on Over to My Place](http://estreetshuffle.com/index.php/2018/04/12/matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/)[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)
 
-At a re-election campaign stop in Hammonton, New Jersey, President Ronald Reagan name-checks Bruce, who is at the height of his popularity with 
+At a re-election campaign stop in Hammonton, New Jersey, President Ronald Reagan name-checks Bruce, who is at the height of his popularity with
 
 **1984:** *Born in the U.S.A.*
 
@@ -98,15 +83,9 @@ The Human Rights Now! Tour finally arrives in the United States, kicking off a t
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-19a-278x300.jpg?resize=758%2C818)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-19b-163x300.jpg?resize=758%2C1395)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-19c-206x300.jpg?resize=758%2C1104)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1988-09-19d.jpg?resize=758%2C1386&amp;ssl=1)
 
@@ -142,19 +121,13 @@ Bruce attends (and reportedly sings at) the wedding of actress Allison Willams a
 
 **2015:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Daily_News_2015_09_20_3.jpg?w=758&amp;ssl=1)
 
 : Bruce holds a private rehearsal for for an intimate group of friends and family at Monmouth University's Pollak Theater.
 
 **2017***Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2017-09-19a.jpg?resize=758%2C1516&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2017-09-19b-300x57.jpg?resize=758%2C144)
 

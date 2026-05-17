@@ -22,7 +22,6 @@ As Bruce begins to tell his tale, it's early, and the circus is quiet. Bruce's g
 > *Well, the runway lies ahead like a great false dawn*
 > *Whoa, Fat Lady, Big Mama, Missy Bimbo sits in her chair and yawns*
 
-
 At this point, the details start to shift from the mundane to the interesting, and as the scene becomes more vivid, Bruce adds a mandolin (yes, that's him on the mandolin) to signal us that it's time to pay attention.
 
 > *And the man-beast lies in his cage sniffing popcorn*
@@ -101,7 +100,6 @@ There's a next stop ahead of us.
 
 ---
 
-
 "Wild Billy's Circus Story" is so carefully arranged and orchestrated on vinyl that it's difficult to match it when performing it live. Accordingly, Bruce rarely tries.
 
 The song all but disappeared for a quarter-century after the Wild & Innocent Tour, surfacing briefly for a one-off appearance at a 1990 acoustic show and a few outings on the Ghost of Tom Joad Tour. The 1996 performances are notable for the accompaniment: Danny on accordion, and Soozie Tyrell on violin, making for a unique arrangement. Here's one of those performances from Asbury Park on November 24, 1996.
@@ -116,7 +114,7 @@ I'll share one more unusual performance, this one from 2009. Bruce joined Elvis 
 
 [Watch on Youtube: Bruce Springsteen performs "Wild Billy's Circus Story"](https://www.youtube.com/watch?v=JEQ9CtRlHnM)
 
-**Wild Billy's Circus Story****Recorded:** June 25-28, 1973  
+**Wild Billy's Circus Story****Recorded:** June 25-28, 1973
 **Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)<br>
 **First performed:** September 4, 1972 (New York City, NY)<br>
 **Last performed:** February 26, 2014 (Brisbane, Australia)<br>

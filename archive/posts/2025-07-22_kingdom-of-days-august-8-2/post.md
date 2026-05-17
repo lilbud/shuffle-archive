@@ -1,32 +1,21 @@
 
-
 *Audio for 1975***New for 2025:**
 
 A scheduled Steel Mill gig in Long Branch at the aptly named First Annual Nothing's Festival is cancelled when the event's local venues become ensnared in a web of regulatory oversight.
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1970-08-08a.png?resize=758%2C1834&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1970-08-08b.png?resize=758%2C2740&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1970-08-08c.png?resize=758%2C959&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/1970-08-08-253x300.jpg?resize=758%2C898)
 
 Bruce places a famous ad in the Village Voice classifieds. Among the respondents: Roy Bittan and Max Weinberg.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1974-08-08-300x159.jpg?resize=758%2C403)
 
@@ -62,14 +51,10 @@ Bruce and the E Street Band play their first of three Rising Tour nights at Linc
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2003-08-08a.png?resize=499%2C2339&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2003-08-08b.png?resize=685%2C2418&amp;ssl=1)
 
 resumes its theatrical run at the Walter Kerr Theater in New York City after an almost two-week break. In attendance tonight: Kings of Leon drummer Nathan Followell.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2018-08-08.jpg?resize=758%2C753&amp;ssl=1)

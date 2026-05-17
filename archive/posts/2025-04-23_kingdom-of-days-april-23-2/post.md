@@ -72,8 +72,6 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's current chart-
 
 [Watch Video Highlight](https://videopress.com/embed/Ifqqc6cS)
 
-
-
 ![](../../assets/2020/04/2008-04-23a.jpg)
 
 ![](../../assets/2020/04/2008-04-23b.jpg)

@@ -1,5 +1,4 @@
 
-
 Another great one gone too soon: Bruce Springsteen pays tribute to Glenn Frey, one day following his death on January 18, 2016.
 
 [https://www.youtube.com/embed/U0i7CFQHEtI?feature=oembed](https://www.youtube.com/embed/U0i7CFQHEtI?feature=oembed)

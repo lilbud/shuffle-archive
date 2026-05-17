@@ -1,5 +1,4 @@
 
-
 It's been thirty days since I started developing estreetshuffle.com, and twenty days since it went live; that seems like a good time to step back for a moment and say:
 
 for checking out my blog. Extra thanks if you're a repeat visitor, and extra thanks if you subscribe and/or comment. It makes me happy to know you're there!

@@ -1,18 +1,13 @@
 
-
 For a short time, Bruce led a band called Earth. On this date, the band plays a two-hour show at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1969-0117-212x300.jpg?resize=747%2C1059)
 
 On a "rest" day during the Born in the U.S.A. Tour, Bruce and Nils stop by the Rhinoceros Club in Greensboro to catch the Del Fuegos. Bruce compliments the band on their album, and the band invites him to join them on stage–which of course he does, playing "" and "."
 
 **1985:**[Hang on Sloopy](https://estreetshuffle.com/index.php/2020/04/07/cover-me-hang-on-sloopy/)[Stand by Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/01/Richmond_Times_Dispatch_Thu__Jan_24__1985_.jpg?resize=758%2C455&amp;ssl=1)
 
@@ -57,8 +52,6 @@ Another "surprise" Light of Day appearance. Bruce plays with Willie Nile, La Bam
 [https://videopress.com/embed/aiLMllsi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aiLMllsi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Herald_News_2015_01_19_B1.jpg?w=758&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2015-01-17b.png?resize=758%2C392&amp;ssl=1)
 

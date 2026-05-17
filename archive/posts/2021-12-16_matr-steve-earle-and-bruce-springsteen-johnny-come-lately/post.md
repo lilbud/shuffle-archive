@@ -16,7 +16,7 @@ But Earle's song is slyer than Bruce's–most of the song details the heroic exp
 > *How he married grandma and brought her back home*<br>
 > *A hero throughout his land*<br>
 
-*Now I'm standing on a runw*ay in San Diego  
+*Now I'm standing on a runw*ay in San Diego
 > *A couple Purple Hearts and I move a little slow*<br>
 > *There's nobody here, maybe nobody knows*<br>
 > *About a place called Vietnam*<br>

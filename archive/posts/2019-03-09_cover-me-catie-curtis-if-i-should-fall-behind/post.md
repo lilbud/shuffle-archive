@@ -1,5 +1,4 @@
 
-
 I'm a big Catie Curtis fan, so I've known and loved her cover of "" for years, since its appearance on a 2010 benefit album. But until I went searching for a youtube link to include, I'd never seen this video of her recording the song (and from the looks of the view count, not may other people have either).
 
 [If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)

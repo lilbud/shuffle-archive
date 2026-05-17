@@ -1,5 +1,4 @@
 
-
 Sam Fender has a lot to live up to.
 
 Still a couple of weeks away (as of this writing) from the release of his debut album, Fender is already being labelled as "the new Springsteen" because of the strength of his songwriting and the profound influence the old Springsteen had on him growing up.

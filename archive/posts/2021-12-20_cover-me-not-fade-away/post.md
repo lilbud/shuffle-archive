@@ -1,5 +1,4 @@
 
-
 Of course Bruce has covered "Not Fade Away." Who hasn't?
 
 It was the single that introduced The Rolling Stones to U.S. audiences in 1964, and although it only reached #48 on the Billboard Hot 100, it paved the way for bigger hits to come.

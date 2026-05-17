@@ -20,7 +20,6 @@ Bruce Springsteen released "Magic" in 2007, but it's only grown in importance an
 
 > *Trust none of what you hear.*
 
-
 > *I'll cut you in half while you're smiling.*
 
 > *The freedom that you sought's drifting.*
@@ -107,7 +106,6 @@ The fire down below is the latent hatred, prejudice, and division so carefully c
 > *This is what will be.*
 
 ---
-
 
 Since I started writing this blog, I've joined several vibrant Facebook groups devoted to the life and art of Bruce Springsteen.
 

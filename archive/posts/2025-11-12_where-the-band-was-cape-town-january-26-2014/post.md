@@ -1,5 +1,4 @@
 
-
 On the list of things I'd never have expected to be a witness to, Bruce Springsteen kicking off his first-ever show in South Africa with a rousing singalong of "" would have ranked pretty high if it had even have occurred to me put it on the list.
 
 [Free Nelson Mandela](http://estreetshuffle.com/index.php/2018/07/10/cover-me-free-nelson-mandela/)
@@ -7,8 +6,6 @@ On the list of things I'd never have expected to be a witness to, Bruce Springst
 But I was there, and it was an amazing, surreal experience–my first day of my first visit to South Africa, kicking off a week of new discoveries and friends. I'll always remember
 
 the days before the South Africa shows as much as I do the evenings–there's something about new places that makes everything more vivid and detailed, and that held true for the concerts as well.
-
-
 
 Even the songs I'd heard dozens of times live were fresh and exciting because they were new experiences for virtually everyone around me. What a gift it was to be in a crowd that was witnessing for the first time Bruce Springsteen and the E Street Band performing live.
 

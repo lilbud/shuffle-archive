@@ -14,12 +14,10 @@ Editor's Note
 
 > *Take it away, Katy!*<br>
 
-
-
 > *I am become a name;*<br>
 > *For always roaming with a hungry heart*<br>
 > *Much have I seen and known*<br>
- *— Tennyson, "Ulysses"*<br>
+*— Tennyson, "Ulysses"*<br>
 
 > *Push off, and sitting well in order smite*<br>
 > *The sounding furrows; for my purpose holds*<br>
@@ -28,7 +26,6 @@ Editor's Note
 — Tennyson, "Ulysses" (toward the end)
 
 ---
-
 
 "Western Stars" is a song about someone living in the past: a portrait of an aging, washed-up star of Hollywood Westerns, who still hangs on to enough shreds of fame to keep him in commercials and free drinks. That much we can all agree on. (And by "we" I mean me, Ken, and Bruce Springsteen, who weighed in on the meaning of the song in his *Western Stars* feature film.)
 

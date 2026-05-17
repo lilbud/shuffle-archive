@@ -1,5 +1,4 @@
 
-
 Sometimes the best moments at a Springsteen show happen long before the lights go down.
 
 Case in point: Bruce's second holiday show in Asbury Park, on December 18, 2000.

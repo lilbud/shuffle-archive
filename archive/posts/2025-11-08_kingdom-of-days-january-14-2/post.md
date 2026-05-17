@@ -1,10 +1,7 @@
 
-
 Bruce and the E Street Band conclude their seven-day, twice-a-day gig at Paul's Mall in Boston.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1973-01-14.png?resize=758%2C1270&amp;ssl=1)
 
@@ -21,8 +18,6 @@ At the Power Station in New York City, Bruce and the E Street Band record "Restl
 [https://videopress.com/embed/ATjdzWXO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ATjdzWXO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1984-01-14a.png?resize=758%2C265&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Central_New_Jersey_Home_News_1984_01_16_7-1.jpg?resize=758%2C458&amp;ssl=1)
 

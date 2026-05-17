@@ -1,14 +1,9 @@
 
-
 Bruce and the band open for NRBQ at Richards in Atlanta. The club accidentally promotes him as "Bruce Silversteen."
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/02/1997-02-07-resize.jpg?resize=758%2C1034&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1974-0207.jpg?resize=480%2C1346&amp;ssl=1)
 
@@ -44,19 +39,13 @@ The River Tour (original version) stops at the University of Illinois in Champai
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Daily_Illini_Tue__Feb_10__1981_.jpg?resize=758%2C880&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Daily_Illini_Tue__Feb_10__1981_-1.jpg?resize=758%2C474&amp;ssl=1)
 
 Bruce's expired American Express card is sold for $4,500 in New York City. Bruce had gifted it to a restaurant waiter in Los Angeles.
 
 **1996:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1998-02-07a-300x203.jpg?resize=758%2C513)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1998_02_08_Page_24a.jpg?resize=758%2C558&amp;ssl=1)
 

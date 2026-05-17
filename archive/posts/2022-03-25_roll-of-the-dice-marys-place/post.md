@@ -68,7 +68,6 @@ Either way, we're at Mary's place, and when we're at Mary's place we're surround
 
 ---
 
-
 "Mary's Place" is a fine track in its studio form, but it's on the concert stage–*of course–*where it truly comes alive. How could it be otherwise? This is a song about the power of community to carry us through our grief; it's only fitting that it requires an audience to breathe life into it and lift it to the heavens with cries of "Turn it up!"
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Mary's Place (Live In Barcelona)](https://www.youtube.com/watch?v=z8PwFyouBDc)

@@ -1,5 +1,4 @@
 
-
 I'd always wanted to attend one of Sting and Trudie's Rainforest Fund concerts–I support their cause and love Sting's music, and I'm usually tickled by the creative themes and wide array of artistry on display.
 
 In 2016, I happened to be at the right place at the right time and lucked out with a last-minute ticket right up front in Carnegie Hall. And while that year's show may have had a more traditional holiday show theme, it was still full of surprises and delights: from opera star Vittorio Grigolo, who brought the house down (I might like opera now), the always-amazing Darlene Love and Ronnie Spector, Sting vamping his way through Wham's "Last Christmas," and Idina Mendel fronting a choir for "Let it Go" (which, believe it or not, I'd never heard before then. I think I was the only one in the audience who had no clue what she was singing).

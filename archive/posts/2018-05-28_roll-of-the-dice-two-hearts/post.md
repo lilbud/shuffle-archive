@@ -45,7 +45,7 @@ Now pay attention to what comes next–the song is about to make a very subtle b
 
 > *That's if you think your heart is stone*
 > *And that you're rough enough to whip this world alone*
-*Alone, **buddy**, there ain't no peace of mind*  
+*Alone, **buddy**, there ain't no peace of mind*
 > *That's why I'll keep searching till I find*
 
 > *My special one*

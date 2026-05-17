@@ -1,16 +1,11 @@
 
-
 *New entry for 1979 and 1980; audio for 1999; video for 2023***New for 2025:**
 
 Child performs at the Pandemonium in Wanamassa, New Jersey.
 
 **1969:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1969-0409-300x300.jpg?resize=758%2C759)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Asbury_Park_Press_Fri__Apr_11__1969_-scaled.jpg?resize=758%2C288&amp;ssl=1)
 
@@ -78,8 +73,6 @@ The first public E Street Band concert since 1988, as the Reunion Tour kicks off
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/44767315550_2391743b54_o-300x211.jpg?resize=758%2C533)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/44767315690_66ce7d7276_o-300x206.jpg?resize=758%2C520)
 
 Kansas City gets an outstanding set list for their Reunion show: Bruce opens with "" and plays "" and "" later in the set.
@@ -98,8 +91,6 @@ The Rising Tour returns to North America as Bruce and the band play Arco Arena i
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/2003-04-09a.jpg?resize=532%2C1092&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2003-04-09b-224x300.jpg?resize=758%2C1015)
 
 Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list features the tour premieres of "" and "," and the show breaks the three-hour mark.
@@ -113,8 +104,6 @@ Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list feat
 The Hear the World Foundation announces that Bruce will serve as an ambassador to raise awareness for the non-profit organization's campaign to prevent hearing loss.
 
 **2018:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/04/Bruce_Springsteen_joins_Hear-the-world-as-ambassador-225x300.jpg?resize=758%2C1012)
 

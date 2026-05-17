@@ -1,5 +1,4 @@
 
-
 Bruce has gifted several songs to Southside Johnny over the years, but he also contributed in small ways on songs that Southside wrote himself.
 
 Case in point: "Trapped Again," a Southside Johnny composition from 1978, but one that that contains "bits and pieces" from Bruce and Steve (including Steve's backing vocals).

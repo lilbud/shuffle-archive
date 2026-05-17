@@ -1,12 +1,9 @@
 
-
 *Audio for 1975***New for 2025:**
 
 Earth makes their debut performance at the Off Broad Street Coffee House in Red Bank, New Jersey. Earth is Bruce's new band, featuring John Graham on bass and Michael Burke on drums. (Bob Alfano will join later on organ.)
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1968-0816-300x173.jpg?resize=758%2C437)
 
@@ -30,15 +27,11 @@ On the fourth of five legendary nights at New York City's Bottom Line club on th
 
 [https://www.youtube.com/embed/C2GEQ7jm7oQ?feature=oembed](https://www.youtube.com/embed/C2GEQ7jm7oQ?feature=oembed)
 
-Bruce joins Jackson Browne on stage for "" and "" at The Forum in Inglewood, California. 
+Bruce joins Jackson Browne on stage for "" and "" at The Forum in Inglewood, California.
 
 **1980:** [Sweet Little Sixteen](http://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)[Stay](http://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)(Photo credit: Carlo)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1980-0816-300x216.jpg?resize=758%2C545)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1980-08-16.png?resize=758%2C796&amp;ssl=1)
 
@@ -58,8 +51,6 @@ Bruce attends (but does not perform at) the 12th annual Clearwater Festival for 
 
 **1987:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1987-08-16-218x300.png?resize=758%2C1043)
 
 Bruce makes a guest appearance with Bobby Bandiera at Cheers in Long Branch, New Jersey. Their set includes "," "" "," and more.
@@ -69,8 +60,6 @@ Bruce makes a guest appearance with Bobby Bandiera at Cheers in Long Branch, New
 Bruce postpones a scheduled Reunion show in Detroit to the following month due to "scheduling conflicts."
 
 **1999:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1999-08-16-76x300.png?resize=758%2C2992)
 

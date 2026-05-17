@@ -1,5 +1,4 @@
 
-
 *Audio for 2000 and 2005; new entry for 2017***New for 2025:**
 
 Bruce and the E Street Band play their fifth of six shows at London's Wembley Arena on the River Tour. This show is available as part of Bruce's official archive series–get it .
@@ -10,7 +9,7 @@ Bruce and the E Street Band play their fifth of six shows at London's Wembley Ar
 
 [https://www.youtube.com/embed/gxcHkOEU-9Y?feature=oembed](https://www.youtube.com/embed/gxcHkOEU-9Y?feature=oembed)
 
-Bruce releases his seventh studio album, 
+Bruce releases his seventh studio album,
 
 **1984:** *Born in the U.S.A.*
 
@@ -69,7 +68,5 @@ Night One of three in Stockholm opens with the tour premiere of "" and features 
 Bruce drops by The Asbury Hotel to check out Danny Clinch's new photo exhibition, "Transparent."
 
 **2017:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/06/Daily_News_2017_06_06_19.jpg?w=758&amp;ssl=1)

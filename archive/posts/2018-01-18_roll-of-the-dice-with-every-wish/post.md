@@ -17,12 +17,12 @@ Both the girl and the "angel of the lake" taught him the same lesson: think befo
 
 At 23, I completely missed the word "every," and I didn't grok the third verse at all:
 
-*These days I sit around and laugh a**t the many rivers I've crossed*  
-*But on the far banks there's always another forest w**here a man can get lost*  
+*These days I sit around and laugh a**t the many rivers I've crossed*
+*But on the far banks there's always another forest w**here a man can get lost*
 > *Well there in the high trees love's bluebird glides*
 > *Guiding us ‘cross to another river on the other side*
 > *And there someone is waitin' with a look in her eyes*
-*And though my heart's grown weary a**nd more than a little bit shy*  
+*And though my heart's grown weary a**nd more than a little bit shy*
 > *Tonight I'll drink from her waters to quench my thirst*
 > *And leave the angels to worry*
 > *With every wish…*
@@ -37,7 +37,7 @@ Bruce isn't encouraging us to not wish–he's urging us to lean in and accept th
 
 This is a cautionary tale about caution.
 
-We have crossed many rivers, but there are many more ahead.  
+We have crossed many rivers, but there are many more ahead.
 We've been burned and broken-hearted, but we can't help but hope and risk love again.
 
 Bruce closes the song by returning to the lake he fell into as a boy, this time deliberately drinking from it and ignoring the voice of the lake's angel.

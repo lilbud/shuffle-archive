@@ -1,12 +1,9 @@
 
-
 *New entry for 1979 and 1980***New for 2025:**
 
 Child performs at the Pandemonium in Wanamassa, New Jersey.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1969-0409-300x300.jpg?resize=732%2C732)
 
@@ -14,15 +11,11 @@ The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays hos
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1971-0410-183x300.jpg?resize=758%2C1243)
 
 Bruce Springsteen meets future manager Jon Landau when Landau spots Bruce reading his review of during the break between two shows at Charlie's Place in Cambridge, Massachusetts.
 
 **1974:***The Wild, The Innocent & The E Street Shuffle*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0412-263x300.jpg?resize=758%2C868)
 
@@ -68,11 +61,7 @@ Bruce's 1998 U.K. legal victory against Masquerade Music is upheld by the Court 
 
 **2001:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/04/bootleg_btf-300x130.jpg?resize=757%2C328)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2001-04-10.jpg?resize=758%2C1020&amp;ssl=1)
 
@@ -104,15 +93,13 @@ A scheduled show in Greensboro is cancelled due to the state's adoption of an an
 
 **2016:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2016-0408-284x300.jpg?resize=758%2C802)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce visits John Mellencamp at his studio in Belmont, Indiana, where he contributes to three tracks for John's upcoming album, 
+Bruce visits John Mellencamp at his studio in Belmont, Indiana, where he contributes to three tracks for John's upcoming album,
 
 **2021:** *Strictly a One-Eyed Jack.*
 

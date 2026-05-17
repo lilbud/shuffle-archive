@@ -52,7 +52,6 @@ Or better yet: when the storm is inside.
 
 ---
 
-
 **Postscript:**<br>
 
 I wasn't kidding earlier about the third verse missing half its lyrics. Bruce gets about halfway through and then gives up and just bluffs the rest.

@@ -41,5 +41,3 @@ Hazy Dave is still active today, along with his group called (I kid you not) The
 **Train Ride**<br>
 **First performed:** October 17, 1970 (West Long Branch, NJ)<br>
 **Last performed:** January 22, 1971 (Asbury Park, NJ)<br>
-
-

@@ -54,7 +54,6 @@ Bruce went home that night and wrote "[We Take Care of Our Own](https://estreets
 
 ---
 
-
 It may have inspired the album, but "Easy Money" was one of the least-played songs on *Wrecking Ball*, making only 18 appearances since its release a decade ago, all of them during the first six months of the tour.
 
 That's too bad, because "Easy Money" was both a crowd- and artist-pleaser, judging by how much fun Bruce seemed to have each time he performed it with Patti and the band. Here's their third-ever performance of "Easy Money," from the first week of the Wrecking Ball Tour in Tampa, Florida.
@@ -62,7 +61,7 @@ That's too bad, because "Easy Money" was both a crowd- and artist-pleaser, judgi
 [Watch on Youtube: Easy Money - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=7lzRDbg_6IQ)
 
 **Easy Money**<br>
-**Recorded:** 2011  
+**Recorded:** 2011
 **Released:** *Wrecking Ball* (2011)
 **First performed:** March 18, 2012 (Atlanta, GA)<br>
 **Last performed:** September 19, 2012 (East Rutherford, NJ)<br>

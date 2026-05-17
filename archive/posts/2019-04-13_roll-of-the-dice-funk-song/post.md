@@ -1,5 +1,4 @@
 
-
 An original Springsteen composition from 1971 that survived into the E Street Band Era?
 
 Yup. (Sort of.)

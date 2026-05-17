@@ -1,12 +1,9 @@
 
-
 *New entry for 1977 and 2024; video for 2012 and 2016***New for 2025:**
 
 Bruce and Clarence play together for only the second time ever when Bruce makes a guest appearance with Clarence's band, Norman Seldin and the Joyful Noyze, at The Shipbottom Lounge in Point Pleasant Beach, New Jersey.
 
 **1972:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/joyful-300x288.jpg?resize=758%2C727)
 
@@ -26,11 +23,7 @@ Bruce and the E Street Band play to a half-sold Kiel Auditorium in St. Louis on 
 
 **1978:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1978-06-17-237x300.jpg?resize=758%2C959)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1978-0617-300x250.jpg?resize=758%2C631)
 

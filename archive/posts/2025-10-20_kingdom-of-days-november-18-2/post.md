@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 Bruce plays his first-ever show in Europe, a historic concert at the Hammersmith Odeon in London. The hype precedes him. Bruce famously reacts to it by tearing down posters that read "Finally, London is ready for Bruce Springsteen and The E Street Band," but despite later reports that he considered the show itself to be substandard, for those there (and for those who hear and watch it decades later via an official release) the show is intense and electric.
@@ -10,15 +9,11 @@ Bruce plays his first-ever show in Europe, a historic concert at the Hammersmith
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/1975-11-18c.jpg?resize=758%2C748&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/1975-11-18d.jpg?resize=758%2C2320&amp;ssl=1)
 
 The Darkness Tour stops in Oxford, Ohio, for a show at Miami University.
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1978-11-18-242x300.jpg?resize=758%2C940)
 
@@ -34,11 +29,7 @@ Bruce plays his first show in Nebraska since the release of the album by the sam
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1984-11-18a-300x197.png?resize=758%2C498)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1984-11-18b-300x272.png?resize=758%2C687)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1984-11-18c-300x131.png?resize=758%2C331)
 
@@ -92,11 +83,7 @@ Bruce wraps up the first leg of the Magic Tour with a two-night stand at TD Bank
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2007-11-18a-300x133.png?resize=758%2C336)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2007-11-18b-300x151.png?resize=758%2C381)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2007-11-18c-300x287.png?resize=758%2C725)
 
@@ -115,8 +102,6 @@ Bruce performs "American Skin (41 Shots)" with John Legend, Tom Morello, Max, an
 [https://videopress.com/embed/5JaaLIhW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5JaaLIhW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2015-11-18a-203x300.png?resize=758%2C1120)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2015-11-18b-1.png?resize=386%2C2068&amp;ssl=1)
 

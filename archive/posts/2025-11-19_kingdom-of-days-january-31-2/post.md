@@ -1,5 +1,4 @@
 
-
 Bruce and the band eventually known as E Street open a six-night, two-shows-nightly stand at Max's Kansas City in New York City, opening for Biff Rose. Several tracks from this show are professionally recorded for use on The King Biscuit Flower Hour, but only "" will be aired. That "Bishop Danced" recording, however, will see the light of day again 25 years later, when it is released on .
 
 **1973:**[Bishop Danced](https://estreetshuffle.com/index.php/2021/05/18/roll-of-the-dice-bishop-danced/)*Tracks*
@@ -27,8 +26,6 @@ is released on VHS, the first collection of Bruce's music videos.
 [https://www.youtube.com/embed/pWQsmTe_DuU?feature=oembed](https://www.youtube.com/embed/pWQsmTe_DuU?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1989-01-31a.png?resize=758%2C929&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1989-01-31b.png?resize=758%2C830&amp;ssl=1)
 
@@ -78,8 +75,6 @@ The River Tour (2016 edition) makes a stop at the Prudential Center in Newark, w
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2016-01-31a.png?resize=758%2C291&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2016-01-31b.png?resize=758%2C1537&amp;ssl=1)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
@@ -93,7 +88,5 @@ Bruce and the E Street Band rehearse for their upcoming world tour opener at Ama
 Adele Springsteen passes away at the age of 98 after a long battle with Alzheimer's disease. Bruce shares the news of his mother's death on Instagram.
 
 **2024:**<br>
-
-
 
 [https://www.youtube.com/embed/xcvUVQx1o3E?feature=oembed](https://www.youtube.com/embed/xcvUVQx1o3E?feature=oembed)

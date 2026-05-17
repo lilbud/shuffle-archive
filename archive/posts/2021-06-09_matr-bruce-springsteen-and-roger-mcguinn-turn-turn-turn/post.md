@@ -6,8 +6,6 @@ Pete Seeger took those Bible verses, re-arranged them a bit, set them to music, 
 
 [Watch Video](//content.jwplatform.com/players/WR45aUU3-JO6kgQAV.html)
 
-
-
 The original text was already innately comforting. Who wouldn't find solace in the notion that life brings its share of joy and grief in turns? Especially when you're in a valley, it's nice to know another peak awaits you somewhere out there.
 
 But in the late 1950s, Seeger sensed that a war-weary America needed a bit more reassurance, and he added six important words of his own: *I swear it's not too late.*

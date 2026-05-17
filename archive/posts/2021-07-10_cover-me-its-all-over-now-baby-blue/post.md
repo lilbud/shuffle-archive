@@ -1,5 +1,4 @@
 
-
 When it comes to covering "It's All Over Now, Baby Blue," Bruce is in good company.
 
 Bob Dylan's 1965 track has received cover treatments over the years from such artists as Joan Baez, The Byrds, The Animals, Joni Mitchell, The Grateful Dead, and Link Wray to Echo and the Bunnymen, Falco, Marianne Faithfull, and more.

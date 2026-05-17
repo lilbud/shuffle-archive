@@ -26,8 +26,6 @@
 
 [1984-09-17 Philadelphia - Beneath The Floodline (soundcheck) by Brucebase Wiki](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F187932618&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 **1988:** The Human Rights Now! Tour stops at Montreal's Olympic Stadium, where Bruce makes a guest-appearance during Sting's set, duetting on "[Every Breath You Take](https://estreetshuffle.com/index.php/2019/04/07/matr-sting-and-bruce-springsteen-every-breath-you-take/)," Bruce's first performance of that song.
 
 [Watch Video Highlight](https://videopress.com/embed/XS7nF1a4)

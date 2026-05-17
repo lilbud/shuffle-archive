@@ -28,7 +28,6 @@ Some surprises were poignant, like the full band premiere (sort of, anyway: Bruc
 
 ...and some were intimate: Bruce's almost-final encore of "[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/)" was quiet, soulful, and a genuine love note to E Street Nation... right up to the surprise pay-off, a perfect segue into "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)."
 
-
 [Watch on Youtube: Bruce Springsteen - Kansas City 2008-08-24 - "Save the Last Dance/DiTD"](https://www.youtube.com/watch?v=2i9bNACWIE0)
 
 The Magic Tour finally came to a close with one last tour-premiere and promise: a cover of "Rockin' All Over the World."

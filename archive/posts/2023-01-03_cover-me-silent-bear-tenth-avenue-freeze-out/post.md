@@ -16,8 +16,6 @@ The Mountain Sun was known for playing host to jam bands, so Silent Bear embrace
 
 [Tenth Avenue Freeze Out by Silent Bear](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F473723064&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 (Photo credit: Josh Elioseff — Dancer Productions)
 
 I was floored on first listen. Deeply in the moment, Silent Bear intuitively recognized a fresh context for a classic song and daringly reinvented it along the lines of "American Skin (41 Shots)."

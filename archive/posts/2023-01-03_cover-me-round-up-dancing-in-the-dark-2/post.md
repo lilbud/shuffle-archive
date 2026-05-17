@@ -47,5 +47,3 @@ You might not be able to tell, but lead singer David Starns was suffering from s
 Starns' crooning Orbisonian vocals combined with a charming 1950s doo-wop arrangement transformed "Dancing in the Dark" (still getting quite a bit of airplay at the time) into something charmingly fresh and new. Even the hat tip to Courtney Cox's debut at the end will warm your heart.
 
 That's it for this installment of *Cover-Me Round-up*, but given my lengthy and ever-growing list of covers, there will almost certainly be more.
-
-

@@ -1,5 +1,4 @@
 
-
 Clarence "Big Man" Clemons is born in Norfolk, Virginia.
 
 **1942:**<br>
@@ -8,15 +7,13 @@ Bruce and the band continue their Boston residency with two shows at Paul's Mall
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/1973-01-11-300x197.jpg?resize=758%2C498)
 
 Bruce and the E Street Band play a set of cover tunes at a private 37th birthday party for Clarence at Lock Stock & Barrel in Fair Haven, New Jersey.
 
 **1979:**<br>
 
-At his home studio in Holmdel, Bruce and the E Street Band rehearse material for their upcoming recording sessions for 
+At his home studio in Holmdel, Bruce and the E Street Band rehearse material for their upcoming recording sessions for
 
 **1980:** *The River.*
 
@@ -41,8 +38,6 @@ On the occasion of Clarence's 60th birthday, Bruce joins Clarence on stage at B.
 [https://videopress.com/embed/jbc3T593?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jbc3T593?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Hartford_Courant_2002_01_15_27.jpg?w=758&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2001-01-11b.png?resize=655%2C1651&amp;ssl=1)
 

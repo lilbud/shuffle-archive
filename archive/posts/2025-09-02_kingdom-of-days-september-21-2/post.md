@@ -1,12 +1,9 @@
 
-
 *Audio for 1978 and 1979; video for 2009 and 2013***New for 2025:**
 
 Bruce and the E Street Band play a gig at the State University of New York in Oneonta. Even the school's yearbook can't spell his name correctly.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1974-0921-218x300.jpg?resize=758%2C1043)
 
@@ -21,8 +18,6 @@ Bruce plays his first-ever show in Minnesota at Minneapolis' Guthrie Theater.
 Bruce and the E Street Band wrap up their spectacular three-night Darkness Tour homecoming stand at Passaic's Capitol Theater. There won't be a birthday show this year, so the band and crew take the opportunity to present Bruce with an early on-stage "birthday cake."
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0921-300x208.jpg?resize=732%2C507)
 
@@ -66,11 +61,7 @@ Bruce and the band play their first of two Born in the U.S.A. shows at Pittsburg
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1984-09-21c.jpg?resize=758%2C1292&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1984-09-21a.jpg?resize=758%2C1019&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1984-09-21b-256x300.jpg?resize=758%2C888)
 
@@ -85,8 +76,6 @@ The Human Rights Now! Tour hits the American west coast with a show at the Los A
 [https://www.youtube.com/embed/K-3l-YEOBs0?feature=oembed](https://www.youtube.com/embed/K-3l-YEOBs0?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-21a-199x300.jpg?resize=758%2C1143)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-21b-65x300.jpg?resize=758%2C3498)
 
@@ -104,8 +93,6 @@ The world is still reeling from the effects of the 9/11 terror attacks on the U.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2001-09-21a-251x300.jpg?resize=758%2C906)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2001-09-21b.jpg?resize=758%2C936&amp;ssl=1)
 
 Two more "missing years" songs makes their tour (and E Street Band) debuts in the home stretch of the Rising Tour, when "" and "" come out to play at Comerica Park in Detroit–but the best highlight is saved for the encores, when Martha Reeves joins Bruce and the band to play her 1963 hit "."
@@ -120,7 +107,7 @@ Two more "missing years" songs makes their tour (and E Street Band) debuts in th
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2003-09-21-300x204.jpg?resize=758%2C516)
 
-Also today, is nominated for Emmy Awards in the Outstanding Variety, Music, or Comedy Special category and in the Outstanding Directing for a Variety, Music or Comedy Program category (for director Chris Hilson). Both prizes go to other nominees, the former to , and the latter for the 
+Also today, is nominated for Emmy Awards in the Outstanding Variety, Music, or Comedy Special category and in the Outstanding Directing for a Variety, Music or Comedy Program category (for director Chris Hilson). Both prizes go to other nominees, the former to , and the latter for the
 
 *Bruce Springsteen & The E Street Band* *Cher: The Farewell Tour**56th Annual Tony Awards.*
 
@@ -139,8 +126,6 @@ The Working on a Dream Tour stops at Wells Fargo Arena in Des Moines, where Bruc
 [https://www.youtube.com/embed/kg2AOVXpqU4?feature=oembed](https://www.youtube.com/embed/kg2AOVXpqU4?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-09-21a-175x300.jpg?resize=758%2C1299)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-09-21b-300x290.jpg?resize=758%2C733)
 

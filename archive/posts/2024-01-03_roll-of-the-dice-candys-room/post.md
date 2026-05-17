@@ -7,7 +7,6 @@ Even for an artist like Bruce, who tends to cobble songs from parts like souped-
 - "[Candy's Boy](https://estreetshuffle.com/index.php/2020/09/02/roll-of-the-dice-candys-boy/)" (September 2020)
 - "[The Fast Song](https://estreetshuffle.com/index.php/2021/01/30/roll-of-the-dice-the-fast-song/)" (January 2021)
 
-
 Caught up? Great–then let's continue.
 
 We left Bruce and the band on September 2, 1977–the day they finished both the version of "Candy's Boy" that appears on *The Promise* and the last known version of "The Fast Song." In the latter, Bruce had the completed music for "Candy's Room," but the lyrics were still floating unresolved between the two.

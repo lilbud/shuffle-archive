@@ -1,12 +1,9 @@
 
-
 *New entry for 1977***New for 2025:**
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-0924-300x258.jpg?resize=758%2C652)
 
@@ -62,15 +59,11 @@ Bruce makes a guest appearance with Southside Johnny and The Asbury Jukes at Mor
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1984-0926-192x300.jpg?resize=758%2C1185)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/09/1984-09-26.jpg?resize=758%2C1068&amp;ssl=1)
 
 The scheduled opener for the Born in the U.S.A. Tour's final stand becomes the closing show instead when Bruce postpones this Los Angeles show to make room for a previous rescheduled show in Denver.
 
 **1985:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-26-247x300.jpg?resize=758%2C921)
 
@@ -84,8 +77,6 @@ Bruce joins Southside Johnny and The Asbury Jukes at The Stone Pony, where the s
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1991-09-26a.jpg?resize=758%2C1131&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1991-09-26b-300x121.jpg?resize=758%2C306)
 
 At his solo acoustic show at the University of Michigan in Ann Arbor, Bruce reprises his newest song, "" and plays "" for the first time in fifteen years.
@@ -98,15 +89,11 @@ At his solo acoustic show at the University of Michigan in Ann Arbor, Bruce repr
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/The_South_Bend_Tribune_1996_09_27_35.jpg?w=758&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/The_Flint_Journal_1996_09_27_26.jpg?resize=758%2C641&amp;ssl=1)
 
 Bruce plays "" and "" with Bobby Bandiera at Cheers in Long Branch.
 
 **1997:** [Mustang Sally](http://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1997-0926-171x300.jpg?resize=758%2C1329)
 

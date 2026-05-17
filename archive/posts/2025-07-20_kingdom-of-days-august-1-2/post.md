@@ -1,20 +1,15 @@
 
-
 *New entry for 1974 and 1977; audio for 1976***New for 2025:**
 
 Thirteen-year-old Bruce Springsteen helps his little league team, the Braves, secure their spot in the Babe Ruth League playoffs.
 
 **1963:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1963-08-01-300x266.png?resize=758%2C672)
 
 Bruce and the as yet unnamed E Street Band play two shows on their second of three nights at My Father's Place in Roslyn, New York.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1973-0801-300x191.jpg?resize=756%2C481)
 
@@ -29,8 +24,6 @@ Bruce and the boys bring the Born to Run Tour to the Mosque Theater in Richmond.
 [https://videopress.com/embed/eMvYyWzB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eMvYyWzB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/Richmond_Times_Dispatch_1975_08_02_6-scaled.jpg?resize=758%2C1931&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1975-0801.jpg?resize=758%2C642)
 
@@ -48,8 +41,6 @@ A big night in Red Bank: unable to record due to Mike Appel's legal injunction, 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1976-08-01a-300x163.png?resize=758%2C412)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1976-08-01b-300x220.png?resize=758%2C556)
 
 Bruce and the E Street Band work on "Racing in the Street" at Atlantic Studios in New York City.
@@ -59,8 +50,6 @@ Bruce and the E Street Band work on "Racing in the Street" at Atlantic Studios i
 The Darkness Tour continues its southern leg with a show at Gaillard Municipal Auditorium in Charleston, South Carolina, where Bruce plays "" for the first time on the tour.
 
 **1978:** [Sweet Little Sixteen](http://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1978-0801-80x300.jpg?resize=758%2C2843)
 
@@ -72,19 +61,11 @@ Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at 
 
 **1985:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-08-01a-300x157.png?resize=758%2C396)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1985-08-01b.png?resize=758%2C1546&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-08-01c-196x300.png?resize=758%2C1160)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1985-08-01d.png?resize=758%2C1421&amp;ssl=1)
 
@@ -123,8 +104,6 @@ At the first of two shows at Gillette Stadium in Foxboro, Bruce opens the encore
 [https://videopress.com/embed/a0fJ1kW8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/a0fJ1kW8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-01a-300x145.png?resize=758%2C367)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-01b-300x124.png?resize=758%2C313)
 

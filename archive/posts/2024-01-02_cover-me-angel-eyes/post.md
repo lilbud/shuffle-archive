@@ -31,5 +31,3 @@ Not surprisingly, that was the one and only time Bruce has ever covered "Angel E
 **Angel Eyes**<br>
 **First performed:** November 19, 1995 (Los Angeles, CA)<br>
 **Last performed:** November 19, 1995 (Los Angeles, CA)<br>
-
-

@@ -1,20 +1,15 @@
 
-
 *New entry for 1979 and 2024; audio for 2000; video for 2003***New for 2025:**
 
 Chicago cancels their concert in Buffalo at the last minute, scuttling Bruce's opening act performance along with it.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Buffalo_Evening_News_Tue__Jun_12__1973_.jpg?w=758&amp;ssl=1)
 
 Another abrupt cancellation: Bruce's scheduled Darkness Tour stop in La Crosse, Wisconsin is advertised right up until the day before the show before cancelling without public explanation.
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/The_La_Crosse_Tribune_Sun__Jun_4__1978_.jpg?w=758&amp;ssl=1)
 
@@ -33,8 +28,6 @@ Bruce joins Jackson Browne on stage for "" and "" in New York's Central Park at 
 [https://www.youtube.com/embed/hrYx5FN2RiY?feature=oembed](https://www.youtube.com/embed/hrYx5FN2RiY?feature=oembed)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1982-06-12-300x187.jpg?resize=758%2C472)
 
@@ -89,8 +82,6 @@ Bruce joins Jackson Browne on stage in Red Bank for two encore performances at a
 Clarence Clemons suffers a severe stroke, and his friends and family rush to his side.
 
 **2011:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2011-06-12-300x163.jpg?resize=758%2C412)
 

@@ -1,5 +1,4 @@
 
-
 In general, I don't buy into the whole "cover of a cover" thing.
 
 When someone professes to cover a cover, I usually find they're just imitating a cover artist's arrangement without bringing anything new or fresh to the table. In the process, they often lose the connection to the original that led the first cover artist to re-arrange it to begin with.

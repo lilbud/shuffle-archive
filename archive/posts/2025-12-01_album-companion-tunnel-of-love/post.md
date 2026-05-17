@@ -24,29 +24,23 @@ At first, the songs featured optimism, or at least acceptance.
 - "Valentine's Day" — the tale of a man who finally finds the strength and motivation to overcome his fear of commitment
 - "Ain't Got You" — a Billy Boy Arnold tribute by a self-mocking songwriter who realizes he's committed to the wrong person
 
-
 As the sessions stretched on toward April, however, Bruce's songs took on more shading. His characters appeared caught in some form of purgatory, forced to make the same choices each day while they become increasingly infected by self-doubt and temptation.
 
 - "Cautious Man" — the *Night of the Hunter* tribute featuring a husband who chooses each day to resist temptation, knowing that he'll eventually decide otherwise
 - "Two Faces" — the Lou Christie tribute (if you haven't realized by now, *Tunnel of Love* is also very much a tribute/homage album) about a man who wrestles with his inner demons daily
 - "Brilliant Disguise" — one of Bruce's masterpieces, about the secrets we keep from each other and the choices we make to see past our insecurities
 
-
 And then there are the songs that take us to the other side of a relationship:
 
 - "When You're Alone" — What do you do when your ex realizes they made a mistake in leaving you?
 - "Tougher Than the Rest," which salutes one of the hardest choices we ever face: to once again risk heartbreak in search of love
-
 
 By the time these songs were in the can, Bruce and his first wife Julianne Phillips had separated, and he had long since taken up with his bandmate, Patti Scialfa. He had two more songs left in him, though, and in his early weeks of separation from Juli, he recorded two of the album's finest tracks:
 
 - "One Step Up," one of the best songs ever written about the moment and the reasons one decides to stray
 - "Tunnel of Love," the title track that celebrates the bravery of committing to love when you've had enough experience to understand exactly what that entails
 
-
 [Watch Video Highlight](https://videopress.com/embed/pXf5J7uB?hd=0&cover=1)
-
-
 
 When it was released in October 1987, *Tunnel of Love* earned critical acclaim for its introspective content on the heels of Bruce's previous album, the poppy, mega-hit *Born in the U.S.A.* Its first two singles ("Brilliant Disguise" and "Tunnel of Love") cracked the Top Ten, and "One Step Up" peaked at #13. The album itself went to #1 in the U.S. and the U.K. and was eventually certified triple platinum.
 

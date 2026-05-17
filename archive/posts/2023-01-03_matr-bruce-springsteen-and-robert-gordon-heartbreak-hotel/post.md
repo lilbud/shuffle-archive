@@ -41,5 +41,3 @@ Almost forty years down the road, Bruce has yet to revisit "Heartbreak Hotel."
 **Heartbreak Hotel**<br>
 **First performed:** December 2, 1977 (New York City, NY)<br>
 **Last performed:** June 13, 1982 (Asbury Park, NJ)<br>
-
-

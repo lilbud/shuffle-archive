@@ -1,7 +1,5 @@
 > In "Drive Fast," I had that metaphor of the stuntman (which is always a metaphor of risk) and this idea that we all have our broken pieces. What frightens and what exhilarates and inspires us are often very close together. Those feelings are the essence of what drives us to risk, in life and in love.
 >
->
->
 > Everybody's broken in some way–physically, emotionally, spiritually. In this life, nobody gets away unhurt. I wrote a song about a guy not just finding the fearlessness to do his job, but the fearlessness to risk being with somebody that you love. We're always trying to find somebody whose broken pieces fit with our broken pieces, and something whole emerges. — Bruce Springsteen, *Western Stars*<br>
 
 This is my sixth *Roll of the Dice* entry for *Western Stars*, and I'm well aware that I've already rated three of the previous five among Bruce's finest songs ever.
@@ -94,7 +92,6 @@ By ending where we began, Bruce is telling us that his character has lived a lif
 That last line of the song–*a steel rod in my leg, but it walks me home* is every bit as beautiful and meaningful and powerful as any Bruce has ever written, and it's a lovely ending to the most romantic song on his warmest album.
 
 ---
-
 
 **Bonus:** While Bruce hasn't performed "Drive Fast (The Stuntman)" in public yet, he did perform it in front of an intimate audience in his barn in the film version of *Western Stars*.
 

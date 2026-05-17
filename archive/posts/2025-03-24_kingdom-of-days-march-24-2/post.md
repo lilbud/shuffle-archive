@@ -10,13 +10,9 @@
 
 [1974-03-24 Phoenix interview by Brucebase Wiki](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F185064103&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 **1977:** Bruce and the E Street Band play their third of four nights at Boston's Music Hall in the final stand of the Lawsuit Tour. This show features the debut of Jackie Wilson's "[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)."
 
 [Watch Video Highlight](https://videopress.com/embed/5budtv00)
-
-
 
 **1980:** At the Power Station in New York City, Bruce and the E Street Band work on "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)."
 

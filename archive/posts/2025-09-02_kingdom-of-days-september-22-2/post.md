@@ -1,12 +1,9 @@
 
-
 *Audio for 1979; video for 1992***New for 2025:**
 
 The Castiles play at a rally dance at West Freehold School.
 
 **1967:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1967-09-22-291x300.jpg?resize=758%2C781)
 
@@ -60,15 +57,9 @@ A bad weather forecast prompts the postponement of a scheduled show at Denver's 
 
 **1985:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-22a-300x157.jpg?resize=758%2C397)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1985-09-22b.jpg?resize=537%2C3159&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1985-0922-300x150.jpg?resize=750%2C375)
 
@@ -151,7 +142,5 @@ One week after wrapping the River Tour, Bruce is back on the circuit–this time
 Bruce holds a second private rehearsal for at Monmouth University.
 
 **2017:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2017-09-22-300x146.jpg?resize=758%2C369)

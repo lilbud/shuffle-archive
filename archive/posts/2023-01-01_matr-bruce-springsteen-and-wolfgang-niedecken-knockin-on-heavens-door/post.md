@@ -35,5 +35,3 @@ Enjoy.
 **Knockin' on Heaven's Door**<br>
 **First performed:** July 9, 1995 (Berlin, Germany)<br>
 **Last performed:** February 6, 2015 (Los Angeles, CA)<br>
-
-

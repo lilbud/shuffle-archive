@@ -1,5 +1,4 @@
 
-
 : As he will recount decades later in , seven-year-old Bruce Springsteen stays up late to watch Elvis Presley perform on the Ed Sullivan show.
 
 **1957***Springsteen on Broadway*
@@ -32,14 +31,10 @@ A newly published telephone poll reveals that 27% of all American adults (+/- 3 
 
 **1987:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/01/poll-Daily_World_Tue__Jan_6__1987_.jpg?w=758&amp;ssl=1)
 
 : Bruce sings "" at the funeral of Kristen Ann Carr, his managers' daughter. After Carr dies of cancer at the age of 21, her family establishes The Kristen Ann Carr Fund to raise money for the fight against cancer. Bruce will play several benefits for the organization over the years that follow.
 
 **1993**[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/carr93-300x143.jpg?resize=758%2C361)

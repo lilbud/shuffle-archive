@@ -1,12 +1,9 @@
 
-
 *Audio for 1990; new entry for 2024***New for 2025:**
 
 Bruce headlines his final show of a three-night stand at My Father's Place in Roslyn, New York.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1973-11-15-300x213.jpg?resize=758%2C538)
 
@@ -14,15 +11,11 @@ Bruce and the E Street Band play a gig at American University in Washington, DC,
 
 **1974:** [Wear My Ring Around Your Neck](http://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1974-11-16.jpg?resize=758%2C640)
 
 Bruce opens his Darkness show in Toronto with his first-ever performance of ""
 
 **1978:** [Ready Teddy.](http://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)<http://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Toronto_Star_Fri__Nov_17__1978_.jpg?resize=758%2C615&amp;ssl=1)
 
@@ -33,8 +26,6 @@ When the Born in the U.S.A. Tour stops at Iowa State University at Ames, Bruce d
 [https://www.youtube.com/embed/YmWslNfHwbw?feature=oembed](https://www.youtube.com/embed/YmWslNfHwbw?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-11-16a-300x166.png?resize=758%2C420)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-11-16b-238x300.png?resize=758%2C955)
 
@@ -70,8 +61,6 @@ Bruce tour premieres "" and plays a rare solo piano "" at his Rising show in Gre
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2002-11-16a.png?resize=457%2C1357&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2002-11-16b.png?resize=456%2C3040&amp;ssl=1)
 
 Bruce opens a two-night solo acoustic stand at the Continental Airlines Arena in East Rutherford, where "" gets a new arrangement on ukulele.
@@ -99,8 +88,6 @@ Bruce releases box set, featuring a new double-album of previously unreleased so
 [https://videopress.com/embed/nyF7ql3o?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nyF7ql3o?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2010-11-16a-300x248.png?resize=758%2C626)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2010-11-16b-148x300.png?resize=758%2C1537)
 

@@ -1,12 +1,9 @@
 
-
 *Video for 2023; new entry for 2024***New for 2025:**
 
 The Castiles play The Cage in Middletown, New Jersey.
 
 **1967:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1967-0318-185x300.jpg?resize=758%2C1230)
 
@@ -14,11 +11,7 @@ Bruce Springsteen meets his future wife when high school student Patti Scialfa a
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1971-0318-198x300.jpg?resize=758%2C1148)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1971-03-18-300x263.jpg?resize=758%2C665)
 
@@ -26,11 +19,9 @@ The Bruce Springsteen Band plays a gig at Hampden-Sydney College in Virginia.
 
 **1972:**<br>
 
-Bruce and his band finish their weeklong stint at Oliver's in Boston with a rare Sunday matinee performance. Following the show, the band drives to the University of Rhode Island for an evening show opening for Sha Na Na. 
+Bruce and his band finish their weeklong stint at Oliver's in Boston with a rare Sunday matinee performance. Following the show, the band drives to the University of Rhode Island for an evening show opening for Sha Na Na.
 
 **1973:** (Photo credit: Bob Savage)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0318-206x300.jpg?resize=758%2C1103)
 
@@ -61,8 +52,6 @@ News coverage from the day:
 [https://www.youtube.com/embed/yx-6qyVaUJA?feature=oembed](https://www.youtube.com/embed/yx-6qyVaUJA?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-18a.jpg?resize=758%2C1439&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1999-03-18b-300x179.jpg?resize=758%2C452)
 
@@ -127,8 +116,6 @@ Bruce and the E Street Band bring their World Tour to Penn State University, whe
 [https://www.youtube.com/embed/3urrJGvMa8Y?feature=oembed](https://www.youtube.com/embed/3urrJGvMa8Y?feature=oembed)
 
 [https://www.youtube.com/embed/bzpVJE1_dGk?feature=oembed](https://www.youtube.com/embed/bzpVJE1_dGk?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-scaled.jpg?resize=758%2C170&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-1-scaled.jpg?resize=758%2C217&amp;ssl=1)
 

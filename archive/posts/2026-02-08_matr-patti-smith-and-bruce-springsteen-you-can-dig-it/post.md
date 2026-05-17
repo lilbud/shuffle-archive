@@ -1,5 +1,4 @@
 
-
 Let's take another trip back to the remarkable night of Friday, November 26, 1976 at the Bottom Line club in New York City.
 
 That night, The Patti Smith Group plays two shows, and Bruce is there for both of them, joining the band on both guitar and piano several times during the evening.

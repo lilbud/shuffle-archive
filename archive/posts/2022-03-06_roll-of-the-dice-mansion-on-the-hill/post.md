@@ -1,7 +1,5 @@
 > "This is a song about when I was a kid. My father was always transfixed… he used to drive me outside of town, there was this nice white house, used to sit up on this hill. Later on, when I thought back on it… as I got older, [the house] took on a lot of meaning for me. It became very mystical, like a touchstone.
 >
->
->
 > Now when I dream, sometimes I'm outside the gates looking in, and sometimes I'm the man inside." — *Bruce Springsteen, June 29, 1984*<br>
 
 In 1886, a Nebraska banker and businessman named Leonidas Brandhoefer was seriously wooing his intended bride-to-be, who lived in Chicago. Determined to impress her with a life of luxury beyond what he could afford in the big city, Brandhoefer moved to the town of Ogallala, where land was cheap and plentiful.

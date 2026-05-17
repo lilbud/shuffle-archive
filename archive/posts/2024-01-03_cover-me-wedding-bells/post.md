@@ -1,5 +1,4 @@
 
-
 "What I've been listening to now… is a lot of Hank Williams. He was fantastic. God, he's just incredible." — *Bruce Springsteen to Ed Sciaky, August 19, 1978*
 
 In the summer of 1978, Bruce Springsteen was practically obsessed with the music of Hank Williams. It was the beginning of his fascination with country music and his determination to infuse some of Hank's spirit into his own material.
@@ -24,7 +23,7 @@ Something in the sad, broken-hearted lyrics of "Wedding Bells" called to Bruce, 
 
 By the autumn, Bruce moved on from his fascination with Hank Williams… on stage, at least. In private, though, Bruce started channeling Williams through his songwriting. The Darkness Tour ended just a few months later, but when Bruce resurfaced at the M.U.S.E. concerts in 1979, he would debut a new song that owed a large debt to Williams.
 
-We'll pick up that story in 
+We'll pick up that story in
 
 [tomorrow's entry.](https://estreetshuffle.com/index.php/2021/02/16/roll-of-the-dice-oh-angelyne/)*Roll of the Dice*
 

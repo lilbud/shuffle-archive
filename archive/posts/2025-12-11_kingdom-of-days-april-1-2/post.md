@@ -1,10 +1,7 @@
 
-
 Bruce and his "strange but adept" band headline a show at Rutgers University.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1973-0401.jpg?resize=758%2C973&amp;ssl=1)
 
@@ -12,15 +9,9 @@ Bruce and the band cancel a scheduled show at Butler University when the school 
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01a.jpg?resize=500%2C213&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-02b.jpg?resize=500%2C224&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01d.jpg?resize=317%2C500&amp;ssl=1)
 

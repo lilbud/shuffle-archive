@@ -1,5 +1,4 @@
 
-
 You know the rule: Do it better, or do it different.
 
 When it comes to this gender-flipped version of "" by the U.K. disco duo Rhonda… well, it's different.

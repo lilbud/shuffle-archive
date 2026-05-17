@@ -29,9 +29,9 @@ It's not entirely clear which direction Bruce was planning to take this song, bu
 > *Now you know God is groovy and Jesus is just alright*
 > *but it's more fun playing music and sleeping with girls all night*
 
-**Untitled (Turn Around)**  
+**Untitled (Turn Around)**
 **Never recorded**<br>
-**Never released**  
+**Never released**
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

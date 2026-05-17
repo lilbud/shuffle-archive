@@ -1,5 +1,4 @@
 
-
 *New entry for 1969, 1980, and 1983; video for 1999***New for 2025:**
 
 Child performs at Hullabaloo in Asbury Park.
@@ -10,19 +9,13 @@ Bruce and the still-unnamed E Street Band perform a truncated show (for fire saf
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0420-300x269.jpg?resize=758%2C679)
 
 Bruce and the band play a sparsely attended show at the Freedom Hall Civic Center in Johnson City, Tennessee.
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-04-20-172x300.jpg?resize=758%2C1322)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1976-04-20b.jpg?resize=758%2C1172&amp;ssl=1)
 
@@ -94,8 +87,6 @@ The first public warm-up show for the Seeger Sessions Tour features the premiere
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2006-04-20a.jpg?resize=758%2C1506&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2006-04-20b-300x272.jpg?resize=758%2C687)
 
 Bruce attends (but does not perform at) the annual Kirsten Ann Carr Fund event.
@@ -117,7 +108,5 @@ At Baltimore's River show, "" features one of what turns into several marriage p
 continues its theatrical run at the Walter Kerr Theater in New York City. Eddie Vedder, Steven Tyler and actress Connie Britton are in attendance tonight for the last show before a two-week break.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/04/connie-britton-300x209.jpg?resize=706%2C492)

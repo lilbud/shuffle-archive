@@ -1,5 +1,4 @@
 
-
 Kaiak is a folk/indie/pop team-up of Swedish musicians Emil Gullhamn and Marcos Ubeda.
 
 Emil and Marcos draw the inspiration for their music from nature, friends, and "really good coffee."

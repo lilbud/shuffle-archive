@@ -1,5 +1,4 @@
 
-
 I don't second guess Bruce's choices very often. He's the artist, and I'm not even a musician.
 
 Still, I shake my head in wonder and that he ever thought it was a good idea to arrange "Dancing in the Street" as a Steel Mill guitar jam.

@@ -18,8 +18,6 @@ Things were a bit more relaxed the next time Bruce and John joined forces on "Gr
 
 [Watch Video Highlight](https://videopress.com/embed/NBTpKUzm?at=368&hd=0&cover=1)
 
-
-
 Bruce was a little more into it that night but still ceded the spotlight to Fogerty. (It was his party, after all.)
 
 But like I said at the top: the third time's the charm.

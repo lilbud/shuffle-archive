@@ -1,5 +1,4 @@
 
-
 Singer, songwriter, and multi-instrumentalist Phil Beer is no stranger to Bruce Springsteen's catalog, having played covers of Bruce's music at least as far back as his Albion Band days a couple of decades ago.
 
 Even today, he's likely to feature songs like "" and "" in his acoustic sets.

@@ -1,5 +1,4 @@
 
-
 It's always a fun moment when "Burning Love" shows up in the setlist. Arthur Alexander's 1972 brassy, swinging classic (made famous when Elvis Presley covered it shortly after) is perfectly suited for the super-sized E Street Band of recent years.
 
 Here's Bruce covering it in Nashville in 2014:

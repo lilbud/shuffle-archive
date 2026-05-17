@@ -1,5 +1,4 @@
 
-
 *Review for 1975 and 1978***New for 2025:**
 
 Bruce plays his first ever show in California, at the Esalen Institute in Big Sur. He unexpectedly encounters a Freehold friend, Richard Blackwell, who sits in with the band during their New Years Eve gig.
@@ -20,8 +19,6 @@ Bruce and the E Street Band wrap up 1975 with a magnificent show at Philadelphia
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1975-12-31.png?resize=758%2C1038&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/12/The_Philadelphia_Inquirer_1976_01_01_Page_22.jpg?resize=758%2C757&amp;ssl=1)
 
 Bruce and the E Street Band join Southside Johnny and The Asbury Jukes on stage at the Capitol Theater in Passaic to close out 1977 in style. Bruce and the boys stick around to play a few songs of their own, including a "" performance that leads off with the very first prototype of "" in a one-time-only arrangement.
@@ -33,8 +30,6 @@ Bruce and the E Street Band join Southside Johnny and The Asbury Jukes on stage 
 [https://www.youtube.com/embed/36xjaG4ZBd4?feature=oembed](https://www.youtube.com/embed/36xjaG4ZBd4?feature=oembed)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1977-12-31.png?resize=758%2C1430&amp;ssl=1)
 
@@ -49,8 +44,6 @@ Bruce and the E Street Band play their last show of the year in Richfield, Ohio.
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCxLikrP0wQCnX0bD04oaAt](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCxLikrP0wQCnX0bD04oaAt)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/12/The_Cleveland_Press_1979_01_04_51.jpg?resize=758%2C633&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1978-12-31.png?resize=758%2C1849&amp;ssl=1)
 
@@ -81,8 +74,6 @@ Bruce and the boys close out the year with one of their most legendary, most doc
 Steve Van Zandt marries Maureen Santoro, and Bruce serves as best man. At the reception, Bruce, the E Street Band, Southside Johnny, and Gary U.S. Bonds join the wedding band for six songs including Bruce's own "" and "."
 
 **1982:** [I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1982-1231-178x300.jpg?resize=758%2C1278)
 

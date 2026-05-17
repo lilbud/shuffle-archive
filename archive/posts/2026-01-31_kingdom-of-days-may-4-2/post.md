@@ -1,10 +1,7 @@
 
-
 E Street Band violinist Soozie Tyrell is born in Pisa, Italy.
 
 **1957:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/soozie.jpg?resize=532%2C322&amp;ssl=1)
 
@@ -12,15 +9,11 @@ Child plays an outdoor set at West End Park in Long Branch, New Jersey. (Note: B
 
 **1969:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Asbury_Park_Press_Mon__May_5__1969_-1-scaled.jpg?resize=758%2C1234&amp;ssl=1)
 
 Bruce and the E Street Band headline Montclair State University's Spring Carnival, opening with "New York City Serenade."
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0504.jpg?resize=758%2C533&amp;ssl=1)
 
@@ -31,8 +24,6 @@ At a recording session at the Record Plant in New York City, Bruce works on "Lon
 Bruce plays his first-ever show in Mississippi, at the Coliseum in Jackson.
 
 **1976:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-05-04.jpg?resize=758%2C729&amp;ssl=1)
 
@@ -61,8 +52,6 @@ Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the
 [https://www.youtube.com/embed/4hAAehP6UxM?feature=oembed](https://www.youtube.com/embed/4hAAehP6UxM?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-05-04a.jpg?resize=758%2C347&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-04b.jpg?resize=758%2C671&amp;ssl=1)
 

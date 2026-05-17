@@ -21,5 +21,3 @@ Oh, and Bruce Springsteen of course. Bruce stays in the background on rhythm gui
 **Candy Man**<br>
 **First performed:** September 30, 1987 (Los Angeles, CA)<br>
 **Last performed:** September 30, 1987 (Los Angeles, CA)<br>
-
-

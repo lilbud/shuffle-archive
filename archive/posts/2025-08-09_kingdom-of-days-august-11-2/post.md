@@ -1,20 +1,15 @@
 
-
 *New entry for 1977; audio for 2003***New for 2025:**
 
 Bruce plays his third of six two-shows-a-night solo gigs at Max's Kansas City that week.
 
 **1972:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11-300x191.jpg?resize=758%2C482)
 
 : Bruce cancels a gig at the Cambridge Performance Center to make room for recording sessions.
 
 **1974***Born to Run*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1974-08-11-174x300.jpg?resize=758%2C1306)
 
@@ -44,8 +39,6 @@ At Pittsburgh's Three Rivers Stadium, Nils and Roy miss their signal to take the
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1985-08-11a.jpg?resize=758%2C798&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1985-08-11b.jpg?resize=758%2C2165&amp;ssl=1)
 
 Bruce makes a surprise guest appearance at the Garden State Arts Center in Holmdel, joining Ringo Starr and His All Starr Band (including Nils and Clarence) for the encores of "," "," "" and "."
@@ -59,8 +52,6 @@ Bruce makes a surprise guest appearance at the Garden State Arts Center in Holmd
 [https://www.youtube.com/embed/vqMxTWqVoYM?feature=oembed](https://www.youtube.com/embed/vqMxTWqVoYM?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1989-08-11a-297x300.png?resize=758%2C766)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1989-08-11b-300x300.png?resize=758%2C758)
 

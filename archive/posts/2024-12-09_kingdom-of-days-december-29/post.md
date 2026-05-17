@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2024:**
 
 Bruce plays in Ohio for the first time, when he and the band open for Sha Na Na in Dayton.
 
 **1972:** ~~Rick~~
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/1972-12-29-300x260.jpg?resize=758%2C657)
 
@@ -18,15 +15,11 @@ Bruce makes a guest appearance with Southside Johnny and Steve Van Zandt's Black
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/1974-12-29-300x234.jpg?resize=758%2C591)
 
 On his night off during his three-night stand in Philadelphia, Bruce takes in the J. Geils Band show at the Spectrum from the press box (along with actress Faye Dunaway).
 
 **1975:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1975-12-29.png?resize=758%2C936&amp;ssl=1)
 

@@ -1,12 +1,9 @@
 
-
 *Video for 2004 and 2006***New for 2025:**
 
 : Bruce and the E Street Band perform their one-time-only cover of "Twistin' the Night Away" at Albright College in Reading, Pennsylvania.
 
 **1974**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1974-1005-232x300.jpg?resize=758%2C980)
 
@@ -30,8 +27,6 @@ Bruce and the band (except for Steven) head backstage at the Cleveland Music Hal
 
 **1980:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/10/1979-10-05a.jpg?resize=375%2C500&amp;ssl=1)
 
 Bruce releases his eighth studio album, , to much less fanfare than greeted his previous box set–a fact that almost every news report mentions.
@@ -43,8 +38,6 @@ Bruce releases his eighth studio album, , to much less fanfare than greeted his 
 [https://www.youtube.com/embed/TxNmDrDz9jM?feature=oembed](https://www.youtube.com/embed/TxNmDrDz9jM?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1987-10-05a-300x290.jpg?resize=758%2C732)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1987-10-05b-300x177.jpg?resize=758%2C447)
 
@@ -92,8 +85,6 @@ The young Magic Tour rolls into Philadelphia for its first two-night stand. Nigh
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2007-10-05a-300x249.jpg?resize=758%2C629)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2007-10-05b-139x300.jpg?resize=758%2C1636)
 
 Bruce appears at a rally for presidential candidate Barack Obama at Ohio State University in Columbus, where Bruce opens with a partial "Mr. Spaceman" in honor of former senator and astronaut John Glenn.
@@ -123,7 +114,5 @@ Bruce makes a small tweak in , swapping out "" for "" as previews continue. In a
 continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce plays his "B" setlist that includes "" and "This Hard Land" in place of his two duets with Patti. In attendance tonight: John Mayer.
 
 **2018:** *Springsteen on Broadway* [Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/johnmayer-300x278.jpg?resize=758%2C702)

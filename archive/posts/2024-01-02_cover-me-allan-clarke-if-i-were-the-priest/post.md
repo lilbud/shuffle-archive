@@ -33,5 +33,3 @@ Bruce may have wished he could put that genie back in the bottle, but we can hea
 With 46 years between Clarke's cover and Bruce's own version, "If I Were the Priest" holds the record for the longest head start for a Springsteen cover.
 
 (You can hear Clarke's cover of "Born to Run" [here](https://estreetshuffle.com/index.php/2018/04/30/cover-me-allan-clarke-born-to-run/).)
-
-

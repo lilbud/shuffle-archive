@@ -6,8 +6,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/IvoYACpv)
 
-
-
 **1973:** Bruce and the E Street Band open for Chicago at the Onondaga County War Memorial Auditorium in Syracuse, New York. The local paper mis-identifies Bruce, and they aren't even close: somehow, they refer to him as "Bris Christy." Mr. Reschke didn't do so well with the song titles, either. See if you can figure out the songs Bruce actually played below.
 
 ![](../../assets/2025/06/Syracuse_Herald_Journal_1973_06_08_16-scaled.jpg)

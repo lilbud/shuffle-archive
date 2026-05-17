@@ -1,24 +1,17 @@
 
-
 *New entry for 1983 and 2013; video for 2009; review for 2012***New for 2025:**
 
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1971-04-16-300x181.jpg?resize=758%2C457)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1971-0416-263x300.jpg?resize=758%2C865)
 
 Bruce and the E Street Band play Allegheny College in Meadville, Pennsylvania. The school paper pans the concert by two different reviewers.
 
 **1976:** *twice*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0416-284x300.jpg?resize=749%2C791)
 
@@ -58,15 +51,11 @@ Bruce plays the first of two shows at Royal Albert Hall in London and premieres 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1996-04-16a-1.jpg?resize=758%2C906&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1996-04-16b-1.jpg?resize=758%2C1132&amp;ssl=1)
 
 Bruce endorses Senator Barack Obama for president of the United States in an endorsement on his web site. Later, at Sloan-Kettering Hospital in New York City, Bruce and the E Street Band gather at the bedside of ailing bandmate Danny Federici to say their final goodbyes and sing together one last time.
 
 **2008:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-04-16-277x300.jpg?resize=758%2C821)
 
@@ -88,14 +77,10 @@ Albany's Wrecking Ball show includes a rare, solo acoustic "" played by request,
 
 [https://videopress.com/embed/c0DmZePn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/c0DmZePn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G1-scaled.jpg?resize=758%2C1666&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3.jpg?resize=758%2C1228&amp;ssl=1)
 
 Bruce, Patti, and Little Steven attend opening night of on Broadway.
 
 **2013:** *The Rascals: Once Upon a Dream*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/medium-4.jpg?resize=500%2C333&amp;ssl=1)

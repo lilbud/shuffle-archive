@@ -1,5 +1,4 @@
 
-
 The first time Bruce Springsteen played "The Last Time" was in Atlanta in 1978. (It's a terrible recording, though, so I'll spare you from listening to it.)
 
 The next time Bruce played "The Last Time" was the very last night of the Darkness Tour–New Years Day, 1979. (That recording is just fine.)

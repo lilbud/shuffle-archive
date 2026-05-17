@@ -1,12 +1,9 @@
 
-
 *New entry for 1979, 1982, 1983, and 2024; audio for 1993, 1999, and 2008***New for 2025:**
 
 Bruce plays the second of three nights at Childe Harold in Washington, DC.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1973-0525-300x170.jpg?resize=758%2C429)
 

@@ -9,5 +9,3 @@ Not many fans would rank "[The Angel](https://estreetshuffle.com/index.php/2020/
 That's a seriously good arrangement and performance–so much so that it I wish Bruce would give it a go in concert next time around.
 
 If anyone has any other information about this band, I'd love to know.
-
-

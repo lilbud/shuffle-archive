@@ -1,5 +1,4 @@
 
-
 She's much better known as an actress, but Minnie Driver's also a singer-songwriter with three albums under her belt.
 
 Minnie released her first album, in 2004. Accompanying the ten original compositions on that album is a lovely cover of Bruce's ""

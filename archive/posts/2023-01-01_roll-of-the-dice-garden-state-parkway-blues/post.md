@@ -260,7 +260,7 @@ But the recurring "Kitty" riff that unites the segments argues for consideration
 > *We're gonna take you for one more ride*<br>
 > *So fasten your seatbelts, 'cause we're gonna fly, hey!*<br>
 
-The Kitty riff returns with a vengeance as the band plays out and brings our epic journey to a close. 
+The Kitty riff returns with a vengeance as the band plays out and brings our epic journey to a close.
 
 Whew!
 

@@ -1,5 +1,4 @@
 
-
 Founding E Street Band member "Phantom" Dan Federici is born in Flemington, New Jersey.
 
 **1950:**<br>
@@ -11,8 +10,6 @@ At the Upstage in Asbury Park, Steel Mill plays its final gig. Listen in on thre
 [https://www.youtube.com/embed/RJUvc_TRTHs?feature=oembed](https://www.youtube.com/embed/RJUvc_TRTHs?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1971-0123a-213x300.jpg?resize=758%2C1070)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1971-01-22-300x138.jpg?resize=758%2C349)
 
@@ -28,15 +25,9 @@ The original River Tour continues its Canadian leg with a stop at the Montreal F
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1996-01-23a-233x300.jpg?resize=758%2C976)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/monreal81.jpg?resize=382%2C1071&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1981-01-23.png?resize=758%2C462&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/soup-300x202.jpg?resize=758%2C511)
 

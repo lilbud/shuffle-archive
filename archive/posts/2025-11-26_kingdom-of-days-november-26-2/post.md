@@ -74,8 +74,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/tKxNYA4j)
 
-
-
 ![](../../assets/2020/11/2012-11-26a-1.png)
 
 ![](../../assets/2020/11/2012-11-26b.png)

@@ -74,7 +74,6 @@ Even though it was the first new studio track from Bruce Springsteen since the m
 
 ---
 
-
 During the 1988 Tunnel of Love Express Tour, Bruce leaned hard into the Bo Diddley beat, arranging "I Ain't Got You" as a simmering medley seamlessly melded with (what else) "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)."
 
 [Watch on Youtube: Bruce Springsteen "She's the One " LA 4-23-88](https://www.youtube.com/watch?v=oPSms2LwPkI)

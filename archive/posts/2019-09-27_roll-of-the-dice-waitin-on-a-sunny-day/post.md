@@ -111,7 +111,6 @@ There may come a day when the name and music of Bruce Springsteen are all but fo
 
 ---
 
-
 **Bonus:** Here's the acoustic performance that followed Bruce's VH1 Storytellers spiel that opened this essay. It's a one-off arrangement, but it's absolutely lovely.
 
 [Watch on Youtube: Bruce Springsteen - Waitin' On A Sunny Day - The Song (From VH1 Storytellers)](https://www.youtube.com/watch?v=6we0bK-XZaU)

@@ -1,5 +1,4 @@
 
-
 *Audio for 2006; review for 2012; new entry for 2024***New for 2025:**
 
 Clarence Clemons plays his final show with Norman Selden's Joyful Noyze at the Club Plaza in Bayville, New Jersey. Four days later, he will perform as a member of Bruce Springsteen's new band.
@@ -9,8 +8,6 @@ Clarence Clemons plays his final show with Norman Selden's Joyful Noyze at the C
 Bruce postpones a scheduled show at Camden County College to exactly a month later.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1974-1021-196x300.jpg?resize=758%2C1163)
 
@@ -22,15 +19,9 @@ Bruce and the E Street Band play their first of two Born in the U.S.A. shows at 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1984-1001.jpg?resize=758%2C779&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-21a-1-300x298.png?resize=758%2C753)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-21b-300x287.png?resize=758%2C725)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-21c-300x75.png?resize=758%2C190)
 
@@ -41,8 +32,6 @@ Bruce and his new touring band play their first of two nights at Mountain View's
 [https://videopress.com/embed/gPmGIaLQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gPmGIaLQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1992-10-21a.png?resize=758%2C1099&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-10-21b-300x70.png?resize=758%2C177)
 
@@ -86,11 +75,7 @@ Bruce, Patti, Max, and Jon Bon Jovi perform a cover set at a charity benefit/auc
 
 **2000:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2000-10-21a-182x300.png?resize=758%2C1250)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2000-10-21b-300x116.png?resize=758%2C293)
 
@@ -118,8 +103,6 @@ Bruce and the E Street Band bring the Magic Tour to Chicago's United Center for 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-21a-300x110.png?resize=758%2C278)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-21b-246x300.png?resize=758%2C924)
 
 Bruce and the band play a Wrecking Ball show at Copps Coliseum in Hamilton, Ontario, where Bruce tour premieres "" in tribute to an 11-year-old girl who recently passed away.
@@ -136,8 +119,6 @@ Bruce and the band play a Wrecking Ball show at Copps Coliseum in Hamilton, Onta
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/The_Hamilton_Spectator_2012_10_25_1.jpg?w=758&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/The_Hamilton_Spectator_2012_10_25_2.jpg?resize=758%2C1367&amp;ssl=1)
 
 Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.
@@ -152,7 +133,7 @@ Bruce appears on as part of his promotional tour for .
 
 [https://www.youtube.com/embed/JujARMOYFHI?feature=oembed](https://www.youtube.com/embed/JujARMOYFHI?feature=oembed)
 
-E Street Radio airs Episode 3 of , featuring a conversation between Bruce and Brandon Flowers. That evening, Bruce appears on 
+E Street Radio airs Episode 3 of , featuring a conversation between Bruce and Brandon Flowers. That evening, Bruce appears on
 
 **2020:** *Letter to You Radio**The Late Show with Stephen Colbert.*<https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-21-LTY-Radio-3-Bruce-Brandon-Flowers.mp3>
 

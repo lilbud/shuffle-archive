@@ -1,5 +1,4 @@
 
-
 *Audio for 1976 and 1977; review for 2002 and 2007; new entry for 2024***New for 2025:**
 
 Tinker West drives Bruce to New York City to introduce him to future manager Mike Appel. Bruce performs a few songs for Appel on piano and acoustic guitar, including "," which Bruce will officially release 49 years later, and "," which fails to impress. Bruce and Appel agree to touch base again someday, but their next meeting won't happen for another four months.
@@ -40,8 +39,6 @@ Bruce and the E Street Band play a Darkness Tour show at the University of Vermo
 
 **1978:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1978-11-04-166x300.png?resize=758%2C1370)
 
 Bruce and the band wrap up their seven-night Born in the U.S.A. Tour stand at the L.A. Memorial Sports Arena, where Bruce dedicates "" to Ron Kovic (who is in attendance). The official video for "" is filmed at this show.
@@ -54,11 +51,7 @@ Bruce joins Clarence Clemons on stage at Club 251 in West Palm Beach, Florida, f
 
 **1998:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1998-11-06a-300x236.png?resize=758%2C596)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1998-11-06b-300x197.png?resize=758%2C498)
 
@@ -66,11 +59,9 @@ Patti Scialfa has a perforated eardrum, forcing Bruce to postpone a scheduled Re
 
 **1999:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-11-03-300x123.png?resize=758%2C311)
 
-At the 53rd Annual Emmy Awards, is nominated for Outstanding Variety, Music, or Comedy Special but loses to . Chris Hilson is also nominated as Best Director for but loses to David Mallet, the director of 
+At the 53rd Annual Emmy Awards, is nominated for Outstanding Variety, Music, or Comedy Special but loses to . Chris Hilson is also nominated as Best Director for but loses to David Mallet, the director of
 
 **2001:** *Live in New York City**Cirque du Soleil: Dralion**Live in New York City**Cirque du Soleil: Dralion.*
 
@@ -90,11 +81,7 @@ Tampa gets a River-heavy Devils and Dust show, with "," "" "" "," and "" all mak
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-11-04a-300x178.png?resize=758%2C450)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/2005-11-04b.png?resize=758%2C1322&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/45615142024_ddbfa16a01_o-250x300.jpg?resize=758%2C909)
 
@@ -145,8 +132,6 @@ Almost one year to the days, Bruce and Joe Grushecky reprise their pair of Soldi
 Bruce becomes a published author when his children's book arrives on bookstore shelves.
 
 **2014:** *Outlaw Pete*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2014-11-04-246x300.png?resize=758%2C924)
 

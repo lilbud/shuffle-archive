@@ -65,7 +65,6 @@ The Wrestler knows he's impaired. He knows he's self-impaired, in fact. But he p
 
 ---
 
-
 Bruce's lyrics deservedly command most of the listener's attention, but "The Wrestler" is one of the songs in Bruce's catalog where lyrics, music, and even video combine to create essential art.
 
 Musically, this is a Springsteen solo project–Bruce plays every instrument on the track, including the piano.

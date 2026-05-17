@@ -1,12 +1,9 @@
 
-
 *New entry for 1977; audio for 2002 and 2008***New for 2025:**
 
 Bruce and the E Street Band (although they aren't known by that name yet) play two shows on their final night of a three-night stand at My Father's Place in Roslyn, New York.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/1973-0802-300x191.jpg?resize=758%2C483)
 
@@ -24,8 +21,6 @@ Bruce and the band play their second of six nights at the Monmouth Arts Center i
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1976-08-02-300x269.png?resize=758%2C680)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1976-0802-300x214.jpg?resize=737%2C526)
 
 Bruce and the E Street Band work on "Racing in the Street" at Atlantic Studios in New York City.
@@ -36,27 +31,19 @@ Bruce opens his Darkness show in Charlotte with the tour premiere of "."
 
 **1978:** [Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1978-0802-270x300.jpg?resize=758%2C842)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1978-08-03a-300x257.png?resize=758%2C649)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1978-08-02b.png?resize=758%2C1250&amp;ssl=1)
 
-Bruce joins Jackson Browne on stage at Jackson's Madison Square Garden gig, where they play "" "" and "" together. Jackson dedicates "For a Rocker" and "Lawyers in Love" to Bruce as well. 
+Bruce joins Jackson Browne on stage at Jackson's Madison Square Garden gig, where they play "" "" and "" together. Jackson dedicates "For a Rocker" and "Lawyers in Love" to Bruce as well.
 
 **1983:** [Stay,](http://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)[Running on Empty,](https://estreetshuffle.com/index.php/2021/03/24/matr-jackson-browne-and-bruce-springsteen-running-on-empty/)[Sweet Little Sixteen](http://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)(Photo credit: Dari)
 
 [https://videopress.com/embed/yuChnbxK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yuChnbxK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1983-08-02-300x174.png?resize=758%2C439)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1983-0802.jpg?resize=758%2C1144)
 

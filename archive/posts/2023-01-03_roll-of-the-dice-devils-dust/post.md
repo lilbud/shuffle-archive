@@ -114,7 +114,6 @@ Because there will be moments when we are called upon to make split-second decis
 
 ---
 
-
 We tend to think of "Devils & Dust" as an acoustic track, even though a number of musicians appear on the track, including a string section and horn players. That's probably because for the first year or so following its release, Bruce only performed it acoustically.
 
 [Watch on Youtube: Bruce Springsteen - Devils & Dust ("Bring 'em Home!")](https://www.youtube.com/watch?v=dASrcgK6ayU)

@@ -1,20 +1,15 @@
 
-
 *Video for 2023***New for 2025:**
 
 Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, their fifth of seven straight nights.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-190x300.jpg?resize=758%2C1194)
 
 Bruce and the band play their second of two nights at Armadillo World Headquarters in Austin.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/47802963802_7161fc584d_o-127x300.jpg?resize=758%2C1790)
 

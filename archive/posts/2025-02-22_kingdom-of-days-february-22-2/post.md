@@ -52,10 +52,6 @@
 
 [Spotify Embed: Renegades: Born in the USA Trailer](https://open.spotify.com/embed/episode/7BkRSahmh3pnst36NNDf5e?si=43141c3fd9214a96&utm_source=oembed)
 
-
-
 [Spotify Embed: Our Unlikely Friendship](https://open.spotify.com/embed/episode/7tXg9vz5UMcgWauAqOlQVv?si=7b18ba5445034a95&utm_source=oembed)
-
-
 
 [Spotify Embed: Race in the United States](https://open.spotify.com/embed/episode/1CDiH5BkB1AyZ2q4SWbxG3?si=722e16a8f3904cd3&utm_source=oembed)

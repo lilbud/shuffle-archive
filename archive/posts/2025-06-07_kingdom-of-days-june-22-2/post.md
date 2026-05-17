@@ -1,5 +1,4 @@
 
-
 *New entry for 1969 and 2024; expanded entry for 1973***New for 2025:**
 
 The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank, New Jersey.
@@ -14,23 +13,17 @@ Steel Mill headlines a show at the Clearwater Swim Club in Atlantic Highlands, N
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1970-06-22.jpg?resize=601%2C2539&amp;ssl=1)
 
 Bruce and his band gather at 914 Sound Studios in Blauvelt, New York to kick off recording sessions for what will become . That evening, David Sancious makes his E Street Band debut at the band's gig at Fat City in Seaside Heights, New Jersey.
 
 **1973:** *The Wild, The Innocent, and The E Street Shuffle*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1973-0622-300x175.jpg?resize=758%2C442)
 
 Bruce and the E Street Band play two shows on their second of three consecutive nights at Le Garage on Long Beach Island.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1974-0622-208x300.jpg?resize=727%2C1048)
 

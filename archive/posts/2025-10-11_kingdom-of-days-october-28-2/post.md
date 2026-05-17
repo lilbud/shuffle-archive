@@ -1,12 +1,9 @@
 
-
 *Audio for 1976; new entry for 2024***New for 2025:**
 
 The still-unnamed E Street Band makes its concert debut as the Greetings from Asbury Park Tour kicks off with Bruce's first-ever show in Pennsylvania, where they open for Cheech & Chong at West Chester College. Bruce was a late addition by the school, and Cheech & Chong's manager does not approve. He forces the school to end Bruce's set early.
 
 **1972:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1972-1028-300x195.jpg?resize=758%2C492)
 
@@ -17,8 +14,6 @@ Bruce and the E Street Band kick off a six-night stand at the Palladium in New Y
 [https://www.youtube.com/embed/6AK0OSiwTLY?feature=oembed](https://www.youtube.com/embed/6AK0OSiwTLY?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1976-10-28-300x243.png?resize=758%2C614)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/47579847782_3533f2d6a5_o-300x201.jpg?resize=758%2C508)
 
@@ -42,8 +37,6 @@ Bruce takes ill with a sore throat and postpones his scheduled show in St. Louis
 
 **1992:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-10-28-300x170.png?resize=758%2C430)
 
 Bruce makes a return engagement at Neil Young's Bridge School Benefit in Mountain View, playing a solo set that features the live debuts of "" and "," and joining Neil, Chrissie Hynde, Hootie & the Blowfish, Steven Tyler, Beck, and Emmylou Harris for a show-closing "."
@@ -58,19 +51,13 @@ Bruce makes a return engagement at Neil Young's Bridge School Benefit in Mountai
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1995-10-28a.png?resize=758%2C1477&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-28b-300x184.png?resize=758%2C465)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/46789999821_90b1261a05_o-264x300.jpg?resize=758%2C861)
 
 Bruce plays a solo acoustic show at the Arlene Schnitzer Concert Hall (formerly the Paramount Theater) in Portland, Oregon.
 
 **1996:** <http://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-10-28.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/The_Oregonian_1996_10_29_27.jpg?w=758&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/The_Oregonian_1996_10_29_29.jpg?resize=758%2C301&amp;ssl=1)
 
@@ -92,11 +79,7 @@ Bruce performs "" and "" at two rallies for presidential candidate John Kerry, t
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2004-10-28-246x300.jpg?resize=758%2C921)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2004-10-28a-300x296.png?resize=758%2C748)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2004-10-28b-188x300.png?resize=758%2C1209)
 
@@ -107,8 +90,6 @@ Bruce's solo acoustic show at the TD Banknorth Garden in Boston is filmed but re
 [https://www.youtube.com/embed/AvYK0CaeORU?feature=oembed](https://www.youtube.com/embed/AvYK0CaeORU?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-10-28a-127x300.png?resize=758%2C1791)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2005-10-28b.png?resize=758%2C1819&amp;ssl=1)
 
@@ -146,7 +127,7 @@ Bruce releases the third advance single from his upcoming album: "."
 
 [https://www.youtube.com/embed/6bM3L296ZNw?feature=oembed](https://www.youtube.com/embed/6bM3L296ZNw?feature=oembed)
 
-Bruce makes a surprise appearance at Monmouth University during the Springsteen Archives' symposium celebrating the 50th anniversary of 
+Bruce makes a surprise appearance at Monmouth University during the Springsteen Archives' symposium celebrating the 50th anniversary of
 
 **2023:** *The Wild, The Innocent & The E Street Shuffle.*
 
@@ -156,7 +137,7 @@ Bruce makes a surprise appearance at Monmouth University during the Springsteen 
 
 [https://www.youtube.com/embed/eUJrkHHVpXs?feature=oembed](https://www.youtube.com/embed/eUJrkHHVpXs?feature=oembed)
 
-Bruce performs at a Philadelphia rally for Vice President (and presidential candidate) Kamala Harris. Back home in New Jersey, filming begins for the upcoming film, 
+Bruce performs at a Philadelphia rally for Vice President (and presidential candidate) Kamala Harris. Back home in New Jersey, filming begins for the upcoming film,
 
 **2024:** *Springsteen: Deliver Me From Nowhere.*
 

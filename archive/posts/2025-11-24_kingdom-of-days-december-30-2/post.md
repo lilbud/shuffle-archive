@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 Bruce and the E Street Band open for Sha Na Na at the Ohio Theater in Columbus.
@@ -9,8 +8,6 @@ Bruce and the E Street Band open for Sha Na Na at the Ohio Theater in Columbus.
 Bruce and the band play two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1973-1230.jpg?resize=758%2C436)
 
@@ -27,8 +24,6 @@ It's the world premiere of "Because the Night," played for the very first time a
 [https://www.youtube.com/embed/UUhmhPSeH5M?feature=oembed](https://www.youtube.com/embed/UUhmhPSeH5M?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/46685559725_88b299cdb8-198x300.jpg?resize=758%2C1148)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1977-12-30.png?resize=758%2C839&amp;ssl=1)
 
@@ -55,7 +50,5 @@ The soundtrack for the film is released, featuring a song Bruce wrote for the mo
 continues its theatrical run at the Walter Kerr Theater in New York City, still using the "B" set list due to Patti's illness. In attendance tonight: shoe designer Faryl Morse.
 
 **2017:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/38699365124_d32170519c-248x300.jpg?resize=758%2C917)

@@ -1,5 +1,4 @@
 
-
 Steel Mill plays the College of Marin during their California sojourn.
 
 **1970:**<br>
@@ -36,8 +35,6 @@ Bruce debuts a new song, "," at the first of two nights at the Fox Theater in De
 
 **1996:**[Sell It and They Will Come](http://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)<http://estreetshuffle.com/wp-content/uploads/2018/01/109-Sell-It-and-They-will-Come-online-audio-converter.com_.mp3>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Detroit_Free_Press_1996_01_12_Page_56.jpg?resize=758%2C723&amp;ssl=1)
 
 Days before the release of , Bruce calls into E Street Radio for a lengthy interview. Listen to the entire conversation below.
@@ -47,8 +44,6 @@ Days before the release of , Bruce calls into E Street Radio for a lengthy inter
 : Bob Santelli interviews Bruce on stage at Monmouth University.
 
 **2017**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/santelli17-300x281.jpg?resize=758%2C710)
 

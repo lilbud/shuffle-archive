@@ -66,7 +66,7 @@ Billy isn't the point-of-view character here, though–our couple are just bysta
 
 But the preacher isn't in church–this isn't his place of authority, and the resentment that's been building in our hero boils over. He's guilty of nothing worse than offering his girl a cigarette, but he knows he's about to be deemed guilty by association and proximity.
 
-Well now your lips they shine in the willow mist  
+Well now your lips they shine in the willow mist
 And I swear I'd take your daddy on, girl, for just one kiss
 
 Will our hero stand his ground? Will he fight for the right to see his girl? Or will he swallow his pride and bow to authority?
@@ -85,7 +85,7 @@ Actually, we don't have to imagine–while Bruce has never performed "Preacher's
 
 "Preacher's Daughter" still resides in that legendary vault of Bruce's, so maybe we'll see an official release someday in that mythical *Tracks II*.
 
-**Preacher's Daughter****Recorded:** October 27, 1977  
+**Preacher's Daughter****Recorded:** October 27, 1977
 **Never Released**<br>
 Never** **Performed** (in full, at least)
 

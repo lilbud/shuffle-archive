@@ -46,8 +46,6 @@ That evening, Bruce and the (still unnamed) E Street Band play two shows at Libe
 
 [Spotify Embed: Traveling the U.S. & Finding Home](https://open.spotify.com/embed/episode/25YjJeERNhvygT4kXBzY4o?si=80ef3d4930854203&utm_source=oembed)
 
-
-
 **2022:** At the Fire Department Building in his hometown of Freehold, Bruce appears at a community event announcing the development of *My Hometown: The Bruce Springsteen Story Center*, slated to open in that space in 2024.
 
 [Watch on Youtube: Bruce Springsteen in Freehold today. March 8th 2022.](https://www.youtube.com/watch?v=L8QCaf28KRU)

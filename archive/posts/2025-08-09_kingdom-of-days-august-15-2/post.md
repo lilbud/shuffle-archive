@@ -1,5 +1,4 @@
 
-
 *New entry for 1977 and 2024; audio for 1985; video for 2008***New for 2025:**
 
 Child plays a gig at the Student Prince in Asbury Park.
@@ -40,8 +39,6 @@ Bruce and the E Street Band play their second of two nights at Philadelphia's Ve
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-08-15a-265x300.png?resize=758%2C858)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-08-15b-300x161.png?resize=758%2C407)
 
 Bruce brings the Rising Tour to Detroit for one night at The Palace of Auburn Hills, where the set list remains unchanged for the fourth consecutive show–but that's about to change.
@@ -75,8 +72,6 @@ Night Two at Boston's Fenway Park brings an embarrassment of riches, from an ope
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gloria Steinem.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/gloriasteinem-300x296.jpg?resize=758%2C748)
 

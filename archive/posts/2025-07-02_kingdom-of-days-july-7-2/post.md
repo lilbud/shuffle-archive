@@ -1,12 +1,9 @@
 
-
 *New entry for 1977***New for 2025:**
 
 Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/mainpoint-300x156.jpg?resize=758%2C395)
 

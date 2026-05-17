@@ -1,16 +1,11 @@
 
-
 *Audio for 1977 and 1993; new entry for 1979, 1983, and 2024***New for 2025:**
 
 Bruce performs in Virginia for the first time when Child plays a free outdoor concert at Monroe Park in Richmond. Noise complaints from local college students(!) force an early end to the show. The band drives back to New Jersey, where they headline that evening at Pandemonium in Wanamassa.
 
 **1969:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Richmond_Times_Dispatch_Mon__Jun_2__1969_-scaled.jpg?resize=758%2C1347&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1969-0601-229x300.jpg?resize=758%2C992)
 
@@ -18,19 +13,13 @@ Bruce and the as yet unnamed E Street Band open for Chicago at the Hampton Roads
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/The_Virginia_Gazette_Fri__Jun_8__1973_.jpg?w=758&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1973-0601-259x300.jpg?resize=758%2C877)
 
 Bruce headlines a six-hour multi-act show at Kent State University.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1974-0601-300x198.jpg?resize=758%2C501)
 
@@ -62,15 +51,13 @@ Bruce and the E Street Band work on "" at The Hit Factory in New York City.
 
 **1983:** [Drop on Down and Cover Me](https://estreetshuffle.com/index.php/2019/12/18/roll-of-the-dice-drop-on-down-and-cover-me/)
 
-Bruce sits in with John Eddie and the Front Street Runners at the Stone Pony, performing four cover songs with the band. Earlier in the day, Max Weinberg releases his book 
+Bruce sits in with John Eddie and the Front Street Runners at the Stone Pony, performing four cover songs with the band. Earlier in the day, Max Weinberg releases his book
 
 **1984:** *The Big Beat: Conversations with Rock's Great Drummers.*
 
 [https://videopress.com/embed/P7I4JtrM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/P7I4JtrM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1984-06-01-277x300.jpg?resize=758%2C821)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1984-06-01b.jpg?resize=758%2C1083&amp;ssl=1)
 

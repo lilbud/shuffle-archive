@@ -1,5 +1,4 @@
 
-
 From the 1995 opening concert for the Rock and Roll Hall of Fame: Chuck Berry backed by Bruce Springsteen and the E Street Band.
 
 [https://www.youtube.com/embed/6swgiM9vSEE?feature=oembed](https://www.youtube.com/embed/6swgiM9vSEE?feature=oembed)

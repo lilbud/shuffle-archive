@@ -1,12 +1,9 @@
 
-
 *New entry for 2024***New for 2025:**
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1971-1001-300x168.jpg?resize=751%2C420)
 
@@ -14,19 +11,13 @@ A scheduled show at the Rivoli Theatre in Indianapolis is cancelled.
 
 **1975:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/10/medium.jpg?resize=370%2C500&amp;ssl=1)
 
 Bruce and the E Street Band continue their week of California shows with a stop at Santa Clara University.
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1976-10-03-286x300.jpg?resize=758%2C795)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1976-1003-270x300.jpg?resize=758%2C843)
 
@@ -43,8 +34,6 @@ The original River Tour kicks off at the University of Michigan in Ann Arbor, wi
 [https://www.youtube.com/embed/AfgSfFbO1gI?feature=oembed](https://www.youtube.com/embed/AfgSfFbO1gI?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1980-10-03a.jpg?resize=758%2C1723&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1980-10-03b-300x218.jpg?resize=758%2C551)
 
@@ -84,8 +73,6 @@ Bruce plays a solo acoustic show at the Northrop Auditorium in Minneapolis.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1996-10-03a-219x300.jpg?resize=758%2C1039)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1996-10-03b-156x300.jpg?resize=758%2C1458)
 
 A stunning penultimate show for the Rising Tour at Shea Stadium from start to finish: Bruce opens with the tour premiere of "," plays another double-header of tour premieres mid-set ("" and "Another Thin Line"), along with rare outings for "" and "New York City Serenade" (another tour premiere). Willie Nile and Gary U.S. Bonds guest-star during the encores, and Al Franken makes a guest appearance during the main set.
@@ -107,8 +94,6 @@ The Vote for Change Tour moves on to the next swing state–Michigan–with a sh
 [https://videopress.com/embed/1wwST4YS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1wwST4YS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2004-10-03a-118x300.jpg?resize=758%2C1927)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2004-10-03b-300x251.jpg?resize=758%2C635)
 
@@ -150,11 +135,7 @@ Bruce makes his official Broadway debut when opens in its first public preview p
 
 **2017:** *Springsteen on Broadway*[Where the Band Was report](http://estreetshuffle.com/index.php/2018/10/03/where-the-man-was-broadway-october-3-2017/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/2017-1003-300x152.jpg?resize=758%2C384)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2017-10-03.jpg?resize=758%2C2145&amp;ssl=1)
 

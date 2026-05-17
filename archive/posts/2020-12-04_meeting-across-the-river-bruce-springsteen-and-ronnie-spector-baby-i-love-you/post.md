@@ -1,5 +1,4 @@
 
-
 "Baby, I Love You" was Ronnie Spector's second big hit (after ""). Recorded in the autumn of 1963 (with Darlene Love, Sonny Bono, and a 17-year-old Cher on backing vocals) and released in November, the song went to #24 on the American pop charts and #11 in the UK.
 
 [Be My Baby](http://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)

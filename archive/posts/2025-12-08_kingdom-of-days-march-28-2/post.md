@@ -1,10 +1,7 @@
 
-
 Steel Mill plays a second night at the Hullabaloo in Richmond.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1970-0328.jpg?resize=652%2C800&amp;ssl=1)
 
@@ -48,11 +45,7 @@ A rather significant show from the Tunnel of Love Express Tour in Detroit–the 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-28b.jpg?resize=758%2C395&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-28c.jpg?resize=415%2C826&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-28a.jpg?resize=565%2C822&amp;ssl=1)
 
@@ -67,8 +60,6 @@ The Magic Tour begins its Pacific Northwest swing with a show at the Rose Garden
 [https://www.youtube.com/embed/xT7LMmSwdxA?feature=oembed](https://www.youtube.com/embed/xT7LMmSwdxA?feature=oembed)
 
 [https://www.youtube.com/embed/l9TWdEzs04g?feature=oembed](https://www.youtube.com/embed/l9TWdEzs04g?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg?resize=758%2C1019&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg?resize=758%2C1036&amp;ssl=1)
 
@@ -97,8 +88,6 @@ At Madison Square Garden in NYC, Bruce breaks out the tour premiere of "Meeting 
 reaches a milestone–the 100th show–in its theatrical run at the Walter Kerr Theater in New York City. Michael Bloomberg is in attendance tonight.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/03/bloomberg.jpg?resize=447%2C500&amp;ssl=1)
 

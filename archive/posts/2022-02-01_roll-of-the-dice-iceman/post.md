@@ -70,7 +70,6 @@ He may not be pulling out of there to win, but at least he's pulling out of ther
 
 ---
 
-
 "Iceman" is such an obscure track that even its author had forgotten it. "I didn't even know it existed myself," Bruce told Patrick Humphries in a 1999 interview for *Record Collector*, "until a guy named Bob Benjamin sent me a tape with three songs on it, and that was one of them… I'm like ‘Iceman,' what's that?"
 
 Bruce liked the bootleg recording enough to clean it up and include it on Disc 1 of *Tracks*, but even then the song remained unplayed for years. He finally debuted it in a solo piano arrangement in 2005 on his Devils & Dust Tour in Philadelphia.

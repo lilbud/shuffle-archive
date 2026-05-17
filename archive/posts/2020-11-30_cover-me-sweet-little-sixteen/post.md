@@ -1,5 +1,4 @@
 
-
 "Sweet Little Sixteen" was one of Chuck Berry's greatest hits, peaking at #2 on the Billboard Hot 100 chart. It also served as the music for another of rock's most influential songs, ""
 
 [Surfin' U.S.A.](https://estreetshuffle.com/index.php/2019/06/03/matr-brian-wilson-and-bruce-springsteen-surfin-u-s-a/)

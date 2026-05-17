@@ -1,5 +1,4 @@
 
-
 Prepare yourself for the absolute best freaking cover of "Born to Run" ever.
 
 Nashville rockers Diarrhea Planet are no strangers to Bruce's signature song–they'd covered it in concert years before their mic drop performance as the closers for Nashville's Freakin' Weekend in 2017.

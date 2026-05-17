@@ -1,10 +1,7 @@
 
-
 Bruce opens for the Paul Winter Consort for the second of four nights at My Father's Place on Long Island.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1973-0118-300x124.jpg?resize=758%2C313)
 
@@ -12,11 +9,7 @@ Bruce opens for the Paul Winter Consort for the second of four nights at My Fath
 
 **1974**[student responsible for bringing Bruce to campus](https://patch.com/ohio/kent/bp--bruce-springsteens-1974-party-in-kent-ohio)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1974-0119a-300x217.jpg?resize=758%2C548)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1974-0119b-256x300.jpg?resize=758%2C888)
 
@@ -49,8 +42,6 @@ Bruce and most of the E Street Band play a benefit show for the Freehold 3M plan
 [https://www.youtube.com/embed/GvfAtxd2-7w?feature=oembed](https://www.youtube.com/embed/GvfAtxd2-7w?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1986-01-19a.png?resize=758%2C551&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1986-01-19b.png?resize=758%2C803&amp;ssl=1)
 

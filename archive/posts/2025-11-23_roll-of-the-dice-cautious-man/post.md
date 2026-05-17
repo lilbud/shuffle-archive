@@ -78,7 +78,6 @@ For cautious men, there's no ending, just a long road.
 
 ---
 
-
 "Cautious Man" is more than a quiet song–it's a delicate one. Bruce's phrasing and instrumentation are intimate and very deliberate, which is likely why Bruce has so rarely performed it in concert.
 
 In fact, "Cautious Man" only made a single stage appearance in the first seventeen years since its studio release. At his Bloomington stop on the *Tunnel of Love Express* Tour, Bruce premiered it following "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)," a sequence that hints at a likely reason why Bruce chose that night to debut it. (See my entry for "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)" for a much bigger hint.)

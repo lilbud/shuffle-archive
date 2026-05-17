@@ -85,8 +85,6 @@ With such careful construction, "Death to My Hometown" might seem like a challen
 
 [Watch Video Highlight](https://videopress.com/embed/I43auK8y?hd=0&cover=1)
 
-
-
 **Death to My Hometown**<br>
 **Recorded** 2011<br>
 **Released:** *Wrecking Ball* (2012)<br>

@@ -1,5 +1,4 @@
 
-
 In February 2017, the Cayamo festival-at-sea featured a terrific line-up, and with that much talent on one ship, there were bound to be some team-ups.
 
 Here's one of them: "" covered by the Wainright family, Emmylou Harris, Brandi Carlile, and more.

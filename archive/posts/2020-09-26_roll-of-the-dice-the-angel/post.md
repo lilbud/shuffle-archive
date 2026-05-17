@@ -76,12 +76,9 @@ Wherever could he have come up with the inspiration for that?
 
 ---
 
-
 We know Bruce played "The Angel" at least once, shortly after its release in early 1973. No recording survives (if there ever was one), so we don't know how his audience received it. But we know that Bruce didn't play it again for almost a quarter-century–and when he did revive it (by request from a fan who snuck his way into Bruce's soundcheck in London), he sounded so self-consciously sheepish that if not for the shock value it would probably have been considered the evening's lowlight.
 
 [london-1996-04-22-mp4](https://videopress.com/embed/hWsdZ1Y5?hd=1)
-
-
 
 Bruce wouldn't attempt "The Angel" again for another 13 years, and this time he didn't have a choice: promising a complete, start-to-finish performance of his debut album for the first and only time ever, Bruce at least had a chance to consider how he wanted to approach it.
 
@@ -93,8 +90,8 @@ That night–[November 22, 2009](https://estreetshuffle.com/index.php/2018/11/22
 
 Bruce would continue to reach far back into his catalog (and even earlier) in the years to come, but that perfect performance of "The Angel" felt like a farewell and a fond send-off from a once-desperate, hungry songwriter to a song that had long since served its purpose.
 
-**The Angel  
-**Recorded:** June 27 – October 26, 1972  
+**The Angel
+**Recorded:** June 27 – October 26, 1972
 **Released:** *Greetings from Asbury Park, N.J.* (1973)
 **First performed:** February 14, 1972 (New York City, NY)<br>
 **Last performed:** November 22, 2009 (Buffalo, NY)<br>

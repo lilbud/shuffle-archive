@@ -1,5 +1,4 @@
 
-
 Bruce and his unnamed band kick off a four-night/eight-show stand at The Main Point in Bryn Mawr, Pennsylvania, where "" receives its debut performance.
 
 **1973:** [Santa Ana](http://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)
@@ -22,8 +21,6 @@ The Born in the U.S.A. Tour resumes with the first of two shows at the Hampton R
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1985-01-04.png?resize=758%2C878&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/01/Richmond_Times_Dispatch_Sat__Jan_5__1985_.jpg?resize=758%2C864&amp;ssl=1)
 
 Bruce and Patti make an appearance at the Hollywood premiere of Bruce wrote "" for the movie, for which he will go on to earn an Oscar. Check out the news coverage from the event.
@@ -33,7 +30,5 @@ Bruce and Patti make an appearance at the Hollywood premiere of Bruce wrote "" f
 [https://www.youtube.com/embed/3ScFkSlJb4w?feature=oembed](https://www.youtube.com/embed/3ScFkSlJb4w?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/01/The_Daily_Spectrum_Thu__Jan_6__1994_.jpg?resize=758%2C844&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/1973-01-03-300x91.jpg?resize=500%2C151)

@@ -1,5 +1,4 @@
 
-
 *Review for 2005; audio for 2009***New for 2025:**
 
 A planned gig opening for Dr. John in San Diego is cancelled due to low ticket sales.
@@ -17,8 +16,6 @@ Bruce and the E Street Band play their second of back-to-back nights at Kutztown
 Bruce is sick, causing his scheduled River Tour show in Cincinnati to be postponed.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1981-07-26-300x65.png?resize=758%2C164)
 

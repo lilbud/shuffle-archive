@@ -29,5 +29,3 @@ Sometimes a rhinestone is just… well, a rhinestone.
 **Rhinestone Cowboy**<br>
 **Released:** *Western Stars: Songs From the Film (2019)***First performed:** April 2019<br>
 **Last performed:** April 2019<br>
-
-

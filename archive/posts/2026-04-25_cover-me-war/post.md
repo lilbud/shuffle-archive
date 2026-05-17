@@ -1,7 +1,5 @@
 > "Welcome to The Land of Hope and Dreams American Tour! I want to begin the night with a prayer for our men and women overseas. We pray for their safe return. The mighty E Street Band is here tonight to call upon the righteous power of art, of music, of rock and roll, in dangerous times.
 >
->
->
 > We are here in celebration and defense of our American ideals, our democracy, our constitution, and our sacred American promise. The America I love, the America I have written about for 50 years, that has been a beacon of hope and liberty around the world, is currently in the hands of a corrupt, incompetent, racist, reckless, and treasonous administration.
 >
 > Tonight we ask all of you to join with us in choosing hope over fear, democracy over authoritarianism. the rule of law over lawlessness. ethics over unbridled corruption. resistance over complacency, unity over division and peace over…"
@@ -17,8 +15,6 @@ That's because The Temptations never released it as a single, despite fan reques
 Perhaps that's for the best, because The Temptations' original 1970 recording never quite mustered the visceral power that Edwin Starr would bring to bear in his now-legendary single released just a few months later.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dQHUAJTZqF0)
-
-
 
 Starr was a relative unknown at the time, which is exactly what Motown was looking for. Starr gave them a way to release the song under the radar, and if the song kicked up controversy, at least it couldn't threaten a revenue stream from an artist who lacked one altogether.
 

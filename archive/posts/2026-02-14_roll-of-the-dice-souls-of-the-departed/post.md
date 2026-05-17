@@ -71,7 +71,6 @@ With so much care and control exercised over the content and sound of the song, 
 
 ---
 
-
 "Souls of the Departed" was a nightly staple during both World Tour 1992 and World Tour 1993, and as is often the case, the song grew in power as the tour progressed and the band made the song their own. A few of these performances were captured professionally on video, so we can fully appreciate the power of the performance.
 
 Here are two of my favorites: first, from Bruce's appearance on *MTV Unplugged* (for which he famously refused to stay unplugged). A foreboding "Star-Spangled Banner" serves as the lead-in, fading out as Bruce begins the song accompanied only by a soft drone and barely perceptible percussion. The band explodes into action following the first chorus but recedes at the critically intimate final verse.
@@ -99,7 +98,7 @@ Here are two final clips, from the few performances with the E Street Band (ther
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ljabZgADz5g)
 
 **Souls of the Departed**<br>
-**Recorded:** July-December 1991  
+**Recorded:** July-December 1991
 **Released:** *Lucky Town* (1992)<br>
 **First performed:** June 15, 1992 (Stockholm, Sweden)<br>
 **Last performed:** April 27, 2008 (Charlotte, NC)<br>

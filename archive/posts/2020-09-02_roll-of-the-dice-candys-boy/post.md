@@ -62,8 +62,6 @@ Bruce must have known he was on to something in that first couplet–while it wo
 
 [Watch Video Highlight](https://videopress.com/embed/LmknH3DW?hd=1&cover=1)
 
-
-
 Lyrically, the song ends at this point, but musically it continues for almost two full minutes on the back of Danny Federici's glorious organ solo (accompanied by himself on glockenspiel). This is one of Danny's finest moments on record; his solo is absolutely essential to the song, conveying the blind but buoyant optimism, adoration, and naivete of the narrator so earnestly that we *almost* believe that he and Candy will live happily ever after. (He'd do the same thing almost two decades later on "Across the Border" to even more powerful effect.)
 
 In the end, Bruce abandoned "Candy's Boy," stripping it for parts rather than releasing it on an album. There seems to be a fan consensus that he made the right choice. Certainly a case can be made for Candy's stronger character definition in the later "Candy's Room" (the earlier "Candy's Boy" is completely narrator-centric).

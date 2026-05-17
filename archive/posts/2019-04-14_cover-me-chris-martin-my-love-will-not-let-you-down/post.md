@@ -1,5 +1,4 @@
 
-
 Flashback to 2009 and the 23rd Bridge School benefit concert, a recurring event that Bruce himself is no stranger to.
 
 That year, Coldplay's Chris Martin was among the performers, and a highlight of his acoustic set was a cover of Bruce's "" performed on piano and violin only.

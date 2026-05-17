@@ -14,7 +14,7 @@ And then out of the blue came the *High Hopes* album, a grab bag of songs with n
 
 From the January 9, 2014 issue of Rolling Stone:
 
-**Tell me about "Frankie Fell In Love." That has a very different feel than the rest of the album.**  
+**Tell me about "Frankie Fell In Love." That has a very different feel than the rest of the album.**
 "That one was one of those songs that's fun to write and might have come out somewhere around *Magic*. Then I recut pieces of it, certainly the drums. Actually, I know what that was: that was a song I had that we cut for *Magic* and didn't use the version that we cut. I also had a great demo of it. I have demos of most of these records that I make on my own, and once in a while you don't beat one. That was one of those. I just loved it lyrically, and I thought that it's a great thing for Steve and myself. It's just a great little Faces-type rock song. I always had it sitting around as one of my favorite straight-up E Street Band rock songs, so we went in and did some new cutting on that with Steve and drums and bass."
 
 Judging from the promotional footage Bruce put out for the album, I think he mis-remembers: from his appearance and the ski-cap, this looks to be from the *Working on a Dream* sessions (the promo footage from that album clearly shows Bruce recording those songs on the same day (or at least dressed the same way). You can see the original recording session and hear Bruce talk about the song's origins here:

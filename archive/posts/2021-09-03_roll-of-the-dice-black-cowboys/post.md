@@ -1,14 +1,8 @@
 > "God bless Mommy. God bless Nanny. God, don't punish me because I'm black."
 >
->
->
 > "Do they same prayer every night?" I ask their mother after she has tucked them in and closed their door. "Every night," she answers.
 >
->
->
 > "I wish that I could help them to get out of here," says Mrs. Washington.
->
->
 >
 > –Jonathan Kozol, *Amazing Grace: The Lives of Children and the Conscience of a Nation*<br>
 

@@ -1,5 +1,4 @@
 
-
 I think we're gonna have to take this one on faith.
 
 On the night of September 4, 1977, Bruce Springsteen made an unannounced guest appearance at The Stone Pony with the club's new house band, The Shots.

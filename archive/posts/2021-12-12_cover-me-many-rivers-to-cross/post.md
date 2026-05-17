@@ -1,5 +1,4 @@
 
-
 We know Bruce is a Jimmy Cliff fan–his cover of Jimmy's "" has been a fan favorite since its debut.
 
 [Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)

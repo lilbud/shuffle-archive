@@ -1,26 +1,14 @@
 > *The "radio man" is coming. That's how my grandfather is known… I am simply the young protégé grandson of the "radio man."*<br>
 >
->
->
 > *[My grandparents'] house was old and soon to be noticeably decrepit. One kerosene stove in the living room was* *all we had to heat the whole place.*<br>
->
->
 >
 > *My grandparents fell into a state of poor hygiene and care that would shock and repel me now… But I loved them and that house.*<br>
 >
->
->
 > *The grinding hypnotic power of this ruined place and these people would never leave me. I visit it in* *my dreams today, returning over and over, wanting to go back. It was a place where I felt an ultimate* *security, full license and a horrible unforgettable boundary-less love.*<br>
->
->
 >
 > *Soon… my grandfather would be dead and my grandmother would be filled with cancer.*<br>
 >
->
->
 > *One night at the age of three, Pam left my parents' room and for the only time in her young life climbed into my grandmother's bed. She slept there all night, lying beside my grandmother as she died. In the morning, my mother checked on my grandma and she was still. When I came home from school that day, my world collapsed. Tears, grief, weren't enough. I wanted death. I needed to join her. Even as a teenager, I could not imagine a world without her.*<br>
->
->
 >
 > — Bruce Springsteen, *Born to Run*<br>
 

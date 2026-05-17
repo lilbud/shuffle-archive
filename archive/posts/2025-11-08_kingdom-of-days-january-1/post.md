@@ -1,14 +1,9 @@
 
-
 Bruce, Steve, Roy, and David Sancious drop by The Stone Pony, where they join Southside Johnny and The Asbury Jukes on stage for several numbers.
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/01/1976-0101-300x186.jpg?resize=758%2C470)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/48769956123_ee290e600f_o-279x300.jpg?resize=758%2C815)
 

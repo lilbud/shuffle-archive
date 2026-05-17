@@ -1,12 +1,9 @@
 
-
 *New entry for 1978 and 1982; review for 2005; video for 2006***New for 2025:**
 
 Steel Mill headlines an outdoor concert at Monmouth College in West Long Branch, New Jersey.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1970-0510.jpg?resize=564%2C868&amp;ssl=1)
 
@@ -49,8 +46,6 @@ Bruce plays "" for the very first time (and the very last for 17 years) at Night
 [https://www.youtube.com/embed/HNUqIApF_pA?feature=oembed](https://www.youtube.com/embed/HNUqIApF_pA?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-10a-300x192.jpg?resize=758%2C485)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-10b-194x300.jpg?resize=758%2C1172)
 

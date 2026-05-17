@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 Earth plays to their largest crowd yet at the Crystal Ballroom in New York City's Hotel Diplomat, but the show almost doesn't happen. One week out, not even 100 tickets had been sold for this fundraiser in an 1,800-seat ballroom, but the administration of Ocean County College contributed funds and transportation to help drive attendance and support their students who organized the event.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1968-1228-88x300.jpg?resize=758%2C2589)
 
@@ -52,7 +49,7 @@ Bruce joins Mike Ness in the studio in Los Angeles, lending his vocals and guita
 
 [https://www.youtube.com/embed/AaF2pZcVFKA?feature=oembed](https://www.youtube.com/embed/AaF2pZcVFKA?feature=oembed)
 
-Bruce releases "," the second advance single from his upcoming 
+Bruce releases "," the second advance single from his upcoming
 
 **2008:** [Life Itself](http://estreetshuffle.com/index.php/2018/03/26/roll-of-the-dice-life-itself/)*Working on a Dream.*
 

@@ -1,5 +1,4 @@
 
-
 Okay, I think we've given enough spotlight to Bruce's pop hits of late, so let's give "" and "" a rest and listen to some great deep cut covers for a bit.
 
 [I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)

@@ -34,8 +34,6 @@ The entire show was recorded and released as an album this past Friday. Check ou
 
 [Watch Video](https://open.spotify.com/embed/album/0PoRVWX9M8jpRja0vQdcU9?utm_source=generator)
 
-
-
 The concert film was also posted to the band's YouTube channel on Thanksgiving. It features their cover of "The Rising" plus so much more.
 
 [Watch on Youtube: The Whiskey Treaty Roadshow - "Recovered" (Full Show) Live Benefit Concert | Jan 30, 2021](https://www.youtube.com/watch?v=hg0-IeMzuv4)

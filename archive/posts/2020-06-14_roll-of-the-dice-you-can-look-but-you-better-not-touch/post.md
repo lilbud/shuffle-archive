@@ -89,8 +89,6 @@ It works when played solo on acoustic guitar and harmonica, as in this 1997 perf
 
 [you-can-look-1997-05-18-mp4](https://videopress.com/embed/7hBr8FBu?hd=1&cover=1)
 
-
-
 …and it works as a solo piano number–or even dueling pianos, when Bruce threw down with Bruce Hornsby in 2005. (Hornsby won.)
 
 [Watch Video Highlight](https://videopress.com/embed/S26I1Zo8)

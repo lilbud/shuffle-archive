@@ -6,8 +6,6 @@ Today's entry is just as creative.
 
 [Badlands by Silent Bear](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F1322566231&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 "Lyrically, '[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)' has always been one of my favorites," Silent Bear explained to me. "If I choose to cover a song, most of the time, I like to challenge myself by coming up with an original arrangement. This was something that popped into my head that I just went with and it worked. As a solo performance, I wanted the power of the lyric to come through without the support of a large ' wall of Sound' band arrangement like the original. In retrospect, my arrangement kind of reminds me of some of Bruce's *Nebraska* arrangements, raw and blues-driven."
 
 Raw and bluesy are perfect descriptions of Silent Bear's 2004 live performance captured above. It preserves both the darkness and the defiance of Bruce's lyrics while recasting it in a completely new musical light.

@@ -1,11 +1,7 @@
 > "I grew up in this little town, and as I got older, I started looking around me and it didn´t seem like there was any way I was gonna get out of there. Because I looked back at my father, and the only time he´d ever gotten out of that town was to go to World War II. And then when he came out of the army, he got married and he settled down and went to work in a plastics factory. And his father had done the same thing.
 >
->
->
 > It seemed that the one thing that we had in common was that we didn't have enough information. We didn't have enough knowledge about the things and the forces that were controlling our lives. And I watched my old man end up a victim and he didn´t even know it." — **Bruce Springsteen, May 7, 1981**<br>
 > "When I was sixteen or seventeen, it was hard for me to understand what [my father's] life was like. How he'd gotten married so young. When I was living at home… he wasn't much older than I am right now, and he'd been working in this factory for ten years already. He had to put up with all the humiliation the world puts you through living like that. When I moved away when I was eighteen, I was sure that I was never gonna miss him. And for a long time I never did.
->
->
 >
 > It took us 30 years just to be able to tell each other that we loved each other. And it's just silly to wait that long. If you got folks at home, you oughta try talking to them sometime. They probably need it, you know." — **Bruce Springsteen, May 8, 1981**<br>
 
@@ -118,7 +114,6 @@ When I was twelve, all I heard in "Independence Day" was defiance and the thrill
 And thank you, Dad.
 
 ---
-
 
 Other than the two River Tours, where it featured regularly, "Independence Day" has remained a relative rarity over the years–never wholly absent but certainly very elusive.
 

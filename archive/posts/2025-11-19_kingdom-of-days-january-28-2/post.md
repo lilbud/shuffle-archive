@@ -1,10 +1,7 @@
 
-
 : The Bruce Springsteen Band plays The Captain's Garter in Neptune, New Jersey.
 
 **1972**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1972-0128-236x300.jpg?resize=758%2C965)
 
@@ -20,7 +17,7 @@ The original River Tour moves on to the Checkerdome in St. Louis.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-01-28-300x159.jpg?resize=758%2C402)
 
-"" wins the Best Single award at the American Music Awards ceremony in Los Angeles. He was also nominated (but did not win) for Favorite Pop/Rock Male Artist and Favorite Pop/Rock Male Video Artists. Later that night, Bruce records his vocals for "" at A&M Studios in Hollywood. He finishes around 4am the next day. Guest blogger Clyde Kaplan was on the scene at the recording session; read his first-hand account 
+"" wins the Best Single award at the American Music Awards ceremony in Los Angeles. He was also nominated (but did not win) for Favorite Pop/Rock Male Artist and Favorite Pop/Rock Male Video Artists. Later that night, Bruce records his vocals for "" at A&M Studios in Hollywood. He finishes around 4am the next day. Guest blogger Clyde Kaplan was on the scene at the recording session; read his first-hand account
 
 **1985:**[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[We are the World](https://estreetshuffle.com/index.php/2022/01/30/matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/)[here.](https://estreetshuffle.com/index.php/2021/01/29/where-the-band-was-los-angeles-january-28-29-1985-clydes-story/)
 

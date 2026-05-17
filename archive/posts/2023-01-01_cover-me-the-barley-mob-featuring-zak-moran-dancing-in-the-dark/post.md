@@ -1,5 +1,4 @@
 
-
 The Barley Mob are a six-member rock band from Ireland, and if their name strikes you as a play on the name of a certain beloved artist, well let's just say the band's influences show in their terrific cover of Bruce's "," released earlier this year.
 
 [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)

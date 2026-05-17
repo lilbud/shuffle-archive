@@ -4,7 +4,6 @@
 
 ---
 
-
 If ever there was an early Springsteen outtake crying out for an official release, "If I Was the Priest" would be it.
 
 After all, without "If I Was the Priest" there's a chance we would never have heard of Bruce Springsteen let alone be discussing his work on a blog devoted to it.

@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 Still transitioning from Child to Steel Mill, Bruce and the band open for Chicago Transit Authority at Randolph-Macon College.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1969-11-21-196x300.jpg?resize=758%2C1160)
 
@@ -17,8 +14,6 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 Rocker John Eddie catches his first Bruce Springsteen concert when Bruce and the band play a gig at Camden County College.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1974-11-21-196x300.jpg?resize=758%2C1160)
 
@@ -60,8 +55,6 @@ Bruce releases his eleventh studio album, .
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-21a-194x300.png?resize=758%2C1172)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-21b-1.png?resize=758%2C1804&amp;ssl=1)
 
 That afternoon, Bruce rehearses for his upcoming solo acoustic tour at the Count Basie Theater in Red Bank, where he will open the tour the following day. He takes a break from rehearsing, though, to grant an interview to Bob Costas.
@@ -73,8 +66,6 @@ That same evening, Bruce plays a rehearsal show for his upcoming solo acoustic w
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC_IjFnkPggsVfyl7bIFDsf](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC_IjFnkPggsVfyl7bIFDsf)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-21c-263x300.png?resize=758%2C865)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-21d-187x300.png?resize=758%2C1216)
 
@@ -97,8 +88,6 @@ Bruce and the reunited E Street Band play a show at the Pepsi Arena in Albany.
 [https://www.youtube.com/embed/yLugU21i6hw?feature=oembed](https://www.youtube.com/embed/yLugU21i6hw?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1999-11-21a-300x172.png?resize=758%2C435)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1999-11-21b-300x273.png?resize=758%2C690)
 
@@ -144,15 +133,9 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 **2017:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/38577854861_2fbe16d147_b-300x273.jpg?resize=758%2C690)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2017-11-21a-168x300.png?resize=758%2C1353)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2017-11-21b-204x300.png?resize=758%2C1114)
 

@@ -1,12 +1,9 @@
 
-
 *Audio for 1977***New for 2025:**
 
 Bruce runs a classified ad in the Asbury Park Press seeking a "together and ready to travel" pianist and country violinist. Let's hope he finds at least one of them. Maybe David Sancious is still available?
 
 **1972:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1972-10-14-300x81.png?resize=758%2C205)
 
@@ -24,15 +21,11 @@ Bruce calls an out-of-left-field audible at his River Tour stop at Milwaukee's M
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-10-14-300x196.png?resize=758%2C495)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/10/1980-10-14.jpg?resize=518%2C661&amp;ssl=1)
 
 Bruce plays his first-ever show in Argentina (although half of those in attendance were from Chile) when the Human Rights Now! Tour stops in Mendoza.
 
 **1988:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1988-10-14-300x167.png?resize=758%2C422)
 
@@ -60,11 +53,7 @@ The Magic Tour heads north to Canada, starting with a show at ScotiaBank Place i
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-14a-300x137.png?resize=758%2C346)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-14b-275x300.png?resize=758%2C827)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-14c-161x300.png?resize=758%2C1413)
 
@@ -82,11 +71,9 @@ Bruce can't seem to decide on the order of "" and "" during his Broadway show at
 
 **2017:** [Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/2017-1003-300x152.jpg?resize=758%2C384)
 
-Bruce releases "Nightshift," the second single from his upcoming album, 
+Bruce releases "Nightshift," the second single from his upcoming album,
 
 **2022:** *Only the Strong Survive.*
 

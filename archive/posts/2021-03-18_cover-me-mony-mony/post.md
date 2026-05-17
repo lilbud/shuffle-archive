@@ -30,8 +30,6 @@ The thing is: no one knows exactly how it started. Like, *no one*. Not even Bill
 
 [Billy Idol explains the origins of the special audience lyrics for "Mony Mony" by alancross](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F172934348&show_artwork=true&maxwidth=758&maxheight=1000&dnt=1)
 
-
-
 All we know is that it started in 1987, and it's continued ever since. By the time Billy Idol reissued "Mony Mony" in 2018 as a remix, he pretty much had no choice but to include the unofficial lyrics.
 
 [Watch on Youtube: Mony Mony (Idol/Stevens Remix)](https://www.youtube.com/watch?v=Cyt-BY-vqms)
@@ -55,5 +53,3 @@ I wasn't there that night, but I'm pretty sure I can guess why Bruce edited out 
 **Mony Mony**<br>
 **First performed:** July 17, 1982 (Red Bank, New Jersey)<br>
 **Last performed:** July 8, 2009 (Herning, Denmark)<br>
-
-

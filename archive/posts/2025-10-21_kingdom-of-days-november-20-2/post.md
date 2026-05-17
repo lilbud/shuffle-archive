@@ -1,20 +1,15 @@
 
-
 *New entry for 2006***New for 2025:**
 
 Steel Mill headlines at the Free University in Richmond.
 
 **1969:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/40632756604_6af20d7824_o-191x300.jpg?resize=758%2C1193)
 
 : The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1971-11-19-224x300.png?resize=758%2C1015)
 
@@ -23,8 +18,6 @@ Bruce and the E Street Band bring the Darkness Tour to the University of Illinoi
 **1978:**<br>
 
 [https://www.youtube.com/embed/yhJqumucMCY?feature=oembed](https://www.youtube.com/embed/yhJqumucMCY?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Daily_Illini_Tue__Nov_28__1978_.jpg?resize=758%2C705&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Daily_Illini_Thu__Nov_30__1978_.jpg?resize=758%2C542&amp;ssl=1)
 
@@ -56,15 +49,11 @@ Bruce plays a solo acoustic show at the Louisville Palace in Kentucky.
 
 **1996:** <http://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-11-20.mp3>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-11-20-300x240.png?resize=758%2C606)
 
 Bruce sits down for a remarkable 50-minute television interview with Charlie Rose and performs an acoustic "" Both are must-watch.
 
 **1998:** [Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
-
-
 
 [https://charlierose.com/video/player/16872](https://charlierose.com/video/player/16872)
 
@@ -74,23 +63,17 @@ In town a day early for their show in Orlando, Bruce and the band have dinner at
 
 **2002:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2002-11-20-212x300.png?resize=758%2C1073)
 
 On their day off in Ireland, Bruce spends the afternoon at Slane Castle, where he and Patti dine and celebrate with Lord and Lady Mount Charles.
 
 **2006:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/Sunday_Independent_Dublin_ed__2006_11_26_16_02-scaled.jpg?resize=758%2C877&amp;ssl=1)
 
 The day after an emotional show spotlighting Danny Federici, Bruce confirms what fans already feared: Danny is taking a leave of absence to receive treatment for melanoma. "Danny is one of the pillars of our sound," Bruce writes. "We all eagerly await his healthy and speedy return."
 
 **2007:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2007-11-20-154x300.png?resize=758%2C1476)
 
@@ -107,8 +90,6 @@ Bruce and the E Street Band play their penultimate Working on a Dream show at 1s
 [https://www.youtube.com/embed/8aXZDKb5fHw?feature=oembed](https://www.youtube.com/embed/8aXZDKb5fHw?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2009-11-20a-300x133.png?resize=758%2C336)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2009-11-20b-300x216.png?resize=758%2C546)
 

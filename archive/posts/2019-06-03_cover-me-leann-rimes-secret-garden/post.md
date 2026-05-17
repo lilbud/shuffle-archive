@@ -1,5 +1,4 @@
 
-
 "This song breaks my heart every time I hear it. It's so beautifully written. I relate to the lyrics. Don't we all have a secret garden?" — LeAnn Rimes, September 25, 2014*The Press-Enterprise*,
 
 Four years after she said those words to an interviewer, LeAnn Rimes showed us that Bruce's beautiful "" still breaks her heart. When she performed it in studio for Sirius XM, she barely made it through the song. "I couldn't hold back the tears," she wrote on her Facebook page when she shared the video.

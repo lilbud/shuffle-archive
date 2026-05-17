@@ -33,5 +33,3 @@ It's been more than a quarter-century since that Cafe Eckstein performance, and 
 **Jumpin' Jack Flash**<br>
 **First performed:** May 24, 1993 (London, England)<br>
 **Last performed:** July 9, 1995 (Berlin, Germany)<br>
-
-

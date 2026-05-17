@@ -1,5 +1,4 @@
 
-
 Like "" and "," figuring out who to credit for "He's Sure the Boy I Love" isn't straightforward.
 
 [He's a Rebel](https://estreetshuffle.com/index.php/2021/10/02/matr-darlene-love-bette-midler-and-bruce-springsteen-hes-a-rebel/)[Da Doo Ron Ron](http://estreetshuffle.com/index.php/2019/01/02/matr-bruce-springsteen-and-darlene-love-da-doo-ron-ron/)

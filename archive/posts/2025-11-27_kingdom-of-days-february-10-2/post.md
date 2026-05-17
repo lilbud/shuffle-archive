@@ -1,5 +1,4 @@
 
-
 Steel Mill plays the Fillmore West in San Francisco, a last minute-replacement for a band cancellation. Venue owner Bill Graham is impressed enough to invite the band back for a second gig the following week.
 
 **1970:**<br>
@@ -8,23 +7,17 @@ Bruce and his band play their final show at Asbury Park's Sunshine In. Unfortuna
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2008-02-10.png?resize=758%2C787&amp;ssl=1)
 
 Bruce and the E Street Band play their fourth straight night on the Lawsuit Tour, this time to a crowd of 5,500 at the Memorial Auditorium in Utica, New York.
 
 **1977:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1977-0210.jpg?resize=700%2C684&amp;ssl=1)
 
 A rare show postponement: The River Tour stop in Lexington is rescheduled for the following month when Bruce comes down with strep throat.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-10.png?resize=758%2C480&amp;ssl=1)
 
@@ -85,7 +78,5 @@ At the American Airlines Center in Dallas, Soozie is still down for the count wi
 [https://www.youtube.com/embed/mRFr28PyO64?feature=oembed](https://www.youtube.com/embed/mRFr28PyO64?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Fort_Worth_Star_Telegram_Sun__Feb_12__2023_-scaled.jpg?resize=758%2C2278&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1973_02_15_Page_21.jpg?w=758&amp;ssl=1)

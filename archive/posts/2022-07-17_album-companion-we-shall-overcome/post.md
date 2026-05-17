@@ -40,8 +40,6 @@ In all, the group recorded six songs that day: "We Shall Overcome," "Jesse James
 
 [Spotify Embed: Where Have All The Flowers Gone: The Songs Of Pete Seeger](https://open.spotify.com/embed/album/64rpqujJSzvu5vn4xDT5k9?utm_source=oembed)
 
-
-
 Bruce put the other tracks away for safekeeping. "I sat on them for almost a decade, but from time to time I kept being drawn back to them. They weren't quite like anything else I'd cut before and their freshness kept commanding my ear."
 
 In particular, they commanded his ear in 2004. After the unhappy results of the Vote for Change Tour, Bruce and Jon Landau turned their attention to a second *Tracks* collection of unreleased material. They listened to the five unreleased tracks from that 1997 session, but Landau in particular thought the tracks were different enough in sound that they warranted a release of their own.

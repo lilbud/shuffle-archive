@@ -1,5 +1,4 @@
 
-
 *Audio for 1975, 1985, and 1988***New for 2025:**
 
 Bruce and the "East Side Band" play their first-ever show in Missouri when the Born to Run Tour stops at the Ambassador Theater in St. Louis. The set list features a 27-minute(!) "."
@@ -50,8 +49,6 @@ The final stand of the marathon Born in the U.S.A. Tour begins at the Los Angele
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-27a-197x300.jpg?resize=758%2C1154)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-27b-134x300.jpg?resize=758%2C1697)
 
 The Human Rights Now! Tour lands in Asia, starting with a show at the Tokyo Dome, where Bruce tour debuts "."
@@ -76,8 +73,6 @@ Night One in Chicago on the Reunion Tour features a standard Night One set list,
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1999-09-27a-283x300.jpg?resize=758%2C803)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1999-09-27b-137x300.jpg?resize=758%2C1660)
 
 Milwaukee gets tour one-offs of "" and a show-closing "" (complete with "Are you loose?") and a "" tour premiere when the Rising Tour stops at the Bradley Center for a night.
@@ -87,8 +82,6 @@ Milwaukee gets tour one-offs of "" and a show-closing "" (complete with "Are you
 [https://videopress.com/embed/jFG933Sz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jFG933Sz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2002-09-27a-300x116.jpg?resize=758%2C293)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2002-09-27b.jpg?resize=561%2C3300&amp;ssl=1)
 
@@ -106,15 +99,11 @@ Bruce and the E Street Band rehearse at Asbury Park's Convention Hall for their 
 
 **2004:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2004-09-27-137x300.jpg?resize=758%2C1660)
 
 Sirius XM radio brings back E Street Radio for a return engagement to coincide with the release of Magic. At least as of this writing, it will never leave the air again.
 
 **2007:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2007-09-27.jpg?resize=630%2C1588&amp;ssl=1)
 
@@ -132,15 +121,11 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 
 **2018:** *Springsteen on Broadway* [Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Tougher Than the Rest](http://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/2018-09-27a-300x300.jpg?resize=758%2C758)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/2018-09-27c-300x225.jpg?resize=758%2C569)
 
-Bruce interviews Little Steven for a streaming event the following day, promoting Van Zandt's new book, 
+Bruce interviews Little Steven for a streaming event the following day, promoting Van Zandt's new book,
 
 **2021:** *Unrequited Infatuations.*
 

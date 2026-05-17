@@ -1,12 +1,9 @@
 
-
 *Audio for 1977; new entry for 1978 and 2024***New for 2025:**
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1968-0322-218x300.jpg?resize=758%2C1044)
 
@@ -44,8 +41,6 @@ The Tunnel of Love Express Tour stops in Atlanta for the first of two nights at 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-22a-300x146.jpg?resize=758%2C369)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-22b-300x292.jpg?resize=758%2C738)
 
 Night One in Sydney on the Rising Tour is plagued by power failures–four times in the first hour of the show. But the show goes on, and to thank fans for their patience, Bruce plays "Rosalita (Come Out Tonight)" — its first E Street stage appearance since mid-1999.
@@ -78,7 +73,7 @@ The third and final night at Sydney's Allphones arena on the Wrecking Ball Tour 
 
 [https://www.youtube.com/embed/Dey4Iid9tXQ?feature=oembed](https://www.youtube.com/embed/Dey4Iid9tXQ?feature=oembed)
 
-The River Tour (2016 version) comes to the Pacific Northwest, starting with a show at Portland's Moda Center. For more highlights, see my 
+The River Tour (2016 version) comes to the Pacific Northwest, starting with a show at Portland's Moda Center. For more highlights, see my
 
 **2016:** [report for this show.](http://estreetshuffle.com/index.php/2018/03/22/where-the-band-was-portland-march-22-2016/)*Where the Band Was*
 
@@ -93,8 +88,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 Bruce and President Barack Obama release the sixth episode of their podcast, . This episode is entitled "Wrestling with Ghosts: American Men."
 
 **2021:** *Renegades: Born in the U.S.A.*
-
-
 
 [https://open.spotify.com/embed/episode/5QIX6MfXYK0moHmbukclX1?si=363094f042db43af&amp;utm_source=oembed](https://open.spotify.com/embed/episode/5QIX6MfXYK0moHmbukclX1?si=363094f042db43af&amp;utm_source=oembed)
 

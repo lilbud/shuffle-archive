@@ -1,5 +1,4 @@
 
-
 Firing up the waaaaaayback machine today and travelling to Newark State College on May 15, 1971, so we can catch Dr. Zoom and The Sonic Boom performing Bob Dylan's bluesy "It Takes a Lot to Laugh, It Takes a Train to Cry."
 
 It's a great recording for its age, and you can even hear Steve introduce the song, and Bruce and Garry banter after it.

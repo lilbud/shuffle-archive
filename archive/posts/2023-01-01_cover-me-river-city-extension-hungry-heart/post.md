@@ -1,5 +1,4 @@
 
-
 I'm not sure that Bruce's "" lyrics are well-served by this cool arrangement by River City Extension… but then again, I'm not sure that Bruce's own arrangement works particularly well either.
 
 [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)

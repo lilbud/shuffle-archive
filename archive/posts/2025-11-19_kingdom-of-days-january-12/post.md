@@ -1,20 +1,13 @@
 
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2017-01-12.png?resize=758%2C738&amp;ssl=1)
 
 Bruce and the not-yet E Street Band continue their Boston residency with two shows at Paul's Mall.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Montgomery_Advertiser_1996_01_14_2.jpg?resize=758%2C582&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Courier_News_1982_01_13_Page_2.jpg?resize=758%2C524&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/1973-01-10-239x300.jpg?resize=758%2C951)
 
@@ -88,18 +81,12 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 **2018:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/39666761111_1fb51ff37b_o-289x300.jpg?resize=757%2C786)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/2018-01-12-300x297.jpg?resize=758%2C750)
 
 Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First hand reports from fans listening at the stage door (including this blogger) confirm the addition of "Nightshift" and the return of "" as the show opener (a position it will hold throughout most of the tour) as the setlist begins to take shape.
 
 **2023:** [No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/01/2023-01-12.jpg?resize=758%2C614&amp;ssl=1)

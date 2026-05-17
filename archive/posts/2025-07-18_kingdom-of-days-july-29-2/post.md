@@ -1,12 +1,9 @@
 
-
 *Audio for 1999***New for 2025:**
 
 Singer/songwriter and First Lady of E Street Vivienne Patricia Scialfa is born on this day in Deal, New Jersey. Happy birthday, Patti!
 
 **1953:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/patti-300x261.jpg?resize=745%2C648)
 
@@ -14,15 +11,9 @@ The Castiles headline at the Loew's 35 Shore Drive-in Theater's 10th anniversary
 
 **1966:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1966-07-29a.png?resize=758%2C1034&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1966-07-29b-258x300.png?resize=758%2C881)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1966-0729.gif?resize=742%2C431)
 
@@ -35,8 +26,6 @@ The Bruce Springsteen Band plays two shows at D'Scene in South Amboy, New Jersey
 Before their gig that evening at the Carter Barron Amphitheater in Washington, DC's Rock Creek Park, Bruce stops by a local radio station for an on-air interview.
 
 **1975:**<br>
-
-
 
 [https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F187050681&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F187050681&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
 
@@ -52,15 +41,9 @@ At the Bayfront Center Arena in St. Petersburg, Bruce opens his Darkness Tour sh
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1978-07-29.png?resize=758%2C3158&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1978-07-29b-300x245.png?resize=758%2C619)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1978-07-29c-186x300.png?resize=758%2C1223)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1978-0729.jpg?resize=758%2C1142&amp;ssl=1)
 
@@ -72,15 +55,11 @@ Southside Johnny guest-stars on "" when Bruce and the E Street Band bring the Ri
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1981-0729-300x149.jpg?resize=747%2C371)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1981-07-29-300x100.png?resize=758%2C253)
 
 Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey.
 
 **1987:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1987-07-29-281x300.png?resize=758%2C809)
 

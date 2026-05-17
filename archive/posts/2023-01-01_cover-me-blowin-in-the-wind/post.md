@@ -17,5 +17,3 @@ Bruce performed "Blowin' in the Wind" once more, just a few months later on the 
 **Blowin' in the Wind**<br>
 **First performed:** June 18, 1988 (Paris, France)<br>
 **Last performed:** September 23, 1988 (Oakland, CA)<br>
-
-

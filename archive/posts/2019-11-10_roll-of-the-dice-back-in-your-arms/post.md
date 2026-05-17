@@ -92,7 +92,6 @@ Twenty-four years later, we know that Bruce is in a much more emotionally secure
 
 ---
 
-
 **Bonus #1:** Here's a rare acoustic version of "Back in Your Arms, performed only seven times on the Devils & Dust Tour. To me, it doesn't come close to matching the power of a full-band performance, and I consider it more of a novelty than an essential. (But I wish I could have been there for it nonetheless.)
 
 [Watch on Youtube: Bruce Springsteen - Back in Your Arms (live 2005)](https://www.youtube.com/watch?v=Rgn8O2lU7OA)
@@ -112,5 +111,3 @@ For a song about an ex-lover carrying a torch he refuses to put down, I can't th
 **Last performed:** February 14, 2017 (Brisbane, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-

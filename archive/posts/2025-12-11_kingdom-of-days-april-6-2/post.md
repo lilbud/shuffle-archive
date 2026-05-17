@@ -49,5 +49,3 @@
 ![](https://brucebase.wdfiles.com/local--resized-images/gallery%3A2018-04-06-walter-kerr-theatre-new-york-city-ny/20180406_GinaGershon_01.jpg/medium.jpg)
 
 **2022:** Bruce celebrates Clive Davis' 90th birthday by recording a video salute and a performance of "Blinded by the Light."
-
-

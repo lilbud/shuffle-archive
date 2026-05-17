@@ -1,5 +1,4 @@
 
-
 "California Sun" cracked the Billboard Hot 100 twice, but neither time was by a west coast band.
 
 New Orleans-based Joe Jones was the first to record it, and he took it to #89 in 1961.

@@ -1,5 +1,4 @@
 
-
 In 2015, the MusicCares MAP fund honored Pete Townshend, and Bruce was in attendance both to pay tribute and to join Pete Townshend and Roger Daltrey on stage for "My Generation."
 
 [https://www.youtube.com/embed/a6BrJJgDtxM?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/a6BrJJgDtxM?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)

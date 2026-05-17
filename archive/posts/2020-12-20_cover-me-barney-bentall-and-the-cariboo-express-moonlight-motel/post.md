@@ -1,5 +1,4 @@
 
-
 Barney Bentall may not be a familiar name outside of his native Canada, but he's certainly well-known there.
 
 His debut 1988 album with The Legendary Hearts went platinum, and its very first track, "Something to Live For" became a number one hit–and it's easy to hear the Springsteenian influences from the outset.

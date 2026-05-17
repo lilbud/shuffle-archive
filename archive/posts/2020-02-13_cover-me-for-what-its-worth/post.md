@@ -28,5 +28,3 @@ That song–entitled "[Change It](https://estreetshuffle.com/index.php/2019/09/0
 **For What It's Worth**<br>
 **First performed:** May 23, 1970 (Richmond, VA)<br>
 **Last performed:** May 23, 1970 (Richmond, VA)<br>
-
-

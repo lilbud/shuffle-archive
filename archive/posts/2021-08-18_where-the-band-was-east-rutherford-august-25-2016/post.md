@@ -1,8 +1,5 @@
 
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/metlife2-a_LI.jpg?resize=758%2C1362&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/metlife2-b-231x300.png?resize=758%2C986)
 

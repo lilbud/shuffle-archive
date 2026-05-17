@@ -28,7 +28,6 @@ Standout memories:
 - Nils Lofgren being as gracious and kind as anyone I've ever met. I ran the most errands for Nils.
 - Watching Clarence in a side room working through the bagpipe section for "Into The Fire." It was just me and the Big Man in the room. He was great, too.
 
-
 At one point, I had to pick up a gentleman from Staten Island who had some of Bruce's guitars that he had repaired. The gentleman met me at a local diner, and I drove him into the fort–with Bruce's guitars in my back seat.
 
 Kevin Buell was also just tremendous. He ran the show, and he is a tough guy on the crew. He was firm but nice at the same time.

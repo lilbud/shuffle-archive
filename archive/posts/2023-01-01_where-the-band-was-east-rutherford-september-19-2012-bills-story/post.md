@@ -1,12 +1,7 @@
 
-
 Editor's Note
 
-
-
 *Editor's Note:**Today's guest blogger is Bill Kenney, who's kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out –he's got some great show reviews (not just Bruce-related) and insightful commentary.*[Bill's blog](http://billk128.tumblr.com/)
-
-
 
 *If you'd like to connect with Bill directly, you can reach him on Twitter at .* [@billk128](https://twitter.com/billk128)
 
@@ -75,8 +70,6 @@ I do have one more video clip for you, one that shows a few minutes of the Bruce
 What's your story?
 
 *Want to share your story on E Street Shuffle?* [Drop me a line](mailto:ken@estreetshuffle.com) *if you'd like to be our next guest blogger!*
-
-
 
 **9/19/12 – MetLife Stadium, NJ**<br>
 

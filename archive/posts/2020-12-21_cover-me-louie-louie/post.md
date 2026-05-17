@@ -27,5 +27,3 @@ Luckily, we've got the one performance where Bruce absolutely nailed the balance
 **Louie Louie**<br>
 **First performed:** September 9, 1978 (South Bend, IN)<br>
 **Last performed:** April 19, 2014 (Charlotte, NC)<br>
-
-

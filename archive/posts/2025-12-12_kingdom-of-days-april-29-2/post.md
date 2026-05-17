@@ -1,10 +1,7 @@
 
-
 Michael Barakan (a.k.a. Shane Fontayne, 1992-93 touring band guitarist) is born.
 
 **1954:**<br>
-
-
 
 ![Shane Fontayne](https://i0.wp.com/www.museumofmakingmusic.org/media/zoo/images/shane-fontayne_ff606a9bdf573c239bbd8ff41684a5ee.webp?resize=758%2C426&amp;ssl=1)
 
@@ -65,8 +62,6 @@ At the Count Basie Theater in Red Bank, Bruce performs at , a benefit for Bobby 
 [https://videopress.com/embed/Ga6Verkm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ga6Verkm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2003-04-29a.jpg?resize=758%2C891&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2003-04-29b.jpg?resize=758%2C559&amp;ssl=1)
 

@@ -1,5 +1,4 @@
 
-
 *Audio for 1983***New for 2025:**
 
 Bruce watches the debut of The Dave Clark Five on . Below, Bruce, Steve, and Max describe the influence they had on the E Street Band's shows.
@@ -55,8 +54,6 @@ At The Hit Factory in New York City, Bruce records ," "," "Gone, Gone, Gone" (wh
 Bruce and the E Street Band play a warm-up rehearsal at Slane Castle in Ireland in preparation for the kick-off of the European leg of the Born in the U.S.A. Tour. Meanwhile, "" is released as the fifth single from .
 
 **1985:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)*Born in the U.S.A*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1985-05-31-300x281.jpg?resize=758%2C710)
 

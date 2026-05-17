@@ -1,5 +1,4 @@
 
-
 *Deleted entry for 1973 (mis-dated); new entry for 1977 and 2024; audio for 1999; review for 2006***New for 2025:**
 
 Bruce and the band play the Agora in Cleveland. The show is recorded by WMMS-FM in Cleveland and is well worth a listen for its superb sound quality and rare performances of "Tokyo," "," and "."
@@ -26,15 +25,11 @@ Bruce attends the wedding of his lighting director and travel agent at the Whisk
 
 **1979:** [Wear My Ring Around Your Neck](https://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1979-0603-300x226.jpg?resize=745%2C561)
 
 Bruce serenades the attendees of Roy Bittan's wedding with a cover of Elvis' "Loving You."
 
 **1989:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1989-0603.jpg?resize=758%2C819)
 

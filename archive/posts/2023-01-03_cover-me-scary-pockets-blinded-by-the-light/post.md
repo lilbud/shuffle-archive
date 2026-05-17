@@ -11,5 +11,3 @@ Today, Swatkins and Therese Curatolo front the band for a funky cover of a cover
 The group tips their hat to Bruce for the original, but it's clear they take their inspiration from Manfred Mann's adaptation, which went to #1 on the Billboard Hot 100 in 1977. And it works perfectly, quickly settling into a irresistible groove.
 
 Scary Pockets is headed out on tour across the U.S. and Canada next month, and with at least three Springsteen songs in their repertoire you might hear a familiar song or two if you catch them in person. Check out their tour schedule [here](https://www.scarypocketsfunk.com/).
-
-

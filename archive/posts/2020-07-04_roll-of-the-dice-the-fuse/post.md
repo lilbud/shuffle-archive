@@ -80,7 +80,6 @@ The fuse is burning.
 
 ---
 
-
 Bruce played "The Fuse" regularly during the first couple of legs of the Rising Tour, but when the tour resumed in the late winter of 2003, he quickly began phasing it out. By the summer, it was all but gone, and in my opinion that was for the best.
 
 "The Fuse" doesn't translate well to the stage. The album track is carefully crafted and painstakingly layered; on stage, the band has far fewer instruments at their disposal, and even the best arenas couldn't replicate the separation of the studio mix. What should be an eddy of musical voices is instead a drone. Watch the clip below from London in October 2002 and see what I mean.

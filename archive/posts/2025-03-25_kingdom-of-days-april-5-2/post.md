@@ -1,20 +1,15 @@
 
-
 *New entry for 1969 and 1978; video for 2023***New for 2025:**
 
 Child performs at the Pandemonium in Wanamassa, New Jersey.
 
 **1969:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/19690402_Advert_02.jpg?resize=597%2C600&amp;ssl=1)
 
 Bruce and the E Street Band headline a show at Widener College.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1974-0405-300x203.jpg?resize=758%2C512)
 
@@ -58,8 +53,6 @@ Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Th
 
 **2006:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2006-04-05-300x143.jpg?resize=758%2C361)
 
 Bruce makes a surprise appearance at a Carnegie Hall benefit show, , joining Craig Finn, Jesse Malin, and Badly Drawn Boy on stage.
@@ -76,8 +69,6 @@ Another radio station contest to pick a song for the set list–this time "" is 
 
 [https://videopress.com/embed/4ds7LEvR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4ds7LEvR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-scaled.jpg?resize=513%2C2560&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-1-scaled.jpg?resize=758%2C1912&amp;ssl=1)
 
 Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare "" and "."
@@ -89,8 +80,6 @@ Bruce continues tinkering with the set list on the third night of the Working on
 [https://www.youtube.com/embed/T0lCBVUQguk?feature=oembed](https://www.youtube.com/embed/T0lCBVUQguk?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2009-04-05a-300x92.jpg?resize=758%2C232)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2009-04-05b.jpg?resize=758%2C1749&amp;ssl=1)
 
@@ -111,8 +100,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 Bruce and President Barack Obama release the final episode of their Spotify podcast, This episode is entitled "The Rising: Looking Towards American Renewal" and features an acoustic performance of ""
 
 **2021:** *Renegades: Born in the U.S.A.*[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
-
-
 
 [https://open.spotify.com/embed/episode/3w2WPhbgj9xfaIitFYDfif?si=8269cf5fbab84393&amp;utm_source=oembed](https://open.spotify.com/embed/episode/3w2WPhbgj9xfaIitFYDfif?si=8269cf5fbab84393&amp;utm_source=oembed)
 

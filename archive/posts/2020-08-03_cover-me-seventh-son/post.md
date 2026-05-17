@@ -1,5 +1,4 @@
 
-
 When the Working on a Dream Tour stopped in Greensboro, Bruce honored a sign request from a young boy who, I suspect, had a little bit of prompting from his parents.
 
 The boy was holding a sign for "Seventh Son," written by Willie Dixon and first recorded by Willie Mabel in 1955 in an R&B arrangement.

@@ -46,7 +46,7 @@ Since it technically counts as an official release, I'm tempted to rank it dead 
 So I'll give Mr. Outside a pass. As has Bruce: he's never once performed it or mentioned it.
 
 **Mr. Outside**<br>
-**Recorded:** Late 1979  
+**Recorded:** Late 1979
 **Released:** *The Ties That Bind: The River Collection*
 **Never performed**<br>
 

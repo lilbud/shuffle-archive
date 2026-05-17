@@ -9,5 +9,3 @@ If so, however, someone needs to correct the setlist record, because there's no 
 Interestingly, though, the setlist archive indicates that John opened the show with "[Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)" (an entirely different Buddy Holly song) and encored with Bruce's "[Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/)." Perhaps one of those is a mistaken reference to "Fade Away" instead.
 
 Regardless of where it was, though, Jon gave a lovely and faithful performance of the song that night, and it's a worthy addition to the vast catalog of Springsteen covers.
-
-

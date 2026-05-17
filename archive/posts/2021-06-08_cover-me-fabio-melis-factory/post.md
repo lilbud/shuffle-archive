@@ -23,5 +23,4 @@ Check out more great contest entries below...
 - ["If I Was the Priest" by Roberta Finocchiaro](https://estreetshuffle.com/index.php/2021/05/15/cover-me-roberta-finocchiaro-if-i-was-the-priest/)
 - ["Straight Time" by Renato Tammi](https://estreetshuffle.com/index.php/2021/04/09/cover-me-renato-tammi-straight-time/)
 
-
 ...and stay tuned for more contestants and coverage as the event approaches.

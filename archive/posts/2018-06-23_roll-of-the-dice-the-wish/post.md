@@ -4,7 +4,6 @@ I'm about to break my own rules–three of them, in fact:
 - I'm focusing less on the history of the song and more on its significance today.
 - There are spoilers below for anyone who hasn't yet seen *Springsteen on Broadway–*you are hereby warned.
 
-
 But I saw Bruce's Broadway show for the fourth time the other night, and while I frequently teared up the first three times I saw it, I outright bawled last night when Bruce played "The Wish."
 
 I haven't been able to get that performance out of my mind since, and I need to write about it.

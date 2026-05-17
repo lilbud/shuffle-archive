@@ -15,9 +15,9 @@ And then I understood. Viscerally. At the time "Jesus Was an Only Son" came out,
 Most of the lyrics trace the events and emotions of Jesus' last day and night, but for me, the key verse comes toward the end:
 
 > *Now there's a loss that can never be replaced*
- *A destination that can never be reached*  
- *A light you'll never find in another's face*  
- *A sea whose distance cannot be breached*
+*A destination that can never be reached*
+*A light you'll never find in another's face*
+*A sea whose distance cannot be breached*
 
 That verse transcends its context. On its face, Bruce is writing about Mary about to forever lose her child to death. But those lines also resonate with the pride and heartache of a parent losing their child to adulthood, watching them of necessity pull away, distance themselves, and set off on their own journey. That verse played through my mind a lot during those years. They didn't provide comfort, but they reminded me to pay attention–to notice and savor and remember the rest of their childhood, so that their transition into adulthood would feel more like a gift than a loss.
 
@@ -31,8 +31,8 @@ Bruce performed "Jesus Was an Only Son" live throughout his 2005 solo acoustic t
 
 Despite its historical subject matter, "Jesus Was an Only Son" feels like one of Bruce's most intimate songs, tied to a particular time and place of life. It's unlikely ever to be performed in an E Street Band concert, and I wouldn't be surprised if we never hear it performed live again.
 
-**Jesus Was an Only Son**  
-**Recorded:** Unknown–likely 2004  
+**Jesus Was an Only Son**
+**Recorded:** Unknown–likely 2004
 **Released:** *Devils & Dust* (2005)
 **First performed:** April 4, 2005 (Red Bank, NJ/VH1 Storytellers)<br>
 **Last performed:** November 19, 2006 (Dublin, Ireland)<br>

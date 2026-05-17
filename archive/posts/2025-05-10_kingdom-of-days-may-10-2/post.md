@@ -26,8 +26,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/NKEsi6O4)
 
-
-
 [Watch on Youtube: Bruce Springsteen - Two Faces - Live 1988 - Tunnel of Love Express Tour](https://www.youtube.com/watch?v=QENXHalKvSc)
 
 [Watch on Youtube: Bruce Springsteen 'Born To Run' (May 10, 1988)](https://www.youtube.com/watch?v=HNUqIApF_pA)

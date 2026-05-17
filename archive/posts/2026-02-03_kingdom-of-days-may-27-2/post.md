@@ -1,5 +1,4 @@
 
-
 Bruce and the E Street Band play for the U.S. Military Academy at West Point.
 
 **1976:**<br>
@@ -72,8 +71,6 @@ Bruce brings his solo acoustic tour to London for the first of two nights at Roy
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-27a.jpg?resize=758%2C687&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-27b.jpg?resize=758%2C564&amp;ssl=1)
 
 The American leg of the Seeger Sessions Tour begins with a show at the Tweeter Center in Mansfield, Massachusetts. Peter Wolf guest-stars on a "Dirty Water" / "Buffalo Gals" medley.
@@ -121,8 +118,6 @@ Bruce joins Little Steven and the Disciples of Soul on stage at the Count Basie 
 Bruce attends his niece's graduation ceremony at the Ranney School in Tinton Falls.
 
 **2021:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/05/2019-05-27.jpg?resize=758%2C777&amp;ssl=1)
 

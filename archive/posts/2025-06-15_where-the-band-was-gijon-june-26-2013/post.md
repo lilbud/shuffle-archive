@@ -1,5 +1,4 @@
 
-
 There was absolutely no reason for me to be at this show. It was half a world away from home, and Gijon isn't exactly an international hub. If I was going to choose one show to attend for all of 2013, I would have chosen one in Italy or Sweden, where Bruce is pretty much guaranteed to put on an amazing show.
 
 But as it turned out, my company had its annual European conference scheduled in Madrid the exact week that Bruce would be playing in Gijon, and once I figured out that the two cities were a very long but very driveable-in-a-day distance apart, I knew I had to be there. With Bruce touring abroad for all of 2013, this would be my only chance to see him that year.

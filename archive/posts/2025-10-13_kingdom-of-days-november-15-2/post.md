@@ -1,20 +1,15 @@
 
-
 *Expanded entry and audio for 1979; review for 1980***New for 2025:**
 
 Bruce and his band headline two shows at My Father's Place in Roslyn, New York.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1973-11-15-300x213.jpg?resize=758%2C538)
 
 Bruce and the E Street Band play a show at Lafayette College in Easton, Pennsylvania.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1974-11-15-300x262.jpg?resize=758%2C662)
 
@@ -49,8 +44,6 @@ The Born in the U.S.A. Tour stops at the St. Louis Arena. Check out the news foo
 Bruce appears on the cover of special issue on the 1980s.
 
 **1990:** *Rolling Stones's*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/1990-11-15.jpg?resize=758%2C928&amp;ssl=1)
 
@@ -90,10 +83,7 @@ A special 30th Anniversary Edition of is released today, featuring a new documen
 
 [https://www.npr.org/player/embed/5079313/5079506](https://www.npr.org/player/embed/5079313/5079506)
 
-
 ﻿
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/2005-11-15.png?resize=758%2C980&amp;ssl=1)
 
@@ -121,7 +111,7 @@ Bruce has a laugh at his own expense, greeting his Milwaukee crowd with "Good ev
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zANqpRC0hS9bo2qjyxNKX33](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zANqpRC0hS9bo2qjyxNKX33)
 
-Bruce appears on Sirius XM radio for a Q&A with fans to celebrate the release of 
+Bruce appears on Sirius XM radio for a Q&A with fans to celebrate the release of
 
 **2010:** *The Promise: The Darkness on the Edge of Town Story.*<https://estreetshuffle.com/wp-content/uploads/2024/11/Bruce-Darkness-on-the-Edge-of-Your-Town-Promise-QA-Session-Sirius-E-Street-Radio-2.mp3>
 

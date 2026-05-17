@@ -28,7 +28,6 @@ And I have the photo to prove it. See? That's me on the left, and Bruce is weari
 
 ---
 
-
 It's Friday, June 29, and tonight is the opening show of the Born in the U.S.A. Tour. Once again, I'm front and center (for the moment, at least), and I'm wearing the same clothes that I had on yesterday. All five of us from yesterday are, in fact, because tonight we're finishing the video in front of a sold-out arena in an actual concert!
 
 Now it's clear why there were so many extras behind the stage yesterday–it's so the editors can weave that footage in with the performance footage from tonight.
@@ -50,7 +49,6 @@ You have to look close because the camera focused on the models, but you can see
 ![](../../assets/2019/06/sandi.jpg)
 
 ---
-
 
 It's Monday, July 2nd, and I'm seeing Bruce Springsteen again for the fourth time in six days.
 

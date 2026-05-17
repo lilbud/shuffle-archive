@@ -1,5 +1,4 @@
 
-
 Whenever Bruce visits Philly, odds are pretty good that he'll break out "You Can't Sit Down" in the encores.
 
 Made famous by local group The Dovells, this encore cover favorite goes back a ways farther. It was originally released as an instrumental in 1959 by The Bim Bam Boos. Take a listen to that first incarnation–it's certainly recognizable, but it swings more than rocks:

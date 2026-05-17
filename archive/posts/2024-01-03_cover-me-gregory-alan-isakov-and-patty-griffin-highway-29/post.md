@@ -1,7 +1,5 @@
 > "To me, [Bruce Springsteen] is the Steinbeck of our time. He has this amazing gift of putting you in a place and a feeling at the same time, with only a line or a word or a melody."
 >
->
->
 > Gregory Alan Isakov to Elizabeth Griffin, *Esquire*, June 4, 2014
 
 …and we're back! Just in time too, because the list of terrific Springsteen covers keeps growing by the day.
@@ -21,7 +19,5 @@ In fact, the encore set was almost *entirely* a Springsteen cover set, and Isako
 Of their three Springsteen covers in the encore set (one of which was a performance of Patty's arrangement of "Stolen Car" above), here's my pick for the best: a gorgeous rendition of my favorite *The Ghost of Tom Joad* track: "[Highway 29.](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)"
 
 [Watch on Youtube: GREGORY ALAN ISAKOV and PATTY GRIFFIN Highway 29 (Bruce Springsteen cover) PORTLAND Maine 10/23/21](https://www.youtube.com/watch?v=T0borCD9MhA)
-
-
 
 Isakov and Griffin are on tour right now, with that very Springsteenian encore set. Catch them if you can!

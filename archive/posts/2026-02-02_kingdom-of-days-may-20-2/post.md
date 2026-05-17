@@ -1,10 +1,7 @@
 
-
 The River Tour continues its almost month-long U.K. leg with a show at waterlogged New Bingley Hall in Stafford.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg?resize=758%2C533&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg?resize=758%2C789&amp;ssl=1)
 
@@ -28,8 +25,6 @@ Bruce and Patti attend Don Henley's wedding. Several musicians are in attendance
 
 **1995:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1995-0520.jpg?resize=446%2C387&amp;ssl=1)
 
 The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheum Theater in Boston.
@@ -37,8 +32,6 @@ The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheu
 **2005:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20a.jpg?resize=501%2C963&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20b.jpg?resize=758%2C348&amp;ssl=1)
 

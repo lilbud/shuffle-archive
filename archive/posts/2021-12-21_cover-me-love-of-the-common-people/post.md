@@ -25,5 +25,3 @@ It may have been a late addition to the set list, but "Love of the Common People
 **Love of the Common People**<br>
 **First performed:** October 21, 2006 (Valencia, Spain)<br>
 **Last performed:** October 30, 2006 (Stockholm, Sweden)<br>
-
-

@@ -1,7 +1,5 @@
 > "This is a song I cut in the early '90s. It was on *Human Touch*, but we didn't quite get it right… I kind of screwed it up when I recorded it… It kind of got away from me… didn't get a good version of it, but it was a good song."
 >
->
->
 > — Bruce Springsteen, various on-stage confessions in 2005
 
 Thank goodness he knows.

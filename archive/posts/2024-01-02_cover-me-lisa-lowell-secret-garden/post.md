@@ -1,5 +1,4 @@
 
-
 You're familiar with Lisa Lowell's voice, even if you don't know her name.
 
 You can hear her backing vocals all over Bruce's album, as far back as "," and even on recently released tracks like "." And of course, she was an on-stage presence throughout the Seeger Session Tour.

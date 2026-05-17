@@ -146,14 +146,13 @@ I imagine that for Bruce Springsteen, that momentary freedom from his public fac
 
 ---
 
-
 **Bonus:** Here's a rare live performance of "Pilgrim in the Temple of Love" captured on video, from Cincinnati on December 12, 1996.
 
 [Watch on Youtube: Pilgrim In The Temple Of Love Bruce Springsteen 12/10/1996 OH](https://www.youtube.com/watch?v=YfNiDh9zndQ)
 
 **Pilgrim in the Temple of Love**<br>
 **Never recorded**<br>
-**Never released**  
+**Never released**
 **First performed:** April 16, 1996 (London, England)<br>
 **Last performed:** February 8, 1997 (Sydney, Australia)<br>
 

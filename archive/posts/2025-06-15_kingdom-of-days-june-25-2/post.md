@@ -1,5 +1,4 @@
 
-
 *Audio for 2008; video for 2016***New for 2025:**
 
 Bruce is in the studio, working on his second album at 914 Sound Studios in Blauvelt, New York. Today he works on "."
@@ -17,8 +16,6 @@ The Pacific Northwest leg of the Darkness Tour continues with a stop at the Para
 [https://www.youtube.com/embed/h6Ja1FeFIQ0?feature=oembed](https://www.youtube.com/embed/h6Ja1FeFIQ0?feature=oembed)
 
 [https://www.youtube.com/embed/SH6H1GcvuPs?feature=oembed](https://www.youtube.com/embed/SH6H1GcvuPs?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/The_Daily_Herald_1978_06_29_21.jpg?resize=758%2C379&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/The_Daily_Herald_1978_06_28_43.jpg?resize=758%2C1232&amp;ssl=1)
 
@@ -43,8 +40,6 @@ The Tunnel of Love Tour stops in London for one show at Wembley Stadium, where B
 [https://www.youtube.com/embed/bvWITRQO8oY?feature=oembed](https://www.youtube.com/embed/bvWITRQO8oY?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1988-06-25-300x209.jpg?resize=758%2C528)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1988-0625.jpg?resize=758%2C1030&amp;ssl=1)
 

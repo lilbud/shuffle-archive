@@ -1,5 +1,4 @@
 
-
 Bruce never officially performed "A Satisfied Mind" in concert, but he did play it during a soundcheck in Atlanta on March 23, 1988–and we're lucky enough to have a recording of it.
 
 [https://www.youtube.com/embed/R7HMwftP22o?feature=oembed](https://www.youtube.com/embed/R7HMwftP22o?feature=oembed)

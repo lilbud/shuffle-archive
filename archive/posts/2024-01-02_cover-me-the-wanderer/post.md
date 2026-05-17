@@ -1,5 +1,4 @@
 
-
 "‘The Wanderer' is really a sad song. A lot of guys don't understand that. Bruce Springsteen was the only guy who accurately expressed what that song was about. It's "I roam from town to town and go through life without a care, I'm as happy as a clown with my two fists of iron, but I'm going nowhere." In the Fifties, you didn't get that dark. It sounds like a lot of fun but it's about going nowhere." — Dion DiMucci
 
 Dion's "The Wanderer" was an immediate hit upon its release in late 1961, peaking just one spot shy of the top of U.S. charts, #10 in the U.K., and at #1 in Australia.

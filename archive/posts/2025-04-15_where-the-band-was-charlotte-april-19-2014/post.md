@@ -1,5 +1,4 @@
 
-
 What is it about Bruce and North Carolina?
 
 I'm not a local, and I have no vested interest in promoting the state. The sum total of my time in North Carolina is the time I've spent seeing Bruce's concerts there or driving through it. Yet I can't deny how fantastic his shows are there. As long as Bruce keeps touring, I'll be at those NC shows.

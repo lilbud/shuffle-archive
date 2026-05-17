@@ -1,18 +1,11 @@
 
-
 Bruce and his band open for Stevie Wonder at Kutztown State College.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1973-03-29a.jpg?resize=758%2C582&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1973-03-29b.jpg?resize=758%2C433&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0329.jpg?resize=300%2C167&amp;ssl=1)
 
@@ -20,11 +13,7 @@ Finding themselves with time to spare following a gig at Duke University, Bruce 
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1976-03-29.jpg?resize=593%2C905&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0329.jpg?resize=758%2C812&amp;ssl=1)
 
@@ -72,8 +61,6 @@ Bruce and President Barack Obama release Episode 7 of their podcast, entitled "F
 
 **2021:** *Renegades: Born in the U.S.A.*
 
-
-
 [https://open.spotify.com/embed/episode/1NTNCe83v8fBXxLe5RKhSY?si=17cb78b9cc6e4a41&amp;utm_source=oembed](https://open.spotify.com/embed/episode/1NTNCe83v8fBXxLe5RKhSY?si=17cb78b9cc6e4a41&amp;utm_source=oembed)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/03/8a34-53b8-4d4c-a599-a8b2b4e38fc0.mp3>
@@ -87,7 +74,5 @@ Bruce and President Barack Obama release Episode 7 of their podcast, entitled "F
 [https://www.youtube.com/embed/7L-TbAde0e0?feature=oembed](https://www.youtube.com/embed/7L-TbAde0e0?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Detroit_Free_Press_Fri__Mar_31__2023_-scaled.jpg?resize=758%2C1868&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Detroit_Free_Press_Fri__Mar_31__2023_-1-scaled.jpg?resize=758%2C1212&amp;ssl=1)

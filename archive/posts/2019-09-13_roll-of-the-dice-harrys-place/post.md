@@ -70,7 +70,6 @@ That's who Harry is.
 
 ---
 
-
 So why did Bruce claim "Harry's Place" was about the Bush administration?
 
 As near as I can figure, it's because he recorded the song during the *Magic* sessions, and *Magic* itself was largely a commentary on the Bush years. It's an honest mistake (but one that sent a *lot* of authors and reviewers scampering down the rabbit hole after him, doing their best to analyze the song and contort and force the metaphor).
@@ -80,8 +79,6 @@ But really, who can fault him? If I'd written as many songs as Bruce Springsteen
 In reality, "Harry's Place" goes back a lot further than 2007. In fact, we have video of Bruce reciting the lyrics on *Nightline* in the summer of 2002, tagging it as one of only two recorded outtakes from *The Rising*–and those lyrics are identical to the version he would release on *High Hopes* twelve years later.
 
 [Watch Video](https://abcnews.go.com/video/embed?id=21544272)
-
-
 
 Ted Koppel gets props on three counts here: first for having the nerve to badger Bruce into opening up his notebook; second for prompting him to reveal an unrecorded song; and third, for almost immediately zeroing in on what the song is about.
 
@@ -116,7 +113,7 @@ I've shared my own take with you here, but ultimately your guess is as good as m
 And apparently as good as Bruce's.
 
 **Harry's Place**<br>
-**Recorded:** 2007 and 2014  
+**Recorded:** 2007 and 2014
 **Released:** *High Hopes* (2014)<br>
 **Never performed**<br>
 

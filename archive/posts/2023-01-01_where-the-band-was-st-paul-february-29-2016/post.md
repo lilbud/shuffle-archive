@@ -1,5 +1,4 @@
 
-
 Happy Leap Day!
 
 During the first year of this blog, I shared my Springsteen concert memories on the anniversary date of each and every show I attended.
@@ -13,7 +12,6 @@ I've been sitting on my review of that show ever since, waiting for the first an
 Here's the review I originally wrote–might not be worth the build-up, but I hope you enjoy it anyway. (with thanks to YouTube user LOV2ROK2VINYL for filming pretty much the entire show!)
 
 ---
-
 
 https://www.youtube.com/watch?v=QLpkaZq6Dek
 
@@ -93,8 +91,6 @@ Still, even though the performances were great, the crowd w
 
 as one of the most energetic of the tour to date, and the River set continued to grow in its majesty, I couldn't help but be a little disappointed as the encores started and I realized I wouldn't be getting any surprises at all.
 
-
-
 But then I reminded myself that the first set was full of songs I hadn't heard before last month, and as Bruce launched into "Born to Run" and "" I watched the crowd go nuts and surrendered to the vibe, and that's when the magic started.[Bobby Jean,](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)
 
 [https://www.youtube.com/embed/zLwa9RwzZnw?feature=oembed](https://www.youtube.com/embed/zLwa9RwzZnw?feature=oembed)
@@ -114,8 +110,6 @@ Bruce rewarded the crowd with a rare (this tour at least), unplanned performance
 [https://www.youtube.com/embed/oElT35ejPXw?feature=oembed](https://www.youtube.com/embed/oElT35ejPXw?feature=oembed)
 
 And as the final bars faded with Clarence looking on, I was reminded that the performance is only half of what makes a show special–the other half is the crowd.
-
-
 
 When Bruce launched into the show-closing cover of "," I looked around for the mass exodus that usually happens at that point, with frequent concert-goers making a beeline for the exits so they can beat the crowds… but no one moved. No one.[Shout](http://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/)
 

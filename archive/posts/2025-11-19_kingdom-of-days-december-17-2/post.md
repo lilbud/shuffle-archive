@@ -1,5 +1,4 @@
 
-
 *Advertisement for 1971; review for 1984; audio for 2007***New for 2025:**
 
 The Bruce Springsteen Band headlines at Rutgers University in New Brunswick. Their setlist features the last known performance of "."
@@ -13,8 +12,6 @@ The Bruce Springsteen Band headlines at Rutgers University in New Brunswick. The
 Bruce and his band kick off a three-night stand at the Student Prince in Asbury Park, Bruce's first official gig in that club in almost exactly two years.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1973-1217-249x300.jpg?resize=758%2C913)
 
@@ -37,8 +34,6 @@ Bruce and the E Street Band (plus Little Steven for the encore set for the third
 Bruce joins Clarence Clemons and The Red Bank Rockers on stage at the Ventura Theater in Ventura, California, playing "," "," and "."
 
 **1989:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Sweet Little Sixteen](http://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1989-12-17.png?resize=758%2C331&amp;ssl=1)
 
@@ -72,11 +67,7 @@ Bruce launches a tradition that will continue for several years to come, calling
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2000-12-17a.png?resize=758%2C268&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2000-12-17b.png?resize=513%2C1494&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2000-12-17c.png?resize=758%2C743&amp;ssl=1)
 

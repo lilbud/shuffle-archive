@@ -1,5 +1,4 @@
 
-
 The big question in my mind coming out of : how do you top a show that includes "New York City Serenade," "," ", "," "" ", "," "," and "Jungleland" on Night Two?
 
 [Night One in Philadelphia](http://estreetshuffle.com/index.php/2018/09/07/where-the-band-was-philadelphia-september-7-2016/)[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[The Fever,](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)

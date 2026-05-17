@@ -29,5 +29,3 @@ However, that lone live performance wasn't a duet; Bruce and Pete were joined by
 **Released:** *Give US Your Poor* (2007)<br>
 **First performed:** September 29, 1996 (Cleveland, OH)<br>
 **Last performed:** September 29, 1996 (Cleveland, OH)<br>
-
-

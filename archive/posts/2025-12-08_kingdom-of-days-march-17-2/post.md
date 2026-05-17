@@ -1,14 +1,9 @@
 
-
 The Bruce Springsteen Band opens for Mitch Ryder (of "Detroit Medley" fame) in Richmond. Also on the bill: the Mike Quatro Jamband. Mike's sister Suzi will go on to become a well-known rocker (and minor TV star), someday covering Bruce's signature song, "Born to Run."
 
 **1972:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/47944265348_83c10b3f14_o.jpg?resize=758%2C956&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1972-0317.jpg?resize=402%2C605&amp;ssl=1)
 
@@ -28,8 +23,6 @@ Bruce attends Warren Zevon's show at Trax in New York City–and may possibly ha
 
 **1981**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg?resize=379%2C502&amp;ssl=1)
 
 Bruce and the E Street Band play their second of two nights at the Rosemont Horizon near Chicago, where they tour premiere "Darkness on the Edge of Town" and "Backstreets."
@@ -47,8 +40,6 @@ On a night off from his solo tour, Bruce joins Joe Ely on stage at The Mean Fidd
 [https://www.youtube.com/embed/m6cZU3iSdzY?feature=oembed](https://www.youtube.com/embed/m6cZU3iSdzY?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1996-0317.jpg?resize=758%2C507&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Austin_American_Statesman_Thu__Mar_21__1996_-scaled.jpg?resize=758%2C643&amp;ssl=1)
 
@@ -75,8 +66,6 @@ Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park's Co
 The night before he kicks off the Wrecking Ball Tour, Bruce visits the Red Light Cafe in Atlanta to take in local guitarist Glenn Phillips.
 
 **2012:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-17-1.jpg?resize=758%2C351&amp;ssl=1)
 

@@ -66,7 +66,7 @@ Still, "Lady and the Doctor" is a gem of an early outtake.
 
 **Lady and the Doctor**<br>
 **Recorded** June 7, 1972<br>
-**Never released**  
+**Never released**
 **Never performed**<br>
 
 © September 9 2020 by Ken Rosen

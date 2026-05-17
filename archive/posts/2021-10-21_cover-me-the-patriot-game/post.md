@@ -1,5 +1,4 @@
 
-
 For all of the hundreds of covers Bruce has performed in concert, there are probably thousands he's only soundchecked.
 
 Most of those will only ever be known to the fortunate few who were in the room working at the time, but every once in a while one escapes into the wild. We've featured some of those soundcheck escapees on this blog before, but they're almost always distant and muddy recordings due to the circumstances under which they were captured.

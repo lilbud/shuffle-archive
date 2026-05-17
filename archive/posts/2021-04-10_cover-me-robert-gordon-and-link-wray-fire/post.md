@@ -1,6 +1,5 @@
 
-
-Robert Gordon and Link Wray were the first to record and release Bruce Springsteen's "." Bruce gave Gordon the song after seeing him perform with Wray; they released it in 1978, years before Bruce's version debuted on , and decades before the Bruce's studio version surfaced on 
+Robert Gordon and Link Wray were the first to record and release Bruce Springsteen's "." Bruce gave Gordon the song after seeing him perform with Wray; they released it in 1978, years before Bruce's version debuted on , and decades before the Bruce's studio version surfaced on
 
 [Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)*Live 1975-1985**The Promise.*
 

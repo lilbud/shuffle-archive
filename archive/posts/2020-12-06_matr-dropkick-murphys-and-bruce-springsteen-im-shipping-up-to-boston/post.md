@@ -1,5 +1,4 @@
 
-
 Dropkick Murphys co-wrote "I'm Shipping Up to Boston" with Woody Guthrie. Seriously.
 
 Chancing upon the hand-written lyrics on a scrap of paper in Guthrie's archives, Ken Casey and crew set them to music in 2006 and scored their biggest hit in the process.

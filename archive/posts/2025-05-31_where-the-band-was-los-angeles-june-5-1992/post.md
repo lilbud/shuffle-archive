@@ -1,8 +1,5 @@
 
-
 Editor's Note
-
-
 
 *Editor's Note:**Today's guest blogger is friend of the blog TJ Jones, who was one of the very few fans in attendance at a very special show: Bruce's first and only rehearsal show with his full eleven-person 1992-93 touring band, just ten days before the tour kicked off in Stockholm.*
 
@@ -80,7 +77,6 @@ As show time neared, the contest winners were right back up front. The show was 
 [https://videopress.com/embed/er94Z6vt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/er94Z6vt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 - and an acoustic "Hungry Heart"
-
 
 [https://videopress.com/embed/71qk28wQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/71qk28wQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

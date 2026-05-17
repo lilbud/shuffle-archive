@@ -1,5 +1,4 @@
 
-
 At least once a year, I have to spotlight this absolutely fantastic live cover album–Joan Osborne and The Waybacks just absolutely knock every single track out of the park. Some are , some are , some are clever mash-ups, but all of them are great, and this is an album very much worth having.
 
 *Born in the U.S.A.* [relatively faithful](http://estreetshuffle.com/index.php/2018/07/26/cover-me-the-waybacks-and-joan-osborne-born-in-the-usa/)[dramatic re-imaginings](http://estreetshuffle.com/index.php/2018/05/15/cover-me-joan-osborne-and-the-waybacks-im-goin-down/)

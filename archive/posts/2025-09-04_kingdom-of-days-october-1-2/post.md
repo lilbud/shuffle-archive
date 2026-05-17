@@ -1,20 +1,15 @@
 
-
 *Video for 2003; new entry for 2024***New for 2025:**
 
 The Castiles play a gig at the Hullabaloo in Middletown, New Jersey.
 
 **1966:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1966-1001-300x261.jpg?resize=758%2C658)
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1971-1001-300x168.jpg?resize=739%2C413)
 
@@ -35,8 +30,6 @@ At Night Two at Atlanta's Fox Theater on the Darkness Tour, Bruce opens with his
 The San Mateo Times publishes the only interview Bruce's dad is known to have ever given. (Bruce's parents are local residents.)
 
 **1984:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1984-1021.jpg?resize=758%2C779&amp;ssl=1)
 
@@ -78,8 +71,6 @@ The Rising Tour's last stand kicks off with the first of three shows at Shea Sta
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2003-10-01a.jpg?resize=758%2C1777&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2003-10-01b.jpg?resize=758%2C1155&amp;ssl=1)
 
 The Vote for Change Tour kicks off at the Wachovia Center in Philadelphia, with Bright Eyes and R.E.M. opening for Bruce and the E Street Band, aiming to generate voter enthusiasm and registration for the upcoming U.S. presidential election. Bruce appears with R.E.M. during their set to play "," and the band returns the favor during his set (Michael Stipe joins on "Because the Night" (with Patti Smith's lyrics), and both Michael and Peter join for "Born to Run"). John Fogerty plays a mini-set within Bruce's set, a nightly highlight of the brief tour. Bruce opens his set with a gorgeous acoustic "" and all artists join for a star-studded encore.
@@ -91,8 +82,6 @@ The Vote for Change Tour kicks off at the Wachovia Center in Philadelphia, with 
 [https://videopress.com/embed/dHep8GzG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dHep8GzG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2004-10-01a-236x300.jpg?resize=758%2C963)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2004-10-01b-250x300.jpg?resize=758%2C910)
 

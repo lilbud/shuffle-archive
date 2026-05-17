@@ -1,12 +1,9 @@
 
-
 There's a point in every tour where Bruce loosens up, throws the setlist out the window, and transforms the entire concert into a non-stop, unpredictable jet engine of a show.
 
 On the River Tour (2016 edition), I expected it to happen in Philly, but I was wrong. I thought for sure it would happen in Los Angeles, but despite a high-octane three-night stand, those shows were still tightly scripted. I knew it wouldn't happen in Portland. And after the short (by Bruce's standards) and predictable show in Portland two days prior
 
 , I really wasn't expecting much out of Seattle. And going into the show, I was at peace with that.
-
-
 
 At the time, I'd planned for the Seattle show to be my last of the tour (the extension legs hadn't yet been announced). Since Seattle is my adopted home town, I opted for a suite at KeyArena, where I could enjoy the show in comfort with great friends, and all I really wanted was one last chance to take in those gorgeous River songs.
 

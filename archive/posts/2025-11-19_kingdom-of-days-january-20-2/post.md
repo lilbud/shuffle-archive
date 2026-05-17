@@ -1,5 +1,4 @@
 
-
 Bruce plays the third of four nights at My Father's Place on Long Island.
 
 **1973:**<br>
@@ -13,8 +12,6 @@ Bruce and the E Street Band resume the River Tour with the first of two shows at
 [https://videopress.com/embed/CMB9DGt1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CMB9DGt1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Edmonton_Journal_1981_01_22_34.jpg?w=758&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1981-0120b-300x279.jpg?resize=758%2C705)
 

@@ -1,12 +1,9 @@
 
-
 *New entry for 1977***New for 2025:**
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1971-11-27-300x158.png?resize=758%2C399)
 
@@ -38,7 +35,7 @@ The first leg of the Reunion Tour enters its last stand when Bruce and the E Str
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1999-11-28-267x300.png?resize=758%2C851)
 
-Bruce and the band play a fantastic Magic show in Milan to an Italian crowd that's on fire. For more highlights from this show, see my 
+Bruce and the band play a fantastic Magic show in Milan to an Italian crowd that's on fire. For more highlights from this show, see my
 
 **2007:** [report.](http://estreetshuffle.com/index.php/2018/11/28/where-the-band-was-milan-november-28-2007/)*Where the Band Was*
 
@@ -58,7 +55,7 @@ Bruce releases "" the second single from his upcoming album, .
 
 [https://www.youtube.com/embed/gO7vFDfhDHw?feature=oembed](https://www.youtube.com/embed/gO7vFDfhDHw?feature=oembed)
 
-Bruce continues shaking up the Wrecking Ball set list at the Rose Garden in Portland, opening with "," and featuring rare outings for "," "," and "." For more highlights from this show, see my 
+Bruce continues shaking up the Wrecking Ball set list at the Rose Garden in Portland, opening with "," and featuring rare outings for "," "," and "." For more highlights from this show, see my
 
 **2012:** [Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)[Seeds](http://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)[report.](http://estreetshuffle.com/index.php/2018/11/28/where-the-band-was-portland-november-28-2012/)*Where the Band Was*
 
@@ -79,7 +76,5 @@ Bruce resumes his promotional book tour, making an appearance at Books-a-Million
 begins the final leg of its theatrical run (minus Patti, who is absent tonight). In attendance: Patterson Hood of the Drive-By Truckers.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/2018-11-28-300x300.jpg?resize=758%2C758)

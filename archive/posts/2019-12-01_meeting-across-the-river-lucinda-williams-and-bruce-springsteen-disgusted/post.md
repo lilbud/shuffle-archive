@@ -1,5 +1,4 @@
 
-
 "Disgusted" was recorded by Melvin "Lil' Son" Jackson back in 1951, but it remained in the vault for years, finally seeing the light of day on a 1968 compilation album.
 
 [https://www.youtube.com/embed/JI_I3Dp8_z8?feature=oembed](https://www.youtube.com/embed/JI_I3Dp8_z8?feature=oembed)

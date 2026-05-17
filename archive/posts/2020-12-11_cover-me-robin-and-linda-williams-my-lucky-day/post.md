@@ -1,5 +1,4 @@
 
-
 "" is way up there among my favorite 21st-century Springsteen songs. Since it debuted as the second single from a full decade ago, it's been a perennial on my setlist wish list.
 
 [My Lucky Day](http://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)*Working on a Dream*

@@ -59,7 +59,7 @@ And just because a song this powerful deserves a video, too–here's a great pro
 Despite its frequent inclusion and rare tour absences, Bruce has never altered the original arrangement he created for "Trapped." It's one of those rare songs on which he has no inclination to tinker. It seems he nailed it on the first try.
 
 **Trapped**<br>
-Never recorded in-studio  
+Never recorded in-studio
 Released (live):** *We Are the World* (1985), *The Essential Bruce Springsteen* (2003)
 **First performed:** [May 29](https://estreetshuffle.com/index.php/2018/05/29/kingdom-of-days-may-29/), 1981 (London, England)<br>
 **Last performed:** August 24, 2023 (Foxborough, MA)<br>

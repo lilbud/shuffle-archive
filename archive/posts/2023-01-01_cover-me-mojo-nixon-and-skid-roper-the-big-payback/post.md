@@ -7,5 +7,3 @@ But it's a great song, and Mojo Nixon and Skid Roper did a terrific cover of it 
 Check it out:
 
 [Watch on Youtube: Big Payback](https://www.youtube.com/watch?v=3gFZQTaaAB8)
-
-

@@ -1,5 +1,4 @@
 
-
 On March 27, 2024, Bruce Springsteen made a surprise appearance at Zach Bryan's show at Brooklyn's Barclays Center.
 
 [https://www.youtube.com/embed/07MFGBvHiEk?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/07MFGBvHiEk?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)

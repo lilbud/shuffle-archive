@@ -93,7 +93,7 @@ When Bruce re-recorded "American Land" in the studio with the E Street Band, he 
 
 …as well as making two very subtle but significant changes to the final two lines:
 
-*They died to get here a hundred years ago, they're **still** dying now*  
+*They died to get here a hundred years ago, they're **still** dying now*
 *The hands that built the country we're always trying to keep **out***
 
 [Watch on Youtube: Bruce Springsteen-American Land (Bonus Track)](https://www.youtube.com/watch?v=sjxlRNly3Dw)
@@ -110,7 +110,6 @@ And yet.
 Bruce ends the song not with condemnation, but with a reminder of the American promise, of the country that–as Bruce once famously put it–waits for us, carried in our hearts.
 
 ---
-
 
 Bruce may have only debuted "American Land" 14 years ago, but he's played it with a vengeance ever since–a whopping 250 times as of this writing–and we are fortunate enough to have several wonderful, professionally filmed performances to choose from.
 

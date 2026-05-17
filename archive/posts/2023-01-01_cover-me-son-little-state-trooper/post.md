@@ -1,5 +1,4 @@
 
-
 Son Little hails from Philadelphia, deep in Springsteen country. Perhaps that's why his first Springsteen cover is a true deep cut rather than one of the countless versions of "" and "" out there.
 
 [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)

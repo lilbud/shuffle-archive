@@ -33,5 +33,3 @@ That was the most recent time "Wild Thing" surfaced on a Springsteen set list to
 **Wild Thing**<br>
 **First performed:** April 24, 2009 (Hartford, CT)<br>
 **Last performed:** July 18, 2013 (Cork, Ireland)<br>
-
-

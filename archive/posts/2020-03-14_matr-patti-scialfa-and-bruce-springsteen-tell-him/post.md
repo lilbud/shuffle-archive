@@ -1,5 +1,4 @@
 
-
 It's 1984, and a red-headed woman walks into a bar.
 
 Let's let Bruce tell the story:

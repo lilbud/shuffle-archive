@@ -16,8 +16,6 @@ One of Cooder's songs played over both the opening and end credits: a bitterswee
 
 At first listen, "Across the Borderline" sounds like a strange candidate for offering hope and fortitude. A border is just a line, it seems to say, and the grass on the other side may not be any greener until you water it a good long time.
 
-
-
 [Watch on Youtube: Across the Borderline](https://www.youtube.com/watch?v=tECEpWlOWgY)
 
 But that's Cooder's point: crossing a border may lead you to a better place, but you've still got to work to make it a better life. And understanding that from the start can help you commit or re-commit to making it to the actual promised land.
@@ -47,5 +45,3 @@ All three icons were in peak form that night, their voices and instruments blend
 **Across the Borderline**<br>
 **First performed:** April 27, 1988 (Los Angeles, CA)<br>
 **Last performed:** November 19, 2012 (Denver, CA)<br>
-
-

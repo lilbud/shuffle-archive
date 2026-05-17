@@ -1,12 +1,9 @@
 
-
 *New entry for 1977***New for 2025:**
 
 Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the third of a five-night/ten-show stand.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1973-11-06-170x300.jpg?resize=758%2C1337)
 
@@ -14,11 +11,7 @@ Continuing a week of Texas shows, Bruce and the E Street Band play a show at the
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Corpus_Christi_Caller_Thu__Nov_7__1974_-scaled.jpg?resize=612%2C2560&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/corpus-205x300.jpg?resize=758%2C1109)
 
@@ -52,8 +45,6 @@ Bruce and the band make a Born in the U.S.A. Tour stop at Arizona State Universi
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-11-08a-300x161.png?resize=758%2C407)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-11-08b-250x300.png?resize=758%2C910)
 
 Bruce plays a very special acoustic show at a very special venue: his old elementary school, St. Rose of Lima. This isn't his first time playing the school gym (that was back in his Castiles days), but it's his first time back since then. Although this show is technically part of the Ghost of Tom Joad Tour, in reality it's a very different performance. First of all, he isn't solo: Patti and Soozie join him on several numbers. Secondly, the setlist is different, with tour premieres. Bruce opens with a gorgeous, Soozie-accompanied "" and closes with a world debut: "," which Bruce wrote for the occasion. In between, there's gem after gem: "" and "" with Soozie and Patti, "" and "" solo, an absolutely stunning "" with Soozie, and more. Check out the clips below, and then buy the official archive series release .
@@ -74,11 +65,7 @@ Bruce plays a very special acoustic show at a very special venue: his old elemen
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-11-08a-200x300.png?resize=758%2C1137)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-11-08b-234x300.png?resize=758%2C972)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-11-08c-186x300.png?resize=758%2C1223)
 
@@ -86,11 +73,7 @@ Bruce makes a guest appearance at a Muscular Dystrophy Association benefit in Ab
 
 **2003:** [Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2003-11-08-300x198.jpg?resize=758%2C500)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/11/Asbury_Park_Press_2003_11_14_Page_109.jpg?resize=758%2C670&amp;ssl=1)
 
@@ -141,8 +124,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 At the fifteenth annual edition of Stand Up for Heroes at Alice Tulle Hall in New York City, Bruce performs four songs, including the public debut of "" and the first acoustic "."
 
 **2021:** [Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
-
-
 
 [https://videopress.com/embed/4jab0Nll?hd=0&amp;cover=1](https://videopress.com/embed/4jab0Nll?hd=0&amp;cover=1)
 

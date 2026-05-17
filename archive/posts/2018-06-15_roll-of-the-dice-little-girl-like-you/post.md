@@ -27,14 +27,14 @@ Check out the lyrics:
 > *Had a lot of fun*
 > *Ran around a lot*
 > *Now my runnin's done*
-*Honey, all I wanna, w**anna be runnin' to*  
+*Honey, all I wanna, w**anna be runnin' to*
 > *Is the arms of a girl like you*
 
 > *You start livin' life*
 > *Like you just don't care*
 > *You done everything*
 > *You been everywhere*
-*But what I done ain't nothin' t**o what I wanna do*  
+*But what I done ain't nothin' t**o what I wanna do*
 > *When I find a little girl like you*
 
 > *We'll get married*
@@ -48,7 +48,7 @@ Check out the lyrics:
 > *Walkin' down the street*
 > *You're the only one*
 > *You make my life complete*
-*I got a plan but i**t's one made for two*  
+*I got a plan but i**t's one made for two*
 > *So I need a little girl like you*
 > *Yeah, hey, I need a little girl like you*
 > *Oh Honey, I need a little girl like you.*
@@ -59,9 +59,9 @@ To a pair of 2018 ears, it's a little creepy.
 
 So, yeah: probably for the best that Bruce discarded this one. He's never performed it live, and I doubt he ever will.
 
-**Little Girl (Like You)**  
-**Recorded:** January 20, 1983  
-**Never released**  
+**Little Girl (Like You)**
+**Recorded:** January 20, 1983
+**Never released**
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

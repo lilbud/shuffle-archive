@@ -1,5 +1,4 @@
 
-
 Meanwhile… I was thinking:
 
 Chuck Berry's "Run Rudolph Run" is basically the same song as "." The man was one of the all-time great rock and roll performers, but he also sure knew how to get a lot of mileage from his songs.

@@ -16,9 +16,9 @@ It's pretty standard "that's all right with me" romantic territory for Bruce, bu
 
 [Watch on Youtube: Bruce Sprignsteen I Need You #2 background vocals](https://www.youtube.com/watch?v=VSV3vPoBdFM)
 
-**I Need You**  
-**Recorded:** early 1982  
-**Never released**  
+**I Need You**
+**Recorded:** early 1982
+**Never released**
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

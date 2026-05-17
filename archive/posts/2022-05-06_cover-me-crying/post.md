@@ -2,7 +2,6 @@
 
 ---
 
-
 "Crying" was denied its rightful honor atop the Billboard Hot 100 when it was originally released in 1961.
 
 [Watch on Youtube: Roy Orbison - Crying](https://www.youtube.com/watch?v=tNdBLBleO90)

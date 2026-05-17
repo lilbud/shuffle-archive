@@ -1,8 +1,5 @@
 
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-19a.jpg?resize=494%2C824&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-19b.jpg?resize=758%2C761&amp;ssl=1)
 
@@ -28,8 +25,6 @@ Bruce arrives in Sydney two days before what will be his first-ever show in Aust
 
 **1985:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1985-03-19.png?resize=758%2C461&amp;ssl=1)
 
 Bruce plays his first-ever show in Northern Ireland, at King's Hall in Belfast. This show is available as part of Bruce's official archive series.
@@ -54,11 +49,7 @@ A second public warm-up show for Bruce Springsteen and the E Street Band, their 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19a.jpg?resize=758%2C552&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19b.jpg?resize=758%2C725&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-19c.jpg?resize=758%2C493&amp;ssl=1)
 

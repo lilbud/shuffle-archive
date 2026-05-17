@@ -1,5 +1,4 @@
 
-
 Some songs are indelibly imprinted on or by the context in which you first hear them. For me, Eddie Berman and Laura Marling's version of "" is a textbook example.
 
 [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)

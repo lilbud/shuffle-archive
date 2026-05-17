@@ -15,7 +15,6 @@ So what should you expect to see here? To start, there will be three different s
 - **Cover Me:** Published whenever I feel like it, these are notable covers of Bruce Springsteen songs by other artists, or of other artists by Bruce.
 - **Meeting Across the River:** Published whenever I feel like it, these are rare duets and guest performances with other artists.
 
-
 ...and I suspect that as things get rolling, other series ideas may come to mind.
 
 In the meantime, please check out the first two posts (probably already live by the time you read this)–you'll find, among other things, a recording of the very first performance of "Land of Hope and Dreams"–and come back tomorrow for another Kingdom of Days mini-archive.

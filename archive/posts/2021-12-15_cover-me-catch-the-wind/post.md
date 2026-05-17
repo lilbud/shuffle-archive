@@ -1,5 +1,4 @@
 
-
 "Catch the Wind" might seem like a strange candidate for a Castiles setlist.
 
 True, Donovan's first single was a decent hit, charting at #23 in the US and all the way to #4 in the UK. But the 1965 song was a tender acoustic ballad about unrequited love, and that seemed an ill fit for The Castiles' rock sensibilities.

@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 The Castiles play a gig at the Hullaballoo in Middletown, New Jersey.
 
 **1966:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/12/hulla.jpg?resize=758%2C976&amp;ssl=1)
 
@@ -14,23 +11,17 @@ The Castiles open for The Broadways at the Ocean Side Surf Club in Sea Bright, N
 
 **1967:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1967-1222.jpg?resize=758%2C927)
 
 Bruce is in California visiting his parents, with no set return date. It appears that he anticipates staying a while, though, because he takes the time to obtain his California driver's license.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/cadriverlice-300x212.jpg?resize=758%2C535)
 
 Bruce and his band headline at Uncle Al's Erlton Theater Lounge in Cherry Hill, New Jersey.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1973-1222-242x300.jpeg?resize=758%2C941)
 

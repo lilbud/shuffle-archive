@@ -5,5 +5,3 @@ One of the many, many bands to take to the Internet during the great pandemic of
 [Watch on Youtube: "Atlantic City" Springsteen Cover by Fred the Bear](https://www.youtube.com/watch?v=A4Gg5qIyHlQ)
 
 The guys do a terrific job honoring the original *Nebraska* arrangement of "Atlantic City" while making it their own. I'll be keeping an eye out for future covers.
-
-

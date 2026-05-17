@@ -1,5 +1,4 @@
 
-
 Bruce jams with local musicians at an open mic night at the Upstage.
 
 **1971:**<br>
@@ -11,8 +10,6 @@ The Bruce Springsteen Band plays their fifth of a nine-show, month-long semi-res
 Bruce and the E Street Band headline at Penn State University, their first-ever appearance there.
 
 **1975:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1975-0219-300x187.jpg?resize=758%2C473)
 

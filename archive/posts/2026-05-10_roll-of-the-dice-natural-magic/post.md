@@ -34,9 +34,9 @@ And yet, despite wearing its influences on its sleeve, "Natural Magic" is sweet 
 
 ![](../../assets/2020/05/naturalmagic_lyrics.jpg)
 
-**Natural Magic  
+**Natural Magic
 **Never recorded**<br>
-**Never released**  
+**Never released**
 **First performed:** July 10, 1971 (Lincroft, NJ)<br>
 **Last performed:** July 29, 1971 (South Amboy, NJ)<br>
 

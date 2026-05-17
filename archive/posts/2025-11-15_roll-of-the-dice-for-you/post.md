@@ -111,10 +111,7 @@ Because "For You" isn't a love story. It's not even a story at all. It's an impr
 
 It's not a song that resonates with everyone. But if you've been there, it resonates deeply.
 
-
-
 ---
-
 
 Bruce recorded "For You" during the summer of 1972 with The Bruce Springsteen Band (minus Steve Van Zandt), in a loose, almost disheveled arrangement that serves to underscore the narrator's frame of mind.
 
@@ -138,5 +135,5 @@ That misstep aside, "For You" is one of Bruce's oldest fan-favorites, and one al
 **First performed:** February 14, 1972 (New York City, NY)<br>
 **Last performed:** September 5, 2016 (Virginia Beach, VA)<br>
 
-© January 8, 2022  
+© January 8, 2022
 Photo credit: Barry Schneier

@@ -1,5 +1,4 @@
 
-
 No updates
 
 **New for 2024:**<br>
@@ -8,15 +7,11 @@ Bruce drops by the Bottom Line in New York City to catch Patti Smith's late show
 
 **1975:** [Gloria](https://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1975-1226-300x191.jpg?resize=758%2C482)
 
 Bruce announces an extension of his solo acoustic tour in the new year, with select dates in North America before heading overseas.
 
 **1995:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/12/1995-12-2t6.jpg?resize=758%2C1110&amp;ssl=1)
 

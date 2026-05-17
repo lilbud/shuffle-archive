@@ -1,7 +1,5 @@
 > "Bruce has a wonderful way of having humility and tenacity, all at the same time. He can get his ideas across with humility and an ability to do what he wants to do. He's run his own band longer than I have, so I don't have to say, ‘Hey Bruce, how about…?' He says, ‘How about if I try this?' and ‘How about if I try that?' and, he's Bruce Springsteen — sure, try it."
 >
->
->
 > — John Mellencamp, *Cleveland.com*, February 7, 2022
 
 Word got out quickly.
@@ -38,5 +36,3 @@ It's not the kind of track one would expect from either John or Bruce (let alone
 **Recorded:** April 10, 2021<br>
 **Released:** *Strictly a One-Eyed Jack* (2022)<br>
 **Never performed**<br>
-
-

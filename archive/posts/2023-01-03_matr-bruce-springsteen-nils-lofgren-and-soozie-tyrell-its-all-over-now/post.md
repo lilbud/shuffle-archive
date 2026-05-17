@@ -33,5 +33,3 @@ That duet was the last time "It's All Over Now" has appeared on a Springsteen se
 **It's All Over Now**<br>
 **First performed:** November 6, 1983 (Asbury Park, NJ)<br>
 **Last performed:** August 24, 2008 (Kansas City, MO)<br>
-
-

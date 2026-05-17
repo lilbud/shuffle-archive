@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 Bruce catches The Doors' concert at Asbury Park's Convention Hall. Watch actual footage of Jim Morrison from that day below.
@@ -12,15 +11,11 @@ Bruce and his band play two shows at Fat City in Seaside Heights, New Jersey.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1973-0831-170x300.jpg?resize=758%2C1337)
 
 Bruce plays tour guide and historian to Phil Ceccola, who interviews and photographs Bruce around Asbury Park. The interview remains unpublished.
 
 **1975:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1975-0831.jpg?resize=758%2C704)
 
@@ -40,8 +35,6 @@ Bruce and the reunited E Street Band kick off a three-show stand at the MCI Cent
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1999-08-31a.png?resize=431%2C1753&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1999-08-31b.png?resize=758%2C1307&amp;ssl=1)
 
 Bruce and the E Street Band close out their ten-night stand at Giants Stadium, opening with the very first live performance of "." A few songs later, "" makes its only tour appearance, and a full-band "" fittingly closes the show.
@@ -56,15 +49,9 @@ Bruce and the E Street Band close out their ten-night stand at Giants Stadium, o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-31a-300x128.png?resize=758%2C323)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-31b.png?resize=758%2C1633&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-31c-142x300.png?resize=758%2C1601)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-31d-300x94.png?resize=758%2C238)
 

@@ -1,5 +1,4 @@
 
-
 I admit it: I'm reaching with this one.
 
 Technically, "Faster and Louder" qualifies for a blog entry, since Bruce does indeed make an appearance with The Dictators on the lead-off track to their 1978 album .

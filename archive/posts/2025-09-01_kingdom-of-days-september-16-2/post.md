@@ -1,5 +1,4 @@
 
-
 *New entry for 1977, 1983, and 2002***New for 2025:**
 
 The Castiles play two cover sets at the grand opening of The Left Foot, a short-lived teen club based in the rec center of St. Peter's Episcopal Church in Freehold. One of the songs played tonight–a cover of Willie Dixon's "" will eventually become an official release on almost 50 years later. The set also includes covers of Jimi Hendrix's "" and The Yardbirds' "" that showcases just how accomplished on the guitar Bruce had already become by age eighteen.
@@ -12,19 +11,15 @@ The Castiles play two cover sets at the grand opening of The Left Foot, a short-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1967-09-16-95x300.jpg?resize=758%2C2393)
 
-Bruce cancels a scheduled gig at Syracuse University to make room for final mixing on 
+Bruce cancels a scheduled gig at Syracuse University to make room for final mixing on
 
 **1973:** *The Wild, The Innocent, and the E Street Shuffle.*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1973-09-14.jpg?resize=501%2C1670&amp;ssl=1)
 
 The Born to Run Tour's Texas swing concludes with a show at the Dallas Convention Center Theater.
 
 **1975:** (Soundcheck photo credit: Barbara Pyle)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1975-0916-300x202.jpg?resize=758%2C510)
 
@@ -54,11 +49,7 @@ Bruce plays best man when Danny Federici marries Kathlynn Helmeid.
 
 **1987:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/The_Capital_Times_1987_09_17_1.jpg?resize=758%2C1824&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1987-09-16b.jpg?resize=596%2C2629&amp;ssl=1)
 
@@ -70,15 +61,11 @@ The Ghost of Tom Joad Tour resumes after a four-month break, kicking off the fal
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1996-09-16a.jpg?resize=758%2C1329&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1996-09-16b.jpg?resize=758%2C1590&amp;ssl=1)
 
 A hurricane forces the postponement of a scheduled Reunion Tour show in Philadelphia.
 
 **1999:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1999-09-16.jpg?resize=758%2C417&amp;ssl=1)
 

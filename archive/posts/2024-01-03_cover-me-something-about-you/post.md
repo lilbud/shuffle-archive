@@ -1,5 +1,4 @@
 
-
 When Bruce Springsteen revealed his eight desert island discs on BBC Radio back in 2016, The Four Tops made the cut.
 
 "I had to have some Motown," Bruce explained, "because Motown was an incredible part of my youth. Also, if you wanted to know how to write, how to structure successful pop records, you could learn it all from Motown. The sound of the band, the importance of a great singer. Motown was the school where you wanted to go to learn your craft."

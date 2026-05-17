@@ -128,7 +128,6 @@ Ask me in about twenty years.
 
 ---
 
-
 "Racing in the Street" is such a poetic accomplishment that it's easy to overlook its backing track when discussing it. That would be a disservice, though, because this is one of the E Street Band's finest moments on record.
 
 This is a carefully arranged song with an uncharacteristically restrained performance, but "Racing" wouldn't work without the gradual entrance of the band members as the narrator retreats into his inner life; the spectral background vocals during the song's final verse; and that gorgeous, ambling coda. (My favorite moment, though, is Max's engine-revving drum roll that ushers in the bridge as our narrator loses himself in past glory.)

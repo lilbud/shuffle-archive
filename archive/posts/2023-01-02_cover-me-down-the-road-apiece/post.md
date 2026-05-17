@@ -49,5 +49,3 @@ We might be in a pandemic pause at the moment, but when it finally lifts there a
 **Down the Road Apiece**<br>
 **First performed:** July 10, 1971 (Lincroft, NJ)<br>
 **Last performed:** April 13, 2019 (New York City, NY)<br>
-
-

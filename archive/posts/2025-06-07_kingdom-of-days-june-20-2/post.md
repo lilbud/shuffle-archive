@@ -1,5 +1,4 @@
 
-
 *New entry for 1977, 1979 and 2024***New for 2025:**
 
 Steel Mill plays their second of two nights at The String Factory in Richmond.
@@ -9,8 +8,6 @@ Steel Mill plays their second of two nights at The String Factory in Richmond.
 The Sundance Blues Band plays an afternoon gig at The Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1971-06-19-300x163.jpg?resize=758%2C412)
 
@@ -31,8 +28,6 @@ Bruce and the E Street Band work on "Stolen Car" at The Power Station in New Yor
 Bruce makes his by now customary "surprise" appearance with Cats on a Smooth Surface at The Stone Pony, with a setlist that includes covers of "," "," "," "," and more.
 
 **1982:** [Come On, Let's Go](http://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/)[Little Latin Lupe Lu](http://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)[Sweet Little Sixteen](http://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1982-0620.jpg?resize=746%2C596)
 
@@ -63,8 +58,6 @@ Night Four of ten at Madison Square Garden, as the Reunion Tour's last stand con
 [https://videopress.com/embed/C4KwGzw3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/C4KwGzw3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 [https://videopress.com/embed/w2CqZvlc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/w2CqZvlc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Daily_News_Thu__Jun_22__2000_-1-scaled.jpg?resize=758%2C255&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Daily_News_Thu__Jun_22__2000_-scaled.jpg?resize=758%2C770&amp;ssl=1)
 
@@ -117,8 +110,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 Bruce and Patti attend a celebration of life at The Stone Pony for the late Kerry Layton, Patti's life-long friend.
 
 **2019:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/brucepattipony-300x200.jpeg?resize=758%2C505)
 

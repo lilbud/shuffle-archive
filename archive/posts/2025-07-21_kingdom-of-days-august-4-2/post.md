@@ -1,12 +1,9 @@
 
-
 *New entry for 1977***New for 2025:**
 
 Studio sessions force Bruce to cancel a gig at Asbury Park's Convention Hall, where he and the as-yet-unnamed E Street Band were scheduled to open for Cheech & Chong.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1973-08-04.jpg?resize=758%2C1579&amp;ssl=1)
 

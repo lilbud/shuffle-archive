@@ -60,5 +60,3 @@ Bruce's last verse shreds on its own power, but Gary absolutely nails his vocals
 **Recorded** January – February 1982<br>
 **Released:** *On the Line* (1982)<br>
 **Never performed**<br>
-
-

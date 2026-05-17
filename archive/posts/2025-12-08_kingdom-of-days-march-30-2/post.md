@@ -1,5 +1,4 @@
 
-
 At the Record Plant in New York City, Bruce and his studio team complete the mix for "Darkness on the Edge of Town."
 
 **1978:**<br>
@@ -22,8 +21,6 @@ Detroit radio station WRIF-FM airs a bootleg of last month's Tunnel of Love Expr
 
 **1988:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-30.jpg?resize=417%2C825&amp;ssl=1)
 
 Bruce and Julianne Phillips finalize their divorce.
@@ -37,8 +34,6 @@ Bruce and his new touring band rehearse in Glasgow before kicking off World Tour
 [https://videopress.com/embed/QSdKEveK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QSdKEveK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30a.png?resize=758%2C984&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30b.png?resize=758%2C1508&amp;ssl=1)
 

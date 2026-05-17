@@ -1,5 +1,4 @@
 
-
 *Audio for 1975***New for 2025:**
 
 Child plays their last of six consecutive nights at the Pandemonium in Wanamassa, New Jersey. On this night, however, the band isn't the center of attention: during Bruce's performance, Neil Armstrong lands and walks on the moon. That's tough for anyone to compete with, and the band takes issue with the distracting televisions placed around the club. They won't play this club again.
@@ -9,8 +8,6 @@ Child plays their last of six consecutive nights at the Pandemonium in Wanamassa
 Bruce and the E Street band play their third of six consecutive two-shows-nightly gigs at Max's Kansas City in New York, with the Wailers as the opening act.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1973-0720-182x300.jpg?resize=758%2C1250)
 

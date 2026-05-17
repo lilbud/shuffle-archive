@@ -1,12 +1,9 @@
 
-
 *Audio for 2012; new entry for 2024***New for 2025:**
 
 : The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1971-11-19-224x300.png?resize=758%2C1015)
 
@@ -17,8 +14,6 @@ The Born in the U.S.A. Tour comes to Kemper Arena in Kansas City for a night.
 [https://www.youtube.com/embed/XxX9V1TLmZo?feature=oembed](https://www.youtube.com/embed/XxX9V1TLmZo?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1984-11-19a-279x300.png?resize=758%2C815)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1984-11-19b-1.png?resize=449%2C3061&amp;ssl=1)
 
@@ -43,8 +38,6 @@ Bruce releases a new EP, , available with the new VHS version of the documentary
 The promotional push for begins, as Bruce tapes a 20-minute interview with Bob Costas, which will be aired the following month on .
 
 **1998:** *Tracks* *Dateline*
-
-
 
 [https://www.dailymotion.com/embed/video/x10b1f](https://www.dailymotion.com/embed/video/x10b1f)
 
@@ -87,8 +80,6 @@ Bruce plays an solo acoustic show at Hard Rock Live in Hollywood, Florida… alm
 [https://www.youtube.com/embed/nj0W84Y624c?feature=oembed](https://www.youtube.com/embed/nj0W84Y624c?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2005-11-19a-187x300.png?resize=758%2C1216)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2005-11-19b-300x298.png?resize=758%2C753)
 

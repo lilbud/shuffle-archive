@@ -21,7 +21,3 @@ But like I always say: if you're gonna cover Bruce, be different or be great.
 This one is *definitely* different.
 
 As for great… you tell me. What do you think?
-
-
-
-

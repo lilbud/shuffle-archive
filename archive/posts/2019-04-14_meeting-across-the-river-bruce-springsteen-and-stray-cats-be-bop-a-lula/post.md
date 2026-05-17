@@ -1,5 +1,4 @@
 
-
 On July 23, 1982, Bruce dropped by The Fast Lane in Asbury Park and joined Stray Cats on stage for one song: "Be-Bop-a-Lula."
 
 https://youtu.be/DkAH2uo9sjU

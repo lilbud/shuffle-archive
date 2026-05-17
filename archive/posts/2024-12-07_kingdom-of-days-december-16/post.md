@@ -1,5 +1,4 @@
 
-
 *Advertisement for 1973***New for 2024:**
 
 Bruce cancels a scheduled show in Willimantic, Connecticut only a day or two before the show.
@@ -13,8 +12,6 @@ Bruce and the E Street Band bring the now red-hot Born to Run Tour to the State 
 [https://www.youtube.com/embed/sRQcszLVROs?feature=oembed](https://www.youtube.com/embed/sRQcszLVROs?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1975-12-16.png?resize=758%2C356&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/46889989845_109049cab1_o-300x240.jpg?resize=758%2C606)
 
@@ -46,8 +43,6 @@ Joe Grushecky joins Bruce and his new touring band for "‘ and "" when World To
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-16.png?resize=758%2C298&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/45085203155_e0e88b3926_o-300x232.jpg?resize=758%2C586)
 
 At Night Two at the Orpheum Theater in Boston on the Ghost of Tom Joad Tour, Bruce plays "" for the first time ever, as well as the tour premiere of "," which will evolve as the tour goes on and become a staple of Bruce's acoustic performances.
@@ -72,7 +67,7 @@ Bruce and the E Street Band bring the Rising Tour to the Value City Arena in Col
 
 [https://videopress.com/embed/44CBegiw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/44CBegiw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce releases "," the third single from his upcoming album, 
+Bruce releases "," the third single from his upcoming album,
 
 **2008:**[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)*Working on a Dream.*
 
@@ -82,11 +77,9 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 **2017:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/38396652234_029c0a474d_o-300x295.jpg?resize=758%2C746)
 
-At the stroke of midnight, Netflix starts the day by releasing the streaming video version of 
+At the stroke of midnight, Netflix starts the day by releasing the streaming video version of
 
 **2018:** *Springsteen on Broadway.*
 

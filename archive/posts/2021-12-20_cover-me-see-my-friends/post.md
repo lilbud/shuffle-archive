@@ -1,5 +1,4 @@
 
-
 They may have been a high school band, but we have to give The Castiles some extra credit, because they certainly did not shy away from challenging material.
 
 Whether tackling guitar hero challenges like "" and "" or covering the Indian-influenced "See My Friends," The Castiles were always stretching themselves, because Bruce Springsteen always had something to prove.

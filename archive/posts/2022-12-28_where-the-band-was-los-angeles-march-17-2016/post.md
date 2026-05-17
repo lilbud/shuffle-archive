@@ -1,5 +1,4 @@
 
-
 [https://videopress.com/embed/vlByZSBh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vlByZSBh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 One of the most amazing things about the E Street Band isn't just its longevity, but its longevity across generations. Jake Clemons ably fills his uncle's shoes and then some; Jay Weinberg sat in for his dad when prior commitments conflicted with ESB tours; and on this night in Los Angeles, Danny Federici's daughter Madison and son Jason made their ESB debut on tambourine and accordion respectively for "" and a video tribute t

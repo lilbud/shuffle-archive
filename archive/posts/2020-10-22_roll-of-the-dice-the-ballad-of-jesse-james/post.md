@@ -63,5 +63,3 @@ Here's that performance–its first in 46 years–performed by the original Bruc
 **Last performed:** April 21, 2017 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-

@@ -1,5 +1,4 @@
 
-
 *New entry for 1977; video for 2023***New for 2025:**
 
 Bruce plays an unadvertised acoustic set at Max's Kansas City in New York.
@@ -34,19 +33,13 @@ Bruce's scheduled return to Giants Stadium is postponed due to rain, meaning thi
 
 **1985:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-08-30-250x300.png?resize=758%2C910)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1985-08-30-140x300.jpg?resize=758%2C1624)
 
 Julianne Phillips files for divorce after newspaper tabloids published pictures of Bruce and Patti caught in intimate circumstances earlier in the summer.
 
 **1988:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1988-08-30-300x114.png?resize=758%2C288)
 
@@ -90,8 +83,6 @@ Bruce watches his daughter Jessica compete at the 34th annual Hampton Classic.
 
 **2009:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2009-08-30-256x300.png?resize=758%2C888)
 
 Jaws drop and the Internet breaks: Bruce and the E Street Band break their U.S. record–again–for the longest show ever (this time breaking the four-hour mark), but it's the set list at this final East Rutherford show that blows minds: the show starts with the by now (amazingly) standard opener, "New York City Serenade" complete with strings, but what follows is a largely chronological trip through Bruce's catalog. Rickie Lee Jones guest stars on three songs, and Bruce plays the entire second side of (including the tour premiere of ""). Also making their tour premiere: "" "," and "." A fireworks-accompanied "" closes a remarkable show.
@@ -114,15 +105,11 @@ Jaws drop and the Internet breaks: Bruce and the E Street Band break their U.S. 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2016-08-30a.png?resize=758%2C875&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2016-08-30b-300x191.png?resize=758%2C482)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: college basketball broadcaster Dick Vitale.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/vitale-300x300.jpg?resize=758%2C758)
 
@@ -141,7 +128,5 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 [https://www.youtube.com/embed/rIIxe2KojjA?feature=oembed](https://www.youtube.com/embed/rIIxe2KojjA?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/Asbury_Park_Press_2023_09_01_A1.jpg?resize=758%2C1499&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/Asbury_Park_Press_2023_09_01_A2.jpg?resize=758%2C626&amp;ssl=1)

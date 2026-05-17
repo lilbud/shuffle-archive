@@ -1,5 +1,4 @@
 
-
 *Audio and video for 2006; new entry for 2024***New for 2025:**
 
 Bruce and the E Street Band play at Avery Fisher Hall in New York City, and the show is of note for several reasons: first, because it features the debut of Suki Lahav, who will join the tour as a regular player a few shows later. Second, because it features the debut (or at least the earliest known performance) of "," which actually features lyrics from what will become "." Third, the encore is abruptly halted due to the collapse of the front rows of seats–just before Bruce is slated to play what would have been his only performance of "On Broadway."
@@ -22,15 +21,11 @@ Bruce cancels a sold-out show at the University of Maryland when he learns that 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1975-10-04a.jpg?resize=758%2C1421&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1975-10-04b.jpg?resize=758%2C963&amp;ssl=1)
 
 Bruce approves and submits his fifth studio album, . The album will be shelved before release, however, with Bruce opting instead to release a double-album called Thirty-six years later, will finally see the light of day in the box set .
 
 **1979:** *The Ties That Bind**The River.* *The Ties That Bind* *The Ties That Bind: The River Collection*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1979-1004-295x300.jpg?resize=738%2C751)
 
@@ -42,11 +37,7 @@ The River Tour gets rolling on Night Two, moving on to Cincinnati's Riverfront C
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1980-10-04a-239x300.jpg?resize=758%2C952)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1980-10-04b.jpg?resize=644%2C2841&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1980-10-04c-292x300.jpg?resize=758%2C779)
 
@@ -58,8 +49,6 @@ Bruce speaks and performs acoustically at the dedication ceremony for a Boston b
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2002-10-04a-250x300.jpg?resize=758%2C910)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2002-10-04b.jpg?resize=758%2C1430&amp;ssl=1)
 
 That night, Bruce plays the Fleet Center, dedicating "" to Zakim and closing the show with "" joined by Peter Wolf.
@@ -69,8 +58,6 @@ That night, Bruce plays the Fleet Center, dedicating "" to Zakim and closing the
 [https://videopress.com/embed/nYd5pwJC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nYd5pwJC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2002-10-04c-74x300.jpg?resize=758%2C3073)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2002-10-04d-300x127.jpg?resize=758%2C321)
 
@@ -122,15 +109,9 @@ Bruce kicks off a solo mini-tour in support of presidential candidate Barack Oba
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2008-10-04a-300x127.jpg?resize=758%2C321)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2008-10-04b-206x300.jpg?resize=758%2C1104)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2008-10-04c.jpg?resize=758%2C1160&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2008-10-04d-94x300.jpg?resize=758%2C2419)
 

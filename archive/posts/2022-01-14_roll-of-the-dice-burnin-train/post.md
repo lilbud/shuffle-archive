@@ -26,8 +26,8 @@ Bruce's most recent album is all about aging and mortality, and "Burnin' Train" 
 
 All the thematic elements of a classic Springsteen song are here:
 
-✅ Loser narrator  
-✅ Religious imagery  
+✅ Loser narrator
+✅ Religious imagery
 ✅ Train metaphor
 
 And, of course, the song-length sexual encounter, which Bruce employs with far more frequency than I think most fans realize.

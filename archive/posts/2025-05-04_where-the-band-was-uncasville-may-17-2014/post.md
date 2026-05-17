@@ -1,5 +1,4 @@
 
-
 The problem with seeing a lot of Bruce Springsteen shows is that you tend to run out of superlatives after a while. So for this show at the Mohegan Sun Cas
 
 ino(!) in Uncasville, CT (certainly one of the most unusual venues I've seen Bruce play)–the penultimate show of the High Hopes tour–I'll go with… jaw-dropping-est.

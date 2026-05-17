@@ -1,5 +1,4 @@
 
-
 Singer-songwriter Serena Ryder may not be as well known in the U.S. as she is in her native Canada, but she certainly caught someone's attention on E Street, because her exquisite, stripped-down cover of "" was featured on Bruce's official site back in 2009 as part of the site's short-lived "Hangin' on E Street" series.
 
 [Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)

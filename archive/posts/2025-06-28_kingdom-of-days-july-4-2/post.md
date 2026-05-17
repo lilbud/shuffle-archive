@@ -1,20 +1,15 @@
 
-
 *New entry for 1979; video for 2012***New for 2025:**
 
 Bruce plays his last show as a full member of the Sundance Blues Band.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1971-07-03-256x300.jpg?resize=758%2C888)
 
 A newly clean-shaven Bruce drops by Southside Johnny's Stone Pony concert; after Southside's set, Bruce and the E Street Band play a set themselves.
 
 **1976:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1976-0704-259x300.jpg?resize=758%2C878)
 
@@ -38,8 +33,6 @@ Bruce spends the holiday on the water: friend and fan Obie Dziedzic charters the
 
 **1983:** *Atlantis*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1983-07-04-300x294.jpg?resize=758%2C743)
 
 At a rare July 4th concert, Bruce opens his second of three nights at London's Wembley Stadium with an acoustic "," and Little Steven once again joins the band during the encore.
@@ -53,8 +46,6 @@ At a rare July 4th concert, Bruce opens his second of three nights at London's W
 [https://www.youtube.com/embed/Tw-KDhmlE5k?feature=oembed](https://www.youtube.com/embed/Tw-KDhmlE5k?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1985-07-04.jpg?resize=758%2C610&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/07/The_Courier_Journal_1985_07_03_Page_27-scaled.jpg?resize=758%2C823&amp;ssl=1)
 

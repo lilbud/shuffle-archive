@@ -1,12 +1,9 @@
 
-
 *New entry for 1977***New for 2025:**
 
 The Castiles play their final gig ever, one last show at Le Teendezvous in New Shrewsbury, New Jersey. Bruce has already assembled a new band, which will come to be known as Earth.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1968-0810-212x300.jpg?resize=758%2C1073)
 
@@ -32,7 +29,7 @@ There's a and an with Bruce's career, and both pivot around Bruce's legendary re
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/The_Plain_Dealer_1975_08_11_29.jpg?resize=758%2C600&amp;ssl=1)
 
-At Atlantic Studios in New York City, Bruce and the E Street Band record an alternate arrangement of "" Almost four decades later, Bruce will complete and release it on 
+At Atlantic Studios in New York City, Bruce and the E Street Band record an alternate arrangement of "" Almost four decades later, Bruce will complete and release it on
 
 **1977:** [Racing in the Street.](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)*The Promise.*
 
@@ -66,8 +63,6 @@ Entertainment Tonight airs a segment covering the end of the marathon run of sho
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1992-08-10a-179x300.png?resize=758%2C1271)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1992-08-10b-238x300.png?resize=758%2C956)
 
 Bruce makes a guest appearance at Cheers in Long Branch for the second time in a week, this time with Solar Circus at a Jerry Garcia tribute concert.
@@ -78,15 +73,11 @@ Bruce makes a guest appearance at Cheers in Long Branch for the second time in a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1995-08-10a-300x179.png?resize=758%2C452)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1995-08-10b.png?resize=559%2C2297&amp;ssl=1)
 
 After practicing with the band the night prior, Bruce joins local band The Fanatics for six songs at Toby Scott's wedding in Whitefish, Montana, including "," and ""
 
 **1996:** [Hold On, I'm Comin'](http://estreetshuffle.com/index.php/2019/04/24/matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/)[Long Tall Sally.](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1996-08-10.jpg?resize=561%2C1438&amp;ssl=1)
 
@@ -109,7 +100,5 @@ Bruce (with Evan in tow as guitar tech) takes the summer leg of his solo acousti
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Carole King.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/carole-297x300.jpg?resize=758%2C765)

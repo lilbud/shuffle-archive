@@ -1,5 +1,4 @@
 
-
 It takes guts to reinvent an anthem like "." Even Bruce has never deviated from its original arrangement–it was pretty much born perfect.
 
 [Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)

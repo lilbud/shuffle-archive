@@ -1,12 +1,9 @@
 
-
 *Review for 2004***New for 2025:**
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1971-1001-300x168.jpg?resize=758%2C425)
 
@@ -28,8 +25,6 @@ Bruce and the E Street Band bring their Lawsuit Tour to the Paramount Theater in
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1976-10-02-300x239.jpg?resize=758%2C604)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1976-1002-300x270.jpg?resize=758%2C683)
 
 The marathon Born in the U.S.A. Tour finally comes to a close in Los Angeles, with Julianne and Jon Landau getting on-stage appearances. Watch some great highlights from the show below, along with extensive news coverage of the event.
@@ -44,8 +39,6 @@ The marathon Born in the U.S.A. Tour finally comes to a close in Los Angeles, wi
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-10-02a-300x298.jpg?resize=758%2C753)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-10-02b-300x121.jpg?resize=758%2C306)
 
 World Tour 1992 moves on to the America West Arena in Phoenix for the first of two nights.
@@ -55,8 +48,6 @@ World Tour 1992 moves on to the America West Arena in Phoenix for the first of t
 [https://videopress.com/embed/Ba5xlxSS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ba5xlxSS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1992-10-02a-300x300.jpg?resize=758%2C758)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1992-10-02b-300x143.jpg?resize=758%2C361)
 
@@ -68,7 +59,7 @@ Bruce plays a solo acoustic show at the Riverside Theater in Milwaukee, 21 years
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1996-1002-300x288.jpg?resize=758%2C727)
 
-The Vote for Change Tour of swing states moves on to Cleveland's Gund Arena, where "" replaces "" and "" replaces "Proud Mary." Bruce joins R.E.M. for two songs this time: "" (as with last night in Philly) and "." For more highlights from this show, see my 
+The Vote for Change Tour of swing states moves on to Cleveland's Gund Arena, where "" replaces "" and "" replaces "Proud Mary." Bruce joins R.E.M. for two songs this time: "" (as with last night in Philly) and "." For more highlights from this show, see my
 
 **2004:** [The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)[Bad Moon Rising](https://estreetshuffle.com/index.php/2023/01/18/matr-bruce-springsteen-and-john-fogerty-bad-moon-rising/)[Man on the Moon](https://estreetshuffle.com/index.php/2021/01/06/matr-r-e-m-and-bruce-springsteen-man-on-the-moon/)[Bad Day](https://estreetshuffle.com/index.php/2021/05/05/meeting-across-the-river-r-e-m-and-bruce-springsteen-bad-day/)[report.](http://estreetshuffle.com/index.php/2018/10/02/where-the-band-was-cleveland-october-2-2004/)*Where the Band Was*
 

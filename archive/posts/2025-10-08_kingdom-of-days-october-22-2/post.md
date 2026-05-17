@@ -60,8 +60,6 @@ Also today, NPR airs an interview with Bruce.
 
 [Watch Video](https://www.npr.org/player/embed/925358745/926609762)
 
-
-
 Finally, Apple TV+ releases the *Letter to You* documentary film, featuring Bruce and E Street Band recording their new album.
 
 [Watch on Youtube: BRUCE SPRINGSTEEN: LETTER TO YOU Official Trailer (2020) Documentary Movie](https://www.youtube.com/watch?v=FLHv-ia1M6Y)
@@ -71,5 +69,3 @@ And in the last hour before Release Day, Apple Music's Zane Lowe interviews Bruc
 [Watch Video Highlight](https://videopress.com/embed/MGsbgB6v)
 
 **2024:** Bruce and the E Street Band rehearse at Sirius XM Studio in New York City for their appearance on *The Howard Stern Show* the following day.
-
-

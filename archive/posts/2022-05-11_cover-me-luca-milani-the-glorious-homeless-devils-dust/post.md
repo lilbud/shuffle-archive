@@ -11,5 +11,3 @@ It works spectacularly, preserving enough of the original arrangement to be inst
 The *Cover Me* competition for 2022 is underway, with new entries appearing by the day. If you're interested in entering, you can find full details and rules [here](https://www.noiespringsteen.com/contest/). (But move quickly–the entry deadline is May 31st!)
 
 If this year's crop of entries are as outstanding as last years, you can expect to be seeing features on contest entrants here throughout the summer. In the meantime, if you like what you heard here, check out Luca Milani's original music [here](https://www.luca-milani.com/).
-
-

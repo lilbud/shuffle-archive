@@ -1,5 +1,4 @@
 
-
 In retrospect, we probably should have expected it.
 
 Bruce once described the Sessions Band as a band that rolls rather than rocks, and that's also a perfect descriptor for The Band's 1970 single, "Rag Mama Rag."

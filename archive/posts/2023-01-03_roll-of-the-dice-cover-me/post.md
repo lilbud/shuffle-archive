@@ -122,7 +122,6 @@ I'm thinking this is a streak worth extending.
 
 ---
 
-
 **Bonus:** Here's an alternate, unreleased mix of "Cover Me." I present it here for the catharsis of hearing the E Street Band bring the song to a satisfying halt. You can almost hear the sigh of relief.
 
 [Watch Video Highlight](https://videopress.com/embed/e3V4yBk8)

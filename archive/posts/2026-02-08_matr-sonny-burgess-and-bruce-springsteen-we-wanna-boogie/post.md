@@ -1,5 +1,4 @@
 
-
 In fairness, they probably never stood a chance.
 
 To this day, Sonny Burgess' original 1956 recording of "We Wanna Boogie" is one of the hardest rocking singles I have ever heard.

@@ -6,7 +6,7 @@ Any irony or disappointment would probably be outweighed by appall over the circ
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GDaPdpwA4Iw)
 
-The song was born out of the chaos of Operation Metro Surge. In early 2026, the United States Department of Homeland Security sent more than three thousand Immigration and Customs Enforcement (ICE) agents into the Twin Cities. 
+The song was born out of the chaos of Operation Metro Surge. In early 2026, the United States Department of Homeland Security sent more than three thousand Immigration and Customs Enforcement (ICE) agents into the Twin Cities.
 
 Ostensibly targeting allegations of fraud perpetuated by the cities' Somalian community, it quickly became clear that the agents were indiscriminately arresting local residents without due diligence, care, or compassion.
 

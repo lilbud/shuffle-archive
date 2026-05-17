@@ -1,5 +1,4 @@
 
-
 At the Grammy Awards in 2003, Bruce paid tribute to the recently departed Joe Strummer by teaming up with Steve Van Zandt, Elvis Costello and Dave Grohl to cover The Clash's classic "London Calling."
 
 [https://www.youtube.com/embed/MkyeGVuc2pQ?feature=oembed](https://www.youtube.com/embed/MkyeGVuc2pQ?feature=oembed)

@@ -1,5 +1,4 @@
 
-
 When I shared Joan Osborne and The Waybacks' a few months ago, I promised it wouldn't be the last time I dip into this absolutely fantastic album.
 
 [cover of "I'm Goin' Down"](http://estreetshuffle.com/index.php/2018/05/15/cover-me-joan-osborne-and-the-waybacks-im-goin-down/)

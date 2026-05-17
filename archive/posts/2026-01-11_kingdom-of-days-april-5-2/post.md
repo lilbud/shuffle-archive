@@ -1,5 +1,4 @@
 
-
 Child performs at the Pandemonium in Wanamassa, New Jersey.
 
 **1969:**<br>
@@ -7,8 +6,6 @@ Child performs at the Pandemonium in Wanamassa, New Jersey.
 Bruce and the E Street Band headline a show at Widener College.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1974-0405.jpg?resize=758%2C512&amp;ssl=1)
 
@@ -50,8 +47,6 @@ Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Th
 
 **2006:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2006-04-05.jpg?resize=758%2C360&amp;ssl=1)
 
 Bruce makes a surprise appearance at a Carnegie Hall benefit show, , joining Craig Finn, Jesse Malin, and Badly Drawn Boy on stage.
@@ -78,8 +73,6 @@ Bruce continues tinkering with the set list on the third night of the Working on
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2009-04-05a.jpg?resize=758%2C232&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2009-04-05b.jpg?resize=415%2C961&amp;ssl=1)
 
 At a River Tour stop in Dallas, things get a little out of hand during "Dancing in the Dark."
@@ -99,8 +92,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 Bruce and President Barack Obama release the final episode of their Spotify podcast, This episode is entitled "The Rising: Looking Towards American Renewal" and features an acoustic performance of "Born in the U.S.A."
 
 **2021:** *Renegades: Born in the U.S.A.*
-
-
 
 [https://open.spotify.com/embed/episode/3w2WPhbgj9xfaIitFYDfif?si=8269cf5fbab84393&amp;utm_source=oembed](https://open.spotify.com/embed/episode/3w2WPhbgj9xfaIitFYDfif?si=8269cf5fbab84393&amp;utm_source=oembed)
 

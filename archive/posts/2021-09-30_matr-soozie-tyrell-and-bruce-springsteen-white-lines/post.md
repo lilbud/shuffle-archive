@@ -14,8 +14,6 @@ For more background on *White Lines* and Soozie herself, take a listen to this r
 
 [Watch Video](https://www.npr.org/player/embed/1335237/99403098)
 
-
-
 **White Lines**<br>
 **Recorded:** May 2002<br>
 **Released:** *White Lines* (2003)<br>

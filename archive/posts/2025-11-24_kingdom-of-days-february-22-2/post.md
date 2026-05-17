@@ -1,10 +1,7 @@
 
-
 Douglas Springsteen and Adele Zerilli marry at the St. Rose of Lima Church in Freehold, New Jersey. Later the following year, they'll become the proud parents of a baby boy destined to become one of the world's most famous, respected, and beloved rock stars, but tonight they enjoy their wedding reception at the Blue Moon Inn in Farmingdale. Long, long after, their son will write one of his finest songs about the indelibility of young love. Is "" a loving nod to his parents' wedding? Only Bruce knows.
 
 **1948:** [Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1948_02_27_Page_12.jpg?w=758&amp;ssl=1)
 
@@ -17,8 +14,6 @@ Steel Mill records three Springsteen original songs ("," "," and "") at Pacific 
 Bruce's gig at the Santa Clara County Fairgrounds in San Jose is cancelled.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1973-02-22-152x300.jpg?resize=758%2C1506)
 
@@ -78,12 +73,8 @@ Bruce and former President Barack Obama debut their new podcast: on Spotify. Two
 
 **2021:** *Renegades: Born in the U.S.A.*
 
-
-
 [https://open.spotify.com/embed/episode/7BkRSahmh3pnst36NNDf5e?si=43141c3fd9214a96&amp;utm_source=oembed](https://open.spotify.com/embed/episode/7BkRSahmh3pnst36NNDf5e?si=43141c3fd9214a96&amp;utm_source=oembed)
 
 [https://open.spotify.com/embed/episode/7tXg9vz5UMcgWauAqOlQVv?si=7b18ba5445034a95&amp;utm_source=oembed](https://open.spotify.com/embed/episode/7tXg9vz5UMcgWauAqOlQVv?si=7b18ba5445034a95&amp;utm_source=oembed)
-
-
 
 [https://open.spotify.com/embed/episode/1CDiH5BkB1AyZ2q4SWbxG3?si=722e16a8f3904cd3&amp;utm_source=oembed](https://open.spotify.com/embed/episode/1CDiH5BkB1AyZ2q4SWbxG3?si=722e16a8f3904cd3&amp;utm_source=oembed)

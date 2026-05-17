@@ -1,5 +1,4 @@
 
-
 Bruce is no stranger to Jimmy Cliff's catalog: his cover of "" has been a fan favorite for decades, and "" was a setlist staple during World Tour 1993.
 
 [Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)[Many Rivers to Cross](http://estreetshuffle.com/index.php/2018/07/28/cover-me-many-rivers-to-cross/)

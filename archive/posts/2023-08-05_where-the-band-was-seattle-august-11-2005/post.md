@@ -1,5 +1,4 @@
 
-
 Coming off an outstanding show , I was excited to see what a hometown show might bring. It had been three years since I'd seen a show in the Seattle area, and I was used to travelling and meeting new people in the interim. So it was kind of a novelty to go to a show joined by a bunch of friends and co-workers–I even convinced my wife to join me for this one, which is a pretty rare thing.
 
 [the night before in Portland](https://wp.me/p9w3Lk-W3)

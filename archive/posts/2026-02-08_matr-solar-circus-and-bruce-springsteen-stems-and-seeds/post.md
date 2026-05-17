@@ -1,8 +1,7 @@
 
-
 The band is Solar Circus, a North Jersey-based Grateful Dead-influenced band (at one point, Dead songs comprised about half their sets) that broke up in 1997 but can't quite manage to stay broken. (The members were still getting together for live shows as recently as 2020.)
 
-The song is "Stems and Seeds," the opening track from the band's 1992 album and featured song in 
+The song is "Stems and Seeds," the opening track from the band's 1992 album and featured song in
 
 *Step Right Up**Tie-died: Rock ‘n Roll's Most Deadicated Fans.*
 

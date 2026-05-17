@@ -13,5 +13,3 @@ Bruce's song of disconnection resonated with Jane long after she released that v
 "This song helped me make sense of the endless lockdown," Jane wrote in a Facebook post. "Ireland has had one of the longest and strictest lockdowns in Europe. And I will never forget these lockdowns and the sense of loneliness and disconnectedness I felt. But I also felt connected with the world through my YouTube channel, through these live videos I do. So this song, I suppose is my thank you to those that have watched these videos and reached out in some way."
 
 Jane's single is available for purchase at Bandcamp. If you like it, consider purchasing it [here](https://janewillowmusic.bandcamp.com/track/dancing-in-the-dark).
-
-

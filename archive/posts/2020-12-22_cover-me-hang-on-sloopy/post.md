@@ -45,5 +45,3 @@ Here's that loose, fun performance–"Hang On Sloopy" starts at about the 3:15 m
 **Hang On Sloopy**<br>
 **First performed:** January 14, 1984 (New Brunswick, NJ)<br>
 **Last performed:** August 23, 2009 (Mansfield, MA)<br>
-
-

@@ -72,14 +72,14 @@ And can we talk about the band for a minute? It takes a lot of practice and a to
 
 "Sherry Darling" continues to be a summer staple–outside of both River tours (1980-81 and 2016), it pretty much only ever gets performed in the hotter months–and when she comes out, you know you're in for a loose, fun evening.
 
-**Bonus clip:** 
+**Bonus clip:**
 
 On his 2005 solo tour stop in Grand Rapids, Bruce performed "Sherry Darling" by himself on electric piano for the first and only time. It's novel, but far from essential. "Sherry Darling" needs a peanut gallery.
 
 [Watch on Youtube: Bruce Springsteen - Sherry Darling](https://www.youtube.com/watch?v=TlYjluwtyls)
 
-**Sherry Darling**  
-**Recorded:** May 1979 – April 1980  
+**Sherry Darling**
+**Recorded:** May 1979 – April 1980
 **Released:** *The River* (1980)
 **First performed:** August 4, 1978 (Charleston, WV)<br>
 **Last performed:** August 30, 2023 (East Rutherford, NJ)<br>

@@ -1,5 +1,4 @@
 
-
 Steel Mill plays a final California gig at the College of Marin and then hurries home by car across the country to make a gig in Virginia three days later.
 
 **1970:**<br>
@@ -12,11 +11,9 @@ Bruce and the still unnamed E Street Band play two shows at The Main Point in Br
 
 **1974:**<br>
 
-On an off-day following his show in Chicago, Bruce attends the taping of Melissa Manchester's appearance on 
+On an off-day following his show in Chicago, Bruce attends the taping of Melissa Manchester's appearance on
 
 **1977:** *Soundstage.*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1977-02-24.png?resize=758%2C642&amp;ssl=1)
 
@@ -39,8 +36,6 @@ convenes via Zoom (due to the COVID-19 pandemic). Bruce is cleared of drunken an
 [https://www.youtube.com/embed/CqbtIdvRbKQ?feature=oembed](https://www.youtube.com/embed/CqbtIdvRbKQ?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/02/2021-02-24a.jpg?resize=758%2C1346&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/02/2021-02-24b-1.jpg?resize=758%2C710&amp;ssl=1)
 

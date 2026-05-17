@@ -2,7 +2,6 @@
 
 ---
 
-
 As Bruce wrote "Vietnam," he gradually realized he had two stories to tell, one external and one internal. The external one dealt with the way American society recognized (or more accurately, failed to recognize) the sacrifices made by its veterans in Vietnam and their mistreatment upon returning home. That song became one of Bruce's all-time greatest hits: "Born in the U.S.A."
 
 The internal one dealt with the lasting psychological effects caused by the horror and trauma our veterans experienced in Vietnam. That song served as the B-side to "Born in the U.S.A.," a paring so perfect that I'm compelled to clarify that I'm speaking literally about Bruce's 1984 single and not merely metaphorically.
@@ -97,7 +96,6 @@ Is that final line metaphorical or literal? Is Johnny struggling to stave off hi
 As it stands, we take our leave from Johnny on the river bank rather than in the current, caught between light and darkness and pleading for the light to stay on.
 
 ---
-
 
 "Shut Out the Light" is a definite rarity in concert, performed by Bruce only 35 times across his career, and only once since 1996.
 

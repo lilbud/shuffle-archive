@@ -1,5 +1,4 @@
 
-
 "I Ain't Ever Satisfied" may never have the hit it deserved to be (it only peaked at #26 on the U.S. Mainstream Rock chart), but Earle's fans still rank it as one of their favorites, and it's still one of Earle's most frequently performed songs.
 
 [https://www.youtube.com/embed/ituFNPXAaE8?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/ituFNPXAaE8?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)

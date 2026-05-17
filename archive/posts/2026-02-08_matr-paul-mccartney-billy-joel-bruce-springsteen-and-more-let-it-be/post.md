@@ -1,5 +1,4 @@
 
-
 Bruce Springsteen wasn't the only Rock and Roll Hall of Fame inductee in 1999.
 
 Among the other legends welcomed into the Hall that year were Billy Joel and Sir Paul McCartney. Both icons were present along with Bruce for the induction ceremony on March 15th, and all three were on stage for the traditional closing jam.

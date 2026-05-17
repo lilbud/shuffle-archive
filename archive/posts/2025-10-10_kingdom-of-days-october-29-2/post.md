@@ -1,5 +1,4 @@
 
-
 *Audio for 2006; video for 209***New for 2025:**
 
 The Bruce Springsteen Band headlines a show at St. Jerome School in West Long Branch, New Jersey. Later in the evening (technically the wee hours of the following day), Bruce jams with local musicians at The Upstage in his last-ever appearance at the legendary club.
@@ -9,8 +8,6 @@ The Bruce Springsteen Band headlines a show at St. Jerome School in West Long Br
 Bruce and his new, unnamed band headline a Halloween show at the National Guard Armory in Long Branch for the second year in a row. Bruce performs "" for the first known time at this second show on the Greetings From Asbury Park Tour.
 
 **1972:** [Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1972-10-29-204x300.jpg?resize=758%2C1115)
 
@@ -30,11 +27,7 @@ Bruce and the E Street Band play to a small crowd (only 1,400 people out of 4,40
 
 **1975:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1975-10-29-300x157.png?resize=758%2C397)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1975-10-29-300x200.jpg?resize=758%2C505)
 
@@ -66,8 +59,6 @@ Bruce wraps up the west coast leg of his solo acoustic tour at the Paramount The
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-29a-184x300.png?resize=758%2C1236)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-29b-300x223.png?resize=758%2C563)
 
 Bruce performs at a rally for presidential candidate John Kerry at the Bayfront Park Amphitheater in Miami.
@@ -98,8 +89,6 @@ Bruce and the E Street Band play their first of two nights at the L.A. Memorial 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2007-10-29a.png?resize=758%2C1370&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-29b-246x300.png?resize=758%2C924)
 
 Bruce and the E Street Band headline the first night of the Rock and Roll Hall of Fame's 25th Anniversary Concerts in New York City. Guest-stars abound: Sam Moore, Tom Morello, John Fogerty, Darlene Love, Billy Joel, Jackson Browne, and Peter Wolf. The show is commercially available and essential viewing.
@@ -116,7 +105,7 @@ Bruce and the E Street Band headline the first night of the Rock and Roll Hall o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2009-10-29-284x300.png?resize=758%2C801)
 
-Bruce turns up at the National Film Theater in London for the premiere of 
+Bruce turns up at the National Film Theater in London for the premiere of
 
 **2010:** *The Promise.*
 

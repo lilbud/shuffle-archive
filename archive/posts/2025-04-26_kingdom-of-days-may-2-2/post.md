@@ -1,12 +1,9 @@
 
-
 *New entry for 1980 and 2002; review for 2009***New for 2025:**
 
 Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1969-0502-205x300.jpg?resize=758%2C1109)
 
@@ -28,15 +25,9 @@ The publishes a long, revealing profile of and interview with Bruce.
 
 **1974:** *Camden Courier-Post*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1974-05-02a.jpg?resize=758%2C1404&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1974-05-02b-221x300.jpg?resize=758%2C1029)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1974-05-02c-300x114.jpg?resize=758%2C288)
 
@@ -62,8 +53,6 @@ The first of a series of "secret" shows in which Bruce joined Cats on a Smooth S
 
 **1982:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/04/catspony.jpg?resize=758%2C548)
 
 Bruce brings the Tunnel of Love Express Tour to Mountain View, California, for the first of two nights at the Shoreline Amphitheater. Local news coverage and a pro-shot "" below.
@@ -80,11 +69,7 @@ Bruce brings the Tunnel of Love Express Tour to Mountain View, California, for t
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02a-300x297.jpg?resize=758%2C751)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02b-300x266.jpg?resize=758%2C672)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02c-300x296.jpg?resize=758%2C748)
 
@@ -179,7 +164,5 @@ Bruce wraps up the first leg of the Wrecking Ball Tour with an epic show in Newa
 resumes its theatrical run at the Walter Kerr Theater after a two-week break. Bruce and team celebrate his Tony award (announced the day prior) with a special cake.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/05/bruce-springsteen-252x300.jpg?resize=758%2C902)

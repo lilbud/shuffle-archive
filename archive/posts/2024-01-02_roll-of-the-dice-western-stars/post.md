@@ -136,7 +136,6 @@ Let's all be thankful that his boots are still firmly on.
 
 ---
 
-
 "Western Stars" is one of Bruce's newest songs, and he hasn't toured behind the album for which it serves as the title track. He's performed it live at least once, though. We know because it was captured on film and audio for the film *Western Stars.*
 
 You can listen to the live recording below, but I honestly think you're better off listening to the studio version another time: the studio version is more lush, Bruce's vocals more pure, and the arrangement identical (both tracks are the same length, to the second). *Western Stars* is perhaps the only album in Bruce's catalog that can't be improved upon live.

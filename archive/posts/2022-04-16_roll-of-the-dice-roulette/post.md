@@ -113,7 +113,6 @@ But the second half of the final verse (extended by two lines to milk the moment
 
 ---
 
-
 Bruce played "Roulette" regularly throughout the Tunnel of Love Express Tour, debuting it on stage just two days before it appeared in record stores, but he wouldn't play it again until very late in the Reunion Tour, as a one-off in Hartford.
 
 [Watch on Youtube: ~ Bruce Springsteen - Roulette (Hartford, May 8, 2000) ~](https://www.youtube.com/watch?v=93GEG1Q9JiY)

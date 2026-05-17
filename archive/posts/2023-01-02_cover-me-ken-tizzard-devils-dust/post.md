@@ -1,5 +1,4 @@
 
-
 Ken Tizzard is a Newfoundland-based singer-songwriter and bassist for The Watchmen.
 
 When radio station 97.5 KROCK aired a Springsteen special featuring tributes from local artists, Tizzard contributed a song that meant a lot to him.

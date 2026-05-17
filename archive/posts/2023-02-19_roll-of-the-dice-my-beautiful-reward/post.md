@@ -56,7 +56,6 @@ At face value, it's an unsettling note to end on, but the lilting backing track 
 
 ---
 
-
 On the album, "My Beautiful Reward" is essentially a solo track: Bruce plays every instrument except for drums (Gary Mallaber provides them throughout *Lucky Town*) and organ (a rare cameo by Ian McLagan of Small Faces).
 
 On tour, however, "My Beautiful Reward" was an ensemble number, albeit a restrained one. Throughout World Tour 1992-93, Bruce offered it as one of his final numbers of the evening in an arrangement that bordered on benediction.

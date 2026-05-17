@@ -1,5 +1,4 @@
 
-
 *Audio for 1974; review for 1976; new entry for 1980 and 2024; video for 2023***New for 2025:**
 
 A watershed moment for Bruce, when he plays two shows opening for Bonnie Raitt at the Harvard Square Theater in Cambridge, Massachusetts. Not only is his band introduced as "The E Street Band" for the very first time at the early show, but Jon Landau attends the late show and is moved to write his famous "rock and roll future" review.
@@ -20,8 +19,6 @@ Bruce and the E Street Band play the Municipal Auditorium Theater in Mobile, Ala
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/The_Mobile_Register_1976_05_10_40-scaled.jpg?resize=754%2C2560&amp;ssl=1)
 
 Bruce and team complete the mix for "Stolen Car" at Clover Studios in Los Angeles.
@@ -34,19 +31,13 @@ Bruce and team complete the mix for "Stolen Car" at Clover Studios in Los Angele
 
 **1984:** [Dancing in the Dark,](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)*Born in the U.S.A.*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1984-05-09-300x202.jpg?resize=758%2C511)
 
 The news is out: Bruce Springsteen is getting married to actress/model Julianne Phillips in Lake Oswego. When Juli's parents confirm the news, the press runs with the story.
 
 **1985:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1985-05-09a-300x290.jpg?resize=758%2C733)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1985-05-09b-242x300.jpg?resize=758%2C939)
 
@@ -57,8 +48,6 @@ The Tunnel of Love Express heads to Bloomington, Minnesota for the first of two 
 [https://videopress.com/embed/gz3jjnQH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gz3jjnQH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1988-05-09a.jpg?resize=758%2C821&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1988-05-09b.jpg?resize=758%2C1019&amp;ssl=1)
 

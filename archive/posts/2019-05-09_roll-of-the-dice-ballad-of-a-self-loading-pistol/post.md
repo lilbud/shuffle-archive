@@ -17,7 +17,6 @@ There's so much to appreciate about "Ballad of the Self-Loading Pistol":
 - Turns of phrase like "an appetite for loving only a fading beauty could possess" and "the love song a bullet sings as she whistles" that a songwriter could still be proud of decades later, and that stand out here because of the uncharacteristic (for the time) restraint Bruce shows with his metaphor and rhyming dictionary.
 - The incredibly powerful vocal performance Bruce delivers, especially for a solo acoustic recording. You can feel the anguish of the son in your bones as he confesses his sins to his father.
 
-
 "Ballad of the Self-Loading Pistol" may not compare as strongly with the similarly darkly themed songs of *Nebraska* and *The Ghost of Tom Joad*, but it stands tall among Bruce's earliest works and deserves an outing in concert.
 
 > *Father, I have come to tell you about something I done*

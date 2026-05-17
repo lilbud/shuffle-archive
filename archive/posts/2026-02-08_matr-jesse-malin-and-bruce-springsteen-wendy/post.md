@@ -25,5 +25,3 @@ Wendy's become a reliable crowd-pleaser since her debut, so if you're fortunate 
 **Last performed:** December 8 ,2003 (Asbury Park, NJ)<br>
 
 © September 5, 2020
-
-

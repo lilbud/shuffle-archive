@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 Child, Bruce's new band, performs at Pandemonium in Wanamassa, New Jersey.
@@ -14,15 +13,11 @@ Night Two of seven at Oliver's in Boston.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1-190x300.jpg?resize=758%2C1197)
 
 Extended studio sessions for prompt the postponement of a scheduled show in Atlanta.
 
 **1975:***Born to Run*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1975-03-13-64x300.jpg?resize=758%2C3553)
 
@@ -43,8 +38,6 @@ Bruce and the E Street Band play Towson State University on the Lawsuit Tour.
 [https://www.youtube.com/embed/4QcKYlVoBTc?feature=oembed](https://www.youtube.com/embed/4QcKYlVoBTc?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-13-288x300.jpg?resize=758%2C790)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1988-0313-300x149.jpg?resize=758%2C377)
 

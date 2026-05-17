@@ -75,7 +75,6 @@ This song is about the armor it requires to move on from a situation that was ve
 
 ---
 
-
 Given how wholly and completely Southside made "Hearts of Stone" his own, its no surprise that Bruce steered far clear of it in concert for almost four decades. He only performed it once during the twentieth century, and only as a surprise guest star during Southside's San Francisco performance in November 1988.
 
 Unfortunately, that debut performance kind of sucked.

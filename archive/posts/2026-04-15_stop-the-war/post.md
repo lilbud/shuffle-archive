@@ -1,5 +1,4 @@
 
-
 [Watch Video Highlight](https://videopress.com/embed/m3IXnde1)
 
 **Stop the War**<br>

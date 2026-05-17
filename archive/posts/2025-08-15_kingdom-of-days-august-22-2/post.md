@@ -1,12 +1,9 @@
 
-
 *Audio for 1985***New for 2025:**
 
 Bruce and the E Street Band play their third night of a week-long residency at Oliver's in Boston.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1973-08-22-300x149.png?resize=758%2C376)
 
@@ -14,11 +11,7 @@ Bruce and the boys play their second of three nights at Alex Cooley's Electric B
 
 **1975:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1975-0822-168x300.jpg?resize=758%2C1354)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1975-08-22-300x193.png?resize=758%2C487)
 
@@ -91,8 +84,6 @@ Bruce and the E Street Band play their second of five Reunion shows at Boston's 
 Bruce appears on the cover of the new issue of .
 
 **2002:** *Rolling Stone*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/RScover-242x300.jpg?resize=758%2C940)
 

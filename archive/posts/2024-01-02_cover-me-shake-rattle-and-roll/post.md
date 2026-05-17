@@ -37,5 +37,3 @@ Here's that much, much, *much* better cover of "Shake, Rattle and Roll" — the 
 **Shake, Rattle and Roll**<br>
 **First performed:** September 2, 1995 (Cleveland, OH)<br>
 **Last performed:** July 5, 2013 (Mönchengladbach, Germany)<br>
-
-

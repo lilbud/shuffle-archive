@@ -1,5 +1,4 @@
 
-
 *Review for 1970; new entry for 1979; video for 2004***New for 2025:**
 
 Steel Mill opens for The Ike and Tina Turner Revue at a shockingly (at least in retrospect) underattended show at The Mosque in Richmond.
@@ -11,8 +10,6 @@ Steel Mill opens for The Ike and Tina Turner Revue at a shockingly (at least in 
 [https://www.youtube.com/embed/qKtES3Edw44?feature=oembed](https://www.youtube.com/embed/qKtES3Edw44?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/Richmond_Times_Dispatch_1970_10_12_35.jpg?resize=758%2C1257&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1970-10-11-300x284.jpg?resize=758%2C718)
 

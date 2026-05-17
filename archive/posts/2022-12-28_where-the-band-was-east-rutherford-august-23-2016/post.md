@@ -1,5 +1,4 @@
 
-
 I didn't go into this show with sky-high expectations.
 
 Which is weird, because it was Bruce in New Jersey, and somehow, I'd never seen him play there. It was the opening show of a final, ten-show victory lap capping off the 2016 version of the River Tour–and was one of my best shows ever.

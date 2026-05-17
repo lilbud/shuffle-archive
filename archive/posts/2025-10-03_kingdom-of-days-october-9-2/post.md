@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 Bruce plays at Grendel's Lair Coffee House in Philadelphia.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1973-10-09.png?resize=758%2C1648&amp;ssl=1)
 
@@ -24,7 +21,7 @@ At the Power Station in New York City, Bruce and the E Street Band record "" The
 
 [https://www.youtube.com/embed/7FrUma-rtZA?feature=oembed](https://www.youtube.com/embed/7FrUma-rtZA?feature=oembed)
 
-The River Tour moves on to Detroit's Cobo Arena, where Bruce and the boys close with a tour one-off of "" (following the first "" with "I Hear a Train" in it). After the show, Bruce is interviewed for the January 1981 issue of 
+The River Tour moves on to Detroit's Cobo Arena, where Bruce and the boys close with a tour one-off of "" (following the first "" with "I Hear a Train" in it). After the show, Bruce is interviewed for the January 1981 issue of
 
 **1980:** [Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)*Creem Magazine.*
 
@@ -34,27 +31,19 @@ The River Tour moves on to Detroit's Cobo Arena, where Bruce and the boys close 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/The_Windsor_Star_1980_10_10_25.jpg?resize=758%2C1001&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/creem-236x300.jpg?resize=748%2C950)
 
 Bruce plays his first and only show to date in the Ivory Coast when the Human Rights Now! Tour stops there for a show.
 
 **1988:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-10-09-300x208.jpg?resize=758%2C525)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1988-1009.jpg?resize=492%2C1342&amp;ssl=1)
 
 A scheduled show at Mountain View's Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.
 
 **1992:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1992-10-08-1.jpg?resize=758%2C3498&amp;ssl=1)
 
@@ -76,8 +65,6 @@ It's a standard set at Magic Tour Night One at East Rutherford's Continental Air
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2007-10-09a-198x300.jpg?resize=758%2C1148)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2007-10-09b-235x300.jpg?resize=758%2C968)
 
 Bruce and the E Street Band play their last-ever show at Giants Stadium, sending it off in style with a final "" to open and a cover of "" in the encores.
@@ -87,8 +74,6 @@ Bruce and the E Street Band play their last-ever show at Giants Stadium, sending
 [https://www.youtube.com/embed/UvtrrLkreH8?feature=oembed](https://www.youtube.com/embed/UvtrrLkreH8?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-10-09a-291x300.jpg?resize=758%2C782)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-10-09b-300x287.jpg?resize=758%2C725)
 

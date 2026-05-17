@@ -1,5 +1,4 @@
 
-
 Once my toes defrosted, it was a great night.
 
 I've learned to think twice before buying a GA ticket and trying for the pit in the middle of winter, but there's nothing like being up close and personal at a Springsteen show in Philadelphia. There's never been anything resembling a "standard set" in Philly (at least not in this century), so when I was looking for a second River show to follow up from the amazing Pittsburgh opener, Philly was an easy choice.

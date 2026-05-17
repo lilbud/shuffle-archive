@@ -55,7 +55,6 @@ That's a pretty amazing gift from a father to his son. Who among us wouldn't do 
 
 ---
 
-
 Postscript: Time passes, and kids grow up.
 
 And while our children may still carry our songs in their heart, that doesn't mean they want to hear them out loud. At least for a little while.
@@ -75,7 +74,7 @@ Gentle embarrassment: the tool of choice for loving parents of teenagers.
 How better to make it easier for your kids to leave the nest while always making sure they know they always have a home?
 
 **Pony Boy**<br>
-**Recorded:** June-September 1990  
+**Recorded:** June-September 1990
 **Released:** *Human Touch* (1992)
 **First performed:** July 31, 1992 (East Rutherford, NJ)<br>
 **Last performed:** April 27, 1996 (London, England)<br>

@@ -1,5 +1,4 @@
 
-
 SMAF is a German combo that describe their music as "a soundtrack Quentin Tarantino would dance to on acid at a soul music party," inspired by "spaghetti westerns, Motown, and reggae."
 
 I don't know about any of that, but I do know that their recently released cover of "" (filmed in late 2019) is absolutely stunning.

@@ -1,5 +1,4 @@
 
-
 *New entry for 1973; video for 1992, 2013 and 2023; audio for 1993***New for 2025:**
 
 At 914 Sound Studios in New York, Bruce records "" and "" (minus the harmonica, which will be overdubbed later).
@@ -20,15 +19,9 @@ Bruce plays his first ever concert in British Columbia when he and the E Street 
 
 **1978:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1978-06-26-300x233.jpg?resize=758%2C589)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1978-06-26b-300x243.jpg?resize=758%2C614)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1978-0626-270x300.jpg?resize=731%2C813)
 
@@ -103,8 +96,6 @@ Bruce and the E Street Band play a stellar Wrecking Ball show in Gijon, Spain, f
 returns for a limited engagement at the St. James Theater in New York, reopening Broadway after more than a year of closure during the Great Pandemic. New stories and songs have been added, including "," "American Skin (41 Shots)," and "." In attendance tonight: Steven Van Zandt, Jon Landau, Governor Phil Murphy, Secretary Pete Buttigieg, Ridley Scott, Brian Williams, David Fricke, George Travis, and this blogger. See how many you can spot in this photo I took just before the house lights went down.
 
 **2021:** *Springsteen on Broadway* [Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/IMG_1273.jpg?w=758&amp;ssl=1)
 

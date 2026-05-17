@@ -1,12 +1,9 @@
 
-
 *Audio for 1975; new entry for 1983; video for 2016***New for 2025:**
 
 Bobby King, backing vocalist on "" and "" and throughout World Tour 1992 and World Tour 1993, is born in Lake Charles, Louisiana.
 
 **1944:** [Roll of the Dice](http://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/bobby-300x300.jpg?resize=758%2C758)
 
@@ -14,19 +11,13 @@ The Castiles participate in Asbury Park's first annual Rock'n'Roll Contest, wher
 
 **1966:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/07/Asbury_Park_Press_1966_08_05_Page_21.jpg?w=758&amp;ssl=1)
 
 Bruce and the E Street Band play a show at the Tucson Community Center.
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/07/Tucson_Citizen_1974_07_26_19.jpg?w=758&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/07/1974-0728.jpg?resize=385%2C572&amp;ssl=1)
 
@@ -46,15 +37,9 @@ Bruce's cover of "" makes its debut in his Darkness Tour show in Miami.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1978-07-28b.png?resize=678%2C2906&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1978-07-28a.png?resize=667%2C1482&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1978-0728a-274x300.jpg?resize=758%2C829)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1978-0728b-300x163.jpg?resize=747%2C406)
 

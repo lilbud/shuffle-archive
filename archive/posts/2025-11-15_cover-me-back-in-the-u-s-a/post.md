@@ -1,5 +1,4 @@
 
-
 Bruce Springsteen has covered almost two dozen Chuck Berry tunes in concert, but none with more gusto than "Back in the U.S.A." (Perhaps "" is tied for first, though.)
 
 [Little Queenie](http://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)

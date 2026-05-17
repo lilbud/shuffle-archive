@@ -12,7 +12,6 @@ I originally planned to feature excerpts from the interview in a retrospective e
 
 ---
 
-
 **Ken: First of all, Joe, thanks for making time to talk. I've been looking forward to this conversation for a long time. I'm a big fan of your music, but *American Babylon* has a special place for me. It's not only my favorite of your albums, it's my favorite album that came out that year. It's probably one of my favorite albums of that entire decade, and since I don't really get a chance very often to say to an artist how much I appreciate their work, I just want to thank you for that.**<br>
 
 Joe: Oh, I'm glad you liked it!

@@ -1,5 +1,4 @@
 
-
 *Audio for 1978 and 1995; new entry for 2023***New for 2024:**
 
 Bruce's younger sister Ginny is born in Freehold, New Jersey. Decades later, she will inspire Bruce's timeless classic, "."
@@ -10,15 +9,11 @@ Peter Knobler interviews Bruce for at Bruce's girlfriend's house in Bradley Beac
 
 **1972:** *Crawdaddy*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1972-12-05-300x226.jpg?resize=758%2C571)
 
 Bruce and his band play three sets at Childe Harold in Washington DC–their last of three nights.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1973-12-07-300x134.jpg?resize=758%2C338)
 
@@ -30,11 +25,7 @@ Bruce and the E Street Band play their first-ever show in Vermont, at the Burlin
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1974-12-08a.png?resize=758%2C1161&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1974-12-08b.png?resize=758%2C881&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/12/1974-12-08.jpg?resize=758%2C1068&amp;ssl=1)
 
@@ -49,8 +40,6 @@ Bruce and the E Street Band bring the Darkness Tour to The Summit in Houston, wh
 Bruce and the boys play their second of three River Tour nights at the Philadelphia Spectrum. Earlier that Day, John Lennon gave an interview praising "" as his current favorite song. It would prove to be his last favorite song: while Bruce is on stage performing tonight, John Lennon is murdered in New York City.
 
 **1980:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
-
-
 
 [https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F236345246&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F236345246&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
 
@@ -127,8 +116,6 @@ is in the home stretch of its theatrical run at the Walter Kerr Theater in New Y
 At a closed rehearsal at SIR Stage 37 in New York City, Bruce rehearses with John Mellencamp for Sting's 30th anniversary benefit show for the Rainforest Fund the following day.
 
 **2019:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2019-12-08.png?resize=758%2C939&amp;ssl=1)
 

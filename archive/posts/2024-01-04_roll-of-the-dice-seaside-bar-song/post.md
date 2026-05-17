@@ -90,8 +90,6 @@ But on a summer night at the shore, if you don't let the daylight steal your sou
 
 [APP-Embed Player](https://uw-media.app.com/embed/video/7856334001?placement=snow-embed)
 
-
-
 **Seaside Bar Song**<br>
 **Recorded** June 28 – July 24, 1973<br>
 **Released:** *Tracks* (1998), *18 Tracks* (1999)

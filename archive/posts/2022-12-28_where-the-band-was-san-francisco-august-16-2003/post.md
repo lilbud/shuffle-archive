@@ -1,5 +1,4 @@
 
-
 Some shows stand out more for the setting than the show, and this was one of them.
 
 Not that the performance was lacking–in fact, it was full of highlights, from the full-band world premiere of "," to a rare "" to an always-welcome "," to my very first "Rosalita (Come Out Tonight)," which until the summer of 2003 had gone AWOL from non-NJ shows for almost two decades. "Across the Border" in particular was a revelation–it was the first time I realized that the mighty E Street Band is as versatile as it is powerful, delivering a performance of delicate beauty that held an entire ballpark under its spell.

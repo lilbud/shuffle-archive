@@ -95,8 +95,6 @@ This arrangement was arguably the strongest one yet. Certainly, it was the blues
 
 [Watch Video Highlight](https://videopress.com/embed/bjd4mLz9?hd=0&cover=1)
 
-
-
 Like his Bridge School arrangement, though, this was just another one-off. When "Seeds" returned to Bruce's set lists on a regular basis (more than a decade later, on the recession-era Working on a Dream Tour), he'd returned to the original '85 arrangement.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Seeds (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=YSXteAETGvE)

@@ -1,12 +1,9 @@
 
-
 *New entry for 1980; review for 2009; video for 2023***New for 2025:**
 
 Bruce and his "strange but adept" band headline a show at Rutgers University.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1973-0401.jpg?resize=758%2C971&amp;ssl=1)
 
@@ -14,15 +11,9 @@ Bruce and the band cancel a scheduled show at Butler University when the school 
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01a.jpg?resize=723%2C308&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-02b.jpg?resize=752%2C337&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01d.jpg?resize=437%2C689&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01c.jpg?resize=622%2C663&amp;ssl=1)
 
@@ -51,8 +42,6 @@ The Tour kicks off at HP Pavilion in San Jose. "" is performed for the only time
 [https://www.youtube.com/embed/BVLXCMvRB5E?feature=oembed](https://www.youtube.com/embed/BVLXCMvRB5E?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Oakland_Tribune_2009_04_04_17-scaled.jpg?resize=319%2C2560&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Oakland_Tribune_2009_04_04_22.jpg?resize=758%2C805&amp;ssl=1)
 
@@ -89,7 +78,5 @@ Bruce tour debuts "Jungleland" at Madison Square Garden when the reprise of the 
 [https://www.youtube.com/embed/GI_JQU7iWwE?feature=oembed](https://www.youtube.com/embed/GI_JQU7iWwE?feature=oembed)
 
 [https://www.youtube.com/embed/9mqNMGFafbI?feature=oembed](https://www.youtube.com/embed/9mqNMGFafbI?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Asbury_Park_Press_Tue__Apr_4__2023_-scaled.jpg?resize=758%2C234&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Asbury_Park_Press_Tue__Apr_4__2023_-1-scaled.jpg?resize=758%2C180&amp;ssl=1)

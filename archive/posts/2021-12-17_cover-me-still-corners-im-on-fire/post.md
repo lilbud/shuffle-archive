@@ -1,5 +1,4 @@
 
-
 Mere weeks after the release of their very first album, London-based duo Still Corners made an appearance at our local radio station KEXP here in Seattle, where they played a four-song set in the studio that wrapped with an ethereal cover of Bruce's "."
 
 [I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)

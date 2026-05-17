@@ -6,7 +6,7 @@ It's an iconic scene in movie history: the Reverend Harry Powell's tale of Love 
 
 That notion of love and hate waging eternal war within us–symbolized by the tattooed words on the hands we use for both–imprinted itself on viewers and artists alike.
 
-In 1989, Spike Lee paid homage to that scene in his cinema classic, *Do the Right Thing.* 
+In 1989, Spike Lee paid homage to that scene in his cinema classic, *Do the Right Thing.*
 
 [Watch on Youtube: Do the Right Thing (6/10) Movie CLIP - LOVE and HATE (1989) HD](https://www.youtube.com/watch?v=pa-oUPTr9LI)
 
@@ -77,7 +77,6 @@ There's a long fade on that last note, underscoring the unresolved ending. Perha
 For cautious men, there's no ending, just a long road.
 
 ---
-
 
 "Cautious Man" is more than a quiet song–it's a delicate one. Bruce's phrasing and instrumentation are intimate and very deliberate, which is likely why Bruce has so rarely performed it in concert.
 

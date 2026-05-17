@@ -1,12 +1,9 @@
 
-
 *Video for 2004; new entry for 2024***New for 2025:**
 
 Child headlines at Virginia Commonwealth University in Richmond–the last show they will ever play under that name. After returning home to New Jersey, the band discovers that another area band has released an album using the same band name, so our heroes change their name to Steel Mill.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/48068141293_efc87c0e27_o-257x300.jpg?resize=758%2C881)
 
@@ -72,23 +69,15 @@ Sirius Satellite Radio debuts an all-Bruce, all-the-time radio station called E 
 
 **2005:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-11-01a-156x300.png?resize=758%2C1457)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-11-01b-97x300.png?resize=758%2C2344)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-11-01c-290x300.png?resize=758%2C784)
 
 Bruce lands the cover (and feature interview) in .
 
 **2007:** *Rolling Stone*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-11-01-245x300.jpg?resize=758%2C928)
 
@@ -112,8 +101,6 @@ An amazing Wrecking Ball show at Penn State University–Bruce opens with only t
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2012-11-01a-300x119.png?resize=758%2C301)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/2012-11-01b.png?resize=758%2C1430&amp;ssl=1)
 
 Bruce makes another appearance at Stand Up for Heroes, this time joining Jon Stewart, Jerry Seinfeld, and Louis C.K. at Madison Square Garden in New York City, performing a four-song acoustic set. Bruce auctions off a guitar again, this time one he's been playing for 25 years, along with a personally escorted trip in his Cadillac to the Jersey Freeze and his mom's lasagna. As a result, he raises $280,000.
@@ -130,18 +117,14 @@ continues its run at the Walter Kerr Theater in New York City. In attendance ton
 
 **2017:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2017-11-01-300x268.jpg?resize=758%2C677)
 
 continues its run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce pays a set visit in Rockaway, New Jersey, where filming continues for the upcoming biopic, 
+Bruce pays a set visit in Rockaway, New Jersey, where filming continues for the upcoming biopic,
 
 **2024:** *Springsteen: Deliver Me From Nowhere.*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Star_Ledger_2024_11_03_E11.jpg?resize=758%2C643&amp;ssl=1)

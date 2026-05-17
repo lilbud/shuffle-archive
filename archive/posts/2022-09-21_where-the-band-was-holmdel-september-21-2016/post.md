@@ -1,5 +1,4 @@
 
-
 I don't know why I was surprised when Bruce showed up at the Laid Back Festival. After all, it was essentially in his back yard (Holmdel is about a ten-minute drive from Bruce's neighborhood), and the line-up of performers was comprised entirely of old friends (including his best friend).
 
 But I'd been at enough "he's gotta show" shows that ended up as "he never showed" shows to have long since given up speculating and expecting. (Well, the expecting part, at least.)

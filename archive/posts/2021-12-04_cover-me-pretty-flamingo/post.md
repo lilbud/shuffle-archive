@@ -45,5 +45,3 @@ But what if they did?
 **Pretty Flamingo**<br>
 **First performed:** September 13, 1975 (Houston, TX)<br>
 **Last performed:** August 30, 2016 (East Rutherford, NJ)<br>
-
-

@@ -1,5 +1,4 @@
 
-
 It was a B-side that couldn't have been more different from its A-side, but both sides became smash hits.
 
 Sam Cooke's "" peaked at #17 on the Billboard Hot 100 (#4 on the R&B chart) and became Cooke's standard set closer, but its flipside of "Bring It on Home to Me" became a bona fide pop standard, peaking at #13 on the Hot 100 and #2 on the R&B charts, enshrined by the Rock and Roll Hall of Fame as one of the 500 Songs that Shaped Rock and Roll, and covered by dozens of artists from The Animals to Mandy Moore.

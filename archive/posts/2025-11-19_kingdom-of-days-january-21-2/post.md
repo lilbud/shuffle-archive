@@ -1,5 +1,4 @@
 
-
 Upon returning home from his aborted relocation to California, Bruce reunites with his eponymous band (now called The Sundance Blues Band) at The Captain's Garter in Neptune, New Jersey.
 
 **1972:**<br>
@@ -55,7 +54,5 @@ Bruce assembles the Seeger Sessions band for a final recording session, capturin
 Bruce drops by the Transparent Clinch Gallery in Asbury Park, where he poses for a photo with the gallery's owner (and himself). (Photo credit: Maria Barba-Clinch/Transparent Gallery Instagram)
 
 **2022:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/01/2022-01-21.jpg?resize=758%2C569&amp;ssl=1)

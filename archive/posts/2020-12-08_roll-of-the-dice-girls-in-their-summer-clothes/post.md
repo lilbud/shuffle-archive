@@ -97,7 +97,6 @@ There's so much to love in these four lines. Just from a storytelling perspectiv
 - Lines 2-3: He's not just out on the street trying to recapture his youth, he's looking for connection, for the admiration and affection of a young woman who with just a moment of eye contact can validate him and affirm his existence ("save my life") in this new world where he doesn't belong. It's a pickup line, sure, but it's more than that: it's a genuine plea of desperation masked in bravado.
 - Line 4: This is one of Bruce's very best lines. Anyone could come up with the love-as-a-dance metaphor. Carrying it through an admission that confesses both self-awareness and quixotic confidence–that's the work of a masterful songwriter.
 
-
 Oh, and just in case you're skeptical about my argument that Bruce is deliberately and lyrically contrasting "Girls in Their Summer Clothes" with "Thunder Road" throughout the song, take note of those last two lines before the last chorus:
 
 *In just a glance down here on Magic **Street***<br>
@@ -117,7 +116,6 @@ The video drives this home even harder, with the girls now waving goodbye as the
 *This world belongs to me*, she's saying, *and my story is just starting while yours ends.*<br>
 
 ---
-
 
 Bruce played "Girls in Their Summer Clothes" regularly throughout the Magic Tour, almost always as the opening encore. I always felt that was an odd placement, but then again it would have been sorely out of place in the heavily political setlists of that tour.
 

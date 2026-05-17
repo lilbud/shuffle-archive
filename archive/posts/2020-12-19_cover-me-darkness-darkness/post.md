@@ -1,5 +1,4 @@
 
-
 "Darkness, Darkness" never got anywhere close to being a hit for The Youngbloods. Even though the band released it as a single twice (once in 1969 and then again the following year), it took the second attempt for it to even crack the Top 100.
 
 [https://www.youtube.com/embed/ORSD_u2upP4?feature=oembed](https://www.youtube.com/embed/ORSD_u2upP4?feature=oembed)

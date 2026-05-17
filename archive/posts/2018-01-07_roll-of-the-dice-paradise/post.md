@@ -29,16 +29,16 @@ The narrator appears to be a parent and a suicide bomber, most likely in the mid
 The scene now shifts to the United States:
 
 > *The Virginia hills have gone to brown*
- *Another day another sun going down*  
- *I visit you in another dream*  
- *I visit you in another dream*
+*Another day another sun going down*
+*I visit you in another dream*
+*I visit you in another dream*
 
 > *I reach and feel your hair*
- *Your smell lingers in the air*  
- *I brush your cheek with my fingertips*  
- *I taste the void upon your lips*  
- *And I wait for paradise*  
- *And I wait for paradise*
+*Your smell lingers in the air*
+*I brush your cheek with my fingertips*
+*I taste the void upon your lips*
+*And I wait for paradise*
+*And I wait for paradise*
 
 Bruce has said that he had a particular woman in mind, when he wrote this verse–a fan that he'd met, who'd lost her husband at the Pentagon attack on 9/11 (hence, the Virignia location).
 
@@ -47,16 +47,16 @@ In this verse, color is lacking in her life; each day is just "another day," eac
 The scene shifts a final time:
 
 > *I search for you on the other side*
- *Where the river runs clean and wide*  
- *Up to my heart the waters rise*  
- *Up to my heart the waters rise*
+*Where the river runs clean and wide*
+*Up to my heart the waters rise*
+*Up to my heart the waters rise*
 
 > *I sink ‘neath the water cool and clear*
- *Drifting down I disappear*  
- *I see you on the other side*  
- *I search for the peace in your eyes*  
- *But they're as empty as paradise*  
- *They're as empty as paradise*
+*Drifting down I disappear*
+*I see you on the other side*
+*I search for the peace in your eyes*
+*But they're as empty as paradise*
+*They're as empty as paradise*
 
 This person is also grieving–and that grief almost claims him. He wades into the river that divides life and death, and goes so deep that the waters rise up to his heart, a clever literary device that makes the listener uncertain whether this river is literal, metaphorical, or both.
 
@@ -65,7 +65,7 @@ In the cold darkness of the river (one of Bruce's favorite and most frequent met
 And when things are about as dark as they can get, Bruce tacks on two final, orphaned lines:
 
 > *I break above the waves*
- *I feel the sun upon my face*
+*I feel the sun upon my face*
 
 …making it clear that this final narrator does not succumb to paradise, but instead rises once again to the surface and feels sunlight on his face, a sign of acceptance and moving forward.
 

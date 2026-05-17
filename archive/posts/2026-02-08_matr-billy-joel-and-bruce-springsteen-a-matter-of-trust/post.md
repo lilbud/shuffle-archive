@@ -1,5 +1,4 @@
 
-
 It's one of Billy Joel's greatest hits, cracking the Top 10 (although just barely) in the summer of '86.
 
 It's also one of Billy's best videos, an homage to The Beatles' classic rooftop concert, and the only video in which he can be seen playing the guitar. (Is that Ringo at 1:38 and Paul at 2:01? You be the judge.)

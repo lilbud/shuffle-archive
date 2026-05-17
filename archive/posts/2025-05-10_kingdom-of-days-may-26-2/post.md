@@ -1,12 +1,9 @@
 
-
 *Review for 1978***New for 2025:**
 
 Seven-year-old Bruce Springsteen receives his first Communion at St. Rose of Lima Church.
 
 **1957:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1957-05-26.jpg?resize=758%2C2251&amp;ssl=1)
 
@@ -38,8 +35,6 @@ Bruce joins John Mellencamp on stage for "" at the Irvine Meadows Amphitheater i
 
 **1988:** [Like a Rolling Stone](http://estreetshuffle.com/index.php/2019/06/09/cover-me-like-a-rolling-stone/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1988-05-26.jpg?resize=758%2C670&amp;ssl=1)
 
 Bruce wraps up the Ghost of Tom Joad Tour with the second of two nights in Paris. Elliot Murphy makes a guest appearance, joining Bruce for "," and "" (the only known performance of this song).
@@ -65,8 +60,6 @@ At the first of two Rising shows at the Crystal Palace in London, Bruce tour pre
 [https://videopress.com/embed/I7tpxG4Z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/I7tpxG4Z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Independent_Tue__May_27__2003_.jpg?resize=758%2C913&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/2003-0526-300x236.jpg?resize=758%2C597)
 

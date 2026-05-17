@@ -1,10 +1,7 @@
 
-
 Steel Mill plays a gig at Ocean County College in Toms River, New Jersey.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1970-04-18-rotated.jpg?resize=744%2C1643&amp;ssl=1)
 
@@ -12,15 +9,11 @@ Bruce and his band play the Christian Brothers Academy in Lincroft, New Jersey, 
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0418.jpg?resize=439%2C640&amp;ssl=1)
 
 Bruce and the band play a gig at Monmouth College in Long Branch, New Jersey.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1974-04-18.jpg?resize=758%2C291&amp;ssl=1)
 
@@ -76,8 +69,6 @@ Bruce reschedules a planned show in Sunrise, Florida due to the passing of Danny
 
 **2008:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-04-18.jpg?resize=758%2C767&amp;ssl=1)
 
 Bruce and the E Street Band bring the River Tour (2016 Edition) to Penn State University.
@@ -89,8 +80,6 @@ Bruce and the E Street Band bring the River Tour (2016 Edition) to Penn State Un
 [https://www.youtube.com/embed/yAlx8fxYdU0?feature=oembed](https://www.youtube.com/embed/yAlx8fxYdU0?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Centre_Daily_Times_Tue__Apr_19__2016_-scaled.jpg?resize=758%2C1115&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Centre_Daily_Times_Tue__Apr_19__2016_-1.jpg?resize=758%2C555&amp;ssl=1)
 

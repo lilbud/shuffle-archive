@@ -1,12 +1,9 @@
 
-
 *New entry for 1978, 1996, and 2018; audio for 1988; video for 1993***New for 2025:**
 
 Bruce opens for Lou Reed at the Palace Concert Theater in Providence.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0323-193x300.jpg?resize=758%2C1179)
 
@@ -31,8 +28,6 @@ At the Record Plant in New York City, Bruce completes "Racing in the Street."
 Bruce postpones a scheduled show in Manchester in order to recover from the first two legs of the River Tour.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1007)
 
@@ -66,19 +61,13 @@ Bruce plays a food bank benefit show at the Count Basie Theater in Red Bank befo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-23.png?resize=758%2C1006&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1993-03-23a-216x300.jpg?resize=758%2C1052)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1993-03-23b-300x138.jpg?resize=758%2C349)
 
 Bruce's scheduled show in London is postponed until the following month so that he can perform at this year's Oscar ceremony.
 
 **1996:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/19960322_Press_01_Reschedule.jpg?resize=500%2C751&amp;ssl=1)
 
@@ -93,8 +82,6 @@ Live premieres galore (six album tracks and two covers, including "" with John E
 [https://www.youtube.com/embed/SQhr9EGXP1E?feature=oembed](https://www.youtube.com/embed/SQhr9EGXP1E?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2009-03-23a.jpg?resize=434%2C2959&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2009-03-23b-300x157.jpg?resize=758%2C397)
 
@@ -113,8 +100,6 @@ The Wrecking Ball Tour moves on to Tampa, with a surprising number of set list c
 [https://www.youtube.com/embed/iLuJ65NLMT4?feature=oembed](https://www.youtube.com/embed/iLuJ65NLMT4?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-23a-262x300.jpg?resize=758%2C868)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2012-03-23b.jpg?resize=758%2C1088&amp;ssl=1)
 

@@ -1,5 +1,4 @@
 
-
 *New entry for 1977 and 1979***New for 2025:**
 
 Bruce and the E Street Band play two shows at Fat City in Seaside Heights, New Jersey.
@@ -15,8 +14,6 @@ Bruce records "Candy's Boy" at The Record Plant in New York City. It will remain
 Bruce meets Bob Seger for the first time at Seger's gig at the Pine Knob Music Theater in Clarkston, Michigan. (Bruce is in between Michigan tour stops.) After the show, Bruce and Bob spend time backstage talking and singing.
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0902-300x195.jpg?resize=729%2C473)
 
@@ -34,11 +31,9 @@ Bruce and the E Street Band bring the original River Tour to the San Diego Sport
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Camarillo_Star_1981_09_06_22.jpg?resize=758%2C418&amp;ssl=1)
 
-Bruce guest stars with John Eddie and the Front Street Runners at The Stone Pony in Asbury Park. 
+Bruce guest stars with John Eddie and the Front Street Runners at The Stone Pony in Asbury Park.
 
 **1984:** (photo credit: John Comerford)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1984-09-02-225x300.jpg?resize=758%2C1010)
 
@@ -49,8 +44,6 @@ The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebra
 [https://www.youtube.com/embed/Y58hMb-kR4c?feature=oembed](https://www.youtube.com/embed/Y58hMb-kR4c?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1988-09-02a-227x300.jpg?resize=758%2C1002)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1988-09-02b.jpg?resize=487%2C2283&amp;ssl=1)
 
@@ -88,8 +81,6 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berry'
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1995-09-02a-210x300.jpg?resize=758%2C1083)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1995-09-02b-300x289.jpg?resize=758%2C730)
 
 Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres "" during sign collection, as well as "," "," and Philly special "."
@@ -115,7 +106,5 @@ Bruce releases a Labor Day-themed episode (#11 for those keeping count) of on E 
 nears the end of its final week at the St. James Theater in New York City. In attendance tonight: Eddie Vedder and Jarod Clemons.
 
 **2021:***Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/09/2021-09-02.jpg?resize=500%2C408&amp;ssl=1)

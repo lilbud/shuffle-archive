@@ -1,5 +1,4 @@
 
-
 Here's an unusual cover of a song usually covered.
 
 Toronto-based Strange & Primitive's cover of "" lives up to the band's name. Their version is dark, eerie, immersive, and primal. Turn out the lights, put your headphones on, and you'll feel like you're trapped inside the singer's head–which is how Bruce's simmering lyrics should be heard anyway.

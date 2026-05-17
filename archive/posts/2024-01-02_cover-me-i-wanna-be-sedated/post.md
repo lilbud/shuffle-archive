@@ -1,5 +1,4 @@
 
-
 We'll get to the Springsteen connection in a minute; for the moment, you'll need to excuse me while I rock out to the greatest punk band ever. Turn up the volume and join me, won't you?
 
 [https://www.youtube.com/embed/bm51ihfi1p4?feature=oembed](https://www.youtube.com/embed/bm51ihfi1p4?feature=oembed)

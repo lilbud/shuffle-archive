@@ -1,24 +1,17 @@
 
-
 *New entry for 2024***New for 2025:**
 
 Bruce and the as yet unnamed E Street Band headline during freshman orientation at Dean College in Franklin, Massachusetts.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1973-0906.jpg?resize=758%2C1172&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1973-0907a-300x78.jpg?resize=758%2C197)
 
 Live at the Ya Ya Lounge in New Orleans, it's… Lee Dorsey and the E Street Band? Bruce is on his way to the next tour stop in Texas, but the E Street Band stays behind in New Orleans to play a gig at the club without him. The gig is a barter for Dorsey lending his vocals on Southside Johnny's upcoming Steve Van Zandt-produced album.
 
 **1975:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1975-0907-300x300.jpg?resize=758%2C758)
 
@@ -46,8 +39,6 @@ Night Two at Fenway Park on the Rising Tour features the tour premiere of "," a 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-09-07a-300x203.jpg?resize=754%2C510)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-09-07b-300x230.jpg?resize=758%2C581)
 
 Bruce plays his first-ever show at Wrigley Field in Chicago when the Wrecking Ball Tour arrives for the first of two nights, and what a show it is: Bruce opens with "" with the Darkness Tour intro and tour premieres "." Tom Morello and Eddie Vedder both make multiple guest appearances.
@@ -61,8 +52,6 @@ Bruce plays his first-ever show at Wrigley Field in Chicago when the Wrecking Ba
 [https://www.youtube.com/embed/LVgK3DNGIHc?feature=oembed](https://www.youtube.com/embed/LVgK3DNGIHc?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2012-09-07a-212x300.jpg?resize=758%2C1072)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2012-09-07b-189x300.jpg?resize=758%2C1203)
 
@@ -80,15 +69,11 @@ A show for the ages at Citizens Bank Park in Philadelphia–clocking in at 4:04,
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2016-09-07a-182x300.jpg?resize=758%2C1249)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2016-09-07b-115x300.jpg?resize=758%2C1977)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. Following this show, Bruce takes a three-week break. Earlier in the day, Bruce and Patti attend Ralph Lauren's 50th anniversary party at New York Fashion Week.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/2018-09-07-240x300.jpg?resize=758%2C948)
 
@@ -109,8 +94,6 @@ Bruce postpones his scheduled show in Syracuse to the following April due to his
 View this post on Instagram
 
 [A post shared by Bruce Springsteen (@springsteen)](https://www.instagram.com/p/Cw3scktLQ4t/?utm_source=ig_embed&utm_campaign=loading)
-
-
 
 After more than a year and two postponements, Bruce and the E Street Band take the stage in Nationals Park In Washington, D.C.
 

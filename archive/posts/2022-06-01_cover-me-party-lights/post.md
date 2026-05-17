@@ -22,7 +22,7 @@ In fact, Bruce's song sounds very much like a direct sequel. Clark's original ce
 
 Take a listen to Bruce's own version of "[Party Lights](https://estreetshuffle.com/index.php/2019/11/14/roll-of-the-dice-party-lights/)" and hear for yourself.
 
-**Party Lights  
+**Party Lights
 First performed:** December 2, 1975 (Boston, MA)
 **Last performed:** December 11, 1975 (South Orange, NJ)<br>
 

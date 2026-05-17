@@ -1,5 +1,4 @@
 
-
 They may be a folk trio, but this cover rocks.
 
 The Descendants hail from South Africa's Eastern Cape. With twelve studio albums under their belts, Ingrid Potgieter (piano), Nicky Wilson (bass), and Melissa Larter (guitar and lead vocals) have amassed a considerable catalog of inspirational songs.

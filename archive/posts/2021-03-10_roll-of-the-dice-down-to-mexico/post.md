@@ -1,10 +1,6 @@
 > "When my folks moved out to California," Bruce begins in response to a question about whether he really knows "a pretty little place in Southern California/Down San Diego way" as he claims in "Rosalita," "my mom decided-see my father and I would fight all the time–and she decided that we should take a trip together. She decided that we should take a trip together. She decided that we should go to *Tijuana* [he laughs his hoarse laugh, reserved for the truly absurd]. So we got in the car and drove down there, arguing all the way. First I drove and he yelled at me, and then he drove and I yelled at him.
 >
->
->
 > "Anyway, we finally got there, and of course, my old man is the softest-hearted guy in the world. Within fifteen minutes, some guy has sold him some watch that must've run for all of an hour and a half before it stopped. And then some guy comes up and says, 'Hey, would you guys like to have your picture taken on a zebra?'
->
->
 >
 > "Well, we looked at each other–who could believe this, right? Zebras are in Africa. And so we said, 'Well if you've got a zebra, we definitely want to have our picture taken.' So we give him ten bucks and he takes us around this corner, and he's got…he's got a damn donkey with stripes painted on its side. And he pulls out these two hats–one says Pancho, one says Cisco–I swear–and he sits us on the donkey and takes our picture. My mother's still got that picture. But that is all I knew about Southern California at the time I wrote 'Rosalita.'" — Bruce Springsteen to Mary Turner, via Dave Marsh, "Bruce Springsteen Raises Cain," *Rolling Stone*, August 24, 1978
 
@@ -46,8 +42,8 @@ We may never know. But once again: with a groove this good, does it really matte
 I think not.
 
 **Down to Mexico**<br>
-Never recorded  
-Never released  
+Never recorded
+Never released
 **First performed:** February 4, 1972 (Richmond, VA)<br>
 **Last performed:** February 26, 1972 (Richmond, VA)<br>
 

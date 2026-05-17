@@ -1,5 +1,4 @@
 
-
 *New entry for 1982; audio for 2008; video for 2023***New for 2025:**
 
 Bruce opens for Jerry Lee Lewis and Chuck Berry at the University of Maryland. After his set, Bruce and the E Street Band (plus Southside Johnny) serve as the backing band at no charge for Lewis and Berry, remaining on stage the entire night. The band has no rehearsal time with Berry, who keeps the band on their toes the entire night. Watch Bruce tell the story below. (Thanks to Dave Homorody for the photo!)
@@ -14,19 +13,13 @@ Bruce and the E Street Band play an intimate (less than 300 attendees) outdoor s
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1974-0428.jpg?resize=758%2C824&amp;ssl=1)
 
 Bruce plays the Grand Ole Opry House in Nashville.
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-04-28b-300x202.jpg?resize=758%2C510)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0428-244x300.jpg?resize=758%2C932)
 
@@ -38,7 +31,7 @@ Flo and Eddie guest-star on "" when the River Tour arrives in Rotterdam.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1981-0428-300x211.jpg?resize=695%2C489)
 
-At the Power Station in New York City, Bruce works on several songs for what would eventually become 
+At the Power Station in New York City, Bruce works on several songs for what would eventually become
 
 **1982:** *Born in the U.S.A.*
 
@@ -80,11 +73,7 @@ On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce pl
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-28a-300x297.jpg?resize=758%2C751)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-28b-300x97.jpg?resize=758%2C245)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2005-04-28c.jpg?resize=758%2C1020&amp;ssl=1)
 
@@ -102,8 +91,6 @@ Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-28a.jpg?resize=758%2C536&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-28b.jpg?resize=758%2C1278&amp;ssl=1)
 
 Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of "," "," "" and "." For more highlights from this show, see my from this date.
@@ -115,8 +102,6 @@ Philadelphia always seems to get great shows, and the Working on a Dream Tour ke
 [https://www.youtube.com/embed/bSuR98jW88c?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/bSuR98jW88c?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2009-04-28a.jpg?resize=758%2C771&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/2009-04-28b-rotated.jpg?resize=574%2C1638&amp;ssl=1)
 

@@ -1,5 +1,4 @@
 
-
 From SxSW 2012: Bruce joins his Texas buddies Joe Ely and Alejandro Escovedo for The Flatlanders' "Midnight Train."
 
 [https://www.youtube.com/embed/DmLPWWvrT6I?feature=oembed](https://www.youtube.com/embed/DmLPWWvrT6I?feature=oembed)

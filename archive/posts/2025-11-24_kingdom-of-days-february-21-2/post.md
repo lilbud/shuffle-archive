@@ -1,14 +1,9 @@
 
-
 Bruce cancels a show at Moravian College to make room for recording sessions.
 
 **1975:** *Born to Run*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1975-02-21.png?resize=758%2C359&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1975-02-21-300x194.jpg?resize=758%2C490)
 
@@ -47,8 +42,6 @@ The 2016 version of the River Tour stops at KFC Yum! Center in Louisville, where
 [https://www.youtube.com/embed/gMCyJkD0VKA?feature=oembed](https://www.youtube.com/embed/gMCyJkD0VKA?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2016-02-21a.jpg?resize=758%2C1109&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2016-02-21b.jpg?resize=758%2C1149&amp;ssl=1)
 

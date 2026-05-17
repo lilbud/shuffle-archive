@@ -1,14 +1,8 @@
 > On the morning of September 11, 2001, with the skies so clear that the Twin Towers across the river appeared to be within reach, the very essence of what our country stands for – freedom, tolerance, and the pursuit of happiness – was attacked.
 >
->
->
 > This memorial is dedicated to New Jersey's innocent loved ones who were violently and senselessly murdered that day at the World Trade Center, The Pentagon, and in Shanksville, PA.
 >
->
->
 > Let this memorial reflect the legacies of those whose lives were lost, that their unfulfilled dreams and hopes may result in a better future for society. Their unique qualities and characteristics enriched our lives immeasurably, and through this memorial their stories shall live on.
->
->
 >
 > *Inscribed on Empty Sky, the New Jersey September 11th Memorial*<br>
 
@@ -64,8 +58,6 @@ Other than the rare exceptional occasion, Bruce typically found his audiences re
 In the years since, "Empty Sky" has been essentially relegated to the history books (apart from a couple of cameos), too quiet for Bruce's rock setlists and too far removed from the original events for modern audiences to appreciate its nuance. On vinyl, though, it remains one of the central, essential tracks that gives *The Rising* its enduring power.
 
 [Watch Video Highlight](https://videopress.com/embed/1Uvx6IoY?hd=0&cover=1)
-
-
 
 **Empty Sky**<br>
 **Recorded** March-April, 2002<br>

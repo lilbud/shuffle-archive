@@ -93,7 +93,7 @@ We may come to the house because we're disaffected; we may come purely to be ent
 
 Bruce considers "House of a Thousand Guitars" one of his very best songs, and it's easy to understand why. It's simultaneously a satisfied reflection on his life's work, a testament to the uniting power of music in general, and a stubbornly optimistic outlook on a more-than-ever divided country.
 
-But he's hinted at an even deeper and somewhat oblique resonance. In the film version of *Letter to You*, he says "We've not been made perfect by god, but [in this house] I try to speak in the voice of my better angels." And at the very moment he says this, the on-screen images shift the context from his musical family to his biological one. *I may still struggle with my demons*, he seems to say, *but at least in these two houses I keep them at bay.* 
+But he's hinted at an even deeper and somewhat oblique resonance. In the film version of *Letter to You*, he says "We've not been made perfect by god, but [in this house] I try to speak in the voice of my better angels." And at the very moment he says this, the on-screen images shift the context from his musical family to his biological one. *I may still struggle with my demons*, he seems to say, *but at least in these two houses I keep them at bay.*
 
 I'm too far invested in Bruce's life story and body of work to be able to evaluate how well "House of a Thousand Guitars" would resonate with someone unfamiliar with its singer, but I suspect that this is a song that rewards devoted fans much more than it does casual listeners.
 
@@ -103,8 +103,8 @@ A deep cut in every sense, "House of a Thousand Guitars" is the letter in *Lette
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=z27MexwKxT4)
 
-**House of a Thousand Guitars  
-**Recorded:** November 2019  
+**House of a Thousand Guitars
+**Recorded:** November 2019
 **Released:** *Letter to You* (2020)<br>
 **First performed:** November 18, 2020 (Colts Neck, NJ)<br>
 **Last performed:** November 18, 2020 (Colts Neck, NJ)<br>

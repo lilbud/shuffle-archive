@@ -1,5 +1,4 @@
 
-
 You might be more familiar with "Zip a Dee Doo Dah" in its original Disney incarnation, but in 1963, it went all the way to #8 on the charts when Bob B. Soxx and The Blue Jeans covered it. And if you're not familiar with that band, you're probably familiar with their featured vocalist on the track: Darlene Love.
 
 [https://www.youtube.com/embed/PWOkSyR_NhU?feature=oembed](https://www.youtube.com/embed/PWOkSyR_NhU?feature=oembed)

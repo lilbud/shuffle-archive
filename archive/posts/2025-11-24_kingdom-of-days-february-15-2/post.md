@@ -1,12 +1,9 @@
 
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-15a.png?resize=758%2C725&amp;ssl=1)
 
 After firing drummer Vini Lopez three days earlier, Bruce cancels a show at the University of Toledo so that the band has time to rehearse with new drummer Ernest "Boom" Carter.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1974-02-15-149x300.jpg?resize=758%2C1526)
 

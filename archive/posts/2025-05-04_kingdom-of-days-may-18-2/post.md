@@ -1,5 +1,4 @@
 
-
 *Audio for 1999 and 2014; video for 2014 and 2023***New for 2025:**
 
 Bruce enters a recording studio for the very first time when The Castiles record their first two songs: "" and "." Both are co-written by Bruce and George Theiss. The former will be officially released on in 2016; the latter is still unreleased but can be heard below.
@@ -38,8 +37,6 @@ Bruce and the E Street Band kick off a four-night Reunion Tour stand at Earls Co
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Evening_Standard_Wed__May_19__1999_.jpg?resize=758%2C681&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Fulham_and_Hammersmith_Chronicle_Thu__May_20__1999_.jpg?resize=758%2C785&amp;ssl=1)
 
 Bruce attends the opening dedication ceremony for Freehold's Vinyard Park to honor his early patron and supporter, "Tex" Vinyard.
@@ -49,8 +46,6 @@ Bruce attends the opening dedication ceremony for Freehold's Vinyard Park to hon
 [https://www.youtube.com/embed/NewO6pq-crY?feature=oembed](https://www.youtube.com/embed/NewO6pq-crY?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2002-05-18a.jpg?resize=758%2C2207&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2002-05-18b.jpg?resize=758%2C1486&amp;ssl=1)
 
@@ -82,7 +77,7 @@ Night Two in Barcelona for the Wrecking Ball Tour.
 
 [https://videopress.com/embed/V2qhXSoW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/V2qhXSoW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The High Hopes Tour wraps with a second show at the Mohegan Sun Casino in Uncasville, Connecticut, where Bruce pulls out six tour premieres . For more highlights from this show, see my 
+The High Hopes Tour wraps with a second show at the Mohegan Sun Casino in Uncasville, Connecticut, where Bruce pulls out six tour premieres . For more highlights from this show, see my
 
 **2014:** *in the first seven songs*[report from this night.](http://estreetshuffle.com/index.php/2018/05/18/where-the-band-was-uncasville-may-18-2014/)*Where the Band Was*
 

@@ -27,5 +27,3 @@ Toward the end of "All Shook Up," Nick deftly (and gutsily) segues the band into
 **Blue Suede Shoes**<br>
 **First performed:** August 19, 1983 (Long Branch, NJ)<br>
 **Last performed:** August 19, 1983 (Long Branch, NJ)<br>
-
-

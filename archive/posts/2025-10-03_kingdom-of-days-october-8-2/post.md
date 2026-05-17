@@ -1,12 +1,9 @@
 
-
 *New entry for 1979; video for 2004***New for 2025:**
 
 The Castiles play what is believed to be their first publicly advertised gig at the I.B. Club in Howell, New Jersey.
 
 **1965:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1965-1008-267x300.jpg?resize=755%2C848)
 
@@ -26,7 +23,7 @@ Bruce and the E Street Band record "" at The Power Station in New York City. It 
 
 [https://www.youtube.com/embed/S2WWQAvS_6I?feature=oembed](https://www.youtube.com/embed/S2WWQAvS_6I?feature=oembed)
 
-Fresh off the fifteen-month Born in the U.S.A. Tour, Nils appears on 
+Fresh off the fifteen-month Born in the U.S.A. Tour, Nils appears on
 
 **1985:** *Late Night with David Letterman.*
 
@@ -50,19 +47,13 @@ A scheduled show at Mountain View's Shoreline Amphitheater is postponed until la
 
 **1992:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1992-10-08.jpg?resize=725%2C3346&amp;ssl=1)
 
 Bruce and Mike Appel testify in the Royal Courts of Justice in London to prevent the unauthorized publication of some of Bruce's early recorded but unreleased songs.
 
 **1998:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1998-10-08a-300x91.jpg?resize=758%2C230)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1998-10-08b-295x300.jpg?resize=758%2C771)
 

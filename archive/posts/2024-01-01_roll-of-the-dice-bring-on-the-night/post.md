@@ -67,7 +67,7 @@ Nevertheless, it offers a fascinating peek into Bruce's songwriting process, and
 [Watch on Youtube: Bruce Springsteen Bring on the Night #3](https://www.youtube.com/watch?v=ZYpPhvthseA)
 
 **Bring on the Night**<br>
-**Recorded:** June 13, 1979  
+**Recorded:** June 13, 1979
 **Released:** *Tracks* (1998)<br>
 **Never performed**<br>
 

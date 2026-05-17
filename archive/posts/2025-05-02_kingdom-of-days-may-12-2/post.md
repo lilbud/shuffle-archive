@@ -1,20 +1,15 @@
 
-
 *Audio for 1977 and 2003; new entry for 1982 and 2024; article for 1997***New for 2025:**
 
 Bruce and the E Street Band perform a free concert at Niagara University in Lewiston, New York.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1973-0512.jpg?resize=758%2C664)
 
 Bruce cancels a scheduled gig at Glassboro State College to make room for recording sessions for .
 
 **1974:** *Born to Run*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1974-05-12.jpg?resize=758%2C720&amp;ssl=1)
 
@@ -26,11 +21,9 @@ When Southside Johnny takes ill and can't perform, Steve Van Zandt transforms th
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1977-05-12a-300x137.jpg?resize=758%2C346)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1977-05-12b.jpg?resize=758%2C467&amp;ssl=1)
 
-Bruce and the E Street Band are in the studio at the Power Station in New York City, recording for what will eventually become 
+Bruce and the E Street Band are in the studio at the Power Station in New York City, recording for what will eventually become
 
 **1982:** *Born in the U.S.A.*
 
@@ -66,8 +59,6 @@ Bruce plays his first-ever show in the Czech Republic, an acoustic show at Pragu
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1997-0512-300x256.jpg?resize=758%2C645)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/Philadelphia_Daily_News_1997_05_14_Page_40-scaled.jpg?resize=758%2C989&amp;ssl=1)
 
 The Rising Tour makes a stop in Brussels, and Bruce pulls out the tour premiere of "" for the occasion. The show opener is special as well: an beautiful acoustic version of "."
@@ -98,8 +89,6 @@ At a benefit show for the Count Basie Theater Foundation in Red Bank, Bruce join
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2007-05-12a.jpg?resize=444%2C2960&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2007-05-12b.jpg?resize=758%2C906&amp;ssl=1)
 
 At the United Center in Chicago, fans witness the E Street Band premiere of "."
@@ -111,8 +100,6 @@ At the United Center in Chicago, fans witness the E Street Band premiere of "."
 [https://www.youtube.com/embed/qbl7Dfzv0jU?feature=oembed](https://www.youtube.com/embed/qbl7Dfzv0jU?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2009-05-12a-300x128.jpg?resize=758%2C323)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2009-05-12b.jpg?resize=758%2C771&amp;ssl=1)
 

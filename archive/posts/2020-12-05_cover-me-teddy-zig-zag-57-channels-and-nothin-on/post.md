@@ -1,5 +1,4 @@
 
-
 It's not often I can say this: I think this cover is better than Bruce's original version.
 
 Teddy "Zig Zag" Andreadis has toured with and supported artists ranging from Guns N' Roses to Carole King, but his roots are on the Jersey shore.

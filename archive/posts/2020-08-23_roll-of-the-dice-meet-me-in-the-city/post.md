@@ -133,7 +133,6 @@ In 2015, though–well, as he once confessed about the inspiration of a differen
 
 ---
 
-
 As I wrote at the top, Bruce aptly and symbolically prefaced almost every full-album performance of *The River* in 2016 with "Meet Me in the City." In fact, out of the 41 times he's played the song live, only two were not attached to a full album performance. One of those was a mid-tour River show in Milan; the other was the live debut of the song on *Saturday Night Live* in the holiday season of 2015.
 
 [Watch on Youtube: Bruce Springsteen - Meet Me in the City (Live on SNL)](https://www.youtube.com/watch?v=Ld1cXemQ3UQ)

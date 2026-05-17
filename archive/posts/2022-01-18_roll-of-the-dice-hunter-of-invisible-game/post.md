@@ -1,7 +1,5 @@
 > "I wrote [the title] down years ago, and I don't remember a lot about it except I said, ‘That's a nice title.' I wrote it down and it sat there. Then I did more reading of other things. And I started to get into this sort of post-apocalyptic idea. The idea of these travelers in the wasteland, and what's the guy trying to do? He's trying to hold onto their humanness, their humanity in all of this ruin. That was the idea. That's who this guy is, the guy who is hunting out remnants of what makes the spirit. It was one of those songs that came together a certain way and I didn't think much about it when I wrote it. I put it away. Now it's probably one of my favorite things on the record. "
 >
->
->
 > — Bruce Springsteen to Sean Sennett, *Rolling Stone*, March 11, 2014
 
 Only the inclusion of "American Skin (41 Shots)" keeps "Hunter of Invisible Game" from earning best song honors for *High Hopes*, but it's still one of Bruce's best songs of the past twenty years.
@@ -89,7 +87,6 @@ Our moment will come, he cautions, where we'll be called upon to band together, 
 Because, as he tells us before literally walking off into the sunset, there's always a kingdom of love and goodness out there for those willing to unite and embrace it. Our hunter carries that mission forward, alone, into the dark.
 
 ---
-
 
 **Bonus:** Bruce has only played "Hunter of Invisible Game" once ever (although I was lucky enough to hear him soundcheck it before his show in Houston in 2014)–in Adelaide on the High Hopes Tour. It didn't translate well to a large venue stage, however, and that's likely why we haven't seen it since.
 

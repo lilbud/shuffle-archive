@@ -1,12 +1,9 @@
 
-
 *New entry for 1975, 1982, and 2024; audio for 2000 and 2009; video for 2023***New for 2025:**
 
 E Street Band violinist Soozie Tyrell is born in Pisa, Italy.
 
 **1957:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/soozie-300x182.jpg?resize=758%2C461)
 
@@ -14,15 +11,11 @@ Child plays an outdoor set at West End Park in Long Branch, New Jersey. (Note: B
 
 **1969:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Asbury_Park_Press_Mon__May_5__1969_-1-scaled.jpg?resize=758%2C1234&amp;ssl=1)
 
 Bruce and the E Street Band headline Montclair State University's Spring Carnival, opening with "New York City Serenade."
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0504-300x211.jpg?resize=758%2C534)
 
@@ -33,8 +26,6 @@ At a recording session at the Record Plant in New York City, Bruce works on "" a
 Bruce plays his first-ever show in Mississippi, at the Coliseum in Jackson.
 
 **1976:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-05-04-300x288.jpg?resize=758%2C728)
 
@@ -63,8 +54,6 @@ Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the
 [https://www.youtube.com/embed/4hAAehP6UxM?feature=oembed](https://www.youtube.com/embed/4hAAehP6UxM?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-05-04a-300x137.jpg?resize=758%2C346)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-04b.jpg?resize=758%2C669&amp;ssl=1)
 
@@ -122,21 +111,15 @@ View this post on Instagram
 
 [A post shared by Springsteen's Corner (@hellesspringsteencorner)](https://www.instagram.com/reel/Cr3V-3wobfw/?utm_source=ig_embed&utm_campaign=loading)
 
-
-
-
-
 Upon returning to Dublin later in the day, Bruce pays a visit to the late Shane MacGowan, former lead singer of The Pogues.
 
-What an amazing honour and a beautiful experience to get a visit from The Boss!!! ⁦⁩ ⁦⁩ Such a truly wonderful man and a total genius! 
+What an amazing honour and a beautiful experience to get a visit from The Boss!!! ⁦⁩ ⁦⁩ Such a truly wonderful man and a total genius!
 
 [@springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw)[@ShaneMacGowan](https://twitter.com/ShaneMacGowan?ref_src=twsrc%5Etfw)[pic.twitter.com/waXwmWOHTZ](https://t.co/waXwmWOHTZ)
 
 — @victoriamary (@Victoriamary)
 
 [May 3, 2023](https://twitter.com/Victoriamary/status/1653805156641779718?ref_src=twsrc%5Etfw)
-
-
 
 Bruce and the E Street Band rehears for their European tour at Principality Stadium in Cardiff.
 

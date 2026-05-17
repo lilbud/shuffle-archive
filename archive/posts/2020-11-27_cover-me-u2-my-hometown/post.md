@@ -1,5 +1,4 @@
 
-
 On June 29 1985, U2 played a homecoming show at Croke Park in Dublin. Bono kicked off the encores with a dedication to his father: a cover of "."
 
 [My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)

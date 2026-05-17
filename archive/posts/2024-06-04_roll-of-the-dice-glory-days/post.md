@@ -12,8 +12,6 @@ Even the shows that go on sometimes aren't always hitch-less: in Amsterdam, Bruc
 
 [Watch on Youtube: Bruce Springsteen falls on stage while performing in Amsterdam](https://www.youtube.com/watch?v=V1SDWUdIolE)
 
-
-
 And in Kilkenny, he had to stop the show when he realized he was physically incapable of escaping the pit.
 
 [Watch on Youtube: Bruce Springsteen Watches his own Show in Kilkenny Ireland and gets stuck! ;) may 12th 2024](https://www.youtube.com/watch?v=kVyG3Lf_Fvg)
@@ -154,8 +152,6 @@ DePugh was speechless, managing only a feeble "Thanks, Saddie" as he watched his
 Glory days.
 
 [Spotify Embed: Glory Days - feat. Bruce Springsteen and Patti Scialfa](https://open.spotify.com/embed/track/5yZg1t3WCLLRv0J167GGzK?si=8f82d1cd8bbf43a2&utm_source=oembed)
-
-
 
 **Glory Days**<br>
 **Recorded** May 5, 1982<br>

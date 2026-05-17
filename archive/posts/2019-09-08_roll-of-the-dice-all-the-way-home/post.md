@@ -55,7 +55,6 @@ To put it another way: "Tougher Than the Rest" is the song you write before you'
 
 ---
 
-
 Bruce debuted his live solo rendition of "All the Way Home" very early in his 1992 tour, breaking it out in the middle of his homecoming stand at the Meadowlands.
 
 [Watch on Youtube: Bruce Springsteen All the way home meadowlands 1992](https://www.youtube.com/watch?v=_FhpvZT3dks)

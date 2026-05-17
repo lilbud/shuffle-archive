@@ -60,7 +60,6 @@ The more we learn about Bruce's emotional experience through his *Born to Run* b
 
 ---
 
-
 Bruce debuted "This Depression" in concert twice: on back-to-back nights in Bergen in the summer of 2012, Bruce played the song for the first (and second) time in very different arrangements.
 
 On Night One, Bruce premiered "This Depression" as an intimate solo performance on acoustic guitar and harmonica. It's a beautiful arrangement that lays bare the soul of the song, and although fan-filmed videos can be very deceptive depending on where the filmer is placed, the crowd appears rapt by Bruce's vulnerable performance.
@@ -84,7 +83,7 @@ Fortunately, Tom made more than a few guest appearances on the Wrecking Ball Tou
 Despite a momentary lyrical lapse and some audio difficulties during Nils' solo, it's a powerful performance and a reminder that "This Depression" deserves more frequent outings in the future.
 
 **This Depression**<br>
-**Recorded:** Unknown  
+**Recorded:** Unknown
 **Released:** *Wrecking Ball* (2012)<br>
 **First performed:** July 23, 2012 (Bergen, Norway)<br>
 **Last performed:** July 24, 2013 (Leeds, England)<br>

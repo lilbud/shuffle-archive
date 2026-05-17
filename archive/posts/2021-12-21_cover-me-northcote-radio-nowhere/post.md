@@ -1,5 +1,4 @@
 
-
 (Thanks to friend of the blog Doug Watson for pointing me to this one.)
 
 "" doesn't get nearly as much cover love as it deserves (although still rates as one of my all-time favorite Springsteen covers).

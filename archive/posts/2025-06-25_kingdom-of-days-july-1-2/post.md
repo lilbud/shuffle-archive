@@ -1,5 +1,4 @@
 
-
 *New entry for 1973 and 1977***New for 2025:**
 
 Bruce makes a guest appearance with Norman Seldin and the Joyful Noyze, of which Clarence Clemons is a member. This is only the third time Bruce has ever performed with Clarence.
@@ -38,8 +37,6 @@ It's Night Two on the Born in the U.S.A. Tour in St. Paul, and Bruce is still a 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-07-01a-300x117.jpg?resize=758%2C296)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-07-01b-197x300.jpg?resize=758%2C1154)
 
 Bruce hops on stage with La Bamba at The Stone Pony in Asbury Park to perform "."
@@ -74,15 +71,11 @@ Bruce joins Brian Wilson at the PNC Banks Arts Center in Holmdel, New Jersey, fo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/07/Asbury_Park_Press_2015_07_03_Page_A3.jpg?resize=758%2C368&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/07/Asbury_Park_Press_2015_07_03_Page_A4.jpg?resize=758%2C1367&amp;ssl=1)
 
 Bruce has the night off from his Broadway show, but he still spends it in New York. U2 is in concert at Madison Square Garden, and Bruce is there to see the show.
 
 **2018:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/u2-300x300.jpg?resize=758%2C758)
 

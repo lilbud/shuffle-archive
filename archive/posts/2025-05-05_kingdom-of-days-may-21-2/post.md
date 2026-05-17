@@ -1,5 +1,4 @@
 
-
 *Video for 2016 and 2023***New for 2025:**
 
 The Castiles perform at their own junior prom at Freehold Regional High School.
@@ -9,8 +8,6 @@ The Castiles perform at their own junior prom at Freehold Regional High School.
 Even shorter-lived than Dr. Zoom and the Sonic Boom: , making their debut performance in two shows at The Upstage. Bruce also plays an afternoon show on this date with The Sundance Blues Band.
 
 **1971:** *Bruce Springsteen and the Hot Mammas*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1971-0521-234x300.jpg?resize=758%2C972)
 
@@ -74,11 +71,7 @@ Still chugging along, the Reunion Tour stops in Anaheim for the first of two sho
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-05-21a-300x167.jpg?resize=758%2C422)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2000-05-21b.jpg?resize=758%2C1413&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2000-05-21c.jpg?resize=758%2C417&amp;ssl=1)
 
@@ -103,8 +96,6 @@ The final stand of the first American leg of the Working on a Dream Tour begins 
 [https://videopress.com/embed/WnLyKn0T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/WnLyKn0T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2009-05-21a-300x217.jpg?resize=758%2C548)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2009-05-21b.jpg?resize=758%2C871&amp;ssl=1)
 

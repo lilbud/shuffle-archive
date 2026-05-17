@@ -25,5 +25,3 @@ It would take another four years before Americans would truly vote for change, a
 **Deja Vu (All Over Again)**<br>
 **First performed:** October 1, 2004 (Philadelphia, PA)<br>
 **Last performed:** October 13, 2004 (East Rutherford, NJ)<br>
-
-

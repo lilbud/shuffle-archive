@@ -43,5 +43,3 @@ If the rest of the main set was predictable from there, the encores still held a
 [Watch on Youtube: Springsteen - Land of Hopes and Dreams - The Spectrum October 19, 2009](https://www.youtube.com/watch?v=OsAYV2uzzNA)
 
 What a night–it wasn't the best, longest, most intense or unpredictable show I've ever seen, but it was certainly one of the most fun. And it was my very last concert at The Spectrum, where I'd seen so many shows growing up. For a last memory of a special venue, this will certainly do.
-
-

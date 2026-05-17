@@ -1,5 +1,4 @@
 
-
 It's the unofficial anthem of the U.S. Civil Rights Movement.
 
 It's preserved in the National Recording Registry for its historical and cultural significance and enshrined in the Grammy Hall of Fame.

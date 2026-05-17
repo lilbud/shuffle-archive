@@ -79,5 +79,3 @@ Which only leaves one lingering question in my mind: anyone up for a game?
 **Download the full game for free [here.](https://becomingtheboss.dk/)**<br>
 
 ![](../../assets/2021/03/Presentation-FB-JAN2021-Black.png)
-
-

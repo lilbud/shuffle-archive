@@ -1,5 +1,4 @@
 
-
 "Let's Talk About Us" isn't one of Jerry Lee Lewis' most well-known songs (released as a single in 1959, it never charted), but it's certainly one of his most direct.
 
 Even for Lewis, known for his suggestive lyrics, "Let's Talk About Us" is a remarkably direct song for its time. Jerry Lee plays an impatient suitor telling his girl that he's waited long enough: it's sexy time.

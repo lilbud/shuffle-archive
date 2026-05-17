@@ -4,8 +4,6 @@ After all, "Bad Day" evolved in true Springsteenian style, first appearing in th
 
 [R.E.M. - PSA (Bad Day) - JB's Theater, Albany, NY, 25 August 1985 by R.E.M. Timeline](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F636937005&show_artwork=true&maxwidth=758&maxheight=1000&dnt=1)
 
-
-
 A year later, those lyrics appeared as the chorus of a demo called "P.S.A." recorded–but not released–for the band's *Life's Rich Pageant* album.
 
 [Watch on Youtube: R.E.M. - Bad Day (P.S.A.) Demo 1986 (audio)](https://www.youtube.com/watch?v=BNrjJoH_uXI)

@@ -1,20 +1,15 @@
 
-
 *Video for 1980; audio for 2006; new entry for 2024***New for 2025:**
 
 Future Seeger Sessions Band member and E Streeter Charlie Giordano is born in Brooklyn.
 
 **1954:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1954-1013.jpg?resize=758%2C1016&amp;ssl=1)
 
 At the last minute, Columbia Records cancels a promotional preview show for at the Kennedy Center in Washington, DC. No reason is provided.
 
 **1973:** *The Wild, The Innocent & The E Street Shuffle*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1973-1013-252x300.jpg?resize=758%2C902)
 
@@ -40,15 +35,9 @@ Bruce releases his fifth studio album, and The River Tour (already in progress) 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/10/The_Toronto_Star_1980_10_10_page_59-scaled.jpg?resize=758%2C1596&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1980-10-13-300x246.jpg?resize=758%2C622)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1980-10-13a.png?resize=758%2C3499&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-10-13b-277x300.png?resize=758%2C821)
 
@@ -70,15 +59,9 @@ Neil and Pegi Young hold their first benefit for The Bridge School for children 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1986-10-13-300x185.jpg?resize=758%2C470)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1986-10-13a-266x300.png?resize=758%2C855)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1986-10-13b-243x300.png?resize=758%2C936)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1986-10-13c-300x181.png?resize=758%2C457)
 
@@ -108,8 +91,6 @@ Bruce and Jackson Browne hold an encore concert for the Vote for Change Tour at 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2004-10-13a-300x212.png?resize=758%2C536)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2004-10-13b.png?resize=758%2C932&amp;ssl=1)
 
 Bruce brings his solo acoustic Devils & Dust Tour to Chicago's United Center.
@@ -136,8 +117,6 @@ Bruce joins the Max Weinberg 7 for six songs during their benefit performance fo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-13a-53x300.png?resize=758%2C4291)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-13b-300x295.png?resize=758%2C745)
 
 Bruce and the E Street Band kick off one final stand of four shows at the Philadelphia Spectrum before its scheduled demolition. Each show will be special in its own right, starting from the first number of the first show: the tour premiere and first E Street Band performance of "" in 36 years. This show also features a full album performance of , Bruce's only performance of "" to date, and a rare outing for "."
@@ -156,15 +135,11 @@ Bruce and the E Street Band kick off one final stand of four shows at the Philad
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2009-10-13a-103x300.png?resize=758%2C2208)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2009-10-13b-208x300.png?resize=758%2C1093)
 
 Bruce settles in for a long run of at the Walter Kerr Theater in New York City. This is Night Two.
 
 **2017:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/2017-1003-300x152.jpg?resize=758%2C385)
 
@@ -172,19 +147,11 @@ It's Night Two Hundred for at the Walter Kerr Theater in New York City. In atten
 
 **2018:***Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-13d-300x300.jpg?resize=758%2C758)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-13a-300x300.jpg?resize=758%2C759)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-13b-300x300.jpg?resize=758%2C758)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-13c-300x297.jpg?resize=758%2C750)
 

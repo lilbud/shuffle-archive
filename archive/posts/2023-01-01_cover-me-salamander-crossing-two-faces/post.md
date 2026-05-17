@@ -1,6 +1,5 @@
 
-
-I'm a sucker for obscure Bruce covers and unusual arrangements; Salamander Crossing checked both boxes with their bluegrass rendition of "" on their 1996 album 
+I'm a sucker for obscure Bruce covers and unusual arrangements; Salamander Crossing checked both boxes with their bluegrass rendition of "" on their 1996 album
 
 [Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)*Passion Train.*
 

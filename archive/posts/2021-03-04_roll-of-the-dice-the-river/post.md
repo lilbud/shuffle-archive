@@ -153,7 +153,6 @@ Or to put it another way: a dream isn't a lie if it don't come true, but that do
 
 ---
 
-
 "The River" is one of Bruce's most well-known and well-loved songs. With no less than six official studio releases and four official live releases, it shouldn't surprise that it's also one of his most-performed songs.
 
 To date, Bruce has performed "The River" in concert a mind-boggling 683 times, which makes it virtually impossible to select just a few to represent his best.

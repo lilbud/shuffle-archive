@@ -1,12 +1,9 @@
 
-
 *New entry for 1977***New for 2025:**
 
 Bruce joins an acoustic jam session (along with Steve Van Zandt on acoustic slide guitar, Kevin Kavanaugh on piano, and Vini Lopez on pebble-filled soda cans) at an outdoor folk concert organized by Tinker West.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1971-08-05-300x122.png?resize=758%2C308)
 
@@ -54,11 +51,7 @@ Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-08-05a-300x199.png?resize=758%2C503)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-08-05b-300x130.png?resize=758%2C329)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-08-05c-300x233.png?resize=758%2C589)
 
@@ -76,19 +69,13 @@ Because this show marks Bruce's return to the U.S. and the first time playing to
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-05a-256x300.png?resize=758%2C888)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-05b-300x185.png?resize=758%2C468)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-05c-189x300.png?resize=758%2C1203)
 
 Jeff Porcaro of Toto, who played drums on most of the album, passes away at the age of 38.
 
 **1992:** *Human Touch*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1992-08-05-231x300.png?resize=758%2C985)
 
@@ -101,7 +88,5 @@ The fourth rehearsal show for the Rising Tour is the first in an arena, an invit
 Bruce makes a guest appearance with John Fogerty at John's show at the PNC Bank Arts Center in Holmdel, playing "."
 
 **2006:** [Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/2006-0805-300x214.jpg?resize=758%2C540)

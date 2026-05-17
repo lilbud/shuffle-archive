@@ -19,5 +19,3 @@ I gotta say: Bruce turned in a great performance, but the best "Who Says You Can
 **Who Says You Can't Go Home**<br>
 **First performed:** December 12, 2012 (New York City, NY)<br>
 **Last performed:** December 12, 2012 (New York City, NY)<br>
-
-

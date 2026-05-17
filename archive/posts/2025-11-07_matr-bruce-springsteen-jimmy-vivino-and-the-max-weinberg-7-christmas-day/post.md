@@ -1,5 +1,4 @@
 
-
 Detroit Junior released a seasonal single in 1961 entitled "This Time Last Christmas." It was the song's B-side, however, that caught on: "Christmas Day" may not exactly be a holiday classic, but it was successful enough to have been included on several holiday compilation albums.
 
 [https://www.youtube.com/embed/cDhxLfiPPzk?feature=oembed](https://www.youtube.com/embed/cDhxLfiPPzk?feature=oembed)

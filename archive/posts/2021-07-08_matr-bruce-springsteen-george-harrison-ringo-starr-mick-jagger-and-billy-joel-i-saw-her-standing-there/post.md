@@ -1,5 +1,4 @@
 
-
 Bruce has played "I Saw Her Standing There" three times on stage (documented, at least), always with at least one Beatle present to play their 1963 classic.
 
 [https://www.youtube.com/embed/oxwAB3SECtc?feature=oembed](https://www.youtube.com/embed/oxwAB3SECtc?feature=oembed)

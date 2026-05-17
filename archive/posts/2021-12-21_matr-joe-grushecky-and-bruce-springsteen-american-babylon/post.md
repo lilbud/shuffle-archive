@@ -21,5 +21,3 @@ Bruce and Joe have shared a stage together many times since, but after a one-off
 **American Babylon**<br>
 **First performed:** July 22, 1995 (Sea Bright, NJ)<br>
 **Last Performed:** March 2, 1998 (Pittsburgh, PA)<br>
-
-

@@ -22,8 +22,6 @@
 
 [NPR embedded audio player](https://www.npr.org/player/embed/262485987/262772951)
 
-
-
 After the interview, Bruce and the E Street Band (+Tom Morello, -Steve Van Zandt) rehearse for their appearance the next day on *Late Night with Jimmy Fallon*.
 
 [Watch on Youtube: Bruce Springsteen - Just Like Fire Would (Official Video)](https://www.youtube.com/watch?v=hJ4a_tgJp4I)

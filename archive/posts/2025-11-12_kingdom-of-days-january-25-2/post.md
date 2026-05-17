@@ -1,14 +1,9 @@
 
-
 Bruce continues his five-night stand at The Quiet Knight in Chicago, opening for The Persuasions. Earlier in the day, The New York Daily News reviews his first album.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1973-01-25a-202x300.jpg?resize=758%2C1126)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1973-01-25-300x158.jpg?resize=758%2C399)
 
@@ -21,8 +16,6 @@ Bruce and the E Street Band headline at The Mosque in Richmond, Virginia.
 [https://videopress.com/embed/bfJtT69Y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bfJtT69Y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1974-0125-300x206.jpg?resize=758%2C519)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Richmond_Times_Dispatch_1974_01_26_7.jpg?resize=758%2C979&amp;ssl=1)
 
@@ -40,8 +33,6 @@ Bruce plays the Music Hall in Austin, Texas, with Joe Ely joining for a final en
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1996-01-26-140x300.jpg?resize=758%2C1624)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1996-01-25.png?resize=758%2C679&amp;ssl=1)
 
 The video for "" is filmed at the New Brunswick Boxing Gym.
@@ -55,8 +46,6 @@ The video for "" is filmed at the New Brunswick Boxing Gym.
 Bruce and the E Street Band continue rehearsing in Cape Town for their upcoming tour.
 
 **2014:***High Hopes*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/2014-0125-232x300.jpg?resize=758%2C980)
 
@@ -79,8 +68,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 Bruce and Peter Wolf drop by Mr. Music in Boston and spend about 40 minutes in the music store hanging out and browsing guitars.
 
 **2019:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2019-01-25.png?resize=758%2C984&amp;ssl=1)
 

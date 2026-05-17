@@ -1,10 +1,7 @@
 
-
 The Castiles (Bruce's first band) play a gig at The Left Foot in Bruce's hometown of Freehold.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1968-0126-300x227.jpg?resize=758%2C574)
 
@@ -12,15 +9,11 @@ Bruce and the band continue their five-night stint at The Quiet Knight in Chicag
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/01/ad27.jpg?resize=535%2C976)
 
 Bruce and the band play a sold-out show at Chrysler Hall in Norfolk, Virginia.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1974-0126-209x300.jpg?resize=758%2C1088)
 
@@ -31,8 +24,6 @@ On the River Tour, the E Street Band makes a stop at the University of Notre Dam
 [https://videopress.com/embed/1N1myPz6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1N1myPz6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-01-26-256x300.jpg?resize=758%2C888)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1981-01-26b.png?resize=464%2C844&amp;ssl=1)
 

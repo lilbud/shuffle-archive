@@ -1,10 +1,7 @@
 
-
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1968-0322.jpg?resize=399%2C550&amp;ssl=1)
 
@@ -41,8 +38,6 @@ The Tunnel of Love Express Tour stops in Atlanta for the first of two nights at 
 [https://videopress.com/embed/ZErDKCJC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZErDKCJC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-22a.jpg?resize=758%2C368&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-22b.jpg?resize=758%2C737&amp;ssl=1)
 
@@ -91,8 +86,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 Bruce and President Barack Obama release the sixth episode of their podcast, . This episode is entitled "Wrestling with Ghosts: American Men."
 
 **2021:** *Renegades: Born in the U.S.A.*
-
-
 
 [https://open.spotify.com/embed/episode/5QIX6MfXYK0moHmbukclX1?si=363094f042db43af&amp;utm_source=oembed](https://open.spotify.com/embed/episode/5QIX6MfXYK0moHmbukclX1?si=363094f042db43af&amp;utm_source=oembed)
 

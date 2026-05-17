@@ -19,5 +19,3 @@ John returned the favor shortly after, which left them tied at one each. With lu
 **Pink Houses**<br>
 **First performed:** December 9, 2019 (New York City, NY)<br>
 **Last performed:** December 9, 2019 (New York City, NY)<br>
-
-

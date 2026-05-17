@@ -1,5 +1,4 @@
 
-
 I don't know much about this New York City-based Irish band than what I've already typed, but I hope we hear more from them in the future.
 
 They started a Youtube channel five months ago, and their most recent video is a beautiful cover of Bruce's "."

@@ -1,5 +1,4 @@
 
-
 *New entry for 1975 and 1998***New for 2025:**
 
 Child plays their second of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.
@@ -48,8 +47,6 @@ On a night off in between Born in the U.S.A. shows in Chicago, Bruce is spotted 
 
 **1984:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-07-16-300x89.png?resize=758%2C225)
 
 Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including "," "" and "."
@@ -60,8 +57,6 @@ Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1994-07-16-274x300.jpg?resize=758%2C830)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1994-0716-300x245.jpg?resize=758%2C619)
 
 At a Sony trade show in Miami, Bruce announces an upcoming box set of unreleased tracks.
@@ -71,8 +66,6 @@ At a Sony trade show in Miami, Bruce announces an upcoming box set of unreleased
 Bruce and the E Street Band rehearse for the upcoming Rising Tour.
 
 **2002:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/rehearsal-300x202.jpg?resize=758%2C509)
 
@@ -125,7 +118,5 @@ A stunning opening number at a magical venue: The Roma Sinfonietta strings join 
 continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: John Mellencamp and Clark Gayton.
 
 **2021:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/07/mellen.jpg?resize=758%2C541&amp;ssl=1)

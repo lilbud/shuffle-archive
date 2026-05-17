@@ -105,5 +105,3 @@ Also on this date, Bruce appears on the cover of *Rolling Stone*.
 ![](../../assets/2025/12/Screenshot-2025-11-10-125410.jpg)
 
 **2023:** Bruce's scheduled show in Inglewood is postponed to the following April due to his peptic ulcer disease.
-
-

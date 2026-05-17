@@ -1,5 +1,4 @@
 
-
 I seem to be in a groove lately with little-known artists covering Springsteen deep cuts, so let's keep it going:
 
 Today's entry comes from Canadian folk singer Scott Jacobs, whose lovely acoustic guitar-and-pedal-steel arrangement of "" beautifully captures Bruce's tale of a disintegrating love affair.

@@ -25,5 +25,3 @@ But catch [Joe and his band at the Wonder Bar on July 9th](https://www.ticketmas
 **Labor of Love**<br>
 **First performed:** July 22, 1995 (Sea Bright, NJ)<br>
 **Last performed:** March 2, 1998 (Pittsburgh, PA)<br>
-
-

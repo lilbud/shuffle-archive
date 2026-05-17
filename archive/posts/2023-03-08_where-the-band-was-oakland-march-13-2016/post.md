@@ -1,8 +1,7 @@
 
-
 If you're Bruce Springsteen, and you're in the middle of a tour, and your shows break the three-hour mark routinely, and you have six shows in a row coming up with only a day in between each of them, and you're 66 years old, and your voice is straining, and you've just seen a doctor in Phoenix to make sure you're good to go for the show, what do you do next?
 
-Obviously, you turn in the longest show of the tour yet–35 songs–and play and sing your heart 
+Obviously, you turn in the longest show of the tour yet–35 songs–and play and sing your heart
 
 out until just a few minutes before midnight.
 

@@ -11,5 +11,3 @@ Tenca actually recorded a live performance of "Johnny 99" back in 2011–you can
 [Watch on Youtube: Johnny 99](https://www.youtube.com/watch?v=MDQflYOs1g4)
 
 When this pandemic ends and I can make it back to Italy again, I'm gonna have to align my trip with one of Tenca's shows. Until then, I'm just going to keep listening to his albums–[they're great](https://www.youtube.com/channel/UCPME3JN_bZBgSMpyjl4VhaA).
-
-

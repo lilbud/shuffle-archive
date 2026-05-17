@@ -2,7 +2,6 @@
 
 ---
 
-
 When Nina Simone released her devastatingly vulnerable and powerful "Don't Let Me Be Misunderstood" in 1964 the world barely noticed. So how did it end up inspiring the riff for one of Bruce Springsteen's most popular anthems?
 
 And yet there it is, at the end of the song: a simple but instantly recognizable violin riff familiar to anyone in E Street Nation.
@@ -36,5 +35,3 @@ The only wonder is why he's never performed it at a proper concert.
 **Don't Let Me Be Misunderstood**<br>
 **First performed:** March 23, 1988 (Atlanta, GA) – soundcheck only<br>
 **Last Performed:** March 23, 1988 (Atlanta, GA) – soundcheck only<br>
-
-

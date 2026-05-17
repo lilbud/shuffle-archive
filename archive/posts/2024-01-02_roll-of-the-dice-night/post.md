@@ -82,7 +82,6 @@ But right here, and right now–that's enough.
 
 ---
 
-
 Bruce played "Night" for the first time during his legendary 1975 stand at The Bottom Line in New York City. *Born to Run* was still a couple of weeks away from being released, so no one had yet heard "Night" in any form. So this audience had no idea what was about to hit them when Bruce modestly introduced a new song:
 
 [Watch on Youtube: Bruce Springsteen - NIGHT 1975 (audio)](https://www.youtube.com/watch?v=7Jc7DMpXZnM)
@@ -114,7 +113,7 @@ Here's one of them, from nine months earlier in August 1974:
 Both have minor lyrical differences (including some bluffing in the earlier version) and some minor musical variations as well. But both reveal just how clear Bruce's vision was for the song almost a year before he officially recorded it in the studio.
 
 **Night**<br>
-**Recorded:** May 10, 1975  
+**Recorded:** May 10, 1975
 **Released:** *Born to Run* (1975)
 **First performed:** August 13, 1975 (New York City, NY)<br>
 **Last performed:** September 3, 2023 (East Rutherford, NJ)<br>

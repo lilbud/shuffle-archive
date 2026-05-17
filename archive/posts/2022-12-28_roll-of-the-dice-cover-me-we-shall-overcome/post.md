@@ -18,8 +18,6 @@ Here's a great interview with Pete Seeger a few years before his death, where he
 
 [Pete Seeger on "We Shall Overcome" by Blank on Blank](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F45879191&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 Almost immediately, "We Shall Overcome" became an anthem of social justice and resistance, spreading first through the Civil Rights movement and then worldwide. It's been recorded and performed by Joan Baez, Mahalia Jackson, and so many others–including, of course, Bruce Springsteen.
 
 Bruce's version dates back not to his 2006 album of the same name, as many people believe, but to almost a decade prior. In 1997, Bruce was contacted by the Appleseed record label with a request to contribute a track for an upcoming Pete Seeger tribute compilation called *Where Have All the Flowers Gone: The Songs of Pete Seeger.* Bruce accepted and chose "We Shall Overcome" as his contribution, recording the song in his home studio with Patti, Soozie, and a collection of musician friends and friends of friends.
@@ -54,8 +52,8 @@ The other was remarkable for both the location–Cape Town, South Africa, where 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=36p9_u3enos)
 
-**We Shall Overcome**  
-**Recorded:** November 2, 1997  
+**We Shall Overcome**
+**Recorded:** November 2, 1997
 **Released:** *Where Have All the Flowers Gone: The Songs of Pete Seeger* (1998), *We Shall Overcome: The Seeger Sessions* (2006), *We Shall Overcome: The Seeger Sessions – American Land Edition* (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
 **Last performed:** January 28, 2014 (Cape Town, South Africa)<br>

@@ -1,5 +1,4 @@
 
-
 The Bruce Springsteen Band headlines at Livingston College in Piscataway, New Jersey.
 
 **1972:**<br>

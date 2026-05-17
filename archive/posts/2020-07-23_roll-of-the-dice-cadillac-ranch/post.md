@@ -81,7 +81,6 @@ And there's probably a message in that, too: time doesn't stop for grief. Pullin
 
 ---
 
-
 Even by critics who do understand the song, "Cadillac Ranch" is often lumped into the same category as "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" and "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" — songs where Bruce's lyrics are belied by the backing track.
 
 But that's an unfair classification for "Cadillac Ranch," because it's hard to imagine the song working in any arrangement other than the one Bruce went with for the studio track. Trust me–Bruce has on rare occasion tried a different arrangement. It usually does not go well, like in this 2005 solo acoustic arrangement inexplicably interchanged with "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)" on the tour.

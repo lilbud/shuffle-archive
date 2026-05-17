@@ -1,5 +1,4 @@
 
-
 On May 28, 2015, the MusiCares Foundation honored Pete Townshend at their annual MAP Fund concert, and Townshend's award was presented by Bruce.
 
 Bruce has cited The Who as a major influence on several occasions, most notably in an entertaining and enlightening conversation with Steve Van Zandt on the Underground Garage in 2011:

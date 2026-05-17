@@ -1,5 +1,4 @@
 
-
 *Audio for 2005 and 2014; video for 2014***New for 2025:**
 
 Bruce and the E Street Band play their second River Tour show in Edinburgh, Scotland, with "" in the opening spot for the first time.
@@ -40,11 +39,7 @@ Bruce shocks fans at the Tower Theater in Philadelphia when he performs "" for t
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-17a.jpg?resize=463%2C1929&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-17b-246x300.jpg?resize=758%2C924)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-17c.jpg?resize=758%2C964&amp;ssl=1)
 
@@ -60,11 +55,7 @@ Bruce joins Mike Ness on stage at The Stone Pony.
 
 **2008:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2008-05-17-300x280.jpg?resize=758%2C708)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/2008-0517-300x239.jpg?resize=758%2C603)
 
@@ -98,11 +89,7 @@ The first night of a jaw-dropping two-night closing stand for the High Hopes Tou
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2014-05-17-300x197.jpg?resize=758%2C498)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Daily_News_Mon__May_19__2014_-scaled.jpg?resize=758%2C1091&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Day_Mon__May_19__2014_-scaled.jpg?resize=758%2C319&amp;ssl=1)
 
@@ -119,7 +106,5 @@ tracks still dominate the set list as the European leg gathers steam, but there'
 continues its theatrical run at the Walter Kerr Theater in New York City. Actress/singer Connie Britton is in attendance tonight.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/05/conniebritto-290x300.jpg?resize=758%2C783)

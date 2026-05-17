@@ -1,5 +1,4 @@
 
-
 I knew going in that this was my last show of the year, and possibly the tour. (I'd have one more chance to catch the Wrecking Ball Tour in Spain the following June, but I didn't know that then.)
 
 Coming off a fun show in Vancouver and run of great shows all year long (including ), all I wanted for Christmas was a loose, celebratory epilogue with a few surprises and at least one song I'd never heard live before.
@@ -34,7 +33,7 @@ Over the course of the tour, Bruce had steered away from the "hard times" theme 
 
 [https://www.youtube.com/embed/k8ZlKq7V9Sg?feature=oembed](https://www.youtube.com/embed/k8ZlKq7V9Sg?feature=oembed)
 
-"" featured the return of the "Lesbians 
+"" featured the return of the "Lesbians
 
 [Darlington County](http://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)❤️ Bruce" crew–they cracked Bruce up , and it was great to see them get called up on stage this time.[the last time he came through Portland](http://estreetshuffle.com/index.php/2018/03/28/where-the-band-was-portland-march-28-2008/)
 

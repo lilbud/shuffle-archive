@@ -1,5 +1,4 @@
 
-
 The Beatles make their third appearance on the Ed Sullivan show, and fourteen-year-old Bruce Springsteen is watching.
 
 **1964:**<br>
@@ -9,8 +8,6 @@ The Beatles make their third appearance on the Ed Sullivan show, and fourteen-ye
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1968-0223-208x300.jpg?resize=758%2C1094)
 
@@ -52,19 +49,13 @@ Twelve-year old Eddie Vedder sees Bruce Springsteen and the E Street Band play C
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-23a.jpg?resize=758%2C569&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-23b.jpg?resize=758%2C1285&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1981-0223-255x300.jpg?resize=758%2C891)
 
 Bruce and Madonna make a surprise appearance on-stage with Prince at The Forum in Inglewood, CA. The three mega-stars play "" together. Some sources say that Bruce stayed on stage for "America," and "" with Prince as well, but those reports are unconfirmed. Brucebase leans towards it because they hear Prince yelling "Bruce" at the beginning of "America," but I'm pretty sure Prince is actually saying "Peace!" (the first word of the song). Regardless, I'm sharing those two tracks here just in case. They are certainly amazing performances regardless of whether Bruce appears on them or not.
 
 **1985:**[Baby, I'm a Star](https://estreetshuffle.com/index.php/2020/08/07/matr-prince-bruce-springsteen-and-madonna-baby-im-a-star/)[Purple Rain](https://estreetshuffle.com/index.php/2021/03/03/cover-me-purple-rain/)
-
-
 
 [https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F282257711&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F282257711&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
 
@@ -97,8 +88,6 @@ At the 45th Grammy Awards in Madison Square Garden, Bruce performs and wins thre
 [https://www.youtube.com/embed/MkyeGVuc2pQ?feature=oembed](https://www.youtube.com/embed/MkyeGVuc2pQ?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2003-02-23a.png?resize=758%2C1109&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2003-02-23b.png?resize=758%2C420&amp;ssl=1)
 

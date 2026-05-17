@@ -1,14 +1,9 @@
 
-
 : Honorary E Streeter Tom Morello is born in New York City.
 
 **1964**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/Tom-Morello.jpg?resize=758%2C505&amp;ssl=1)
-
-
 
 **1969:** Child plays a gig at Pandemonium in Wanamassa, New Jersey.
 
@@ -16,11 +11,7 @@ Bruce plays his first North Carolina show, opening for Chicago at the Cumberland
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1973-0530.jpg?resize=758%2C465&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1973-05-30.jpg?resize=758%2C774&amp;ssl=1)
 
@@ -32,11 +23,7 @@ Southside Johnny's debut album release party at The Stone Pony is broadcast live
 
 <https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1976-05-30a.jpg?resize=758%2C504&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1976-05-30b.jpg?resize=758%2C635&amp;ssl=1)
 
@@ -109,8 +96,6 @@ The Wrecking Ball Tour arrives in Berlin, and Bruce marks the occasion by openin
 Bruce and Patti perform some classic covers with Bobby Bandiera's band at the wedding of Patti's personal assistant in Oakland, New Jersey.
 
 **2015:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/2015-0530.jpg?resize=375%2C462&amp;ssl=1)
 

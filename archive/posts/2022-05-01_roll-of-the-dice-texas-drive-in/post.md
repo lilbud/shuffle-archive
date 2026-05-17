@@ -13,7 +13,6 @@ Bruce started compiling songs for his fourth studio album not long after the rel
 | 8. | Drifter's Barrio |
 | 9. | You're Gonna Cry |
 
-
 We only know of this planned album thanks to Christopher Sanford's book, *Springsteen: Point Blank*, which refers to several of the songs being cut as demos. Additionally, it would seem (according to the fine folks at Springsteenlyrics.com) that the song sequence could be found on the hand-written cover essay Bruce wrote for Southside Johnny's debut album.
 
 And that might have been the end of the story for a rumored track like "Texas Drive In" if Bruce hadn't released a reproduction of his songwriting notebook in the box set for *The Promise: The Darkness on the Edge of Town Story* box set in 2010.

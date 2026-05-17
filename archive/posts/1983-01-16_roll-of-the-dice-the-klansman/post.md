@@ -2,7 +2,7 @@ On March 10, 1983, Bruce sat down in his new home studio in his Los Angeles home
 
 [Watch on Youtube: Bruce Springsteen - The Klansman (Official Audio)](https://www.youtube.com/watch?v=MS01q2NXW_Y)
 
-Unlike many of other acoustic outtakes from this period, "The Klansman" is virtually fully formed. There are a few lyrical rough edges that suggest that Bruce wasn't quite done polishing it, but it's clearly "content complete." It features Bruce in the taut storytelling mode of his recent *Nebraska* album, but it isn't hard to imagine "The Klansman" in an electric arrangement on *Born in the U.S.A.* 
+Unlike many of other acoustic outtakes from this period, "The Klansman" is virtually fully formed. There are a few lyrical rough edges that suggest that Bruce wasn't quite done polishing it, but it's clearly "content complete." It features Bruce in the taut storytelling mode of his recent *Nebraska* album, but it isn't hard to imagine "The Klansman" in an electric arrangement on *Born in the U.S.A.*
 
 The melody is sinister and foreboding (Bruce plays every instrument); we know that something bad is afoot almost before Bruce lays it out in the opening verse:
 
@@ -37,8 +37,8 @@ Rumors still fly about a someday-soon box set treatment for *Born in the U.S.A.*
 
 **Update: December 2025:** We did finally get that official release this year, although it was released on *L.A. Garage Sessions '83* as part of *Tracks II* instead of a *Born in the U.S.A.* box set. "The Klansman" is a lost track that very much deserved to be found.
 
-**The Klansman**  
-**Recorded:** March 10, 1983  
+**The Klansman**
+**Recorded:** March 10, 1983
 **Released:** *L.A. Garage Sessions '83* (2025)<br>
 **Never performed**<br>
 

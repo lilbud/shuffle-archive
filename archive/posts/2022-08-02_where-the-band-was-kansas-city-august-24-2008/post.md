@@ -22,12 +22,11 @@ Soozie's turn wasn't by request, but it wasn't setlisted either, so Bruce must h
 
 [Watch on Youtube: Bruce Springsteen - Kansas City 2008-08-24 - "It's All Over Now"](https://www.youtube.com/watch?v=DAjRXilgsxw)
 
-Some surprises were poignant, like the full band premiere (sort of, anyway: Bruce played solo for much of it before the band gently joined) of "[Devils & Dust.](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)" 
+Some surprises were poignant, like the full band premiere (sort of, anyway: Bruce played solo for much of it before the band gently joined) of "[Devils & Dust.](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)"
 
 [Watch on Youtube: Bruce Springsteen - Kansas City 2008-08-24 - "Devils and Dust"](https://www.youtube.com/watch?v=lxumJ3w2EWE)
 
-…and some were intimate: Bruce's almost-final encore of "[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/)" was quiet, soulful, and a genuine love note to E Street Nation… right up to the surprise pay-off, a perfect segue into "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)."  
-
+…and some were intimate: Bruce's almost-final encore of "[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/)" was quiet, soulful, and a genuine love note to E Street Nation… right up to the surprise pay-off, a perfect segue into "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)."
 
 [Watch on Youtube: Bruce Springsteen - Kansas City 2008-08-24 - "Save the Last Dance/DiTD"](https://www.youtube.com/watch?v=2i9bNACWIE0)
 

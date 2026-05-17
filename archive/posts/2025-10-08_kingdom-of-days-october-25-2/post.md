@@ -1,5 +1,4 @@
 
-
 *New entry for 1983, 1993, and 2024; audio for 2006 and 2012***New for 2025:**
 
 Steel Mill performs at the Richmond Arena.
@@ -14,19 +13,13 @@ Bruce and the E Street band play two shows at Dartmouth College.
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1974-1026-172x300.jpg?resize=758%2C1322)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1974-10-25-184x300.png?resize=758%2C1236)
 
 Bruce plays his very first show in Oregon, to a small crowd at Portland's Paramount Theater.
 
 **1975:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/48716655231_77b34c6fe1_o-300x285.jpg?resize=758%2C723)
 
@@ -46,8 +39,6 @@ The River Tour heads south down the west coast, stopping for a night at Portland
 
 **1980:** [On Top of Old Smoky](http://estreetshuffle.com/index.php/2019/08/24/cover-me-on-top-of-old-smoky/)
 
-
-
 [https://videopress.com/embed/tfj2O84c?hd=0&amp;cover=1](https://videopress.com/embed/tfj2O84c?hd=0&amp;cover=1)
 
 [https://www.youtube.com/embed/rxYcH2Y2Wo8?feature=oembed](https://www.youtube.com/embed/rxYcH2Y2Wo8?feature=oembed)
@@ -58,7 +49,7 @@ The River Tour heads south down the west coast, stopping for a night at Portland
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Oregon_Journal_1980_10_27_10.jpg?resize=758%2C471&amp;ssl=1)
 
-Bruce and the E Street Band start work on a new song, "No Surrender" at a recording session for 
+Bruce and the E Street Band start work on a new song, "No Surrender" at a recording session for
 
 **1983:** *Born in the U.S.A.*
 
@@ -70,15 +61,9 @@ Bruce and the E Street Band kick off a seven-night Born in the U.S.A. Tour stand
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-25a-300x157.png?resize=758%2C397)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1984-10-25b.png?resize=758%2C1439&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-25c-222x300.png?resize=758%2C1024)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/47083179991_ddd2099192_o-300x184.jpg?resize=758%2C465)
 
@@ -106,15 +91,9 @@ Bruce and the reunited E Street Band open their three-night stand at the Oakland
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1999-10-25a.png?resize=758%2C1568&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-25b-300x207.png?resize=758%2C523)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-25c-300x225.png?resize=758%2C568)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-25d-300x218.png?resize=758%2C551)
 
@@ -166,8 +145,6 @@ Bruce takes his mother to see Ringo Starr & His All-Starr Band perform at the Ne
 
 **2015:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Daily_Record_2015_10_30_Page_X11.jpg?w=758&amp;ssl=1)
 
 Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.
@@ -177,8 +154,6 @@ Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater 
 Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: President Bill Clinton and Secretary Hillary Clinton.
 
 **2018:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-25-300x229.jpg?resize=758%2C578)
 
@@ -202,15 +177,13 @@ Bruce makes a guest appearance on in support of his new book with former Preside
 
 [https://www.youtube.com/embed/5-KlomDM7t4?feature=oembed](https://www.youtube.com/embed/5-KlomDM7t4?feature=oembed)
 
-Here's a special performance from as he sings "The River" on The Late Show! 
+Here's a special performance from as he sings "The River" on The Late Show!
 
 [@springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw)[#LSSC](https://twitter.com/hashtag/LSSC?src=hash&ref_src=twsrc%5Etfw)[pic.twitter.com/aj2mhJVh0g](https://t.co/aj2mhJVh0g)
 
 — The Late Show (@colbertlateshow)
 
 [October 26, 2021](https://twitter.com/colbertlateshow/status/1452857149961367560?ref_src=twsrc%5Etfw)
-
-
 
 Earlier in the day, NPR airs their interview with Bruce and the president.
 

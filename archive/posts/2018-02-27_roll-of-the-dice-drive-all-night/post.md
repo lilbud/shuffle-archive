@@ -10,7 +10,6 @@ She's perennially mystified by this song:
 - What man can reliably pick out a pair of shoes to fit his partner's taste?
 - Is this really the most romantic gesture he can think of?
 
-
 I tell her she's listening to the wrong part of the song: The lyrics are just the accompaniment. The real declaration of love is that saxophone solo.
 
 [Watch on Youtube: Bruce Springsteen - Drive All Night](https://www.youtube.com/watch?v=ElVcxC89lqk)

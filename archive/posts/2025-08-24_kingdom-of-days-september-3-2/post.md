@@ -1,12 +1,9 @@
 
-
 *Video for 1999 and 2023; new entry for 2022***New for 2025:**
 
 The Bruce Springsteen Band kicks off a residency at the Student Prince in Asbury Park that will last the rest of the calendar year.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-0903-300x170.jpg?resize=742%2C420)
 
@@ -26,19 +23,11 @@ Bruce appears in and on the latest issue of .
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/People1-228x300.jpg?resize=758%2C997)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/People2.jpg?resize=758%2C1088&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/People3-228x300.jpg?resize=758%2C997)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/People4-221x300.jpg?resize=758%2C1029)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/People5-229x300.jpg?resize=758%2C993)
 
@@ -49,8 +38,6 @@ Bruce's World Tour 1992 visits Tinley Park, Illinois for the second of two night
 [https://videopress.com/embed/JFEIp4vi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/JFEIp4vi?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-09-03a-270x300.jpg?resize=758%2C842)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-09-03b-300x119.jpg?resize=758%2C301)
 
@@ -96,15 +83,11 @@ Night Two at Philadelphia's Citizens Bank Park was a Labor Day special, opening 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2012-09-03a-257x300.jpg?resize=758%2C885)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2012-09-03b-156x300.jpg?resize=758%2C1457)
 
 A scheduled River Tour show in Virginia Beach is postponed for two days due to Tropical Storm Hermine.
 
 **2016:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/2016-0903-300x216.jpg?resize=758%2C545)
 

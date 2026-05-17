@@ -73,7 +73,7 @@ Regardless of whether "Happy" ever receives a live outing, though, it's nice to 
 I suspect Bruce wrote "Happy" more for himself and his family than for his audience, and I'm fine evaluating it in that light. Everyone should get to feel that kind of contentment at least once.
 
 **Happy**<br>
-**Recorded:** January 18, 1992  
+**Recorded:** January 18, 1992
 **Released:** *Tracks* (1998)<br>
 **Never performed**<br>
 

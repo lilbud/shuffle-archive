@@ -89,7 +89,6 @@ We never do get any sense of our narrator's age–he could be fifty, thirty, or 
 
 ---
 
-
 With over 600 performances to date, "Growin' Up" remains one of Bruce's most-performed songs. (Although it certainly got a big boost in that regard from *Springsteen on Broadway*).
 
 [Watch on Youtube: Bruce Springsteen - Growin' Up (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=4D1smUCqEEw)
@@ -113,7 +112,7 @@ In any incarnation, "Growin' Up" remains a fan favorite, forever fresh for its a
 Don't forget to pull up.
 
 **Growin' Up**<br>
-Recorded: J**une 27, 1972  
+Recorded: J**une 27, 1972
 **Released:** *Greetings from Asbury Park, N.J.* (1972), *The Essential Bruce Springsteen* (2015), *Chapter and Verse* (2016)<br>
 **First performed:** May 2, 1972 (New York City, NY)<br>
 **Last performed:** June 24, 2025 (San Sebastián, Spain)<br>

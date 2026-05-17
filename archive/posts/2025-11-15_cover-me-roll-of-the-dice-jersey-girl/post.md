@@ -51,7 +51,6 @@ But the official release wasn't the most remarkable "Jersey Girl" performance of
 
 > *There's a guy that's written a lot of great songs, like "Ol' 55," "Heart of Saturday Night…" and this song. When I heard it, I remember it was one of those songs I said, "Well… I wish I'd wrote that." It's a song called "Jersey Girl" and Tom Waits is gonna sing it with us.*<br>
 
-
 And then, as promised, Tom Waits joined Bruce on stage for their one and only public duet of "Jersey Girl." (They'd perform it once more in 1990 at a private reception.) Take a listen below–and notice how it's an unusual, one-off hybrid version: Tom sings Bruce's sanitized first verse but adds his "And I call your name; I can't sleep at night" flourish that Bruce dropped, while Bruce sings the verse he added.
 
 [Watch on Youtube: Tom and Bruce - Jersey Girl - Full Version - 1981](https://www.youtube.com/watch?v=1MXX0Y81eDI)

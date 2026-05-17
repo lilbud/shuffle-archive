@@ -1,5 +1,4 @@
 
-
 At the first night of the Rock and Roll Hall of Fame 25th Anniversary Concerts, on a night that was basically all highlights, one of the best was the team-up between Bruce Springsteen and one of his great songwriting influences.
 
 By way of introduction, Bruce called John Fogerty "the Hank Williams of our generation," but everyone would have known who he was regardless, just as soon as Fogerty launched into that riff.

@@ -114,7 +114,6 @@ And all through the years, the coda remains true, with Bruce pleading:
 
 ---
 
-
 Bruce performed "Frankie" so frequently in April 1976 that fans who witnessed it must have been certain it was destined for his next album. "Frankie" is lush, long, romantic, and has that "epic" sweep that's hard to define but which clearly includes songs like "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)," "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)," "Jungleland," and "Incident on 57th Street" in scope and grandeur.
 
 But it wasn't to be.
@@ -132,7 +131,6 @@ In the two decades since, "Frankie" has come out only a baker's dozen times (of 
 Magic. Just magic.
 
 ---
-
 
 Bonus #1: "Frankie" came out a few times on Bruce's 2005 solo acoustic tour. I wouldn't count any of them among Bruce's best performances, but they're unusual enough to warrant watching. Here's his performance from Seattle, August 11, 2005.
 

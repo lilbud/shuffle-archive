@@ -1,5 +1,4 @@
 
-
 Bruce meets Nils Lofgren for the first time at The Matrix in San Francisco, where both Steel Mill (Bruce's band) and Grin (Nils' band) are playing.
 
 **1970:**<br>

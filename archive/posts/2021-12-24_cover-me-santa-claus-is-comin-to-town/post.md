@@ -62,8 +62,8 @@ These days, Santa is likely to turn up any time of year, if you ask nicely. (Cre
 
 So on this Christmas Eve, whether you celebrate the holiday or not: here's a wish for the merriest of days, and many more E Street visits from Santa to come.
 
-**Santa Claus Is Comin' to Town  
-Never recorded  
+**Santa Claus Is Comin' to Town
+Never recorded
 Released (Live):** *In Harmony 2* (1981)
 **First performed:** December 20, 1973 (Brsitol, RI)**Last performed:** December 14, 2016 (New York City, NY)<br>
 

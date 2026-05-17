@@ -1,5 +1,4 @@
 
-
 *New entry for 1978, 1979, 1996, and 2008***New for 2025:**
 
 At the Record Plant in New York City, Bruce and his studio team complete the mix for ""
@@ -20,15 +19,11 @@ Bruce postpones a show in Edinburgh to recover from the previous leg of the Rive
 
 **1981:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1006)
 
 Detroit radio station WRIF-FM airs a bootleg of last month's Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can't envision a day when bootlegs are commonly played on the radio.
 
 **1988:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-30.jpg?resize=645%2C1276&amp;ssl=1)
 
@@ -43,8 +38,6 @@ Bruce and his new touring band rehearse in Glasgow before kicking off World Tour
 [https://videopress.com/embed/QSdKEveK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QSdKEveK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30a.png?resize=758%2C984&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30b.png?resize=758%2C1506&amp;ssl=1)
 

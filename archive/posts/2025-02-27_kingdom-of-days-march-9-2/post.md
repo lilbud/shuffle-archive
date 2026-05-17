@@ -1,12 +1,9 @@
 
-
 *Video for 2012***New for 2025:**
 
 Bruce's scheduled gig opening for Paul Butterfield in Phoenix is cancelled due to low ticket sales.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1973-03-09.png?resize=758%2C936&amp;ssl=1)
 
@@ -23,8 +20,6 @@ That night, the boys play two shows at Liberty Hall.
 Violinist Suki Lahav makes her last appearance with Bruce and the E Street Band when the Wild & Innocent Tour wraps up at DAR Constitution Hall in Washington, DC.
 
 **1975:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1975-03-09-159x300.jpg?resize=758%2C1430)
 
@@ -58,11 +53,7 @@ The Reunion Tour's Florida swing continues with a show at the National Car Renta
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09a-300x233.jpg?resize=758%2C589)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09b-300x300.jpg?resize=758%2C758)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09c-201x300.jpg?resize=758%2C1131)
 
@@ -97,8 +88,6 @@ Bruce and the E Street Band play a historic show at the Apollo Theater in New Yo
 [https://www.youtube.com/embed/iyIfdt9O50g?feature=oembed](https://www.youtube.com/embed/iyIfdt9O50g?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-09a-300x117.jpg?resize=758%2C296)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2012-03-09b.jpg?resize=558%2C1641&amp;ssl=1)
 

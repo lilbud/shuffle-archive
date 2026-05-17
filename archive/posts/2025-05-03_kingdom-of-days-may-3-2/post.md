@@ -10,8 +10,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/54i5lVp4)
 
-
-
 **1976:** Bruce plays his first-ever show in Arkansas, at the Robinson Auditorium in Little Rock.
 
 **1981:** The original River Tour stops for a night at the Scandinavium in Gothenburg, Sweden. This is Bruce's first show in Sweden since 1975, so local fans are treated to their first performances of "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)," "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" and other [*Darkness*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)tracks along with cuts from *The River*.

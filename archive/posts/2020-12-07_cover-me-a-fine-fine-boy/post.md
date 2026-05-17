@@ -1,5 +1,4 @@
 
-
 When "A Fine Fine Boy" was released in 1963, it became Darlene Love's ninth single to crack the Hot 100, but only the third under her own name. It never notched any higher than #53, but that was high enough to catch Bruce's attention.
 
 [https://www.youtube.com/embed/QWHoI3W8pns?feature=oembed](https://www.youtube.com/embed/QWHoI3W8pns?feature=oembed)

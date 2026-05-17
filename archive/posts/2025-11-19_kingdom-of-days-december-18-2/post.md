@@ -1,20 +1,15 @@
 
-
 *No updates***New for 2025:**
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1971-1218-300x162.jpg?resize=758%2C410)
 
 Bruce and his band with no name play their second of a three-night stand at the Student Prince in Asbury Park.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1973-12-18.jpg?resize=758%2C895)
 
@@ -32,11 +27,7 @@ Bruce joins local musicians at the Stone Pony and plays "" for local ill and dis
 
 **1988:**[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1988-12-18a.png?resize=758%2C604&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1988-12-18b.png?resize=758%2C659&amp;ssl=1)
 
@@ -47,8 +38,6 @@ Bruce holds his second of two inaugural Asbury Park holiday shows at Convention 
 [https://videopress.com/embed/8HQV6Lmm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8HQV6Lmm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2000-12-18a.png?resize=513%2C1710&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2000-12-18b.png?resize=758%2C303&amp;ssl=1)
 

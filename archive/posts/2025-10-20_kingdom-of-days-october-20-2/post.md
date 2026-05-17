@@ -94,10 +94,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/V4mnAWFo)
 
-
-
 [Watch Video Highlight](https://videopress.com/embed/UqkgcR2k)
-
-
 
 [Watch Video Highlight](https://videopress.com/embed/7uzJH4Vh)

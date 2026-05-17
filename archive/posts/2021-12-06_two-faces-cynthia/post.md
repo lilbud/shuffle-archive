@@ -2,7 +2,7 @@
 
 ****Katy Crane returns today with her third Two Faces entry. This one's a little bit different, though, and I'll let Katy explain why.*
 
-Author's note: This is going to be an unusual post: one where Ken and I agree completely about what's happening in the song. Usually, I write counterpoints to Ken's posts, which means I write about songs where Ken and I have radically different takes: about the tone of the song, what's happening in it, whether it's good or not. The problem–and this is a funny problem to have–is that Ken and I agree a lot. And that doesn't leave me many songs to write about. 
+Author's note: This is going to be an unusual post: one where Ken and I agree completely about what's happening in the song. Usually, I write counterpoints to Ken's posts, which means I write about songs where Ken and I have radically different takes: about the tone of the song, what's happening in it, whether it's good or not. The problem–and this is a funny problem to have–is that Ken and I agree a lot. And that doesn't leave me many songs to write about.
 
 Ken has already made my central point about "Cynthia:" that it's a more enlightened version of Roy Orbison's "Oh, Pretty Woman." But I think there's more to be said about just how Springsteen accomplishes this. So this will be a companion post rather than a counterpoint, a close reading to sit alongside Ken's more comprehensive overview.***
 

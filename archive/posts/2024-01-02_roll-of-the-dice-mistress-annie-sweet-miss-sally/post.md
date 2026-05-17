@@ -1,5 +1,4 @@
 
-
 Before Laurel and Yanni, there was Sally and Annie.
 
 Back in the Bruce Springsteen Band era (1971-72), Bruce and the boys would play a ten-minute blues jam called "Sweet Miss Sally."
@@ -29,4 +28,3 @@ January 21, 1972 (Neptune, NJ)
 **Last performed:**<br>
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-

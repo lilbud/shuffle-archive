@@ -45,5 +45,3 @@ Prior to the pandemic, Escovedo's career was back on track, but it's been a long
 **Always a Friend**<br>
 **Released:** *Magic Tour Highlights* (2008)**First performed:** April 14, 2008 (Houston, TX)
 **Last performed:** March 14, 2012 (Austin, TX)<br>
-
-

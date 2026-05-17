@@ -1,12 +1,9 @@
 
-
 *New entry for 1977; article for 1978; review for 2007***New for 2025:**
 
 Bruce and the E Street Band play their second of two nights at the Tower Theater in Upper Darby, Pennsylvania. We can forgive the reviewer for mis-identifying "Jungle Man," since the song is still almost a year from being released.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/47806529712_940a5cefb4_o-296x300.jpg?resize=758%2C768)
 
@@ -38,8 +35,6 @@ Bruce and the E Street Band play their sixth of seven nights at the L.A. Memoria
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-11-02a-245x300.png?resize=758%2C928)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-11-02b-241x300.png?resize=758%2C944)
 
 Asked to contribute a song for an upcoming Pete Seeger tribute album, Bruce contacts a group of musicians he'd recently met (members of The Gotham Playboys, who had played private parties at his house) and some additional friends, and he assembles the ensemble at his home studio in Rumson. The recording session that ensues will become known as the first "Seeger Session," and six songs are recorded: "," "," "," ", "I Come and Stand at Every Door," and "Pretty Boy Floyd." Those last two are still unreleased to this day.
@@ -58,11 +53,7 @@ Bruce makes his by now expected appearance at the third annual Light of Day bene
 
 <https://estreetshuffle.com/wp-content/uploads/2023/11/2002-11-02-Bonds__Merged.mp3>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2002-11-02-231x300.png?resize=758%2C984)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/45557939575_dace1c42ee_o-300x247.jpg?resize=758%2C624)
 
@@ -106,15 +97,11 @@ Bruce and the E Street Band headline a national telethon for Hurricane Sandy rel
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2012-11-02b-300x145.png?resize=758%2C367)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2012-11-02a-300x179.png?resize=758%2C452)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: NBC Today Show anchors Hoda Kotb and Maria Shriver.
 
 **2017:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2017-11-02-300x298.png?resize=758%2C753)
 

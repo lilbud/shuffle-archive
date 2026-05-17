@@ -1,5 +1,4 @@
 
-
 In the golden age of pop music that was the 1980s, a triumvirate of mega-stars reigned over the charts: Bruce Springsteen, Madonna, and Prince.
 
 The three icons seemed to perpetually jostle for position in the Top 20, with Bruce notching eleven hits throughout the decade, Prince fourteen, and Madonna a whopping seventeen. (Prince famously denied Bruce his one chance at a number one hit when "When Doves Cry" stubbornly clung to the top rung despite a fierce challenge from "Dancing in the Dark.")

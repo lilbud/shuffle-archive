@@ -1,5 +1,4 @@
 
-
 For a brief shining moment, it felt like the E Street Band had reunited.
 
 Toward the tail end of Bruce's 1996 solo acoustic tour, Bruce played three shows at Asbury Park's Paramount Theatre. While the shows were acoustic as advertised, the solo part… not so much.

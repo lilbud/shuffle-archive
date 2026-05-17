@@ -1,5 +1,4 @@
 
-
 *Audio for 2008; video for 2013 and 2023***New for 2025:**
 
 Bruce and his band play two shows at their third night at Gertie's in Dallas.
@@ -10,15 +9,11 @@ Bruce and his band play two shows at their third night at Gertie's in Dallas.
 
 **1977:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1977-0320.jpg?resize=758%2C1944&amp;ssl=1)
 
 A scheduled show in London is postponed due to Bruce's exhaustion from the first two legs of the River Tour.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1002)
 
@@ -46,15 +41,9 @@ Joe Grushecky guest-stars for a final encore of "" as the Tunnel of Love Express
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-20a-scaled.jpg?resize=758%2C1325&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-20b.jpg?resize=758%2C702&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-20.jpg?resize=758%2C1322&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1988-0320-129x300.jpg?resize=676%2C1572)
 

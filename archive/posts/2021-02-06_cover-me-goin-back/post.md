@@ -41,5 +41,3 @@ Enjoy this rare footage of a very young Nils Lofgren performing Carole King's "G
 **Goin' Back**<br>
 **First performed:** October 16, 1975 (West Hollywood, CA)<br>
 **Last performed:** October 19, 1975 (West Hollywood, CA)<br>
-
-

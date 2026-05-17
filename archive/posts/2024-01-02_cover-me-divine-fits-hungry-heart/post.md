@@ -1,5 +1,4 @@
 
-
 It was fun while it lasted.
 
 Divine Fits formed back in 2011 as an indie super-group of sorts. Led by Britt Daniel of Spoon and Dan Boeckner of Wolf Parade, Divine Fits was momentarily all the buzz, but in 2013 they disbanded to return to their regular gigs.

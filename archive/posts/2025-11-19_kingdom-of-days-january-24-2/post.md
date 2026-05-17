@@ -1,5 +1,4 @@
 
-
 Bruce performs in Chicago for the first time, beginning a five-night stint at The Quiet Knight, opening for The Persuasions.
 
 **1973:**<br>
@@ -34,19 +33,11 @@ Bruce announces his first new albums–two of them!–in five years. and will be
 
 **1992:** *Human Touch**Lucky Town*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1992-01-24a.jpg?resize=758%2C222&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/Springsteen-Lucky-Human-Buy-Sheets_0003.jpg?resize=758%2C980&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/Springsteen-Lucky-Human-Buy-Sheets_0006.jpg?resize=758%2C980&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/Springsteen-Lucky-Human-Buy-Sheets_0007.jpg?resize=758%2C981&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/Springsteen-Lucky-Human-Buy-Sheets_0008.jpg?resize=758%2C980&amp;ssl=1)
 
@@ -54,15 +45,11 @@ Bruce and the band rehearse for the Tour at the Bellville Velodrome in Cape Town
 
 **2014:** *High Hopes*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/01/41797036554_ee3b83f054_o-300x300.jpg?resize=758%2C758)
 
 : A rare show postponement due to Winter Storm Jonas. This show is rescheduled to March 28th.
 
 **2016**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/01/26036266794_68f79bc236_o-300x300.jpg?resize=758%2C757)
 
@@ -70,11 +57,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Actor 
 
 **2018:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/01/39181624034_0a3eb41c16-300x256.jpg?resize=758%2C645)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Clarion_Ledger_2014_01_25_B7-scaled.jpg?resize=758%2C1002&amp;ssl=1)
 

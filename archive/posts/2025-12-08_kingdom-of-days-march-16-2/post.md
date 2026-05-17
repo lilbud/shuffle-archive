@@ -1,5 +1,4 @@
 
-
 Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, their fifth of seven straight nights.
 
 **1973:**<br>
@@ -7,8 +6,6 @@ Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, th
 Bruce and the band play their second of two nights at Armadillo World Headquarters in Austin.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/47802963802_7161fc584d_o.jpg?resize=635%2C1500&amp;ssl=1)
 

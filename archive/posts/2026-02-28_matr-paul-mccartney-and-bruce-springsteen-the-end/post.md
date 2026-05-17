@@ -29,8 +29,6 @@ Bruce easily held his own against that formidable line-up, and in the clip below
 
 [Watch Video Highlight](https://videopress.com/embed/0ABz94N6?at=216&hd=0&cover=1)
 
-
-
 For a kid who grew up idolizing The Beatles, the chance to support McCartney on stage like that even once would be a bucket list dream.
 
 A decade later, however, Springsteen had the chance to do it again. Twice.

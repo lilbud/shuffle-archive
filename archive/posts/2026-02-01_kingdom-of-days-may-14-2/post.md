@@ -1,14 +1,9 @@
 
-
 Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under that name, at Asbury Park's Sunshine In.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1971-05-14.jpg?resize=758%2C767&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1971-0514.jpg?resize=758%2C484&amp;ssl=1)
 
@@ -34,19 +29,15 @@ Those poor ticket holders for Bruce's second River Tour show in Manchester, Engl
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1981-0514.jpg?resize=758%2C539&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Daily_Mail_Thu__May_21__1981_-scaled.jpg?resize=758%2C197&amp;ssl=1)
 
-Bruce and the E Street Band are in the studio at the Power Station in New York City, working on what will become 
+Bruce and the E Street Band are in the studio at the Power Station in New York City, working on what will become
 
 **1982:** *Born in the U.S.A.*
 
 Bruce and Julianne hold their wedding reception, a day after their wedding.
 
 **1985:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1985-05-14.jpg?resize=542%2C959&amp;ssl=1)
 

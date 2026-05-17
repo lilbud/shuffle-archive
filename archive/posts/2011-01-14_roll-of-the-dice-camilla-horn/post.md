@@ -31,7 +31,7 @@ Bruce wrote and recorded a demo of "Camilla Horn" just before he recorded his de
 
 **Camilla Horn**<br>
 **Recorded** April – May, 1972<br>
-**Never released**  
+**Never released**
 **Never performed**<br>
 
 © June 7, 2022

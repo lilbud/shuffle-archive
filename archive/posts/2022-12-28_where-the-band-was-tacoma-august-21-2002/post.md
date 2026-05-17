@@ -1,5 +1,4 @@
 
-
 So this was the one: the first show where I thought at the end of it, "I need to see just one more…"
 
 Until this point, I'd only ever seen Bruce when he came through my town. The thought of travelling to see a show had never even occurred to me. But I'd been living in the Pacific Northwest for seven years by this time, and the shows just weren't the same out here.

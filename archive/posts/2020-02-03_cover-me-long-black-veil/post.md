@@ -23,5 +23,3 @@ Here's Bruce's final performance of "Long Black Veil" to date, live in Rome late
 **Long Black Veil**<br>
 **First performed:** April 26, 2006 (Asbury Park, NJ)<br>
 **Last performed:** October 10, 2006 (Rome, Italy)<br>
-
-

@@ -1,5 +1,4 @@
 
-
 Rock and roll singer/songwriter Ritchie Valens' life and career were both cut tragically short: he died at the age of seventeen not even a year into his recording career, in a plane crash that also took the lives of Buddy Holly and J.P. Richardson.
 
 Those few months were productive, though–Valens charted three bona fide and enduring hits in the second half of 1958, "Donna," "La Bamba," and his very first single, "Come On, Let's Go."

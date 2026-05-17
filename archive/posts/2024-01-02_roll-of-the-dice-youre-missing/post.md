@@ -86,7 +86,6 @@ Grief takes us down a long, lonely tunnel, but somewhere at the far, far end of 
 
 ---
 
-
 Bruce performed "You're Missing" over 100 times throughout the Rising Tour, in an arrangement very close to that of the album. Bruce tried his best nightly to give the song the quiet tenderness it deserved, but in large arenas, that was a tough feat to pull off.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - You're Missing (Live In Barcelona)](https://www.youtube.com/watch?v=xsrz3mPq7pM)
@@ -104,7 +103,7 @@ In the 17 years since the end of the Rising Tour, "You're Missing" has been most
 Other than that special one-off, Bruce seems to have retired "You're Missing" from rotation, and that's okay. It's a song that comes out when needed, when a community is reeling or reminded of a terrible tragedy. We can only hope that such occasions never come again.
 
 **You're Missing**<br>
-**Recorded:** February-March, 2002  
+**Recorded:** February-March, 2002
 **Released:** *The Rising* (2002)<br>
 **First performed:** July 25, 2002 (Asbury Park, NJ)<br>
 **Last performed:** September 11, 2016 (Pittsburgh, PA)<br>

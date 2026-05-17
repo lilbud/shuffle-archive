@@ -76,7 +76,6 @@ We realize now, at the end, that Bruce isn't just shunning the symbol of his sha
 
 ---
 
-
 "Used Cars" made its live debut at the opening night of the Born in the U.S.A. Tour, and Bruce performed it regularly (if not continually) throughout the entire 1984-1985 tour. Here's his very first performance from that tour-opening night in St. Paul, on June 29, 1984.
 
 [Watch Video Highlight](https://videopress.com/embed/BSKhRW5l)
@@ -100,7 +99,7 @@ Bruce played "Used Cars" only once more in the years since. It was another acous
 As I wrote at the top, there's a lot of information conveyed in "Used Cars," and even more emotion–and almost all of it lies beneath the surface. To this day it remains one of Bruce's most nuanced and powerfully layered songs.
 
 **Used Cars**<br>
-**Recorded:** December 1981 – January 1982  
+**Recorded:** December 1981 – January 1982
 **Released:** *Nebraska* (1982)
 **First performed:** June 29, 1984 (St. Paul, MN)<br>
 **Last performed:** October 6, 2008 (Ypsilanti, MI)<br>

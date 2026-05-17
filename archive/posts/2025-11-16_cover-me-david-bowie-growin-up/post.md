@@ -1,5 +1,4 @@
 
-
 In the summer of 1973, mere months after Bruce first recorded it himself, David Bowie recorded a cover of "" for his forthcoming album
 
 [Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)*Pin Ups**.*

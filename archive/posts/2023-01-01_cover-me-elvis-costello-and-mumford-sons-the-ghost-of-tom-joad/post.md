@@ -1,5 +1,4 @@
 
-
 This is one of my all-time favorite covers of a Springsteen song. Even if you find yourself dismissing 95% of the cover attempts out there, take a few minutes to listen to this one. Not only is it a wonderful, spontaneous performance, but it's gorgeously captured at one my absolute favorite outdoor venue.
 
 [https://www.youtube.com/embed/CrkS1CoQ8hc?feature=oembed](https://www.youtube.com/embed/CrkS1CoQ8hc?feature=oembed)

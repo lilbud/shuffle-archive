@@ -11,5 +11,3 @@ On the band's third studio album, *What a Crying Shame* (what a great name for a
 The song peaked at #49 on the Billboard country chart and has been a concert favorite for the band ever since. Here's a live performance from The Mavericks' 2004 concert video, *Live in Austin.*
 
 [Watch on Youtube: The Mavericks - Live In Austin - All That Heaven Will Allow](https://www.youtube.com/watch?v=EemYYNQDalU)
-
-

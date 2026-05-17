@@ -1,16 +1,11 @@
 
-
 *New entry for 1974 and 2024***New for 2025:**
 
 Steel Mill headlines at Monmouth College, where Danny Federici, still on the lam after the infamous swim club show, makes an appearance and turns himself in shortly thereafter.
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1970-10-17a.png?resize=758%2C1395&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1970-10-17b-116x300.png?resize=758%2C1960)
 
@@ -18,15 +13,11 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-1017-185x300.jpg?resize=758%2C1229)
 
 Bruce and the E Street Band play their third of five nights at Oliver's in Boston.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1973-1016-240x300.jpg?resize=758%2C947)
 
@@ -41,8 +32,6 @@ Bruce and the E Street Band play two shows at the Roxy in West Hollywood, the fi
 [https://www.youtube.com/embed/Lg01I4qSQf4?feature=oembed](https://www.youtube.com/embed/Lg01I4qSQf4?feature=oembed)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/47753636752_5d704a5bfc_o-300x249.jpg?resize=758%2C629)
 
@@ -64,15 +53,9 @@ Photographer David Gahr captures Bruce and the E Street Band on film during a da
 
 **1979:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1979-10-17a-300x199.jpg?resize=758%2C503)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1979-10-17b-300x198.jpg?resize=758%2C500)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1979-10-17c-300x200.jpg?resize=758%2C505)
 
@@ -92,11 +75,7 @@ Bruce and the E Street Band play their first of two Born in the U.S.A. Tour show
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17d-243x300.png?resize=758%2C936)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17a-290x300.png?resize=758%2C784)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17b-300x300.png?resize=758%2C758)
 
@@ -124,11 +103,7 @@ Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushec
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17a-276x300.png?resize=758%2C824)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17b-300x205.png?resize=758%2C518)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17c-300x206.png?resize=758%2C520)
 
@@ -146,15 +121,9 @@ Bruce and the reunited E Street Band kick off a four-night stand in Los Angeles 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-17a-270x300.png?resize=758%2C842)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-17b-190x300.png?resize=758%2C1197)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-17c-95x300.png?resize=758%2C2394)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1999-1017-181x300.jpg?resize=758%2C1258)
 
@@ -193,8 +162,6 @@ Bruce speaks his mind on the U.S. presidential election and other topics at a pr
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gayle King and Oprah Winfrey.
 
 **2017:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2017-10-17-300x298.png?resize=758%2C753)
 

@@ -1,5 +1,4 @@
 
-
 I've always thought "" cried out for an acoustic arrangement, but surprisingly, Bruce has never tried it (in public, at least).
 
 [Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)

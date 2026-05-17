@@ -1,5 +1,4 @@
 
-
 : Bruce's recording career is born with the release of his first album, It garners some critical praise but sells a mere 25,000 copies in its first run, eventually rising to #60 on the charts.
 
 **1973**[.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J*
@@ -8,15 +7,9 @@
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/01/1973-01-05a.jpg?resize=758%2C556&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/01/1973-01-05b.jpg?resize=758%2C556&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Philadelphia_Inquirer_1973_01_21_Page_90-1-1.jpg?resize=758%2C870&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1973-01-05b.png?resize=758%2C1148&amp;ssl=1)
 
@@ -24,23 +17,15 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 (Photo credit: Phil Ceccola)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1973-0105-a.jpg?resize=496%2C334&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1973-0105-b.jpg?resize=464%2C578&amp;ssl=1)
 
-: Bruce plays the second of a three-night stand at Joe's Place in Cambridge, Massachusetts. 
+: Bruce plays the second of a three-night stand at Joe's Place in Cambridge, Massachusetts.
 
 **1974**(Photo credit: Jeff Albertson)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/1974-01-05-300x192.jpg?resize=758%2C485)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1975-0105-b.jpg?resize=472%2C326&amp;ssl=1)
 
@@ -52,11 +37,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 **1982**[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)
 
-
-
 ![1994-0105-a](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1994-0105-a-1.jpg?resize=758%2C758)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/01/The_Courier_News_Sat__Jan_23__1982_.jpg?resize=758%2C557&amp;ssl=1)
 
@@ -72,15 +53,13 @@ Bruce's youngest child, Sam Ryan Springsteen, is born in Los Angeles.
 
 **1994:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Quad_City_Times_1994_01_08_2-scaled.jpg?resize=758%2C1111&amp;ssl=1)
 
 : Bruce calls each member of the E Street Band for a brief reunion. The band disbanded more than five years prior, but Bruce reassembles them to record some new songs for his upcoming compilation. Clarence gets on a plane so quickly that he reportedly no-shows at his own party.
 
 **1995***Greatest Hits*
 
-Bruce releases a video commemorating the 50th anniversary of 
+Bruce releases a video commemorating the 50th anniversary of
 
 **2023:** *Greetings From Asbury Park, N.J.*
 

@@ -1,16 +1,11 @@
 
-
 *New entry for 1977***New for 2025:**
 
 Bruce and his band play their second of three consecutive nights at Fat City in Seaside Heights, New Jersey.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1973-06-23-300x95.jpg?resize=758%2C243)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1973-0623-221x300.jpg?resize=758%2C1031)
 
@@ -25,8 +20,6 @@ Bruce and the E Street Band work on "" at Atlantic Studios in New York City.
 In town a day early for his Darkness Tour stop, Bruce drops by the Paramount Theater in Portland, Oregon to catch Warren Zevon's performance. He joins Zevon for "I'll Sleep When I'm Dead," the final encore of the evening.
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/1978-06-23-scaled.jpg?resize=758%2C300&amp;ssl=1)
 

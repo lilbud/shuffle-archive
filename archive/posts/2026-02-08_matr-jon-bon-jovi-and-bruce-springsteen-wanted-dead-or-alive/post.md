@@ -19,5 +19,3 @@ To date, however, this remains the only time Bruce has performed "Wanted Dead or
 **Last performed:** January 31, 1998 (Red Bank, NJ)<br>
 
 © March 3, 2019
-
-

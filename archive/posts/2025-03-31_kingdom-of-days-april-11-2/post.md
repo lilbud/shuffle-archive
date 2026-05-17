@@ -1,12 +1,9 @@
 
-
 *New entry for 1978, 1979, and 1980; video for 2023***New for 2025:**
 
 Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long residency.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1969-0404-159x300.jpg?resize=758%2C1430)
 
@@ -14,11 +11,7 @@ Steel Mill holds an invite-only rehearsal show for the local press.
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/48062448203_aacecf6b79_o-187x300.jpg?resize=758%2C1216)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1970-0411.jpg?resize=732%2C528)
 
@@ -26,23 +19,17 @@ The Green Mermaid coffee house underneath The Upstage in Asbury Park plays host 
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1971-0410-183x300.jpg?resize=758%2C1243)
 
 Bruce plays his first-ever show in Georgia, opening for The Beach Boys at the Omni Coliseum in Atlanta. Bruce has undoubtedly grown used to people misspelling his name by now, but this is probably a new variant:
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0411-194x300.jpg?resize=758%2C1172)
 
 Bruce plays two shows at Charlie's Place in Cambridge, Massachusetts–his third of four nights at that venue.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0412-263x300.jpg?resize=758%2C868)
 
@@ -107,8 +94,6 @@ Night Two of the Reunion Tour, a second show in Barcelona, features the first ""
 Sick with a cold, Bruce nevertheless turns in a great performance in Vancouver, BC. Before the show, those of us waiting outside in the pit line could hear the band soundcheck an early version of "." Listen below. For more highlights, see my for this show.
 
 **2003:** [Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)[report](http://estreetshuffle.com/index.php/2018/04/11/where-the-band-was-vancouver-april-11-2003/)*Where the Band Was*<http://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2003-04-11-300x236.jpg?resize=758%2C597)
 

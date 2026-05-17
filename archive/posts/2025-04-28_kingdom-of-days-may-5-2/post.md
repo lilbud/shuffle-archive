@@ -1,20 +1,15 @@
 
-
 *New entry for 1975 and 2024; audio for 1982***New for 2025:**
 
 Eleven-year-old Bruce Springsteen receives the sacrament of confirmation at St. Rose of Lima Church in Freehold.
 
 **1961:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1961-05-05.jpg?resize=758%2C1354&amp;ssl=1)
 
 Bruce and the as yet unnamed E Street Band play a show at Providence College in Rhode Island.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0505-300x183.jpg?resize=751%2C458)
 
@@ -44,8 +39,6 @@ Bruce plays the first of two nights at the Tacoma Dome for the Tunnel of Love Ex
 
 **1988:** *Rolling Stone*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/rolling-stone-cover-volume-525-5-5-1988-bruce-springsteen-250x300.jpg?resize=758%2C910)
 
 [https://videopress.com/embed/HsrTnjy0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HsrTnjy0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
@@ -56,11 +49,7 @@ Bruce plays the first of two nights at the Tacoma Dome for the Tunnel of Love Ex
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1988-05-05-save-179x300.jpg?resize=758%2C1271)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1988-05-05a.jpg?resize=758%2C967&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1988-0505-214x300.jpg?resize=758%2C1064)
 
@@ -97,8 +86,6 @@ Bruce tour premieres "" and an acoustic arrangement of "" at his solo acoustic s
 [https://www.youtube.com/embed/psFjDUQuviY?feature=oembed](https://www.youtube.com/embed/psFjDUQuviY?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-05a.jpg?resize=758%2C366&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-05b.jpg?resize=758%2C1058&amp;ssl=1)
 

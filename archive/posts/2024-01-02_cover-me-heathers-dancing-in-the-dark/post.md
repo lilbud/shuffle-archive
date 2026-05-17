@@ -1,5 +1,4 @@
 
-
 Twin sisters Ellie and Louise Macnamara are lifelong Bruce Springsteen fans, and it shows.
 
 They've been singing together in their native Ireland as Heathers (yes, that's an homage to the film) since they were seventeen. They're thirty now, and in interviews they almost always cite Bruce as one of their key musical influences while growing up.

@@ -51,5 +51,3 @@ It remains as important today as it was when Gieco first recorded it.
 **Recorded** September 14, 2013<br>
 **Never released**<br>
 **Never performed**<br>
-
-

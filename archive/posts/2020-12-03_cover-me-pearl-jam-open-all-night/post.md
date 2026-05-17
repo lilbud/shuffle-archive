@@ -1,5 +1,4 @@
 
-
 This week, it seems like everyone in my adopted hometown of Seattle is attending (or wishing they could) a pair of benefit shows by one of our local bands to combat and raise awareness about local homelessness. What started out as a concert has swelled into a community-wide movement. I'm sure Bruce approves of and is impressed by what his friend Eddie and crew have accomplished.
 
 In honor of , here's Pearl Jam's one-off cover of Bruce's "," captured live in Lincoln, Nebraska on October 9, 2014.

@@ -1,5 +1,4 @@
 
-
 "Shutup Springsteen" isn't the first song inspired by a certain New Jersey rock star, but it may very well be the cleverest.
 
 [https://www.youtube.com/embed/W8hIWrKzQ9c?feature=oembed](https://www.youtube.com/embed/W8hIWrKzQ9c?feature=oembed)
@@ -19,7 +18,5 @@ I mentioned that Frost and Springsteen are neighbors, but Gary's Springsteen con
 "Shutup Springsteen" is available now on Spotify and YouTube. If you find yourself in New Jersey this summer, catch one of Gary's many area appearances. You can find his tour schedule and more music .
 
 [here](https://www.garyfrostcountry.com/)
-
-
 
 [https://open.spotify.com/embed/album/3G4pE4QvuwPOocYlaRko4N?fbclid=IwAR0aKemNAAEOWQHYc_-nkDvWUs3b-629NNHRNTMg45yf7OVvstrOvE8vkx8&amp;utm_source=oembed](https://open.spotify.com/embed/album/3G4pE4QvuwPOocYlaRko4N?fbclid=IwAR0aKemNAAEOWQHYc_-nkDvWUs3b-629NNHRNTMg45yf7OVvstrOvE8vkx8&amp;utm_source=oembed)

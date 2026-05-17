@@ -6,8 +6,6 @@ At the 54th Annual Grammy Awards, Bruce Springsteen opened the show with the liv
 
 [Watch Video Highlight](https://videopress.com/embed/ud31M5qB?hd=0&cover=1)
 
-
-
 In his review of the event, the *New York Times* music critic wrote, "The show opened with Mr. Springsteen humorlessly churning through a new song, ‘We Take Care of Our Own,' which mistakes jingoism for empathy, "
 
 And just like that, 2012 became 1984.
@@ -97,7 +95,6 @@ We've taken that first step, and although its songwriter couldn't have foreseen 
 [Watch on Youtube: Bruce Springsteen MULTICAM PROMO MILANO We take care of our own San Siro 07/06/2012](https://www.youtube.com/watch?v=zAKxhmdtQow)
 
 ---
-
 
 **Bonus:** Bruce played "We Take Care of Our Own" with the E Street Band nightly throughout the Wrecking Ball Tour, but it was a non-tour performance late in the year that proved the most powerful.
 

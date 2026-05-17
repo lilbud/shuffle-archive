@@ -1,12 +1,9 @@
 
-
 *Audio for 1981***New for 2025:**
 
 Robbin Thompson makes his Steel Mill debut at the band's University of Richmond gig.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1970-08-28-173x300.jpg?resize=758%2C1315)
 
@@ -14,23 +11,15 @@ Bruce tour premieres "" by request at his Darkness show in Pittsburgh. Elsewhere
 
 **1978:** [Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)**, [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Rolling Stone*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/rs272-300x282.jpg?resize=758%2C712)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/rs1b-225x300.png?resize=758%2C1010)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/RS2B.png?resize=758%2C1008&amp;ssl=1)
 
 [https://www.youtube.com/embed/2TlTowM3kkA?feature=oembed](https://www.youtube.com/embed/2TlTowM3kkA?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1978-08-28-300x122.png?resize=758%2C308)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1978-0828.jpg?resize=758%2C1791&amp;ssl=1)
 
@@ -62,11 +51,7 @@ World Tour 1992 moves on to Philadelphia for the first of two shows at The Spect
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-28a-300x205.png?resize=758%2C518)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-28b-300x68.png?resize=758%2C172)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-28c-300x84.png?resize=758%2C212)
 
@@ -104,8 +89,6 @@ Bruce's ten-show River Tour victory lap continues with a stop at the United Cent
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2016-08-28a-244x300.png?resize=758%2C932)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2016-08-28b-148x300.png?resize=758%2C1536)
 
 continues its theatrical run at the Walter Kerr Theater in New York City, with Sting in attendance.
@@ -119,7 +102,5 @@ continues its limited return engagement at the St. James Theater in New York Cit
 A scheduled show at Nationals Park in Washington, D.C. is postponed to late September. It will eventually be postponed again.
 
 **2023:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/2023-INT_Schedule_19_USA.jpg?resize=500%2C500&amp;ssl=1)

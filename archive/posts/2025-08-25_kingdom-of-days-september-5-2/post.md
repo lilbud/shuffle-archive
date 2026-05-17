@@ -1,12 +1,9 @@
 
-
 *New entry for 1979***New for 2025:**
 
 The Bruce Springsteen Band is in residency at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-0903-1-300x170.jpg?resize=758%2C430)
 
@@ -64,7 +61,7 @@ Joe Grushecky releases his album, featuring several guest appearances by Bruce, 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2006-09-05-300x223.jpg?resize=758%2C564)
 
-Bruce and the E Street Band make up for an earlier hurricane-induced rainout in Virginia Beach, playing an amazing chronological set for a reduced crowd in an already intimate outdoor venue. (The show was originally scheduled for a Saturday night on a holiday weekend–when the show was rescheduled for Labor Day, many fans already had their return trip booked for that day, as school started for many the following morning.) Apparently the string section couldn't make it either, so Bruce opens the show with an acoustic "" on piano instead. "" and "" are tour premieres tonight. For more highlights from this show, see my 
+Bruce and the E Street Band make up for an earlier hurricane-induced rainout in Virginia Beach, playing an amazing chronological set for a reduced crowd in an already intimate outdoor venue. (The show was originally scheduled for a Saturday night on a holiday weekend–when the show was rescheduled for Labor Day, many fans already had their return trip booked for that day, as school started for many the following morning.) Apparently the string section couldn't make it either, so Bruce opens the show with an acoustic "" on piano instead. "" and "" are tour premieres tonight. For more highlights from this show, see my
 
 **2016:**[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)[report.](http://estreetshuffle.com/index.php/2018/09/05/where-the-band-was-virginia-beach-september-5-2016/)*Where the Band Was*
 
@@ -77,7 +74,5 @@ Bruce and the E Street Band make up for an earlier hurricane-induced rainout in 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: actor Rob Lowe.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/2018-09-05-300x253.jpg?resize=758%2C639)

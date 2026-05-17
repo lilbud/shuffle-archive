@@ -65,7 +65,6 @@ In the final verse, whatever song is playing on the radio exerts such an intense
 
 ---
 
-
 Ironically, "Save My Love" made its live debut not with the E Street Band but with Joe Grushecky's band, The Houserockers. At a 15th anniversary show in Pittsburgh for Joe's Bruce-produced [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) album, Bruce premiered his "new" song:
 
 [Watch on Youtube: Save My Love - Bruce Springsteen, Pittsburgh, Nov. 4, 2010](https://www.youtube.com/watch?v=ng8d_jYqEKQ)
@@ -87,7 +86,7 @@ Although certainly still considered a rarity, "Save My Love" has made a handful 
 So while it may never be a staple of any tour's setlist, I doubt it's ever going to disappear again either. Here's hoping for the chance to hear it again on the next tour.
 
 **Save My Love**<br>
-**Recorded:** July 22, 2010  
+**Recorded:** July 22, 2010
 **Released:** *The Promise* (2010)
 **First performed:** November 4, 2010 (Pittsburgh, PA)<br>
 **Last performed:** September 5, 2016 (Virginia Beach, VA)<br>

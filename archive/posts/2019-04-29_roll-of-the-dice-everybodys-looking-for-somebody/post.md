@@ -1,5 +1,4 @@
 
-
 Actually, it's not at all clear to me that *anybody's* looking for somebody.
 
 This demo was recorded in Bruce's home studio in Holmdel in late 1979. Fans have dubbed it "Everybody's Looking for Somebody" (after what appears to be the refrain) or alternatively, "Blackwood" (after what appears to be a location mentioned in the song).

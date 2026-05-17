@@ -1,5 +1,4 @@
 
-
 What's more unlikely than Bruce Springsteen covering "You Sexy Thing," the surprise 1975 B-side smash hit (it ranked #22 for the entire year) by Hot Chocolate?
 
 [https://www.youtube.com/embed/4DwEni2N_-A?feature=oembed](https://www.youtube.com/embed/4DwEni2N_-A?feature=oembed)

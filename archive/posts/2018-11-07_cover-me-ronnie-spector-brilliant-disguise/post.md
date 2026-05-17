@@ -1,5 +1,4 @@
 
-
 Here's a Springsteen cover that's flown largely under the radar… perhaps deservedly so.
 
 Don't get me wrong: I'm a huge Ronnie Spector fan, and it's nice to hear her take a run at one of Bruce's songs given their long association and friendship.

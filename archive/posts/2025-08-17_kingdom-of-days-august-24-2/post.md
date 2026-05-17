@@ -1,5 +1,4 @@
 
-
 *New entry for 1977 and 1979; video for 2023***New for 2025:**
 
 Earth plays a private gig at a wedding in Brooklyn.
@@ -10,15 +9,11 @@ Bruce and the E Street Band play their fifth night of a week-long residency at O
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1973-0826-195x300.jpg?resize=758%2C1166)
 
 A scheduled show is cancelled at the Cinematic Circus in Woodbourne, New York.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1974-08-24-91x300.jpg?resize=758%2C2499)
 
@@ -68,8 +63,6 @@ The Rising Tour's barnstorming leg continues with a show at The Forum in Inglewo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2002-08-24a.png?resize=758%2C1498&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2002-08-24b-300x223.png?resize=758%2C564)
 
 The Magic Tour wraps up with an eclectic setlist in Kansas City, featuring tour premieres (and two world debuts, including the first-ever ""), Max on lead vocals on "", a Soozie and Bruce duet on "," and more. For more highlights from this show, see my .
@@ -83,8 +76,6 @@ The Magic Tour wraps up with an eclectic setlist in Kansas City, featuring tour 
 [https://www.youtube.com/embed/h7k2dlprYhU?feature=oembed](https://www.youtube.com/embed/h7k2dlprYhU?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2008-08-24a.jpg?resize=572%2C1788&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2008-08-24b.jpg?resize=758%2C763&amp;ssl=1)
 

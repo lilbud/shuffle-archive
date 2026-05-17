@@ -98,18 +98,10 @@
 
 [Watch Video Highlight](https://videopress.com/embed/4jab0Nll)
 
-
-
 [Watch Video Highlight](https://videopress.com/embed/Cor6CHI8)
-
-
 
 [Watch Video Highlight](https://videopress.com/embed/md0CXS3t)
 
-
-
 [Watch Video Highlight](https://videopress.com/embed/OpcWI8O4)
-
-
 
 **2023:** Bruce's scheduled show in Calgary is postponed by more than a year due to his peptic ulcer disease.

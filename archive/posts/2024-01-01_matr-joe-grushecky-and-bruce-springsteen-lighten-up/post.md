@@ -1,5 +1,4 @@
 
-
 Today's meeting across the river comes from the city of three rivers: Pittsburgh, PA.
 
 For a brief time in 1995, Bruce Springsteen joined Joe Grushecky and the Houserockers, taking a supporting role during Joe's tour. (Bruce produced the album, played and sang on several tracks, and wrote two of them.)

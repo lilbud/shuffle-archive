@@ -89,7 +89,6 @@ Our lovers will indeed meet again on the river banks one day, but tragically, to
 
 ---
 
-
 Bruce performed "Matamoros Banks" nightly on his 2005 solo acoustic tour, always preceding it with an impassioned plea for empathy and action.
 
 [Watch on Youtube: Matamoros Banks (solo acoustic) Bruce Springsteen 4/25/2005 Detroit, MI](https://www.youtube.com/watch?v=lsOSG6FXW3M)

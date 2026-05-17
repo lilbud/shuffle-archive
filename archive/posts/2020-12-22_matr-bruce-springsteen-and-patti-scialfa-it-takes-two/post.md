@@ -1,5 +1,4 @@
 
-
 For all of the countless hours they've shared a stage together, it's surprisingly difficult to come across a true duet between Bruce Springsteen and Patti Scialfa.
 
 You can trip over performances where Patti's vocals back her husband's, of course–just pick any E Street Band show since 1984. The converse is a lot rarer, but are .

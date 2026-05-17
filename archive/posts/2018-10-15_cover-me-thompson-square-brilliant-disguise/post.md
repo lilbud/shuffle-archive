@@ -7,5 +7,3 @@ Bruce has often stated that the song takes on a different meaning if you sing it
 Keifer and Shawna Thompson certainly capture that spirit here.
 
 [Watch on Youtube: Thompson Square - Brilliant Disguise (Bruce Springsteen cover) (Last.fm Sessions)](https://www.youtube.com/watch?v=y24Cs5lTgLw)
-
-

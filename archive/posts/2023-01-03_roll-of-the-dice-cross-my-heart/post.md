@@ -80,7 +80,6 @@ This is a man who is easily swayed by temptation when his cold, hard ride offers
 
 ---
 
-
 Of all the songs on *Human Touch*, "Cross My Heart" is the song Bruce has played the least in concert. Even "[Pony Boy](https://estreetshuffle.com/index.php/2019/03/01/roll-of-the-dice-cover-me-pony-boy/)" has had more outings. Count yourself fortunate if you caught one of its only two performances (both in 1992), but doubly so if you caught the second instead of the first.
 
 Bruce debuted "Cross My Heart" at a homecoming show in East Rutherford on July 31, 1992, in an arrangement very close to the one on the album.

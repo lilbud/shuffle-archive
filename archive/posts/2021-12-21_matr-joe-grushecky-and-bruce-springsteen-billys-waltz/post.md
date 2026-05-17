@@ -14,5 +14,3 @@ As he did for almost every song on the album, Bruce contributed his talents to "
 **Recorded:** March 1995<br>
 **Released:** *American Babylon* (1995)<br>
 **Never performed**<br>
-
-

@@ -1,5 +1,4 @@
 
-
 *New entry for 1973; video for 2023***New for 2025:**
 
 The Castiles headline at the West End Casino in Long Branch, New Jersey.
@@ -20,8 +19,6 @@ At the Civic Center Arena in St. Paul, the day before the Born in the U.S.A. Tou
 
 **1984:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)[](http://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/)*Where the Band Was*[report](http://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/bruceandsandi-300x200.jpg?resize=758%2C504)
 
 The Tunnel of Love Tour arrives in Rotterdam for the first of two nights.
@@ -37,8 +34,6 @@ Bruce joins Clarence and the Red Bank Rockers on stage for 30 minutes of their s
 [https://videopress.com/embed/8wxTcxZg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8wxTcxZg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1993-06-28a.jpg?resize=506%2C2530&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1993-06-28b.jpg?resize=516%2C1865&amp;ssl=1)
 
@@ -83,8 +78,6 @@ Bruce and the E Street Band headline Hard Rock Calling in London's Hyde Park, wh
 continues its theatrical run at the Walter Kerr Theater in New York City. Actress Cate Blanchett and Jon Bon Jovi are in attendance tonight.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/cate-300x254.jpg?resize=758%2C641)
 

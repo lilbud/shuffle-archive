@@ -81,7 +81,6 @@ Bruce ends the song the way he began it, one last storytelling flourish that tel
 
 ---
 
-
 "Good Man" is a quiet song, and despite its full-band studio arrangement, it's a difficult song to translate to an arena–which is probably why Bruce has performed it only twice ever, both times acoustically.
 
 The first was in memory of a fallen local police officer during his 2005 solo show in St. Paul.

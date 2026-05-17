@@ -1,5 +1,4 @@
 
-
 *New entry for 1982***New for 2025:**
 
 Laurel Canyon sends Bruce a royalty check for $67,000, but an auditor determines it should have been for $2,000,000, ramping up a legal battle that will keep Bruce out of the studio for some time to come. In the meantime, Bruce and the E Street Band bring the Chicken Scratch Tour to New Orleans for a single show at the Municipal Auditorium. This show features Bruce's first performance of Gary U.S. Bonds' "" and one of the longest-ever performances of "."
@@ -49,8 +48,6 @@ Bruce and the band bring the Tunnel of Love Express Tour to the Market Square Ar
 [https://www.youtube.com/embed/LN_gm14o6Y8?feature=oembed](https://www.youtube.com/embed/LN_gm14o6Y8?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-13a-300x147.jpg?resize=758%2C372)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-13b-300x176.jpg?resize=758%2C444)
 

@@ -39,7 +39,7 @@ Check out the lyrics:
 *But what I done ain't nothin' t**o what I wanna do*
 > *When I find a little girl like you*
 
-*We'll get married i**n a church down a winding path* 
+*We'll get married i**n a church down a winding path*
 *Tell a lot of jokes, h**ave a lot of laughs*
 > *Do whatever it is that we wannna do*
 > *Long as I do it with a girl like you*
@@ -52,7 +52,6 @@ Check out the lyrics:
 > *Oh honey I need a little girl like you*
 > *Oh baby I need a little girl like you*
 
-
 It's not just the repeated "little girl" phrasing that's problematic. It's the context of a song about a guy who seems more interested in having someone *like* you rather than you in particular. Or more pointedly, he seems more interested in companionship than in a companion.
 
 It's explicitly clear in the last verse that our narrator is addressing a stranger, and in the earlier verses it's clear that he's got quite the hookup history and has his mind set on another.
@@ -62,7 +61,7 @@ In 1983, these lyrics were offensive. Today, they're also creepy.
 So, yeah: this is a lost track that probably should have stayed lost.
 
 **Little Girl Like You**<br>
-**Recorded:** January 20, 1983  
+**Recorded:** January 20, 1983
 **Released:** *L.A. Garage Sessions '83* (2025)<br>
 **Never performed**<br>
 

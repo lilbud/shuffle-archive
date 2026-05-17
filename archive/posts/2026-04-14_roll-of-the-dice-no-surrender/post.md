@@ -111,7 +111,6 @@ And as I stare at a photo of my hours-old first grandchild, born earlier today, 
 
 ---
 
-
 "No Surrender" was one of the last songs Bruce recorded for *Born in the U.S.A.*, along with "Brothers Under the Bridges ('83)" which some have called an early version of "No Surrender." (I'm of the opinion that these are two completely different songs that just happen to share some musical DNA, but you can judge for yourself.)
 
 His ambivalence toward it was evident almost immediately. Clearly uncomfortable with its unbridled idealism, he returned to the studio a month later and recorded an acoustic version with tampered lyrics that temper the song's steely passion–not necessarily to the song's benefit.

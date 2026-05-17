@@ -1,5 +1,4 @@
 
-
 Every week brings a new wave of Springsteen covers, and I try to watch them all.
 
 The vast majority of them are just what you'd expect: a fan in home studio paying tribute to their idol in passable but unremarkable fashion. I watch them once and then move on to the next. But when I find the rare gem, I bring it to your attention here.

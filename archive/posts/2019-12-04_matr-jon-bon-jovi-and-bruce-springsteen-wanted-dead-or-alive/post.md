@@ -17,7 +17,3 @@ To date, however, this remains the only time Bruce has performed "Wanted Dead or
 **Wanted Dead or Alive**<br>
 **First performed:** January 31, 1998 (Red Bank, NJ)<br>
 **Last performed:** January 31, 1998 (Red Bank, NJ)<br>
-
-
-
-

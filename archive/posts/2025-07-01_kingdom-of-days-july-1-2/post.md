@@ -24,8 +24,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/NqB6kNCG)
 
-
-
 ![](../../assets/2020/06/1984-07-01a.jpg)
 
 ![](../../assets/2020/06/1984-07-01b.jpg)

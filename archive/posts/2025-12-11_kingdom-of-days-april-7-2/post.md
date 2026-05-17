@@ -1,18 +1,13 @@
 
-
 Bruce and the E Street Band open for The Beach Boys in Norfolk.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0407.jpg?resize=490%2C650&amp;ssl=1)
 
 Bruce Springsteen meets Max Weinberg for the first time when Max's band opens for Bruce and the original (but still unnamed) E Street Band at Seton Hall University.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1974-0407.jpg?resize=433%2C640&amp;ssl=1)
 
@@ -24,19 +19,13 @@ Bruce and the E Street Band bring the Chicken Scratch Tour to Cleveland for the 
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/The_Plain_Dealer_1976_04_09_94.jpg?w=758&amp;ssl=1)
 
 [https://www.youtube.com/embed/Om03JLiBgok?feature=oembed](https://www.youtube.com/embed/Om03JLiBgok?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/The_Plain_Dealer_1976_04_09_76-scaled.jpg?resize=758%2C192&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/The_Plain_Dealer_1976_04_09_77-scaled.jpg?resize=758%2C2346&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/2009-04-07.jpg?resize=365%2C964&amp;ssl=1)
 
@@ -71,8 +60,6 @@ debuts on HBO.
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pYNWbfBg97PB_HuPXxskrWc](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pYNWbfBg97PB_HuPXxskrWc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2001-04-07.jpg?resize=758%2C898&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/2001-04-07b.jpg?resize=625%2C960&amp;ssl=1)
 

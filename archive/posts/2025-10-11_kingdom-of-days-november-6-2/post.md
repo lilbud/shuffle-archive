@@ -1,12 +1,9 @@
 
-
 *Review for 1973 and 1999; audio for 2006; new entry for 2024***New for 2025:**
 
 Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/11/Asbury_Park_Press_1968_11_06_Page_36.jpg?w=758&amp;ssl=1)
 
@@ -14,11 +11,7 @@ Daryl Hall and John Oates open for Bruce and the E Street Band at Max's Kansas C
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/Screenshot-2025-10-11-120825.jpg?resize=758%2C1158&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1973-11-06-170x300.jpg?resize=758%2C1338)
 
@@ -26,15 +19,9 @@ Daryl Hall and John Oates open for Bruce and the E Street Band at Max's Kansas C
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Austin_American_Statesman_Fri__Nov_1__1974_-1.jpg?w=758&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/1974-1106-300x195.jpg?resize=758%2C493)
-
-
 
 Bruce and the boys play their third of three nights at Arizona State University in Tempe on the Born to Run Tour.
 
@@ -74,15 +61,11 @@ Bruce plays his first-ever show in North Dakota, where "" makes its U.S. Reunion
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Forum_1999_11_07_1.jpg?resize=758%2C721&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Forum_1999_11_07_3.jpg?resize=758%2C612&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Forum_1999_11_21_31.jpg?resize=758%2C355&amp;ssl=1)
 
 is released on DVD, featuring eleven songs not aired in the broadcast version.
 
 **2001:** *Live in New York City*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2001-11-06-294x300.png?resize=758%2C773)
 
@@ -90,15 +73,9 @@ A scheduled Rising Tour show in Austin is postponed until the following March du
 
 **2002:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2002-11-06a-300x112.png?resize=758%2C283)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2002-11-06b-189x300.png?resize=758%2C1204)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2002-11-06-300x172.jpg?resize=758%2C434)
 

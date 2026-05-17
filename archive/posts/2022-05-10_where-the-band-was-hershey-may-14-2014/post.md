@@ -1,5 +1,4 @@
 
-
 There's a reason it's called a "concert." There's a big difference between an artist performing for themselves and an artist interacting with–in *concert* with–an audience. A great crowd can rocket an ordinary setlist into the stratosphere; a dull crowd can suck the life out of the most unpredictable show.
 
 For those who think I'm impossible to disappoint when it comes to Springsteen shows, here's your evidence to the contrary: this show is a

@@ -1,5 +1,4 @@
 
-
 *Audio for 2008***New for 2025:**
 
 Bruce debuts his cover of "" to open Night Two at the Philadelphia Spectrum on the Darkness Tour. Gary Busey guest stars on "."
@@ -56,15 +55,9 @@ The Magic Tour's victory lap includes a show at Hersheypark Stadium, where Bruce
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2008-08-19a.png?resize=758%2C1172&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2008-08-19b.png?resize=758%2C2186&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2008-08-19c-205x300.png?resize=758%2C1109)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2008-08-19d-300x125.png?resize=758%2C316)
 

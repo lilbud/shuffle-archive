@@ -1,5 +1,4 @@
 
-
 "Weird Al" Yankovic has parodied just about every iconic artist and anthem over the last four decades, but he's never taken a swing at Bruce Springsteen.
 
 "It's just never worked out for me to do a straight-on Springsteen parody," Yankovic told ScreenCrush in 2014. "Either the timing wasn't right, or he didn't have a big enough single at the time my album was coming out, or I just flat out couldn't think of a clever enough idea for one of his songs… but it's not because he doesn't have a good sense of humor. He's got a great sense of humor."

@@ -1,5 +1,4 @@
 
-
 Because of course you've always wondered what a chiptuned Bruce Springsteen song sounds like. Right?
 
 Actually, chiptune adaptations of Bruce's catalog have been floating around the Internet for many years. But until now, every one I've come across is a novelty at best–certainly not worth a repeat listen.

@@ -1,5 +1,4 @@
 
-
 It's hard to find a more perfectly suited pairing for Bruce than the very-Springsteen-influenced Gaslight Anthem. It's hard to tell who's having more fun in this 2009 HD clip–Brian and Bruce are clearly both having a ball.
 
 [https://www.youtube.com/embed/djdRSffcI9E?feature=oembed](https://www.youtube.com/embed/djdRSffcI9E?feature=oembed)

@@ -1,5 +1,4 @@
 
-
 By now, we shouldn't be surprised at the range of covers Bruce Springsteen is prone to playing in concert.
 
 Still, "Hey, Good Lookin'," Hank Williams' #1 country hit from 1951, seems like one of the least likely contenders. (It's certainly tough to imagine a fan bringing a sign for it.)

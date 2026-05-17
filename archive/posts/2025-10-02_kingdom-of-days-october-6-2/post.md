@@ -1,12 +1,9 @@
 
-
 *Review for 1980***New for 2025:**
 
 Bruce opens for Jackson Browne at Villanova University. Before the show, the two future rock legends play a cover of The Eagles' "Peaceful Easy Feeling" in a pre-show jam.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1973-1006-281x300.jpg?resize=758%2C809)
 
@@ -14,11 +11,7 @@ Bruce and the E Street Band play a gig at Clark University in Worcester, Massach
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1974-10-06-254x300.jpg?resize=758%2C895)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1974-1006-208x300.jpg?resize=758%2C1092)
 
@@ -32,8 +25,6 @@ At the first of two River Tour nights at the Richfield Coliseum, Bruce and the E
 
 [https://www.youtube.com/embed/Zv_GJ52eQf0?feature=oembed](https://www.youtube.com/embed/Zv_GJ52eQf0?feature=oembed)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/The_Plain_Dealer_1980_10_08_75.jpg?resize=758%2C551&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/The_Akron_Beacon_Journal_1980_10_07_Page_19.jpg?w=758&amp;ssl=1)
 
 Bruce and his new touring band play a show at Sacramento's Arco Arena on World Tour 1992.
@@ -44,15 +35,9 @@ Bruce and his new touring band play a show at Sacramento's Arco Arena on World T
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1992-10-06a-300x110.jpg?resize=758%2C278)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1992-10-06b.jpg?resize=758%2C1864&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1992-10-06c-238x300.jpg?resize=758%2C955)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1992-10-06d-181x300.jpg?resize=758%2C1256)
 
@@ -69,8 +54,6 @@ As the first American leg of the Rising Tour starts to wind down, Bruce starts p
 [https://www.youtube.com/embed/cCbnRRn84QQ?feature=oembed](https://www.youtube.com/embed/cCbnRRn84QQ?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2002-10-06a-300x166.jpg?resize=758%2C420)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2002-10-06b-290x300.jpg?resize=758%2C784)
 
@@ -113,8 +96,6 @@ Bruce travels to Ypsilanti, Michigan to join presidential candidate Barack Obama
 previews continue at the Walter Kerr Theater in New York City.
 
 **2017:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/2017-1003-300x152.jpg?resize=758%2C384)
 

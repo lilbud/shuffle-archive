@@ -1,5 +1,4 @@
 
-
 *New entry for 1977 and 1987***New for 2025:**
 
 Bruce and the as-yet-unnamed E Street Band play a gig at Waynesburg College in Pennsylvania.
@@ -16,8 +15,6 @@ Bruce and the as-yet-unnamed E Street Band play a gig at Waynesburg College in P
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1976-09-29-300x201.jpg?resize=758%2C508)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1976-09-29-300x298.jpg?resize=758%2C753)
 
 Bruce records "" and "" at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.
@@ -28,15 +25,13 @@ Bruce records "" and "" at The Record Plant in New York City. They will remain i
 
 [https://www.youtube.com/embed/ZKFREGdtncg?feature=oembed](https://www.youtube.com/embed/ZKFREGdtncg?feature=oembed)
 
-The Darkness Tour moves on to Boutwell Memorial Auditorium in Birmingham. 
+The Darkness Tour moves on to Boutwell Memorial Auditorium in Birmingham.
 
 **1978:** (Photo credit: William E. Allen)
 
 [https://videopress.com/embed/PNdFeC4l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PNdFeC4l?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Birmingham_Post_Herald_1978_09_30_19.jpg?w=758&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0929-200x300.jpg?resize=758%2C1137)
 
@@ -64,11 +59,7 @@ Bruce makes a pit-stop at Matt's Saloon in Prescott, Arizona while on a motorcyc
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1989-0929-166x300.jpg?resize=758%2C1370)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1989-09-29a.jpg?resize=758%2C1516&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1989-09-29b-154x300.jpg?resize=758%2C1477)
 
@@ -112,11 +103,7 @@ Bruce makes a book tour appearance at the Free Library of Philadelphia to promot
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/2016-0929-300x169.jpg?resize=758%2C427)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2016-09-29b-300x289.jpg?resize=758%2C730)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2016-09-29a.jpg?resize=758%2C3115&amp;ssl=1)
 
@@ -124,15 +111,11 @@ Bruce holds his first and only dress rehearsal (invite-only) for Springsteen on 
 
 **2017:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2017-09-29-266x300.jpg?resize=758%2C855)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of "This Hard Land" in place of his duet of "" with Patti. In attendance tonight: Hozier.
 
 **2018:** *Springsteen on Broadway* [Tougher Than the Rest](http://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2018-09-29-298x300.jpg?resize=758%2C763)
 
@@ -146,15 +129,9 @@ That evening, Bruce and Patti perform "" at the first annual Albie Awards, spons
 
 [The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
 
-
-
 View this post on Instagram
 
-
-
 [A post shared by covenant- alex (@borntorunboss1)](https://www.instagram.com/tv/CjTHuJAtR9O/?utm_source=ig_embed&utm_campaign=loading)
-
-
 
 [https://www.youtube.com/embed/yhCl8la_aeU?feature=oembed](https://www.youtube.com/embed/yhCl8la_aeU?feature=oembed)
 

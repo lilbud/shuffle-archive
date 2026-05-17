@@ -1,5 +1,4 @@
 
-
 I'm glad I started this "Spare Parts" series recently, because I'd have no idea how else to classify this, to be honest.
 
 In one sense, "Cheap Motel" is an original Springsteen song in that Bruce wrote the music. But he didn't write the lyrics–the great Joe Grushecky supplied those.

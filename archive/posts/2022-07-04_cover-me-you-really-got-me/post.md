@@ -1,5 +1,4 @@
 
-
 How in the world did it take Bruce 45 years to cover the breakthrough hit from one of his favorite bands?
 
 We know The Kinks were on Bruce's radar from the very beginning: he's on record for having seen the band's 1964 appearance on , and surviving Castiles set lists reveal covers of "Tired of Waiting For You" and "." (We even have a recording of the latter one.)

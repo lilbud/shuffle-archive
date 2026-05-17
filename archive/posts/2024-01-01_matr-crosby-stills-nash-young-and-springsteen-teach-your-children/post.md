@@ -1,5 +1,4 @@
 
-
 One time only: At Neil Young's inaugural Bridge School Benefit in 1986, Bruce joined Crosby, Still, Nash and Young for a beautifully loose rendition of "Teach Your Children."
 
 Don Henley, Tom Petty, and Robin Williams(!) join in as well, and while Danny and Nils are only visible for a moment, you can hear them throughout.

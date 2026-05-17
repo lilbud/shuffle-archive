@@ -58,9 +58,9 @@ The similarities in language and imagery sways me toward believing that "Waiting
 
 What do you think?
 
-**Waiting on the End of the World**  
-**Recorded:** January 1995  
-**Never Released**  
+**Waiting on the End of the World**
+**Recorded:** January 1995
+**Never Released**
 **Never Performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

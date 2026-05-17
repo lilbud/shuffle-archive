@@ -113,5 +113,3 @@ And now that we know who these people are, whose tryst we're witnessing, we can 
 "Well, all right," the narrator sings again, but the soothing quality is gone from his voice. He sounds doubtful now, uncertain, like he's trying to convince himself of something. "Well, all right." His voice rises, becomes a question, with a hysterical, yelping edge to it. "Well, all right? *Well, all right*?"
 
 There's no answer. Just the guitar riff, insistent and wistful, returning one last time to end the song.
-
-

@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 The Castiles play a brief set at the Surf ‘N' See Club in Sea Bright, New Jersey.
@@ -66,21 +65,17 @@ View this post on Instagram
 
 [A post shared by Betsy O'Regan Elwell (@betsy.oregan.elwell)](https://www.instagram.com/p/BlE1KCGlMdN/?utm_source=ig_embed&utm_campaign=loading)
 
-
-
 Bruce breaks news when he calls in to E Street Radio: a new film is on the way, a concert film based on directed by Thom Zimny. When it's released later in the year, Bruce will take a co-director credit.
 
 **2019:** *Western Stars*,
 
-Just got off a 10-minute call with . "I wanted to see if the number really worked," he told E Street Radio hosts Dave Marsh and Jim Rotolo. 
+Just got off a 10-minute call with . "I wanted to see if the number really worked," he told E Street Radio hosts Dave Marsh and Jim Rotolo.
 
 [@Springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw)[pic.twitter.com/4hcA6201Ej](https://t.co/4hcA6201Ej)
 
 — SiriusXM (@SIRIUSXM)
 
 [July 10, 2019](https://twitter.com/SIRIUSXM/status/1148976398666739718?ref_src=twsrc%5Etfw)
-
-
 
 continues its limited return engagement at the St. James Theater in New York City.
 

@@ -1,5 +1,4 @@
 
-
 If Bruce was only ever going to perform U2's "Where the Streets Have No Name" once, there was only really one right way to do it: as an impromptu live performance at a busy city intersection.
 
 After all, that's what made U2's original Grammy-winning video so memorable.

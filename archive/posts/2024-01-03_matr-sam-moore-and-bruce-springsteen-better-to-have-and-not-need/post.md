@@ -19,8 +19,6 @@ Bruce gets one verse to himself, but other than that his vocal contribution (he 
 Fun fact: there's another *Human Touch* connection here, too: *Overnight Sensational* was produced by Randy Jackson, who also played bass on the three *Human Touch* tracks Moore appeared on.
 
 **Better to Have and Not Need**<br>
-**Recorded:** February 2006  
+**Recorded:** February 2006
 **Released:** *Overnight Sensational* (2006)<br>
 **Never performed**<br>
-
-

@@ -2,7 +2,6 @@
 
 ---
 
-
 "Crying" was denied its rightful honor atop the Billboard Hot 100 when it was originally released in 1961.
 
 [Watch on Youtube: Roy Orbison - Crying](https://www.youtube.com/watch?v=tNdBLBleO90)
@@ -54,5 +53,3 @@ Bruce hasn't performed "Crying" in public since that 1989 salute, but Orbison's 
 **Crying**<br>
 **First performed:** September 30, 1987 (Los Angeles, CA)<br>
 **Last performed:** January 18, 1989 (New York City, NY)<br>
-
-

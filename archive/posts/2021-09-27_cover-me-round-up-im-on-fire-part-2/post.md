@@ -40,6 +40,4 @@ Finally, we return home to the U.S., where I'll leave you with this wonderful co
 
 [I'm on Fire by Bruce Springsteen LIVE @ The Echoplex by phoebe bridgers](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F90681730&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 That's it for this *Cover Me Round-up* installment, but as long as artists keep gravitating to a select few songs in Bruce's catalog, trust me: there will be more.

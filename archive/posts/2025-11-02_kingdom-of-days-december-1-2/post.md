@@ -1,5 +1,4 @@
 
-
 *Expanded entry for 1977; new entry for 1989***New for 2025:**
 
 Bruce cancels a scheduled show at Quinnipiac University in Hamden, Connecticut.

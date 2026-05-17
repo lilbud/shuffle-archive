@@ -126,7 +126,6 @@ When he dies, he tells us, let him go to hell. It can't be any hotter then his p
 
 ---
 
-
 Bruce met Maharidge and Williamson for the first time at Neil and Pegi Young's Bridge School Benefit concert in October 1995, shortly before the release of *The Ghost of Tom Joad.* Springsteen invited the two men to the show and asked them to meet him backstage afterward. Greeting them with a giant hug, Bruce invited them into his dressing room, where Bruce gushed effusively about *Journey to Nowhere.*
 
 ![](../../assets/2023/05/Capture.png)

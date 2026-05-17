@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 The Castiles play the Surf ‘n' See Club in Sea Bright, New Jersey.
 
 **1966:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1966-0917-300x257.jpg?resize=758%2C649)
 
@@ -14,23 +11,15 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-0917-231x300.jpg?resize=758%2C984)
 
 hits #1 on the charts; Bruce and the boys celebrate at their tour stop in Oklahoma City, their first-ever show in that state.
 
 **1975:** *Born to Run*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1975-09-17-300x183.jpg?resize=739%2C451)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1975-09-17-300x197.jpg?resize=758%2C498)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/The_Daily_Oklahoman_1975_09_17_20.jpg?resize=758%2C301&amp;ssl=1)
 
@@ -43,8 +32,6 @@ Bruce and the E Street Band close out their three-night Darkness Tour stand at t
 Bruce and the band play their fifth of six nights at the Philadelphia Spectrum. During the soundcheck, Bruce plays an original yet unreleased-to-this-day composition, "Beneath the Floodline."
 
 **1984:**<br>
-
-
 
 [https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F187932618&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F187932618&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
 
@@ -62,14 +49,10 @@ On an off-day between shows in Hartford, Bruce and Patti take a private tour of 
 
 **2003:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2003-09-17.jpg?resize=758%2C1648&amp;ssl=1)
 
 Bruce, Southside, Patti, and Bobby Bandiera and his band play a benefit at The Stone Pony for the Ranney School (which Bruce's kids attended).
 
 **2006:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/2006-0917-300x197.jpg?resize=756%2C497)

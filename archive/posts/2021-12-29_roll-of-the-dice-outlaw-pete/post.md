@@ -1,13 +1,9 @@
 > The past is never the past. It is always present. And you better reckon with it in your life and in your daily experience, or it will get you. It will get you really bad. It will come and devour you, it will remove you from the present. It will steal your future and this happens every day…
 >
->
->
 > In other words, your past is your past. You carry it with you always. These are your sins. You carry them with you always. You better learn how to live with them, learn the story that they're telling you. Because they're whispering your future in your ear, and if you don't listen, it will be contaminated by the toxicity of your past.
 >
 > — *Bruce Springsteen to Mark Hagen, The Guardian, January 18, 2009*<br>
 > Well the Maximum Lawman run down Flamingo chasing the Rat and the barefoot girl  And the kids 'round here look just like shadows, always quiet, holding hands
->
->
 >
 > In the tunnels uptown, the Rat's own dream guns him down as shots echo down them hallways in the night  No one watches when the ambulance pulls away or as the girl shuts out the bedroom light…
 >
@@ -132,7 +128,6 @@ In the end, Pete outruns his past in the only sure way possible. He leaves behin
 All we can do with our past is reckon with it. Because otherwise it will come for us, remove us from our present, and steal our future. Just like it did for Outlaw Pete.
 
 ---
-
 
 If "Outlaw Pete" met a mixed reception from E Street Nation in its album form, it was often treated with outright apathy in concert. A regular set list staple throughout the Working on a Dream Tour, "Outlaw Pete" usually featured early in the set, where its change-up pacing and novel length often threatened to sap the show of the kinetic energy Bruce had generated with his opening "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)."
 

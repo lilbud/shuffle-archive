@@ -1,10 +1,7 @@
 
-
 Steel Mill opens for Boz Scaggs for the second of three nights at The Matrix in San Francisco.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1972-02-14.jpg?resize=758%2C980&amp;ssl=1)
 

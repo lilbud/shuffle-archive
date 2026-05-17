@@ -1,24 +1,19 @@
 
-
 I love going to opening and closing nights of Springsteen tours.
 
 The last night is always a loose yet polished emotional marathon full of wild cards and rarities; the first night is short, tight, and safe–but equally unpredictable, since no one yet knows what to expect.
 
 At this opening show of the 2016 River Tour, I certainly wouldn't have expected this: a 3-1/2 hour, 34-song extravaganza to rival the best final-leg shows. It was certainly the best tour opener I'd ever seen.
 
-Even though the show was advertised as revolving around a full album performance of , I still couldn't believe that I'd just witnessed "," "Stolen Car" 
+Even though the show was advertised as revolving around a full album performance of , I still couldn't believe that I'd just witnessed "," "Stolen Car"
 
 *The River*[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)"" "," "," "" and more–all in a single show.[The Price You Pay,](http://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)[Fade Away](http://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)[Crush on You](http://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)
-
-
 
 I've seen shows with complete album sets before, and usually they're a novelty, an engaging mid-set detour. , though, is different–not just because of its length (20 songs is pretty close to 2/3 of a show), but also because Bruce has often described how he sequenced the album to mirror the roller coaster of his live shows, and sure enough: it translated perfectly.*The River*
 
 "" was a fun, fresh opener (at this show, at least–as the tour progressed, it wouldn't hold up anywhere near as well as the album, and I came to appreciate why it was left off).
 
 [Meet Me in the City](https://estreetshuffle.com/index.php/2020/08/23/roll-of-the-dice-meet-me-in-the-city/)
-
-
 
 Gone were the backup singers and horns from recent tours; this was the core E Street Band, as powerful as ever. Jake now fully assumed his late uncle's role, and as the only horn on stage, when he stepped forward for his first solo (watch the video below), the sustained roar of the crowd was an embrace, an acknowledgement, and a welcome into the role he'd earned over the past few years.
 

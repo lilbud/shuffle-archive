@@ -40,7 +40,7 @@ Enjoy Patti Scialfa, backed by Bruce Springsteen and The Sessions Band, performi
 
 [Watch Video Highlight](https://videopress.com/embed/VEBgViEj)
 
-**Bonus:** Patti's catalog hasn't been covered nearly as much as Bruce's has, but in 1999 Emmylou Harris and Linda Ronstadt chose "Valerie" for their duet album, *Western Wall: The Tucson Sessions."* 
+**Bonus:** Patti's catalog hasn't been covered nearly as much as Bruce's has, but in 1999 Emmylou Harris and Linda Ronstadt chose "Valerie" for their duet album, *Western Wall: The Tucson Sessions."*
 
 The song loses some of its power when performed as a duet, however, and even though Harris and Ronstadt are both superb vocalists, neither quite manage to summon the brave vulnerability that "Valerie" (like much of Patti's catalog) requires.
 

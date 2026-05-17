@@ -33,16 +33,12 @@ Remember, this is the man who only a few years earlier wrote one of the other de
 > *We swore we'd travel darlin' side by side*<br>
 > *We'd help each other stay in stride*<br>
 
-
-
 Granted, "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" is a romantic song and "Blood Brothers" a fraternal one, but the narrator of the latter seems to have lost the heart of the former.
 
 > *Now the hardness of this world slowly grinds your dreams away*<br>
 > *Making a fool's joke out of the promises we make*<br>
 > *And what once seemed black and white turns to so many shades of gray*<br>
 > *We lose ourselves in work to do, work to do and bills to pay*<br>
-
-
 
 If there's an emotional core to "Blood Brothers," this is it: that the passion and promise of youth inevitably comes under siege by the pressures of age.
 
@@ -114,7 +110,6 @@ Bruce completely excised the nihilistic last verse and replaced it with lyrics t
 In that last line, that last word, Bruce finally made the song explicitly about his band.
 
 ---
-
 
 When the E Street Band took to the road again on the Rising Tour, Bruce once again close the tour with "Blood Brothers," his band surrounding him.
 

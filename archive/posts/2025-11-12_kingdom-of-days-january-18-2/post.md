@@ -1,5 +1,4 @@
 
-
 Steel Mill headlines at D'Scene in South Amboy, New Jersey.
 
 **1971:**<br>
@@ -30,8 +29,6 @@ Bruce holds a solo recording session for at Thrill Hill West in Los Angeles.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1985-01-18a.png?resize=758%2C779&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/greensboro85-300x176.jpg?resize=758%2C445)
 
 On host Casey Kasem introduces "" with the story of the first show Bruce and Clarence ever played together.
@@ -51,8 +48,6 @@ On host Casey Kasem introduces "" with the story of the first show Bruce and Cla
 [https://www.youtube.com/embed/Wu9RsJnf_c8?feature=oembed](https://www.youtube.com/embed/Wu9RsJnf_c8?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1989-01-18.png?resize=758%2C306&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1985-01-18b.png?resize=758%2C1256&amp;ssl=1)
 
@@ -87,8 +82,6 @@ Bruce makes a guest appearance at Light of Day, playing a song each with Jesse M
 [https://www.youtube.com/embed/sLeNRCWnjfc?feature=oembed](https://www.youtube.com/embed/sLeNRCWnjfc?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2014-01-18a.png?resize=758%2C1776&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_2014_01_20_Page_A8-scaled.jpg?resize=758%2C1039&amp;ssl=1)
 

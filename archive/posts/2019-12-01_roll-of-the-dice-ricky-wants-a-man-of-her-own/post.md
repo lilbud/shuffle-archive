@@ -78,7 +78,7 @@ I was genuinely surprised that "Ricky" didn't get an encore during the 2016 Rive
 [Watch Video Highlight](https://videopress.com/embed/Zef83eCx)
 
 **Ricky Wants a Man of Her Own**<br>
-**Recorded:** July 16, 1979  
+**Recorded:** July 16, 1979
 **Released:** *Tracks* (1998), *The Ties That Bind: The River Collection* (2015)
 **First performed:** August 24, 2008 (Kansas City, MO)<br>
 **Last performed:** August 24, 2008 (Kansas City, MO)<br>

@@ -1,5 +1,4 @@
 
-
 X Ambassadors make absolutely no secret about their appreciation for Bruce's music–they cite him as an influence on their music pretty frequently in interviews. Heck in 2016, they even said they'd have cut their show short in order to catch his encore when they learned he'd been playing just across the street from them in Brooklyn.
 
 [https://player.vimeo.com/video/155140418?dnt=1&amp;app_id=122963](https://player.vimeo.com/video/155140418?dnt=1&amp;app_id=122963)

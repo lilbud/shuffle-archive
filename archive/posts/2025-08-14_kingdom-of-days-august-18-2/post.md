@@ -1,5 +1,4 @@
 
-
 *Audio for 1978; review for 2008; new entry for 2024***New for 2025:**
 
 Bruce and the E Street Band bring the Darkness Tour to Philadelphia for the first of two nights at The Spectrum. Gary Busey joins the band for the final two encores of "" and "."
@@ -22,11 +21,7 @@ Bruce and the band kick off a four-night stand at Giants Stadium (they will retu
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1985-08-18a.png?resize=758%2C936&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-08-18b-282x300.png?resize=758%2C806)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-08-18c-176x300.png?resize=758%2C1292)
 
@@ -38,11 +33,7 @@ Bruce and his new touring band play their second night at The Palace of Auburn H
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-18a-206x300.png?resize=758%2C1104)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-18b-300x292.png?resize=758%2C738)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-18c-213x300.png?resize=758%2C1068)
 
@@ -56,27 +47,17 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 [If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)[Boom Boom](http://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/2001-0818a-300x200.jpg?resize=758%2C505)
 
 …and because that wasn't enough for one day, he stuck around to join John Eddie on stage for "."
 
 *still*[Suspicious Minds](http://estreetshuffle.com/index.php/2019/03/09/matr-bruce-springsteen-john-eddie-and-friends-suspicious-minds/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/2001-0818b-300x219.jpg?resize=758%2C553)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2001-08-18a.png?resize=758%2C1526&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2001-08-18b-235x300.png?resize=758%2C968)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2001-08-18c-300x105.png?resize=758%2C265)
 
@@ -97,8 +78,6 @@ Bruce and the E Street Band take the Magic Tour into its final week with a show 
 [https://www.youtube.com/embed/GG57M4yVa4g?feature=oembed](https://www.youtube.com/embed/GG57M4yVa4g?feature=oembed)
 
 [https://www.youtube.com/embed/3NNS7DrhHv0?feature=oembed](https://www.youtube.com/embed/3NNS7DrhHv0?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/08/Richmond_Times_Dispatch_2008_08_19_B1.jpg?resize=758%2C807&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/08/Richmond_Times_Dispatch_2008_08_19_B3.jpg?resize=758%2C417&amp;ssl=1)
 

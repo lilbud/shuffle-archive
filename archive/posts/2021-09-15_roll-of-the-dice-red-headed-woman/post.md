@@ -1,7 +1,5 @@
 > "I think it's one of the finest songs ever written on the subject, but I don't know what the competition might be. Needless to say, the field is wide open."
 >
->
->
 > — *Bruce Springsteen introducing "Red Headed Woman," September 25, 1996*<br>
 
 Ladies and gentlemen, the comedy stylings of Mr. Bruce Springsteen:

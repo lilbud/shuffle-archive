@@ -1,7 +1,5 @@
 > "There's a world of love, a world of beauty, a world of fear and a world of loss and they are the same world and that person is wending his way through that maze and at that moment he's very in touch with both of those things. ["I Wish I Were Blind"] gets that picture.
 >
->
->
 > — Bruce Springsteen to David Hepworth, *Q Magazine*, August 1992
 
 I have a love/hate relationship with *Human Touch*, and "I Wish I Were Blind" epitomizes it.

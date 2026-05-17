@@ -1,5 +1,4 @@
 
-
 "Samson and Delilah" dates back to recordings in the 1920s, and probably a whole lot farther.
 
 Several versions were recorded and released in and around 1927 under the name "If I Had My Way," most famously this menacing-sounding version by Blind Willie Johnson.

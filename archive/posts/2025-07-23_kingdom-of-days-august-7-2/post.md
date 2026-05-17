@@ -1,24 +1,17 @@
 
-
 *Expanded entry for 1973; new entry for 2024***New for 2025:**
 
 The Bruce Springsteen Band headlines at Asbury Park's Sunshine In.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1971-08-07-300x216.png?resize=758%2C545)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1971-0807-231x300.jpg?resize=758%2C984)
 
 A scheduled show at Uncle Al's Erlton Theatre Lounge in Cherry Hill is likely postponed (no record exists of this show having taken place) to the following week. Instead, Bruce works on overdubs and mixing for "," "New York City Serenade," and "Zero and Blind Terry."
 
 **1973:** [Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/Courier_Post_1973_07_21_Page_25.jpg?w=758&amp;ssl=1)
 
@@ -33,8 +26,6 @@ Bruce and the E Street Band wrap up their six-night stand at the Monmouth Arts C
 The Darkness Tour stop in Kalamazoo underperforms in ticket sales, with over half of the seats at Wings Stadium going unoccupied.
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1978-0807-300x155.jpg?resize=758%2C392)
 
@@ -66,15 +57,9 @@ The stadium leg of the Born in the U.S.A. Tour picks up steam at Cleveland Munic
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-07-300x264.png?resize=758%2C667)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-07a-300x296.png?resize=758%2C748)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-07b-257x300.png?resize=758%2C885)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1985-0807-300x273.jpg?resize=742%2C675)
 
@@ -102,8 +87,6 @@ The Rising Tour officially kicks off and Soozie Tyrell makes her official E Stre
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2002-08-07b-203x300.png?resize=758%2C1120)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/2002-0807-187x300.jpg?resize=758%2C1216)
 
 Bruce opens his solo acoustic show at Milwaukee's Bradley Center with the tour premiere (and tour one-off) of "" and follow up shortly thereafter with the tour premiere of "."
@@ -113,8 +96,6 @@ Bruce opens his solo acoustic show at Milwaukee's Bradley Center with the tour p
 [https://www.youtube.com/embed/Xbni_yrA3EE?feature=oembed](https://www.youtube.com/embed/Xbni_yrA3EE?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2005-08-07a.png?resize=522%2C3132&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2005-08-07b-208x300.png?resize=758%2C1093)
 

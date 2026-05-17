@@ -1,5 +1,4 @@
 
-
 There are of Bruce Springsteen's "" floating around out there that I had to put a temporary moratorium on featuring them on this blog to avoid accidentally creating its own sub-blog.
 
 [so many covers](http://estreetshuffle.com/?s=i%27m+on+fire)[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)

@@ -17,5 +17,3 @@ Shovels & Rope get it. They understand that Jonny's defiance is a false, manic f
 And that last verse… *that's* how I always imagined Johnny 99 in that courtroom in the end.
 
 A powerful, well-done cover.
-
-

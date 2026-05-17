@@ -1,8 +1,5 @@
 
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/2016-02-04-229x300.jpg?resize=758%2C993)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1973-02-04.jpg?resize=436%2C500&amp;ssl=1)
 
@@ -19,8 +16,6 @@ Bruce and the as-yet-unnamed E Street Band play their fifth of six nights at Max
 Bruce and the band play Southern Illinois University in Carbondale along the original River Tour.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-02-04.jpg?resize=605%2C936&amp;ssl=1)
 
@@ -41,8 +36,6 @@ Bruce plays his first ever Australian solo acoustic show at the QPAC Concert Hal
 debuts at #1 on the Billboard album chart, bumping defending champion Taylor Swift.
 
 **2009:** *Working on a Dream*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/Star_Phoenix_2009_02_05_22.jpg?w=758&amp;ssl=1)
 

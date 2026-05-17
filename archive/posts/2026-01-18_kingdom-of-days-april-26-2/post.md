@@ -1,18 +1,13 @@
 
-
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1968-04-26.jpg?resize=358%2C500&amp;ssl=1)
 
 The new issue of features a profile of Bruce, their first of many to come. (Thanks to Andy Swanson for the scan!)
 
 **1973:** *Rolling Stone*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1973-04-26-scaled.jpg?resize=758%2C1249&amp;ssl=1)
 
@@ -34,7 +29,7 @@ Bruce plays his first-ever show in Belgium (and the first ever "Stolen Car" in E
 
 [https://videopress.com/embed/UyXUhTpJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UyXUhTpJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce in the studio at the Power Station in New York, recording for what will become 
+Bruce in the studio at the Power Station in New York, recording for what will become
 
 **1982:** *Born in the U.S.A.*
 
@@ -47,8 +42,6 @@ Bruce in the studio at the Power Station in New York, recording for what will be
 Douglas Springsteen, Bruce's father, passes away at the age of 73.
 
 **1998:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1998-04-26.jpg?resize=540%2C885&amp;ssl=1)
 
@@ -74,11 +67,7 @@ Bruce releases his thirteenth studio album. (The album was released in Europe a 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2005-04-26a.jpg?resize=758%2C635&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-26b.jpg?resize=758%2C804&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2005-04-26c.jpg?resize=674%2C985&amp;ssl=1)
 
@@ -119,8 +108,6 @@ Los Angeles gets a pair of Wrecking Ball shows at the Sports Arena. Night One se
 [https://www.youtube.com/embed/SGPqKkOu8-U?feature=oembed](https://www.youtube.com/embed/SGPqKkOu8-U?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2012-04-26a.jpg?resize=648%2C1373&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2012-04-26b.jpg?resize=706%2C958&amp;ssl=1)
 

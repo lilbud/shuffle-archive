@@ -54,7 +54,6 @@ The penultimate lines of the song are a callback to "If I Should Fall Behind" (i
 
 ---
 
-
 "Book of Dreams" is intimate and delicate; perhaps that's why Bruce has only performed it a mere eight times in the more-than-a-quarter-century since its release. The bulk of those were during the original tour for *Human Touch* and *Lucky Town*, the remainder from Bruce's solo acoustic tour in 2005, which afforded the opportunity for quiet, introspective material.
 
 Fortunately, a few of those rare performances were captured on video, beginning with the song's very first performance at a homecoming show in 1992. Bruce performs "Book of Dreams" in an arrangement very close to the album, but with the lovely addition of backing vocalists during the outro.
@@ -70,7 +69,7 @@ But my favorite performance is this one from 2005. It was the first time Bruce p
 [Watch on Youtube: Bruce Springsteen - Book Of Dreams [Glendale April 30, 2005]](https://www.youtube.com/watch?v=ekEtFpBLDnE)
 
 **Book of Dreams**<br>
-**Recorded:** Late 1991  
+**Recorded:** Late 1991
 **Released:** *Lucky Town* (1992)<br>
 **First performed:** August 2, 1992 (East Rutherford, NJ)<br>
 **Last performed:** June 13, 2005 (Munich, Germany)<br>

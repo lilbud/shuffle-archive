@@ -13,14 +13,12 @@ So some weeks back, I made the decision to put this site on half-time status... 
 - [*Kingdom of Days*](https://estreetshuffle.com/index.php/category/kingdom-of-days/) still runs daily, without interruption.
 - *[Roll of the Dice,](https://estreetshuffle.com/index.php/category/roll-of-the-dice/) [Cover Me](https://estreetshuffle.com/index.php/category/cover-me/), [Meeting Across the River](https://estreetshuffle.com/index.php/category/meeting-across-the-river/)*, and [*Spare Parts*](https://estreetshuffle.com/index.php/category/spare-parts/) all share an "every other day" posting schedule–three or four posts a week in total.
 
-
 This schedule change gives me a lot of time back in my week, and (so far, at least) enables me to keep a regular cadence going.
 
 It also adds a couple of other benefits:
 
 - I now have time to add new video to *Kingdom of Days* posts that can't be found on YouTube (see [today's post](https://estreetshuffle.com/index.php/2022/05/07/kingdom-of-days-may-7/) for two examples).
 - New posts will continue at least into 2023, maybe longer if Bruce releases or covers new music during that time. (Originally, I'd planned to wrap up the site this year.)
-
 
 One thing's certain: I have no intention of stopping until we make it through every song–and there's still about 200 left to go.
 

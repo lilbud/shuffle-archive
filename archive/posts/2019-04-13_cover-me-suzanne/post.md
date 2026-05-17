@@ -1,5 +1,4 @@
 
-
 Bruce covered Leonard Cohen's "Suzanne" just once, with the Castiles, the same year that Cohen released his debut single.
 
 This performance is from the Castiles' show at The Left Foot in Freehold on September 16, 1967:

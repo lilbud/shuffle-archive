@@ -1,27 +1,15 @@
 > *The "radio man" is coming. That's how my grandfather is known… I am simply the young protégé grandson of the "radio man."*<br>
-> 
-> 
-> 
+>
 > *[My grandparents'] house was old and soon to be noticeably decrepit. One kerosene stove in the living room was* *all we had to heat the whole place.*<br>
-> 
-> 
-> 
+>
 > *My grandparents fell into a state of poor hygiene and care that would shock and repel me now… But I loved them and that house.*<br>
-> 
-> 
-> 
+>
 > *The grinding hypnotic power of this ruined place and these people would never leave me. I visit it in* *my dreams today, returning over and over, wanting to go back. It was a place where I felt an ultimate* *security, full license and a horrible unforgettable boundary-less love.*<br>
-> 
-> 
-> 
+>
 > *Soon… my grandfather would be dead and my grandmother would be filled with cancer.*<br>
-> 
-> 
-> 
+>
 > *One night at the age of three, Pam left my parents' room and for the only time in her young life climbed into my grandmother's bed. She slept there all night, lying beside my grandmother as she died. In the morning, my mother checked on my grandma and she was still. When I came home from school that day, my world collapsed. Tears, grief, weren't enough. I wanted death. I needed to join her. Even as a teenager, I could not imagine a world without her.*<br>
-> 
-> 
-> 
+>
 > — Bruce Springsteen, *Born to Run*<br>
 
 The early pages of Bruce Springsteen's autobiography conjure a place of awesome power and influence over his young life: the decrepit home of his paternal grandparents, Fred and Alice Springsteen, at 87 Randolph Street in Freehold, New Jersey.
@@ -120,9 +108,9 @@ Mask up, everybody.
 
 ![](../../assets/2020/12/obit.png)
 
-**Randolph Street  
-**Recorded:** April 1972  
-**Never released**  
+**Randolph Street
+**Recorded:** April 1972
+**Never released**
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

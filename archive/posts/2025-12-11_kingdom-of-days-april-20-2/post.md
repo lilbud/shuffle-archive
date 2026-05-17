@@ -1,5 +1,4 @@
 
-
 Child performs at Hullabaloo in Asbury Park.
 
 **1969:**<br>
@@ -8,19 +7,13 @@ Bruce and the still-unnamed E Street Band perform a truncated show (for fire saf
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0420.jpg?resize=440%2C395&amp;ssl=1)
 
 Bruce and the band play a sparsely attended show at the Freedom Hall Civic Center in Johnson City, Tennessee.
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-04-20.jpg?resize=473%2C824&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1976-04-20b.jpg?resize=758%2C1169&amp;ssl=1)
 
@@ -90,8 +83,6 @@ The first public warm-up show for the Seeger Sessions Tour features the premiere
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2006-04-20a.jpg?resize=484%2C959&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2006-04-20b.jpg?resize=758%2C686&amp;ssl=1)
 
 Bruce attends (but does not perform at) the annual Kirsten Ann Carr Fund event.
@@ -113,7 +104,5 @@ At Baltimore's River show, "I Wanna Marry You" features one of what turns into s
 continues its theatrical run at the Walter Kerr Theater in New York City. Eddie Vedder, Steven Tyler and actress Connie Britton are in attendance tonight for the last show before a two-week break.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/04/connie-britton.jpg?resize=596%2C416&amp;ssl=1)

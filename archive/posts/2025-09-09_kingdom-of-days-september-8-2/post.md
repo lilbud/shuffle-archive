@@ -1,12 +1,9 @@
 
-
 *New entry for 1977 and 2024***New for 2025:**
 
 Bruce and the E Street Band play an afternoon show for the University of Pittsburgh and Carnegie Mellon University.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1973-0908-300x237.jpg?resize=758%2C599)
 
@@ -56,8 +53,6 @@ Future honorary/second-generation E Streeter and Slipknot drummer Jay Weinberg i
 
 **1990:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/maxweinbergjay-300x263.jpg?resize=758%2C665)
 
 Bruce wins the MTV Video Music Award for Best Video from a Film for "" (although he loses to Tom Petty's "Mary Jane's Last Dance" in the Best Male Video category). Bruce appears live at the awards, performing his award-winning song backed by Roy, Max, Bobby King, and Tommy Sims.
@@ -77,8 +72,6 @@ Bruce and the reunited E Street Band play their first of two shows at The Palace
 [https://videopress.com/embed/DjhQvXvh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DjhQvXvh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1999-09-08-300x89.jpg?resize=758%2C225)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1999-09-08a-300x109.jpg?resize=758%2C275)
 

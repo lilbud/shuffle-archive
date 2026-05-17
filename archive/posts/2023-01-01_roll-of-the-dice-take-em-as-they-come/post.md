@@ -77,7 +77,6 @@ Whether you read the song literally or metaphorically, what's clear is that he t
 > *What I'd do for you, little one*<br>
 > *I swear I'll take 'em baby when they come*<br>
 
-
 That last line is as chilling as any in Springsteen's catalog. What lengths will our anti-hero go to for his love? We can only shudder and wonder.
 
 But we can't end a discussion of "Take 'em as They Come" without mentioning the brilliant false ending: as the guitars fade, Max holds the beat–and holds, and holds, and holds–until the band finally returns and carries the song into the night. It's more than a clever device–it underscores the narrator's determination to never let his guard down, to always be on watch, to never stop moving.
@@ -85,7 +84,6 @@ But we can't end a discussion of "Take 'em as They Come" without mentioning the 
 It's a brilliant ending to a powerful song.
 
 ---
-
 
 Bruce reunited the E Street Band shortly after releasing his *Tracks* box set, and especially during the early legs of the tour, his outtake collection provided the E Street Band with a lot of new material to supplement their classics.
 

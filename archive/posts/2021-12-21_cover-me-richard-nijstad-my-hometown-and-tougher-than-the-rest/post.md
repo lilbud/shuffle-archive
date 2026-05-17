@@ -1,5 +1,4 @@
 
-
 Richard Nijstad has only been playing the guitar since 2010, but he's a lifelong Springsteen fan.
 
 As a young boy in The Netherlands in the 1980s, Richard grew up to Bruce's music on the radio. He spent the first money he ever earned on Bruce's albums, imitated Bruce's performances, and surrounded himself in Bruce's music his whole life.

@@ -1,5 +1,4 @@
 
-
 Another one for the completists.
 
 We'll have to take Brucebase's word on it that Bruce supplied backing vocals and guitar when The Four Tops and Diana Ross performed the Four Tops' hit "I Can't Help Myself" at the Rock and Roll Hall of Fame induction ceremony back in 1990.

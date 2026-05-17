@@ -1,5 +1,4 @@
 
-
 "Gloria" is a riff-rock classic that's perfectly suited for the E Street Band's guitar-heavy arsenal. It's turned up in Bruce's setlist more than a dozen times over the years, and that's including its frequent mini-appearance as a lead-in to "." It's clearly a significant song for Bruce, as you can hear in this conversation between Bruce and Steve from the Underground Garage in 2011.
 
 *not*[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)

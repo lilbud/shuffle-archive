@@ -1,20 +1,15 @@
 
-
 *New entry for 1972, 1975, 1983, and 2024; audio for 1985***New for 2025:**
 
 Adele Springsteen takes Bruce and Ginny to their first-ever rock concert when Chubby Checker plays at Steel Pier in Atlantic City. She also takes them to see Anita Bryant that evening. Bruce enjoys the afternoon show a lot more than the evening show.
 
 **1962:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1962-0629-300x187.jpg?resize=758%2C473)
 
 The Castiles play a show at Hullabaloo in Freehold, New Jersey.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1968-06-29.jpg?resize=758%2C1354&amp;ssl=1)
 
@@ -68,11 +63,7 @@ In the setlist, a couple of notable moments: Bruce covers "" for the first time,
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-06-29a-300x127.jpg?resize=758%2C321)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-06-29b-152x300.jpg?resize=758%2C1496)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-06-29-171x300.jpg?resize=758%2C1329)
 
@@ -108,8 +99,6 @@ Bruce plays a 20-minute-long "Twist and Shout" with The Fabulous Greaseband at T
 
 **1989:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Asbury_Park_Press_1989_07_09_Page_135-scaled.jpg?resize=324%2C2560&amp;ssl=1)
 
 Bruce records "" at Oceanway Studios in Los Angeles.
@@ -130,11 +119,9 @@ Bruce and Patti publicly reveal that their third child is on the way.
 
 **1993:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1993-06-29-300x233.jpg?resize=758%2C589)
 
-Bruce and the E Street Band play their penultimate Reunion show at Madison Square Garden, their ninth show of this final MSG stand. Several songs from this show are recorded, filmed, and eventually released on 
+Bruce and the E Street Band play their penultimate Reunion show at Madison Square Garden, their ninth show of this final MSG stand. Several songs from this show are recorded, filmed, and eventually released on
 
 **2000:***Live in New York City.*
 
@@ -148,11 +135,7 @@ Bruce discovers a painting of himself by local high school student Michael Antri
 
 **2004:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/2004-0629-300x212.jpg?resize=758%2C535)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Asbury_Park_Press_2004_05_16_Page_47-scaled.jpg?resize=758%2C2023&amp;ssl=1)
 
@@ -187,8 +170,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 It's Night Two for the return engagement of and Bob Seger is in attendance.
 
 **2021:** *Springsteen on Broadway*,
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/2021-06-29.jpg?resize=281%2C500&amp;ssl=1)
 

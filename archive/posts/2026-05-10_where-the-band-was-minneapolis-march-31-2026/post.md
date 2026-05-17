@@ -64,8 +64,6 @@ Although he typically let such attempts pass by without comment, Bruce responded
 
 [Watch Video Highlight](https://videopress.com/embed/4C0NYp0F?hd=0&cover=1)
 
-
-
 Both times, though, he was brief enough and sly enough that his remarks went mostly unnoticed.
 
 This time was different. On stage during the Vote for Change Tour that fall, Bruce abandoned all pretense at subtlety, opening his sows with the "Star-Spangled Banner" and using "Mary's Place" as a nightly set piece to galvanize his audience into action.

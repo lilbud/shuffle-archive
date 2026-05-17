@@ -49,5 +49,3 @@ That performance was nowhere near as daring or expansive as any of the Bruce Spr
 **Walking the Dog**<br>
 **First performed:** December 11, 1971 (Asbury Park, NJ)<br>
 **Last performed:** July 17, 2004 (Asbury Park, NJ)<br>
-
-

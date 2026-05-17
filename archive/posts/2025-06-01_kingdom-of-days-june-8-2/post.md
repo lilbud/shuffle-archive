@@ -1,5 +1,4 @@
 
-
 *New entry for 1977***New for 2025:**
 
 The Castiles play a show at the Hullabaloo in Middletown, New Jersey.
@@ -9,8 +8,6 @@ The Castiles play a show at the Hullabaloo in Middletown, New Jersey.
 Bruce and the E Street Band open for Chicago at Boston Garden.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1973-0608.jpg?resize=758%2C1137&amp;ssl=1)
 
@@ -28,8 +25,6 @@ The Darkness Tour stops in Madison for a show at the Dane County Memorial Colise
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/madison78-206x300.jpg?resize=758%2C1102)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-06-08-300x148.jpg?resize=758%2C374)
 
 The European leg of the River Tour wraps up with a second show in Birmingham, England.
@@ -45,8 +40,6 @@ Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in 
 [https://www.youtube.com/embed/_vH_efNE9ZU?feature=oembed](https://www.youtube.com/embed/_vH_efNE9ZU?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-06-08a-300x176.jpg?resize=758%2C445)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1984-06-08-71x300.jpg?resize=758%2C3203)
 

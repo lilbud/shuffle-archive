@@ -1,10 +1,7 @@
 
-
 Bruce plays his first ever show in Washington, D.C. at Childe Harold. David Sancious (not yet a member of the E Street Band) sits in.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1973-0524.jpg?resize=758%2C432&amp;ssl=1)
 
@@ -12,11 +9,7 @@ Bruce and the E Street Band headline a show at the War Memorial Theater in Trent
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1974-05-24.jpg?resize=525%2C419&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1974-0524.jpg?resize=758%2C534&amp;ssl=1)
 
@@ -25,8 +18,6 @@ Night Two of the Darkness Tour (at Albany's Palace Theater) is similar to Night 
 **1978:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Bennington_Banner_Fri__May_26__1978_-scaled.jpg?resize=758%2C964&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1978-0524.jpg?resize=758%2C354&amp;ssl=1)
 

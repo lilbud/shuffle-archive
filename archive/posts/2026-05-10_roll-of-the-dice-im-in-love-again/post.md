@@ -50,10 +50,10 @@ The combination of pop trifle, powerful guest vocals, bright brass, and a hotsho
 
 Bring on summer!
 
-**I'm in Love Again  
-Never recorded  
-Never released  
-First performed:** July 23, 1971 (New York City, NY)  
+**I'm in Love Again
+Never recorded
+Never released
+First performed:** July 23, 1971 (New York City, NY)
 **Last performed:** July 29, 1971 (South Amboy, NJ)<br>
 
 © May 23, 2020

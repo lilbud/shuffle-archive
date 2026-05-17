@@ -1,14 +1,9 @@
 
-
 Child performs at the Pandemonium in Wanamassa, New Jersey.
 
 **1969:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1969-0409.jpg?resize=597%2C600&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Asbury_Park_Press_Fri__Apr_11__1969_-scaled.jpg?resize=758%2C288&amp;ssl=1)
 
@@ -74,8 +69,6 @@ The first public E Street Band concert since 1988, as the Reunion Tour kicks off
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/44767315550_2391743b54_o.jpg?resize=758%2C533&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/44767315690_66ce7d7276_o.jpg?resize=758%2C520&amp;ssl=1)
 
 Kansas City gets an outstanding set list for their Reunion show: Bruce opens with "Take ‘Em as They Come" and plays "Downbound Train" and "Racing in the Street" later in the set.
@@ -94,8 +87,6 @@ The Rising Tour returns to North America as Bruce and the band play Arco Arena i
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/2003-04-09a.jpg?resize=400%2C821&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2003-04-09b.jpg?resize=695%2C931&amp;ssl=1)
 
 Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list features the tour premieres of "Spirit in the Night" and "Backstreets," and the show breaks the three-hour mark.
@@ -109,8 +100,6 @@ Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list feat
 The Hear the World Foundation announces that Bruce will serve as an ambassador to raise awareness for the non-profit organization's campaign to prevent hearing loss.
 
 **2018:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/04/Bruce_Springsteen_joins_Hear-the-world-as-ambassador.jpg?resize=758%2C1011&amp;ssl=1)
 

@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1971-12-10.png?resize=758%2C913&amp;ssl=1)
 
@@ -42,15 +39,11 @@ Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, wher
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1984-12-11a.png?resize=758%2C333&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1984-12-11b.png?resize=758%2C528&amp;ssl=1)
 
 Inclement weather forces the postponement of a scheduled show in Pittsburgh to five days later.
 
 **1992:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-12-11.png?resize=758%2C222&amp;ssl=1)
 

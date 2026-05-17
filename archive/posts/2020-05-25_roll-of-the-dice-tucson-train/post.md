@@ -79,7 +79,6 @@ We can't help but root for them.
 
 ---
 
-
 In the year since its release, Bruce has only performed "Tucson Train" live once, at a private concert in his barn that was filmed for his *Western Stars* film.
 
 It's a beautiful performance, but it doesn't quite measure up to the album track. The strings are a bit too far forward, and the warm french horns a tad too buried. Still, it's a performance worth owning in both video and audio format.

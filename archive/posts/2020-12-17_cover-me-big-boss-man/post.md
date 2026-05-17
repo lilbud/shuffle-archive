@@ -1,5 +1,4 @@
 
-
 Talk about a pedigree: Jimmy Reed's "Big Boss Man" may only have been a modest hit when it was first released in 1960 (it only reached #78 on the Billboard Hot 100, although it made it to #13 on the R&B chart)…
 
 [https://www.youtube.com/embed/Dd-o_kLONVI?feature=oembed](https://www.youtube.com/embed/Dd-o_kLONVI?feature=oembed)

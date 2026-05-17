@@ -1,5 +1,4 @@
 
-
 After impressing John Hammond the day prior, Bruce records fourteen demo tracks at Columbia Records in New York City. Four of them ("Mary Queen of Arkansas," "It's Hard to Be a Saint in the City," "Growin' Up," and "Does This Bus Stop at 82nd Street?" will be released more than a quarter century later on . Others, like "Two Hearts in True Waltz Time" and "Street Queen," remain unreleased.
 
 **1972:** *Tracks*
@@ -41,8 +40,6 @@ Night Two at the Shoreline Amphitheater in Mountain View, California for the Tun
 is certified 6x multi-platinum by the Recording Industry Association of America, and Canada gets its first Reunion show (and first-ever "Land of Hope and Dreams") on the first of two nights at the Air Canada Center in Toronto.
 
 **2000:***Born to Run* <https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2000-05-03.jpg?resize=758%2C1460&amp;ssl=1)
 

@@ -1,5 +1,4 @@
 
-
 Singer-songwriter John Wesley Harding is no stranger to Bruce's music. He's performed with Bruce twice before (including a wonderful ), and Bruce hand-picked Harding to be his opening act–Bruce's first in two decades–during his 1995 Berkeley gigs.
 
 ["Wreck on the Highway" duet](http://estreetshuffle.com/index.php/2018/06/18/kingdom-of-days-june-18/)

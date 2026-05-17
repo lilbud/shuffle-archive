@@ -1,8 +1,5 @@
 
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G1-1-scaled.jpg?resize=758%2C1084&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3-1-scaled.jpg?resize=758%2C1083&amp;ssl=1)
 
@@ -10,19 +7,13 @@ Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting)
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1971-04-16.jpg?resize=758%2C456&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1971-0416.jpg?resize=701%2C800&amp;ssl=1)
 
 Bruce and the E Street Band play Allegheny College in Meadville, Pennsylvania. The school paper pans the concert by two different reviewers.
 
 **1976:** *twice*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0416.jpg?resize=757%2C800&amp;ssl=1)
 
@@ -64,8 +55,6 @@ Bruce endorses Senator Barack Obama for president of the United States in an end
 
 **2008:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-04-16.jpg?resize=758%2C820&amp;ssl=1)
 
 At Night Two at the L.A. Sports Arena, Mike Ness guest stars on "Bad Luck" and "The Rising." Making their tour debuts: "Candy's Room," "Adam Raised a Cain," "Proud Mary," "Hungry Heart," and "Backstreets."
@@ -89,7 +78,5 @@ Albany's Wrecking Ball show includes a rare, solo acoustic "Janey, Don't You Los
 Bruce, Patti, and Little Steven attend opening night of on Broadway.
 
 **2013:** *The Rascals: Once Upon a Dream*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/medium-4.jpg?resize=500%2C333&amp;ssl=1)

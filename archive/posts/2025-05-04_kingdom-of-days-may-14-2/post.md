@@ -1,16 +1,11 @@
 
-
 *New entry for 1973, 1979, and 1982; audio for 1993; video for 2016***New for 2025:**
 
 Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under that name, at Asbury Park's Sunshine In.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1971-05-14.jpg?resize=758%2C766&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1971-0514-300x191.jpg?resize=752%2C478)
 
@@ -36,19 +31,15 @@ Those poor ticket holders for Bruce's second River Tour show in Manchester, Engl
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1981-0514-300x213.jpg?resize=758%2C538)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Daily_Mail_Thu__May_21__1981_-scaled.jpg?resize=758%2C197&amp;ssl=1)
 
-Bruce and the E Street Band are in the studio at the Power Station in New York City, working on what will become 
+Bruce and the E Street Band are in the studio at the Power Station in New York City, working on what will become
 
 **1982:** *Born in the U.S.A.*
 
 Bruce and Julianne hold their wedding reception, a day after their wedding.
 
 **1985:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1985-05-14.jpg?resize=758%2C1338&amp;ssl=1)
 
@@ -121,8 +112,6 @@ The High Hopes Tour makes its penultimate stop in Hershey, Pennsylvania, where t
 [https://www.youtube.com/embed/qz-EYmmp7_g?feature=oembed](https://www.youtube.com/embed/qz-EYmmp7_g?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2014-05-14a-1.jpg?resize=758%2C818&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2014-05-14b.jpg?resize=504%2C1938&amp;ssl=1)
 

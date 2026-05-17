@@ -18,7 +18,7 @@ Next, the song I'd always chased–the song at the very top of my as-yet-unheard
 
 How do you follow a moment like that? With a so-rare-he's-only-played-it-*once*-in-30-years cover of "[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)." Oddly, I was there the last time he played it–[in St. Louis the year prior](https://estreetshuffle.com/index.php/2018/08/23/where-the-band-was-st-louis-august-23-2008/), a strange coincidence–but it seemed more fitting here. "Mountain of Love" featured in several 1975 setlists, but only in Pennsylvania shows.
 
-Setlist rarities weren't the only thing that made this show stand out–it was also the first time I got a glimpse of next-generation E Street, when Jay Weinberg sat in for his dad on drums for the back half the main set (as he would go on to do for much of the tour), and he was a force of nature. 
+Setlist rarities weren't the only thing that made this show stand out–it was also the first time I got a glimpse of next-generation E Street, when Jay Weinberg sat in for his dad on drums for the back half the main set (as he would go on to do for much of the tour), and he was a force of nature.
 
 This show was pretty early on the first leg of the Working on a Dream tour, so I was lucky enough to hear two of my favorite songs from that album that would be dropped from the set soon enough: "[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)" and "[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)."
 

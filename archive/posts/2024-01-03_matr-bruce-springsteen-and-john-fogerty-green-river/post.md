@@ -1,5 +1,4 @@
 
-
 The third time was the charm.
 
 Bruce's set lists have featured covers of John Fogerty's songs for decades. "," "," "Proud Mary," and "Travelin' Band" have made dozens of appearances on the E Street stage, but one of Fogerty's five #2 singles with Creedence Clearwater Revival (none of their songs ever made it to #1) was maddeningly elusive.

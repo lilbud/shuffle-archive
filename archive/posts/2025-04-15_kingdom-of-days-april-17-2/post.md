@@ -1,12 +1,9 @@
 
-
 *Audio for 1999***New for 2025:**
 
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1971-0417-300x233.jpg?resize=747%2C580)
 
@@ -14,11 +11,7 @@ Bruce and the E Street Band play a show at the University of Rochester.
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-04-17-196x300.jpg?resize=758%2C1160)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0417-290x300.jpg?resize=758%2C784)
 
@@ -41,8 +34,6 @@ Bruce's Tunnel of Love Express show at the St. Louis Arena is captured by a fan 
 [https://videopress.com/embed/1nnfAY8D?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1nnfAY8D?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-17a-300x193.jpg?resize=758%2C488)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-17b-204x300.jpg?resize=758%2C1114)
 
@@ -71,8 +62,6 @@ Joe Ely guest-stars for "" at Bruce and the E Street Band's Reunion show in Aust
 Original E Street Band (and Child and Steel Mill) member Danny Federici passes away after a long battle against melanoma.
 
 **2008:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-17.jpg?resize=758%2C1088&amp;ssl=1)
 

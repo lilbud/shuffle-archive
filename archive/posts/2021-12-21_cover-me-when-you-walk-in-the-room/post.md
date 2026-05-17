@@ -1,5 +1,4 @@
 
-
 When Bruce Springsteen played his historic stand at The Bottom Line in the summer of '75, he debuted a new cover for the occasion.
 
 "When You Walk in the Room" was written and first released by Jackie DeShannon toward the end of 1963. It barely cracked the Billboard Hot 100, peaking at #99.

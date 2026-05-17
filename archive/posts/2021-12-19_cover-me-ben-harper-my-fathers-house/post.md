@@ -1,5 +1,4 @@
 
-
 At the 32nd annual Kennedy Center Honors (the highest honor the U.S. bestows on individuals who influence American arts and culture), an array of artists assembled to pay tribute to Bruce Springsteen.
 
 All of the performances were gorgeous that night (see my post on for one of my favorites), but Ben Harper's rendition of "" may have been the most heartfelt.

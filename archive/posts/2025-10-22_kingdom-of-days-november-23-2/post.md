@@ -1,12 +1,9 @@
 
-
 *Review for 1975***New for 2025:**
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park. Afterward, Bruce zips over to Linden to join Pat Karwin and the Psychotic Blues Band in a late-night jam session at the New Plaza Theater.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1971-11-23-300x164.jpg?resize=758%2C415)
 
@@ -14,15 +11,11 @@ A scheduled appearance opening for Kenny Loggins and Jim Messina at the Richmond
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Richmond_Times_Dispatch_Sun__Nov_4__1973_-scaled.jpg?resize=758%2C863&amp;ssl=1)
 
 Bruce and the E Street Band headline at Salem State College in Massachusetts.
 
 **1974:** <http://estreetshuffle.com/wp-content/uploads/2019/11/Bruce-Springsteen-1974-11-23.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/1974-1123-197x300.jpg?resize=758%2C1154)
 
@@ -61,8 +54,6 @@ Bruce and his new touring band bring World Tour 1992 to the Orlando Arena.
 [https://www.youtube.com/embed/lC0b353qh4o?feature=oembed](https://www.youtube.com/embed/lC0b353qh4o?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-23a-300x233.png?resize=758%2C589)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-23b-300x275.png?resize=758%2C695)
 

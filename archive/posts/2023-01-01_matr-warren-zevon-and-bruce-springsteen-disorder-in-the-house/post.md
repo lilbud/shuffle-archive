@@ -16,5 +16,3 @@ Here's Warren and Bruce's award-winning performance.
 **Recorded:** December 18, 2002<br>
 **Released:** *The Wind* (2003)<br>
 **Never performed**<br>
-
-

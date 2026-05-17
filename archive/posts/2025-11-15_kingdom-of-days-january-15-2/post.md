@@ -1,5 +1,4 @@
 
-
 The Born in the U.S.A. Tour pulls into Charlotte for the first of two nights at the Charlotte Coliseum.
 
 **1985:**<br>
@@ -8,11 +7,7 @@ The Born in the U.S.A. Tour pulls into Charlotte for the first of two nights at 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Charlotte_News_1985_01_16_8.jpg?resize=758%2C1370&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1985-01-15b.png?resize=758%2C705&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1985-01-15c.png?resize=758%2C508&amp;ssl=1)
 
@@ -35,8 +30,6 @@ Bruce makes a traditional "surprise" appearance at Light of Day in Asbury Park, 
 [https://videopress.com/embed/sZqestDr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/sZqestDr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2011-01-15a.png?resize=758%2C371&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2011-01-15b.png?resize=758%2C525&amp;ssl=1)
 

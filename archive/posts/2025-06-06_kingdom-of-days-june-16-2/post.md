@@ -1,12 +1,9 @@
 
-
 *New entry for 1977; video for 2023***New for 2025:**
 
 Steel Mill member Robbin Thompson is born.
 
 **1949:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/robbin-300x180.jpg?resize=758%2C456)
 

@@ -56,7 +56,6 @@ And that's why more than a month after I finished reading *Long Walk Home*, the 
 - Natalie Adler explores Bruce's appeal to the lesbian community and the embodiment of butchness in his music.
 - Wayne Swan describes how Bruce's music influenced Australian politics long before he ever traveled there.
 
-
 There are many others as well.
 
 *Long Walk Home: Reflections on Bruce Springsteen* did something I wouldn't have thought possible: it deepened my appreciation for the artist by broadening my understanding of his relevance and influence.

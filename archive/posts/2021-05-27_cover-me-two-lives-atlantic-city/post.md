@@ -19,5 +19,3 @@ I don't know much about Two Lives. As far as I can tell, they're an Italian wedd
 But if this one cover is indicative of their musical and interpretive ability, I certainly want to hear more.
 
 This year's *Cover Me* contest is turning out to have a very high bar.
-
-

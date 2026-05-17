@@ -1,5 +1,4 @@
 
-
 What a surreal experience my first Seeger Sessions show was:
 
 It was one of the easiest pits ever to get into–I'm not even sure there were enough people for a full lottery. That was lucky, because my friend Kris and I were in no mood to wait in line in the 112-degree(!) parking lot.

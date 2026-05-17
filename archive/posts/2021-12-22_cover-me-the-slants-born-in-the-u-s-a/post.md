@@ -12,8 +12,6 @@ Let's watch *The Daily Show* correspondent Ronnie Cheing help the band tell thei
 
 [Watch Video](//media.mtvnservices.com/embed/mgid:arc:video:comedycentral.com:81f61c13-15dc-41ca-8f9e-126f82793dc7)
 
-
-
 **[The Daily Show with Trevor Noah](https://www.cc.com/shows/the-daily-show-with-trevor-noah)**<br>
 
 That's right: the U.S. government fought to prevent the band from calling themselves The Slants, because the term was too racist to be applied to Asian Americans. Even by Asian Americans.
@@ -33,7 +31,3 @@ The last song they performed that day was an acoustic cover of "[Born in the U.S
 The Slants retired from performing just before the pandemic. They still record, but today they focus mainly on their work with the foundation, working to lift up and amplify new, undiscovered, and under-represented voices.
 
 Check out more of The Slants' music [here](https://www.youtube.com/channel/UC50nSOg6HWNeYKysoXyJiCg).
-
-
-
-

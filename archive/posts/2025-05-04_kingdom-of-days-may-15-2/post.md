@@ -1,5 +1,4 @@
 
-
 *Video for 2023***New for 2025:**
 
 Dr. Zoom and the Sonic Boom make their second and final appearance under that moniker, at Newark State College's Ernie the Chicken Festival. Miraculously, the show is recorded in very good quality–take a listen below for great covers like "" and "" and great Springsteen originals like "" and "." Later that same evening, Bruce makes his debut as a member of The Sundance Blues Band at The Student Prince.
@@ -50,8 +49,6 @@ The highlight of Bruce's solo acoustic show at Cleveland State University is und
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2009-05-15a.jpg?resize=758%2C993&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2009-05-15b-300x87.jpg?resize=758%2C220)
 
 The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las Palmas in the Canary Islands. Bruce plays four tour premieres on this night: "," "," "" and ""
@@ -69,8 +66,6 @@ The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las 
 Bruce makes a virtual appearance at the Spring-Nuts Seaside Serenade at The Stone Pony in Asbury Park.
 
 **2022:**<br>
-
-
 
 [https://uw-media.app.com/embed/video/9789590002?placement=snow-embed](https://uw-media.app.com/embed/video/9789590002?placement=snow-embed)
 

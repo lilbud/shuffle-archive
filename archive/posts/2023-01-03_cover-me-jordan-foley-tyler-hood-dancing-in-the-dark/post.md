@@ -7,5 +7,3 @@ Foley is a folk-Americana singer-songwriter based in Orlando, and we can clearly
 "Dancing in the Dark" is a dark song at heart, with a theme of restless alienation that connects it to Bruce's *Nebraska* period that immediately preceded it. Foley and Hood dial right into the spirit of Bruce's song and bring the narrator to life through Foley's deeply empathic vocals.
 
 If you're in the Orlando area, Jordan and Tyler are [on tour now](https://www.jordanfoleymusic.com/tour) (yes, now), so if you're vaccinated and missing live music, there's a chance you might even be able to see them perform this terrific cover live.
-
-

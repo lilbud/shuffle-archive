@@ -1,20 +1,15 @@
 
-
 *Review for 1975***New for 2025:**
 
 The Castiles play a show at Freehold Regional High School.
 
 **1967:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/1967-1124.gif?resize=758%2C469)
 
 The Bruce Springsteen Band spends Thanksgiving Eve in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1971-11-23-300x164.jpg?resize=758%2C414)
 
@@ -64,11 +59,7 @@ Bruce kicks off Year Two(!) of the Ghost of Tom Joad Tour with a trio of shows a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-11-24a-197x300.png?resize=758%2C1155)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-11-24b-300x96.png?resize=758%2C243)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-11-24c-98x300.png?resize=758%2C2320)
 

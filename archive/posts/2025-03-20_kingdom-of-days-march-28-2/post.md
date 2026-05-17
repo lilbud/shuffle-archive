@@ -1,12 +1,9 @@
 
-
 *Review for 2008; video for 2008 and 2016; new entry for 2024***New for 2025:**
 
 Steel Mill plays a second night at the Hullabaloo in Richmond.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1970-0328-245x300.jpg?resize=758%2C928)
 
@@ -25,8 +22,6 @@ Three Mile Island nuclear power plant partially melts down in Pennsylvania. The 
 Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1001)
 
@@ -54,11 +49,7 @@ A rather significant show from the Tunnel of Love Express Tour in Detroit–the 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-28b.jpg?resize=758%2C394&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-28c.jpg?resize=758%2C1506&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-28a.jpg?resize=758%2C1102&amp;ssl=1)
 
@@ -73,8 +64,6 @@ The Magic Tour begins its Pacific Northwest swing with a show at the Rose Garden
 [https://www.youtube.com/embed/xT7LMmSwdxA?feature=oembed](https://www.youtube.com/embed/xT7LMmSwdxA?feature=oembed)
 
 [https://www.youtube.com/embed/l9TWdEzs04g?feature=oembed](https://www.youtube.com/embed/l9TWdEzs04g?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg?resize=758%2C1019&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg?resize=758%2C1036&amp;ssl=1)
 
@@ -103,8 +92,6 @@ At Madison Square Garden in NYC, Bruce breaks out the tour premiere of "" with i
 reaches a milestone–the 100th show–in its theatrical run at the Walter Kerr Theater in New York City. Michael Bloomberg is in attendance tonight.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/03/bloomberg-268x300.jpg?resize=758%2C847)
 

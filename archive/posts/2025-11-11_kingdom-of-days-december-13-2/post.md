@@ -1,12 +1,9 @@
 
-
 *Audio for 1992 and 2007***New for 2025:**
 
 Newly discovered contemporaneous press coverage (dated December 26 1973) suggests Bruce played a show (or at least was scheduled to) at the Shaboo Inn in Willimantic Connecticut.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/Valley_Advocate_Amherst_Wed__Dec_26__1973_.jpg?w=758&amp;ssl=1)
 
@@ -20,15 +17,9 @@ Bruce and the E Street Band play a Darkness Tour show at the Tucson Community Ce
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1978-12-13a.png?resize=758%2C556&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1978-12-13b.png?resize=758%2C407&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1978-12-13c.png?resize=758%2C792&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1978-12-13d.png?resize=758%2C712&amp;ssl=1)
 
@@ -37,8 +28,6 @@ Bruce and the band play their first of two Born in the U.S.A. shows at the Mid-S
 **1984:**<br>
 
 [https://www.youtube.com/embed/UzMaKpyptz4?feature=oembed](https://www.youtube.com/embed/UzMaKpyptz4?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Commercial_Appeal_1984_12_14_25.jpg?resize=758%2C651&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Commercial_Appeal_1984_12_14_26.jpg?resize=758%2C722&amp;ssl=1)
 
@@ -76,8 +65,6 @@ Patti makes a guest appearance when World Tour 1992 stops in Boston for the firs
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-13a.png?resize=758%2C1978&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-13b.png?resize=758%2C1776&amp;ssl=1)
 
 Bruce brings his solo acoustic tour to the Beacon Theater in New York City for the second of three nights.
@@ -90,15 +77,9 @@ Bruce makes a guest appearance at Joe Grushecky's acoustic show at Cheers in Lon
 
 **1997:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1997-12-13-300x225.jpg?resize=758%2C571)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1997-12-13.png?resize=758%2C1011&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Star_Ledger_1997_12_15_27.jpg?w=758&amp;ssl=1)
 
@@ -109,8 +90,6 @@ Bruce and the E Street Band take the Rising Tour to the Pepsi Arena in Albany, w
 [https://www.youtube.com/embed/tt79jPObtjs?feature=oembed](https://www.youtube.com/embed/tt79jPObtjs?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-13a.png?resize=758%2C248&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-13b.png?resize=758%2C1216&amp;ssl=1)
 
@@ -139,8 +118,6 @@ Also today: the release of , a documentary featuring a contribution from Bruce p
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: actor Iain Armitage.
 
 **2017:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/2017-12-13-207x300.jpg?resize=758%2C1098)
 

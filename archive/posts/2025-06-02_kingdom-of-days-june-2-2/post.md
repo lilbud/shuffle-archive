@@ -62,8 +62,6 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 [Watch Video Highlight](https://videopress.com/embed/76xBJLMt)
 
-
-
 [Watch Video Highlight](https://videopress.com/embed/5wnxi5ha)
 
 [Watch Video Highlight](https://videopress.com/embed/qdxQG7Bg)

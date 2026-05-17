@@ -1,5 +1,4 @@
 
-
 *Audio for 1976; new entry for 1977***New for 2025:**
 
 The Castiles play their second and final gig at The Left Foot in Freehold, where the setlist included covers like "" and ," as well as a couple of Castiles originals, like "."
@@ -12,15 +11,11 @@ Bruce's acoustic guitar is stolen at a Wild & Innocent gig at Stony Brook Univer
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1973-0930-300x154.jpg?resize=758%2C389)
 
 Bruce makes his debut appearance in Nebraska, playing a Born to Run show at Omaha's Civic Auditorium Music Hall.
 
 **1975:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1975-0930.jpg?resize=524%2C1209&amp;ssl=1)
 
@@ -53,8 +48,6 @@ Bruce and the E Street Band play a Darkness Tour show at the Fox Theater in Atla
 [https://www.youtube.com/embed/Cdwi3yhV8rI?feature=oembed](https://www.youtube.com/embed/Cdwi3yhV8rI?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1978-09-30a-300x92.jpg?resize=758%2C232)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1978-09-30b-286x300.jpg?resize=758%2C795)
 
@@ -100,8 +93,6 @@ Bruce plays in India for the first and only time when the Human Rights Now! Tour
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-30a-46x300.jpg?resize=758%2C4944)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-30b-266x300.jpg?resize=758%2C855)
 
 Bruce and the reunited E Street Band wrap up their three-show stand at Chicago's United Center with a great set that includes "" to open, "" "," and "New York City Serenade." This show is now available as part of Bruce's official archive series–get it .
@@ -132,11 +123,9 @@ Bruce kicks off a five-night stand at Giants Stadium with a brand-new song: "" w
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-09-30a-152x300.jpg?resize=758%2C1496)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2009-09-30b.jpg?resize=758%2C1477&amp;ssl=1)
 
-Bruce performs an acoustic set at the Invictus Games Closing Ceremony in Toronto, previewing (it will turn out) arrangements for his upcoming Broadway show. After his solo set, Bruce plugs in and performs with Bryan Adams. For more highlights from this show, see my 
+Bruce performs an acoustic set at the Invictus Games Closing Ceremony in Toronto, previewing (it will turn out) arrangements for his upcoming Broadway show. After his solo set, Bruce plugs in and performs with Bryan Adams. For more highlights from this show, see my
 
 **2017:** [](http://estreetshuffle.com/index.php/2018/09/30/where-the-band-was-toronto-september-30-2017/)*Where the Band Was* [report.](http://estreetshuffle.com/index.php/2018/09/30/where-the-band-was-toronto-september-30-2017/)
 

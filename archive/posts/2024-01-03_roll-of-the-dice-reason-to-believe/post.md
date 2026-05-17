@@ -1,7 +1,5 @@
 > "We love you, Bruce!" —*a voice from the crowd on November 16, 1990*<br>
 >
->
->
 > "But you don't really know me." *–Bruce Springsteen's response, immediately before playing "Reason to Believe"*<br>
 
 Except for a very select few of my readers (you know who you are), we don't really know him.
@@ -98,7 +96,6 @@ If life is fleeting, why does it matter? If love isn't permanent, than why love?
 Why?
 
 ---
-
 
 Although Bruce didn't tour behind *Nebraska*, "Reason to Believe" came out almost immediately on the Born in the U.S.A. Tour. But it took years before Bruce figured out how to translate the song to the stage.
 

@@ -131,7 +131,6 @@ And if that doesn't make "Shackled and Drawn" the epitome of one of Bruce's life
 
 ---
 
-
 **Bonus:** After performing "Shackled and Drawn" at almost every show from 2012 through 2014, Bruce retired it after the High Hopes Tour. In the last six years, Bruce has performed it only once–at Gothenburg in 2016.
 
 Here's that one-off performance, the last "Shackled and Drawn" to date.

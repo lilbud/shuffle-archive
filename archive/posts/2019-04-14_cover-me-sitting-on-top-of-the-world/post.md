@@ -1,5 +1,4 @@
 
-
 "Sitting on Top of the World" is an American blues standard, recently recognized by the Library of Congress for its historical and cultural significance. It dates back to 1930, when it was first recorded by The Mississippi Sheiks, and its evergreen popularity is no doubt due in large part to its ironic lyrics: in any incarnation, the singer recounts his woes but still insists with each verse that he's "sitting on top of the world" — determined to remain optimistic even though nothing about his circumstances may warrant it.
 
 [https://www.youtube.com/embed/RqeW7-tmVU4?feature=oembed](https://www.youtube.com/embed/RqeW7-tmVU4?feature=oembed)

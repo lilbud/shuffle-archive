@@ -1,5 +1,4 @@
 
-
 So this is a thing: Iconic TV stars from the 1970s covering songs by Bruce Springsteen. Sure, it's a micro-genre, but a surprisingly well-represented one.
 
 So far on the Shuffle, we've featured Tom "Luke Duke" Wopat's of "" and Suzi "Leather Tuscadero" Quatro's of "Born to Run."

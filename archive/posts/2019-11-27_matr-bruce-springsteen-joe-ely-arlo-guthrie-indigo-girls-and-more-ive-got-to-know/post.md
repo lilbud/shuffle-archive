@@ -1,5 +1,4 @@
 
-
 On September 29, 1996, Bruce joined a stellar roster of musicians on stage at Cleveland's Severance Hall to pay tribute to Woody Guthrie.
 
 Among the tracks performed that night: Woody's "I've Got to Know," featuring contributions by Bruce, Joe Ely, Arlo Guthrie, The Indigo Girls, Ani DiFranco, Billy Bragg, Country Joe McDonald, David Pirner, and Ramblin' Jack Elliott.

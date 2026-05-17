@@ -42,7 +42,6 @@ And then there are a couple of holiday songs that haven't exactly earned classic
 - "[Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/)" is the lone Springsteen original on our holiday list. This ribald 1996 holiday fable has a lot to say, even though Bruce says it with tongue firmly in cheek. It's well worth checking out, but I wouldn't recommend listening at work or with kids around.
 - And lastly, "[It's Gonna Be a Bruce Springsteen Christmas.](https://estreetshuffle.com/index.php/2019/12/17/spare-parts-its-gonna-be-a-bruce-springsteen-christmas/)" Bruce doesn't actually sing this one, but Xander Green channels him pretty well in a performance that makes me laugh when I re-watch it every year at this time.
 
-
 I hope you enjoyed this brief guided tour through Bruce's best holiday-themed performances. Have a great holiday season, and let's hope we all get a little closer to peace on earth soon.
 
  

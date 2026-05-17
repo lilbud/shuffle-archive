@@ -75,7 +75,6 @@ As Bruce says at the end of each tour and each chapter: see you up the road.
 
 ---
 
-
 "Further On (Up the Road)" is musically dense. It rocks hard–so much so that it's easy to miss the meaning in Bruce's lyrics.
 
 That's a lot less likely with his 2006 Seeger Sessions arrangement, though. When Bruce recast it for that tour, he crafted an Irish-influenced melody that makes the song sound more contemplative and introspective. (It also provided a great vocal spotlight moment for Marc Anthony Thompson.)

@@ -1,5 +1,4 @@
 
-
 Talk about elusive: we know of at least four documented occasions on which Bruce covered Chuck Berry's seminal "Roll Over Beethoven" from as early as 1971 through 2002, but no one managed to capture it on tape until a fan requested it during the Working on a Dream Tour in 2009.
 
 Here's that performance from St. Louis:

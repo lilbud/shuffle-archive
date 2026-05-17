@@ -37,13 +37,11 @@ Some are based on actual people, places, and events:
 - "[Balboa Park](https://estreetshuffle.com/index.php/2020/03/16/roll-of-the-dice-balboa-park/)" — a (barely) musical adaptation of a heartbreaking *Los Angeles Times* article by Sebastian Rotella chronicling the plight of young, homeless illegal immigrants who turn to prostitution and drugs to survive.
 - "[Galveston Bay](https://estreetshuffle.com/index.php/2020/06/22/roll-of-the-dice-galveston-bay/)" — a lightly fictionalized dramatization of the simmering racism that boiled over into tragedy for a Vietnamese fishing community on August 3, 1979.
 
-
 And then there are the songs drawn not from the newspapers but from the fiction shelves and movie theaters:
 
 - "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)," which draws on John Steinbeck's characters, imagery, and dialogue to question the empathy and character of modern America.
 - "[Straight Time,](https://estreetshuffle.com/index.php/2022/12/05/roll-of-the-dice-straight-time/)" based loosely on the 1978 film starring Dustin Hoffman as an ex-con doing his best to keep his nose clean and make ends meet, while temptation constantly beckons.
 - "[My Best Was Never Good Enough](https://estreetshuffle.com/index.php/2021/08/22/roll-of-the-dice-my-best-was-never-good-enough/)," based on one of the darkest and most harrowing crime novels ever written, Jim Thompson's 1952 thriller, *The Killer Inside Me.*
-
 
 We can add another entry to the list if we squint a bit: "[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)" is the most *Nebraska*-esque track on the album. That makes sense when we realize it's a rewrite of a 1982 outtake called "[Losin' Kind](https://estreetshuffle.com/index.php/2021/01/15/roll-of-the-dice-losin-kind/)," that itself was based (according to Bruce) on the crime stories and films of James M. Cain.
 
@@ -51,7 +49,6 @@ Two of the remaining three tracks are based not on written works but musical one
 
 - "[The Line](https://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/)," melodically based on Bob Dylan's "Love Minus Zero" and a spiritual sequel to *Nebraska's* "Highway Patrolman."
 - "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)," the album's most uplifting track, based on Ry Cooder's soundtrack to the 1982 film *The Border*.
-
 
 "[Dry Lightning](https://estreetshuffle.com/index.php/2020/10/16/roll-of-the-dice-dry-lightning/)" stands alone as the album's only non-homage track, but it serves as precursor to *Western Stars* and a direct prequel to "[Chasin' Wild Horses](https://estreetshuffle.com/index.php/2020/01/26/roll-of-the-dice-chasin-wild-horses/)."
 
@@ -72,6 +69,5 @@ And yet, even though I rarely listen to it, I can't help but love it. *The Ghost
 So if you have the time, turn out the lights, draw the curtains, don your headphones, and take a long, luxurious listen*—*and then take a read through the essays I've linked throughout this article for what I hope will be an even deeper appreciation of *The Ghost of Tom Joad*.
 
 ---
-
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every month!

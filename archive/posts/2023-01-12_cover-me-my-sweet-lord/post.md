@@ -1,5 +1,4 @@
 
-
 George Harrison passed away just a week after Thanksgiving in 2001, so when Bruce kicked off his first holiday show of the year a few days later in Asbury Park, before delving into seasonal favorites he started with a pair of tributes to the late, great musician.
 
 First out of the gate was Harrison's Beatles classic, "." The second song of the night was Harrison's greatest hit: "My Sweet Lord," which topped charts around the world in 1971. (It also generated a fair amount of controversy, thanks to a bit of unintentional copyright infringement, but that's a story for another day and a different blog.)

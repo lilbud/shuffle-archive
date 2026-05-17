@@ -1,12 +1,9 @@
 
-
 *New entry for 1975, 1983, and 2024; audio for 1988***New for 2025:**
 
 Child plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1969-0523-204x300.jpg?resize=758%2C1114)
 
@@ -31,8 +28,6 @@ The Darkness on the Edge of Town Tour begins at Shea's Buffalo Theater in Buffal
 [https://www.youtube.com/embed/uK3_QRYf9FU?feature=oembed](https://www.youtube.com/embed/uK3_QRYf9FU?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-23-164x300.jpg?resize=758%2C1387)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1978-0523-122x300.jpg?resize=758%2C1867)
 

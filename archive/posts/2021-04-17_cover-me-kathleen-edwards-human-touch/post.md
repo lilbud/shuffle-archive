@@ -16,6 +16,4 @@ And the best part is that Edwards' studio version (actually a duet with fellow C
 
 [Human Touch by Kathleen Edwards 1](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F163204766&show_artwork=true&maxwidth=758&maxheight=1000&dnt=1)
 
-
-
 Thanks again, Dan–both for giving me a couple of days off this week and for helping me clear one very long-standing entry from my to-blog list!

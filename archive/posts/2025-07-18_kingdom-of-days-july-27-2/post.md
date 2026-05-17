@@ -1,12 +1,9 @@
 
-
 *New entry for 2024***New for 2025:**
 
 Cindy Mizelle, backing vocalist on "" "," "American Skin (41 Shots)," "," and "" — and of course, throughout the entire Seeger Sessions, Working on a Dream, Wrecking Ball, and High Hopes tours — is born in Englewood, New Jersey.
 
 **1964:** [Shackled and Drawn,](http://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)[High Hopes](https://estreetshuffle.com/index.php/2021/08/25/cover-me-high-hopes/)[Just Like Fire Would](http://estreetshuffle.com/index.php/2020/05/24/cover-me-just-like-fire-would/)[Heaven's Wall](http://estreetshuffle.com/index.php/2020/02/02/roll-of-the-dice-heavens-wall/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/cindy-300x232.jpg?resize=758%2C586)
 
@@ -18,15 +15,11 @@ Bruce and his band perform at the annual CBS Sales Convention at the Fairmont Ho
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1973-0727-189x300.jpg?resize=752%2C1194)
 
 Bruce and the E Street Band play two shows at the Celebrity Theater in Phoenix, netting them their biggest payday to date by far.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1974-07-27-277x300.png?resize=758%2C821)
 
@@ -38,8 +31,6 @@ Bruce is sick, causing his scheduled River Tour show in Cincinnati to be postpon
 
 **1981:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1981-07-26-300x65.png?resize=758%2C164)
 
 The Born in the U.S.A. Tour returns to the U.S., starting with a show at the Saratoga Performing Arts Center on a very rainy night. Listen in on the soundcheck of "" below.
@@ -49,8 +40,6 @@ The Born in the U.S.A. Tour returns to the U.S., starting with a show at the Sar
 [https://videopress.com/embed/GhQSDpeE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GhQSDpeE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-07-27-238x300.png?resize=758%2C956)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1984-0727-218x300.jpg?resize=758%2C1043)
 
@@ -99,8 +88,6 @@ Bruce kicks off the final leg of the Magic Tour with the first of three nights a
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBRPYPYZJamzTxkxn8AOVX8](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zBRPYPYZJamzTxkxn8AOVX8)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/2008-07-27a.png?resize=758%2C989&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2008-07-27b-165x300.png?resize=758%2C1379)
 

@@ -97,7 +97,6 @@ The last lines of "Reno" rank among Bruce's best, at once bitterly cynical, achi
 
 ---
 
-
 Bruce performed "Reno" regularly throughout his solo acoustic tour in 2005, but never again since. That's probably just as well: "Reno" is a difficult song to translate to the stage, and when Bruce tried, the performances lacked the cinematography of the record.
 
 However, there is one superb live performance that's worth viewing, and it's a rarely seen one. *Devils & Dust* shipped in a hybrid CD/DVD format, and the DVD part included a few beautifully filmed live performances. One of those songs was "Reno," and while it's not strictly speaking a live performance (there's a lovely off-screen piano accompaniment that seems like it was added later), it's a gentle, appropriate reflective performance sung in an unusually high register.

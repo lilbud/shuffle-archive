@@ -1,5 +1,4 @@
 
-
 At The Back Door in Richmond, VA, 46 years ago today, Bruce played this one-time-only cover of "I'm Into Something Good," written by Gerry Goffin and Carole King but made famous by Herman's Hermits.
 
 [https://www.youtube.com/embed/bj-nHjjfHmQ?feature=oembed](https://www.youtube.com/embed/bj-nHjjfHmQ?feature=oembed)

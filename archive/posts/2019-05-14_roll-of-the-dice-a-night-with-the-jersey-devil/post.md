@@ -22,8 +22,6 @@ Let's take a listen and go inside the song, but let's start with a quick history
 
 [Watch Video](https://www.history.com/embed/21150900)
 
-
-
 Now that we're versed in the history of the Jersey Devil, we can see that the first half of the song is a colorful but essentially traditional first-person retelling of the myth surrounding the thirteenth child of Mother Leeds. In fact, the video even starts with a brief textual recap, before a coyote's howl heralds the emergence of an oddly dispassionate (for now) Bruce Springsteen from the murky depths.
 
 Bruce seems lost in thought (and a really poor lip-syncher) as he tells his tale:

@@ -1,15 +1,9 @@
 > "[Shortly after Christmas in 1971], My father asked me to accompany him on a trip to Mexico and said he was planning to stop in Long Beach, where the Queen Mary was docked. This was the ocean liner he'd shipped out on for World War II and he wanted to see her one more time… In the spirit of healing old wounds I said yes and off we went.
-> 
-> 
-> 
+>
 > From the beginning, the joie de vivre in the car wasn't what one might've hoped for. We were doing our best, but we still got under each other's skin. Our stop at Long Beach flopped. I was a punk, grumbling my way through the whole Queen Mary tour. My dad's journey on this ship was probably one of the most meaningful of his life and I couldn't respect it. I'd pay anything now to be able to walk that ship with my father again. I would treasure every step, want to know every detail, hear every word and memory he'd share, but back then I was still too young to put the past away, too young to recognize my dad as a man and to honor his story.
-> 
-> 
-> 
+>
 > We headed south to Mexico, [and] crossed the border…"
-> 
-> 
-> 
+>
 > *— Bruce Springsteen, Born to Run*<br>
 
 At first listen, "Border Guard" is an introspective, contemplative musing on the toll taken by an unforgiving job. But there's more going on here than meets the ear, I think.
@@ -73,9 +67,9 @@ That last couplet is heartbreaking: a son's refusal to surrender to his father's
 
 Bruce would revisit the California/Mexico border in song decades later, this time with a true focus on it. As for his reconciliation with his father, that would take a while yet. But his unreleased "Border Guard" reveals he was at least working his way towards it.
 
-**Border Guard  
-**Recorded:** April 1972  
-**Never released**  
+**Border Guard
+**Recorded:** April 1972
+**Never released**
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

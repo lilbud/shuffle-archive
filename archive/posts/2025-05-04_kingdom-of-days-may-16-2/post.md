@@ -1,5 +1,4 @@
 
-
 *New entry for 1973, 1975, and 2024; audio for 1999***New for 2025:**
 
 Bruce cancels a scheduled performance at Minnesota State University and instead records "" at 914 Sound Studios in Blauvelt, New York. It will remain in the vault for 26 years until Bruce finally releases it on .
@@ -22,15 +21,11 @@ Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at 
 
 **1982:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1982-0516-236x300.jpg?resize=758%2C966)
 
 : Bruce and Julianne leave Lake Oswego, Oregon, for their honeymoon.
 
 **1985**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1985-0516-218x300.jpg?resize=758%2C1044)
 

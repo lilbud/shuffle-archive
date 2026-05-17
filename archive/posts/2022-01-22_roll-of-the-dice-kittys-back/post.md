@@ -16,8 +16,6 @@ Take "[Garden State Parkway Blues](https://estreetshuffle.com/index.php/2018/11/
 
 [Watch Video Highlight](https://videopress.com/embed/K8rRLDke?hd=0&cover=1)
 
-
-
 Those elements would turn up in Bruce's early work from time to time until he finally brought them together in a big band arrangement that (like much of his early work) served primarily as a framing sequence for epic and extended instrumental jams with completely superfluous lyrics–in this case about a guy who can't seem to let go of his unfaithful ex.
 
 Bruce and the band recorded "Kitty's Back" in the summer of '73. A contemporaneous early performance of the song–almost certainly from a show just prior to or during those sessions–reveals an almost final but still clearly work-in-progress song, especially the final section where Bruce hadn't quite settled on the lyrics.

@@ -1,5 +1,4 @@
 
-
 Bruce opens for Jerry Lee Lewis and Chuck Berry at the University of Maryland. After his set, Bruce and the E Street Band (plus Southside Johnny) serve as the backing band at no charge for Lewis and Berry, remaining on stage the entire night. The band has no rehearsal time with Berry, who keeps the band on their toes the entire night. Watch Bruce tell the story below. (Thanks to Dave Homorody for the photo!)
 
 **1973:**<br>
@@ -12,19 +11,13 @@ Bruce and the E Street Band play an intimate (less than 300 attendees) outdoor s
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1974-0428.jpg?resize=741%2C804&amp;ssl=1)
 
 Bruce plays the Grand Ole Opry House in Nashville.
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-04-28b.jpg?resize=758%2C509&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0428.jpg?resize=563%2C692&amp;ssl=1)
 
@@ -36,15 +29,13 @@ Flo and Eddie guest-star on "Hungry Heart" when the River Tour arrives in Rotter
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1981-0428.jpg?resize=758%2C532&amp;ssl=1)
 
-At the Power Station in New York City, Bruce works on several songs for what would eventually become 
+At the Power Station in New York City, Bruce works on several songs for what would eventually become
 
 **1982:** *Born in the U.S.A.*
 
 Bruce wraps up a five-night stand at the L.A. Sports Arena. This show is available as part of Bruce's official archive series.
 
 **1988:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/bs880428.jpg?resize=758%2C758&amp;ssl=1)
 
@@ -82,19 +73,13 @@ On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce pl
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-28a.jpg?resize=758%2C751&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-28b.jpg?resize=758%2C245&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2005-04-28c.jpg?resize=717%2C963&amp;ssl=1)
 
 Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres of "Roulette" and "Don't Look Back," before segueing to "Radio Nowhere," "Out in the Street," and "The Promised Land." Opening packs don't get much better than that. Also tour premiering tonight: "Mary's Place." This show is available as part of Bruce's official archive series.
 
 **2008:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/2008-04-28-greensboro-nc.jpg?resize=758%2C758&amp;ssl=1)
 
@@ -108,8 +93,6 @@ Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-28a.jpg?resize=758%2C537&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-28b-scaled.jpg?resize=758%2C1280&amp;ssl=1)
 
 Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of "The Fever," "Mountain of Love," "Fire" and "You Can't Sit Down."
@@ -121,8 +104,6 @@ Philadelphia always seems to get great shows, and the Working on a Dream Tour ke
 [https://www.youtube.com/embed/bSuR98jW88c?feature=oembed](https://www.youtube.com/embed/bSuR98jW88c?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2009-04-28a.jpg?resize=758%2C771&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/2009-04-28b-rotated.jpg?resize=574%2C1638&amp;ssl=1)
 

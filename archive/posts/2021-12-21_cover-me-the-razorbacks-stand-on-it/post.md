@@ -7,5 +7,3 @@ The Razorbacks released their live album, *Home of the Razorbacks*, way back in 
 If you like what you heard, check out the rest of the album [here](https://www.youtube.com/playlist?list=OLAK5uy_n1vSZCVuEM-E85YSOp6FUP--DRycyMRik).
 
 The Razorbacks are still touring (or at least they were, pre-COVID), so keep an eye out when the dust clears–you might be able to catch this one live.
-
-

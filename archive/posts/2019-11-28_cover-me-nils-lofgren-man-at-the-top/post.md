@@ -9,5 +9,3 @@ Here's one of Nils' earliest performances of "Man at the Top" from the Bridge Sc
 Nils finally recorded "Man at the Top" in the studio for the 2003 tribute album *Light of Day: A Tribute to Bruce Springsteen.* I couldn't decide which version I liked best (live or studio), so you get both!
 
 [Watch on Youtube: Man At the Top](https://www.youtube.com/watch?v=pEvCg4Bxd0w)
-
-

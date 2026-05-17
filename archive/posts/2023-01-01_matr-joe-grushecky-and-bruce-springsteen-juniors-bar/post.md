@@ -1,5 +1,4 @@
 
-
 Let's reach waaay back in Joe Grushecky's catalog–all the way back to the Iron City Houserocker days and the band's sophomore album (and one of the better albums of 1980), .
 
 [](https://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/)*Have a Good Time But Get Out Alive*

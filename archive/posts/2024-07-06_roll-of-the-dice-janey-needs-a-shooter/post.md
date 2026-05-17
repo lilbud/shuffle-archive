@@ -6,7 +6,6 @@ My original essay follows. There's no need to update the lyrical analysis (the d
 
 ---
 
-
 Today we take a look at an outtake from *The Wild, The Innocent & The E Street Shuffle* that has never seen an official release but almost did thanks to a cover by Warren Zevon that wasn't a cover at all.
 
 It's an unusual story that takes place over a full decade, so let's dive in.

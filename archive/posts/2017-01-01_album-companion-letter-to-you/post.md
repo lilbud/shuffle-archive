@@ -29,7 +29,6 @@ Springsteen didn't write *Letter to You* in a burst of creativity any more than 
 - "If I was the Priest" is one of Bruce's earliest "epic" songs, and although it aspires to greater heights than it achieves, it's a remarkable composition for so young a songwriter, and it deserved an official release (somewhere).
 - "Song for Orphans" is probably the least of these six tracks that cried out for an official release. Also dating back to the early 1970s, It's nowhere near as finely constructed as its contemporaneous album-mates.
 
-
 [Watch on Youtube: Tim McGraw & Bruce Springsteen: 'Letter To You' Documentary and E Street Band's Legacy | Apple Music](https://www.youtube.com/watch?v=7OMTyppnWLM?start=45)
 
 There's nothing wrong with a mix of vintages per se. Springsteen's more obsessive fans (hi!) have long understood that virtually every album since *Lucky Town* has included songs written (and in some cases recorded) years earlier.
@@ -60,7 +59,6 @@ Let's experiment. If you care to indulge me, try listening to a playlist of just
 - "House of a Thousand Guitars" is Springsteen's mission statement and invitation to his concert audience...
 - ...while "Ghosts" is his on-stage reckoning with the ticking clock.
 - "I'll See You in My Dreams" is a parting benediction, a fitting bookend not only to the title track but to each and every one of the five songs above.
-
 
 [Watch on Youtube: Bruce Springsteen - Spiritual Songwriting & "Letter to You" | The Daily Social Distancing Show](https://www.youtube.com/watch?v=QZuBEO-ilg4?start=13)
 

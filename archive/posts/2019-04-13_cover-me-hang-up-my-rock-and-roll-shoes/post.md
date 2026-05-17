@@ -1,5 +1,4 @@
 
-
 Chuck Willis passed away in 1958 just as he was reaching the pinnacle of his career, so he never got to see "Hang Up My Rock and Roll Shoes" become a hit and an enduring classic.
 
 Many artists have kept the song alive, Bruce among them. Bruce performed the song three times over his career. Here's the first time, in 1978, on the Darkness on the Edge of Town Tour in Saginaw:

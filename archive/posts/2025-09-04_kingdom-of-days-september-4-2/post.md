@@ -24,8 +24,6 @@ Bruce is keeping busy on stage, because he's unable to record. Billboard publish
 
 [Watch Video Highlight](https://videopress.com/embed/KXWUSmka)
 
-
-
 [Watch on Youtube: Funky broadway ( Dyke & the Blazers / Wilson Picket cover )](https://www.youtube.com/watch?v=Jp0sUB4Kc_Q)
 
 **1982:** Bruce makes a guest appearance with Beaver Brown at Big Man's West in Red Bank.

@@ -1,12 +1,9 @@
 
-
 *New entry for 1975 and 1977; audio for 1981 and 2008; video for 2023***New for 2025:**
 
 Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/mainpoint-300x156.jpg?resize=758%2C394)
 
@@ -55,8 +52,6 @@ The Born in the U.S.A. Tour treks across Ohio for the first of two nights in Ric
 [https://videopress.com/embed/CKvko768?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CKvko768?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-07-09a-300x192.jpg?resize=758%2C485)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-07-09b-270x300.jpg?resize=758%2C842)
 

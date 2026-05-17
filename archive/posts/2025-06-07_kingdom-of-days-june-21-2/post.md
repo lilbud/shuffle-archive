@@ -1,12 +1,9 @@
 
-
 *New entry for 1979; audio for 2003; video for 2023***New for 2025:**
 
 The E Street Band's greatest guitarist is born in Chicago. Happy birthday, Nils Lofgren!
 
 **1951:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/nils_lofgren_1-300x200.jpg?resize=758%2C505)
 
@@ -14,23 +11,17 @@ A scheduled Steel Mill date at the Clearwater Swim Club in Atlantic Highlands, N
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1970-06-21-225x300.jpg?resize=758%2C1007)
 
 Bruce and the E Street Band play two shows on their first of three consecutive nights at Le Garage on Long Beach Island.
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1974-0621-300x188.jpg?resize=758%2C475)
 
-Bruce drops by The Main Point in Bryn Mawr, Pennsylvania to catch Tone, a band that includes E Street alumni David Sancious and Boom Carter. 
+Bruce drops by The Main Point in Bryn Mawr, Pennsylvania to catch Tone, a band that includes E Street alumni David Sancious and Boom Carter.
 
 **1976:** (Photo credit: Phil Ceccola)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1976-0621-300x216.jpg?resize=748%2C539)
 
@@ -45,8 +36,6 @@ Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at
 [https://videopress.com/embed/2VRaI53f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2VRaI53f?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-06-21a-117x300.jpg?resize=758%2C1944)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1984-06-21b.jpg?resize=758%2C1020&amp;ssl=1)
 
@@ -88,15 +77,11 @@ The Tunnel of Love Tour stops at Villa Park in Birmingham, England, for the firs
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1988-06-21.jpg?resize=758%2C523&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1988-0621-300x271.jpg?resize=758%2C685)
 
 At Night Two in Milan, "" makes its tour premiere and for the very first time, the crowd sings the instrumental bridge before the final verse, establishing a worldwide "Badlands" tradition forevermore. (, that starts in Milan!) "," "" and "Born to Run" make their tour debuts as well, and a soundcheck of "" is surreptitiously recorded.
 
 **1992:** [Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)*Of course*[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)[Club Soul City](http://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/)
-
-
 
 [https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F437507529&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F437507529&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
 
@@ -143,8 +128,6 @@ The Wrecking Ball Tour stops at the Stadium of Light in Sunderland, England.
 [https://www.youtube.com/embed/_sgMcFRmjIQ?feature=oembed](https://www.youtube.com/embed/_sgMcFRmjIQ?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/2012-06-21.jpg?resize=758%2C394&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/The_Daily_Telegraph_Fri__Jun_22__2012_-scaled.jpg?resize=758%2C342&amp;ssl=1)
 

@@ -1,5 +1,4 @@
 
-
 Bruce Springsteen and Joe Grushecky have shared the stage together many times, but only once did they play Joe's earnest love song "True Companion" together.
 
 That occasion was Flood Aid, a December 2004 benefit concert that Joe and Bruce staged to help Pittsburgh-area residents affected by Hurricane Ivan earlier that year. Their setlist featured the usual collection of Springsteen and Grushecky originals (heavily drawing on their collaborations), but buried in the middle of the set was "True Companion," an ode to both Joe's father and his wife, as well as the title track from his 2004 album.

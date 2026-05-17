@@ -1,5 +1,4 @@
 
-
 Eddie Riff recorded and released "Ain't That Lovin' You, Baby" as a single in 1956. It was a great song and a fantastic performance, but it went nowhere.
 
 [https://www.youtube.com/embed/EtcgcxBwklw?feature=oembed](https://www.youtube.com/embed/EtcgcxBwklw?feature=oembed)

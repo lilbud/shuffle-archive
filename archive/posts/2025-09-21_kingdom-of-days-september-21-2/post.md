@@ -82,8 +82,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ODmDrQbM)
 
-
-
 [Watch on Youtube: Detroit 21/09/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zClqCz-WnKG-OwnxCjyOydh)
 
 ![](../../assets/2020/09/2003-09-21.jpg)

@@ -94,8 +94,6 @@
 
 [Watch Video](https://open.spotify.com/embed/episode/7aXp4eeYWrEvJ0WmcX0C08?utm_source=generator)
 
-
-
 **2024:** Bruce and the E Street Band continue their Canadian tour with a show at Canadian Tire Center in Ottawa.
 
 [Watch on Youtube: Does This Bus Stop at 82nd Street?- Bruce Springsteen & The E Street Band - Ottawa 2024](https://www.youtube.com/watch?v=KAHjGaCZzEM)

@@ -1,12 +1,9 @@
 
-
 *New entry for 1975 and 1983; audio for 2008***New for 2025:**
 
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1971-0423-219x300.jpg?resize=758%2C1038)
 
@@ -14,11 +11,7 @@ Bruce opens for Richie Havens at Bushnell Memorial Hall in Hartford, his first s
 
 **1973:** [4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0423-300x287.jpg?resize=758%2C725)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Hartford_Courant_Sat__Apr_21__1973_-scaled.jpg?resize=758%2C1451&amp;ssl=1)
 
@@ -56,8 +49,6 @@ At Night Two in Los Angeles on the Tunnel of Love Express Tour, Bruce debuts "" 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-22-1-242x300.jpg?resize=758%2C939)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-22b-1-300x190.jpg?resize=758%2C480)
 
 Also today, host Casey Kasem introduces Bruce's current chart-climbing single "" with a story about how music helped Bruce survive high school.
@@ -90,15 +81,11 @@ Bruce's episode of premieres on VH1.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-23a-174x300.jpg?resize=758%2C1307)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-23b-294x300.jpg?resize=758%2C774)
 
 Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with the rock version of "." Roger McGuinn guests on "" and "" in the encores, the former of which will appear on the EP later in the year. Also tour premiering at this show: "" This show is available as part of Bruce's official archive series–get it .
 
 **2008:** [Blood Brothers](http://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)[Turn! Turn! Turn!](https://estreetshuffle.com/index.php/2021/06/09/matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/)[Mr. Tambourine Man](http://estreetshuffle.com/index.php/2019/12/28/matr-bruce-springsteen-and-roger-mcguinn-mr-tambourine-man/)*Magic Tour Highlights* [Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)[here](https://www.nugs.net/04-11-2025-archive-release-bruce-springsteen-and-the-e-street-band-amway-arena-orlando-florida-april-23-2008.html)
-
-
 
 [https://www.youtube.com/embed/j9a_xcfrxqk?feature=oembed](https://www.youtube.com/embed/j9a_xcfrxqk?feature=oembed)
 
@@ -109,8 +96,6 @@ Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with 
 [https://videopress.com/embed/Ifqqc6cS?hd=0&amp;cover=1](https://videopress.com/embed/Ifqqc6cS?hd=0&amp;cover=1)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-04-23a-159x300.jpg?resize=758%2C1430)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-04-23b-242x300.jpg?resize=758%2C939)
 
@@ -137,7 +122,5 @@ At the premiere for the new Patti Smith concert documentary Bruce makes a surpri
 For the second day in a row, Bruce's twitter account offers a mysterious photo with no accompanying text. Rumors begin to fly: is a new album imminent?
 
 **2019:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-04-23-300x275.jpg?resize=758%2C697)

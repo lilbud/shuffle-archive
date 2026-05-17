@@ -1,5 +1,4 @@
 
-
 *New entry for 1977; audio for 1978***New for 2025:**
 
 Bruce and the E Street Band play a gig at Nassau Community College in Garden City, New York. The show is filmed, and snippets of it have been aired at special events and in documentaries.
@@ -86,11 +85,7 @@ closes its theatrical run at the Walter Kerr Theater in New York City. In attend
 
 **2018:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2018-12-15a.png?resize=758%2C733&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2018-12-15b.png?resize=758%2C1216&amp;ssl=1)
 

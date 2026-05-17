@@ -74,7 +74,7 @@ Now 95 years old, Daddy G still performs from time to time, and when he does, he
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=H3jWn4e60ZE)
 
-**Quarter to Three  
+**Quarter to Three
 First performed:** October 4, 1974 (New York City, NY)
 **Last performed:** May 17, 2014 (Uncasville, CT)<br>
 

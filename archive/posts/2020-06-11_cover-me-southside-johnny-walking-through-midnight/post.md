@@ -1,5 +1,4 @@
 
-
 When Southside Johnny released his first solo album in 1988, he called upon his old friend Bruce Springsteen to help him close out the record. The album's final song is a moody ballad called "Walking Through Midnight" co-written by Southside and Bruce.
 
 [https://www.youtube.com/embed/PunmN3Tr_54?feature=oembed](https://www.youtube.com/embed/PunmN3Tr_54?feature=oembed)
@@ -17,4 +16,3 @@ Still, any Lyon/Springsteen collaboration is worth at least one listen, even one
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-

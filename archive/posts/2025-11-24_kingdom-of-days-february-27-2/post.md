@@ -1,10 +1,7 @@
 
-
 Steel Mill barely makes it across the country from California to Virginia for their gig at Richmond's Free University.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1970-0227-188x300.jpg?resize=758%2C1206)
 
@@ -28,19 +25,13 @@ Bruce and the E Street Band play a sparsely attended show at the Riverfront Coli
 
 **1977:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1977-02-27a-300x251.jpg?resize=758%2C634)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1977-0227-300x81.jpg?resize=758%2C204)
 
 The Big Man is in his prime, but his successor and nephew is born on this day. Happy birthday, Jake Clemons!
 
 **1980:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1977-02-27-300x192.jpg?resize=758%2C485)
 
@@ -56,8 +47,6 @@ On the release date for "," his third single and video from Bruce visits his fri
 
 **1988:** [One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)**, [Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-02-27-300x164.jpg?resize=758%2C415)
 
 [https://www.youtube.com/embed/MkFQHScyti0?feature=oembed](https://www.youtube.com/embed/MkFQHScyti0?feature=oembed)
@@ -65,8 +54,6 @@ On the release date for "," his third single and video from Bruce visits his fri
 Bruce and Little Steven present Gary U.S. Bonds with the Rhythm-and-Blues Foundation's Pioneer Award at Midtown Hilton in New York City.
 
 **1997:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/The_Boston_Globe_1997_03_01_27.jpg?resize=758%2C552&amp;ssl=1)
 
@@ -91,8 +78,6 @@ At the Blue Cross Arena in Rochester, "" returns in the encore, where it will re
 [https://www.youtube.com/embed/EI7sFzBmsvk?feature=oembed](https://www.youtube.com/embed/EI7sFzBmsvk?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2016-02-27a-193x300.jpg?resize=758%2C1178)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2016-02-27b.jpg?resize=758%2C779&amp;ssl=1)
 

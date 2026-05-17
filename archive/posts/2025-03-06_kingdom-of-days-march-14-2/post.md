@@ -1,5 +1,4 @@
 
-
 *New entry for 1978; video for 2013***New for 2025:**
 
 The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factory in Highlands, New Jersey. Tinker West records the sessions, and his tapes will prove to be the highest quality recording of The Bruce Springsteen Band and a fascinating document of that period. Standout tracks include "," "" "" and an absolutely stunning must-hear cover of "" Take a listen:
@@ -11,8 +10,6 @@ The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factor
 Bruce and the band play their third of seven nights at Oliver's in Boston.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1-190x300.jpg?resize=758%2C1197)
 
@@ -43,8 +40,6 @@ Bruce and Garry jam with Robert Gordon on "" and "" at The Fast Lane in Asbury P
 [https://www.youtube.com/embed/kDT1IIz7_Og?feature=oembed](https://www.youtube.com/embed/kDT1IIz7_Og?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1979-03-14-300x298.jpg?resize=758%2C753)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1979-0314-300x226.jpg?resize=758%2C571)
 
@@ -92,8 +87,6 @@ Bruce plays Omaha for the first time in 30 years when the Magic Tour stops at Qw
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2008-03-14a.jpg?resize=758%2C896&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2008-03-14b-300x90.jpg?resize=758%2C227)
 
 Bruce and Curtis King join Darlene Love on stage at her induction ceremony into the Rock and Roll Hall of Fame. Their short set includes "," "," and "." Bette Midler joins for the final song.
@@ -134,11 +127,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City, with a
 
 **2018:***Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/03/39926163585_5b24155cf8_o-298x300.jpg?resize=735%2C740)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2018-03-14a.jpg?resize=758%2C758&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2018-03-14b.jpg?resize=758%2C758&amp;ssl=1)
 

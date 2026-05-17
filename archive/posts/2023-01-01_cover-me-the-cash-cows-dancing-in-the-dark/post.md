@@ -1,5 +1,4 @@
 
-
 To call The Cash Cows a cover band would be a disservice.
 
 The UK-based duo (and their extra-sized, brass-powered Extreme edition) dramatically reinterpret and reinvent each song they cover, and the most recent addition to the repertoire is Bruce's "."

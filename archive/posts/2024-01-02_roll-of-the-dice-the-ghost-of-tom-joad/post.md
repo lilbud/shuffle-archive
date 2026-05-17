@@ -84,7 +84,6 @@ Now we just need to act.
 
 ---
 
-
 "The Ghost of Tom Joad" made its live debut almost a full month before it was released on album. Bruce debuted it without fanfare during his set at Neil Young's Bridge School Benefit in 1995. Here's that very first performance, and the first time anyone outside of Bruce's inner circle heard the song:
 
 [Watch Video Highlight](https://videopress.com/embed/BBmCLuCm)

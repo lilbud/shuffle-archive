@@ -58,7 +58,7 @@ We enlist in the military out of idealism, but our lover is more cynical than we
 > *You sleep and you dream of your buddies Charlie and Jim*<br>
 > *And wake with a thick desert dust on your skin*<br>
 
-We drift into memory at this point, during a deliberately chaotic instrumental bridge. The narrator's love theme rides above Max Weinberg's syncopated drums (representing the firing weapons on the battlefield), desperately trying to keep us rooted in the here and now, but the battle within our psyche isn't so easily won. The theme climbs in register, but the guitar of war in our right ear climbs as well, becoming increasingly urgent and ultimately breaking through into the foreground. 
+We drift into memory at this point, during a deliberately chaotic instrumental bridge. The narrator's love theme rides above Max Weinberg's syncopated drums (representing the firing weapons on the battlefield), desperately trying to keep us rooted in the here and now, but the battle within our psyche isn't so easily won. The theme climbs in register, but the guitar of war in our right ear climbs as well, becoming increasingly urgent and ultimately breaking through into the foreground.
 
 We return to the present now.
 
@@ -95,9 +95,6 @@ And although Bruce brings the song to a terrifying climax, we end on a note of h
 It's a long and arduous journey, but we're going to make it. Together.
 
 ---
-
-
-
 
 Bruce constructed his Magic Tour set lists around a five-song sequence that closed almost every show through the spring of 2008. Together, "Devil's Arcade," "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)," "Last to Die," "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)," and "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)" created core tour themes of sacrifice, heroism, betrayal, resistance, and defiance, and until the tour began loosening as spring turned to summer, "Devil's Arcade" served as an important anchor.
 

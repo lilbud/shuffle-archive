@@ -1,12 +1,9 @@
 
-
 *New entry for 1977 and 1979***New for 2025:**
 
 Child plays a gig at the Ocean Side Surf Club in Sea Bright, New Jersey.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1969-0829.jpg?resize=758%2C913&amp;ssl=1)
 
@@ -14,11 +11,7 @@ Bruce plays his first-ever show in Tennessee when Steel Mill opens for Roy Orbis
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1970-08-29-249x300.png?resize=758%2C913)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1970-0829-228x300.jpg?resize=758%2C997)
 
@@ -26,15 +19,9 @@ Bruce cancels a scheduled show at the University of Miami.
 
 **1975:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1975-08-29a-228x300.png?resize=758%2C998)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1975-08-29b-300x288.png?resize=758%2C728)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1975-08-29-300x152.jpg?resize=758%2C384)
 

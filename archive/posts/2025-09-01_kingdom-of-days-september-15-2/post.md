@@ -1,12 +1,9 @@
 
-
 *Expanded entry and audio for 1977; new entry for 1983, 1987, 1989, 2007, and 2024***New for 2025:**
 
-A scheduled gig at Syracuse University is cancelled to make room for production work on 
+A scheduled gig at Syracuse University is cancelled to make room for production work on
 
 **1973:** *The Wild, The Innocent, and the E Street Shuffle.*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1973-09-14.jpg?resize=492%2C1640&amp;ssl=1)
 
@@ -42,8 +39,6 @@ The night before Danny Federici's wedding, Bruce and the band celebrate Danny at
 
 **1987:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1987-09-16a.jpg?resize=758%2C1794&amp;ssl=1)
 
 The Human Rights Now! Tour kicks off a week-long North American leg with a show at the Maple Leaf Gardens in Toronto, where k.d. lang makes a guest appearance and "" makes its tour premiere.
@@ -70,15 +65,11 @@ Patti plays a solo show at the Paramount Theater in Asbury Park, and Bruce backs
 
 **2004:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2004-09-15-101x300.jpg?resize=758%2C2252)
 
 Bruce takes his son Evan to see Dropkick Murphys at the Roseland Ballroom in New York City.
 
 **2007:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/09/The_Boston_Globe_2007_09_19_23.jpg?resize=758%2C702&amp;ssl=1)
 

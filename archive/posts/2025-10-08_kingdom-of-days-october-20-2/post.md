@@ -1,16 +1,11 @@
 
-
 *Audio for 1995 and 2002***New for 2025:**
 
 Bruce plays his first-ever show in New Hampshire when he and the band play a show at Franklin Pierce College.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1973-10-20.png?resize=758%2C2472&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1973-1020-300x123.jpg?resize=758%2C310)
 
@@ -18,23 +13,15 @@ Bruce and the E Street Band play a show at the Dickinson College Dining Hall in 
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1074-1020-129x300.jpg?resize=758%2C1763)
 
 Determined not to be out-scooped by each other, both and feature Bruce on the cover of their latest issue, the first time any rock star can boast that. Surprise and conspiracy theories rule the day.
 
 **1975:** *Time* *Newsweek*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/timenews-300x194.jpg?resize=758%2C490)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1975-10-20a-300x177.png?resize=758%2C447)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1975-10-20b-300x145.png?resize=758%2C366)
 
@@ -71,8 +58,6 @@ Bruce once again joins Joe Grushecky and The Houserockers at their show at Nick'
 [https://www.youtube.com/embed/ddEQR8BYF9Q?feature=oembed](https://www.youtube.com/embed/ddEQR8BYF9Q?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-20a-300x258.png?resize=758%2C652)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-20b-275x300.png?resize=758%2C827)
 
@@ -124,8 +109,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 **2018:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-20-298x300.jpg?resize=758%2C763)
 
 E Street Radio airs Episode 2 of , featuring conversations between Bruce, Eddie Vedder, and Dave Grohl.
@@ -135,8 +118,6 @@ E Street Radio airs Episode 2 of , featuring conversations between Bruce, Eddie 
 At the Javits Center in New York City, Bruce supports The Robin Hood Foundation with an acoustic set of "," "," and "Thunder Road."
 
 **2021:** [Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
-
-
 
 [https://videopress.com/embed/V4mnAWFo?hd=0&amp;cover=1](https://videopress.com/embed/V4mnAWFo?hd=0&amp;cover=1)
 

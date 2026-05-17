@@ -52,5 +52,3 @@ I'll leave you with Bruce and Joe performing "Talking to the King" at Light of D
 **Talking to the King**<br>
 **First performed:** October 17, 1995 (Asbury Park, NJ)<br>
 **Last performed:** January 18, 2020 (Asbury Park, NJ)<br>
-
-

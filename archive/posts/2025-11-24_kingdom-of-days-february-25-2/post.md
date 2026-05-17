@@ -1,38 +1,27 @@
 
-
 The Bruce Springsteen Band plays their seventh show this month at The Back Door in Richmond. This show features the only known circulating performance of "."
 
 **1972:** [Down to the Riverside](https://estreetshuffle.com/index.php/2021/10/15/roll-of-the-dice-down-to-the-riverside/)<https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3><https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3>
 
-Sick with the flu, Bruce somehow manages to perform at The Main Point in Bryn Mawr, Pennsylvania, but he is forced to sit for the entire performance. Even though he's sick, a photo from this evening will become the cover of 24 years later. 
+Sick with the flu, Bruce somehow manages to perform at The Main Point in Bryn Mawr, Pennsylvania, but he is forced to sit for the entire performance. Even though he's sick, a photo from this evening will become the cover of 24 years later.
 
 **1974:** *Tracks*(photo credits: Phil Ceccola)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1974-02-25.jpg?resize=758%2C1020&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/tracks-300x152.jpg?resize=758%2C384)
 
-Bruce and the E Street Band play a gig at Purdue University. 
+Bruce and the E Street Band play a gig at Purdue University.
 
 **1977:** (photo credit: Scott Sovereen)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1977-0225-300x200.jpg?resize=758%2C504)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1977-02-25.png?resize=758%2C1083&amp;ssl=1)
 
 The River Tour makes a stop at the Mid-South Coliseum in Memphis. Meanwhile, Bruce loses the Best Rock Vocal Performance (Male) Grammy Award to Billy Joel's . (Bruce was nominated for ".")
 
 **1981:** *Glass Houses*[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Memphis_Press_Scimitar_Thu__Feb_26__1981_-scaled.jpg?resize=758%2C360&amp;ssl=1)
 
@@ -66,15 +55,9 @@ Listen in on the soundcheck…
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1988-02-25a.jpg?resize=758%2C1362&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-02-25b-150x300.jpg?resize=758%2C1516)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-02-25c-273x300.jpg?resize=758%2C833)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1988-0225-228x300.jpg?resize=758%2C998)
 

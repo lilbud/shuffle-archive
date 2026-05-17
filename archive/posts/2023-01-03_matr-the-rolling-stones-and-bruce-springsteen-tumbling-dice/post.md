@@ -23,5 +23,3 @@ These "Tumbling Dice" performances represent the only times Bruce and Mick have 
 **Tumbling Dice**<br>
 **First performed:** December 15, 2012 (Newark, NJ)<br>
 **Last performed:** May 29, 2014 (Lisbon, Portugal)<br>
-
-

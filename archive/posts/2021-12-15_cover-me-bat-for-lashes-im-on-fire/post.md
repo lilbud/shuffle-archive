@@ -1,5 +1,4 @@
 
-
 Here's a cover that should stop you in your tracks.
 
 Bat For Lashes (Natasha Khan) completely co-opts "" preserving its sexual tension but completely transforming it into something more spiritual and more human than Bruce's baser original.

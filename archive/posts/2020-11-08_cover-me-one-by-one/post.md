@@ -17,5 +17,3 @@ But we at least have a pretty good idea why they chose to cover it at all: Bruce
 **One By One**<br>
 **First performed:** September 30, 1967 (Freehold, NJ)<br>
 **Last performed:** September 30, 1967 (Freehold, NJ)<br>
-
-

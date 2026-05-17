@@ -1,12 +1,9 @@
 
-
 *New entry for 1979; audio for 1984***New for 2025:**
 
 Bruce and the E Street Band kick off a seven-night stand at Oliver's in Boston.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1973-0820-200x300.jpg?resize=758%2C1137)
 
@@ -26,11 +23,7 @@ Bruce and the boys play one of their most legendary, emotional and impassioned s
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1981-08-20a-194x300.png?resize=758%2C1172)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1981-08-20b-300x193.png?resize=758%2C488)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1981-08-20c.png?resize=758%2C1345&amp;ssl=1)
 
@@ -54,8 +47,6 @@ Yet another of the all-time great shows performed on this date–this time acros
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1984-08-20.jpg?resize=758%2C1191&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/The_Herald_News_1984_08_24_41.jpg?w=758&amp;ssl=1)
 
 Bruce makes a guest appearance with Joe Grushecky and the Houserockers (the first of what will become a long series across many years) at Marz American Style in Long Branch, New Jersey, playing an eclectic set with the band that includes Bruce originals, Joe originals, and classic covers. John Eddie and Dion DiMucci join for the encores. Listen to the entire fun set below, and for more highlights, see today's from guest blogger Terry Camp.
@@ -66,11 +57,7 @@ Bruce makes a guest appearance with Joe Grushecky and the Houserockers (the firs
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1994-08-20a-293x300.png?resize=758%2C776)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1994-08-20b-300x112.png?resize=758%2C283)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1994-08-20c-209x300.png?resize=758%2C1088)
 
@@ -83,8 +70,6 @@ In Portland, Oregon, Bruce starts to loosen up the main set of the Rising Tour, 
 [https://www.youtube.com/embed/2IHntRdm9B8?feature=oembed](https://www.youtube.com/embed/2IHntRdm9B8?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2002-08-20a-300x214.png?resize=758%2C541)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2002-08-20b.png?resize=758%2C1601&amp;ssl=1)
 

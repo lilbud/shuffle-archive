@@ -1,5 +1,4 @@
 
-
 Okay, I know just posted a few days ago to celebrate the video's anniversary, so I was planning to save this one for much later. But I watched it again last night, and it's just too much fun to sit on.
 
 [another "Dancing in the Dark" cover](http://estreetshuffle.com/index.php/2018/06/29/cover-me-kermit-the-frog-dancing-in-the-dark/)

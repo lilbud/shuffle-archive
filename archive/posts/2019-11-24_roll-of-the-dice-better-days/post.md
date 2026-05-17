@@ -38,7 +38,7 @@ That coupling of rhyming metaphors–"eating caviar and dirt" and "a rich man in
 The runners up:
 
 > *Now a life of leisure and a pirate's treasure don't make much for tragedy*
-***It's a sad man my friend who's living in his own skin and can't stand the company***  
+***It's a sad man my friend who's living in his own skin and can't stand the company***
 > *Every fool's got a reason to feeling sorry for himself and turning his heart to stone*
 ***Tonight this fool's halfway to heaven and just a mile outta hell and I feel like I'm coming home***<br>
 
@@ -54,8 +54,8 @@ In concert, "Better Days" was a staple of the 1992 and 1993 tours, but it's only
 
 [Watch Video Highlight](https://videopress.com/embed/OBaFOsgK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0)
 
-**Better Days  
-**Recorded:** 1991-1992  
+**Better Days
+**Recorded:** 1991-1992
 **Released:** *Lucky Town* (1992), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
 **First performed:** May 6, 1992 (New York City, NY)<br>
 **Last performed:** February 14, 2017 (Brisbane, Australia)<br>

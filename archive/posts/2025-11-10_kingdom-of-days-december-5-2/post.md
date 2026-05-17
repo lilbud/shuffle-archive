@@ -1,20 +1,15 @@
 
-
 *New entry for 1979***New for 2025:**
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1971-12-04.png?resize=758%2C359&amp;ssl=1)
 
 Bruce and his band kick off a six-night, two-shows-nightly stand at Kenny's Castaways in New York City. Bruce starts each show with a brief solo set before bringing out the band.
 
 **1972:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1972-12-05-300x226.jpg?resize=758%2C571)
 
@@ -29,8 +24,6 @@ Bruce and the E Street Band record a pair of Christmas greetings for WHFS in Bet
 The Darkness Tour travels south to Louisiana State University in Baton Rouge.
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1978-12-05.png?resize=758%2C629&amp;ssl=1)
 
@@ -52,19 +45,11 @@ Bruce and his new touring band bring World Tour 1992 to the Market Square Arena 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-05a.png?resize=758%2C258&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-05b.png?resize=758%2C1722&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-05c.png?resize=758%2C323&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-05d.png?resize=758%2C632&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-05e.png?resize=758%2C437&amp;ssl=1)
 
@@ -88,8 +73,6 @@ BBC produces and airs a documentary to coincide with the release of Tracks: It's
 
 **1998:** *Bruce Springsteen: A Secret History.*
 
-
-
 [https://videopress.com/embed/3Q8W4UOi?hd=0&amp;cover=1](https://videopress.com/embed/3Q8W4UOi?hd=0&amp;cover=1)
 
 [https://videopress.com/embed/Z4Q1LXj7?hd=0&amp;cover=1](https://videopress.com/embed/Z4Q1LXj7?hd=0&amp;cover=1)
@@ -100,11 +83,7 @@ Bruce and the E Street Band take the Rising Tour north to the Air Canada Center 
 
 **2002:** <https://estreetshuffle.com/wp-content/uploads/2022/12/202-If-I-Should-Fall-Behind.mp3>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-05a.png?resize=758%2C855&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-05b.png?resize=758%2C1805&amp;ssl=1)
 
@@ -116,11 +95,7 @@ After taking a year off (due to the Rising Tour) Bruce resumes his annual Asbury
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2003-12-05a.png?resize=758%2C984&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2003-12-05b.png?resize=758%2C1115&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2003-12-05c.png?resize=758%2C563&amp;ssl=1)
 
@@ -143,8 +118,6 @@ Bruce is honored by John F. Kennedy Center for the Performing Arts, first at a r
 [https://www.youtube.com/embed/lPQZsBSskHA?feature=oembed](https://www.youtube.com/embed/lPQZsBSskHA?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2009-12-05a.png?resize=758%2C1601&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2009-12-05b.png?resize=758%2C1412&amp;ssl=1)
 

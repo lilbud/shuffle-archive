@@ -38,8 +38,6 @@
 
 [KNBQ - 1984 Springsteen Hotel Room Tape by jaydio](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F285456971&show_artwork=true&maxheight=1000&maxwidth=758)
 
-
-
 ![](../../assets/2020/10/1984-10-18.png)
 
 ![](../../assets/2021/10/1984-10-18b.png)
@@ -83,8 +81,6 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 [Watch on Youtube: Tiger rose - sonny burgess & bruce springsteen](https://www.youtube.com/watch?v=zPY4nX3nWLY)
 
 [Watch on Youtube: Bruce Springsteen & Joe Ely - All Just to Get to You - Live from Red Bank, NJ (10/18/2001)](https://www.youtube.com/watch?v=lPAF58o_8Vw)
-
-
 
 [Watch on Youtube: Joan Jett & Bruce Springsteen Light Of Day live](https://www.youtube.com/watch?v=eClEbgyyn5M)
 
@@ -146,8 +142,6 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 > [♬ original sound – BBC Radio 2](https://www.tiktok.com/music/original-sound-7433827014567627553?refer=embed "♬ original sound - BBC Radio 2")
 
 — <https://www.tiktok.com/@bbcradio2/video/7433826972968471841>
-
-
 
 …as well as by Antoine de Caunes for a French documentary. Later in the day, Bruce is joined by Jon Landau and Thom Zimny for an interview with Clint Drieburg of Radio Nova.
 

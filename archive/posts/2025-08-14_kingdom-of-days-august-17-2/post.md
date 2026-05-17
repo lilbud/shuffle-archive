@@ -1,5 +1,4 @@
 
-
 *Audio for 1975***New for 2025:**
 
 Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that's where the band wants to be–but they honor their commitment.
@@ -34,15 +33,11 @@ Bruce and his new touring band bring World Tour 1992 to the Detroit area for the
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-17a-296x300.png?resize=758%2C769)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-17b-211x300.png?resize=758%2C1078)
 
 Bruce postpones a scheduled Reunion show in Detroit to the following month due to "scheduling conflicts."
 
 **1999:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1999-08-16-76x300.png?resize=758%2C2992)
 
@@ -54,8 +49,6 @@ Bruce and the E Street Band play their second of only two Rising Tour stadium sh
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-17a-204x300.png?resize=758%2C1115)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-08-17b-225x300.png?resize=758%2C1011)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
@@ -65,7 +58,5 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 resumes its limited return engagement at the St. James Theater in New York City after a month-long break. During the hiatus, the pandemic has resurged and masks are a requirement among the audience again. Bruce also winks at the recent "Thunder Road" debate, definitively and repetitively singing "sways" to put the matter to rest.
 
 **2021:** *Springsteen on Broadway* <https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/Daily_Record_2021_08_27_X7-scaled.jpg?resize=758%2C1535&amp;ssl=1)

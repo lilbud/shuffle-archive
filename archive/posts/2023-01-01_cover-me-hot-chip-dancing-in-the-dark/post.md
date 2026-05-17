@@ -1,5 +1,4 @@
 
-
 Just in case Bruce's original video for "" isn't eighties enough for you… well, sometimes its better to just let a clip speak for itself.
 
 [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)

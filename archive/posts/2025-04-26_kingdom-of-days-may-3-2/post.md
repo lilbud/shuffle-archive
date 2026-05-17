@@ -1,5 +1,4 @@
 
-
 *Audio for 1972; new entry for 1982; video for 1988***New for 2025:**
 
 After impressing John Hammond the day prior, Bruce records fourteen demo tracks at Columbia Records in New York City. Four of them ("" "" "," and "" will be released more than a quarter century later on . Others, like "" and "," remain unreleased.
@@ -47,8 +46,6 @@ Night Two at the Shoreline Amphitheater in Mountain View, California for the Tun
 is certified 6x multi-platinum by the Recording Industry Association of America, and Canada gets its first Reunion show (and first-ever "") on the first of two nights at the Air Canada Center in Toronto.
 
 **2000:***Born to Run* [Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)<https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2000-05-03.jpg?resize=758%2C1458&amp;ssl=1)
 

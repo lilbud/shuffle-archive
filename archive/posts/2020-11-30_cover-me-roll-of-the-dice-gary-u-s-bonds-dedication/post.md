@@ -3,7 +3,6 @@ Now here's an usual cover for a couple of reasons:
 1. Bruce never released it.
 2. It's entirely possible that this doesn't even qualify as a cover.
 
-
 Say what?
 
 Here's what we know:
@@ -13,7 +12,6 @@ Here's what we know:
 - Bruce and Steve co-produced the album with Bonds, so they had a very strong hand in the final product.
 - The backing musicians for the album included Bruce, Steve, Roy, Clarence, Danny, Garry, and Max–in other words, the entire E Street Band. Several other musicians contributed their talents as well.
 - When you listen to "Dedication" specifically, the band sure sounds an like pure E Street. Give it a listen:
-
 
 [Watch on Youtube: Gary US Bonds - Dedication - RARE!! ''Rockin' Tune''](https://www.youtube.com/watch?v=0WMWIzIBd8k)
 

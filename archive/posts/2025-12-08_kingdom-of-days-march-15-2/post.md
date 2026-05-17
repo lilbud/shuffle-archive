@@ -1,18 +1,13 @@
 
-
 : Bruce and the band play their fourth of seven nights at Oliver's in Boston.
 
 **1973**<br>
 
-Bruce plays Austin for the first time to a sold-out crowd at Armadillo World Headquarters. He'll be back in 38 years to the day to keynote at SXSW. 
+Bruce plays Austin for the first time to a sold-out crowd at Armadillo World Headquarters. He'll be back in 38 years to the day to keynote at SXSW.
 
 **1974:** (photo credit: Burton Wilson)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/1974-03-15-rotated-1.jpg?resize=384%2C936&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1974-0315.jpg?resize=300%2C460&amp;ssl=1)
 
@@ -28,8 +23,6 @@ Bruce and the band play their third show in three nights, this time at Broome Co
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1977-03-15-1.jpg?resize=758%2C377&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1977-0315.jpg?resize=456%2C800&amp;ssl=1)
 
 At the Record Plant in New York City, Bruce records "(I Love) Everything About You," which remains unreleased to this day.
@@ -39,8 +32,6 @@ At the Record Plant in New York City, Bruce records "(I Love) Everything About Y
 In town a day early for his show in Rosemont the next night, Bruce has dinner out at an Italian restaurant.
 
 **1988:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-15.png?resize=758%2C935&amp;ssl=1)
 
@@ -61,8 +52,6 @@ Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street 
 [https://www.youtube.com/embed/NXYNPO3zIj8?feature=oembed](https://www.youtube.com/embed/NXYNPO3zIj8?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-15a.png?resize=740%2C1757&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-15b.png?resize=758%2C477&amp;ssl=1)
 
@@ -110,8 +99,6 @@ Night One of an outstanding three-night stand along the River Tour (2016 Edition
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-15a.jpg?resize=583%2C821&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2016-03-15b.jpg?resize=695%2C822&amp;ssl=1)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
@@ -121,8 +108,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 Spotify premieres Episode 5 of the new podcast from Bruce and President Barack Obama. This episode is entitled "Every Man for Himself: Money and the American Dream." In addition to their conversation, Bruce performs acoustic versions of "Atlantic City" and "Used Cars."
 
 **2021:** *Renegades: Born in the U.S.A.*,
-
-
 
 [https://open.spotify.com/embed/episode/15i7EaLqjjfVeaqMqnj43w?si=4d79a9c9986a40e7&amp;utm_source=oembed](https://open.spotify.com/embed/episode/15i7EaLqjjfVeaqMqnj43w?si=4d79a9c9986a40e7&amp;utm_source=oembed)
 

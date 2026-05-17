@@ -1,5 +1,4 @@
 
-
 *Advertisement for 1973 and 1974; video for 1990; audio for 1990 and 2005***New for 2025:**
 
 Bruce and the E Street Band headline two shows at the Roxy Theater in Roxborough, the latter of which features the first known recording of Bruce covering "")
@@ -14,11 +13,7 @@ Joe Walsh is in the audience when Bruce and the boys play a gig at the Universit
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Daily_Progress_Sun__Nov_17__1974_.jpg?w=758&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/Richmond_Times_Dispatch_1974_11_15_26.jpg?resize=758%2C676&amp;ssl=1)
 
@@ -29,8 +24,6 @@ Bruce and the boys play a Darkness show at the Munn Ice Arena at Michigan State 
 [https://www.youtube.com/embed/KO8HMeGkox0?feature=oembed](https://www.youtube.com/embed/KO8HMeGkox0?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/46628674615_93f909254e_o-221x300.jpg?resize=758%2C1029)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1978-11-17-1.png?resize=447%2C1441&amp;ssl=1)
 
@@ -65,8 +58,6 @@ Just like in the old days, several minutes after Bruce leaves the stage followin
 [https://www.youtube.com/embed/cH8ta8hMUwI?feature=oembed](https://www.youtube.com/embed/cH8ta8hMUwI?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-17a-300x103.png?resize=758%2C260)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-17b-1.png?resize=417%2C1117&amp;ssl=1)
 
@@ -134,7 +125,7 @@ Bruce performs a four-song acoustic set at the Concert for Autism Speaks at Carn
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Daily_News_Thu__Nov_19__2009_-scaled.jpg?resize=758%2C259&amp;ssl=1)
 
-Bruce and Jessica take in Taylor Swift's concert in Raleigh. Backstage, he borrows Taylor's guitar, plays "," and signs the guitar for her. Watch Taylor tell the story and show a clip of Bruce's impromptu performance below (and check out her own cover of "Dancing in the Dark" 
+Bruce and Jessica take in Taylor Swift's concert in Raleigh. Backstage, he borrows Taylor's guitar, plays "," and signs the guitar for her. Watch Taylor tell the story and show a clip of Bruce's impromptu performance below (and check out her own cover of "Dancing in the Dark"
 
 **2011:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[here).](http://estreetshuffle.com/index.php/2018/11/14/cover-me-taylor-swift-dancing-in-the-dark/)
 
@@ -154,8 +145,6 @@ The Wrecking Ball Tour comes to the Sprint Center in Kansas City, where Bruce op
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/2012-11-17a.png?resize=758%2C1043&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2012-11-17b-1.png?resize=555%2C1125&amp;ssl=1)
 
 Bruce releases , collecting remastered editions of Bruce's early work.
@@ -171,7 +160,5 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: James Burrows.
 
 **2018:***Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/2018-11-17-300x300.jpg?resize=758%2C758)

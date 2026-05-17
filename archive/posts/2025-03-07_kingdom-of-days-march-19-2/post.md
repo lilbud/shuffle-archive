@@ -1,5 +1,4 @@
 
-
 *Audio for 1977; video for 2009 and 2012; new entry for 2024***New for 2025:**
 
 Bruce and his band play two shows at their second night at Gertie's in Dallas.
@@ -20,15 +19,11 @@ A scheduled show in London is postponed due to Bruce's exhaustion from the first
 
 **1981:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1002)
 
 Bruce arrives in Sydney two days before what will be his first-ever show in Australia.
 
 **1985:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1985-03-19.png?resize=758%2C460&amp;ssl=1)
 
@@ -54,11 +49,7 @@ A second public warm-up show for Bruce Springsteen and the E Street Band, their 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19a-300x218.jpg?resize=758%2C551)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19b-300x287.jpg?resize=758%2C725)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-19c.jpg?resize=758%2C493&amp;ssl=1)
 
@@ -82,7 +73,7 @@ Jon Stewart interviews Bruce on The Daily Show, where Bruce performs an acoustic
 
 [https://videopress.com/embed/5Dsw0eAI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5Dsw0eAI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Night Two of the Wrecking Ball Tour, at the Greensboro Coliseum. For show highlights, see my 
+Night Two of the Wrecking Ball Tour, at the Greensboro Coliseum. For show highlights, see my
 
 **2012:** [report for this show.](http://estreetshuffle.com/index.php/2018/03/19/where-the-band-was-greensboro-march-19-2012/)*Where the Band Was*
 
@@ -90,7 +81,7 @@ Night Two of the Wrecking Ball Tour, at the Greensboro Coliseum. For show highli
 
 [https://www.youtube.com/embed/iEWmlk5mmEI?feature=oembed](https://www.youtube.com/embed/iEWmlk5mmEI?feature=oembed)
 
-The final night (for anyone) at the L.A. Sports Arena features a magical "" The arena is demolished shortly thereafter. For more highlights from this night, see my 
+The final night (for anyone) at the L.A. Sports Arena features a magical "" The arena is demolished shortly thereafter. For more highlights from this night, see my
 
 **2016:** [Drive All Night.](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)[report for this show.](http://estreetshuffle.com/index.php/2018/03/19/where-the-band-was-los-angeles-march-19-2016/)*Where the Band Was*
 
@@ -101,8 +92,6 @@ The final night (for anyone) at the L.A. Sports Arena features a magical "" The 
 [https://www.youtube.com/embed/3zc2E7N2xPg?feature=oembed](https://www.youtube.com/embed/3zc2E7N2xPg?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-19a-180x300.jpg?resize=758%2C1263)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-19b-300x300.jpg?resize=758%2C758)
 

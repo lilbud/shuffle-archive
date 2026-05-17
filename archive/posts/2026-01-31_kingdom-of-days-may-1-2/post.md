@@ -1,18 +1,13 @@
 
-
 Steel Mill returns to the Hullabaloo in Richmond, Virginia.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1970-0501.jpg?resize=317%2C480&amp;ssl=1)
 
 Bruce joins the Sundance Blues Band (featuring Southside Johnny, Steve Van Zandt, Vini Lopez, Garry Tallent, and Joe Hagstrom) during their encore at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1971-05-01.jpg?resize=300%2C172&amp;ssl=1)
 
@@ -58,8 +53,6 @@ Bruce and the reunited E Street Band play their first of two shows at the Manche
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1999-05-01.jpg?resize=758%2C818&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/46586788561_fd35492733_o.jpg?resize=758%2C634&amp;ssl=1)
 
 Bruce's newly released album debuts in the top spot on both the U.S. and U.K. charts.
@@ -69,8 +62,6 @@ Bruce's newly released album debuts in the top spot on both the U.S. and U.K. ch
 Bruce joins Tim McCloone on stage for two songs at the annual Ranney School Ball in Addison Park in Aberdeen, New Jersey. His autographed guitar is auctioned later to benefit the school.
 
 **2010:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/medium.jpg?resize=500%2C375&amp;ssl=1)
 
@@ -111,7 +102,5 @@ Dion releases a video single for his remake of "Hymn to Him," featuring backing 
 Bruce and Patti attend starring George Clooney on Broadway.
 
 **2025:** *Good Night, and Good Luck*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/medium-11.jpg?resize=500%2C373&amp;ssl=1)

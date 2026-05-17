@@ -1,5 +1,4 @@
 
-
 Bruce and the E Street Band wrap up their three-night opening stand for the Tunnel of Love Express Tour at the Centrum in Worcester, Massachusetts, where Bruce plays "" for the very first time.
 
 **1988:** [Love Me Tender](http://estreetshuffle.com/index.php/2019/03/02/cover-me-love-me-tender/)
@@ -8,8 +7,6 @@ Bruce and the E Street Band wrap up their three-night opening stand for the Tunn
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-02-29-300x262.jpg?resize=758%2C662)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Boston_Globe_Tue__Mar_1__1988_-scaled.jpg?resize=758%2C1064&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Boston_Globe_Tue__Mar_1__1988_-1-scaled.jpg?resize=758%2C1366&amp;ssl=1)
 
 Bruce plays a solo acoustic show at the Symphony Hall in Birmingham, England.
@@ -17,8 +14,6 @@ Bruce plays a solo acoustic show at the Symphony Hall in Birmingham, England.
 **1996:**<br>
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDwD2kjnWXOgedmvtxr8aLV](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDwD2kjnWXOgedmvtxr8aLV)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Birmingham_Evening_Mail_Fri__Mar_1__1996_.jpg?resize=758%2C535&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Birmingham_Post_Fri__Mar_1__1996_-scaled.jpg?resize=758%2C1964&amp;ssl=1)
 

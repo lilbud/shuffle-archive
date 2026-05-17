@@ -1,12 +1,9 @@
 
-
 *Audio for 1970; new entry for 1979***New for 2025:**
 
 The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank, New Jersey. Jeannie Clark opens for the band; she will later join Dr. Zoom and the Sonic Boom as a Zoomette.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1968-0717-300x179.jpg?resize=740%2C440)
 
@@ -25,8 +22,6 @@ Steel Mill headlines at Asbury Park's Sunshine In, with a setlist that features 
 Bruce and the E Street Band play two shows at Le Garage in Spray Beach, New Jersey.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/garage717-196x300.jpg?resize=758%2C1160)
 
@@ -66,11 +61,7 @@ Bruce, Patti, and Soozie join Joe Grushecky and the Houserockers on stage at The
 
 **2004:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/grusheck-300x200.jpg?resize=758%2C505)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2004-07-17-225x300.png?resize=758%2C1010)
 
@@ -109,7 +100,5 @@ Netflix films a special invitation-only performance of at the Walter Kerr Theate
 continues its limited return engagement at the St. James Theater in New York city, In attendance tonight: Danny DeVito and Adam Duritz.
 
 **2021:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/07/2021-07-17.jpg?resize=309%2C500&amp;ssl=1)

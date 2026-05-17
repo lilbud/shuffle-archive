@@ -1,5 +1,4 @@
 
-
 In the late summer of 1967, seventeen-year-old Bruce Springsteen was rapidly becoming the center of attention in his high school band, The Castiles.
 
 Bruce's vocals were becoming increasingly confident; more often than not he now sang the lead. And as a guitarist, he was already well on his way to earning his "fastest in the east" reputation. Unsurprisingly, the band began seeking out material that allowed Bruce to show off his chops, and if you fancied yourself a guitar hero in 1967, there was one idol you couldn't help but try and cover.

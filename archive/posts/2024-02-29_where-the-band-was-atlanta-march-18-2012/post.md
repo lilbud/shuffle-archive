@@ -1,5 +1,4 @@
 
-
 If you're one of those fans who goes to concerts for the classics and makes a beer run during the new songs, don't go to the first night of a tour.
 
 Me, I try to always make opening night, because I love hearing new material–and since is right up there near the very top of my favorite albums list, I was thrilled to be at the kick-off for the tour.

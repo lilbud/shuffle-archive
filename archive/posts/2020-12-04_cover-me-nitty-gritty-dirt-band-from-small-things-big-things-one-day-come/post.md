@@ -1,5 +1,4 @@
 
-
 The Nitty Gritty Dirt Band has a knack for spotting Springsteen songs that are ripe for a rockabilly cover treatment.
 
 They scored with and six years later they rescued "From Small Things" from obscurity and landed it on the Billboard Country Top 100 chart, where it peaked at #65.

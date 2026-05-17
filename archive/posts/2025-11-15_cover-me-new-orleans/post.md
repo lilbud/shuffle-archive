@@ -1,5 +1,4 @@
 
-
 "New Orleans" was Gary U.S. Bonds' first-ever single and one of his highest-charting, so of course Bruce was bound to cover it.
 
 Originally released in September 1960, "New Orleans" was credited to simply "U.S. Bonds" (no Gary), a strange stage name chosen for Gary Anderson by his producer, in the bizarre hope that radio DJs would assume the song was a patriotic benefit or PSA.

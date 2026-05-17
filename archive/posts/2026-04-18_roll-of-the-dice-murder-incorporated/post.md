@@ -94,7 +94,6 @@ It's enough to make us all frustrated.
 
 ---
 
-
 **Bonus #1:** No essay on "Murder Incorporated" could be complete without the spectacular *Live in New York City* performance. Recorded at the very end of the Reunion Tour with the E Street Band at the peak of their powers, after performing the song every single night of the tour without exception, "Murder Incorporated" is a tour de force, one of Bruce's most exciting performances on official video.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hJhULVsCctI)

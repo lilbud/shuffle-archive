@@ -1,10 +1,6 @@
 > "The cookers themselves–recruited from the fields–sometimes are not aware of the dangers. Hydriodic acid… eats through not only skin but concrete. If inhaled, its fumes cause chemical pneumonia, which can bring a quick, painful death.
 >
->
->
 > "‘We have no idea how may dead Mexicans we find in the desert died from breathing in meth fumes,' one DEA agent said."
->
->
 >
 > — Mark Arax and Tom Gorman, *Los Angeles Times*, March 13, 1995
 

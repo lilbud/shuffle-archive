@@ -1,14 +1,9 @@
 
-
 Bruce plays the Spring Carnival at UMass Amherst. With attendance at around 18,000, this is one of the largest crowds that Bruce will play to for years.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1973-05-06-scaled.jpg?resize=623%2C2560&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0506.jpg?resize=748%2C976&amp;ssl=1)
 
@@ -16,15 +11,11 @@ Bruce and his band play a show at Bucks County Community College in Newtown, Pen
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0506.jpg?resize=300%2C159&amp;ssl=1)
 
 Bruce plays a sparsely-attended gig at the Municipal Auditorium in Shreveport, Louisiana.
 
 **1976:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-05-05.jpg?resize=758%2C387&amp;ssl=1)
 
@@ -47,8 +38,6 @@ Bruce and the E Street Band play their second of two nights at the Tacoma Dome o
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCklFtd1yJuyrTD01Z7XiFd](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCklFtd1yJuyrTD01Z7XiFd)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Morning_News_Tribune_Mon__May_9__1988_.jpg?resize=758%2C846&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Morning_News_Tribune_Mon__May_9__1988_-1-scaled.jpg?resize=758%2C2251&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1988-0506.jpg?resize=758%2C422&amp;ssl=1)
 
@@ -118,6 +107,6 @@ Bruce inducts Steve Van Zandt into the New Jersey Hall of Fame. Following Little
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2018-05-05.jpg?resize=758%2C548&amp;ssl=1)
 
-It's starting to look like a series: Bruce makes his third appearance as radio DJ on his E Street Radio show, 
+It's starting to look like a series: Bruce makes his third appearance as radio DJ on his E Street Radio show,
 
 **2020:** *From My Home to Yours.*<https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-06-Bruce-E-Street-Radio-DJ-set-3.mp3>

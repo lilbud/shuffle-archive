@@ -42,8 +42,6 @@
 
 [Watch Video](https://charlierose.com/video/player/16872)
 
-
-
 [Watch on Youtube: Born In The U.S.A. (From Charlie Rose)](https://www.youtube.com/watch?v=fiuQ2tdD4p0)
 
 **2002:** In town a day early for their show in Orlando, Bruce and the band have dinner at the Hard Rock cafe after Steve gets in a round of golf.

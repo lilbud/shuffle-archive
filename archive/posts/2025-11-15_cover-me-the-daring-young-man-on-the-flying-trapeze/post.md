@@ -1,5 +1,4 @@
 
-
 Add this one near the top of "Songs Least Likely to Be Covered by Bruce Springsteen."
 
 First published in 1867, "The Daring Young Man on the Flying Trapeze" was written by George Leybourne and Gaston Lyle based on the exploits of trapeze artist Jules Leotard.

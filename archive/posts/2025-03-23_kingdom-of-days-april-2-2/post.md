@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they'll rename themselves Steel Mill.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1969-0402-158x300.jpg?resize=758%2C1441)
 
@@ -18,15 +15,11 @@ The Chicken Scratch Tour moves on to Louisville with a show at the Macauley Thea
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1976-04-02.jpg?w=758&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1976-04-02.jpg?resize=1%2C1&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1976-04-02-300x234.jpg?resize=758%2C591)
 
 Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1007)
 
@@ -67,8 +60,6 @@ The Garden State Film Festival premieres a biographical film about Clarence Clem
 [https://www.youtube.com/embed/lDmD6K13Jdk?feature=oembed](https://www.youtube.com/embed/lDmD6K13Jdk?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2011-04-02a.jpg?resize=758%2C1506&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2011-04-02b-300x219.jpg?resize=758%2C553)
 

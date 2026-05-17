@@ -42,13 +42,9 @@ Bruce took the lead on a verse, as did Woody's son Arlo, The Indigo Girls, and A
 
 [Watch Video Highlight](https://videopress.com/embed/byP6Gb2q)
 
-
-
 For more background on the American Music Masters series and Bruce's involvement, check out this excellent episode of *CLE Rocks* below.
 
 [Watch Video](https://open.spotify.com/embed/episode/7JpVNb6Ct4eivlRelTuaOF?utm_source=generator)
-
-
 
 **Hard Travelin'**<br>
 **First performed:** September 29, 1996 (Cleveland, OH)<br>

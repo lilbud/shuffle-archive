@@ -82,7 +82,6 @@ It tells us that while our narrator may be confident in this moment, he'll need 
 
 ---
 
-
 "Two Faces" made its live premiere not during the Tunnel of Love Express Tour, as is commonly believed, but at a surprise Halloween gig at McLoone's Rum Runner in Sea Bright in 1987. Bruce and the band took to the stage in disguise that night, billing themselves as The Terrorists of Love and playing a mostly party-themed set.
 
 Strangely enough, sandwiched into an encore that included "Born to Run," "[Fortunate Son](https://estreetshuffle.com/index.php/2019/11/09/matr-john-fogerty-and-bruce-springsteen-fortunate-son/)," "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)," and "Twist and Shout" was the unlikely world debut of "Two Faces."

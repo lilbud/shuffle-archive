@@ -1,5 +1,4 @@
 
-
 The nice thing about the 2004 "swing states" is that most of them were pretty close to each other. The drive from Cleveland to Detroit took less than three hours, so it was a pretty low-stress travel day considering I was doing back-to-back shows.
 
 Vote for Change Night Three was pretty similar to –the wild cards were tame by Bruce's standards ("" "," and "Travelin' Band"), but that was okay by me. These shows weren't about the setlists.

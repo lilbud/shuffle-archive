@@ -1,5 +1,4 @@
 
-
 Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
 
 **1971:**<br>
@@ -12,15 +11,11 @@ Bruce and the band co-headline with Richie Havens at Syria Mosque in Pittsburgh.
 
 **1975:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1975-0220-218x300.jpg?resize=758%2C1043)
 
 Bruce and the band play Dane County Memorial Coliseum in Madison on the Lawsuit Tour.
 
 **1977:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1977-02-20-300x151.jpg?resize=758%2C382)
 
@@ -31,8 +26,6 @@ The River Tour finishes its Florida leg at the Hollywood Sportatorium. According
 [https://videopress.com/embed/noKMOp30?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/noKMOp30?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-20a.png?resize=758%2C602&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-19b.png?resize=758%2C1299&amp;ssl=1)
 
@@ -46,7 +39,7 @@ Bruce joins John Cafferty and Beaver Brown at Big Man's West in Red Bank, New Je
 
 <https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3>
 
-Bruce records a new song, "Ida Rose (No One Knows)." It hasn't surfaced as of this writing, but it was included on an unreleased 1993 prototype for 
+Bruce records a new song, "Ida Rose (No One Knows)." It hasn't surfaced as of this writing, but it was included on an unreleased 1993 prototype for
 
 **1984:** *Tracks.*
 

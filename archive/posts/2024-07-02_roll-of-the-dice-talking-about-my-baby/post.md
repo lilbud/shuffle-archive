@@ -14,8 +14,6 @@ Springsteen's Richmond setlists often contained a few familiar Steel Mill chestn
 
 [Watch Video Highlight](https://videopress.com/embed/Ce3a1tdd?hd=0&cover=1)
 
-
-
 Bruce wrote "Talking About My Baby" for the Bruce Springsteen Band, but to the best of our knowledge (documentation of the BSB era is spotty at best), he only performed it once–in Richmond on Halloween eve.
 
 Bruce has long lifted his song titles from popular music and films, but in this case he borrowed more than a title. His version of "Talking About My Baby" is essentially a re-write of Curtis Mayfield's 1964 hit single. The melody and lyrics are all Bruce's, but its theme is as direct an homage as its title.

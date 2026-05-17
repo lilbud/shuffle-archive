@@ -69,9 +69,9 @@ It's a clever way for Bruce to write his way out of a song that is otherwise mor
 
 Obviously, Bruce chose not to release "Street Queen" on his first or any other album, and that was probably a wise choice. But with at least two clean studio recordings in the can, it would sure be nice to see it on some future *Tracks* volume, wouldn't it?
 
-**Street Queen**  
-**Recorded:** June 7, 1972  
-**Never released**  
+**Street Queen**
+**Recorded:** June 7, 1972
+**Never released**
 **Never performed**<br>
 
 © June 19, 2019

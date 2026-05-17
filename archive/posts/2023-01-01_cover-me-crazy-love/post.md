@@ -1,5 +1,4 @@
 
-
 Early in the Tunnel of Love Express Tour, Bruce was in a Van Morrison state of mind. Although they never made the setlist, he often soundchecked Morrison's songs. On one night, in fact, he soundchecked "," "," and "Crazy Love."
 
 *three in a row:*[Brown-Eyed Girl](http://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/)[Tupelo Honey](https://estreetshuffle.com/index.php/2022/10/30/cover-me-tupelo-honey/)

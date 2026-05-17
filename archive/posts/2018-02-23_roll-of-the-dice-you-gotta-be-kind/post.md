@@ -27,7 +27,7 @@ Bruce is known to fiddle around with lyrics, melodies and arrangements independe
 
 **You Gotta Be Kind**<br>
 **Recorded** 1980 (demo)
-**Never released**  
+**Never released**
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

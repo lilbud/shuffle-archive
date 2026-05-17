@@ -1,5 +1,4 @@
 
-
 Bruce is known for being exceptionally generous with his music, allowing other artists to cover and re-interpret his music with such frequency that it's almost impossible to keep track of the various covers that are out there.
 
 So it's remarkable when we hear of a circumstance in which Bruce actually an artist permission to cover one of this songs. But that's exactly what happened more than 35 years ago with Bette Midler and "."

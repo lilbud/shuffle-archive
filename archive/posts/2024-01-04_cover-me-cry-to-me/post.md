@@ -39,5 +39,3 @@ I can't help but wonder why Bruce never gave it a proper concert outing, but kno
 **Cry to Me**<br>
 **First performed:** May 14, 1971 (Asbury Park, NJ)<br>
 **Last performed:** December 12, 1975 (Greenvale, NY) – soundcheck only<br>
-
-

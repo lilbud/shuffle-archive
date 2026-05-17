@@ -1,12 +1,9 @@
 
-
 *New entry for 1982***New for 2025:**
 
 Bruce opens for Blood, Sweat and Tears, The Eagles, Joe Walsh, Billy Preston, and more at the Ohio University Music Festival.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0427-206x300.jpg?resize=758%2C1104)
 
@@ -14,11 +11,7 @@ Bruce plays three(!) shows at three schools in two states: First, a midnight sho
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/48959561473_bd28364ebd_6k-196x300.jpg?resize=758%2C1160)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0427a-180x300.jpg?resize=758%2C1262)
 
@@ -26,19 +19,15 @@ Bruce and the band are fifty miles into their drive from Chattanooga (where they
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/1976-04-27-scaled.jpg?resize=758%2C1526&amp;ssl=1)
 
-At the Power Station in New York City, Bruce works on several songs for what would eventually become 
+At the Power Station in New York City, Bruce works on several songs for what would eventually become
 
 **1982:** *Born in the U.S.A.*
 
 Bruce makes a guest appearance with The Diamonds at The Stone Pony.
 
 **1983:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1983-0427-203x300.jpg?resize=758%2C1121)
 
@@ -74,11 +63,7 @@ Bruce and Patti sing "" at a Tom Hanks tribute at New York City's Lincoln Center
 
 **2009:** [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2009-04-27.jpg?resize=758%2C1285&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2009-0427-300x206.jpg?resize=758%2C520)
 
@@ -104,15 +89,9 @@ Lucky fans (including this blogger) view never-before-seen (and many never-since
 
 **2019:** *Backstreets*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-04-27a-204x300.jpg?resize=758%2C1115)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-04-27b-300x163.jpg?resize=758%2C412)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/46975588464_1553b90db6_o-300x200.jpg?resize=758%2C505)
 

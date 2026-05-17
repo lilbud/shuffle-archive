@@ -1,5 +1,4 @@
 
-
 The Bruce Springsteen Band plays their second of nine shows this month at The Back Door in Richmond, Virginia.
 
 **1972:**<br>
@@ -18,15 +17,11 @@ Bruce and the band play their last night at Max's Kansas City in New York. David
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1992-02-05.jpg?resize=758%2C1270&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1975-02-05b-99x300.jpg?resize=758%2C2297)
 
 Bruce appears on the cover of , in a photograph taken by Annie Leibovitz. That evening, he and the E Street Band bring the River Tour to the Kemper Arena in Kansas City, where they play a tour one-off of (what else?) "" in the encores.
 
 **1981:** *Rolling Stone*[Kansas City](https://estreetshuffle.com/index.php/2021/01/11/cover-me-kansas-city/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-02-05-250x300.jpg?resize=758%2C909)
 
@@ -44,8 +39,6 @@ The New York Daily News reports that Bruce's management is negotiating with the 
 
 **1992:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/02/1997-02-05-r.jpg?resize=758%2C518&amp;ssl=1)
 
 Germany's Radio Eins interviews Bruce for a promotional CD to be released later in the year.
@@ -56,23 +49,17 @@ Bruce plays his second of two solo acoustic shows in Brisbane.
 
 **1997:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/02/1981-02-05-resized.jpg?resize=758%2C1568&amp;ssl=1)
 
 [https://videopress.com/embed/iioMYzsu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iioMYzsu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1975-02-05.png?resize=758%2C936&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Asbury_Park_Press_Tue__Feb_5__1985_-scaled.jpg?resize=758%2C595&amp;ssl=1)
 
 Bruce appears on the cover of as part of the promotional push for .
 
 **2009:** *Rolling Stone**Working on a Dream*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/rsmag-221x300.jpg?resize=758%2C1029)
 
@@ -90,7 +77,7 @@ The High Hopes Tour moves on to Perth for the first of three nights. These are B
 
 [https://www.youtube.com/embed/lENkVEyyKgk?feature=oembed](https://www.youtube.com/embed/lENkVEyyKgk?feature=oembed)
 
-At his home in Colts Neck, Bruce interviews Eddie Vedder to promote Eddie's new album, 
+At his home in Colts Neck, Bruce interviews Eddie Vedder to promote Eddie's new album,
 
 **2022:** *Earthling.*
 
@@ -105,7 +92,5 @@ Bruce and the E Street Band bring their first tour in six years to the Amway Cen
 [https://www.youtube.com/embed/vthBXU_-YhY?feature=oembed](https://www.youtube.com/embed/vthBXU_-YhY?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/02/1981-02-05bresizew.jpg?resize=758%2C369&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Orlando_Sentinel_Tue__Feb_7__2023_.jpg?resize=758%2C667&amp;ssl=1)

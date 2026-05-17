@@ -1,12 +1,9 @@
 
-
 *New entry for 2024***New for 2025:**
 
 Future singer/guitarist/songwriter/producer/arranger/actor/DJ/best-selling author, member of the E Street Band, co-founder of the Asbury Jukes, and leader of the Disciples of Soul–Steven Van Zandt is born today in Winthrop, Massachusetts.
 
 **1950:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/svz-226x300.jpg?resize=758%2C1005)
 
@@ -14,15 +11,11 @@ Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1968:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/1968-11-22.gif?resize=758%2C1170)
 
 Still transitioning from Child to Steel Mill, Bruce and the band open for Iron Butterfly at Randolph-Macon College.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1969-11-21-196x300.jpg?resize=758%2C1160)
 
@@ -92,7 +85,7 @@ President Barack Obama presents Bruce with the Presidential Medal of Freedom, th
 
 Before the ceremony, Bruce joins the assembled honorees in the Mannequin Challenge.
 
-I'm in. 
+I'm in.
 
 [pic.twitter.com/oU344pnYsH](https://t.co/oU344pnYsH)
 
@@ -100,11 +93,7 @@ I'm in.
 
 [November 22, 2016](https://twitter.com/TheEllenShow/status/801127734952853504?ref_src=twsrc%5Etfw)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2016-11-22a-117x300.png?resize=758%2C1944)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2016-11-22b-153x300.png?resize=758%2C1486)
 
@@ -112,7 +101,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2017:** *Springsteen on Broadway*
 
-Bruce gathers the E Street Band at his home studio in Colts Neck for the last day of a five-day recording session that will yield 
+Bruce gathers the E Street Band at his home studio in Colts Neck for the last day of a five-day recording session that will yield
 
 **2019:** *.*[Letter to You](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)
 

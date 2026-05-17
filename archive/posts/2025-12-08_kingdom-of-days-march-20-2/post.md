@@ -1,5 +1,4 @@
 
-
 Bruce and his band play two shows at their third night at Gertie's in Dallas.
 
 **1974:**<br>
@@ -7,8 +6,6 @@ Bruce and his band play two shows at their third night at Gertie's in Dallas.
 "Juicy Brucey" and the E Street Band bring the Lawsuit Tour to Providence College.
 
 **1977:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1977-0320.jpg?resize=681%2C1743&amp;ssl=1)
 
@@ -40,15 +37,9 @@ Joe Grushecky guest-stars for a final encore of "Raise Your Hand" as the Tunnel 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-20a-scaled.jpg?resize=758%2C1325&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1988-03-20b.jpg?resize=758%2C702&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-20.jpg?resize=470%2C821&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1988-0320.jpg?resize=430%2C1000&amp;ssl=1)
 

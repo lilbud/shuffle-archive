@@ -39,5 +39,3 @@ Let's do this.
 **River Deep-Mountain High**<br>
 **First performed:** January 18, 1989 (New York City, NY)<br>
 **Last performed:** January 18, 1989 (New York City, NY)<br>
-
-

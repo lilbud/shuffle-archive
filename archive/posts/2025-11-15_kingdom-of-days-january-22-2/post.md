@@ -1,10 +1,7 @@
 
-
 "Mad Dog" Vini Lopez, original E Street Band drummer, is born in Neptune Township, New Jersey.
 
 **1949:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/vini-300x204.jpg?resize=758%2C515)
 
@@ -24,15 +21,11 @@ Bruce and the Sundance Blues Band open for Ruby Falls and the Rock City Band at 
 
 **1972:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1972-0122-175x300.jpg?resize=758%2C1304)
 
 Springsteen guests with Pegasus at The Jail in Hillsdale, New Jersey for "" and "Rosalita (Come Out Tonight)."
 
 **1977:**[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1977-122-300x178.jpg?resize=758%2C450)
 
@@ -99,7 +92,5 @@ Bruce and the E Street Band kick off their Australian Summer tour in Perth. This
 Bruce poses for photographer Danny Clinch at the site of the former Turf Club in Asbury Park. (Photo credit: Tom Parr)
 
 **2023:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/497928210_10236827227797455_7121247931772363553_n.jpg?resize=758%2C557&amp;ssl=1)

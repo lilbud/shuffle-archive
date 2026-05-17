@@ -1,20 +1,15 @@
 
-
 *New entry for 1978***New for 2025:**
 
 The Sundance Blues Band plays two gigs–first at the Student Prince from 9:30pm to 1:00am, and then at the Upstage from 2am to 5am.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1971-0703-255x300.jpg?resize=758%2C893)
 
 The Darkness Tour skips Fresno at the last minute, when Bruce's scheduled appearance at Warnors Theater is cancelled due to low ticket sales.
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/07/medium-5.jpg?resize=491%2C500&amp;ssl=1)
 
@@ -98,15 +93,13 @@ The first of two nights in Milan kicks off with a surprise Bruce: an amazing fan
 
 **2016:** *for*[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)
 
-A short video clip of the audience at San Siro stadium tonight 
+A short video clip of the audience at San Siro stadium tonight
 
 [pic.twitter.com/ykRECLtKn2](https://t.co/ykRECLtKn2)
 
 — Lef_iv Ⓥ (@Lef_iv)
 
 [July 3, 2016](https://twitter.com/Lef_iv/status/749673280341245956?ref_src=twsrc%5Etfw)
-
-
 
 [https://www.youtube.com/embed/XZ572D_UvZo?feature=oembed](https://www.youtube.com/embed/XZ572D_UvZo?feature=oembed)
 

@@ -1,5 +1,4 @@
 
-
 Has there ever been an instrumental so sinister, slinky and sexy as Link Wray's 1958 single, "Rumble?"
 
 Apparently not, because it remains the only instrumental ever to be banned from radio airplay (lest it incite iniquity and malefaction).

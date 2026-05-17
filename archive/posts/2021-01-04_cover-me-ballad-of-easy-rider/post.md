@@ -29,5 +29,3 @@ But if he was only ever going to play it once, he certainly made sure that perfo
 **Ballad of Easy Rider**<br>
 **First performed:** August 20, 1981 (Los Angeles, CA)<br>
 **Last performed:** August 20, 1981 (Los Angeles, CA)<br>
-
-

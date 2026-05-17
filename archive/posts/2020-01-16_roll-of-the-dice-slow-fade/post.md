@@ -2,7 +2,6 @@
 
 ---
 
-
 For your listening pleasure or maddening auditory test, I present to you almost 40 minutes of Bruce Springsteen and the E Street Band working on a new song in February 1980.
 
 [Watch on Youtube: Bruce Springsteen Slow Fade #1 practice takes](https://www.youtube.com/watch?v=JBVerurslwg)

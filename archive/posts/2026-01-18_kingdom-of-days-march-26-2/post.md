@@ -1,14 +1,9 @@
 
-
 At the Fox Theater in Atlanta, Bruce premieres an early version of "Frankie."
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1976-03-26.png?resize=758%2C821&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0326.jpg?resize=587%2C699&amp;ssl=1)
 
@@ -20,11 +15,7 @@ At the Fox Theater in Atlanta, Bruce premieres an early version of "Frankie."
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-26.png?resize=758%2C1488&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-26a.jpg?resize=482%2C958&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-26b.jpg?resize=758%2C715&amp;ssl=1)
 
@@ -49,8 +40,6 @@ Peter Wolf guest-stars for "Raise Your Hand" (a tour premiere) in the encores at
 [https://videopress.com/embed/4qMPO9xF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4qMPO9xF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2012-03-26.png?resize=758%2C364&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-26.jpg?resize=758%2C280&amp;ssl=1)
 

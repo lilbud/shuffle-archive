@@ -1,12 +1,9 @@
 
-
 *New entry for 1975***New for 2025:**
 
 Bruce cancels a scheduled performance at Detroit's Masonic Temple Theater.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1973-05-19-300x166.jpg?resize=758%2C419)
 
@@ -19,8 +16,6 @@ Bruce and the E Street Band work on what will become at the Record Plant in New 
 Bruce drops by The Stone Pony and joins The Shakes for two numbers, "" and "."
 
 **1977:** [Jailhouse Rock](http://estreetshuffle.com/index.php/2019/10/12/matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/)[Sea Cruise](http://estreetshuffle.com/index.php/2018/04/08/cover-me-sea-cruise/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1977-0519-300x188.jpg?resize=758%2C474)
 
@@ -47,8 +42,6 @@ Bruce joins Clarence Clemons and The Red Bank Rockers on stage for four songs at
 [https://videopress.com/embed/8PYuzTA6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/8PYuzTA6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1984-0519-244x300.jpg?resize=758%2C933)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1984-05-19.jpg?resize=758%2C381&amp;ssl=1)
 

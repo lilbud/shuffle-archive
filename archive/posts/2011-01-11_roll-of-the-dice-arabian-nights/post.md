@@ -89,7 +89,7 @@ This recording doesn't have the exchange between the narrator and his father; in
 
 **Arabian Nights**<br>
 **Recorded** April-June 1972<br>
-**Never released**  
+**Never released**
 **First performed:** February 14, 1972 (New York City, NY)<br>
 **Last performed:** May 2, 1972 (New York City, NY)<br>
 

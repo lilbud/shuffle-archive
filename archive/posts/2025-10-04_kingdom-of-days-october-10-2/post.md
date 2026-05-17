@@ -1,20 +1,15 @@
 
-
 *New entry for 1983; audio for 2006***New for 2025:**
 
 Bruce plays at Grendel's Lair Coffee House in Philadelphia.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1973-10-09.png?resize=758%2C1648&amp;ssl=1)
 
 Bruce and the E Street Band play a Lawsuit Tour show at Miami University in Oxford, Ohio. Based on the student newspaper clipping below, it seems that Bruce's shows are not necessarily easy to book or facilitate due to Bruce's legal battle with Mike Appel. At one point, the school seemed unsure about whether this concert would happen.
 
 **1976:** <https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1976-1010-219x300.jpg?resize=726%2C994)
 
@@ -25,8 +20,6 @@ Bruce and the E Street Band bring the River Tour to Chicago for the first of two
 [https://videopress.com/embed/OALtiJWP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OALtiJWP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1980-10-10-300x171.jpg?resize=758%2C432)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1980-10-10-300x246.jpg?resize=739%2C606)
 
@@ -39,8 +32,6 @@ Bruce completes "" during a mixing and overdub session at The Hit Factory in New
 Bruce appears on the cover of .
 
 **1985:** *Rolling Stone*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/rollingstone-242x300.jpg?resize=758%2C940)
 

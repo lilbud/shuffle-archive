@@ -1,12 +1,9 @@
 
-
 *New entry for 2024***New for 2025:**
 
 Bruce and the E Street Band headline two shows at Max's Kansas City in New York, with The Wailers opening for them.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/1973-07-19-182x300.jpg?resize=758%2C1250)
 
@@ -26,11 +23,7 @@ The Born in the U.S.A. Tour starts its Canadian leg with a show at the Montreal 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21c-137x300.png?resize=758%2C1660)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21a-300x241.png?resize=758%2C609)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21b-260x300.png?resize=758%2C875)
 

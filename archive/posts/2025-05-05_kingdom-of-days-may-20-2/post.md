@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 The River Tour continues its almost month-long U.K. leg with a show at waterlogged New Bingley Hall in Stafford.
@@ -7,8 +6,6 @@ The River Tour continues its almost month-long U.K. leg with a show at waterlogg
 **1981:**<br>
 
 [https://videopress.com/embed/YgclROfQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YgclROfQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg?resize=758%2C533&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg?resize=758%2C789&amp;ssl=1)
 
@@ -32,8 +29,6 @@ Bruce and Patti attend Don Henley's wedding. Several musicians are in attendance
 
 **1995:** [634-5789 (Soulsville, U.S.A.)](http://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1995-0520-300x260.jpg?resize=758%2C657)
 
 The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheum Theater in Boston.
@@ -43,8 +38,6 @@ The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheu
 [https://videopress.com/embed/dnyKmXPH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dnyKmXPH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20a-156x300.jpg?resize=758%2C1458)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20b-300x138.jpg?resize=758%2C349)
 

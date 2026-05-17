@@ -1,5 +1,4 @@
 
-
 The Bruce Springsteen Band plays their third of nine shows this month at The Back Door in Richmond, Virginia.
 
 **1972:**<br>
@@ -18,15 +17,11 @@ In Freehold, it seems that everyone has an opinion on a proposal to rename South
 
 **1985:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Asbury_Park_Press_Wed__Feb_6__1985_-scaled.jpg?resize=758%2C1110&amp;ssl=1)
 
 Bruce arrives in Sydney for a five-show stand on his solo acoustic tour.
 
 **1997:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1997-02-06.png?resize=758%2C1404&amp;ssl=1)
 

@@ -31,5 +31,3 @@ That's a lesson they've both proven time and again.
 **Royals**<br>
 **First performed:** March 1, 2014 (Auckland, New Zealand)<br>
 **Last performed:** March 2, 2014 (Auckland, New Zealand)<br>
-
-

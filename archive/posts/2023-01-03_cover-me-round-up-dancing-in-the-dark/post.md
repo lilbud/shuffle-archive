@@ -29,5 +29,3 @@ Their version of "Dancing in the Dark" features stomping boots, rattling keys, a
 [Watch on Youtube: Dancing in the Dark - Bruce Springsteen (Cover by Holtze Family Music)](https://www.youtube.com/watch?v=TblP0wFyzrk)
 
 That's it for this installment, but there will definitely be more–there are too many great Springsteen covers out there that deserve more attention!
-
-

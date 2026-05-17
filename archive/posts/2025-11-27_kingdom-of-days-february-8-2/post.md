@@ -1,5 +1,4 @@
 
-
 Night Two for Bruce and the (still unnamed) E Street Band at Richards in Atlanta, opening for NRBQ.
 
 **1974:**<br>
@@ -14,15 +13,11 @@ Bruce and the band play Rochester's Auditorium Theater, in a show that is availa
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1977-02-07a-300x143.jpg?resize=758%2C361)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1977-02-07b-93x300.jpg?resize=758%2C2445)
 
 Bruce plays his second of five solo acoustic shows in Sydney.
 
 **1997:** <https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1997-02-08.png?resize=758%2C1072&amp;ssl=1)
 

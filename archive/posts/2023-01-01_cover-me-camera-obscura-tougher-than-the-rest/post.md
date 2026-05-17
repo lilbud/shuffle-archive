@@ -1,5 +1,4 @@
 
-
 A fascinating thing happens when a heterosexual woman sings "."
 
 [Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)

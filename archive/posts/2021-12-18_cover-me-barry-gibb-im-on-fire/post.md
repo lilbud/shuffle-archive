@@ -1,5 +1,4 @@
 
-
 One of the highlights of Bruce Springsteen's Australian High Hopes Tour was his gorgeously arranged cover of "" by the Bee Gees. It was so good that even Barry Gibb was blown away by it. (Don't take my word for it, though.)
 
 [Stayin' Alive](https://estreetshuffle.com/index.php/2020/09/01/cover-me-stayin-alive/)
@@ -11,8 +10,6 @@ Dear Bruce , just been blown away by your Stayin Alive. You brought it back to l
 — Barry Gibb (@GibbBarry)
 
 [February 26, 2014](https://twitter.com/GibbBarry/status/438814997020692480?ref_src=twsrc%5Etfw)
-
-
 
 So when Barry kicked off his own American tour a few months later, he decided to repay the favor.
 

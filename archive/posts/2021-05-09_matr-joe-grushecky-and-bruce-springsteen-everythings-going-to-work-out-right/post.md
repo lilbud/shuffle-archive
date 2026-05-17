@@ -32,5 +32,3 @@ Maybe it's the teacher in him.
 **Everything's Going to Work Out Right**<br>
 **First performed:** November 3, 2000 (Asbury Park, NJ)<br>
 **Last performed:** December 2, 2004 (Pittsburgh, PA)<br>
-
-

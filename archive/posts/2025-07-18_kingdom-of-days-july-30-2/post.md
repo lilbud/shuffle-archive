@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 Bruce and the E Street Band co-headline with Roger McGuinn at The Troubadour in West Hollywood, a surprise gig that only became public three days prior. (Bruce doesn't actually take the stage until almost 2am, however, so this technically qualifies as an entry for July 31.)
@@ -22,11 +21,7 @@ Southside Johnny guest-stars on "" when Bruce and the E Street Band bring the Ri
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1981-07-30-300x254.png?resize=758%2C641)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1981-0730-272x300.jpg?resize=758%2C836)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1984-0730-208x300.jpg?resize=758%2C1093)
 
@@ -39,8 +34,6 @@ At the first of two nights in Detroit on the Born in the U.S.A. Tour, Bruce tour
 [https://www.youtube.com/embed/dLdutnQxZUI?feature=oembed](https://www.youtube.com/embed/dLdutnQxZUI?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1984-07-30a.jpg?resize=758%2C412&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1984-07-30b.jpg?resize=758%2C959&amp;ssl=1)
 
@@ -98,19 +91,13 @@ Finally, ABC's airs Bruce's performance of "" recorded a few days earlier.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30a-260x300.png?resize=758%2C874)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30b-266x300.png?resize=758%2C855)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30c-300x267.png?resize=758%2C674)
 
 Bruce's close friend, personal assistant, and right-hand man Terry Magovern passes away at the age of 67. Terry's life and death will inspire Bruce to write "."
 
 **2007:** [Terry's Song](http://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2007-07-30-300x110.png?resize=758%2C278)
 

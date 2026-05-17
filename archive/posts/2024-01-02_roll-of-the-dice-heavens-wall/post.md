@@ -45,7 +45,6 @@ Keep on experimenting, Bruce!
 
 ---
 
-
 Bruce played "Heaven's Wall" live for the first time on the very day the *High Hopes* album dropped: January 14, 2014 on *Late Night with Jimmy Fallon.* Skip ahead to the 24:10 mark below and you can watch the live debut. (Nils plays the role of "Right Ear Tom" during the solos, because it would be weird to watch Tom duel himself.)
 
 [www.facebook.com/SpringsteenChile](https://player.vimeo.com/video/84278263?dnt=1&app_id=122963)

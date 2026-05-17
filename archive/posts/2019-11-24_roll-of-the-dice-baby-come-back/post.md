@@ -1,5 +1,4 @@
 
-
 Another unfinished home demo recording for what would eventually become album (the dice have chosen a few of those lately), "Baby Come Back" is far enough along to get a pretty good sense of the song's meaning: we're in "" territory, with a narrator who stood proud and silent and let his baby walk away–and of course has regretted it ever since.
 
 *The River*[Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)

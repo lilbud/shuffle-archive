@@ -106,7 +106,6 @@ Bruce gets in one last joke, though: our narrator may have temporarily relieved 
 
 ---
 
-
 We know that Bruce wrote "All I'm Thinkin' About" in 1997, during the Ghost of Tom Joad era, and we know that at the very least, Brendan O'Brien's bass was recorded in 2004.
 
 The core recording, though, is an all-Springsteen production–he plays three guitars, keyboards, tambourine, and a light brush on the drums. That recording very likely dates back to the 1997-98 era (and possibly the backing vocals by Patti, Soozie, and Lisa Lowell as well), but Bruce has yet to definitively pin that down for us.

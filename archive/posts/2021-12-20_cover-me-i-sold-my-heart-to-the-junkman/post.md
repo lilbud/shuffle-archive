@@ -39,5 +39,3 @@ That performance was clearly planned and rehearsed, and it turned out great. So 
 **I Sold My Heart to the Junkman**<br>
 **First performed:** May 9, 1974 (Cambridge, MA)<br>
 **Last performed:** May 9, 1974 (Cambridge, MA)<br>
-
-

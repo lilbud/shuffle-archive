@@ -24,7 +24,7 @@ There's a lot that I love about their performance that night, but I think my fav
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FDu8kQOEDa4)
 
-**People Have the Power  
+**People Have the Power
 First performed:** October 1, 2004 (Philadelphia, PA)
 **Last performed:** April 23, 2008 (New York City, NY)<br>
 

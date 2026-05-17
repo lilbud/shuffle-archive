@@ -2,14 +2,11 @@
 >
 > — Ken Rosen (@Krosen) [October 21, 2020](https://twitter.com/Krosen/status/1318917363803115520?ref_src=twsrc%5Etfw)
 
-
-
 **Updated 10/23/20:** Context matters. As of a few minutes ago, we finally have a fully realized official E Street Band recording of "Song for Orphans" via Bruce's just-released [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/) album. And while the song is still as lyrically dense as ever, the subtext that I alluded to in the original essay below (about the temptations facing an aspiring rock star) seem much less sub- and much more primary. As I mused in my Twitter conversation with Anthony above, Bruce seems to pair and place "[If I Was The Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" and "Song for Orphans" deliberately, as a look back (on multiple levels) to the beginning of his journey from his current location far, far up the road. I'll let my original essay stand for now; perhaps someday I'll revise it to reflect the tremendous modern version. But for now, it feels like honoring the spirit of the album to preserve the past alongside the present.
 
 [Watch on Youtube: Bruce Springsteen - Song For Orphans (Official Audio)](https://www.youtube.com/watch?v=ib96-ytmLDg)
 
 ---
-
 
 Deep into the penultimate show of the Devils & Dust Tour in Trenton's Sovereign Bank Arena, Bruce Springsteen drew a wild card.
 

@@ -29,9 +29,9 @@ Bruce imagines Horn as the unsophisticated rural girl she once was, suddenly a c
 
 Bruce wrote and recorded a demo of "Camilla Horn" just before he recorded his debut album, *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*At barely a minute in length and somber in tone, it was never a serious contender for the album, but it's a fascinating early example of Bruce's gift for economical storytelling that would someday become a hallmark of his songwriting.
 
-**Camilla Horn  
-**Recorded:** April – May, 1972  
-**Never released**  
+**Camilla Horn
+**Recorded:** April – May, 1972
+**Never released**
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

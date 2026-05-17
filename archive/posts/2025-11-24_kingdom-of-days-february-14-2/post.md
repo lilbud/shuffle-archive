@@ -1,10 +1,7 @@
 
-
 Earth (one of Bruce's early bands) plays their final gig at the Italian-American Mens Association Clubhouse in Long Branch, New Jersey. Vini Lopez is in attendance and is impressed enough to recruit Bruce for a new band he's putting together. Over the next several weeks, that band will gel under the name of Child and include not just Bruce and Vini, but also Danny Federici. By the end of the year, Child will become Steel Mill, which will eventually give way to The Bruce Springsteen Band, all the while drawing the E Street musicians ever closer into Bruce's orbit. If the E Street Band has a secret origin, this is where it begins.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1969-02-14-234x300.jpg?resize=758%2C973)
 
@@ -24,11 +21,9 @@ Bruce and the band open for Dan Hicks and His Hot Licks at Virginia Commonwealth
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1973-02-14a-300x176.jpg?resize=758%2C445)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1973-02-14b.jpg?resize=758%2C1063&amp;ssl=1)
 
-Bruce records "" in the studio, his highest-charting hit and the last song to be recorded for 
+Bruce records "" in the studio, his highest-charting hit and the last song to be recorded for
 
 **1984:**[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)*Born in the U.S.A.*
 

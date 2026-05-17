@@ -5,5 +5,3 @@ In 2007, Jimmy Eat World released their sixth studio album, *Chase This Light*, 
 If you missed it then, give it a listen now–but first, turn the volume up and get your dancing shoes on, because this one *rocks.*
 
 [Watch on Youtube: Take 'Em As They Come](https://www.youtube.com/watch?v=PWQmsUWp0JU)
-
-

@@ -1,5 +1,4 @@
 
-
 In general, second shows of the tour are basically repeats of the first show. Don't go expecting anything different until the kinks are worked out a week or two in, but do go if you want to enjoy new material that will likely get dropped from the setlist within a matter of weeks (if not days).
 
 That's one reason why I followed up the Atlanta Wrecking Ball opener with the Greensboro show the next night. That, plus: Greensboro crowds really are among the best in the US. Maybe even THE best.

@@ -1,5 +1,4 @@
 
-
 *Advertisement for 1977; new entry for 2002***New for 2025:**
 
 At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bruce and the E Street Band add a one-time-only "Farmer John" into "Twist and Shout."
@@ -13,8 +12,6 @@ At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bru
 Bruce and the reunited E Street Band have their final private rehearsal for their upcoming tour before an audience of 25-30 lucky fans at Convention Hall in Asbury Park.
 
 **1999:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1999-03-11.jpg?resize=591%2C1453&amp;ssl=1)
 
@@ -34,8 +31,6 @@ Bruce, Patti, and Little Steven attend the 15th Annual Silver Clef Awards dinner
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2003-03-11.jpg?resize=758%2C367&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2003-03-11b-300x122.jpg?resize=758%2C308)
 
 Bruce rehearses for his solo tour at the Paramount Theater in Asbury Park.
@@ -45,7 +40,5 @@ Bruce rehearses for his solo tour at the Paramount Theater in Asbury Park.
 Bruce and the E Street Band rehearse for the Working on a Dream Tour at the Paramount Theater in Asbury Park.
 
 **2009:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2009-03-11.jpg?resize=522%2C644&amp;ssl=1)

@@ -9,5 +9,3 @@ Melissa's solo albums are well worth seeking out, particularly her 2004 sophomor
 Arranged as a crunchy "[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)"-esque work stomp, Melissa pulls off a tough feat–capturing the song's original tone while hardening it into a true rocker.
 
 Enjoy the day off if you have it, and send thanks to those who don't. Our essential workers are what today's all about.
-
-

@@ -1,5 +1,4 @@
 
-
 We've known that Bruce is a fan of The Drifters long before he namechecked Ben E. King in "."
 
 ~~Benny~~[The Power of Prayer](https://estreetshuffle.com/index.php/2021/09/29/roll-of-the-dice-the-power-of-prayer/)

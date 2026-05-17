@@ -1,5 +1,4 @@
 
-
 Bruce plays the second of two nights at the Upstage in Asbury Park as one of headliner Steve Van Zandt's "friends." Other friends on stage include Garry Tallent, Danny Federici, and Southside Johnny.
 
 **1971:**<br>
@@ -18,11 +17,9 @@ Bruce Springsteen joins very young cover band Atlantic City Expressway on stage 
 
 **1980:** [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
 
-
-
 ![Image result for atlantic city expressway bon jovi](https://i0.wp.com/1.bp.blogspot.com/_59qYhgWrjqU/TLTulZBXZhI/AAAAAAAAALU/F7YTLO1h-W4/s1600/1978-Atlantic%2BCity%2BExpressway.jpg?resize=758%2C766)
 
-The E Street Band (including Steve Van Zandt) reunites in the studio for the first time in eleven years to record new songs for the forthcoming album. Their recording sessions and tentative reunion that month are captured in the documentary 
+The E Street Band (including Steve Van Zandt) reunites in the studio for the first time in eleven years to record new songs for the forthcoming album. Their recording sessions and tentative reunion that month are captured in the documentary
 
 **1995:***Greatest Hits**Blood Brothers.*
 
@@ -43,8 +40,6 @@ resumes after the holiday break. Patti makes her return to the show after being 
 Bruce convenes rehearsals for the E Street Band's upcoming world tour at The Vogel in Red Bank, NJ. First-hand reports from obsessive fans (including this blogger) lurking outside the theater confirm the first known performance of "," which unfortunately will not be played on the tour. (Photo credit: Robyn Sherer)
 
 **2023:** [Janey Needs a Shooter](https://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/01/2023-01-09.jpg?resize=758%2C509&amp;ssl=1)
 

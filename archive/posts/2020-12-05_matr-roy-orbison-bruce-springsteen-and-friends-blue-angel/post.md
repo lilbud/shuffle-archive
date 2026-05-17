@@ -17,5 +17,3 @@ Check out more Orbison/Springsteen highlights from *Black and White Night* [here
 **Blue Angel**<br>
 **First performed:** September 30, 1987 (Los Angeles, CA)<br>
 **Last performed:** September 30, 1987 (Los Angeles, CA)<br>
-
-

@@ -51,5 +51,3 @@ The song itself, however, is a fairly pedestrian call-to-action for young people
 **Last performed:** August 14, 1970 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-

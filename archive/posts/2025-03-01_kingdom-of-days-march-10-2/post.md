@@ -1,12 +1,9 @@
 
-
 *New entry for 1972 ,1978, 2018, and 2024; audio for 1974***New for 2025:**
 
 The Castiles play the Hullabaloo in Middletown, New Jersey.
 
 **1967:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1967-0310-300x235.jpg?resize=758%2C594)
 
@@ -14,15 +11,11 @@ The destined-for-legend Upstage club prepares to open for business in Asbury Par
 
 **1968:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1968-03-10-152x300.jpg?resize=758%2C1496)
 
 The Bruce Springsteen Band performs at St. Joseph High School mixer in Metuchen, New Jersey. (The school mangles his name a bit, though.)
 
 **1972:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/medium-2.jpg?resize=500%2C460&amp;ssl=1)
 
@@ -88,8 +81,6 @@ Bruce rehearses for his upcoming solo tour at the Paramount Theater in Asbury Pa
 
 **2005:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2005-03-10.png?resize=620%2C1824&amp;ssl=1)
 
 A rare "" highlights the Magic Tour's stop at the Nassau Coliseum in Uniondale.
@@ -117,8 +108,6 @@ The 2016 version of the River Tour moves on to the Talking Stick Resort Arena in
 continues its run at the Walter Kerr Theater in New York City. In attendance tonight: Nathaniel Rateliff and The Night Sweats.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/2018-Springsteen-Broadway_celeb_NathanielRateliff.jpg?resize=640%2C485&amp;ssl=1)
 

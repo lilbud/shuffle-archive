@@ -1,5 +1,4 @@
 
-
 The second of two nights in Cleveland on the Chicken Scratch Tour features the last "When You Walk in the Room" for 33 years.
 
 **1976:**<br>
@@ -28,8 +27,6 @@ At the second of two shows in Zurich, Bruce plays "Dancing in the Dark" for the 
 
 **1999**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1999-04-08.jpg?resize=758%2C778&amp;ssl=1)
 
 The Reunion Tour returns to the American Midwest for a show at Kiel Center in St. Louis.
@@ -39,8 +36,6 @@ The Reunion Tour returns to the American Midwest for a show at Kiel Center in St
 [https://videopress.com/embed/Yl8UjR7w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Yl8UjR7w?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-04-08a.jpg?resize=758%2C365&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-04-08b.jpg?resize=758%2C848&amp;ssl=1)
 
@@ -89,8 +84,6 @@ The High Hopes Tour resumes proper (minus Steve Van Zandt, who will miss most of
 With two days' notice, Bruce cancels his upcoming show in Greensboro in protest of the state's adoption of a law discriminating against transgender people. Bruce's decision generates increased news coverage and national discussion around an already controversial law.
 
 **2016:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2016-0408.jpg?resize=665%2C703&amp;ssl=1)
 

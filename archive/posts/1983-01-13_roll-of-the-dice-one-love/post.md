@@ -16,7 +16,6 @@ The track list is fascinating–it includes half of the songs that would eventua
 10. Working on the Highway
 11. I'm on Fire
 
-
 What an album that would have been!
 
 Bruce was so far along in planning the *Murder Incorporated* album, in fact, that he even had a handful of B-sides selected for the album's first five singles. Those B-sides included two songs Bruce would eventually debut during the Born in the U.S.A. Tour ("Sugarland" and "Follow That Dream"), along with three "lost tracks" that wouldn't ever be performed live and wouldn't see official release for more than four decades: "Don't Back Down," "Little Girl (Like You)," and "One Love."

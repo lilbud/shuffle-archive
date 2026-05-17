@@ -28,7 +28,6 @@ Starting in December, I'll be publishing two books each month:
 - A ***Cover Me*** volume focusing on backstories and live performances of other artists' songs Bruce has covered–also six volumes a year, alternating months with *Roll of the Dice*
 - A ***Kingdom of Days*** volume that spans a single a month, twelve volumes released monthly in advance of the calendar month covered by that volume. (i.e. the book that covers January will be offered in December so that you'll have it in your hands before January starts
 
-
 After the first year, *Kingdom of Days* will be complete, so I'll release a single book each month from that point forward. There will also be periodic "bonus books," starting with *Bruce Springsteen Holiday Classics* next month.
 
 I have to say: I think the books look and feel *great*.

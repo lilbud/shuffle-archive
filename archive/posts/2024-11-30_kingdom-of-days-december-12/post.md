@@ -1,16 +1,11 @@
 
-
 *New entry for 1970, 2008, and 2023; audio and for 1975***New for 2024:**
 
 Steel Mill (or as the poster puts it, "Child under an assumed name") headlines at Monmouth College in West Long Branch, New Jersey.
 
 **1969:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1969-1212-233x300.jpg?resize=758%2C977)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1969-12-12.png?resize=758%2C1927&amp;ssl=1)
 
@@ -18,15 +13,11 @@ Steel Mill replaces scheduled headliner Flock at Asbury Park's Sunshine In when 
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/Asbury_Park_Press_1970_12_14_Page_22.jpg?resize=758%2C1431&amp;ssl=1)
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1971-12-10.png?resize=758%2C913&amp;ssl=1)
 
@@ -76,8 +67,6 @@ Bruce closes the show at Bobby Bandiera's All-Star Holiday Concert at the Count 
 
 <https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2006-12-12.png?resize=758%2C1346&amp;ssl=1)
 
 Bruce tour premieres "Because the Night" at his Magic Tour stop in Antwerp.
@@ -106,19 +95,13 @@ Bruce and the E Street Band join a line-up of stellar talent at Madison Square G
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2012-12-12a.png?resize=758%2C1143&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2012-12-12b.png?resize=758%2C1223&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2012-12-12c.png?resize=758%2C1370&amp;ssl=1)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Alex Rodriguez and Jennifer Lopez.
 
 **2017:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/2017-12-12-300x300.jpg?resize=758%2C758)
 

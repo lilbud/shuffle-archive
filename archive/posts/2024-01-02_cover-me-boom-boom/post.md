@@ -72,5 +72,3 @@ Still, "Boom Boom" remains a reliable adrenaline booster for any show it appears
 **Boom Boom**<br>
 **First performed:** April 26, 1974 (Providence, RI)<br>
 **Last performed:** September 14, 2016 (Foxborough, MA)<br>
-
-

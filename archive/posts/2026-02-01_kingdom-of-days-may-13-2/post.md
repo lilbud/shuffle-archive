@@ -1,5 +1,4 @@
 
-
 Laurel Canyon sends Bruce a royalty check for $67,000, but an auditor determines it should have been for $2,000,000, ramping up a legal battle that will keep Bruce out of the studio for some time to come. In the meantime, Bruce and the E Street Band bring the Chicken Scratch Tour to New Orleans for a single show at the Municipal Auditorium. This show features Bruce's first performance of Gary U.S. Bonds' "New Orleans" and one of the longest-ever performances of "It's Hard to Be a Saint in the City."
 
 **1976:**<br>
@@ -47,8 +46,6 @@ Bruce and the band bring the Tunnel of Love Express Tour to the Market Square Ar
 [https://www.youtube.com/embed/LN_gm14o6Y8?feature=oembed](https://www.youtube.com/embed/LN_gm14o6Y8?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-13a.jpg?resize=758%2C372&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-13b.jpg?resize=758%2C446&amp;ssl=1)
 
@@ -121,7 +118,5 @@ Bruce and the E Street Band play their first of two nights at Paris La Défense 
 Bruce and the E Street Band rehearse in Manchester for the kick-off of the Land of Hope and Dreams Tour.
 
 **2025:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/medium-13.jpg?resize=230%2C500&amp;ssl=1)

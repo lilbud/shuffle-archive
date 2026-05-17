@@ -1,5 +1,4 @@
 
-
 Steel Mill plays a show at Monmouth College in West Long Branch, New Jersey. Listen to the amazing thirty-minute epic "Garden State Parkway Blues" below.
 
 **1970:**<br>
@@ -13,8 +12,6 @@ Steel Mill plays a show at Monmouth College in West Long Branch, New Jersey. Lis
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1971-0423.jpg?resize=234%2C321&amp;ssl=1)
 
@@ -32,11 +29,7 @@ At their show at Appalachian State University in Boone, North Carolina, Bruce an
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Philadelphia_Daily_News_1973_04_25_Page_21-1-scaled.jpg?resize=758%2C1466&amp;ssl=1)**1976:** [Frankie](http://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/04/boonereview.jpg?resize=378%2C449&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1976-0424.jpg?resize=407%2C800&amp;ssl=1)
 
@@ -142,11 +135,9 @@ For the third straight day, Bruce's official Twitter account shares a mysterious
 
 **2019:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-04-24.jpg?resize=758%2C698&amp;ssl=1)
 
-Bruce makes an encore appearance as an E Street Radio DJ when he premieres a second installment of 
+Bruce makes an encore appearance as an E Street Radio DJ when he premieres a second installment of
 
 **2020:** *From My Home to Yours.*<https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-24-Bruce-E-Street-Radio-DJ-set-2-1.mp3>
 

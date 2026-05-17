@@ -1,5 +1,4 @@
 
-
 *New entry for 1979***New for 2025:**
 
 Bruce hires Robbin Thompson as vocalist for Steel Mill and kicks off three days of rehearsals at the Challenger Eastern Surfboard factory in Wanamassa, New Jersey.
@@ -9,8 +8,6 @@ Bruce hires Robbin Thompson as vocalist for Steel Mill and kicks off three days 
 Bruce and the E Street Band play their sixth night of a week-long residency at Oliver's in Boston.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1973-0821-203x300.jpg?resize=758%2C1120)
 
@@ -22,19 +19,11 @@ Finally! After fourteen months of recording and production, Bruce releases , his
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/Philadelphia_Daily_News_1975_09_05_Page_32.jpg?w=758&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/08/The_Cincinnati_Post_1975_08_29_page_21-scaled.jpg?resize=758%2C465&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1975-08-25a-300x95.png?resize=758%2C240)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/08/The_Pittsburgh_Press_1975_09_14_Page_116.jpg?resize=758%2C1089&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1975-08-25b-203x300.png?resize=758%2C1120)
 
@@ -62,11 +51,7 @@ Bruce and the E Street Band kick off a four-night stand at the Capital Center in
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1984-08-25a-300x195.png?resize=758%2C492)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1984-08-25b-300x228.png?resize=758%2C576)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1984-08-25c-300x255.png?resize=758%2C644)
 
@@ -78,23 +63,15 @@ World Tour 1992 moves on to the Washington DC area, with the first of two shows 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-25a-300x142.png?resize=758%2C359)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-25b-300x132.png?resize=758%2C334)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-25c-199x300.png?resize=758%2C1142)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1992-08-25d.png?resize=758%2C1185&amp;ssl=1)
 
 On an off-night in Boston, the Springsteens head to the Museum of Fine Arts for a family outing.
 
 **1999:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1999-08-25-300x167.png?resize=758%2C422)
 
@@ -106,15 +83,11 @@ The Rising Tour continues its western swing with a show at the America West Aren
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2002-08-25a-300x180.png?resize=758%2C455)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2002-08-25b.png?resize=539%2C2940&amp;ssl=1)
 
 Bruce and Patti visit The Antique Center in Red Bank and peruse some old instruments. Bruce picks up an acoustic guitar, Patti finds a mandolin, and the two give an impromptu instrumental performance.
 
 **2006:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/Philadelphia_Daily_News_2006_08_28_Page_37-scaled.jpg?resize=758%2C683&amp;ssl=1)
 
@@ -143,8 +116,6 @@ Bruce flirts with the four-hour mark at Night Two at MetLife Stadium, stopping j
 continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so fans in attendance get the show's "B" set with the "This Hard Land" encore. In the audience tonight: Argentine tennis player Juan Martin del Potro.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/juanmartin-1.jpg?resize=758%2C948&amp;ssl=1)
 

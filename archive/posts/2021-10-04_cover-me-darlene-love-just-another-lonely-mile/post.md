@@ -35,5 +35,3 @@ Although we've never definitively learned whether Bruce created these songs out 
 To date, Bruce has yet to perform either of the songs he gifted to Darlene, but Love sure has. Here's her debut live performance of "Just Another Lonely Mile" from her record release show in Asbury Park (with bandleaders Steve Van Zandt) in 2015.
 
 [Watch on Youtube: Darlene Love with Steven Van Zandt - Just Another Lonely Mile - 9/12/15 Asbury Park, NJ](https://www.youtube.com/watch?v=NF23DY7iVl4)
-
-

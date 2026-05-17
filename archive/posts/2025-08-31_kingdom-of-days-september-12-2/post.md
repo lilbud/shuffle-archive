@@ -1,12 +1,9 @@
 
-
 *New entry for 1977***New for 2025:**
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1971-09-12-231x300.jpg?resize=758%2C985)
 
@@ -18,8 +15,6 @@ Bruce and the E Street Band kick off a week of Texas shows with a show at the Au
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1975-09-12a-300x106.jpg?resize=758%2C268)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1975-09-12b-300x96.jpg?resize=758%2C242)
 
 Bruce holds a recording session for his next album with the E Street Band at The Record Plant in New York City.
@@ -29,8 +24,6 @@ Bruce holds a recording session for his next album with the E Street Band at The
 The Darkness Tour returns to the east coast, starting with this show in Syracuse, where a couple of fans sneak back into the arena after the show and encounter Bruce in the shower.
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0912-300x262.jpg?resize=758%2C662)
 
@@ -61,8 +54,6 @@ The Working on a Dream Tour starts a southern swing with a show at the Ford Amph
 [https://www.youtube.com/embed/tuspkjm0vsM?feature=oembed](https://www.youtube.com/embed/tuspkjm0vsM?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2009-09-12a.jpg?resize=758%2C588&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-09-12b-300x132.jpg?resize=758%2C334)
 

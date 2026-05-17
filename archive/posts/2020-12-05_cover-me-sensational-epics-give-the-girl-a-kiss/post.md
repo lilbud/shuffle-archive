@@ -1,12 +1,11 @@
 
-
 The Sensational Epics hail from Columbia, South Carolina and date back to the early 1960s. A favorite on the southern college and beach circuit, their horn-fueled sound, on-stage presence and charisma make them a perfect fit to cover Bruce's poppier tunes.
 
 If you're not familiar with the Epics, here's a vintage reel of a performance from 1966–they're still around and performing today.
 
 [https://www.youtube.com/embed/wRVXPKpgGSU?feature=oembed](https://www.youtube.com/embed/wRVXPKpgGSU?feature=oembed)
 
-In 2002, the Sensational Epics released their album, and their lead-off track was an obscure Springsteen song buried deep in the heart of Disc One of 
+In 2002, the Sensational Epics released their album, and their lead-off track was an obscure Springsteen song buried deep in the heart of Disc One of
 
 *Been There, Ain't Done Yet**Tracks.*
 

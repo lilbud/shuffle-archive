@@ -1,12 +1,9 @@
 
-
 *New entry for 1977, 1979, and 2024; audio for 2008***New for 2025:**
 
 The Sundance Blues Band plays a gig at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1971-0627-300x168.jpg?resize=753%2C422)
 
@@ -55,8 +52,6 @@ Bruce records "" at The Hit Factory in New York City.
 Bruce gets on stage at the West Hollywood House of Blues and performs six songs with Sacred Hearts, Danny Federici's post-E Street band.
 
 **1994:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1994-06-27-300x218.jpg?resize=758%2C551)
 

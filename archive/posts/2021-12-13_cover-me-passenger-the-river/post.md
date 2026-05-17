@@ -1,5 +1,4 @@
 
-
 Passenger broke through in 2012 with his global hit, "Let Her Go." About two years later, he covered Bruce's "" during a promotional appearance at SiriusXM.
 
 [The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)

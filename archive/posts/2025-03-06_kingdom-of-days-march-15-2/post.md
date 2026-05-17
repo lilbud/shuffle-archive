@@ -1,24 +1,17 @@
 
-
 *New entry for 1978, 2010, and 2024***New for 2025:**
 
 : Bruce and the band play their fourth of seven nights at Oliver's in Boston.
 
 **1973**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1-190x300.jpg?resize=758%2C1196)
 
-Bruce plays Austin for the first time to a sold-out crowd at Armadillo World Headquarters. He'll be back in 38 years to the day to keynote at SXSW. 
+Bruce plays Austin for the first time to a sold-out crowd at Armadillo World Headquarters. He'll be back in 38 years to the day to keynote at SXSW.
 
 **1974:** (photo credit: Burton Wilson)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1974-03-15.jpg?resize=660%2C2829&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1974-0315-196x300.jpg?resize=758%2C1160)
 
@@ -34,8 +27,6 @@ Bruce and the band play their third show in three nights, this time at Broome Co
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1977-03-15-1-300x149.jpg?resize=758%2C377)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1977-0315-171x300.jpg?resize=758%2C1328)
 
 At the Record Plant in New York City, Bruce records "(I Love) Everything About You," which remains unreleased to this day.
@@ -45,8 +36,6 @@ At the Record Plant in New York City, Bruce records "(I Love) Everything About Y
 In town a day early for his show in Rosemont the next night, Bruce has dinner out at an Italian restaurant.
 
 **1988:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-15.png?resize=758%2C936&amp;ssl=1)
 
@@ -67,8 +56,6 @@ Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street 
 [https://www.youtube.com/embed/NXYNPO3zIj8?feature=oembed](https://www.youtube.com/embed/NXYNPO3zIj8?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-15a.png?resize=758%2C1805&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-15b.png?resize=758%2C478&amp;ssl=1)
 
@@ -116,8 +103,6 @@ View this post on Instagram
 
 [A post shared by Bruce Springsteen (@springsteen)](https://www.instagram.com/p/lsXmw1tu3b/?utm_source=ig_embed&utm_campaign=loading)
 
-
-
 Night One of an outstanding three-night stand along the River Tour (2016 Edition), the final stand Bruce will ever play at the Los Angeles Memorial Sports Arena. For more highlights from this show, see my report for this show.
 
 **2016:** [Where the Band Was](http://estreetshuffle.com/index.php/2018/03/15/where-the-band-was-los-angeles-march-15-2016/)
@@ -125,8 +110,6 @@ Night One of an outstanding three-night stand along the River Tour (2016 Edition
 [https://www.youtube.com/embed/vN0nwWB8sp4?feature=oembed](https://www.youtube.com/embed/vN0nwWB8sp4?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-15a-213x300.jpg?resize=758%2C1068)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2016-03-15b.jpg?resize=758%2C895&amp;ssl=1)
 
@@ -137,8 +120,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 Spotify premieres Episode 5 of the new podcast from Bruce and President Barack Obama. This episode is entitled "Every Man for Himself: Money and the American Dream." In addition to their conversation, Bruce performs acoustic versions of "" and ""
 
 **2021:** *Renegades: Born in the U.S.A.*, [Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)[Used Cars.](https://estreetshuffle.com/index.php/2019/06/13/roll-of-the-dice-used-cars/)
-
-
 
 [https://open.spotify.com/embed/episode/15i7EaLqjjfVeaqMqnj43w?si=4d79a9c9986a40e7&amp;utm_source=oembed](https://open.spotify.com/embed/episode/15i7EaLqjjfVeaqMqnj43w?si=4d79a9c9986a40e7&amp;utm_source=oembed)
 

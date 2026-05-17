@@ -1,5 +1,4 @@
 
-
 Oh man… I don't have the words tonight.
 
 I've had three of Justin Townes Earle's wonderful covers on my to-blog list for ages, just waiting for the right inspiration or mood to strike.

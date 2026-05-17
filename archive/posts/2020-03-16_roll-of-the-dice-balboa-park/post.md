@@ -1,30 +1,16 @@
 > *After the Border Patrol van departed carrying the boys who did not run fast enough, Carlitos whistled, the sound echoing in the park beneath sun-glazed downtown office towers.*<br>
 >
->
->
 > *"They're gone!" he shouted in Spanish, inhaling a blast of Octane Booster–a gasoline additive and makeshift drug–from a Coke can. "I chased them off."*<br>
->
->
 >
 > *A dozen youths emerged warily from the trees: homeless illegal immigrants who earn a living in a verdant corner of Balboa Park where the cars circle day and night. Where the drivers in business suits and BMWs seek out children who survive by prostituting themselves and selling drugs.*<br>
 >
->
->
 > *Unfazed by the Border Patrol raid, the diminutive Carlitos, 14, led the way through the brush as he described the suburban home of a man who picked him up recently.*<br>
->
->
 >
 > *"He has Super-Nintendo, a video, a big television, a pool," he exclaimed, black hair falling in his eyes. "Like the movies."*<br>
 >
->
->
 > *Carlitos reached a freeway interchange that cuts through the park and gestured at a row of blankets in the dirt where he sleeps beneath a concrete bridge. "We're from Tijuana, Sinaloa, Mexico City, Guadalajara, Honduras," he said. "This is our new house."*<br>
 >
->
->
 > *Carlitos and his friends are the children of the border.*<br>
->
->
 >
 > *–Sebastian Rotella, "[Children of the Border](https://www.latimes.com/archives/la-xpm-1993-04-03-mn-18653-story.html)" — Los Angeles Times, April 3, 1993*<br>
 

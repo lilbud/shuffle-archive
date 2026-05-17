@@ -1,5 +1,4 @@
 
-
 Back in 1989, the Rock and Roll Hall of Fame was still in its infancy, and its annual induction ceremony was held not at New York City's Madison Square Garden but at the much more intimate Waldorf-Astoria Hotel.
 
 That fourth class of inductees was an amazing one: The Rolling Stones, The Temptations, Dion, and Stevie Wonder were among the luminaries welcomed into the Hall that night, and Bruce Springsteen was there to congratulate them, along with Little Richard, Tina Turner, Pete Townshend, Lou Reed, and more.

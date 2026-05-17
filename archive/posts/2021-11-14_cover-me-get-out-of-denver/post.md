@@ -1,5 +1,4 @@
 
-
 It sounds like a Chuck Berry song and reads like a Bruce Springsteen song.
 
 With lyrics about Cadillacs roaring through Nebraska, running from state troopers and driving all night, "Get Out of Denver" sounds like it foretells more of Springsteen's catalog than Bob Seger's.

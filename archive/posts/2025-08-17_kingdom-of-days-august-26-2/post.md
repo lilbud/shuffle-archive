@@ -1,5 +1,4 @@
 
-
 *New entry for 1977 and 1979***New for 2025:**
 
 Steel Mill rehearses in Wanamassa, New Jersey for their upcoming appearance at the Nashville Music Festival.
@@ -9,8 +8,6 @@ Steel Mill rehearses in Wanamassa, New Jersey for their upcoming appearance at t
 Bruce and the E Street Band wrap a week-long residency at Oliver's in Boston.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1973-0826-195x300.jpg?resize=758%2C1166)
 
@@ -47,8 +44,6 @@ The Born in the U.S.A. stadium tour moves north to CNE Stadium in Toronto for th
 [https://www.youtube.com/embed/P9Zzw3qz7Dk?feature=oembed](https://www.youtube.com/embed/P9Zzw3qz7Dk?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-08-26a-269x300.png?resize=758%2C845)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1985-08-26b.png?resize=758%2C1088&amp;ssl=1)
 

@@ -37,5 +37,3 @@ Shhhhh…. don't tell anyone.
 **Achy Breaky Heart**<br>
 **First performed:** March 23, 1993 (Red Bank, NJ)<br>
 **Last performed:** March 23, 1993 (Red Bank, NJ)<br>
-
-

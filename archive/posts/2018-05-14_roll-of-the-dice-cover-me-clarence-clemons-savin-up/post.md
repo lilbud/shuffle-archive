@@ -43,7 +43,7 @@ Bruce also recorded a duet of "Savin' Up" in 2009 with John Luraschi (who played
 
 Where did "Cardi B. backyard" come from?
 
-**Savin' Up**  
+**Savin' Up**
 **Released:** *Rescue* (1983, Clarence Clemons & The Red Bank Rockers)
 **First Performed:** August 14, 1987 (Asbury Park, NJ)<br>
 **Last performed:** January 18, 2020 (Asbury Park, NJ)<br>

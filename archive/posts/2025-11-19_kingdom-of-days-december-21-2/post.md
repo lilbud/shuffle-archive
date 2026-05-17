@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 Bruce Springsteen and his studio band" headline at Sandy's in Beverly, Massachusetts.
 
 **1973: "**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1973-12-21-224x300.jpg?resize=758%2C1015)
 

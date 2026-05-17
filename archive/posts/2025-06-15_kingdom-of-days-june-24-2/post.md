@@ -1,16 +1,11 @@
 
-
 *New entry for 1977; audio for 1993***New for 2025:**
 
 Bruce and the E Street Band play their third consecutive night at Fat City in Seaside Heights, New Jersey.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1973-06-23-300x95.jpg?resize=758%2C238)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1973-0624-172x300.jpg?resize=758%2C1323)
 

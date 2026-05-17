@@ -1,5 +1,4 @@
 
-
 They've never performed it live together, and he's not credited on the album.
 
 Nevertheless, those are unmistakably Bruce Springsteen's backing vocals on "Angel Eyes," Little Steven's standout track from his 1982 debut album, *Men Without Women*.

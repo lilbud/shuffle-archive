@@ -4,8 +4,6 @@ It's a funeral dirge and a celebration of life, a church hymn and a social prote
 
 It began in 1907 as a Christian hymn by Ada R. Habershon and Charles H. Gabriel, who asked: *does a family reunite in heaven?*
 
-
-
 [https://www.youtube.com/embed/FL150IarjWM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/FL150IarjWM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 At its peak of popularity just before World War II, "Will the Circle Be Unbroken" appeared in about twenty percent of all church hymnals in use, but by then it had already branched into a more secular variant thanks to The Carter Family.

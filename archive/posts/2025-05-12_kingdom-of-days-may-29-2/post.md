@@ -1,12 +1,9 @@
 
-
 *New entry for 1979; video for 2016***New for 2025:**
 
 Child plays a gig at Pandemonium in Wanamassa, New Jersey.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1969-0529-158x300.jpg?resize=758%2C1441)
 
@@ -18,11 +15,7 @@ Bruce and the E Street Band play two shows at The Main Point in Bryn Mawr, Penns
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Philadelphia_Inquirer_Mon__Jun_3__1974_.jpg?w=758&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1974-0529-300x176.jpg?resize=758%2C444)
 
@@ -34,11 +27,7 @@ The still-young Darkness Tour reaches Boston for the first of three nights. This
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-29-158x300.jpg?resize=758%2C1439)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-29b-300x190.jpg?resize=758%2C480)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1978-05-29c.jpg?resize=586%2C1675&amp;ssl=1)
 
@@ -56,8 +45,6 @@ At the first of six River shows at London's Wembley Arena, Bruce performs "" for
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1981-05-29.jpg?resize=758%2C513&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1981-0529.jpg?resize=758%2C836&amp;ssl=1)
 
 Bruce and Southside Johnny join Beaver Brown on stage at Big Man's West in Red Bank.
@@ -72,15 +59,11 @@ The town of Freehold cancels the permit for a planned Jersey Artists for Mankind
 
 **1986:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1986-05-29-300x126.jpg?resize=758%2C318)
 
 reports that Bruce and Patti will marry on June 9th, according to a mysterious source "close to the bride-to-be." After Bruce's publicist coyly refuses to confirm or deny ("I can't confirm that date…"), the worldwide press runs rampant with the story and anticipation builds for the big day. It's highly likely that Bruce and Patti planted the story (or authorized the leak) themselves in order to throw the press off the scent, as their actual wedding ceremony will take place a day earlier, on June 8th–a lesson learned from Bruce's experience the last time around.
 
 **1991:** *Newsday*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1991-05-29.jpg?resize=758%2C1307&amp;ssl=1)
 
@@ -111,8 +94,6 @@ When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays "
 [https://videopress.com/embed/7evt8l2F?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7evt8l2F?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29a-300x228.jpg?resize=758%2C576)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29b-211x300.jpg?resize=758%2C1078)
 

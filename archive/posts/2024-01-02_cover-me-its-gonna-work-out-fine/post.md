@@ -1,5 +1,4 @@
 
-
 I was walking down the boardwalk and there's this cat coming my direction. I knew I recognized him. When I got a little closer, I realized he played the organ in one of my bands that I had before… and he had this little blonde lady with him and had a little kid with him. I ain't seen him in about five years… So we stopped, we was talking and stuff. He told me he was married and he hadn't been playing too much lately and had a kid and was like, just like an art designer type of guy or something. And it set me thinking about all the cats that I was in the earlier bands with that like had settled down and got hitched up and stuff…. I don't think hardly any of 'em still playing any more. You know you're getting older when you see 'em, this guy's settling down, this guy's got this steady job here, and you're still out running around, messing up all over and stuff. This is for the married folks… this must've been what it was like when you decided to do this thing I hate." — , September 12, 1975*Bruce Springsteen*
 
 Bobby Alfano was the last member to join Bruce Springsteen's first band, The Castiles, in September 1966. In a 2004 NPR interview, Alfano related how he fell into Bruce's circle:
@@ -53,8 +52,6 @@ A decade later, Bruce would warm up to the idea of marriage, although it would t
 As for Bobby, he got married a few weeks after the release of the album that could have changed his life had he accepted Bruce's job offer, and had a son (the one Bruce saw him with in the pull-quote at the top of this article) shortly after the release of . He became a fixture in the Jersey Shore music scene, performing with local bands as late as 1994. His final stint was with Vinnie Lopez's Disco Rejects.
 
 *Greetings from Asbury Park, N.J.*, *Born to Run*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/discorejects.png?resize=758%2C858&amp;ssl=1)
 

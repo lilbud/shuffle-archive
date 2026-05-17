@@ -37,7 +37,6 @@ Springsteen didn't write *Letter to You* in a burst of creativity any more than 
 - "[If I was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" is one of Bruce's earliest "epic" songs, and although it aspires to greater heights than it achieves, it's a remarkable composition for so young a songwriter, and it deserved an official release (somewhere).
 - "[Song for Orphans](https://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)" is probably the least of these six tracks that cried out for an official release. Also dating back to the early 1970s, It's nowhere near as finely constructed as its contemporaneous album-mates.
 
-
 [Watch on Youtube: Tim McGraw & Bruce Springsteen: 'Letter To You' Documentary and E Street Band's Legacy | Apple Music](https://www.youtube.com/watch?v=7OMTyppnWLM?start=45)
 
 There's nothing wrong with a mix of vintages per se. Springsteen's more obsessive fans (hi!) have long understood that virtually every album since *Lucky Town* has included songs written (and in some cases recorded) years earlier.
@@ -69,7 +68,6 @@ Let's experiment. If you care to indulge me, try listening to a playlist of just
 - ...while "[Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)" is his on-stage reckoning with the ticking clock.
 - "[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)" is a parting benediction, a fitting bookend not only to the title track but to each and every one of the five songs above.
 
-
 [Watch on Youtube: Bruce Springsteen - Spiritual Songwriting & "Letter to You" | The Daily Social Distancing Show](https://www.youtube.com/watch?v=QZuBEO-ilg4?start=13)
 
 I've thought about abridging *Letter to You* in this fashion for a while now. As preparation for writing this essay, I finally tried it.
@@ -79,6 +77,5 @@ I was expecting to be moved and impressed, but I wasn't prepared for just how in
 *Letter to You* is a fine twelve-song LP, although I'd rank it toward the bottom of Bruce's catalog. But as a six-song EP, I'd rank it among his very best output and a harbinger of great art still to come.
 
 ---
-
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every month!

@@ -1,5 +1,4 @@
 
-
 Days before their appearance at a Hurricane Sandy relief concert in Asbury Park, My Morning Jacket premiered their note-perfect cover of "" at their New Year's Eve show in Boston. (They played it in AP, too.)
 
 [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)

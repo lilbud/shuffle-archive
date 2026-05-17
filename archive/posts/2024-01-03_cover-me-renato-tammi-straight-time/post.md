@@ -1,6 +1,5 @@
 
-
-Full transparency: this is another plug for this year's 
+Full transparency: this is another plug for this year's
 
 [contest.](https://www.noiespringsteen.com/contest/)*Cover Me*
 

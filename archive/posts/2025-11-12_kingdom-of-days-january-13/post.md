@@ -22,8 +22,6 @@
 
 [NPR embedded audio player](https://www.npr.org/player/embed/262485987/262772951)
 
-
-
 After the interview, Bruce and the E Street Band (+Tom Morello, -Steve Van Zandt) rehearse for their appearance the next day on *Late Night with Jimmy Fallon*.
 
 [Watch on Youtube: Bruce Springsteen - Just Like Fire Would (Official Video)](https://www.youtube.com/watch?v=hJ4a_tgJp4I)
@@ -37,5 +35,3 @@ After the interview, Bruce and the E Street Band (+Tom Morello, -Steve Van Zandt
 ![](../../assets/2022/01/2019-01-13a.jpg)
 
 **2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. Today's session focuses heavily on covers from *Only the Strong Survive*, with multiple run-throughs of "Do I Love You (Indeed I Do)" (which will not be played during the tour), "[Don't Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)" (which will be dropped after two weeks), and "Nightshift," which will remain a setlist tentpole throughout.
-
-

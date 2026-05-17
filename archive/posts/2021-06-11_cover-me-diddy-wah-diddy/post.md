@@ -28,8 +28,6 @@ To this day, it remains one of my all-time favorite official Springsteen videos.
 
 [Watch Video Highlight](https://videopress.com/embed/pgo0OErR)
 
-
-
 It was an inspired choice–for fans anxious for release in that freshly post-9/11 era, an E Street Band show *felt* like a three-hour visit to Diddy Wah Diddy, something Bruce acknowledged when he changed the words "she lives way down" to "she lives *right here* in Diddy Wah Diddy."
 
 Here's hoping we all get to make a return visit soon.

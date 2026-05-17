@@ -1,5 +1,4 @@
 
-
 Dr. Zoom and the Sonic Boom make their second and final appearance under that moniker, at Newark State College's Ernie the Chicken Festival. Miraculously, the show is recorded in very good quality–take a listen below for great covers like "Will You Love Me Tomorrow" and "It Takes a Lot to Laugh, It Takes a Train to Cry" and great Springsteen originals like "Look Towards the Land" and "Goin' Back to Georgia." Later that same evening, Bruce makes his debut as a member of The Sundance Blues Band at The Student Prince.
 
 **1971:**<br>
@@ -47,8 +46,6 @@ The highlight of Bruce's solo acoustic show at Cleveland State University is und
 [https://www.youtube.com/embed/JXUkD-5WWf4?feature=oembed](https://www.youtube.com/embed/JXUkD-5WWf4?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2009-05-15a.jpg?resize=735%2C961&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2009-05-15b.jpg?resize=758%2C220&amp;ssl=1)
 

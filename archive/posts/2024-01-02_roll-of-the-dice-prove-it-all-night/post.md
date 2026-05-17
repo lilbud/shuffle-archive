@@ -104,7 +104,6 @@ There's nothing else that we can do.
 
 ---
 
-
 I've focused primarily on Bruce's lyrics for "Prove It All Night," but on stage it's all about the guitars.
 
 Even in the studio track, there's a seriously impressive guitar solo mid-song–one of Bruce's finest on record, in fact. The entire E Street Band impresses in "Prove It All Night," but freed from the time constraints of a 45rpm single, "Prove It All Night" expands into a Steel Mill-worthy guitar showcase. On the Darkness Tour, Bruce prefaced the song with an instrumental piano and guitar introduction that was often longer than the song itself.

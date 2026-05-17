@@ -1,7 +1,5 @@
 > The father comes to be near his son. He digs through the smoking steel with a small Army pick and shovel. "Where are you, boy?" he asks. It has been the same routine for months.
 >
->
->
 > — Charlie Leduff, "Still Digging for Lost Sons After a Million Tons of Pain," *New York Times*, January 8, 2002
 
 In the aftermath of September 11th, 2001, a community of retired police officers and firefighters spent months on end searching for their friends and family in the rubble of the World Trade Center.

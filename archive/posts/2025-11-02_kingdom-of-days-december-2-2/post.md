@@ -1,5 +1,4 @@
 
-
 *New entry for 1981; video for 2002 and 2004***New for 2025:**
 
 Bruce and the E Street Band usher in the holiday season with their first of two shows at Boston's Music Hall. On the set list: Bruce's very first performance of "," and the earliest captured performance of "."
@@ -13,8 +12,6 @@ Bruce and the E Street Band usher in the holiday season with their first of two 
 [https://www.youtube.com/embed/pKVxQTpGlAQ?feature=oembed](https://www.youtube.com/embed/pKVxQTpGlAQ?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1975-12-02.png?resize=758%2C1120&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/33929295148_2d852ea582_o-205x300.jpg?resize=758%2C1109)
 
@@ -34,11 +31,7 @@ Bruce and the E Street Band bring the original River Tour to the Rochester Commu
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1980-12-02a.png?resize=758%2C432&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1980-12-02b.png?resize=758%2C642&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/46735692384_9c40836eae_o-300x275.jpg?resize=758%2C697)
 
@@ -62,8 +55,6 @@ Dallas fans celebrate the arrival of the holiday season when Bruce closes his Wo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-02a.png?resize=758%2C1911&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-02b.png?resize=758%2C1073&amp;ssl=1)
 
 Dion DiMucci guest stars on "" when Bruce plays his first of two solo acoustic shows at the Sunrise Musical Theater in Florida.
@@ -74,11 +65,7 @@ Dion DiMucci guest stars on "" when Bruce plays his first of two solo acoustic s
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1996-12-02a.png?resize=758%2C361&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1996-12-02b.png?resize=758%2C391&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1996-12-02c.png?resize=758%2C485&amp;ssl=1)
 
@@ -108,8 +95,6 @@ Bruce joins Joe Grushecky and The Houserockers for a special Flood Aid concert i
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2004-12-02a.png?resize=758%2C410&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2004-12-02b.png?resize=758%2C627&amp;ssl=1)
 
 Bruce joins Marah and Joe Grushecky and The Houserockers at their Light of Day sets the Starland Ballroom in Sayreville, New Jersey.
@@ -119,8 +104,6 @@ Bruce joins Marah and Joe Grushecky and The Houserockers at their Light of Day s
 [https://www.youtube.com/embed/sMNfK9VfNE0?feature=oembed](https://www.youtube.com/embed/sMNfK9VfNE0?feature=oembed)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/12/d1t06-Springsteen-Intro__Merged.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2006-12-02.png?resize=758%2C263&amp;ssl=1)
 
@@ -137,8 +120,6 @@ Bruce continues his promotional book tour, stopping at 2nd & Charles in Kennesaw
 [https://www.youtube.com/embed/wXBUFozJd4Y?feature=oembed](https://www.youtube.com/embed/wXBUFozJd4Y?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2016-12-02a.png?resize=758%2C809&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2016-12-02b.png?resize=758%2C743&amp;ssl=1)
 

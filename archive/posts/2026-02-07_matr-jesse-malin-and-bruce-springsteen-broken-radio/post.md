@@ -22,7 +22,6 @@ When Jesse starts the first chorus with "your baby loves you more than you know,
 
 ---
 
-
 Bruce and Jesse performed "Broken Radio" live together twice–almost exactly a year apart.
 
 Their debut performance was at the Light of Day benefit in 2010. Despite the welcome addition of a viola to warm up the sound, though, Jesse and Bruce couldn't quite match the tenderness of their studio performance. (Bruce also missed his final cue, leaving Jesse hanging, although you'd only know it if you were intimately familiar with the original recording.)

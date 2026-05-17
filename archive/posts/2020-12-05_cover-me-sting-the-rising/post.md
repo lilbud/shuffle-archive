@@ -1,5 +1,4 @@
 
-
 In 2009, the Kennedy Center Honors recognized Bruce for his lasting impact on and contributions to American culture through the arts. The president and first lady were present, seated directly next to Bruce while a star-studded line-up paid tribute by performing Bruce's music.
 
 Among the line-up: Bruce's good friend Sting, who chose one of Bruce's most important 21st century compositions: "."

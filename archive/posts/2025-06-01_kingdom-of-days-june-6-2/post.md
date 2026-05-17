@@ -1,5 +1,4 @@
 
-
 *New entry for 1977 and 1983; audio for 2005***New for 2025:**
 
 The Castiles open for Lord Sutch at the Hullabaloo in Freehold.
@@ -23,8 +22,6 @@ Bruce and the E Street Band hold recording sessions for at Atlantic Studios in N
 Finishing the soundcheck for their evening show early, the band spends their free time at The Red Garter, a local strip club in Indianapolis, where Clarence befriends three strippers and invites them to the show. They take him up on his offer, surprising the band by walking out on stage during the encores and stripping during "."
 
 **1978:**[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-06-06-252x300.jpg?resize=758%2C903)
 

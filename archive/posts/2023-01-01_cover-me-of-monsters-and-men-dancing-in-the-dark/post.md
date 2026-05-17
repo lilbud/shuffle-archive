@@ -1,5 +1,4 @@
 
-
 I wasn't going to feature another "" cover for a while (just like with "" there are so many that I have to space them out).
 
 [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[I'm on Fire,](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)

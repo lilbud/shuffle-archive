@@ -1,24 +1,17 @@
 
-
 *Audio for 2004, 2006, and 2018***New for 2025:**
 
 Earth plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1968:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1968-10-19-213x300.png?resize=758%2C1068)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1968-1019-197x300.jpg?resize=758%2C1157)
 
 Bruce and the E Street Band play their fifth of five nights at Oliver's in Boston in lieu of a scheduled but cancelled show at the University of Bridgeport.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1973-1018-197x300.jpg?resize=758%2C1153)
 
@@ -42,8 +35,6 @@ The Recording Industry Association of America certifies triple platinum. By even
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/46359615744_ecfea82ca1_o-247x300.jpg?resize=758%2C920)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-19-300x261.png?resize=758%2C659)
 
 The October Assault moves on to Philadelphia, where Bruce again joins Joe Grushecky and The Houserockers at their show at the Electric Factory. After the show, local WMMR-FM DJ Ed Sciaky (a fan and supporter of Bruce) stops backstage to interview Joe and Bruce.
@@ -56,8 +47,6 @@ The October Assault moves on to Philadelphia, where Bruce again joins Joe Grushe
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-19a-132x300.png?resize=758%2C1723)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1995-10-19b.png?resize=758%2C2472&amp;ssl=1)
 
 Bruce plays his first and only show in New Mexico, a solo acoustic Ghost of Tom Joad Tour stop at the Kiva Auditorium in Albuquerque.
@@ -67,8 +56,6 @@ Bruce plays his first and only show in New Mexico, a solo acoustic Ghost of Tom 
 [https://videopress.com/embed/S30vkti6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/S30vkti6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-19a-137x300.png?resize=758%2C1660)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-19b-285x300.png?resize=758%2C798)
 
@@ -116,7 +103,7 @@ Bruce and the Sessions Band arrive in Spain for a week of shows, starting with a
 
 [https://www.youtube.com/embed/x9bHS79zB3w?feature=oembed](https://www.youtube.com/embed/x9bHS79zB3w?feature=oembed)
 
-Bruce performs his penultimate show at the Philadelphia Spectrum, the third of four nights in this final stand. Bruce opens with a shocker–"," played here for the first time in 33 years. The setlist also features the first full-band "" in 27 years and the on-stage debut of "Philly Elvis" (a.k.a Nick Ferraro) for the tour premiere of "." Oh and not for nothing, the show also includes a full album performance of . For more highlights from this show, see my 
+Bruce performs his penultimate show at the Philadelphia Spectrum, the third of four nights in this final stand. Bruce opens with a shocker–"," played here for the first time in 33 years. The setlist also features the first full-band "" in 27 years and the on-stage debut of "Philly Elvis" (a.k.a Nick Ferraro) for the tour premiere of "." Oh and not for nothing, the show also includes a full album performance of . For more highlights from this show, see my
 
 **2009:** [When You Walk in the Room](http://estreetshuffle.com/?p=21789)[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)[All Shook Up](http://estreetshuffle.com/index.php/2019/08/03/matr-bruce-springsteen-and-the-philly-elvis-all-shook-up/)*Born to Run*[report.](http://estreetshuffle.com/index.php/2018/10/19/where-the-band-was-philadelphia-october-19-2009/)*Where the Band Was*
 

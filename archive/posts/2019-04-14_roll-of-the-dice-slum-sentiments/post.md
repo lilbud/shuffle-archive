@@ -47,7 +47,7 @@ It's a weak verse, but it has a killer final image: the hobo vomiting gently int
 "Slum Sentiments" feels more like a poem than a song, and perhaps it's for the best that we may never know what Bruce had in mind musically, and whether this was intended end-state or just a backdrop to develop something fuller. But it provides us with another window into a rapidly developing songwriter honing his already impressive skills.
 
 **Slum Sentiments**<br>
-Never recorded  
+Never recorded
 Never** **performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

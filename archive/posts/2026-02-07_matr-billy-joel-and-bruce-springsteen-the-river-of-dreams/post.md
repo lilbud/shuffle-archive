@@ -1,5 +1,4 @@
 
-
 Of all the songs in Billy Joel's catalog begging for a Billy/Bruce team-up, "The River of Dreams" is a no-brainer.
 
 [https://www.youtube.com/embed/hSq4B_zHqPM?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/hSq4B_zHqPM?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)

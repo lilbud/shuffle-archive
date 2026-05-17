@@ -58,7 +58,6 @@ That's *Western Stars.*
 
 ---
 
-
 **Bonus:** Like all of the tracks on *Western Stars*, Bruce has only performed "The Wayfarer" once before an audience, during the staged filming of his *Western Stars* concert document. And like pretty much every other song he performs in the film, the live version of "The Wayfarer" can't match the lush and warm perfection of the studio track, despite the presence of that glorious orchestra. Nevertheless, it's a beautiful performance and well worth watching.
 
 [Watch on Youtube: The Wayfarer - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=y_JLo3dl_9c)

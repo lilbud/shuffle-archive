@@ -1,10 +1,7 @@
 
-
 Steel Mill opens for Boz Scaggs at The Matrix in San Francisco.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1972-02-14.jpg?resize=758%2C981&amp;ssl=1)
 
@@ -16,15 +13,11 @@ The Bruce Springsteen Band opens for Crazy Horse at the Sunshine In in Asbury Pa
 
 **1972:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1972_02_02_Page_22-scaled.jpg?resize=758%2C1106&amp;ssl=1)
 
 Bruce and the still unnamed E Street Band play the University of Kentucky, their first time performing in the state. After a fight with road manager Steve Appel, drummer Vini Lopez is fired immediately after the show, and the next three shows are cancelled.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1974-02-12-195x300.jpg?resize=758%2C1167)
 
@@ -32,15 +25,9 @@ The Lawsuit Tour continues with a show at the Ottawa Civic Center.
 
 **1977:** <https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1990-02-12.png?resize=758%2C336&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1977-02-12a.png?resize=758%2C490&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/The_Ottawa_Journal_1977_02_14_Page_23.jpg?resize=758%2C1122&amp;ssl=1)
 

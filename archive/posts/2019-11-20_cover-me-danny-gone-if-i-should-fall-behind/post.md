@@ -7,5 +7,3 @@ But trust me on this: stop what you're doing for a minute, and listen to this ab
 I'm unfamiliar with Danny Gone's original work, but you can bet I'm going to seek it out after listening to his tender arrangement and mesmerizing performance.
 
 Well done, Mr. Gone. *Very* well done.
-
-

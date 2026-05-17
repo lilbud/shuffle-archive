@@ -13,7 +13,6 @@ And my profound thanks to two special people who make me sound much more polishe
 - Robyn Sherer reads each and every draft (except this one!) and without fail points out my run-on sentences, extraneous words, redundancies, and generally helps me sound way less long-winded than I am in person.
 - Lori "Eagle Eye" Pierce, my pro bono, ex post facto copy editor, appears in my inbox within minutes of a typo showing up in one of my essays (in other words, most days). She gives me a chance to do a quick clean-up of my articles before most of you read them.
 
-
 I am deeply grateful to Lori and Robyn. I owe them both more thanks than I can adequately express here.
 
 As always, today also marks the completion of my annual refresh project–every *Roll of the Dice*, *Cover Me*, *Meeting Across the River, Where the Band Was, Spare Parts and Two Faces* entry is now refreshed with repaired media links and new cross-site links. (It's a longer project every year!)

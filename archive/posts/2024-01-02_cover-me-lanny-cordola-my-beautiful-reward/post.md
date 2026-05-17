@@ -1,5 +1,4 @@
 
-
 Sometimes a wonderful cover can fly completely under the radar.
 
 This is one of them.

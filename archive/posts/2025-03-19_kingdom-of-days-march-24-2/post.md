@@ -1,16 +1,11 @@
 
-
 *New entry for 1980***New for 2025:**
 
 Bruce and the (not yet named) E Street Band play a gig at Niagara University in Lewiston, New York. Meanwhile, a couple of hours away in Ithaca, the local paper publishes a review of Bruce's recently released debut album. Keep an eye on him, the reviewer advises.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1973-03-24.jpg?resize=707%2C1371&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0324-201x300.jpg?resize=758%2C1131)
 
@@ -18,15 +13,11 @@ Bruce and the band perform on a revolving stage at the Celebrity Theater in Phoe
 
 **1974:**<br>
 
-
-
 [https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F185064103&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F185064103&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
 
 Bruce and the E Street Band play their third of four nights at Boston's Music Hall in the final stand of the Lawsuit Tour. This show features the debut of Jackie Wilson's "."
 
 **1977:** [(Your Love Keeps Lifting Me) Higher and Higher](http://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)
-
-
 
 [https://videopress.com/embed/5budtv00?hd=0&amp;cover=1](https://videopress.com/embed/5budtv00?hd=0&amp;cover=1)
 
@@ -39,8 +30,6 @@ At the Power Station in New York City, Bruce and the E Street Band work on "."
 Bruce postpones a scheduled show in Manchester in order to recover from the first two legs of the River Tour.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1005)
 
@@ -56,11 +45,9 @@ Night Three of five in Sydney on the Born in the U.S.A. Tour.
 
 [https://videopress.com/embed/BtcDRPOX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BtcDRPOX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce joins The Blasters on stage at the House of Blues in West Hollywood, backing the band on guitar for two numbers. 
+Bruce joins The Blasters on stage at the House of Blues in West Hollywood, backing the band on guitar for two numbers.
 
 **1995:** (Photo credit: J. Coke)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1995-0324-300x186.jpg?resize=758%2C471)
 
@@ -90,7 +77,7 @@ The Australian leg of the Wrecking Ball Tour moves on to Melbourne for the first
 
 [https://www.youtube.com/embed/G6RuCkjsUR4?feature=oembed](https://www.youtube.com/embed/G6RuCkjsUR4?feature=oembed)
 
-The revived River Tour finally loosens up in Seattle when Bruce takes sign requests for much of the post-album set and tour premieres "." Eddie Vedder joins Bruce for "" in the encores. For more highlights, see my 
+The revived River Tour finally loosens up in Seattle when Bruce takes sign requests for much of the post-album set and tour premieres "." Eddie Vedder joins Bruce for "" in the encores. For more highlights, see my
 
 **2016:** [Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)[Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)[report for this show.](http://estreetshuffle.com/index.php/2018/03/24/where-the-band-was-seattle-march-24-2016/)*Where the Band Was*
 

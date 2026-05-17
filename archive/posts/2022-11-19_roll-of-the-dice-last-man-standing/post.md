@@ -8,13 +8,11 @@ Bart graduated high school the following spring, joined the Marines in October, 
 
 ---
 
-
 Paul Popkin was the next man down. ![](../../assets/2022/11/popkin.jpg)
 
 He was the band's tambourine player and backing vocalist from October 1965 until the band broke up in 1968. He passed away from hepatitis the following year.
 
 ---
-
 
 Bob Alfano was the last member to join The Castiles. He followed the band's leader to his next group as well. Although he turned down an offer to play on his bandmate's first album, Alfano stayed active in the local music scene until his death in 2007.
 
@@ -24,11 +22,9 @@ Bob Alfano was the last member to join The Castiles. He followed the band's lead
 
 ---
 
-
 Vinnie Manniello replaced Bart Haynes as the band's drummer and remained with the band until their 1968 breakup. When his former bandmate scored an audition with Columbia A&R legend John Hammond four years later, Manniello leant him his acoustic guitar to audition with. He remained an active musician and a Freehold resident until his peaceful death in 2011.
 
 ---
-
 
 ![](../../assets/2022/11/Ehzg5ZnXgAEf-nH-3.jpg)
 
@@ -40,11 +36,9 @@ He was the band's bass player for their first year, until a kid asked him after 
 
 ---
 
-
 Danny Hyland (backing vocals, harmonica, tambourine), Richie Goldstein (backing vocals and guitar), Curt Fluhr (replacement bassist after Marziotti's departure) also completed their life journeys in the years since The Castiles went their separate ways.
 
 ---
-
 
 After Marziotti's passing, only two Castiles remained.
 
@@ -130,7 +124,6 @@ Once again he beseeches the divine spirits of both God and Rock and Roll for the
 For every great band, there's a last man standing (or there will be), and as long as he stands on stage each night, his band stands with him. Or as Springsteen put it to his audience more than four decades into his career: *if you're here, and we're here, then they're here.*
 
 ---
-
 
 Bruce recorded "Last Man Standing" just prior to the pandemic of 2020, and he hasn't had an opportunity to perform it in public yet. That may change next year, but in the meantime we can hear two brief, live acoustic performances, each performed during an interview.
 

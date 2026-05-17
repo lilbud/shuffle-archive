@@ -1,12 +1,9 @@
 
-
 *New entry for 1977***New for 2025:**
 
 Original E Street Band member David Sancious is born in Asbury Park, New Jersey.
 
 **1953:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/david-san-300x293.jpg?resize=758%2C740)
 
@@ -52,8 +49,6 @@ Bruce and his new touring band bring World Tour 1992 to The Omni in Atlanta.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-30a.png?resize=758%2C361&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-30b.png?resize=758%2C6689&amp;ssl=1)
 
 Bruce plays his second of two nights at the Berkeley Community Theater, where "" makes its debut, and the setlist contains the entire album. Once again, John Wesley Harding opens the show with a short set.
@@ -77,8 +72,6 @@ The Wrecking Ball Tour travels down the west coast to Oakland for a show at Orac
 [https://www.youtube.com/embed/GmThjvWku6U?feature=oembed](https://www.youtube.com/embed/GmThjvWku6U?feature=oembed)
 
 [https://www.youtube.com/embed/wJg8MlZUUZs?feature=oembed](https://www.youtube.com/embed/wJg8MlZUUZs?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-scaled.jpg?resize=758%2C1557&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-1-scaled.jpg?resize=758%2C2411&amp;ssl=1)
 

@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-0910-300x169.jpg?resize=758%2C427)
 
@@ -34,8 +31,6 @@ Bruce and the E Street Band close out their six-night Born in the U.S.A. stand a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Philadelphia_Daily_News_1984_09_19_Page_6.jpg?resize=758%2C1414&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Philadelphia_Daily_News_1984_09_20_Page_60-scaled.jpg?resize=758%2C462&amp;ssl=1)
 
 Bruce plays "Stolen Car" for the last time for 18 years when he and the band play their first of two Born in the U.S.A. shows at the Oakland-Alameda County Coliseum.
@@ -48,11 +43,7 @@ Bruce plays "Stolen Car" for the last time for 18 years when he and the band pla
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-18a-163x300.jpg?resize=758%2C1395)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-18b-300x284.jpg?resize=758%2C718)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1985-09-18c.jpg?resize=758%2C1285&amp;ssl=1)
 

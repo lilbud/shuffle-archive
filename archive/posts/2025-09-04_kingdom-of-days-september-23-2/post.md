@@ -1,24 +1,17 @@
 
-
 *New entry for 1984; audio for 1988***New for 2025:**
 
 Bruce Frederick Joseph Springsteen is born to Adele and Douglas Springsteen at Monmouth Medical Center in Long Branch, New Jersey.
 
 **1949:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1949-09-23-225x300.jpg?resize=758%2C1010)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1949-0923-300x217.jpeg?resize=758%2C549)
 
 Bruce's parents throw their three-year-old son a Western-themed birthday party. Bruce's fascination with the American west will last a lifetime.
 
 **1952:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1952-09-23-300x213.jpg?resize=758%2C538)
 
@@ -42,15 +35,11 @@ Bruce spends his 29th birthday in Asbury Park with interviewer Mike Greenblatt a
 
 **1978:** *The Aquarian.*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0923-121x300.jpg?resize=758%2C1879)
 
 Bruce spends his 35th birthday on roller skates with friends and bandmates at United Skates of America in Buffalo. He's not very good, but with a girl on each arm, he manages to stay upright… most of the time.
 
 **1984:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/09/USA_Today_1984_09_26_22-scaled.jpg?resize=513%2C2560&amp;ssl=1)
 
@@ -62,23 +51,15 @@ Bruce spends his 36th birthday on stage at Denver's Mile High Stadium. The night
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-23a-230x300.jpg?resize=758%2C989)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-23b-300x223.jpg?resize=758%2C563)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-23c-205x300.jpg?resize=758%2C1109)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1985-0923-164x300.jpg?resize=758%2C1388)
 
 A group of teenage fans gather in Bruce's driveway late at night to wish him a happy 37th birthday. Bruce is not amused.
 
 **1986:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1986-09-23-223x300.jpg?resize=758%2C1020)
 
@@ -94,19 +75,13 @@ A special Human Rights Now! show in Oakland on the occasion of Bruce's 39th birt
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1988-09-23a.jpg?resize=758%2C1749&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-23b-274x300.jpg?resize=758%2C830)
 
 Bruce celebrates his 40th birthday with the E Street Band (including Steve Van Zandt, who sings lead on "" so Bruce can have a dance with his mom) at McLoone's Rum Runner in Sea Bright. This is the last E Street Band performance before Bruce disbands them.
 
 **1989:** [Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1989-09-23-120x300.jpg?resize=758%2C1895)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1989-09-23b-251x300.jpg?resize=758%2C906)
 
@@ -118,7 +93,7 @@ At a special event at Monmouth University, Thom Zimny screens never-before-seen 
 
 **2014:**<br>
 
-On the occasion of Bruce's 67th birthday, he releases his retrospective companion CD to his autobiography, 
+On the occasion of Bruce's 67th birthday, he releases his retrospective companion CD to his autobiography,
 
 **2016:** *Chapter and Verse**Born to Run.*
 
@@ -126,7 +101,7 @@ On the occasion of Bruce's 67th birthday, he releases his retrospective companio
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2016-09-23-300x295.jpg?resize=758%2C745)
 
-Bruce announces a new concert film, 
+Bruce announces a new concert film,
 
 **2021:** *The 1979 Legendary No Nukes Concerts.*
 

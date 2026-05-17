@@ -1,5 +1,4 @@
 
-
 "" isn't a song that gets covered very often, even though it's only grown in relevance since Bruce first released it in 2007.
 
 [Magic](https://estreetshuffle.com/index.php/2020/09/13/roll-of-the-dice-magic/)

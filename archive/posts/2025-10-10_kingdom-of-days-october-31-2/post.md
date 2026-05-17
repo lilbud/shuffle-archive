@@ -1,16 +1,11 @@
 
-
 *New entry for 2024***New for 2025:**
 
 The Bruce Springsteen Band plays a Halloween show at the National Guard Armory in Long Branch, New Jersey. The band will scale down following this show, losing members Delores Holmes, Francine Daniels and Bobby Feigenbaum.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/longbrancharmory-1-233x300.jpg?resize=758%2C977)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1971-10-31-266x300.png?resize=758%2C854)
 
@@ -28,11 +23,7 @@ Bruce and the boys play a marathon show (two and a half hours) at the Paramount 
 
 **1975:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1975-10-31-300x136.png?resize=758%2C343)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/33928903008_7b91ee25b6_o-300x223.jpg?resize=758%2C563)
 
@@ -73,8 +64,6 @@ Bruce and his new touring band bring World Tour 1992 to the Target Center in Min
 [https://www.youtube.com/embed/9qv1mKFw7T0?feature=oembed](https://www.youtube.com/embed/9qv1mKFw7T0?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-10-31a-250x300.png?resize=758%2C909)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-10-31b-136x300.png?resize=758%2C1672)
 

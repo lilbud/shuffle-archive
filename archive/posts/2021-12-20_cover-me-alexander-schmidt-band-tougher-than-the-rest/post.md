@@ -1,5 +1,4 @@
 
-
 I don't usually feature a cover artist a second time so soon after the first, but:
 
 a) Alexander Schmidt's cover of "" is just gorgeous–even better than his of "." It needs to be heard.

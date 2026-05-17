@@ -92,5 +92,3 @@ And yes, I could have taken us here on a much more direct route. But we would ha
 **Drinkin' Wine, Spo-Dee-O-Dee**<br>
 **First performed:** February 22, 2014 (Hunter Valley, Australia)<br>
 **Last performed:** February 22, 2014 (Hunter Valley, Australia)<br>
-
-

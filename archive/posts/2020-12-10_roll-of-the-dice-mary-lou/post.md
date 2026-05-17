@@ -57,7 +57,7 @@ Not satisfied enough with "Mary Lou" to release her on the *The River*, Bruce ne
 As for "Mary Lou," she would see the light of day on *Tracks*, almost two decades after she was recorded.
 
 **Mary Lou**<br>
-**Recorded:** May 30, 1979  
+**Recorded:** May 30, 1979
 **Released:** *Tracks* (1998), *The River: Outtakes* (2015)
 **Never performed**<br>
 

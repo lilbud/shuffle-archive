@@ -42,7 +42,7 @@ Transposing the song's simple but instantly identifiable riff from guitar to pia
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lCGtLWd_E9A)
 
-And yet beneath its playfulness, there's a lot of seriousness. It's as if Bruce is answering the question, *how do you grow up without growing up?* 
+And yet beneath its playfulness, there's a lot of seriousness. It's as if Bruce is answering the question, *how do you grow up without growing up?*
 
 How do you enter the world of adulthood without losing the vitality of youth? How do you fit into a world that asks for conformity without sacrificing the rebellion demanded by rock and roll? The famous real-life introvert and on-stage extrovert tells us how it's done:
 
@@ -89,7 +89,6 @@ We never do get any sense of our narrator's age–he could be fifty, thirty, or 
 
 ---
 
-
 With over 600 performances to date, "Growin' Up" remains one of Bruce's most-performed songs. (Although it certainly got a big boost in that regard from *Springsteen on Broadway*).
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4D1smUCqEEw)
@@ -112,8 +111,8 @@ In any incarnation, "Growin' Up" remains a fan favorite, forever fresh for its a
 
 Don't forget to pull up.
 
-**Growin' Up  
-Recorded: J**une 27, 1972  
+**Growin' Up
+Recorded: J**une 27, 1972
 **Released:** *Greetings from Asbury Park, N.J.* (1972), *The Essential Bruce Springsteen* (2015), *Chapter and Verse* (2016)<br>
 **First performed:** May 2, 1972 (New York City, NY)<br>
 **Last performed:** September 4, 2021 (New York City, NY)<br>

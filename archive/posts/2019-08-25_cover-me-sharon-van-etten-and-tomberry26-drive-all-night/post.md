@@ -1,5 +1,4 @@
 
-
 When I started this blog, the very first cover I wanted to share was Sharon Van Etten's version of "." It's gorgeous–and Sharon's vocals are so passionate that I dare say they rival the original. Without a doubt, it's one of my all-time favorite covers of a Springsteen song.
 
 [Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)

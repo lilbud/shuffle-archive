@@ -1,7 +1,5 @@
 > "It's basically about sex." — *Bruce Springsteen, February 20, 2003*<br>
 >
->
->
 > "Don't overthink the whole thing." — *Bruce Springsteen, April 4, 2005*<br>
 
 What do you do if you're a hot-shot 22-year-old would-be rock star with big dreams, a recording contract, a wide-open future, and the only thing standing in the way of your voice on vinyl is a record exec who can't hear a single?
@@ -71,7 +69,6 @@ There's so much going on in that verse that I can't even use bold type to highli
 - a quadruple internal rhyme (all-hot, half-shot, hot spot)
 - followed by a double internal rhyme (snappin' and clappin')
 - threaded with quintuple alliteration (hot, half, headin', hot, hands)
-
 
 …all while clearly painting a visual scene for the listener. You try doing that in fifteen words, and please pardon me if I don't wait.
 

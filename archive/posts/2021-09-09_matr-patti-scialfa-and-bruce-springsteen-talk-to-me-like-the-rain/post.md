@@ -34,5 +34,3 @@ Pond asked Patti a follow-up question to her previous answer…
 **Recorded**<br>
 **Released:** *Rumble Doll* (1993)
 **Never performed**<br>
-
-

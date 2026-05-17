@@ -107,7 +107,3 @@ Oh, and I never did get to hear "When You Walk in the Room" that night. Bruce ap
 **Bonus:** Here's another soundcheck highlight–I'm glad I didn't hear this one at the time, or it would have spoiled the first surprise.
 
 https://youtu.be/geYTbeoe2Lc
-
-
-
-

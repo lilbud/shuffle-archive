@@ -1,5 +1,4 @@
 
-
 On January 28, 2017, President Trump bullied, berated, and finally blew off Prime Minister Turnbull over Turnbull's temerity to insist that the United States live up to its agreement to accept 1,250 refugees from an Australian detention center.
 
 The phone call was supposed to last an hour; Trump hung up in frustration after 25 minutes, spurring widespread speculation of a diplomatic rift between two longtime allies.

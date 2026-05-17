@@ -1,5 +1,4 @@
 
-
 When you endeavor to write about every song an artist ever recorded or performed, that means eventually you have to cover… well, everything. And sometimes, there just isn't a whole lot to say.
 
 This one, as they say, is for the collectors.
@@ -27,8 +26,6 @@ August 14, 1970 (Richmond, VA)
 Never recorded
 Never released
 **First performed:**<br>
-
-
 
 **Last performed:**<br>
 

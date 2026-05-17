@@ -1,5 +1,4 @@
 
-
 Oh my.
 
 Never have I seen a Springsteen cover start with so much promise only to go so horribly wrong.

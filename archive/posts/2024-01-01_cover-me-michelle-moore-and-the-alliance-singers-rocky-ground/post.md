@@ -1,5 +1,4 @@
 
-
 Michelle Moore is certainly qualified to cover Bruce's "" — she sings and raps on the studio track, after all, and she was a featured vocalist throughout the Wrecking Ball tour whenever this song was in the setlist.
 
 [Rocky Ground](https://estreetshuffle.com/index.php/2023/03/20/roll-of-the-dice-rocky-ground/)

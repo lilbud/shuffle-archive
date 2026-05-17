@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 Note: This is a strange date in history: Bruce rarely cancels shows, but on this date he cancelled shows three years running!
@@ -12,15 +11,9 @@ Bruce cancels a show at the New Jersey State Theater due to illness. Who knew Br
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1974-03-01-300x212.jpg?resize=758%2C536)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Central_New_Jersey_Home_News_Sat__Mar_2__1974_.jpg?resize=758%2C450&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1974-03-01a.jpg?resize=758%2C2555&amp;ssl=1)
 
@@ -72,15 +65,11 @@ If press reports are accurate, Bruce gets a workout in at Marco's Gym in Edinbur
 
 **1996:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Daily_Record_Sat__Mar_2__1996_-scaled.jpg?resize=758%2C492&amp;ssl=1)
 
 Bruce sets a Ticketmaster record, becoming the first artist to sell tickets for seven stadium shows in a single day. Before the day is out, Bruce will sell more than 300,000 tickets to his summer residency at Giants Stadium.
 
 **2003:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2003-03-01-300x262.jpg?resize=758%2C662)
 
@@ -105,7 +94,5 @@ Patti Scialfa returns to after recuperating from a back injury, as the show cont
 Bruce and President Obama debut Episode 3 of their podcast, This episode is entitled "Amazing Grace: American Music," and it features a duet of sorts on "."
 
 **2021:** *Renegades: Born in the U.S.A.* [Further On Up the Road](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)
-
-
 
 [https://open.spotify.com/embed/episode/1l5qlEK00ELt4dbD5Q6xlR?si=197d075203904acf&amp;utm_source=oembed](https://open.spotify.com/embed/episode/1l5qlEK00ELt4dbD5Q6xlR?si=197d075203904acf&amp;utm_source=oembed)

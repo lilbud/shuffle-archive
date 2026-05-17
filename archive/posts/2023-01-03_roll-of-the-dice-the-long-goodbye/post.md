@@ -1,7 +1,5 @@
 > "The tragedy of life…is not that the beautiful things die young, but that they grow old and mean. It will not happen to me."
 >
->
->
 > *—* Raymond Chandler, *The Long Goodbye*<br>
 
 Conventional wisdom holds that "The Long Goodbye" is Bruce's confessional about finally cutting the cord with New Jersey and moving to warmer, sunnier climes out west.
@@ -65,7 +63,6 @@ The song slowly fades as our narrator drinks and readies his hammer, but it ends
 
 ---
 
-
 Bruce has played "The Long Goodbye" only three times ever in concert, all with his short-lived 1992-93 touring band.
 
 Originally recorded with a completely different set of musicians, "The Long Goodbye" was ill-suited for the touring band, with a heavy synth line in concert that did the song no favors whatsoever. Bruce did turn in some nice guitar solos, but it wasn't enough to keep the song in the set.
@@ -75,7 +72,7 @@ Bruce dropped it a few months into the tour and never attempted it with the E St
 [Watch on Youtube: The Long Goodbye Bruce Springsteen June 26,1992 Frankfurt, GER](https://www.youtube.com/watch?v=AuLvzIM27aE)
 
 **The Long Goodbye**<br>
-**Recorded:** April-May, 1990  
+**Recorded:** April-May, 1990
 **Released:** *Human Touch* (1992)
 **First performed:** June 26, 1992 (Frankfurt, Germany)<br>
 **Last performed:** October 22, 1992 (Mountain View, CA)<br>

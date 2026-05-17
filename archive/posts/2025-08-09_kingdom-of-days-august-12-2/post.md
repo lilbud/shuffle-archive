@@ -1,5 +1,4 @@
 
-
 *New entry for 1977***New for 2025:**
 
 The Castiles play the Surf ‘N'See Club in Sea Bright, New Jersey. That night, Bruce and some of his bandmates catch The Blues Magoos and The Who opening for Herman's Hermits at Convention Hall in Asbury Park. Just a few weeks later, the band will cover The Blues Magoos' "" in concert themselves.
@@ -10,23 +9,17 @@ Bruce plays his fourth of six two-shows-a-night solo gigs at Max's Kansas City t
 
 **1972:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11-1-300x191.jpg?resize=758%2C483)
 
 : Bruce cancels a gig at the Cambridge Performance Center to make room for recording sessions.
 
 **1974***Born to Run*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1974-08-11-174x300.jpg?resize=758%2C1308)
 
-Columbia Records begins distributing a limited run of advanced promo copies of 
+Columbia Records begins distributing a limited run of advanced promo copies of
 
 **1975:** *Born to Run.*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1975-0812-300x217.jpg?resize=758%2C549)
 
@@ -39,8 +32,6 @@ At Atlantic Studios in New York City, Bruce and the E Street Band record "" It w
 Bruce and the E Street Band bring the Darkness Tour to Augusta, Maine, for one show at the Civic Center.
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1978-0812-226x300.jpg?resize=758%2C1006)
 
@@ -67,8 +58,6 @@ Bruce takes in a Yankees game and stops by the clubhouse to sign a guitar.
 [https://www.youtube.com/embed/59rOfptTacI?feature=oembed](https://www.youtube.com/embed/59rOfptTacI?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1998-08-11a-300x197.png?resize=758%2C497)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1998-08-11b-294x300.png?resize=758%2C774)
 

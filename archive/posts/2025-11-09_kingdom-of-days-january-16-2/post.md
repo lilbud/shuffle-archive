@@ -1,5 +1,4 @@
 
-
 Bruce and the not-yet-named E Street Band play Villanova University in a 150-seat auditorium more than two-thirds unfilled. (The school newspaper is on strike, so the concert goes unadvertised.) Imagine an E Street Band concert in front of no more than fifty people!
 
 **1973:**<br>
@@ -39,8 +38,6 @@ Bruce plays the first of two acoustic shows at the Cleveland Music Hall.
 Bruce releases an updated video anthology, retitled .
 
 **2001:** *Video Anthology 1978-2000*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2001-01-16.png?resize=758%2C928&amp;ssl=1)
 

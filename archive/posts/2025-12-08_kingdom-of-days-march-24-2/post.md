@@ -1,14 +1,9 @@
 
-
 Bruce and the (not yet named) E Street Band play a gig at Niagara University in Lewiston, New York. Meanwhile, a couple of hours away in Ithaca, the local paper publishes a review of Bruce's recently released debut album. Keep an eye on him, the reviewer advises.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1973-03-24.jpg?resize=481%2C933&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0324.jpg?resize=324%2C483&amp;ssl=1)
 
@@ -19,8 +14,6 @@ Bruce and the band perform on a revolving stage at the Celebrity Theater in Phoe
 Bruce and the E Street Band play their third of four nights at Boston's Music Hall in the final stand of the Lawsuit Tour. This show features the debut of Jackie Wilson's "(Your Love Keeps Lifting Me) Higher and Higher."
 
 **1977:**<br>
-
-
 
 [https://videopress.com/embed/5budtv00?hd=0&amp;cover=1](https://videopress.com/embed/5budtv00?hd=0&amp;cover=1)
 
@@ -46,11 +39,9 @@ Night Three of five in Sydney on the Born in the U.S.A. Tour.
 
 [https://videopress.com/embed/BtcDRPOX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BtcDRPOX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce joins The Blasters on stage at the House of Blues in West Hollywood, backing the band on guitar for two numbers. 
+Bruce joins The Blasters on stage at the House of Blues in West Hollywood, backing the band on guitar for two numbers.
 
 **1995:** (Photo credit: J. Coke)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1995-0324.jpg?resize=363%2C225&amp;ssl=1)
 

@@ -1,5 +1,4 @@
 
-
 In 1955, two North Texas State College students named Wade Moore and Dick Penner downed a six-pack of beer and dashed off a song in a fifteen-minute burst of songwriting on the roof of the Lambda Chi Alpha fraternity house.
 
 It wasn't the deepest of songs. In fact, it sounded exactly like something you'd expect from a fifteen-minute, six-pack-powered burst of songwriting. But another North Texas State student heard Moore and Penner performing it and was captivated by it. The young geology major's name was Roy Orbison.

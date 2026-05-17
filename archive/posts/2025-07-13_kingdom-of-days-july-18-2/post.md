@@ -1,5 +1,4 @@
 
-
 *Review for 1973; new entry for 1975 and 2024; audio for 1999***New for 2025:**
 
 Child plays their fourth of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.
@@ -10,11 +9,7 @@ Steel Mill headlines at Asbury Park's Sunshine In.
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1970-0718-208x300.jpeg?resize=758%2C1094)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1970-07-18-300x118.png?resize=758%2C298)
 
@@ -26,19 +21,13 @@ Bruce and the E Street Band headline two shows at Max's Kansas City in New York,
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/07/Capture.jpg?resize=758%2C477&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1973-0718-119x300.jpg?resize=758%2C1911)
 
 Bruce and the E Street Band play two shows at Le Garage in Spray Beach, New Jersey.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1974-0718-300x228.jpg?resize=758%2C574)
 
@@ -94,8 +83,6 @@ Night Two on the U.S. leg of the Reunion Tour in East Rutherford brings out rare
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1999-07-18a-287x300.png?resize=758%2C793)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1999-07-18b-300x199.png?resize=758%2C503)
 
 Bruce and the E Street Band rehearse for the upcoming Rising Tour.
@@ -119,8 +106,6 @@ Bruce busts open his Devils & Dust setlist in Buffalo with six tour premieres, i
 [https://www.youtube.com/embed/sPziI_eo7fk?feature=oembed](https://www.youtube.com/embed/sPziI_eo7fk?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2005-07-18a-300x193.png?resize=758%2C487)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2005-07-18b-300x131.png?resize=758%2C331)
 
@@ -159,8 +144,6 @@ At what point does a guest appearance become a surprise co-headline? I'm not sur
 [https://www.youtube.com/embed/YVqt-El6LDA?feature=oembed](https://www.youtube.com/embed/YVqt-El6LDA?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/2015-07-18a.png?resize=758%2C998&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2015-07-18b-300x279.png?resize=758%2C705)
 

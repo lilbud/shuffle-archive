@@ -23,5 +23,3 @@ Watch more great performances from *Roy Orbison and Friends: A Black & White Nig
 **Blue Bayou**<br>
 **First performed:** September 30, 1987 (Los Angeles, CA)<br>
 **Last performed:** September 30, 1987 (Los Angeles, CA)<br>
-
-

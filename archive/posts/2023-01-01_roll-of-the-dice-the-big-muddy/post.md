@@ -78,7 +78,6 @@ Sometimes, though, we end up crawling, hoping to find solid ground again so we c
 
 ---
 
-
 Bruce played "The Big Muddy" regularly throughout World Tour 1992, but it hasn't been seen since. It's a tough song to translate to a live setting: it demands attention. It's not a quiet song, but it's an atmospheric one, and the sonics are as important to the song's power as the lyrics. Perhaps that's why Bruce hasn't attempted it in concert in over a quarter century.
 
 We do have one particularly stellar live performance to enjoy, however: Bruce performed "The Big Muddy" with his 1992 touring band on his *MTV Unplugged* special (that turned out to be anything but unplugged). While the song wasn't released on the audio CD, it was restored to the performance when the concert was released officially on VHS.
@@ -88,7 +87,7 @@ Enjoy the official video (yes, there is one) for "The Big Muddy."
 [Watch on Youtube: Bruce Springsteen - The Big Muddy (MTV Plugged - Official HD Video)](https://www.youtube.com/watch?v=nkSoGDQ09M8)
 
 **The Big Muddy**<br>
-**Recorded:** Late 1991  
+**Recorded:** Late 1991
 **Released:** *Lucky Town* (1992)<br>
 **First performed:** May 6, 1992 (New York City, NY)<br>
 **Last performed:** December 17, 1992 (Lexington, KY)<br>

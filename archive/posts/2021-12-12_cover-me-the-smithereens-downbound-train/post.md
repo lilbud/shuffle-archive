@@ -1,5 +1,4 @@
 
-
 Fellow New Jerseyans take a swing at Bruce's "."
 
 [Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)

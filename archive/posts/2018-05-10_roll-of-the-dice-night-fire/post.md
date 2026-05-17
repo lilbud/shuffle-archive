@@ -59,7 +59,7 @@ Sigh. The tribulations of being an obsessed fan.
 
 [Watch on Youtube: Bruce Springsteen - "Night Fire" rehearsal](https://www.youtube.com/watch?v=8GHNbvLKM7A)
 
-**Night Fire**  
+**Night Fire**
 **Recorded:** June 13, 1979 (instrumental track) (vocal track probably 2014-2015)
 **Released:** *The Ties That Bind: The River Collection*<br>
 **Never Performed**<br>

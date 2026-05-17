@@ -1,12 +1,9 @@
 
-
 *New entry for 1977, 1979, and 2024; review for 1978; video for 2006***New for 2025:**
 
 Child plays at The Auction Coffee House in Long Branch, New Jersey.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1969-06-13-1.jpg?resize=758%2C1536&amp;ssl=1)
 
@@ -18,15 +15,11 @@ Bruce plays Madison Square Garden for the first time when he and his band open f
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1973-0614-261x300.jpg?resize=758%2C872)
 
 Under record label pressure to return to the recording studio and finish his next single, Bruce cancels a scheduled gig at the University of Texas at Arlington. It's a late cancellation, as his appearance was still advertised as of five days prior.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1974-06-14.jpg?resize=758%2C1063&amp;ssl=1)
 
@@ -74,7 +67,7 @@ Volunteers remove and rescue the famous mural of Tillie from the condemned Palac
 
 [https://www.youtube.com/embed/_cv00SbTuS8?feature=oembed](https://www.youtube.com/embed/_cv00SbTuS8?feature=oembed)
 
-Meanwhile, Patti films a performance and interview for to promote her new album, 
+Meanwhile, Patti films a performance and interview for to promote her new album,
 
 *The Late Show With David Letterman* *23rd Street Lullaby.*
 

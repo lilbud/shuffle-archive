@@ -1,22 +1,15 @@
 
-
 The Castiles play the Matawan-Keyport Roller Drome in Matawan, New Jersey. Can you believe you could once see Bruce play for $1.25?
 
 **1966:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1966-0129-300x244.jpg?resize=758%2C616)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/castiles.jpg?resize=500%2C318&amp;ssl=1)
 
 Bruce sits in with Steve Van Zandt and The Big Bad Bobby Williams Band (which included Garry Tallent, Dave Sancious, and Southside Johnny) at The Upstage in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/01/bobbywilliams-300x209.jpg?resize=758%2C528)
 
@@ -44,8 +37,6 @@ Bruce and the E Street Band play Iowa State University on The River Tour.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Des_Moines_Register_1981_01_30_Page_7.jpg?resize=758%2C1286&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-01-29a-300x190.jpg?resize=758%2C480)
 
 Bruce records "" at A&M Studios in Los Angeles. It will be released seven years later on .
@@ -63,8 +54,6 @@ Bruce plays the second night of four in Tokyo on his solo acoustic tour.
 At the Paramount Theater in Asbury Park, Bruce rehearses for an upcoming benefit concert for slain police office Patrick King.
 
 **1998:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_1998_01_30_Page_2.jpg?resize=758%2C624&amp;ssl=1)
 
@@ -87,8 +76,6 @@ Bruce plays a benefit for his kids' school at The Stone Pony in Asbury Park, joi
 The final night in Cape Town brings tour premieres, including the first-ever performance of "" Mos Def guest-stars in the encore for "Sun City."
 
 **2014:** *sixteen*[This Is Your Sword.](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/2014-0129-300x200.jpg?resize=758%2C506)
 

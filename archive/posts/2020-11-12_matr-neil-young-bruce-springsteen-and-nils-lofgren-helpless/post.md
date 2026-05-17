@@ -17,5 +17,3 @@ You won't find that performance on Bruce's archive release from that night, but 
 **Helpless**<br>
 **First performed:** October 13, 1986 (Mountain View, CA)<br>
 **Last performed:** October 13, 1986 (Mountain View, CA)<br>
-
-

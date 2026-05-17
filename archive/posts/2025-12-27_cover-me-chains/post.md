@@ -1,5 +1,4 @@
 
-
 In December 1962, a new single by The Cookies was climbing the Billboard Hot 100.
 
 "Chains" was one of a long string of hits by the songwriting team of Gerry Goffin and Carole King. Although The Everly Brothers were the first to record it in 1962, their version remained in the vault until it was finally released in 1984.

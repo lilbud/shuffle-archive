@@ -1,5 +1,4 @@
 
-
 It's arguably the greatest answer song of all time.
 
 It turned The Temptations into superstars, reached the top of the Billboard Hot 100 in 1965 and finished in the Top Ten for the entire year.

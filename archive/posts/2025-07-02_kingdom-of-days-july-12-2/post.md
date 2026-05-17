@@ -1,12 +1,9 @@
 
-
 *New entry for 1972, 1977, 1979, 1994, and 2024***New for 2025:**
 
 The Castiles headline a gig at the Hullabaloo in Freehold.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1968-0712-300x169.jpg?resize=758%2C428)
 
@@ -21,8 +18,6 @@ Bruce and the E Street Band headline two shows at The Bottom Line in New York Ci
 [https://www.youtube.com/embed/ZdUS8iqQiiM?feature=oembed](https://www.youtube.com/embed/ZdUS8iqQiiM?feature=oembed)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/07/Newsday_Nassau_Edition__1974_07_15_87-scaled.jpg?resize=701%2C2560&amp;ssl=1)
 
@@ -53,8 +48,6 @@ The Born in the U.S.A. Tour continues its midwest trek, arriving in East Troy, W
 [https://www.youtube.com/embed/2Qu3z3_7svw?feature=oembed](https://www.youtube.com/embed/2Qu3z3_7svw?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1984-07-12a.jpg?resize=562%2C2007&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-07-12b-300x185.jpg?resize=758%2C470)
 
@@ -90,8 +83,6 @@ Bruce and the E Street Band rehearse for the upcoming Rising Tour at the Expo Th
 
 **2002:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/2002-07-12-300x202.jpg?resize=758%2C510)
 
 At Night Two in Dublin on the Working on a Dream Tour, Bruce and the band perform the tour premiere of "American Skin (41 Shots)."
@@ -121,8 +112,6 @@ Pollstar magazine announces Bruce ranks second for the year in worldwide concert
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Australian singer-songwriter Jimmy Barnes.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/07/2018-07-12.jpg?resize=500%2C500&amp;ssl=1)
 

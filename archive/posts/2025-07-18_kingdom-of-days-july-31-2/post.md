@@ -1,5 +1,4 @@
 
-
 *Video for 2022***New for 2025:**
 
 Bruce and the E Street Band headline the first two shows of a three-night/six-show stand at My Father's Place in Roslyn, New York. WLIR-FM broadcasts the late show live.
@@ -14,11 +13,7 @@ The Darkness Tour continues its southern swing, arriving in Columbia, South Caro
 
 **1978:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/07/The_Columbia_Record_1978_08_01_30-scaled.jpg?resize=758%2C718&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1978-0731-176x300.jpg?resize=758%2C1292)
 
@@ -49,8 +44,6 @@ Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for ",
 [https://videopress.com/embed/91vNP1rr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/91vNP1rr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1987-07-31a-273x300.png?resize=758%2C833)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1987-07-31b-200x300.png?resize=758%2C1137)
 
@@ -132,15 +125,11 @@ Bruce strolls the Asbury Park boardwalk and stops by the Wonder Bar in Asbury Pa
 
 **2022:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/07/IMG_5216.jpg?w=758&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/07/e4aac969-2276-4cd0-a652-cd3fbd55f91b.jpg?resize=758%2C569&amp;ssl=1)
 
-Bruce Springsteen stops by the Wonder Bar in Asbury Park today to thank manager Debbie DeLisa on its 20th anniversary. 
+Bruce Springsteen stops by the Wonder Bar in Asbury Park today to thank manager Debbie DeLisa on its 20th anniversary.
 
 [pic.twitter.com/hJDHOk6tRL](https://t.co/hJDHOk6tRL)
 

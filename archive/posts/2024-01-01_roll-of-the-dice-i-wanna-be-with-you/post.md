@@ -18,8 +18,8 @@ Bruce had always been fascinated with pop music. One of his favorite pop bands w
 
 In Bruce's version, the narrator was just as much in love as The Raspberries' protagonist. But in keeping with Bruce's world and his *Darkness* characters, his is a lovesick loser, so desperately devoted that he's lost his job, his home, his friends, his self-respect… and he doesn't care, so fixated he is on his love.
 
-He doesn't care if "frozen cities crumble and fall" or "tumble right into the sea."  
-He lost his job at a Texaco station "'cause instead of pumping gas, I'd dream of you."  
+He doesn't care if "frozen cities crumble and fall" or "tumble right into the sea."
+He lost his job at a Texaco station "'cause instead of pumping gas, I'd dream of you."
 His professed devotion "until they rip out my heart" is imagery violent enough to make you question whether this guy is devoted or obsessed.
 
 In 1979, during the recording sessions for what would become *The River*, Bruce pulled "I Wanna Be With You" out of the vault temporarily, rewriting the last verse slightly but reworking the arrangement mightily. This time, the band sounds just as desperate Bruce's vocals, and by the time they reach the bridge, Bruce's character is so discombobulated that he trips over his own words, tumbling and catapulting into the brilliant final verse where the our lovesick loser realizes just how far gone he is:

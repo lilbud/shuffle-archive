@@ -19,5 +19,3 @@ That wasn't the only time they acoustically tackled one of Bruce's songs, though
 [Watch on Youtube: i'm on fire | bruce springsteen | 'stories' acoustic cover ft. george krikes](https://www.youtube.com/watch?v=LanWcg8is6U)
 
 Want more cool covers? Check out their YouTube channels ([Scary Pockets](https://www.youtube.com/channel/UC-2JUs_G21BrJ0efehwGkUw) and [Stories](https://www.youtube.com/c/storiesacoustic/featured)) but be warned: you may find yourself tumbling down two serious rabbit holes.
-
-

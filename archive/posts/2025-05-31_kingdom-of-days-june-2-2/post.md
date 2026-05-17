@@ -1,5 +1,4 @@
 
-
 *New entry for 1977***New for 2025:**
 
 Bruce and the E Street Band open for Chicago at the Baltimore Civic Center. Prior to the show, Bruce stops by WHFS-FM in Bethesda for an interview and in-station performance.
@@ -30,11 +29,7 @@ A year and a day after recording sessions begin, Bruce releases his fourth studi
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1978-06-02a.jpg?resize=758%2C2445&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-06-02b-203x300.jpg?resize=758%2C1120)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Darkness-Review-Billboard-Jun-24-1978_0001.jpg?resize=758%2C1216&amp;ssl=1)
 
@@ -78,8 +73,6 @@ Bruce politely but pointedly declines an invitation to be interviewed by the Los
 
 **2004:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/01/bruce-springsteen-letter-p1-large.gif?resize=758%2C981&amp;ssl=1)
 
 Bruce plays a solo acoustic show in Madrid.
@@ -91,8 +84,6 @@ Bruce plays a solo acoustic show in Madrid.
 The Working on a Dream Tour starts its Scandinavian swing with a show at Ratinan Stadion in Tampere, Finland. It may be June, but that doesn't stop Bruce from playing "" as a request, along with a wonderful cover of "."
 
 **2009:** [Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[The Dark End of the Street](http://estreetshuffle.com/index.php/2019/07/22/cover-me-the-dark-end-of-the-street/)
-
-
 
 [https://videopress.com/embed/76xBJLMt?hd=0&amp;cover=1](https://videopress.com/embed/76xBJLMt?hd=0&amp;cover=1)
 

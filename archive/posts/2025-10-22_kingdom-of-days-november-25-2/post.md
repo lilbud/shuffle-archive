@@ -1,16 +1,11 @@
 
-
 *Advertisement for 1973***New for 2025:**
 
 Steel Mill spends Thanksgiving eve headlining at Newark State College.
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/48062846116_b86302e4fe_o-230x300.jpg?resize=758%2C989)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1970-11-25-132x300.png?resize=758%2C1723)
 
@@ -30,11 +25,7 @@ Bruce and local DJ Ed Sciaky drop by Philadelphia's Sigma Sound Studios to meet 
 
 **1974:** [recording a cover](http://estreetshuffle.com/index.php/2018/01/10/cover-me-david-bowie-its-hard-to-be-a-saint-in-the-city/)[It's Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/41349078612_20417e3391_o-300x232.jpg?resize=758%2C586)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/billybruce-300x222.jpg?resize=758%2C562)
 
@@ -79,8 +70,6 @@ Bruce kicks off the first European leg of the Magic Tour in Madrid, without Dann
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: tennis legend Billie Jean King.
 
 **2017:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/37764862675_771e02110b_o-300x155.jpg?resize=758%2C394)
 

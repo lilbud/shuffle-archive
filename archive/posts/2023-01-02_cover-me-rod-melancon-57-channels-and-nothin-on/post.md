@@ -13,5 +13,3 @@ Melancon did more than just cover "57 Channels" live–he released it on his lat
 Rod's cover of "57 Channels (An Nothin' On)" fits so seamlessly on the album that it makes you realize just how at home the original would have been on *Nebraska* as well, in a different arrangement.
 
 For more music from Melancon, check out his official site [here](https://www.rodmelancon.com/).
-
-

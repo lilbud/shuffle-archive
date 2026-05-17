@@ -1,5 +1,4 @@
 
-
 "It's All Right" is one of Curtis Mayfield's greatest hits, written and recorded in 1963 during his days fronting The Impressions. It gave the band their first crossover hit, peaking at #4 on the Billboard Hot 100 and the top of the Billboard R&B chart.
 
 [https://www.youtube.com/embed/6Du9pCalSCU?feature=oembed](https://www.youtube.com/embed/6Du9pCalSCU?feature=oembed)

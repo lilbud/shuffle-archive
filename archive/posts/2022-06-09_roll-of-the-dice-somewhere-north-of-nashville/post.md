@@ -1,9 +1,6 @@
 > "Sometimes you've been too beat up or haven't healed enough of the fear out of you to know a good thing when you've found it. Sometimes you just gravitate to the pain. It's what you're used to. It's how you recognize yourself. It feels like home. It feels more familiar to you than love. So that's where you go.
 >
->
->
 > You don't know how to hold on to love, but you know how to hold on to hurt."
->
 >
 > — Bruce Springsteen, *Western Stars* (2019)
 
@@ -47,7 +44,6 @@ We don't know whether he's ten weeks down the road or ten years, but we do know 
 His heart is with his ex in Nashville, but the rest of him is in exile… somewhere north.
 
 ---
-
 
 Bruce has only performed "Somewhere North of Nashville" live once, but at least it was for the cameras. In the film version of *Western Stars*, Bruce hews closely to the album arrangement, but there's a moment where the visual medium helps him transcend.
 

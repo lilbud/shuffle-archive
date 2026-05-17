@@ -74,7 +74,6 @@ Even though it was the first new studio track from Bruce Springsteen since the m
 
 ---
 
-
 During the 1988 Tunnel of Love Express Tour, Bruce leaned hard into the Bo Diddley beat, arranging "I Ain't Got You" as a simmering medley seamlessly melded with (what else) "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=UqnT9or9zo4)
@@ -89,8 +88,8 @@ It's been sixteen years since we last heard from "Ain't Got You" in a Springstee
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WQYKWveDFWY)
 
-**Ain't Got You  
-**Recorded:** January – April 1987  
+**Ain't Got You
+**Recorded:** January – April 1987
 **Released:** *Tunnel of Love* (1987)<br>
 **First performed:** March 26, 1988 (Lexington, KY)<br>
 **Last performed:** November 19, 2005 (Hollywood, FL)<br>

@@ -1,20 +1,15 @@
 
-
 *New entry for 1975; audio for 1985***New for 2025:**
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1968:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1968-0706-214x300.jpg?resize=758%2C1061)
 
 Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/mainpoint-300x156.jpg?resize=690%2C359)
 
@@ -85,8 +80,6 @@ Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with 
 [https://www.youtube.com/embed/At_NGkleZUI?feature=oembed](https://www.youtube.com/embed/At_NGkleZUI?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/2019-07-06a.jpg?resize=758%2C1143&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2019-07-06b-300x198.jpg?resize=758%2C500)
 

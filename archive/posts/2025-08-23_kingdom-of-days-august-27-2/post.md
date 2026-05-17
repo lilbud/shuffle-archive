@@ -37,5 +37,3 @@
 [Watch on Youtube: Bruce calling in to ESR 10th anniversary show](https://www.youtube.com/watch?v=aQfLYn64y40)
 
 That evening, *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.
-
-

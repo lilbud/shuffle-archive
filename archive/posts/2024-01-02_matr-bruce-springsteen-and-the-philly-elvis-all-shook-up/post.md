@@ -1,5 +1,4 @@
 
-
 Normally, when I write a post about Bruce covering another artist, I provide a little backstory about the song. Sometimes I also add some color commentary about the album and the artist, along with an angle on why that song is a natural or surprising choice for Bruce.
 
 But when it comes to Bruce's one-time-only cover of Elvis Presley's "All Shook Up," there's really no point to doing any of the above.

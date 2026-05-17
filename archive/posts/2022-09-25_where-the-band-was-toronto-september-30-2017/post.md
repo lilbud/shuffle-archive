@@ -1,5 +1,4 @@
 
-
 I suppose if I can count the week before as a show, I can count Bruce's five songs at the Invictus Games closing ceremonies as one, too.
 
 [Bruce's four-song guest appearance at the Laid Back Festival](http://estreetshuffle.com/index.php/2018/09/21/where-the-band-was-holmdel-september-21-2016/)

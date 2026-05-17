@@ -1,7 +1,5 @@
 > "I went in the booth, closed my eyes and boom! I said, "Shall I do it again?' And they said, ‘No, that was it.' Back in the '60s, you hadn't the technology, so you had to do each song, or vocal, over and over. But this was one take. So it means more to me than just the lyrics. It was the fact I had my eyes closed, I stepped up to the mic and it just melted out of me."
 >
->
->
 > — Ronnie Spector, *Uncut* (April 2016)
 
 It sure did.

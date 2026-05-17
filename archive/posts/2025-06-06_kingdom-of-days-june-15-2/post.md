@@ -1,5 +1,4 @@
 
-
 *New entry for 1979***New for 2025:**
 
 At Madison Square Garden, Bruce and his band play their thirteenth and final show as the opening act for Chicago. This was a notoriously bad tour for the band, playing to huge but unreceptive (and sometimes booing) crowds. Bruce resolves never to play big halls again, and he sticks to it… for a while.
@@ -10,15 +9,9 @@ Under record label pressure to release a new single, Bruce and the E Street Band
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1974-06-15a.jpg?resize=758%2C1995&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1974-06-15b-300x196.jpg?resize=758%2C495)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1974-0615-300x177.jpg?resize=732%2C432)
 
@@ -30,11 +23,7 @@ Bruce joins Gary U.S. Bonds on stage at Old Waldorf in San Francisco, performing
 
 **1981:** [This Little Girl](http://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)[School Is Out](http://estreetshuffle.com/index.php/2018/09/29/meeting-across-the-river-gary-u-s-bonds-and-bruce-springsteen-school-is-out/)<https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1981-06-15-300x148.jpg?resize=758%2C374)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1981-0615-300x209.jpg?resize=758%2C529)
 
@@ -51,8 +40,6 @@ The Born in the U.S.A. Tour moves on to West Germany for two nights, starting wi
 [https://www.youtube.com/embed/TK3GxeQpP1w?feature=oembed](https://www.youtube.com/embed/TK3GxeQpP1w?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/frankfurt-300x244.jpg?resize=758%2C616)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1985-0615-214x300.jpg?resize=758%2C1064)
 
@@ -111,8 +98,6 @@ Patti Scialfa releases her long-awaited second album, and plays a promotional fr
 [https://videopress.com/embed/PPu63YUC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PPu63YUC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2004-06-15a-207x300.jpg?resize=758%2C1099)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2004-06-15b-300x241.jpg?resize=758%2C609)
 

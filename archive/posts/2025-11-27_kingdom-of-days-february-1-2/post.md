@@ -1,5 +1,4 @@
 
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-01.png?resize=758%2C690&amp;ssl=1)
 
 Bruce and his band play their second of six nights (with two shows each night) at Max's Kansas City in New York, opening for Biff Rose.
@@ -35,8 +34,6 @@ The original River Tour stops at the St. Paul Civic Center Arena. As a fan expla
 [https://videopress.com/embed/RGrMy8uL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RGrMy8uL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/The_Journal_News_2023_02_05_C4.jpg?resize=758%2C802&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/The_Opelika_Auburn_News_2023_02_08_G4-scaled.jpg?resize=758%2C564&amp;ssl=1)
 

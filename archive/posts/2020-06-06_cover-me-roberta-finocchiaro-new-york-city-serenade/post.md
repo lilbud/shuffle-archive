@@ -1,5 +1,4 @@
 
-
 Italian singer-songwriter Roberta Finocchiaro (you might have caught her in her Light of Day appearances) just dropped her new album, and it's terrific. Check it out or on your favorite music streaming service.
 
 *Saving Lives with the Rhythm*, [here](https://www.youtube.com/user/robertafinocchiaro/featured)

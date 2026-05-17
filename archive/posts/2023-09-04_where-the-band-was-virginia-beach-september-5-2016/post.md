@@ -26,8 +26,6 @@ But: I also hadn't considered that Virginia Beach was the closest Bruce was goin
 
 The hurricane did cause some collateral on-stage damage, though, because neither the string section nor Patti were present. But Bruce was determined to make this a show for the ages: six(!) songs right off the bat from his very first album, followed by four from his second–and only two songs from *The River* (the namesake of this tour), and zero in the main set from *Born in the U.S.A.* This was as old school as it gets: a solo piano "[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)" to open, "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)," "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)," "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)," "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)…" just an unbelievable cornucopia of rare classics.
 
-
-
 [Watch on Youtube: Bruce Springsteen - For You (live in Virginia Beach 2016)](https://www.youtube.com/watch?v=f_O0mnDPRfQ)
 
 [Watch on Youtube: Bruce Springsteen:](https://www.youtube.com/watch?v=j7cs53Fog5U)
@@ -65,5 +63,3 @@ Bruce closed the show with an acoustic "This Hard Land," capping off a terrific 
 I caught three hours of sleep, and then set off for the five-hour drive to my office to put in a full work day. From here, it was a into the tour's home stretch. I had tickets for both Philly shows later that week, but I couldn't imagine a show–even in Philly–that could top this one.
 
 I really have to work on broadening my imagination.
-
-

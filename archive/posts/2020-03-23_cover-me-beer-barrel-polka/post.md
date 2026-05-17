@@ -1,5 +1,4 @@
 
-
 They're a rock band, a bar band, and at least for a minute they were a polka band.
 
 On the evening of September 27, 2003 at Miller Park in Milwaukee, a fan decided to try to stump the E Street Band (long before that particular game was in fashion) in true Milwaukee style: by requesting "Beer Barrel Polka."

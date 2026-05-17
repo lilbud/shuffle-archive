@@ -1,12 +1,9 @@
 
-
 *New entry for 2024***New for 2025:**
 
 Steel Mill headlines a show at the University of Richmond.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1970-1023-185x300.jpg?resize=758%2C1229)
 
@@ -29,8 +26,6 @@ Bruce meets Bob Dylan for the first time at a birthday party for Mike Porco, own
 Montana musician Phil Hamilton–a devoted Bruce fan–arranges a two-night stand in Seattle for his Lost Highway Band in order to be in town for Bruce's River show the next day. Coincidentally, Hamilton spots Bruce walking on the street, introduces himself, and invites Bruce to come watch their show at The Old Timer's Cafe that night. Bruce shocks the band by doing just that, even joining them on stage for a few songs.
 
 **1980:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1980-1023-300x146.jpg?resize=758%2C367)
 

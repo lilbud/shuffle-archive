@@ -1,5 +1,4 @@
 
-
 I had a completely different cover queued up for today and a week's worth of posts written to follow.
 
 But yesterday morning, I came across a brand new cover of "" by an Italian duo called The Travel Bag, and I've played it about a dozen times since.

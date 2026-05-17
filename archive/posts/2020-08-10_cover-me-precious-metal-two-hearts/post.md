@@ -8,7 +8,7 @@ When journalists ask the band about that particular album, it's usually the infa
 
 > *Leslie Knauer: "That guy, Bruce Springsteen's producer… I can't remember his name!"*
 
-[Blogger's note: I'm pretty sure she means Chuck Plotkin, who is credited as a co-producer on the *Precious Metal* album.] 
+[Blogger's note: I'm pretty sure she means Chuck Plotkin, who is credited as a co-producer on the *Precious Metal* album.]
 
 > *Mara Fox: "Oh my gosh, neither can I! He wanted to produce our album and was a friend of the record company owner or something. Then he fell ill and wasn't able to complete the album. He took Leslie to party with Bruce one night."*
 
@@ -21,5 +21,3 @@ When journalists ask the band about that particular album, it's usually the infa
 Take a listen to their Springsteen-endorsed cover below–it's a hard-driving, glammed up, power pop rendition of Bruce's 1980 classic.
 
 [Watch on Youtube: Two Hearts](https://www.youtube.com/watch?v=1bAa7FeYfck)
-
-

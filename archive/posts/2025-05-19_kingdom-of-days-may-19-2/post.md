@@ -42,15 +42,11 @@
 
 [Watch Video](//www.dailymotion.com/embed/video/x74lcw)
 
-
-
 **1993:** Bruce joins Joe Ely on stage at Joe's gig at Dublin's National Stadium for three songs, including "[Fingernails](https://estreetshuffle.com/index.php/2018/10/10/meeting-across-the-river-joe-ely-and-bruce-springsteen-fingernails/)" and "[Settle for Love](https://estreetshuffle.com/index.php/2020/04/22/matr-bruce-springsteen-and-joe-ely-settle-for-love/)." Joe will repay the favor with Bruce tomorrow night.
 
 [Watch on Youtube: Joe Ely & Bruce Springsteen - "Fingernails" Dublin, 1993-05-19](https://www.youtube.com/watch?v=AHFfjy87y8s)
 
 [Watch Video Highlight](https://videopress.com/embed/SsOq1hBx)
-
-
 
 ![](../../assets/2021/05/1993-05-19.jpg)
 

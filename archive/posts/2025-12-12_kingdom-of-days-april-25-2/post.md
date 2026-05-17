@@ -1,10 +1,7 @@
 
-
-Bruce plays two shows at The Main Point in Bryn Mawr, Pennsylvania. 
+Bruce plays two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
 **1973:** (Photo credit: Phil Ceccola)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0425.jpg?resize=530%2C757&amp;ssl=1)
 
@@ -38,8 +35,6 @@ At Micky Rourke's Rubber Club in Los Angeles, Bruce joins a local band on stage 
 
 **1989:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1989-04-25.jpg?resize=390%2C962&amp;ssl=1)
 
 Elliott Murphy and Joe Grushecky join Bruce for a final encore of "Blowin' Down This Road" at Bruce's second solo acoustic show at Brixton Academy in London.
@@ -60,8 +55,6 @@ The first of two Reunion shows at Mellon Arena in Pittsburgh features the first 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-04-25a.jpg?resize=758%2C337&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2000-04-25b.jpg?resize=758%2C568&amp;ssl=1)
 
 Bruce plays a benefit for Rumson Country Day School (along with Patti, Southside Johnny, and Bobby Bandiera) for the third year running at The Stone Pony in Asbury Park.
@@ -78,11 +71,7 @@ Bruce kicks off his solo acoustic tour with a show at the Fox Theater in Detroit
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-25a.jpg?resize=758%2C228&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2005-04-25b.jpg?resize=758%2C240&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2005-04-25c.jpg?resize=667%2C959&amp;ssl=1)
 
@@ -102,11 +91,7 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2006-04-25a.jpg?resize=590%2C824&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2006-04-26c.jpg?resize=758%2C324&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2006-0425b.jpg?resize=758%2C255&amp;ssl=1)
 
@@ -117,8 +102,6 @@ The Magic Tour moves to Atlanta for a show at Philips Arena, where "Blinded by t
 [https://videopress.com/embed/CcJp0LLz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CcJp0LLz?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-04-25a.jpg?resize=758%2C608&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-25b.jpg?resize=381%2C956&amp;ssl=1)
 
@@ -137,7 +120,5 @@ The closing night of the first U.S. leg of the River Tour (2016 version) at Barc
 After days of teasing and speculation, Bruce officially announces his next album, coming in June.
 
 **2019:** *Western Stars*,
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-04-25.jpg?resize=680%2C680&amp;ssl=1)

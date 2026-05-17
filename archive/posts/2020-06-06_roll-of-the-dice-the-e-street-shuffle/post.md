@@ -84,7 +84,6 @@ But always, always, there's music.
 
 ---
 
-
 Most fans were introduced to "The E Street Shuffle," when they first placed Bruce's second album on their turntable, but Bruce had written the song several months earlier and had been performing work-in-progress versions since the spring of 1973.
 
 ![](../../assets/2020/06/theestreetshuffle_early_lyrics.jpg)
@@ -124,8 +123,6 @@ In the spring of 2014, almost forty years to the day since the band took their n
 The first song they played as members of the Rock and Roll Hall of Fame? The only song fit for the occasion.
 
 [Watch Video Highlight](https://videopress.com/embed/lBlztKb7)
-
-
 
 **The E Street Shuffle**<br>
 **Recorded** June-September 1973<br>

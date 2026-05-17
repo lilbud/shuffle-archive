@@ -96,8 +96,8 @@ Listen carefully to the performance, especially around the 3:40 mark, and you'll
 
 [Watch on Youtube: Bruce Springsteen - "Ramrod/Living on the Edge of the World" - NYC, 1980-11-28](https://www.youtube.com/watch?v=4HUThNRDG0E)
 
-**Living on the Edge of the** World  
-**Recorded:** December 7, 1979  
+**Living on the Edge of the** World
+**Recorded:** December 7, 1979
 **Released:** *Tracks* (1998), *The Ties That Bind: The River Collection* (2015)<br>
 **First performed:** September 21, 2012<br>
 **Last performed:** September 21, 2012<br>

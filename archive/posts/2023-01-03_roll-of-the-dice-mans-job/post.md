@@ -6,8 +6,6 @@ What made Sam and Dave so great? Let's watch as Bruce schools us.
 
 [Watch Video Highlight](https://videopress.com/embed/N7IXtKNI?hd=1&cover=1)
 
-
-
 In the studio, Sam and Dave were a force to be reckoned with. On stage, no one could touch them. Trust me and watch these clips below. If you can't see the seeds of Bruce's stage presence in Sam Moore, you're not paying attention.
 
 [Watch on Youtube: Sam & Dave - Soul Man (1967)](https://www.youtube.com/watch?v=5ONNSlk--tE)

@@ -1,5 +1,4 @@
 
-
 "Dead Flowers" is as close as The Rolling Stones ever got to country music.
 
 You could even argue they got all the way there: Classic Rock Magazine calls "Dead Flowers" the third-greatest country rock song of all time, in fact.

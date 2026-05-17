@@ -1,10 +1,7 @@
 
-
 Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1970-0327.jpg?resize=338%2C553&amp;ssl=1)
 
@@ -12,15 +9,11 @@ Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1971-0327.jpg?resize=758%2C707&amp;ssl=1)
 
 Bruce and Steve drop by Atlanta's WQXI-FM for an interview with DJ Cat Simon.
 
 **1976:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0327.jpg?resize=301%2C200&amp;ssl=1)
 

@@ -1,20 +1,15 @@
 
-
 *New entry for 1979; audio for 2002***New for 2025:**
 
 Bruce's good friend, frequent co-performer, and one-time bandmate Southside Johnny Lyon is born in Neptune, New Jersey.
 
 **1948:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/southside-300x300.jpg?resize=758%2C758)
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1971-12-04.png?resize=758%2C359&amp;ssl=1)
 
@@ -39,8 +34,6 @@ Bruce records "" at Soundworks West in Los Angeles.
 The Diasco family gets an unexpected Christmas bonus: in June, they'd bid on and won a private Bon Jovi performance at their home in an auction benefiting the Doug Flutie Autism Foundation; when the band shows up to honor their obligation, they bring along some friends: Bruce, Patti, and Southside Johnny. Bruce joins Bon Jovi for six songs.
 
 **1999:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1999-12-04.png?resize=758%2C1496&amp;ssl=1)
 
@@ -84,15 +77,11 @@ Bruce kicks off his last week of the American Wrecking Ball Tour with a show at 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2012-12-04a.png?resize=758%2C384&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2012-12-04b.png?resize=758%2C308&amp;ssl=1)
 
 Just in time for the holidays, Bruce releases featuring a remastered version of his classic album, and bonus discs of outtakes and a never-before-released live concert video. Also on this date: Bruce announces a new tour to support the boxed set, kicking off in January.
 
 **2015:** *The Ties That Bind: The River Collection*,
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/The-River-box-package-shot-2-700x467-300x200.jpg?resize=758%2C506)
 

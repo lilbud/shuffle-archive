@@ -1,5 +1,4 @@
 
-
 "When I wrote ["Out in the Street"] I was trying to copy one of my all time favorite songs, "Friday On My Mind" by the Easybeats. I have always loved that song. The structure on that is just incredible, and it had that unbelievable exhilaration when they broke into the chorus. You know, its Friday and you are out of school or out of work and you're just !" — *out there*Bruce Springsteen to Molly Meldrum, April 7, 1995
 
 The Easybeats' "Friday On My Mind" may have only reached #16 in the U.S., but it was a bona fide smash hit around the world, peaking at #6 in the U.K. and #1 in Australia.

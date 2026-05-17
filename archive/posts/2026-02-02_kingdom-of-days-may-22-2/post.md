@@ -1,5 +1,4 @@
 
-
 Three–count 'em–Asbury Park shows on this date–first at 1am with the Red Hot Mammas, then an afternoon gig with The Sundance Blues Band at the Student Prince, followed by an evening show with the Red Hot Mammas at The Upstage. (Bruce actually plays a show at 1am, but that's technically the following day.)
 
 **1971:** *three* *fourth*

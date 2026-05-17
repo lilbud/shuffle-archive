@@ -1,5 +1,4 @@
 
-
 If there was no "Ain't Too Proud to Beg" by The Temptations, there would probably be no "" by Bruce Springsteen.
 
 [Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)

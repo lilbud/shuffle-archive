@@ -6,8 +6,6 @@ And as far as Bruce's songwriting influences... well, let's listen to him explai
 
 [Watch Video Highlight](https://videopress.com/embed/Vi2qMA7f)
 
-
-
 When it comes to songs by The Animals, we typically associate Bruce with his ferocious cover of "[It's My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)," a regular feature during the Born to Run era. Thematically, though, "We Gotta Get Out of This Place" is at least as resonant with his songwriting themes.
 
 [Watch on Youtube: We Gotta Get Out Of This Place (US Version)](https://www.youtube.com/watch?v=t6gcxNFc1I0)

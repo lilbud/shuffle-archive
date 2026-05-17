@@ -70,8 +70,6 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication*, produced 
 
 [APP- Embed Player](https://uw-media.app.com/embed/video/100776066?placement=snow-embed)
 
-
-
 [Watch on Youtube: Start of Upstage Jam Asbury Park 4/21/17](https://www.youtube.com/watch?v=shAEGjVkGpc)
 
 [Watch on Youtube: Southside Johnny, Springsteen, Upstage All-Stars "Stand By Me/I Don't Want to Go Home"](https://www.youtube.com/watch?v=dlNyE92IMTg)

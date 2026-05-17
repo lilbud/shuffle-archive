@@ -1,12 +1,9 @@
 
-
 *New entry for 1977; audio for 2006***New for 2025:**
 
 Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the second of a five-night/ten-show stand.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1973-11-06-170x300.jpg?resize=758%2C1338)
 
@@ -14,15 +11,11 @@ Bruce and the E Street Band play their second of two nights at Armadillo World H
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1974-11-07-300x269.jpg?resize=758%2C679)
 
 Songwriter Carl D'Errico (co-writer of "," which Bruce performed a few days prior at the Palladium, with D'Errico in attendance) invites Bruce over to his house for dinner. Bruce accepts, dines, and jams with D'Errico that evening.
 
 **1976:** [It's My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/1976-1107.jpg?resize=758%2C505)
 
@@ -37,8 +30,6 @@ Bruce plays the first rock concert at Cornell University ever to have reserved s
 [https://www.youtube.com/embed/vbJagljGCSw?feature=oembed](https://www.youtube.com/embed/vbJagljGCSw?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1978-11-07-298x300.png?resize=758%2C763)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/46628013495_ede92039e7_o-300x156.jpg?resize=758%2C394)
 
@@ -93,8 +84,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: John Fogerty.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-11-07-295x300.jpg?resize=758%2C768)
 

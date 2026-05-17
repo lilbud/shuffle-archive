@@ -105,9 +105,9 @@ Unfortunately, we're not likely to ever find out exactly what he had in mind. It
 
 So like much of his early pre-Street work, we'll have to content ourselves with simply listening and taking away from it that which speaks to us.
 
-**Look Towards the Land**  
-**Recorded:** March 14, 1972 (rehearsal)  
-**Never released**  
+**Look Towards the Land**
+**Recorded:** March 14, 1972 (rehearsal)
+**Never released**
 **First performed:** May 15, 1971 (Union, NJ)<br>
 **Last performed:** October 23, 1971 (Richmond, VA)<br>
 

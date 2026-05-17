@@ -1,5 +1,4 @@
 
-
 *New entry for 1975 and 1979***New for 2025:**
 
 Bruce headlines two shows at the Bottom Line in New York City. By this time, recording sessions are underway for , and Bruce has been writing prolifically. These shows feature work-in-progress versions of "Jungleland" and "Born to Run" and are fascinating to listen to.
@@ -32,8 +31,6 @@ Bruce and the E Street Band kick off a five-night stand at The Spectrum in Phila
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1981-0713-245x300.jpg?resize=758%2C928)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1981-07-13-300x252.jpg?resize=758%2C637)
 
 Bruce and the band play their second of two nights in East Troy, Wisconsin.
@@ -61,8 +58,6 @@ Patti Scialfa releases her first solo album, along with "Lucky Girl," the lead-o
 [https://www.youtube.com/embed/zDFajspQd38?feature=oembed](https://www.youtube.com/embed/zDFajspQd38?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1993-07-13a-246x300.jpg?resize=758%2C925)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/07/1993-07-13b.jpg?resize=662%2C1285&amp;ssl=1)
 
@@ -105,8 +100,6 @@ Bruce surprises and delights Paris fans by opening with "" (only its third-ever 
 George Theiss, Bruce's Castiles bandmate and co-writer, passes away at the age of 68. Meanwhile, in New York City, continues its theatrical run at the Walter Kerr Theater.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2018-07-13-300x288.jpg?resize=758%2C727)
 

@@ -1,12 +1,9 @@
 
-
 *New entry for 1973 and 1975; video for 2012***New for 2025:**
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1968-0724-210x300.jpg?resize=758%2C1083)
 
@@ -21,8 +18,6 @@ The Born to Run Tour is already underway, but the album isn't finished. Bruce hu
 Bruce takes ill and must postpone his scheduled Rosemont show to September.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1981-07-23.jpg?resize=758%2C483&amp;ssl=1)
 
@@ -91,7 +86,5 @@ As the Wrecking Ball Tour nears its end, the tour premieres continue to delight 
 continues its theatrical run at the Walter Kerr Theater in New York City. Beck is in attendance tonight.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/beck-300x300.jpg?resize=758%2C758)

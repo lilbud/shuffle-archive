@@ -1,5 +1,4 @@
 
-
 On April 23, 2008, the E Street Band was still raw from the recent loss of Danny Federici when they arrived in Orlando.
 
 It was only their second show since Danny's funeral, and the set list was still emotional, opening with a rare "," and featuring a dedicated-to-Danny "." For the encore, though, Bruce wanted something uplifting, so he turned to one of his influences, Florida resident Roger McGuinn of The Byrds.

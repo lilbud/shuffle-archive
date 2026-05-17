@@ -1,10 +1,7 @@
 
-
 Carol Dennis, back-up singer for Bruce's 1992-1993 World Tour, is born.
 
 **1954:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/carol.jpg?resize=315%2C400&amp;ssl=1)
 
@@ -16,15 +13,11 @@ Bruce plays two shows at Charlie's Place in Cambridge, Massachusetts–his final
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1974-04-12.jpg?resize=758%2C396&amp;ssl=1)
 
 At the Cambria County War Memorial in Johnstown, Pennsylvania, Bruce and the E Street Band play their final full-band "" for 23 years. Promoters are getting Bruce's name right these days, but they're still struggling with the band's.
 
 **1976:** [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0412.jpg?resize=758%2C873&amp;ssl=1)
 
@@ -53,8 +46,6 @@ The Tunnel of Love Express stops in Houston for the first of two shows at The Su
 [https://videopress.com/embed/qpGF3ADJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qpGF3ADJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-12b.jpg?resize=758%2C868&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-12c.jpg?resize=543%2C959&amp;ssl=1)
 

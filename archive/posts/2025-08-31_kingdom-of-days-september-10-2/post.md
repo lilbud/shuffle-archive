@@ -1,12 +1,9 @@
 
-
 *New entry for 1979; audio for 2003***New for 2025:**
 
 The Bruce Springsteen Band continues their residency at The Student Prince.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-0910-300x169.jpg?resize=758%2C426)
 
@@ -14,15 +11,9 @@ Bruce and the E Street Band bring the Darkness Tour to the Riverfront Coliseum i
 
 **1978:** [Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1978-09-10a-300x162.jpg?resize=758%2C409)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1978-09-10b.jpg?resize=758%2C2086&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0910-144x300.jpg?resize=758%2C1579)
 
@@ -55,8 +46,6 @@ Bruce shakes up the set list for Night Two in Miami on the Born in the U.S.A. To
 [https://videopress.com/embed/Yx72G4DQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Yx72G4DQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-10-188x300.jpg?resize=758%2C1209)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1985-0909-217x300.jpg?resize=758%2C1048)
 
@@ -93,8 +82,6 @@ One final Canadian show on the Rising Tour at the Skydome in Toronto, where Bruc
 Bruce and the E Street Band begin rehearsing for their upcoming Magic Tour at Convention Hall in Asbury Park.
 
 **2007:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2007-09-10-300x270.jpg?resize=758%2C682)
 

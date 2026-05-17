@@ -1,14 +1,9 @@
 
-
 The Bruce Springsteen Band headlines a show at Rutgers University.
 
 **1972:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1972-04-15.jpg?resize=316%2C957&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1972-0415.jpg?resize=650%2C501&amp;ssl=1)
 
@@ -22,11 +17,7 @@ The Chicken Scratch Tour moves on to Pittsburgh, for a single show at the Syria 
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-04-15.jpg?resize=758%2C323&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1976-0415.jpg?resize=499%2C1369&amp;ssl=1)
 
@@ -34,11 +25,7 @@ Bruce joins Beaver Brown and Asbury Jukes members Joel Gramolini, Kevin Kavanaug
 
 **1979:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1975-0415-300x178.jpg?resize=735%2C435)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1979-0415b.jpg?resize=758%2C553&amp;ssl=1)
 
@@ -56,11 +43,7 @@ The Tunnel of Love Express finishes its Texas leg with a show at the University 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-15a.jpg?resize=758%2C381&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-15b.jpg?resize=758%2C840&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-15c.jpg?resize=758%2C436&amp;ssl=1)
 
@@ -104,8 +87,6 @@ Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in 
 
 **2005:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-15.jpg?resize=758%2C233&amp;ssl=1)
 
 At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on "The Ghost of Tom Joad" and "Hard Times (Come Again No More)." Making their tour premieres tonight: "Darkness on the Edge of Town," "Spirit in the Night," and "Raise Your Hand."
@@ -118,16 +99,12 @@ At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2009-04-15a.jpg?resize=736%2C950&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2009-04-15b.jpg?resize=758%2C804&amp;ssl=1)
 
 Bruce joins Rosanne Cash on stage at Duke University for a live performance of their duet, "Sea of Heartbreak."
 
 **2010:**<br>
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2010-04-15.jpg?resize=758%2C382&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2010-0415.jpg?resize=550%2C302&amp;ssl=1)
 

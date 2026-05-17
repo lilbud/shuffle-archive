@@ -1,12 +1,9 @@
 
-
 *New entry for 1975 and 1985; video for 2012***New for 2025:**
 
 Bruce and the E Street Band play their third of three nights at The Bottom Line in New York City.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1974-0714.jpg?resize=536%2C1374&amp;ssl=1)
 
@@ -21,8 +18,6 @@ Bruce and the E Street Band continue their Texas swing, as the Darkness Tour arr
 [https://videopress.com/embed/lOl367T5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lOl367T5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1978-7-14-300x222.jpg?resize=758%2C561)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1978-0714-144x300.jpg?resize=726%2C1512)
 

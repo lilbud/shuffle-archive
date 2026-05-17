@@ -1,20 +1,15 @@
 
-
 *New entry for 1983; audio for 2002***New for 2025:**
 
 E Street Band bassist and tuba-ist Garry W. Tallent is born in Detroit.
 
 **1949:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1949-1027-300x174.jpg?resize=758%2C439)
 
 Bruce cancels a scheduled show at Millersville University when he wakes up that morning with laryngitis.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/10/Intelligencer_Journal_1974_10_26_page_7.jpg?resize=519%2C924&amp;ssl=1)
 
@@ -42,8 +37,6 @@ Bruce and the E Street Band bring the River Tour to the Oakland Coliseum for the
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1980-10-27.png?resize=758%2C1558&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/46735344874_c8e2fd32b2_o-261x300.jpg?resize=758%2C871)
 
 At The Hit Factory in New York City, Bruce and the E Street Band record "."
@@ -60,11 +53,7 @@ Bruce speaks and performs at a rally in Los Angeles, urging voters to reject Pro
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-27a-300x289.png?resize=758%2C730)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-27b-295x300.png?resize=758%2C771)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-27c-184x300.png?resize=758%2C1236)
 

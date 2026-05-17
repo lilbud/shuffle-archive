@@ -1,20 +1,15 @@
 
-
 *Video for 2014***New for 2025:**
 
 Steel Mill returns to the Hullabaloo in Richmond, Virginia.
 
 **1970:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1970-0501-198x300.jpg?resize=758%2C1149)
 
 Bruce joins the Sundance Blues Band (featuring Southside Johnny, Steve Van Zandt, Vini Lopez, Garry Tallent, and Joe Hagstrom) during their encore at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1971-05-01.jpg?resize=758%2C435)
 
@@ -60,8 +55,6 @@ Bruce and the reunited E Street Band play their first of two shows at the Manche
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1999-05-01.jpg?resize=758%2C818&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/46586788561_fd35492733_o-300x251.jpg?resize=758%2C634)
 
 Bruce's newly released album debuts in the top spot on both the U.S. and U.K. charts.
@@ -71,8 +64,6 @@ Bruce's newly released album debuts in the top spot on both the U.S. and U.K. ch
 Bruce joins Tim McCloone on stage for two songs at the annual Ranney School Ball in Addison Park in Aberdeen, New Jersey. His autographed guitar is auctioned later to benefit the school.
 
 **2010:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/medium.jpg?resize=500%2C375&amp;ssl=1)
 
@@ -109,8 +100,6 @@ The Tony Awards announce that Bruce will be awarded a special Tony for "a once i
 View this post on Instagram
 
 [A post shared by Bruce Springsteen (@springsteen)](https://www.instagram.com/p/BiPvyFEnTwm/?utm_source=ig_embed&utm_campaign=loading)
-
-
 
 Dion releases a video single for his remake of "," featuring backing vocals by Patti Scialfa and Bruce on guitar.
 

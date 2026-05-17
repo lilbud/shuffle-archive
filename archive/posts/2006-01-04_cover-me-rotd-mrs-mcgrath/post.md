@@ -28,8 +28,6 @@ Note the Irish pronunciation of "McGraw" — that's a nuance that seems to have 
 
 [Watch Video Highlight](https://videopress.com/embed/kPchYwxD?hd=0&cover=1)
 
-
-
 Bruce's new version is a powerful one: without altering the melody, he arranges it into a military march, making it impossible to miss the context.
 
 Lyrically, he updates the song as well, mostly in small surgical ways. But Bruce completely rewrites the ending, dialing down Mrs. McGrath's rage, dialing up the loss, and relocating the song in a final, cutting, barb:
@@ -47,8 +45,8 @@ Although Bruce hasn't played "Mrs. McGrath" since that too-short 2006 tour, we'r
 
 Whether Bruce will ever sing it again remains to be seen. But someone surely will, until the day when it's no longer necessary to rage against war and loss.
 
-**Mrs. McGrath**  
-**Recorded:** March 19, 2005  
+**Mrs. McGrath**
+**Recorded:** March 19, 2005
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
 **Last performed:** November 21, 2006 (Belfast, Ireland)<br>

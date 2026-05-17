@@ -4,7 +4,6 @@ Facebook group contributor, Brucebase admin, Dr. Zoom member, and "[The E Street
 
 ---
 
-
 "Key to the Highway" dates back to 1940, when it was originally recorded by Charlie Segar...
 
 [Watch on Youtube: Key to the Highway](https://www.youtube.com/watch?v=xxWJWcOQ4LI)

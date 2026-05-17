@@ -1,10 +1,7 @@
 
-
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1971-0417.jpg?resize=751%2C583&amp;ssl=1)
 
@@ -12,11 +9,7 @@ Bruce and the E Street Band play a show at the University of Rochester.
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-04-17.jpg?resize=610%2C935&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0417.jpg?resize=758%2C784&amp;ssl=1)
 
@@ -39,8 +32,6 @@ Bruce's Tunnel of Love Express show at the St. Louis Arena is captured by a fan 
 [https://videopress.com/embed/1nnfAY8D?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1nnfAY8D?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-17a.jpg?resize=758%2C488&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-17b.jpg?resize=653%2C960&amp;ssl=1)
 
@@ -69,8 +60,6 @@ Joe Ely guest-stars for "All Just to Get to You" at Bruce and the E Street Band'
 Original E Street Band (and Child and Steel Mill) member Danny Federici passes away after a long battle against melanoma.
 
 **2008:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-17.jpg?resize=758%2C1088&amp;ssl=1)
 

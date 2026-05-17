@@ -1,5 +1,4 @@
 
-
 Despite Bruce's admiration for Little Richard and his catalog, only two of Little Richard's three Number One R&B hits ("" and "") seem to make Bruce's set lists.
 
 [Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)[Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)

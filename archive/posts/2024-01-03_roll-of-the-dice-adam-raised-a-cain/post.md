@@ -1,10 +1,6 @@
 > "I guess there's just a certain amount of good and bad you get from your parents, and I just got the bad."
 >
->
->
 > "That's not true. Cal! Listen to me: you can make of yourself anything you want. It's up to you. A man has a choice."
->
->
 >
 > — Cal and Adam, *East of Eden* (1955)
 

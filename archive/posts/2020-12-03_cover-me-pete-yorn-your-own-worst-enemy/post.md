@@ -1,5 +1,4 @@
 
-
 Ten points to Pete Yorn for choosing one of the best tracks (but least played) from Bruce's album: ""
 
 *Magic* [Your Own Worst Enemy.](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)

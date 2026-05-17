@@ -125,7 +125,6 @@ Thankfully, Bruce figured it out, dialed back the histrionics, and gave his narr
 
 ---
 
-
 "Wages of Sin" is a tough song to pull off in concert. It needs to brood and breathe; it takes up more space and quiet than an arena or stadium typically affords. And then there's the metrical asymmetry–even Bruce's teleprompter crutch can't guarantee a clean reading without practice.
 
 Nevertheless, Bruce attempted it once and only once–in Turku, Finland on the Wrecking Ball Tour–and he hit it out of the park.
@@ -143,7 +142,7 @@ If you're wondering why Bruce chose to break out such an obscurity that night in
 Sometimes it ain't glamorous to be in the pit.
 
 **Wages of Sin**<br>
-**Recorded:** May 10, 1982  
+**Recorded:** May 10, 1982
 **Released:** *Tracks* (1998)<br>
 **First performed:** May 8, 2013 (Turku, Finland)<br>
 **Last performed:** May 8, 2013 (Turku, Finland)<br>

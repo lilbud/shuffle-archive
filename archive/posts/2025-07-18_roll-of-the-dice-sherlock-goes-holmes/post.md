@@ -1,5 +1,4 @@
 
-
 Want to know why Bruce became known as the "Fastest Guitar in Asbury Park?"
 
 Give a listen to this Steel Mill original instrumental jam (only performed three times that we know of), and all will be made clear.
@@ -14,4 +13,3 @@ October 11, 1970 (Richmond, VA)
 **Last performed:**<br>
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-

@@ -1,5 +1,4 @@
 
-
 The train almost wrecked before it left the station.
 
 Bruce chose to open the show with "" for the first (and I believe only) time ever, probably as a sly wink to the show's venue (KeyArena). The song was immediately recognizable from the opening bars, but Charlie's organ–the key instrument–couldn't be heard in the mix.

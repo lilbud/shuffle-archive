@@ -1,5 +1,4 @@
 
-
 When Bruce resurrected "" on the Rising Tour, he stripped away the eighties synth and gave it a true rock arrangement for the first time.
 
 [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)

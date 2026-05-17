@@ -1,16 +1,11 @@
 
-
 *New entry for 2013 and 2024***New for 2025:**
 
 The Bruce Springsteen Band headlines a show at Rutgers University.
 
 **1972:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1972-04-15.jpg?resize=468%2C1418&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1972-0415-300x231.jpg?resize=758%2C584)
 
@@ -24,11 +19,7 @@ The Chicken Scratch Tour moves on to Pittsburgh, for a single show at the Syria 
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-04-15-300x128.jpg?resize=758%2C323)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1976-0415.jpg?resize=758%2C2087&amp;ssl=1)
 
@@ -36,11 +27,7 @@ Bruce joins Beaver Brown and Asbury Jukes members Joel Gramolini, Kevin Kavanaug
 
 **1979:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1975-0415-300x178.jpg?resize=735%2C435)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1979-0415b-300x219.jpg?resize=745%2C544)
 
@@ -58,11 +45,7 @@ The Tunnel of Love Express finishes its Texas leg with a show at the University 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-15a-300x151.jpg?resize=758%2C382)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-15b-271x300.jpg?resize=758%2C839)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-15c-300x173.jpg?resize=758%2C437)
 
@@ -106,8 +89,6 @@ Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in 
 
 **2005:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-15-300x92.jpg?resize=758%2C232)
 
 At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on "" and "." Making their tour premieres tonight: "," "" and "."
@@ -120,16 +101,12 @@ At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2009-04-15a.jpg?resize=758%2C980&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2009-04-15b-283x300.jpg?resize=758%2C803)
 
 Bruce joins Rosanne Cash on stage at Duke University for a live performance of their duet, "."
 
 **2010:** [Sea of Heartbreak](http://estreetshuffle.com/index.php/2018/01/12/meeting-across-the-river-bruce-springsteen-and-rosanne-cash/)
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2010-04-15.jpg?resize=758%2C382&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2010-0415-300x165.jpg?resize=758%2C416)
 

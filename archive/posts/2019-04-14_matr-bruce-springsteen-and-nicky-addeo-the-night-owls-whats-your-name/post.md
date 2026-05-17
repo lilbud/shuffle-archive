@@ -1,5 +1,4 @@
 
-
 On April 2, 2011, Nicky Addeo and the Night Owls played the Wonder Bar in Asbury Park.
 
 Nicky Addeo isn't a household name, but in 1963 he released a song called "Gloria" with The Darchaes, and Bruce was a big fan of it.

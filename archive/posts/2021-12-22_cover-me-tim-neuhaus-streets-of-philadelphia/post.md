@@ -1,5 +1,4 @@
 
-
 Tim Neuhaus was a drummer for The Blue Man Group and Clueso before evolving into an accomplished indie-pop singer-songwriter with an impressive catalog of albums to his credit.
 
 He's got one more coming out imminently: an album of covers recorded during lockdown, debuts on June 10th. In advance of the album, Tim released a single of his cover of Bruce Springsteen's "."

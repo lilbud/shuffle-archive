@@ -30,7 +30,6 @@ But that's only part of the story.
 
 ---
 
-
 It began with the Big Man.
 
 "I wrote ‘She's the One' because I wanted to hear Clarence play the sax in that solo," Bruce admitted to author Bill Flanagan in 1987. "I sort of went back and wrote the words to it just 'cause I wanted to hear that beat and hear Clarence play that… I wanted that sax solo and I wanted the guys to play the beat and I had a production idea."
@@ -54,7 +53,6 @@ Regardless of when he took it into the studio, Bruce had built a song completely
 But about those lyrics…
 
 ---
-
 
 It began on the backstreets.
 
@@ -198,7 +196,7 @@ But even (and perhaps especially) without any build-up or introduction), "She's 
 There's a reason why "She's the One" is one of Bruce's most performed songs, even if its lyrics don't rank in the top half of his catalog. It's a guaranteed crowd-pleaser and roof-raiser that isn't likely to disappear from Bruce's sets anytime soon.
 
 **She's the One**<br>
-**Recorded:** April-July 1975  
+**Recorded:** April-July 1975
 **Released:** *Born to Run* (1975)
 **First performed:** October 4, 1974 (New York City, NY)<br>
 **Last performed:** September 3, 2023 (East Rutherford, NJ)<br>

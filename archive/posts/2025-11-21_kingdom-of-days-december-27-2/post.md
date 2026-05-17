@@ -1,12 +1,9 @@
 
-
 *New entry for 1977***New for 2025:**
 
 The Castiles play a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1967:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1967-1227-260x300.jpg?resize=758%2C874)
 
@@ -14,15 +11,11 @@ Earth plays four sets at Le Teendezvous in New Shrewsbury.
 
 **1968:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1968-1227.jpg?resize=758%2C1083)
 
 Bruce and the E Street Band kick off a four-night/two-shows-nightly stand at The Main Point in Bryn Mawr, Pennsylvania.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1973-1227-300x192.jpg?resize=758%2C485)
 

@@ -1,5 +1,4 @@
 
-
 *New entry for 1979***New for 2025:**
 
 Mike Appel arranges an unusual publicity event for Bruce and his band–at the chapel of the Ossining Correctional Facility (otherwise known as Sing Sing Prison), where Bruce's grandfather had once served a three-year sentence. Bruce plays a set of covers that at one point even involves an inmate joining the band. That night, Bruce and the band drive back to New York City to play two shows–this time at Kenny's Castaways. Former editor Greg Mitchell is in attendance at both venues; watch his account of that day below.
@@ -11,8 +10,6 @@ Mike Appel arranges an unusual publicity event for Bruce and his band–at the c
 Bruce and the E Street Band play three sets at Childe Harold in Washington DC–their second of three nights.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1973-12-07-300x134.jpg?resize=758%2C338)
 
@@ -34,8 +31,6 @@ Bruce and the E Street Band play their third and final night at Georgetown Unive
 
 **1975:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/The_Tennessean_Tue__Dec_9__1975_.jpg?resize=758%2C434&amp;ssl=1)
 
 The Darkness Tour descends on the University of Texas at Austin, where Bruce debuts "" as part of the introduction to "" (and screws up the lyrics to "Thunder Road").
@@ -47,8 +42,6 @@ The Darkness Tour descends on the University of Texas at Austin, where Bruce deb
 [https://www.youtube.com/embed/SBsEGe0_LCg?feature=oembed](https://www.youtube.com/embed/SBsEGe0_LCg?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1978-12-07b.png?resize=758%2C576&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1978-12-07.png?resize=758%2C2320&amp;ssl=1)
 
@@ -74,8 +67,6 @@ Bruce pays tribute to Harry Chapin at Carnegie Hall when Chapin is posthumously 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1987-12-07a.png?resize=758%2C301&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1987-12-07b.png?resize=758%2C647&amp;ssl=1)
 
 Bruce records "" with Roy Bittan at Soundworks West in Los Angeles. It will remain unreleased for almost eight years.
@@ -90,15 +81,9 @@ Bruce's World Tour 1992 arrives in Philadelphia for a two-night stand at the Spe
 
 [https://www.youtube.com/embed/Me7NJnY_w6Y?feature=oembed](https://www.youtube.com/embed/Me7NJnY_w6Y?feature=oembed)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/Courier_Post_Wed__Dec_9__1992_-scaled.jpg?resize=501%2C2560&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/Courier_Post_Wed__Dec_9__1992_-1.jpg?resize=758%2C982&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-07a.png?resize=758%2C4134&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1992-12-07b.png?resize=758%2C2297&amp;ssl=1)
 

@@ -1,28 +1,19 @@
 
-
 *Audio for 1988***New for 2025:**
 
 What would have been Bruce's first-ever appearance in Seattle is scuttled when he bows out of a scheduled gig opening for Paul Butterfield at the Paramount Theater. (Note: Brucebase lists this show as having been cancelled, but a newspaper review reveals that it went on without Bruce's involvement.)
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1973-03-03.png?resize=758%2C812&amp;ssl=1)
 
-Bruce and the band play Jacksonville, FL. 
+Bruce and the band play Jacksonville, FL.
 
 **1977:** (photo credit: Louie Favorite)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1977-0304-300x216.jpg?resize=758%2C547)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1977-03-04a.jpg?resize=506%2C2372&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1977-03-04b-300x210.jpg?resize=758%2C531)
 
@@ -49,8 +40,6 @@ Bruce and Patti take in a hockey game in New York City, where the Islanders play
 Rehearsals begin for Bruce Springsteen and the E Street Band's Reunion Tour in Asbury Park.
 
 **1999:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-04.png?resize=758%2C1249&amp;ssl=1)
 

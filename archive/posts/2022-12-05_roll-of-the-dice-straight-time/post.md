@@ -70,7 +70,6 @@ In "Straight Time," there's no such transformation. Charlie knows exactly who he
 
 ---
 
-
 On vinyl, "Straight Time" is performed by a skillful ensemble. In concert, Bruce has only ever performed it solo. He played it nightly throughout the Ghost of Tom Joad Tour, often introducing it in terms that suggested he identified more than a little with the notion of old habits dying hard. (It's fallaciously tempting to invest significance in Bruce choosing 1986–the year the newlywed rock star's mega-stardom peaked–as the year his character got out of prison and found a wife.)
 
 [Watch on Youtube: Straight Time (Live at The Tower Theater, Philadelphia, PA - December 1995)](https://www.youtube.com/watch?v=JL5x0GNeuBY)

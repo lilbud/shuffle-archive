@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 Nine-year-old Bruce Springsteen celebrates Thanksgiving with his family. (Can you spot him?)
 
 **1958:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1958-11-27.jpg?resize=758%2C573&amp;ssl=1)
 
@@ -23,8 +20,6 @@ Steel Mill opens for two Cactus and Black Sabbath shows at Asbury Park's Sunshin
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1971-11-27-300x158.png?resize=758%2C399)
 
@@ -44,11 +39,7 @@ Bruce plays a Thanksgiving Day concert at Madison Square Garden in New York City
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/40492583443_560665e215_o-300x149.jpg?resize=758%2C376)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1980-11-27a-300x80.png?resize=758%2C202)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1980-11-27b-300x88.png?resize=758%2C222)
 
@@ -56,11 +47,9 @@ Bruce joins Jimmy and The Mustangs on stage at Club Lingerie in Hollywood for "T
 
 **1982:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/1982-1127-216x300.jpg?resize=758%2C1053)
 
-The features a guest appearance by Bruce, who performs "." The performance will eventually be released on 
+The features a guest appearance by Bruce, who performs "." The performance will eventually be released on
 
 **1995:** *Tonight Show with Jay Leno* [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)*Video Anthology.*
 
@@ -72,7 +61,7 @@ Bruce's appearance was taped during the day. That night, he plays his second of 
 
 [https://www.youtube.com/embed/2clbTQ5N7-8?feature=oembed](https://www.youtube.com/embed/2clbTQ5N7-8?feature=oembed)
 
-One day prior to the beginning of the last leg of , the promotional push for Bruce's Netflix special begins with the publication of a in 
+One day prior to the beginning of the last leg of , the promotional push for Bruce's Netflix special begins with the publication of a in
 
 **2018:** *Springsteen on Broadway*[feature article](https://www.esquire.com/entertainment/a25133821/bruce-springsteen-interview-netflix-broadway-2018/)*Esquire.*
 

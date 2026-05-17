@@ -1,5 +1,4 @@
 
-
 It's obscure covers week here on the Shuffle. First, we had "" by , but at least Bruce officially released that song. Today's entry can't even claim that.
 
 [The Angel](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)[The Blue Bonnets](https://estreetshuffle.com/index.php/2019/10/14/cover-me-the-blue-bonnets-the-angel/)

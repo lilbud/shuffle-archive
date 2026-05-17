@@ -126,7 +126,7 @@ Here's an alternate mix of "The Promised Land," minus Bruce's guitar solo. More 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=K8UjZczqJ7I)
 
-**The Promised Land  
+**The Promised Land
 **Recorded:** December 1977**Released:** *Darkness on the Edge of Town* (1978), *The Essential Bruce Springsteen* (2003)
 **First performed:** May 23, 1978 (Buffalo, NY)<br>
 **Last performed:** January 18, 2020 (Asbury Park, NJ)<br>

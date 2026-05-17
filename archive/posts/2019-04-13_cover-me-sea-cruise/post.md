@@ -1,5 +1,4 @@
 
-
 On a wet summer night at Red Rocks in 1981, Bruce playfully covered the Frankie Ford novelty song "Sea Cruise," complete with bell and horn sound effects.
 
 [https://www.youtube.com/embed/yMelZDKYN28?feature=oembed](https://www.youtube.com/embed/yMelZDKYN28?feature=oembed)

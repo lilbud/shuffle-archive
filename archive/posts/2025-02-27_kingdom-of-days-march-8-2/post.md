@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 Bruce stops by KLOL-FM in Houston in the afternoon for an interview with DJ Ed Beauchamp.
@@ -32,8 +31,6 @@ The Tunnel of Love Express Tour stops in Philadelphia for the first of two night
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-08a.jpg?resize=758%2C959&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-08b.jpg?resize=564%2C1539&amp;ssl=1)
 
 Bruce plays with The Wallflowers at Tradewinds in Sea Bright, New Jersey. Fan footage of his arrival at sound check plus full show audio (including Bruce's only known cover of "") below.
@@ -50,15 +47,11 @@ Bruce and the E Street Band rehearse for their upcoming Reunion Tour at Asbury P
 
 **1999:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-08.jpg?resize=758%2C1020&amp;ssl=1)
 
-Bruce drops by a benefit for the Ranney School at the Eagle Oaks Country Club in Farmingdale, New Jersey and plays "" with Tim McLoone and the Shirleys. 
+Bruce drops by a benefit for the Ranney School at the Eagle Oaks Country Club in Farmingdale, New Jersey and plays "" with Tim McLoone and the Shirleys.
 
 **2008:**[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)(photo credit: backstreets.com)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/2008-0308-300x217.jpg?resize=758%2C549)
 
@@ -69,8 +62,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 Bruce and President Obama release the fourth episode of their podcast series, This episode is entitled "Born to Run: The Loss of Innocence," in which Bruce and Barack talk about travelling across America and finding home.
 
 **2021:** *Renegades: Born in the U.S.A.*
-
-
 
 [https://open.spotify.com/embed/episode/25YjJeERNhvygT4kXBzY4o?si=80ef3d4930854203&amp;utm_source=oembed](https://open.spotify.com/embed/episode/25YjJeERNhvygT4kXBzY4o?si=80ef3d4930854203&amp;utm_source=oembed)
 

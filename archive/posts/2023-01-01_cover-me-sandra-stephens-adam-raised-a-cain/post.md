@@ -1,5 +1,4 @@
 
-
 Stop what you're doing and listen to Sandra Stephens' remarkable cover of "." If you haven't heard it before, you've never heard it performed like this before.
 
 [Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)

@@ -66,7 +66,6 @@ Is it an odd way to end the song? Maybe. But one could also posit a subtle messa
 
 ---
 
-
 Bonus: Despite their many appearances together over the years, Bruce and John have only ever performed "Who'll Stop the Rain" together once: at the induction of Creedence Clearwater Revival into the Rock and Roll Hall of Fame in 1993. Check out the clip below, and keep an eye out to spot Roy Bittan, Robbie Robertson, Don Was, and Heartbreaker Benmont Tench in the band as well.
 
 [Watch on Youtube: John Fogerty - "Who'll Stop The Rain" | 1993 Induction](https://www.youtube.com/watch?v=ekw13v8Et7U)

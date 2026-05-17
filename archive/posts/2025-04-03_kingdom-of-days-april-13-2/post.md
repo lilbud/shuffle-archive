@@ -1,12 +1,9 @@
 
-
 *Audio for 1976 and 1996; review for 2012; new entry for 2018***New for 2025:**
 
 E Street Band drummer and late night telly-vision personality Max Weinberg is born in Newark, New Jersey.
 
 **1951:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/max-weinberg-300x200.jpg?resize=758%2C505)
 
@@ -14,15 +11,11 @@ Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long r
 
 **1969:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1969-0413-163x300.jpg?resize=758%2C1396)
 
 Bruce cancels a scheduled show at Villanova University at the last minute, no doubt disappointing the local boys scheduled to open for him: Daryl Hall and John Oates.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1973-04-13-143x300.jpg?resize=758%2C1590)
 
@@ -40,15 +33,11 @@ Bruce and the band play a sold-out show at Penn State University, where Bruce ge
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Centre_Daily_Times_Wed__Apr_14__1976_-scaled.jpg?resize=758%2C655&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0413-300x164.jpg?resize=748%2C410)
 
 Bruce guests with Beaver Brown at The Fast Lane in Asbury Park. (Photo credit: Billy Smith)
 
 **1979:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1979-0413-300x238.jpg?resize=758%2C601)
 
@@ -124,8 +113,6 @@ At the Magic Tour stop at the American Airlines Center in Dallas, "" makes its t
 
 **2008:** [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)<https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-13.jpg?resize=758%2C677&amp;ssl=1)
 
 The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to "" and plays "" in honor of Max's birthday in the encores. Tour premiering tonight: "," "," and "."
@@ -137,8 +124,6 @@ The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to
 [https://www.youtube.com/embed/19nO2TuSFd4?feature=oembed](https://www.youtube.com/embed/19nO2TuSFd4?feature=oembed)
 
 [https://www.youtube.com/embed/mUNQYwJRANQ?feature=oembed](https://www.youtube.com/embed/mUNQYwJRANQ?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/The_Buffalo_News_2012_04_14_1.jpg?resize=758%2C811&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/The_Buffalo_News_2012_04_14_2.jpg?resize=758%2C735&amp;ssl=1)
 

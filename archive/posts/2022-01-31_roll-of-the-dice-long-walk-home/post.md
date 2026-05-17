@@ -135,14 +135,14 @@ A nightly mainstay on the Magic Tour, "Long Walk Home" outings have been relativ
 
 Bruce played it acoustic that night because the band hadn't played it or prepared for it. But unsurprisingly, the arrangement turned out to be an extraordinarily powerful delivery vehicle for Bruce's message.
 
-He's played it that way ever since–at pre-election rallies for Secretary Clinton, at a private White House concert for the Obama administration, in a one-off Australian performance, and (for much of its run) nightly and exquisitely in *Springsteen on Broadway.* 
+He's played it that way ever since–at pre-election rallies for Secretary Clinton, at a private White House concert for the Obama administration, in a one-off Australian performance, and (for much of its run) nightly and exquisitely in *Springsteen on Broadway.*
 
 Unfortunately, by the time Bruce recorded and filmed his Broadway show for official release, "Long Walk Home" had been dropped from the set. But if you weren't lucky enough to catch it live during its run, I'll leave you with it now. Enjoy.
 
 [Watch Video Highlight](https://videopress.com/embed/nKNDHlSR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0)
 
-**Long Walk Home  
-**Recorded:** March-April 2007  
+**Long Walk Home
+**Recorded:** March-April 2007
 **Released:** *Magic* (2007)
 **First performed:** November 11, 2006 (London, England)<br>
 **Last performed:** November 18, 2020 (Colts Neck, NJ)<br>

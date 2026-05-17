@@ -40,8 +40,6 @@ Bruce ultimately was far more than a finale guest. He joined Joe and the Housero
 
 [Watch Video Highlight](https://videopress.com/embed/u8yCOevT?hd=1&cover=1)
 
-
-
 ![](../../assets/2019/08/Bruce-8-20-94-Marz.jpg)
 
 It was about as epic an experience as one could hope for. And my own photo with Bruce, which he signed a year later, is still a proud possession. (Photo credit: Bob Benjamin)
@@ -56,8 +54,8 @@ While Joe and Bruce had a friendship and history, after this night, Bruce really
 
 Story ©Copyright 2019 by Terry Camp
 
-Backstage photos: Stephen Urbish  
-Red guitar photo: Unknown  
+Backstage photos: Stephen Urbish
+Red guitar photo: Unknown
 Living Proof photo in b/w: Terry Camp
 
 What's your story?

@@ -1,5 +1,4 @@
 
-
 Bruce sits in with Steve Van Zandt and The Big Bad Bobby Williams Band (which included Garry Tallent, Dave Sancious, and Southside Johnny) at The Upstage in Asbury Park.
 
 **1971:**<br>
@@ -15,8 +14,6 @@ Bruce and the (still unnamed) E Street Band open for Freddie King at Muther's Mu
 Arriving in St. Paul early in the morning, two days before their scheduled show, Bruce and the band enjoy a couple of days off in the Twin Cities (except for Roy, who has an ear infection). Bruce spends the evening playing pool and pinball at a bar called Zoogies, where he catches a local band called The Suburbs.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1981-01-30.png?resize=758%2C639&amp;ssl=1)
 

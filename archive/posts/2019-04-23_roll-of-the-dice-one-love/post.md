@@ -16,7 +16,6 @@ The track list is fascinating–it includes half of the songs that would eventua
 10. [Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 11. [I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
 
-
 What an album that would have been!
 
 Bruce was so far along in planning the *Murder Incorporated* album, in fact, that he even had a handful of B-sides selected for the album's first five singles. Those B-sides included two songs Bruce would eventually debut during the Born in the U.S.A. Tour ("Sugarland" and "Follow That Dream"), along with three others that still have yet to see the light of day: "[Don't Back Down](https://estreetshuffle.com/index.php/2022/01/06/roll-of-the-dice-dont-back-down/)," "[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)," and "One Love."

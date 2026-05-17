@@ -13,5 +13,3 @@ Here's wishing you a day filled with love and friendship.
 **Bonus:** Here's the album version of the song–audio only, but it includes a terrific extended guitar solo from Nils.
 
 [Watch on Youtube: nils lofgren - valentine](https://www.youtube.com/watch?v=jqszFmAwS_E)
-
-

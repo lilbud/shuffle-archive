@@ -1,5 +1,4 @@
 
-
 George Harrison passed away on November 29, 2001, just a few days before Bruce Springsteen was set to kick off a festive run of holiday shows in Asbury Park. It was a tradition he'd started only a year prior with a pair of holiday benefits, and this year–so soon after the September 11th terror attacks–his community was in serious need of both succor and celebration.
 
 But when a Beatle passes, there's really no other choice for a rock and roll musician but to pay one's respects.

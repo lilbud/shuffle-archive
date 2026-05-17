@@ -1,10 +1,7 @@
 
-
 Bruce opens for Lou Reed at the Palace Concert Theater in Providence.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0323.jpg?resize=515%2C800&amp;ssl=1)
 
@@ -60,19 +57,13 @@ Bruce plays a food bank benefit show at the Count Basie Theater in Red Bank befo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-23.png?resize=758%2C1005&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1993-03-23a.jpg?resize=593%2C823&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1993-03-23b.jpg?resize=758%2C348&amp;ssl=1)
 
 Bruce's scheduled show in London is postponed until the following month so that he can perform at this year's Oscar ceremony.
 
 **1996:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/19960322_Press_01_Reschedule.jpg?resize=500%2C751&amp;ssl=1)
 
@@ -87,8 +78,6 @@ Live premieres galore (six album tracks and two covers, including "Mustang Sally
 [https://www.youtube.com/embed/SQhr9EGXP1E?feature=oembed](https://www.youtube.com/embed/SQhr9EGXP1E?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2009-03-23a.jpg?resize=146%2C985&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2009-03-23b.jpg?resize=758%2C397&amp;ssl=1)
 
@@ -107,8 +96,6 @@ The Wrecking Ball Tour moves on to Tampa, with a surprising number of set list c
 [https://www.youtube.com/embed/iLuJ65NLMT4?feature=oembed](https://www.youtube.com/embed/iLuJ65NLMT4?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-23a.jpg?resize=719%2C823&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2012-03-23b.jpg?resize=572%2C823&amp;ssl=1)
 

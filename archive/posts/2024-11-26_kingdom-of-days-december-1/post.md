@@ -1,5 +1,4 @@
 
-
 *Video for 2011***New for 2024:**
 
 Bruce cancels a scheduled show at Quinnipiac University in Hamden, Connecticut.

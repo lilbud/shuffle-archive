@@ -20,7 +20,6 @@ Quite a bit, actually:
 - They each have a great song entitled "Drive All Night."
 - They both have borderline obsessive fans who analyze virtually every lyric they ever wrote.
 
-
 Like, Efrain and David, the hosts of the "Drive All Night: The Songs of Tori Amos" podcast, who once invited me to be a guest on their show during a two-hour(!) episode devoted entirely to Tori's cover of "I'm on Fire."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=3k83xsEAFig)

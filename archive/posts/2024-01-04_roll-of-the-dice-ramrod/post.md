@@ -1,7 +1,5 @@
 > "This guy, he's there, but he's really *not* there no more. He's the guy in ‘[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)‘–either guy, actually. But he's also the guy, in the end, who says, ‘I'll give you the word, now, sugar, we'll go ramrodding forever more.' I don't know, that's a real sad line to me, sometimes."
 >
->
->
 > — Bruce Springsteen to Dave Marsh, *Musician*, February 1981
 
 I call bullshit.
@@ -75,8 +73,6 @@ And yet despite all that, I'd argue that to truly appreciate "Ramrod," one must 
 Over the years, "Ramrod" has only grown in length, power, and schtick, and if you catch it today you're likely to also catch Bruce and Stevie at their goofiest… especially if there's a full moon.
 
 [Watch Video Highlight](https://videopress.com/embed/BhBwRNao?hd=0&cover=1)
-
-
 
 "Ramrod" isn't always faithful to its album arrangement. Bruce had a two-year dalliance with an alternate Latin-influenced arrangement in both acoustic and full-band (Sessions Band, that is) versions that breathed new life into the 1980 rocker.
 

@@ -1,12 +1,9 @@
 
-
 *New entry for 1977 and 2024; audio for 2006***New for 2025:**
 
 Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the fourth of a five-night/ten-show stand.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/1973-1109.jpg?resize=758%2C1335)
 
@@ -14,11 +11,7 @@ Continuing a week of Texas shows, Bruce and the E Street Band play a show at Hou
 
 **1974:** ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/1974-1109.gif?resize=1%2C1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/11/Corpus_Christi_Caller_Times_1974_11_07_70-scaled.jpg?resize=588%2C2560&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1974-11-09-300x253.jpg?resize=758%2C639)
 
@@ -58,19 +51,13 @@ Bruce and the E Street Band bring their Reunion Tour to the Bradley Center in Mi
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-11-09a-184x300.png?resize=758%2C1236)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-11-09b-300x220.png?resize=758%2C556)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/46550113892_3443ccaf9d_o-218x300.jpg?resize=758%2C1043)
 
 A scheduled Rising Tour show in Columbus is postponed to December due to Clarence's detached retina.
 
 **2002:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2002-11-09-93x300.png?resize=758%2C2445)
 
@@ -124,23 +111,17 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2017:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/38330078051_edb8713025_o-277x300.jpg?resize=758%2C818)
 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: motivational speaker Tony Robbins.
 
 **2018:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/tony-robbins-296x300.jpg?resize=758%2C768)
 
-Bruce joins Questlove on his podcast to promote his new album, 
+Bruce joins Questlove on his podcast to promote his new album,
 
 **2022:** *Questlove Supreme**Only the Strong Survive.*
-
-
 
 [https://open.spotify.com/embed/episode/7aXp4eeYWrEvJ0WmcX0C08?utm_source=generator](https://open.spotify.com/embed/episode/7aXp4eeYWrEvJ0WmcX0C08?utm_source=generator)
 

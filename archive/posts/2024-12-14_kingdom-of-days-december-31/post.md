@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2024:**
 
 Bruce plays his first ever show in California, at the Esalen Institute in Big Sur. He unexpectedly encounters a Freehold friend, Richard Blackwell, who sits in with the band during their New Years Eve gig.
@@ -29,8 +28,6 @@ Bruce and the E Street Band join Southside Johnny and The Asbury Jukes on stage 
 [https://www.youtube.com/embed/36xjaG4ZBd4?feature=oembed](https://www.youtube.com/embed/36xjaG4ZBd4?feature=oembed)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1977-12-31.png?resize=758%2C1430&amp;ssl=1)
 
@@ -73,8 +70,6 @@ Bruce and the boys close out the year with one of their most legendary, most doc
 Steve Van Zandt marries Maureen Santoro, and Bruce serves as best man. At the reception, Bruce, the E Street Band, Southside Johnny, and Gary U.S. Bonds join the wedding band for six songs including Bruce's own "" and "."
 
 **1982:** [I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1982-1231-178x300.jpg?resize=758%2C1278)
 

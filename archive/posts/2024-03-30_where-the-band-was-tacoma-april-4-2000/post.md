@@ -1,5 +1,4 @@
 
-
 Even by Bruce's standards, it was a late start: Rumor had it that Bruce had taken in a Mariners game earlier that day and was delayed in getting to the arena by Seattle's infamous traffic, causing a domino effect from soundcheck to show start.
 
 Whatever the reason for the hour-plus delay, when the show finally started with Bruce and Clarence's benediction, it rocketed out of the gate. From the moment I first heard it, "" would forever be my favorite opener for a Springsteen concert, and although the setlist may not have held any premieres or surprises, I hadn't yet discovered the on-line community sites with setlist discussions, so everything was fresh and new to me.
@@ -21,7 +20,5 @@ Another gift this show gave me: introduction to trading circles. Back in the day
 [https://www.youtube.com/embed/XkSMFuOq55g?feature=oembed](https://www.youtube.com/embed/XkSMFuOq55g?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2000-04-04a.jpg?resize=758%2C1025&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2000-0404b-300x165.jpg?resize=724%2C398)

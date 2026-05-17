@@ -1,5 +1,4 @@
 
-
 Bruce covered Elvis Presley throughout the Tunnel of Love Express Tour. On any given night, you were liable to hear "" or "." Swiss fans even got a one-off of "Follow That Dream."
 
 [Can't Help Falling in Love](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)[Love Me Tender](http://estreetshuffle.com/index.php/2019/03/02/cover-me-love-me-tender/)

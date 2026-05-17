@@ -76,7 +76,7 @@ And for a songwriter just emerging from a period of intense doubt, that has to b
 
 And who wouldn't envy that?
 
-**My Lover Man****Recorded:** December 4, 1990  
+**My Lover Man****Recorded:** December 4, 1990
 **Released:** *Tracks (1998)***Never** **performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,5 +1,4 @@
 
-
 Looks like the dice turned up an Elvis double-shot! Yesterday we heard Bruce cover Elvis' breakthrough smash hit; today's entry is a bit more obscure.
 
 "Guitar Man" actually originated with Jerry Reed, who took it to #53 on the Billboard Hot Country Singles chart in 1967.

@@ -70,7 +70,6 @@ Perhaps it was a way of welcoming Nils to the band (Nils joined just prior to th
 
 ---
 
-
 Bruce recorded "Janey, Don't You Lose Heart" in 1983 during the recording sessions for what would become *Born in the U.S.A.* Although it obviously didn't make the final album, it very nearly did–in fact, at one point it was slated to be the last song on the album, which would have ended the album on a much more uplifting note.
 
 Bruce couldn't lock her completely away, though–he actually released "Janey" as the B-side to "[I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)" in the summer of 1985, and he surprised fans a live performance shortly thereafter.
@@ -101,7 +100,6 @@ Whatever form she takes, a setlist appearance by "Janey, Don't You Lose Heart" i
 
 ---
 
-
 **Bonus:** Bruce was working his way towards "Janey, Don't You Lose Heart" for years before he recorded it. Take a listen to Bruce working out a familiar melody in this 1979 home demo:
 
 [Watch on Youtube: Bruce Springsteen Every Day & Every Night](https://www.youtube.com/watch?v=RqX7_Qi-zGQ)
@@ -111,7 +109,7 @@ Whatever form she takes, a setlist appearance by "Janey, Don't You Lose Heart" i
 [Watch on Youtube: Bruce Springsteen True Love Is Hard To Come By #3](https://www.youtube.com/watch?v=XhDDJqIJGBQ)
 
 **Janey, Don't You Lose Heart**<br>
-**Recorded:** June 16, 1983  
+**Recorded:** June 16, 1983
 **Released:** *I'm Goin' Down* (single, 1985)*,Tracks* (1998), *18 Tracks* (1999)<br>
 **First performed:** September 27, 1985 (Los Angeles, CA)<br>
 **Last performed:** February 14, 2017 (Brisbane, Australia)<br>

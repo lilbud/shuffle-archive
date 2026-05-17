@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2024:**
 
 The Castiles play a gig at the Matawan-Keyport Roller Drome.
 
 **1966:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1966-1203-192x300.jpg?resize=758%2C1183)
 
@@ -34,23 +31,17 @@ Bruce and the boys bring the Darkness Tour to Southern Illinois University in Ca
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/The_Paducah_Sun_Tue__Dec_5__1978_.jpg?resize=758%2C323&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/The_Paducah_Sun_Sun__Dec_10__1978_-scaled.jpg?resize=758%2C1023&amp;ssl=1)
 
 Bruce drops by the Keystone in Palo Alto to catch Clarence Clemons and The Red Bank Rockers play their late show, joining them on stage for "Lucille" and "From Small Things (Big Things One Day Come)." The Stanford Daily is on the scene to cover it, and you gotta love their headline.
 
 **1982:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1982-1203-300x298.jpg?resize=758%2C753)
 
-Bruce debuts two new videos ("" and "") as part of a documentary, 
+Bruce debuts two new videos ("" and "") as part of a documentary,
 
 **1988:** [Vigilante Man](https://estreetshuffle.com/index.php/2021/09/14/cover-me-vigilante-man/)[I Ain't Got No Home](http://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)*A Vision Shared: A Tribute to Woody Guthrie and Leadbelly.*
-
-
 
 [https://www.dailymotion.com/embed/video/x74lcw](https://www.dailymotion.com/embed/video/x74lcw)
 
@@ -70,11 +61,7 @@ Bruce plays a solo acoustic show at Chicago's Rosemont Theater. After the show, 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1995-12-03b.png?resize=758%2C821&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-12-03.png?resize=758%2C599&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1995-12-03-167x300.png?resize=758%2C1362)
 
@@ -94,11 +81,7 @@ Bruce hosts the first of five benefit holiday concerts supporting local charitie
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2001-12-03a.png?resize=758%2C1216&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2001-12-03b.png?resize=758%2C334&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2001-12-03c.png?resize=758%2C447&amp;ssl=1)
 

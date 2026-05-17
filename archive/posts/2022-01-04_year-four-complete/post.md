@@ -6,7 +6,6 @@ It also marks:
 - The completion of my annual refresh project–every *Roll of the Dice*, *Cover Me*, *Meeting Across the River, Where the Band Was, and Two Faces* entry is now refreshed with repaired media links and new cross-site links.
 - The end of the *Kingdom of Days* series (but don't worry–it restarts tomorrow!)
 
-
 Whether you've been with me from the beginning or just discovered this site for the first time today, I'd like to take a moment to thank you for reading, subscribing, commenting, liking and/or sharing.
 
 ![](../../assets/2019/01/thank_you_PNG132.png)

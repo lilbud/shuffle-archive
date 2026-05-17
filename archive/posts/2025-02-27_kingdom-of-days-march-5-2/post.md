@@ -1,5 +1,4 @@
 
-
 *Video for 2023***New for 2025:**
 
 Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
@@ -14,8 +13,6 @@ Bruce continues his Florida swing with a gig at Jai Alai Fronton in Orlando.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1977-03-05b-300x287.jpg?resize=758%2C725)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1977-03-05-300x181.jpg?resize=758%2C457)
 
 At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the first leg of the River Tour and play "" for the last time until 2005.
@@ -26,27 +23,17 @@ At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1981-03-05a-271x300.jpg?resize=758%2C839)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1981-03-05b.jpg?resize=758%2C936&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1981-03-05c-279x300.jpg?resize=758%2C815)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1981-03-05d-147x300.jpg?resize=758%2C1547)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1981-0305.jpg?resize=758%2C1137&amp;ssl=1)
 
 Bruce and the reunited E Street Band rehearse for their upcoming Reunion Tour at Convention Hall in Asbury Park.
 
 **1999:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1999-03-05a-190x300.jpg?resize=758%2C1197)
 
@@ -73,7 +60,5 @@ Bruce and the E Street Band bring their World Tour to Saint Paul, where they tou
 [https://www.youtube.com/embed/loLoscZVRzI?feature=oembed](https://www.youtube.com/embed/loLoscZVRzI?feature=oembed)
 
 [https://www.youtube.com/embed/_1zgH3SsaT0?feature=oembed](https://www.youtube.com/embed/_1zgH3SsaT0?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Star_Tribune_Mon__Mar_6__2023_.jpg?resize=758%2C970&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Star_Tribune_Mon__Mar_6__2023_-1.jpg?resize=758%2C936&amp;ssl=1)

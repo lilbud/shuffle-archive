@@ -1,16 +1,11 @@
 
-
 *New entry for 1973, 1977 and 1979; video for 2023***New for 2025:**
 
 The Bruce Springsteen Band opens for Humble Pie at Asbury Park's Sunshine In. Peter Frampton is impressed enough by Bruce and the band to offer them a gig opening for Humble Pie around the country, as well as an introduction to their record label. Mystifyingly, Tinker West (Bruce's manager at the time) declines the offers.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/1971-07-11-300x236.jpg?resize=758%2C596)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1971-07-11-210x300.jpg?resize=758%2C1083)
 
@@ -37,8 +32,6 @@ Clarence Clemons opens his new nightclub, Big Man's West, in Red Bank. Bruce mak
 Bruce kicks off rehearsals for the Rising Tour with the E Street Band at the Expo Theater in Fort Monmouth, New Jersey.
 
 **2002:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/2002-07-11-300x202.jpg?resize=758%2C511)
 

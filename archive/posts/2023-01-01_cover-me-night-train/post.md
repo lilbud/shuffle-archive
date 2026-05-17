@@ -1,5 +1,4 @@
 
-
 Jimmy Forrest recorded "Night Train" in 1952 as a sultry, earthy R&B instrumental.
 
 [https://www.youtube.com/embed/jaFWKYqGrP0?feature=oembed](https://www.youtube.com/embed/jaFWKYqGrP0?feature=oembed)

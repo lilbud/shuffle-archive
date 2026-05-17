@@ -21,7 +21,6 @@ That said, here's what you need to know about the *content* on the site:
 - Some entries will actually be updated for 2025 events, however I will not be republishing the articles, sending daily emails, or even adding a "New for 2026" lead-in. But if you happen to search for a particular date on the site, you may find it has an event for 2025 at the bottom of it.
 - **Most importantly:** The newspaper reviews and other images may be wildly out of order, perhaps placed nowhere near the part of the blog post that mentions them. This is a consequence of the tweaking I have to do for print layout purposes. It's going to make most of the *Kingdom of Days* entries quite frustrating to read through online, in my opinion, so I wanted to alert you to that. The actual text of each article will remain in chronological order, it's just the images and media that will likely be out of order. Here's an [example](https://estreetshuffle.com/index.php/2025/02/01/kingdom-of-days-february-1-2/).
 
-
 These changes are already in effect for all of the January entries from Jan 5th onward, as well as for February entries. I'll be working my way through the remainder of the *Kingdom* posts month by month throughout 2026.
 
 **Roll of the Dice, Cover Me, Meeting Across the River*,* and **Where the Band Was**<br>
@@ -42,7 +41,6 @@ Here's how that shakes out:
 - For *Kingdom of Days*, even though the master entries will remain (in altered form) on the site, all of the *Where the Band Was* entries for a particular month will be deleted once the book for that month has been printed. All the January entries for *Where the Band Was* disappear in early December, the February entries go away in early January, etc.
 - *Cover Me* and *Meeting Across the River* posts will also disappear in batches throughout 2026, but I don't know how to predict or telegraph which ones and when, as I am still figuring out the contents and schedule for those books. But the same principle applies–once printed, they are gone.
 
-
 What that means all-up: pretty soon the site is going to be a mess of "page not found" errors, which is going to annoy both users of the site and Google, who will probably quickly demote this site from the high search engine placement it's enjoyed over the years. I apologize in advance for this. I will be removing links from the "Original Songs" and "Cover Songs" pages to reflect the deleted entries, but I will *not* be removing all the various cross-reference links in essays throughout the site.
 
 With all that said, here are some options if you've enjoyed this site's content and don't want to lose access to it:
@@ -51,7 +49,6 @@ With all that said, here are some options if you've enjoyed this site's content 
 - Reader Andy Swanson tipped me off to a tool called [HTTrrack](https://www.httrack.com/), which basically downloads an entire web site to your hard drive for off-line viewing. I've never used it, and I suspect it might take up a pretty big chunk of your hard drive if it doesn't fill it completely, but it seems like a viable way to mirror the site (as it stands today) to your personal computer.
 - There are several ebook generators that can create ebooks for a pretty low price. I've heard good things about both [Blogbooker](https://blogbooker.com/) and[printmy.blog](https://printmy.blog/), although I have not used either and therefore can't endorse either. I don't have the time to create ebooks before I archive the site, but if you want to do for your own personal library, I have no problem with that.
 - You can piggyback on my personal book orders as I make them each month. Each month in 2026, I will be archiving one album's worth of *Roll of the Dice* and one month's worth of *Kingdom of Days.* I will also be archiving *Cover Me* and *Meeting Across the River* at various times throughout the year. This is by far the most expensive way to go, and it involves a great deal of patience, as it's a two-year slow-motion process. But if you would like to stay apprised of what's coming each month along with ordering instructions, you can sign up for a weekly or monthly newsletter [here](https://docs.google.com/forms/d/e/1FAIpQLSc6QS8QQs84TUjNKwQZrsAE-IChg65xM7mAoJ7hwdWRcnamTQ/viewform?usp=dialog). (The order window for the first *Roll of the Dice, Cover Me, and Kingdom of Days* volumes closes at 11:59pm PST on Sunday, November 30, so please don't delay if you want those volumes.) There's no mark-up on these, you pay the same price that I do for my personal copies.
-
 
 That's it for now. My apologies for the length of this update, but I wanted to make sure I keep you informed of important changes to the site as early as I can so you can plan accordingly.
 

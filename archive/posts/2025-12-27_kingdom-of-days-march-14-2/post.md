@@ -1,5 +1,4 @@
 
-
 The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factory in Highlands, New Jersey. Tinker West records the sessions, and his tapes will prove to be the highest quality recording of The Bruce Springsteen Band and a fascinating document of that period. Standout tracks include "When You Dance," "Look Toward the Land," "Funk Song," and an absolutely stunning must-hear cover of "It's All Over Now, Baby Blue." Take a listen:
 
 **1972:**<br>
@@ -37,8 +36,6 @@ Bruce and Garry jam with Robert Gordon on "Fire" and "Heartbreak Hotel" at The F
 [https://www.youtube.com/embed/kDT1IIz7_Og?feature=oembed](https://www.youtube.com/embed/kDT1IIz7_Og?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1979-03-14.jpg?resize=758%2C753&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1979-0314.jpg?resize=500%2C377&amp;ssl=1)
 
@@ -122,11 +119,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City, with a
 
 **2018:***Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/03/39926163585_5b24155cf8_o.jpg?resize=444%2C447&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2018-03-14a.jpg?resize=500%2C500&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2018-03-14b.jpg?resize=500%2C500&amp;ssl=1)
 

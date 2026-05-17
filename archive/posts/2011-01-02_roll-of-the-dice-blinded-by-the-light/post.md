@@ -1,7 +1,5 @@
 > "It's basically about sex." — *Bruce Springsteen, February 20, 2003*
 >
->
->
 > "Don't overthink the whole thing." — *Bruce Springsteen, April 4, 2005*
 
 What do you do if you're a hot-shot 22-year-old would-be rock star with big dreams, a recording contract, a wide-open future, and the only thing standing in the way of your voice on vinyl is a record exec who can't hear a single?
@@ -42,9 +40,9 @@ While at least some musical ingredients might have ripened on other trees, there
 
 On more than one occasion, Bruce has led his audience through a line-by-line exegesis, admitting at times that even he doesn't know what certain passages are about. I'll do some of that here, too. But to spend too much energy analyzing the lyrics ("overthinking it," Bruce would say) is to miss the trees for the forest. And these are some hella impressive trees.
 
-***M**ad**m**an **drummers** **bummers** and Indians in the **summer** with a teenage diplomat*  
-*In the **dumps** with the **mumps** as the adolescent **pumps** his way into his hat*  
-*With a **boulder** on my **shoulder**, feelin' kinda **older** I tripped the merry-go-round*  
+***M**ad**m**an **drummers** **bummers** and Indians in the **summer** with a teenage diplomat*
+*In the **dumps** with the **mumps** as the adolescent **pumps** his way into his hat*
+*With a **boulder** on my **shoulder**, feelin' kinda **older** I tripped the merry-go-round*
 *With this very **unpleasing** **sneezing** and **wheezing** the **c**alliope **c**rashed to the ground*
 
 The first verse sets the stage: our teenage hero spends his summer splitting his time between his band of hardscrabble musicians (bummers, featuring a cameo by Mad Dog Vini Lopez, singled out here only because of his contribution to the rhyme scheme) and his baseball team, the Indians. He does what any teenage boy does on the Jersey Shore: sulks, rebels against authority, hangs out on the boardwalk, and occasionally causes chaos.
@@ -59,9 +57,9 @@ Internal rhyming is the practice of rhyming interior words within or between lyr
 
 Still, as impressive as that first verse is, let's hold Bruce's beer. Check this out:
 
-*Some **all-hot** **half-shot** was **h**eadin' for a **hot spot** **snappin**‘ his fingers **clappin**‘ his **h**ands*  
-*And some **fleshpot** **mascot** was tied into a lover's **knot** with a **whatnot** in her hand*  
-*And now young **Scott** with a **slingshot** finally found a **tender spot** and throws his lover in the **s**and*  
+*Some **all-hot** **half-shot** was **h**eadin' for a **hot spot** **snappin**‘ his fingers **clappin**‘ his **h**ands*
+*And some **fleshpot** **mascot** was tied into a lover's **knot** with a **whatnot** in her hand*
+*And now young **Scott** with a **slingshot** finally found a **tender spot** and throws his lover in the **s**and*
 *And some **bloodshot** **forget-me-not** whispers, "Daddy's within **earshot**, save the **buckshot**, turn up the band"*
 
 Holy freaking moley.
@@ -71,7 +69,6 @@ There's so much going on in that verse that I can't even use bold type to highli
 - a quadruple internal rhyme (all-hot, half-shot, hot spot)
 - followed by a double internal rhyme (snappin' and clappin')
 - threaded with quintuple alliteration (hot, half, headin', hot, hands)
-
 
 …all while clearly painting a visual scene for the listener. You try doing that in fifteen words, and please pardon me if I don't wait.
 
@@ -88,9 +85,9 @@ And there's our famous chorus. Although he uses it first to describe his love in
 
 As the song progresses, Bruce's lyrics get increasingly impressionistic.
 
-*Some **brimstone** **baritone** anti-**cyclone** rolling **stone** preacher from the east*  
-*He says, "**Dethrone** the **dictaphone**, hit it in its funny **bone**, that's where they expect it least"*  
-*And some **new**–**mown** **chaperone** was standin' in the corner all **alone** watchin' the young girls dance*  
+*Some **brimstone** **baritone** anti-**cyclone** rolling **stone** preacher from the east*
+*He says, "**Dethrone** the **dictaphone**, hit it in its funny **bone**, that's where they expect it least"*
+*And some **new**–**mown** **chaperone** was standin' in the corner all **alone** watchin' the young girls dance*
 *And some **fresh-sown** **moonstone** was messin' with his frozen **zone** to remind him of the feeling of romance*
 
 Once again, Bruce threads a single internal rhyme scheme–this time a baker's dozen–as our hero surveils the authority figures standing between him and a dance with his moonstone that would surely send him home limping in discomfort.

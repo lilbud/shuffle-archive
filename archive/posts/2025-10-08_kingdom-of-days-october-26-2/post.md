@@ -1,5 +1,4 @@
 
-
 *New entry for 1972; audio for 1974; video for 1996***New for 2025:**
 
 At 914 Sound Studios in Blauvelt, New York, Bruce completes "," "," "," and ""
@@ -17,8 +16,6 @@ At 914 Sound Studios in Blauvelt, New York, Bruce completes "," "," "," and ""
 Bruce and the as-yet-unnamed E Street Band headline a show for Hobart & William Smith College at the Geneva Theater in Geneva, New York.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1973-1026.jpg?resize=672%2C1120&amp;ssl=1)
 
@@ -38,15 +35,11 @@ Bruce plays his first-ever show in Washington state when the Born to Run Tour st
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1975-10-26a-300x232.png?resize=758%2C586)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1975-10-26b-101x300.png?resize=758%2C2251)
 
 Bruce's scheduled show at the Philadelphia Spectrum is postponed to the following day due to Clarence's scheduling conflicts.
 
 **1976:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/medium-1.jpg?resize=378%2C500&amp;ssl=1)
 
@@ -67,8 +60,6 @@ At The Hit Factory in New York City, Bruce records "Shut Down" and "100 Miles Fr
 The length of Bruce' concerts have become legendary–so much so that local DJ Rick Dees discovers how easy it is to convince fans that Bruce's concert at the Sports Arena last night is still going on this morning. Hundreds of listeners frantically call the arena and two dozen fans make the return trip to catch the end of Bruce's "overnight encore."
 
 **1984:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-26-300x120.png?resize=758%2C303)
 
@@ -92,11 +83,7 @@ Bruce plays a solo acoustic benefit show for the John Steinbeck Research Center 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-26a-239x300.png?resize=758%2C951)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1996-10-26b.png?resize=758%2C1849&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-26c-280x300.png?resize=758%2C812)
 
@@ -108,7 +95,7 @@ Bruce and the reunited E Street Band play their second of three shows at the Oak
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Record_Searchlight_1999_10_28_38-scaled.jpg?resize=758%2C387&amp;ssl=1)
 
-Night Two in Oakland on the Magic Tour bring tour premieres of "," "Racing in the Street" and "." For more highlights from this show, see my 
+Night Two in Oakland on the Magic Tour bring tour premieres of "," "Racing in the Street" and "." For more highlights from this show, see my
 
 **2007:** [Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)[report.](http://estreetshuffle.com/index.php/2018/10/26/where-the-band-was-oakland-october-26-2007/)*Where the Band Was*
 
@@ -118,15 +105,11 @@ Bruce's cousin and assistant tour manager Lenny Sullivan passes away, prompting 
 
 **2009:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2009-10-26-235x300.png?resize=758%2C967)
 
 Bruce and Jessica are among the list of luminaries attending the opening night of on Broadway.
 
 **2014:** *The Last Ship*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Evening_Standard_2014_10_27_A9.jpg?resize=758%2C750&amp;ssl=1)
 

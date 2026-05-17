@@ -1,26 +1,19 @@
 
-
 Ten days after Steel Mill plays their final show, Bruce is already in the market for talent for a new band. This help wanted ad runs in the today.
 
 **1971:** *Asbury Park Press*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1971_02_02_Page_29.jpg?w=758&amp;ssl=1)
 
-Bruce and the as yet unnamed E Street Band play their third of six nights at Max's Kansas City in New York. 
+Bruce and the as yet unnamed E Street Band play their third of six nights at Max's Kansas City in New York.
 
 **1973:**(photo credit: Chuck Pulin)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1973-0202-194x300.jpg?resize=758%2C1172)
 
 Bruce and the band headline at Springfield College, where a snowstorm keeps all but about 30 people from attending. When the power goes out during the show, Bruce switches to solo piano.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1974-0202-300x182.jpg?resize=758%2C460)
 
@@ -31,8 +24,6 @@ The River Tour (original version) moves on to Dane County Memorial Coliseum in M
 [https://videopress.com/embed/Aj2vCNPN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Aj2vCNPN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-02-02-300x149.jpg?resize=758%2C376)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1981-0202-300x175.jpg?resize=758%2C442)
 
@@ -49,8 +40,6 @@ Bruce and the E Street Band rehearse for their upcoming Tunnel of Love Express T
 Bruce and Patti are in New Orleans filming the video for "." That evening, they drop by the Maple Leaf Bar, where the Iguanas are playing. Introduced by a pseudonym, Bruce joins the band for "" "" and "Betty Jean."
 
 **1992:**[Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)[Ain't That a Shame,](http://estreetshuffle.com/index.php/2018/03/08/meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/)[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/The_Toronto_Star_1992_02_27_43.jpg?w=758&amp;ssl=1)
 

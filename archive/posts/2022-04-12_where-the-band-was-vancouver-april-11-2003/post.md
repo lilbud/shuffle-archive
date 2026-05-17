@@ -1,10 +1,8 @@
 
-
 This show was a first for me in two significant ways:
 
 - It was the first show I'd ever travelled out of town for–out of the country, no less.
 - It was my first time in the pit, and it completely changed my concert-going experience.
-
 
 I no longer recall exactly what made me decide to see Bruce's Rising show in Vancouver. I think it was a combination of opportunity (Vancouver was a very late addition to the tour, eight months after the other northwest shows in Portland and Seattle) and pit envy (I remember seeing the people up front at the Tacoma show in 2002 and wondering how they'd managed to get such a prime position.)
 

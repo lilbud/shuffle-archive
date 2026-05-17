@@ -127,8 +127,6 @@ As it turned out, the essential element would come two weeks later, and it would
 
 [Watch Video Highlight](https://videopress.com/embed/orWUOCsG?hd=0&cover=1)
 
-
-
 Paul Rappaport, former VP of Columbia Records, was there that night and shared his recollection in a 2016 blog post.
 
 > *I was lucky enough to be at the Rosemont Theater show in Chicago the very first time the crowd sang the lyrics back to Bruce. It came as a total shock, but in the nicest of ways. The record was in the process of becoming a hit on top 40 radio. This was brand new territory for Bruce and it meant more new fans and those fans coming to a show with that specific song in their heads that they'd heard over an over again on their local top 40 radio station.*<br>
@@ -149,7 +147,6 @@ For as long as Bruce continues to tour, his audiences will keep singing that fir
 
 ---
 
-
 **Bonus #1:** Springsteen has performed "Hungry Heart" well over 700 times over the years, but only three of those were acoustic–and two of those were team-ups. The first was in 1986, when Bruce was joined by Crosby, Stills, Nash & Young at Neil Young's Bridge School Benefit.
 
 [Watch Video Highlight](https://videopress.com/embed/FEcnI0nj)
@@ -161,8 +158,6 @@ For as long as Bruce continues to tour, his audiences will keep singing that fir
 Believe it or not, though, the first time Bruce played an acoustic "Hungry Heart" in public by himself was only a year ago, at Stand Up for Heroes in November 2021. (Delicate ears might want to skip past the opening joke.)
 
 [Watch Video Highlight](https://videopress.com/embed/md0CXS3t?hd=0&cover=1)
-
-
 
 **Bonus #2:** If you listened to that 2005 clip above and wondered "Wolfgang who?" there's a reason why Bruce chose that song for that occasion.
 

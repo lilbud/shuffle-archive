@@ -86,9 +86,9 @@ It's one of Bruce's finest final lines–certainly the best among his early song
 
 Bruce has never performed "Two Hearts in True Waltz Time" in concert. We can only hope that someday he will.
 
-**Two Hearts in True Waltz Time**  
-**Recorded:** May 3, 1972 and June 27-29, 1972  
-**Never released**  
+**Two Hearts in True Waltz Time**
+**Recorded:** May 3, 1972 and June 27-29, 1972
+**Never released**
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

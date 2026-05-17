@@ -1,12 +1,9 @@
 
-
 *New entry for 1977 and 2024; video for 2023***New for 2025:**
 
 "Professor" Roy Bittan is born in Rockaway Beach, New York.
 
 **1949:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/roy-300x300.jpeg?resize=758%2C758)
 
@@ -18,15 +15,11 @@ The "Fabulous" Castiles play a gig at the See ‘n' Surf Club (not a typo–same
 
 **1967:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1967-0702.jpg?resize=758%2C737)
 
 The Sundance Blues Band plays the Upstage in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1971-07-02-300x102.jpg?resize=758%2C258)
 

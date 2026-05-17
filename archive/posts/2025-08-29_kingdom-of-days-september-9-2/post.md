@@ -1,5 +1,4 @@
 
-
 *New entry for 1977***New for 2025:**
 
 Bruce makes a guest appearance with Odin at the Highlands Art and Music Fair in Highlands, New Jersey, playing a loose four-song mini-set (including a composed-on-the-spot "") through two power outages. The band closes with a cover of Big Joe Williams' "Baby, Please Don't Go"… sort of. Whether an intentional mashup or because he simply doesn't know the words, Bruce instead sings the lyrics for "," making this the first known recording of these words in public. Take a listen to this pristine, historic recording.
@@ -28,8 +27,6 @@ The Darkness Tour arrives at the University of Notre Dame, where Bruce plays "" 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1978-09-09-300x235.jpg?resize=758%2C594)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1978-09-09-300x216.jpg?resize=758%2C546)
 
 Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami's Orange Bowl Stadium for the first of two nights.
@@ -40,15 +37,9 @@ Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami's Orange 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-09-09a-181x300.jpg?resize=758%2C1256)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-09-09b-300x134.jpg?resize=758%2C339)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-09-09c-237x300.jpg?resize=758%2C959)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1985-0908.jpg?resize=758%2C928&amp;ssl=1)
 
@@ -68,15 +59,11 @@ kicks off at New Jersey's Monmouth University, drawing scholars and fans to disc
 
 **2005:** *Glory Days: A Bruce Springsteen Symposium*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2005-09-09a.jpg?resize=495%2C2750&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2005-09-09b.jpg?resize=758%2C2274&amp;ssl=1)
 
-Night Two in Philadelphia on the "Autobiography Tour" can't quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from , and "From Small Things (Big Things One Day Come)" and "" make rare appearances. The amazing two-night stand is capped off by a show-closing "" complete with fireworks. But for my money, the highlight of the show is one of the best-ever versions of "." For more highlights from this show, see my 
+Night Two in Philadelphia on the "Autobiography Tour" can't quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from , and "From Small Things (Big Things One Day Come)" and "" make rare appearances. The amazing two-night stand is capped off by a show-closing "" complete with fireworks. But for my money, the highlight of the show is one of the best-ever versions of "." For more highlights from this show, see my
 
 **2016:** [](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1973-0105-album.jpg?w=500&ssl=1)*Greetings from Asbury Park, N.J.*[Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[report.](http://estreetshuffle.com/index.php/2018/09/09/where-the-band-was-philadelphia-september-9-2016/)*Where the Band Was*
 

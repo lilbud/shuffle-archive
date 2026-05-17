@@ -33,5 +33,3 @@ That Garland-less performance was a one-off, though–the next (and last) time B
 **96 Tears**<br>
 **First performed:** November 2, 2002 (Sea Bright, NJ)<br>
 **Last performed:** May 28, 2012 (Landgraaf, The Netherlands)<br>
-
-

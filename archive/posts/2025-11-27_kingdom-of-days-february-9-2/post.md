@@ -1,16 +1,13 @@
 
-
 Bruce watches The Beatles make their live American debut on The Ed Sullivan Show. Bruce is inspired, galvanized, and dedicates himself to learning music and playing his guitar.
 
 **1964:**<br>
 
 [https://www.youtube.com/embed/jenWdylTtzs?feature=oembed](https://www.youtube.com/embed/jenWdylTtzs?feature=oembed)
 
-The reviews Bruce's debut album, 
+The reviews Bruce's debut album,
 
 **1973:** *Asbury Park Press* [](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J.*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1973-02-09.jpg?resize=632%2C1226&amp;ssl=1)
 
@@ -22,23 +19,17 @@ Bruce and the E Street Band bring the "Lawsuit Tour" to Kleinhan's Music Hall in
 
 **1977:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1977-0209.jpg?resize=602%2C737&amp;ssl=1)
 
 Hours before he is scheduled to perform, Bruce cancels his River Tour show in Indianapolis when he comes down with strep throat.
 
 **1981:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-02-09-300x183.jpg?resize=758%2C462)
 
 Following a benefit concert for Sting's Rainforest Foundation, Sting invites Bruce, Joni Mitchell and other musician friends to a party at his house.
 
 **1991:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1991-0209-300x197.jpg?resize=758%2C499)
 

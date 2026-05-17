@@ -14,8 +14,6 @@ In fact, the first time Bruce ever performed "Open All Night" live (at The Stone
 
 [Watch Video Highlight](https://videopress.com/embed/qjfJIaLw?hd=1&cover=1)
 
-
-
 Let's take a close listen to this curious *Nebraska* standout, but before we do, a note:
 
 I find this essay to be a difficult one to write, because I feel like I've written it already. "Open All Night" is virtually the same song as "[Living on the Edge of the World](https://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/)," which Bruce recorded three years earlier but didn't officially release until 1998.

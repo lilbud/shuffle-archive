@@ -1,10 +1,7 @@
 
-
 Bruce cancels a scheduled performance at Detroit's Masonic Temple Theater.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1973-05-19.jpg?resize=758%2C418&amp;ssl=1)
 
@@ -17,8 +14,6 @@ Bruce and the E Street Band work on what will become at the Record Plant in New 
 Bruce drops by The Stone Pony and joins The Shakes for two numbers, "Jailhouse Rock" and "Sea Cruise."
 
 **1977:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1977-0519.jpg?resize=600%2C375&amp;ssl=1)
 
@@ -43,8 +38,6 @@ Bruce joins Clarence Clemons and The Red Bank Rockers on stage for four songs at
 **1984:**<br>
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1984-0519.jpg?resize=568%2C699&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1984-05-19.jpg?resize=758%2C383&amp;ssl=1)
 

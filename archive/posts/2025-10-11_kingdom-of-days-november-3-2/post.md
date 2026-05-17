@@ -1,12 +1,9 @@
 
-
 *New entry for 2024***New for 2025:**
 
 The Castiles play a show at the Hullabaloo in Middletown, New Jersey.
 
 **1966:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/48079763806_4856bedde7_o-230x300.jpg?resize=758%2C989)
 
@@ -24,11 +21,7 @@ Bruce and the E Street Band play their first of three nights at Arizona State Un
 
 **1975:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/1975-1103-300x300.jpg?resize=758%2C760)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/1975-11-03.png?resize=758%2C1422&amp;ssl=1)
 
@@ -60,8 +53,6 @@ Patti Scialfa has a perforated eardrum, forcing Bruce to postpone a scheduled Re
 
 **1999:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-11-03-300x123.png?resize=758%2C311)
 
 Bruce returns to The Stone Pony for the first time in five years, joining Joe Grushecky and The Houserockers on stage at Bob Benjamin's first official Light of Day benefit for the Parkinson's Disease Foundation. Listen to the entire show below. (Bruce joins after the first two songs.)
@@ -71,8 +62,6 @@ Bruce returns to The Stone Pony for the first time in five years, joining Joe Gr
 [https://videopress.com/embed/fpVU6S3u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fpVU6S3u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2000-11-03a-134x300.png?resize=758%2C1697)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2000-11-03b-300x185.png?resize=758%2C467)
 
@@ -95,8 +84,6 @@ The Rising Tour returns to the U.S., and the next leg kicks off with a show at A
 Hurricane Wilma forces the postponement of a scheduled show in Sunrise, Florida.
 
 **2005:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/2005-11-03.png?resize=438%2C764&amp;ssl=1)
 
@@ -153,8 +140,6 @@ The Wrecking Ball Tour stops in Louisville, where "" gets a rare outing.
 [https://www.youtube.com/embed/AxBF-z29vCQ?feature=oembed](https://www.youtube.com/embed/AxBF-z29vCQ?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/2012-11-03a.png?resize=758%2C1404&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2012-11-03b-1-300x275.png?resize=758%2C695)
 

@@ -1,5 +1,4 @@
 
-
 You can name that tune in one note.
 
 "Purple Haze" was a landmark in psychedelic rock, exploding onto the music scene immediately upon its release in 1967. It would influence would-be guitar heroes worldwide, and Rolling Stone would anoint it the second greatest guitar song of all time and rank it #17 on the Greatest Songs (period) of All Time.

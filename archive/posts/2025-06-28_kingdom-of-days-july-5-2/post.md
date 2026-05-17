@@ -1,5 +1,4 @@
 
-
 *Audio for 2008; video for 2012; new entry for 2024***New for 2025:**
 
 The Castiles play a set at the West End Casino in Long Branch, New Jersey.
@@ -10,23 +9,15 @@ The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant
 
 **1972:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1972-07-05a-119x300.jpg?resize=758%2C1911)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1972-07-05b-296x300.jpg?resize=758%2C768)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1972-0705-245x300.jpg?resize=758%2C929)
 
 Bruce and the E Street Band begin a five-night stand at The Main Point in Bryn Mawr, Pennsylvania, playing two shows on this first night.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1973-0705-300x156.jpg?resize=715%2C372)
 
@@ -46,15 +37,11 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1978-07-05a.jpg?resize=758%2C1413&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1978-07-05b-168x300.jpg?resize=758%2C1353)
 
-Bruce and the E Street Band play their third of six nights opening the Brendan Byrne Arena in the Meadowlands, where they play "" for the first time in the U.S. 
+Bruce and the E Street Band play their third of six nights opening the Brendan Byrne Arena in the Meadowlands, where they play "" for the first time in the U.S.
 
 **1981:** [Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)(Photo credit: Dari)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1981-0705-237x300.jpg?resize=749%2C944)
 
@@ -67,8 +54,6 @@ The Born in the U.S.A. Tour moves on to its second stop: the Riverfront Coliseum
 [https://videopress.com/embed/C92hW6tT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/C92hW6tT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1984-07-05a-277x300.jpg?resize=758%2C821)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1984-07-05b.jpg?resize=758%2C417&amp;ssl=1)
 

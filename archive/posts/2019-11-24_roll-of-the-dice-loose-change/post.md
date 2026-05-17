@@ -84,7 +84,7 @@ Until then, we're left to choose our own adventure.
 ![](../../assets/2019/12/loosechange_lyrics-sheet-1.jpg)
 
 **Loose Change**<br>
-**Recorded:** January 31, 1991  
+**Recorded:** January 31, 1991
 **Released:** *Tracks* (1998)<br>
 **Never Performed**<br>
 

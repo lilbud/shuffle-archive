@@ -120,5 +120,3 @@ I am my father's house now, and as long as I'm here, he has a home.
 **Last performed:** September 4, 2021 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-

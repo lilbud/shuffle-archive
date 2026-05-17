@@ -1,5 +1,4 @@
 
-
 It was just that kind of night.
 
 The kind of night where you win the pit lottery and find yourself front and center for the longest Springsteen concert in the U.S. since 1980 and the 6th longest show anywhere, ever. (That record would be shattered multiple times by the end of the tour, but we didn't know it that night.)

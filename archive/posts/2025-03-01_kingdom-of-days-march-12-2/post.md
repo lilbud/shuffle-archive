@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
@@ -10,15 +9,11 @@ Bruce plays the first night of seven at Oliver's in Boston.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1-190x300.jpg?resize=758%2C1195)
 
 A mere five days away from his scheduled twelve-show River Tour stand in the U.K., Bruce postpones all shows until late May and early June due to exhaustion from the American leg of the tour.
 
 **1981:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1981-03-12-scaled.jpg?resize=758%2C126&amp;ssl=1)
 
@@ -31,8 +26,6 @@ is certified as 12x Platinum by the Recording Industry Association of America.
 Bruce and the E Street Band rehearse at Asbury Park's Paramount Theater for the upcoming Working on a Dream Tour.
 
 **2009:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/2009-0312-300x200.jpg?resize=758%2C505)
 

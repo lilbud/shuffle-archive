@@ -1,12 +1,9 @@
 
-
 *Advertisement for 1974***New for 2025:**
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1968-0302-214x300.jpg?resize=758%2C1065)
 
@@ -18,15 +15,11 @@ Bruce and the E Street Band open for Blood, Sweat & Tears at Berkeley Community 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1973-03-02a.jpg?resize=758%2C1058&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1973-03-02c-300x290.jpg?resize=758%2C733)
 
 Bruce cancels a show in Parsippany, New Jersey due to illness.
 
 **1974:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Record_1974_03_01_27-scaled.jpg?resize=758%2C994&amp;ssl=1)
 
@@ -38,11 +31,7 @@ The Lawsuit Tour makes its way to Atlanta's Civic Center Auditorium.
 
 **1977:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1977-03-02.jpg?resize=499%2C1117&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1977-0302-300x272.jpg?resize=758%2C687)
 
@@ -90,8 +79,6 @@ Bruce joins Joe Grushecky and the Houserockers for a set at Nick's Fat City in P
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1998-03-02.jpg?resize=758%2C1011&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1998-03-02a-118x300.jpg?resize=758%2C1927)
 
 Joe Ely joins the E Street Band for "" and "" during the Austin stop on the Rising Tour. This show also features the tour premiere of "" as the U.S. prepares for war with Iraq.
@@ -111,8 +98,6 @@ The Magic Tour begins its Canadian leg with a show at Bell Center in Montreal. A
 [https://www.youtube.com/embed/wiE2z3gYOwQ?feature=oembed](https://www.youtube.com/embed/wiE2z3gYOwQ?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2008-03-02a-300x140.jpg?resize=758%2C354)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2008-03-02b.jpg?resize=758%2C1058&amp;ssl=1)
 

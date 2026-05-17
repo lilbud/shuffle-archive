@@ -1,16 +1,11 @@
 
-
 *Reviews for 1975; new entry for 1993 and 2024***New for 2025:**
 
 Earth plays two shows at the Off Broad Street Coffee House in Red Bank, New Jersey.
 
 **1968:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1968-09-13.jpg?resize=561%2C333&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1968-0913-214x300.jpg?resize=758%2C1063)
 
@@ -26,15 +21,11 @@ Bruce and the E Street Band play their first of two shows at the Houston Music H
 
 [https://www.youtube.com/embed/B5Zw_6PLuQM?feature=oembed](https://www.youtube.com/embed/B5Zw_6PLuQM?feature=oembed)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/09/The_Houston_Post_1975_09_14_49-scaled.jpg?resize=758%2C2366&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/09/The_Houston_Chronicle_1975_09_14_28.jpg?resize=758%2C456&amp;ssl=1)
 
 Bruce makes a guest appearance at The Stone Pony with Southside Johnny and the Asbury Jukes, at a benefit show for Bob Campanell of The Shakes.
 
 **1977:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1977-0913-300x205.jpg?resize=744%2C509)
 
@@ -54,15 +45,11 @@ The River Tour enters its last stand with the first of two nights at Cincinnati'
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1981-09-13a-300x124.jpg?resize=758%2C313)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1981-09-13b.jpg?resize=758%2C1404&amp;ssl=1)
 
 Washington Post columnist George Will publishes a column praising Bruce as a paragon of conservative American values, sparking a debate over the meaning behind Bruce's music and performance. Within a week, the president of the United States will weigh in.
 
 **1984:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1984-09-13-300x269.jpg?resize=758%2C680)
 
@@ -86,11 +73,7 @@ Why isn't Bruce there to accept his award? Because he's on stage with the E Stre
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1985-0913.jpg?resize=758%2C940&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-13a-251x300.jpg?resize=758%2C906)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1985-09-13b-300x294.jpg?resize=758%2C743)
 
@@ -110,8 +93,6 @@ Bruce and Patti attend a beach party in Sea Bright to benefit the Count Basie Le
 
 **1998:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Asbury_Park_Press_1998_09_19_Page_76.jpg?resize=758%2C1234&amp;ssl=1)
 
 Bruce and the reunited E Street Band kick off a six-night stand at Philadelphia's First Union Center.
@@ -122,15 +103,9 @@ Bruce and the reunited E Street Band kick off a six-night stand at Philadelphia'
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1999-09-13a-272x300.jpg?resize=758%2C836)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1999-09-13b-56x300.jpg?resize=758%2C4061)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1999-09-13c-300x245.jpg?resize=758%2C619)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1999-09-13d-211x300.jpg?resize=758%2C1078)
 
@@ -161,8 +136,6 @@ Bruce and the band take the Working on a Dream Tour to Sunrise, Florida, where t
 [https://www.youtube.com/embed/o1lghR1wvvY?feature=oembed](https://www.youtube.com/embed/o1lghR1wvvY?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-09-13a-300x221.jpg?resize=758%2C558)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-09-13b-300x268.jpg?resize=758%2C677)
 

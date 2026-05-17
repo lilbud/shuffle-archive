@@ -38,7 +38,7 @@ For the life of me, I cannot fathom why Bruce left this off of *Nebraska*. Tight
 When the next tour comes, I think I know what my next sign request is gonna be.
 
 **Riding Horse**<br>
-**Recorded:** March-April 1981  
+**Recorded:** March-April 1981
 **Never released**<br>
 **Never performed**<br>
 

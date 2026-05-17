@@ -23,18 +23,21 @@ def save_to_archive(post: dict) -> None:
     # print(save_path)
     save_path.mkdir(exist_ok=True)
 
+    if not save_path.exists():
+        print(save_path.name)
+
     if not Path(save_path, "meta.json").exists():
         with Path(save_path, "meta.json").open("w", encoding="utf-8") as f:
             json.dump(post, f)
 
-        print("created json")
+        print(f"{save_path.name}: created json")
 
     # convert post to markdown and save
     if not Path(save_path, "post.md").exists():
         with Path(save_path, "post.md").open("w", encoding="utf-8") as f:
             f.write(content)
 
-        print("created md")
+        print(f"{save_path.name}: created md")
 
 
 for file in Path("./posts_json/").glob("*.json"):

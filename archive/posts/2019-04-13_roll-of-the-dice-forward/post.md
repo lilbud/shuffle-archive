@@ -1,5 +1,4 @@
 
-
 The dice must be obeyed.
 
 And today, the dice have landed on this unreleased, rarely performed Springsteen original: "Forward!"
@@ -23,4 +22,3 @@ November 5, 2012 (Columbus, OH)
 **Last performed:**<br>
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-

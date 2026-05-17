@@ -1,5 +1,4 @@
 
-
 Here's one of the more obscure covers Bruce has performed.
 
 Not the song itself, though: "Funky Broadway" is notable both for being the first-ever song with the word "Funky" in the title when it was originally released by Dyke & The Blazers in 1967…

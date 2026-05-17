@@ -1,5 +1,4 @@
 
-
 *New entry for 1979; audio for 1988 and 2006; review for 2005***New for 2025:**
 
 Bruce and the E Street Band play two shows at Princeton University.
@@ -38,8 +37,6 @@ Bruce tour premieres "Thunder Road" (in its only tour performance) and "" (on au
 
 [https://videopress.com/embed/OSxHcFEA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OSxHcFEA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/Star_Tribune_2005_10_23_F2-scaled.jpg?resize=758%2C1220&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/Star_Tribune_2005_10_13_B5.jpg?resize=758%2C454&amp;ssl=1)
 
 The Seeger Sessions Tour moves on from Italy to Germany, stopping in Hamburg for a show at the Color Line Arena.
@@ -64,11 +61,7 @@ It's officially opening night for at a star-studded premiere (including the enti
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2017-10-12c-300x296.jpg?resize=758%2C748)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2017-10-12b-225x300.jpg?resize=758%2C1011)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2017-10-12a-300x300.jpg?resize=758%2C758)
 

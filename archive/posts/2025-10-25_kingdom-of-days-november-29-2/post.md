@@ -1,5 +1,4 @@
 
-
 *Advertisement for 1974; new entry for 1983***New for 2025:**
 
 Bruce and the E Street Band perform their first of two shows at the War Memorial Theater in Trenton.
@@ -7,8 +6,6 @@ Bruce and the E Street Band perform their first of two shows at the War Memorial
 **1974:**<br>
 
 [https://www.youtube.com/embed/nLA-tppfDYk?feature=oembed](https://www.youtube.com/embed/nLA-tppfDYk?feature=oembed)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Times_1974_11_24_112-scaled.jpg?resize=758%2C1671&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Times_1974_11_24_115-scaled.jpg?resize=758%2C515&amp;ssl=1)
 
@@ -25,8 +22,6 @@ Bruce and the boys play a Darkness show at the St. Paul Civic Center Arena.
 [https://www.youtube.com/embed/MBwtDBn1vpE?feature=oembed](https://www.youtube.com/embed/MBwtDBn1vpE?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1978-11-29-207x300.png?resize=758%2C1098)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/11/1978-11-29b.png?resize=758%2C1034&amp;ssl=1)
 
@@ -54,8 +49,6 @@ In a departure from tour (this or pretty much any other) precedent, Bruce has an
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-29a-277x300.png?resize=758%2C821)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-29b-155x300.png?resize=758%2C1467)
 
 Bruce and the E Street Band wrap up the first leg of their Reunion Tour at the Target Center in Minneapolis.
@@ -78,10 +71,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 **2018:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2018-11-29-300x300.png?resize=758%2C758)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/2018-11-29-257x300.jpg?resize=758%2C881)

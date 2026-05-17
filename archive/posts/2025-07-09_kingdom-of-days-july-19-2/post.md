@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 Child plays their fifth of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/1969-07-19-161x300.jpg?resize=758%2C1412)
 
@@ -14,11 +11,7 @@ Bruce and the as-yet-unnamed E Street band play their second of six consecutive 
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1973-07-19.jpg?resize=758%2C2394&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/1973-07-19-182x300.jpg?resize=758%2C1249)
 
@@ -26,11 +19,7 @@ Bruce's gig on the lineup of the Ozark Music Festival in Sedalia, Missouri is ca
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1974-07-19a-99x300.png?resize=758%2C2297)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1974-07-19b-300x185.png?resize=758%2C468)
 
@@ -38,15 +27,11 @@ With the opening show of the Born to Run Tour only a day away, and final product
 
 **1975:** *still**nineteen hours*, (Photo credit: Barbara Pyle)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1975-0719-300x196.jpg?resize=758%2C495)
 
 Bruce and the band bring the Darkness Tour to Ellis Auditorium in Memphis.
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/07/1978-07-19b.jpg?resize=758%2C1400&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/07/1978-07-19a.jpg?resize=758%2C1306&amp;ssl=1)
 

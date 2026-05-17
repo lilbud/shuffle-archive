@@ -1,12 +1,9 @@
 
-
 *New entry for 1974; audio for 2008***New for 2025:**
 
 The Castiles play a show at the VFW Hall in Middletown, New Jersey.
 
 **1966:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1966-1016-300x227.jpg?resize=758%2C573)
 
@@ -14,15 +11,11 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1971-1016-300x189.jpg?resize=758%2C478)
 
 Bruce and the E Street Band play their second of five nights at Oliver's in Boston.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1973-1016-240x300.jpg?resize=758%2C947)
 
@@ -30,15 +23,11 @@ Bruce holds a recording session for his upcoming third album at 914 Sound Studio
 
 **1974:**<br>
 
-Bruce and the E Street Band kick off a four-night/six-show stand at The Roxy Theater in West Hollywood. Thanks to Columbia Records (but unknown to Bruce), the audience is filled with industry insiders and media, resulting in a quieter-than-usual audience and at least one underwhelmed critic. Among the notables in the audience: Jackson Browne, Neil Diamond, Jim Messina, Jack Nicholson, Peter Boyle, Robert De Niro, and Carole King, to whom Bruce dedicates his debut of her song, "." It's speculated that De Niro swiped Bruce's "you talking to " routine performed at this show for his part in 
+Bruce and the E Street Band kick off a four-night/six-show stand at The Roxy Theater in West Hollywood. Thanks to Columbia Records (but unknown to Bruce), the audience is filled with industry insiders and media, resulting in a quieter-than-usual audience and at least one underwhelmed critic. Among the notables in the audience: Jackson Browne, Neil Diamond, Jim Messina, Jack Nicholson, Peter Boyle, Robert De Niro, and Carole King, to whom Bruce dedicates his debut of her song, "." It's speculated that De Niro swiped Bruce's "you talking to " routine performed at this show for his part in
 
 **1975:** [Goin' Back](https://estreetshuffle.com/index.php/2021/02/07/cover-me-goin-back/)*me?**Taxi Driver.*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1975-10-16-300x267.jpg?resize=758%2C675)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1975-10-16.png?resize=758%2C1249&amp;ssl=1)
 
@@ -49,8 +38,6 @@ Bruce and the boys bring the Lawsuit Tour to The College of William and Mary in 
 [https://videopress.com/embed/aIjzhS4K?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aIjzhS4K?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1976-10-16-300x162.png?resize=758%2C409)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/47632577371_ef190e6387_o-210x300.jpg?resize=758%2C1083)
 
@@ -72,11 +59,7 @@ Steve Van Zandt releases "Sun City," a single by Artists United Against Aparthei
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1985-10-16a-300x232.png?resize=758%2C586)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1985-10-16b-300x190.png?resize=758%2C480)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1985-10-16c-300x99.png?resize=758%2C250)
 
@@ -84,11 +67,7 @@ Bruce rehearses with Joe Grushecky and the Houserockers at the Stone Pony for th
 
 **1995:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-16a-227x300.png?resize=758%2C1002)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-16b-245x300.png?resize=758%2C928)
 
@@ -144,11 +123,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Among 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2016-10-16b-1.jpg?resize=758%2C1011&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-16a-300x300.jpg?resize=758%2C758)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-16d-300x300.jpg?resize=758%2C758)
 

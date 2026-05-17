@@ -13,36 +13,36 @@ I wouldn't really understand the song for several years—until I was as far int
 The song starts unambiguously, on the narrator's wedding day, as the newlyweds share their first moment together… and the first note of mystery sounds:
 
 > *I hold you in my arms as the band plays*
- *What are those words whispered baby just as you turn away?*
+*What are those words whispered baby just as you turn away?*
 
 The whispered words are probably innocuous: "I love you," most likely. Or maybe "I'll be right back." But on a day when two people are supposed to be one, when you're sure you know how your partner thinks and feels, it probably registers just a bit when she pulls away and you don't fully understand why.
 
 > *I saw you last night out on the edge of town*
- *I wanna read your mind to know just what I've got in this new thing I've found*
+*I wanna read your mind to know just what I've got in this new thing I've found*
 
 And now the mystery deepens. What was she doing out there late at night? For that matter, what was *he* doing? Does the couple really share as much as they think they do?
 
 (Literary device note: did you catch the "edge of town" reference? It's a sly callback to "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)," a way to imply impending darkness without literally stating it. Also, for all we know, the couple lives at the edge of town, but Bruce knows that the listener invests in the point-of-view character so that he becomes central, and therefore the edge of town is far away. All in all, a very slick trick: Bruce conveys a lot of information in that one line.)
 
 > *So tell me what I see when I look in your eyes*
- *Is that you baby or just a brilliant disguise*
+*Is that you baby or just a brilliant disguise*
 
 And now the first central conceit (there are two) of the song is established: can we ever truly know someone except for the ways they wish to be known?
 
 The journey continues from intrigue to suspicion:
 
 > *I heard somebody call your name from underneath our willow*
- *I saw something tucked in shame underneath your pillow*
+*I saw something tucked in shame underneath your pillow*
 
 The imagery is significant in its intimacy: if his wife is seeing someone else, it's not out on the edge of town now—it's from underneath *their tree*, a place obviously full of meaning and significance for them. And whatever it is she hides isn't locked away, but rather underneath her pillow in the bed that they share, seemingly accessible but unavailable, hidden in the most intimate of places.
 
 > *Well I've tried so hard baby but I just can't see*
- *What a woman like you is doing with me*
+*What a woman like you is doing with me*
 
 …and now we have the final ingredient in this doubt cocktail: insecurity. He's married out of his league and realize that [with every wish, there comes a curse](https://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/).
 
 > *Now look at me baby, struggling to do everything right*
- *And then it all falls apart oh when out go the lights*
+*And then it all falls apart oh when out go the lights*
 
 There's frustration and resentment building, but towards whom? Her? Himself?
 
@@ -59,24 +59,24 @@ But now, we come to central truth number two:
 …and there it is. That's the sleeper line of the song. "God have mercy…" may drive the nail home, but this is the real crux of it: does the narrator suspect his wife correctly, or is he just projecting his own fears and insecurities? Is she distancing himself from him, or is he distancing himself from her? Either way, the result is the same:
 
 > *Now you play the loving woman, I'll play the faithful man*
- *But just don't look too close into the palm of my hand*  
- *Well we stood at the altar, the gypsy swore our future was right*  
- *But come the wee, wee hours… maybe, baby, the gypsy lied*
+*But just don't look too close into the palm of my hand*
+*Well we stood at the altar, the gypsy swore our future was right*
+*But come the wee, wee hours… maybe, baby, the gypsy lied*
 
 (I have to admit that this verse always puzzled me just a bit. I love the gypsy imagery, and it pairs well with the palm-reading warning that precedes it. But that part about standing at the altar… it's odd to think that a gypsy was at their wedding, and I've often wondered what the significance of that detail is. I used to think that it might refer to Steve Van Zandt, who dresses very gypsy-like, and who I assumed was Bruce's best man at his first wedding. But then I learned that Clarence Clemons played that role, so perhaps I read too much into it.)
 
 Now Bruce flips the chorus from a question to a warning:
 
 > *So when you look at me you better look hard and look twice*
- *Is that me baby or just a brilliant disguise*
+*Is that me baby or just a brilliant disguise*
 
 Am I the person you think I am? Do I let you see my true self? Do I shield you from my fears and doubts? Or am I protecting myself?
 
 …and then we come to that devastating, chilling last couplet, delivered almost as an afterthought as the song fades out:
 
 > *Tonight our bed is cold*
- *I'm lost in the darkness of our love*  
- *God have mercy on the man who doubts what he's sure of.*
+*I'm lost in the darkness of our love*
+*God have mercy on the man who doubts what he's sure of.*
 
 I may never know what the narrator is really thinking there: Is he convinced that his wife is an open book but can't help but harbor doubts anyway? Or is he convinced that his wife is a stranger but grasps for signs and signals otherwise? Or is it self-reflection: is it his own love that he's unsure of? Does he feel known and recognized by his partner?
 
@@ -108,8 +108,8 @@ If there's a live performance, I'd recommend, it'd be this one from 1990—the f
 
 "Brilliant Disguise" is ultimately a very personal song, both for the singer and the listener. Your take may differ from mine, as it very likely should. And if so, I'd love to hear it.
 
-**Brilliant Disguise**  
-**Recorded:** Early 1987  
+**Brilliant Disguise**
+**Recorded:** Early 1987
 **Released:** [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)(1987), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
 **First Performed:** October 31, 1987 (Sea Bright, NJ)<br>
 **Last** **Performed:** November 22, 2024 (Vancouver, BC)

@@ -2,8 +2,6 @@ Bruce nailed it when he explained Sam and Dave's appeal on Elvis Costello's late
 
 [Watch Video Highlight](https://videopress.com/embed/2K7gfajm)
 
-
-
 Nowhere is that magical, heaven-and-earth, Sam and Dave dichotomy more on display than in their gut-wrenching, heart-swelling 1966 hit single "When Something Is Wrong With My Baby," which peaked at #42 on the Billboard Hot 100 and #2 on the R&B chart in 1967.
 
 [Watch on Youtube: When Something Is Wrong With My Baby](https://www.youtube.com/watch?v=N3maCEAKZ0s)

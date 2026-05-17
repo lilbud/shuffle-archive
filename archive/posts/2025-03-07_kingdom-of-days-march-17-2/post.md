@@ -1,24 +1,17 @@
 
-
 *New entry for 1975 and 2024***New for 2025:**
 
 The Bruce Springsteen Band opens for Mitch Ryder (of "" fame) in Richmond. Also on the bill: the Mike Quatro Jamband. Mike's sister Suzi will go on to become a well-known rocker (and minor TV star), Bruce's signature song, "Born to Run."
 
 **1972:** [Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)[someday covering](http://estreetshuffle.com/index.php/2019/03/16/cover-me-suzi-quatro-born-to-run/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/47944265348_83c10b3f14_o-238x300.jpg?resize=758%2C956)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1972-0317-199x300.jpg?resize=758%2C1143)
 
 Bruce and the as-yet-unnamed E Street Band play a gig at Oliver's in Boston, their sixth of seven straight nights.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1-190x300.jpg?resize=758%2C1196)
 
@@ -33,8 +26,6 @@ Bruce attends Warren Zevon's show at Trax in New York City–and may possibly ha
 : The scheduled European opener of the River Tour is postponed to give Bruce time to recover from the first two legs of the tour.
 
 **1981**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1006)
 
@@ -53,8 +44,6 @@ On a night off from his solo tour, Bruce joins Joe Ely on stage at The Mean Fidd
 [https://www.youtube.com/embed/m6cZU3iSdzY?feature=oembed](https://www.youtube.com/embed/m6cZU3iSdzY?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1996-0317-300x201.jpg?resize=758%2C509)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Austin_American_Statesman_Thu__Mar_21__1996_.jpg?w=758&amp;ssl=1)
 
@@ -81,8 +70,6 @@ Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park's Co
 The night before he kicks off the Wrecking Ball Tour, Bruce visits the Red Light Cafe in Atlanta to take in local guitarist Glenn Phillips.
 
 **2012:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2012-03-17-1-300x139.jpg?resize=758%2C351)
 

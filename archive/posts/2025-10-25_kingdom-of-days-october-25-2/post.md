@@ -28,8 +28,6 @@
 
 [Watch Video Highlight](https://videopress.com/embed/tfj2O84c)
 
-
-
 [Watch on Youtube: Bruce Springsteen - DRIVE ALL NIGHT 1980 (audio)](https://www.youtube.com/watch?v=rxYcH2Y2Wo8)
 
 [Watch on Youtube: Bruce Springsteen Wreck On The Highway Portland 25/10/1980](https://www.youtube.com/watch?v=M-W5MEL6EHM)

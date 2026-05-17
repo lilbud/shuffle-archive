@@ -32,7 +32,7 @@ Bruce played it once more in a return appearance at Fenway Park in 2012 (no Pete
 
 …but it's been a full decade now since we last heard it. Never fear, though: with tour rumblings once again picking up steam, it's a good bet we'll be hearing Bruce and the band play "Dirty Water" in Boston again sometime soon.
 
-**Dirty Water  
+**Dirty Water
 First performed:** April 8, 1984 (Asbury Park, NJ)
 **Last performed:** August 14, 2012 (Boston, MA)<br>
 

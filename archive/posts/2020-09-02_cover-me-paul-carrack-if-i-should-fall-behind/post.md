@@ -1,12 +1,11 @@
 
-
 Even if Paul Carrack isn't a familiar name to you, he's almost certainly a familiar talent–whether from his 1974 hit "How Long" with his band Ace, his lead vocal in Squeeze's "Tempted" in 1981, or his lead vocal on "Silent Running (On Dangerous Ground)" with Mike + The Mechanics in 1985.
 
 Carrack has had a remarkable career recording and performing with seminal artists and bands from the seventies and eighties–add Roxy Music, John Hiatt, The Pretenders, and Elton John to the list above, and you'd still only cover a fraction of his career.
 
 Carrack has an amazing voice, but somehow his solo work has attracted far less notice than the hits he made famous for his bands.
 
-His solo recordings are well worth seeking out, though. Case in point: here's Carrack's wonderful cover of Bruce's "" from his 2012 album, 
+His solo recordings are well worth seeking out, though. Case in point: here's Carrack's wonderful cover of Bruce's "" from his 2012 album,
 
 [If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)*Good Feeling.*
 

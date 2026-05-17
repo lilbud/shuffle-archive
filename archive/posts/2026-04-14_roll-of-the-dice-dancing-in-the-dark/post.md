@@ -1,10 +1,6 @@
 > "Jon [Landau] had been bothering me to write a single, which is something he rarely does. But he did that day. And he wanted something *direct.* That seemed to be what he was hitting on me for at the time. I was angry. I had written a lot of songs and was kind of fed up with the whole thing. We'd been making the record for a long time and I was bored with the whole situation.
 >
->
->
 > That particular night I came home and sat on the edge of my bed and the thing I remember thinking first was that we had a record, but it wasn't necessarily finished; I could change the whole thing right now if I wanted to.
->
->
 >
 > That's all I remember thinking: if I wanted to I could do something right now that would change the whole thing…" *–Bruce Springsteen to Bill Flanagan, April 1987*<br>
 
@@ -114,8 +110,6 @@ To add insult to injury, not only did the video escape into the bootleg wild, bu
 
 [Watch Video Highlight](https://videopress.com/embed/X0n4ro1l?hd=0&cover=1)
 
-
-
 Bruce fired Stein and Pearl and hired up-and-coming director Brian DePalma instead, fresh off a run of popular and critically acclaimed films. Together, they came up with a new concept, a wish-fulfillment fantasy that every Springsteen fan could relate to.
 
 In a new video that wouldn't be released until after "Dancing in the Dark" had already crested one spot shy of the top of the Hot 100, a young girl played by an unknown actress gazes adoringly at her idol while he performs (lipsyncs, actually) on stage, only for them to make eye contact toward the end of the song. In a moment that thrilled viewers worldwide and set a precedent forever after, Bruce invites the girl on stage, and they dance–awkwardly but charmingly.
@@ -137,8 +131,6 @@ Fans had good reason to practice those moves: from the very beginning, Bruce was
 In the meantime, while Bruce was filling arenas and stadiums, "Dancing in the Dark" was picking up awards. First, it won for Best Single at the American Music Awards in January 1985. Then he won a Grammy (his first ever) for Best Rock Vocal Performance, and the Best Stage Performance in a Video award at the VMAs.
 
 [Watch Video Highlight](https://videopress.com/embed/hYRH5uew?hd=0&cover=1)
-
-
 
 *Rolling Stone* readers voted "Dancing in the Dark" Single of the Year, and the magazine enshrined it as one of the 500 Songs That Shaped Rock and Roll. And while it didn't make it all the way to the top of the chart in America, it did in Belgium and The Netherlands, and it was the Number One song of the year in Australia.
 

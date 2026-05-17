@@ -1,4 +1,4 @@
-This is the inevitable companion volume I promised in *Cover Me Volume Three: With a Little Help From My Friends.* 
+This is the inevitable companion volume I promised in *Cover Me Volume Three: With a Little Help From My Friends.*
 
 It collects the remainder of the *Meeting Across the River* posts featuring Bruce Springsteen teaming up with other artists on their own songs, including four brand-new entries never published on the blog: "Dustland," "Did You Say Such a Thing," "Barbara Ann," and "Rose Tattoo."
 

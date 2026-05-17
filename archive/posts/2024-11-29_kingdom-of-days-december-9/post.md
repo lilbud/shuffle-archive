@@ -1,12 +1,9 @@
 
-
 *Audio for 1995***New for 2024:**
 
 Bruce and the as-yet-unnamed E Street Band play their fifth night of a six-night, two-shows-nightly stand at Kenny's Castaways in New York City.
 
 **1972:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1972-12-05-300x226.jpg?resize=758%2C571)
 
@@ -14,15 +11,9 @@ Bruce and the E Street Band play the Dallas Convention Center Arena on the Darkn
 
 **1978:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/Fort_Worth_Star_Telegram_Mon__Dec_11__1978_-scaled.jpg?resize=758%2C317&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1978-12-09.png?resize=758%2C2369&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/Dallas_Morning_News_1978-12-11_19A-300x283.png?resize=758%2C715)
 
@@ -60,8 +51,6 @@ From Stockholm to Paris: Bruce appears on French TV show , granting an interview
 
 **1998:** *Nulle Part Ailleurs*[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)*Tracks*
 
-
-
 [https://www.dailymotion.com/embed/video/xjumi](https://www.dailymotion.com/embed/video/xjumi)
 
 Bruce and the E Street Band bring the Rising Tour to the brand-new Carolina Center in Columbia, South Carolina, where Bruce tour premieres "," "," and "This Hard Land."
@@ -71,8 +60,6 @@ Bruce and the E Street Band bring the Rising Tour to the brand-new Carolina Cent
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB_NE2bJOF-H15O2OPTi0hc](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB_NE2bJOF-H15O2OPTi0hc)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-09a.png?resize=758%2C164&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-09b.png?resize=758%2C1346&amp;ssl=1)
 
@@ -110,10 +97,8 @@ Bruce and the E Street Band rehearse for their upcoming appearance at Bruce's ho
 
 **2020:** *Saturday Night Live*
 
-Bruce appears on NPR's to promote his new album, 
+Bruce appears on NPR's to promote his new album,
 
 **2022:** *World Cafe**Only the Strong Survive.*
-
-
 
 [https://www.npr.org/player/embed/1141551196/1141576945](https://www.npr.org/player/embed/1141551196/1141576945)

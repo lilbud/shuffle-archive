@@ -1,5 +1,4 @@
 
-
 "Da Doo Ron Ron" was a top ten hit not once, but twice–first for The Crystals, who took it to #3 in 1963…
 
 [https://www.youtube.com/embed/v-qqi7-Q19k?feature=oembed](https://www.youtube.com/embed/v-qqi7-Q19k?feature=oembed)

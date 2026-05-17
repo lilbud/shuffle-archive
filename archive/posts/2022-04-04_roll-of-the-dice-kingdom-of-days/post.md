@@ -1,10 +1,6 @@
 > "At certain moments, time is obliterated in the presence of somebody you love; there seems to be a transcendence of time in love.
 >
->
->
 > The normal markers of the day, the month, the year, as you get older those very fearsome markers… in the presence of love, they lose some of their power."
->
->
 >
 > — Bruce Springsteen to Mark Hagen, *The Guardian*, January 18, 2009
 
@@ -71,7 +67,6 @@ With the right person beside us, a kingdom can become a garden, with each day be
 In the end, we have nothing but time. Spend it wisely, with the right person.
 
 ---
-
 
 "Kingdom of Days" was a nightly staple during the early months of the Working on a Dream Tour, one of the rare album tracks to survive past the opening few weeks.
 

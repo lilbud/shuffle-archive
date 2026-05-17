@@ -1,10 +1,7 @@
 
-
 Child plays a gig at Pandemonium in Wanamassa, New Jersey.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1969-0529.jpg?resize=316%2C600&amp;ssl=1)
 
@@ -16,8 +13,6 @@ Bruce and the E Street Band play two shows at The Main Point in Bryn Mawr, Penns
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1974-0529.jpg?resize=700%2C411&amp;ssl=1)
 
 The still-young Darkness Tour reaches Boston for the first of three nights. This show features the first segue of "Racing in the Street" into "Thunder Road," which will remain a staple of the set for the remainder of the tour. The J. Geils Band is in attendance tonight, and Peter Wolf hangs out with Bruce and the band after the show.
@@ -26,11 +21,7 @@ The still-young Darkness Tour reaches Boston for the first of three nights. This
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-29.jpg?resize=506%2C962&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-05-29b.jpg?resize=758%2C480&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1978-05-29c.jpg?resize=336%2C962&amp;ssl=1)
 
@@ -48,8 +39,6 @@ At the first of six River shows at London's Wembley Arena, Bruce performs "Trapp
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1981-05-29.jpg?resize=758%2C512&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1981-0529.jpg?resize=758%2C837&amp;ssl=1)
 
 Bruce and Southside Johnny join Beaver Brown on stage at Big Man's West in Red Bank.
@@ -62,15 +51,11 @@ The town of Freehold cancels the permit for a planned Jersey Artists for Mankind
 
 **1986:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1986-05-29.jpg?resize=758%2C319&amp;ssl=1)
 
 reports that Bruce and Patti will marry on June 9th, according to a mysterious source "close to the bride-to-be." After Bruce's publicist coyly refuses to confirm or deny ("I can't confirm that date…"), the worldwide press runs rampant with the story and anticipation builds for the big day. It's highly likely that Bruce and Patti planted the story (or authorized the leak) themselves in order to throw the press off the scent, as their actual wedding ceremony will take place a day earlier, on June 8th–a lesson learned from Bruce's experience the last time around.
 
 **1991:** *Newsday*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1991-05-29.jpg?resize=558%2C960&amp;ssl=1)
 
@@ -97,8 +82,6 @@ When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays "
 **2000:** [It's Har](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29a.jpg?resize=758%2C575&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29b.jpg?resize=672%2C956&amp;ssl=1)
 

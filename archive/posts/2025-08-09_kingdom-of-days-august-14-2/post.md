@@ -1,16 +1,11 @@
 
-
 *Audio for 1985; new entry for 2004***New for 2025:**
 
 The Castiles (along with Steve Van Zandt's band, The Shadows) play the Surf ‘n' See Club in Sea Bright, New Jersey.
 
 **1966:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1966-0814-300x196.jpg?resize=758%2C496)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1966-08-14-199x300.jpg?resize=758%2C1143)
 
@@ -28,15 +23,11 @@ Bruce plays his third of six two-shows-a-night solo gigs at Max's Kansas City th
 
 **1972:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11-1-300x191.jpg?resize=758%2C482)
 
 Bruce and the E Street Band play Uncle Al's Erlton Theater Lounge in Cherry Hill, New Jersey. Why was Bruce's name so hard to spell correctly during these years?
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1973-0814-231x300.jpg?resize=731%2C949)
 
@@ -44,19 +35,11 @@ Dave Sancious and Boom Carter play their last two shows as members of the E Stre
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1974-08-14a.png?resize=758%2C932&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1974-08-14b-261x300.png?resize=758%2C871)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1974-08-14c.png?resize=758%2C752&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1974-08-14-264x300.jpg?resize=758%2C861)
 
@@ -76,7 +59,7 @@ The Darkness Tour descends on the Hampton Roads Coliseum in Hampton, Virginia, w
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1978-08-14-300x126.png?resize=758%2C318)
 
-Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park. 
+Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park.
 
 **1983:** (Photo credit: Dari)
 
@@ -108,19 +91,11 @@ You'd be forgiven for thinking nothing else happened in the news today–here's 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-14a-257x300.png?resize=758%2C885)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-14b-135x300.png?resize=758%2C1685)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1985-08-14c-181x300.png?resize=758%2C1257)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/The_Philadelphia_Inquirer_1985_08_16_Page_49-1.jpg?resize=758%2C202&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/The_Philadelphia_Inquirer_1985_08_16_Page_56.jpg?resize=758%2C707&amp;ssl=1)
 
@@ -140,11 +115,7 @@ Bruce joins Ronnie Mack and the Barndance Band on stage at Jack's Sugar Shack in
 
 **1995:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1995-08-14.jpg?resize=758%2C997&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1995-0814-300x211.jpg?resize=758%2C533)
 
@@ -164,7 +135,7 @@ Bruce attends Little Steven's International Underground Garage Festival in New Y
 
 [https://www.youtube.com/embed/tTu4jTzl_pI?feature=oembed](https://www.youtube.com/embed/tTu4jTzl_pI?feature=oembed)
 
-Bruce and the E Street Band return to Boston's Fenway Park to kick off the final American leg of the Wrecking Ball Tour. While Bruce tour premieres "" mid-set and "" in the encores, the set is otherwise fairly standard. The following night would more than make up for it. For more highlights from this show, see my 
+Bruce and the E Street Band return to Boston's Fenway Park to kick off the final American leg of the Wrecking Ball Tour. While Bruce tour premieres "" mid-set and "" in the encores, the set is otherwise fairly standard. The following night would more than make up for it. For more highlights from this show, see my
 
 **2012:** [Boom Boom](http://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)[report.](http://estreetshuffle.com/index.php/2018/08/14/where-the-band-was-boston-august-14-2012/)*Where the Band Was*
 

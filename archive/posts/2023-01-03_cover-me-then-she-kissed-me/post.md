@@ -39,5 +39,3 @@ It's clearly a song for which Bruce has a great deal of affection, though, so al
 **Then (S)he Kissed Me**<br>
 **First performed:** July 13, 1974 (New York City, NY)<br>
 **Last performed:** September 13, 2009 (Sunrise, FL)<br>
-
-

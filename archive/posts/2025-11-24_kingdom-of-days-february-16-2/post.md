@@ -1,5 +1,4 @@
 
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Philadelphia_Inquirer_Sun__Feb_16__1975_.jpg?resize=758%2C948&amp;ssl=1)
 
 The Beatles make their second appearance on the Ed Sullivan show, and Bruce is watching.
@@ -12,11 +11,7 @@ Bruce and the band play Monmouth College in West Long Branch, New Jersey. Ticket
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1973-02-16.png?resize=758%2C871&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1973-02-16-300x288.jpg?resize=758%2C729)
 
@@ -24,15 +19,11 @@ does its best to wake the world beyond Philly and Texas to Springsteen's power a
 
 **1975:** *The Philadelphia Inquirer*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Philadelphia_Inquirer_Sun__Feb_16__1975_-1-scaled.jpg?resize=758%2C2369&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Philadelphia_Inquirer_Sun__Feb_16__1975_-2-scaled.jpg?resize=758%2C170&amp;ssl=1)
 
 Bruce and the E Street Band play a gig at Veterans Memorial Auditorium in Columbus.
 
 **1977:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1977-0216-300x233.jpg?resize=758%2C588)
 
@@ -43,8 +34,6 @@ Bruce and the E Street Band play a gig at Veterans Memorial Auditorium in Columb
 [https://videopress.com/embed/dNaN6mOU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dNaN6mOU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-16.png?resize=758%2C1184&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1981-02-16.jpg?resize=535%2C2170&amp;ssl=1)
 
@@ -59,8 +48,6 @@ Bruce scores his first Number One album in the U.K. with .
 Bruce joins Bruce Willis, Stephen Stills, and John McEnroe(!) on "" at the Tent on the Beach in Malibu.
 
 **1991:**[C.C. Rider](https://estreetshuffle.com/index.php/2021/08/29/cover-me-c-c-rider/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1991-02-16.png?resize=758%2C868&amp;ssl=1)
 

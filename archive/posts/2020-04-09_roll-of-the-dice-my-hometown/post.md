@@ -129,7 +129,6 @@ Unlike his father, though, he's not resigned–he's angry, and he's not going to
 
 ---
 
-
 "My Hometown" was the seventh and final Top 10 single generated from *Born in the U.S.A.*, and while it only peaked at #6 on the Hot 100 chart, it reached the very top of Billboard's Adult Contemporary chart, the one and only time Bruce ever accomplished that feat. (It's quite possible, however, that the chart success of "My Hometown" was bolstered by its improbable B-side, Bruce's 1975 live cover of "[Santa Claus Is Coming to Town.](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)")
 
 The studio version of "My Hometown" never received an official music video, but Bruce did release a live performance to bolster the song's airplay and sales.
@@ -177,7 +176,7 @@ Today Bruce lives ten minutes from his hometown, which tells us all we need to k
 [Watch Video Highlight](https://videopress.com/embed/Hl3yZQHU)
 
 **My Hometown**<br>
-**Recorded:** June 29, 1983  
+**Recorded:** June 29, 1983
 **Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995)<br>
 **First performed:** June 8, 1984 (Asbury Park, NJ)<br>
 **Last performed:** July 11, 2023 (Copenhagen, Denmark)<br>

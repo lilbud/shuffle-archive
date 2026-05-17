@@ -1,20 +1,15 @@
 
-
 *New entry for 1980 and 1982***New for 2025:**
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 **1968:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1968-04-26.jpg?resize=744%2C1038&amp;ssl=1)
 
 The new issue of features a profile of Bruce, their first of many to come. (Thanks to Andy Swanson for the scan!)
 
 **1973:** *Rolling Stone*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1973-04-26-182x300.jpg?resize=758%2C1250)
 
@@ -36,7 +31,7 @@ Bruce plays his first-ever show in Belgium (and the first ever "Stolen Car" in E
 
 [https://videopress.com/embed/UyXUhTpJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UyXUhTpJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce in the studio at the Power Station in New York, recording for what will become 
+Bruce in the studio at the Power Station in New York, recording for what will become
 
 **1982:** *Born in the U.S.A.*
 
@@ -49,8 +44,6 @@ Bruce in the studio at the Power Station in New York, recording for what will be
 Douglas Springsteen, Bruce's father, passes away at the age of 73.
 
 **1998:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1998-04-26-183x300.jpg?resize=758%2C1250)
 
@@ -76,11 +69,7 @@ Bruce releases his thirteenth studio album. (The album was released in Europe a 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2005-04-26a.jpg?resize=758%2C634&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-26b-283x300.jpg?resize=758%2C804)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2005-04-26c.jpg?resize=758%2C1109&amp;ssl=1)
 
@@ -121,8 +110,6 @@ Los Angeles gets a pair of Wrecking Ball shows at the Sports Arena. Night One se
 [https://www.youtube.com/embed/SGPqKkOu8-U?feature=oembed](https://www.youtube.com/embed/SGPqKkOu8-U?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2012-04-26a.jpg?resize=758%2C1602&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2012-04-26b-221x300.jpg?resize=758%2C1029)
 

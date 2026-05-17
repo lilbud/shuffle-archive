@@ -53,7 +53,6 @@ I would submit that there are at least two reasons:
 - If you want to convey a carefree character, not bothering to finish the chorus is a pretty great way to do it. We expect to hear a final line that serves as a dare to the lion, but our hero just doesn't care enough to bother–that's how confident he is.
 - It's *so* much fun to sing. I'm not even sure it's possible to do it without breaking into a big goofy grin.
 
-
 In fact, if you listened to the song earlier in the article, I bet you're going to find yourself unintentionally singing "dum dum dee-dum dum dee-dee dum dum" out loud at least once in the next hour or so. (Happens to me every time.)
 
 > *At night I hear you out prowling around*

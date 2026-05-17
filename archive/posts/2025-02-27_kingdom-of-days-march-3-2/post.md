@@ -1,16 +1,11 @@
 
-
 *Review for 1988 and 1996***New for 2025:**
 
 Bruce and the band open for Blood, Sweat and Tears in Santa Monica.
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1973-03-03.jpg?resize=758%2C1736&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1973-0303-300x263.jpg?resize=758%2C664)
 
@@ -34,11 +29,7 @@ Bruce shoots the video for "" with director John Sayles in Hollywood.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-03-03a-297x300.jpg?resize=758%2C763)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-03c-208x300.jpg?resize=758%2C1094)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Charlotte_Observer_1988_03_05_33.jpg?resize=758%2C758&amp;ssl=1)
 
@@ -84,10 +75,6 @@ At tonight's performance of , Bruce discovers the one attendee who can electrify
 
 **2018:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/02/39735813325_623bc86dfb_o-300x296.jpg?resize=758%2C747)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2018-03-03-169x300.jpg?resize=758%2C1346)

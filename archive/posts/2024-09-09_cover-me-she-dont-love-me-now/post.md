@@ -10,7 +10,7 @@ But despite its subtitle, I'd argue that it's not so much a covers album as a vo
 
 If we listen to "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)," "[Jersey Girl,](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" or anything from the [Seeger Sessions era](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/), by contrast, we glean a true appreciation for Bruce's ability to reinvigorate a song that was already great to begin with.
 
-Which is why it's so refreshing to hear Bruce's rendition of Jesse Malin's "She Don't Love Me Now,"  
+Which is why it's so refreshing to hear Bruce's rendition of Jesse Malin's "She Don't Love Me Now,"
 a return to form for Bruce and a fitting tribute to [an artist we've featured here many times before](https://estreetshuffle.com/?s=jesse+malin).
 
 [Watch on Youtube: Bruce Springsteen/Jesse Malin - She Don't Love Me Now (Official Visualizer)](https://www.youtube.com/watch?v=gLK-Z9QilVk)

@@ -1,5 +1,4 @@
 
-
 John Legend has covered Bruce's greatest hit many times in concert, including at Bruce's MusiCares Person of the Year Tribute concert.
 
 But my favorite performance was during "Springsteen Week" in 2012 on the . Legend made an appearance to play "" with The Roots, and their team-up was atmospheric, jazzy and magical.

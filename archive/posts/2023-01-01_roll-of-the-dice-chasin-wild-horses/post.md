@@ -93,7 +93,6 @@ He'll keep trying to distract himself, but he'll never fully succeed. He's roote
 
 ---
 
-
 To date, Bruce has only performed the songs on *Western Stars* a single time, at a secret (at the time) concert that would be eventually released as a feature-length motion picture and soundtrack album.
 
 The film version of *Western Stars* received much-deserved praise, but I'd argue that not every song translates well from album to stage. "Chasin' Wild Horses" is a case in point–it loses some of its subtlety in translation. The orchestra in Bruce's barn is too powerful to deliver the full range of emotional impact that the album version achieves. The emotional twister of a coda is a bit too strong (the horns drown out the more gentle piano), and the echo of the canyon is completely absent.
@@ -113,5 +112,3 @@ Bruce has been coy when asked whether we'll ever hear any of the *Western Stars*
 **Last performed:** April 2019 (exact date unknown) (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-

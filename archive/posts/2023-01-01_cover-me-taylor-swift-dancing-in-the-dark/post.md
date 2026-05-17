@@ -1,5 +1,4 @@
 
-
 Now here's an unlikely cover: when her Speak Now World Tour made a stop in Newark on July 20, 2011, superstar Taylor Swift paid homage to her New Jersey songwriting influencers:
 
 [https://www.youtube.com/embed/-qinVezgFAI?feature=oembed](https://www.youtube.com/embed/-qinVezgFAI?feature=oembed)

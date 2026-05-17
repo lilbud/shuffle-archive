@@ -6,8 +6,6 @@ Here's the first time they played it together, from night one of Bruce's post-Hi
 
 Joe released "I Still Look Good (For Sixty)" on his 2013 album, *East of Eden.* Even on an eclectic album that crosses styles and genres, this song stands out as a lark.
 
-
-
 [https://www.youtube.com/embed/hMLxxgUCpeo?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/hMLxxgUCpeo?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 In a contemporaneous interview for *Guitar World*, Joe called it "one of those songs that puts a smile on your face. I get a laugh every time I sing it." It's true–we can even see it in Joe's acoustic performances.

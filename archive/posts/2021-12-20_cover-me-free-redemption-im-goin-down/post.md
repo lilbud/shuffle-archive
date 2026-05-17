@@ -1,5 +1,4 @@
 
-
 No doubt about it: my favorite part of writing this blog is when readers send me their own covers of Bruce's original songs.
 
 I don't always write a blog post about them, because the list of covers on my to-blog list is so long already (and always growing), but I do enjoy watching them.

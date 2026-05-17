@@ -19,5 +19,3 @@ The song's popularity earned McDaniel an array of television performances, inclu
 [Watch on Youtube: Mel McDaniel Stand on it Live Nashville Now](https://www.youtube.com/watch?v=-36wxEmJYMs)
 
 "Stand On It" remained a fan favorite for the rest of McDaniel's career, which unfortunately ended abruptly, tragically, and prematurely in 1996 when he fell into the pit while performing and nearly died. McDaniel played "Stand On It" as a reliable encore right up until the end.
-
-

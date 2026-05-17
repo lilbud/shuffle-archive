@@ -90,7 +90,6 @@ Many critics have viewed those closing lines as cynical at worst, resigned at be
 
 ---
 
-
 Once completed, "Tunnel of Love" became the last song added to the album, bumping "[Lucky Man](https://estreetshuffle.com/index.php/2020/02/25/roll-of-the-dice-lucky-man/)" (a very symbolic trade) and becoming the title track. Bruce released it as the album's second single, which topped the Billboard Mainstream Rock chart and reached #9 on the Hot 100. The Meiert Avis-directed video, which ranks among Bruce's best, won the Video of the Year award at that year's MTV VMAs.
 
 "Tunnel of Love" was still riding high when the Tunnel of Love Express Tour finally kicked off in late February 1988, and fans attending the show found that it not only served as the opening song each night, it also informed the show's entire conceit, with each band member taking a ticket as they took the stage. And even if Bruce and Patti's relationship remained a secret during those early months, it was evident to anyone paying attention that there was something between them.
@@ -112,8 +111,6 @@ But don't count out future appearances. "Tunnel of Love" is too significant a tr
 **Bonus:** Here's an alternate, rarely seen cut of Meiert Avis' award-winning video with less carnival imagery and more Bruce.
 
 [Watch Video Highlight](https://videopress.com/embed/laIqiHGm?hd=0&cover=1)
-
-
 
 **Tunnel of Love**<br>
 **Recorded** June-July, 1987<br>

@@ -1,5 +1,4 @@
 
-
 "Heat Wave" was a massive hit for Martha and the Vandellas. Topping the Billboard R&B Chart for four straight weeks in 1963 (and peaking at #4 on the Hot 100), "Heat Wave" became one of Martha and the Vandellas' greatest hits and an enduring Motown classic.
 
 [https://www.youtube.com/embed/XE2fnYpwrng?feature=oembed](https://www.youtube.com/embed/XE2fnYpwrng?feature=oembed)

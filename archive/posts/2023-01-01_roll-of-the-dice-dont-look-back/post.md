@@ -24,8 +24,6 @@ Here's Bruce's first-ever performance of "Don't Look Back," from Toledo on the e
 
 [Watch Video Highlight](https://videopress.com/embed/ofg8Vn4K?hd=1&cover=1)
 
-
-
 Although Bruce is performing it in public, it's clearly still a prototype. Some lyrics are bluffed, and we need to work harder to understand the theme. (Angel doesn't even make her first appearance until midway through the second verse.)
 
 Compare that with Bruce's last pre-Reunion era performance of "Don't Look Back," from the closing night of the Lawsuit Tour. The first half of the song is virtually in final form, but the bridge and final verse have significant differences.

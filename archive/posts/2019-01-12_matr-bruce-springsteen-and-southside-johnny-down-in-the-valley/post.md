@@ -1,5 +1,4 @@
 
-
 "Down in the Valley" was a romantic country soul hit for Solomon Burke in 1962, even though it was originally released as a B-side (to "I'm Hanging My Heart Up for You"). "Valley" outperformed its A-side, peaking at #71 on the Billboard Pop chart.
 
 [https://www.youtube.com/embed/XT7iHGtPZcw?feature=oembed](https://www.youtube.com/embed/XT7iHGtPZcw?feature=oembed)

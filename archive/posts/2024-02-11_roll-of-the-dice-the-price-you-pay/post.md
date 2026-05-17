@@ -8,8 +8,6 @@ But let's start in 1978, with a fateful motel poolside meeting. Let's let Bruce 
 
 [Watch Video](https://cdn.embedly.com/widgets/media.html?src=https%3A%2F%2Fw.soundcloud.com%2Fplayer%2F%3Fvisual%3Dtrue%26url%3Dhttp%253A%252F%252Fapi.soundcloud.com%252Ftracks%252F268169474%26show_artwork%3Dtrue%26secret_token%3Ds-cJlpT&url=https%3A%2F%2Fsoundcloud.com%2Faudible%2Fborn-on-the-fourth-of-july%2Fs-cJlpT&image=http%3A%2F%2Fi1.sndcdn.com%2Fartworks-000167511522-b8th0v-t500x500.jpg&key=205dfc3e29a54717b61d110ab0ac5a3d&type=text%2Fhtml&schema=soundcloud)
 
-
-
 Bruce's meeting and friendship with Ron Kovic sparked Bruce's interest in veteran's affairs, leading in short order to a benefit concert and songs that confronted the Vietnam veteran's experience head-on ("[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)," "[Vietnam](https://estreetshuffle.com/index.php/2019/08/31/roll-of-the-dice-vietnam/)," and "[Born in the U.S.A](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/).").
 
 But Bruce had been grappling with the Vietnam war since he was a teenager. As far back as his Steel Mill Days, we have recordings of original Springsteen compositions like "[The War is Over](https://estreetshuffle.com/index.php/2019/03/23/roll-of-the-dice-the-war-is-over/)" that keenly acknowledge and rage against the human cost of war.
@@ -178,7 +176,7 @@ Now that the reprised River Tour is behind us, it's unclear whether we'll ever h
 But "The Price You Pay" remains one of Bruce's most powerful, poignant, and reflective songs, with a semi-mythic status that's only (and ironically) elevated by Bruce's inscrutable attitude toward it.
 
 **The Price You Pay**<br>
-**Recorded:** June 1979  
+**Recorded:** June 1979
 **Released:** *The River* (1980), *The Ties That Bind* (2015)<br>
 **First performed:** October 31, 1980 (Los Angeles, CA)<br>
 **Last performed:** July 28, 2016 (Oslo, Norway)<br>

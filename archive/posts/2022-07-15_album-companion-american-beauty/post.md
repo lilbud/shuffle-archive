@@ -15,7 +15,6 @@ All four tracks on the EP are outtakes from the *High Hopes* album Bruce release
 - "[Hurry Up Sundown](https://estreetshuffle.com/index.php/2020/04/26/roll-of-the-dice-hurry-up-sundown/)," which out power-pops everything on *Magic* and *Working on a Dream*
 - "[Hey Blue Eyes](https://estreetshuffle.com/index.php/2019/06/30/roll-of-the-dice-hey-blue-eyes/)," perhaps Bruce's most ferocious social commentary song on record
 
-
 The four songs don't form any kind of cohesive whole, but they're not meant to–they're just four strong outtakes that didn't make their respective albums because Bruce had too much great material to work with.
 
 Since both the press run and press coverage were limited, all four songs went under the radar of many fans, but each is worthy of a listen and consideration. If you haven't taken a listen to *American Beauty* lately, maybe take a few minutes to do so now–it's a quick and rewarding listen, and if I did my job well, the companion Roll of the Dice pieces will help highlight some of the songs' more interesting facets.

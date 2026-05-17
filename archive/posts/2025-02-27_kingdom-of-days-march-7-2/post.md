@@ -1,12 +1,9 @@
 
-
 *Review for 1975; audio for 2003; video for 2023***New for 2025:**
 
 Bruce plays his first-ever show in Texas, at Houston's Liberty Hall–the first of seven shows at this venue in four days. Photographer Nicki Germaine is on hand to photograph the band, but it will be almost a half-century before fans can enjoy her wonderful photos. Order her book, .
 
 **1974:** *Springsteen: Liberty Hall*[here](https://springsteenlibertyhall.com/)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1974-0307-187x300.jpg?resize=758%2C1216)
 
@@ -17,8 +14,6 @@ Bruce and the E Street Band play a show at the Painters Mill Music Fair in Owing
 [https://videopress.com/embed/2aVBRLsq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2aVBRLsq?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1975-03-07-e1583021787396-69x300.jpg?resize=758%2C3296)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Evening_Sun_1975_03_19_25.jpg?resize=758%2C390&amp;ssl=1)
 
@@ -48,15 +43,11 @@ Bruce and the band play their first show on the Atlantic City Boardwalk, opening
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2003-03-07a-300x283.jpg?resize=758%2C715)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2003-03-07b-300x273.jpg?resize=758%2C690)
 
 At a listening party preview for at B.B. King's Blues Club in New York City, Bruce previews five songs from the upcoming album and chats with fans.
 
 **2006:** *We Shall Overcome: The Seeger Sessions*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/2006-03-07.jpg?resize=500%2C375&amp;ssl=1)
 
@@ -69,8 +60,6 @@ At a listening party preview for at B.B. King's Blues Club in New York City, Bru
 [https://www.youtube.com/embed/5SbwIHloP0Q?feature=oembed](https://www.youtube.com/embed/5SbwIHloP0Q?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Buffalo_News_Sat__Mar_8__2008_.jpg?resize=758%2C577&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Buffalo_News_Sat__Mar_8__2008_-1-scaled.jpg?resize=758%2C553&amp;ssl=1)
 
@@ -89,7 +78,5 @@ Bruce and the E Street Band return to the scene of the crime, harkening back to 
 [https://www.youtube.com/embed/Qnf7Vgfox_s?feature=oembed](https://www.youtube.com/embed/Qnf7Vgfox_s?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Chicago_Tribune_Thu__Mar_9__2023_-2-scaled.jpg?resize=758%2C1274&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Chicago_Tribune_Thu__Mar_9__2023_-1.jpg?resize=758%2C418&amp;ssl=1)

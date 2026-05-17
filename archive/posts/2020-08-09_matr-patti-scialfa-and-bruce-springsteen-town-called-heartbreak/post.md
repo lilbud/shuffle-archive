@@ -37,7 +37,6 @@ Well, you gotta work with me, baby.
 
 ---
 
-
 Bruce plays acoustic guitar on Patti's studio track, a contribution he reprised when he featured "Town Called Heartbreak" in his early Magic Tour set lists.
 
 This time, though, Bruce provided vocals, too, turning the song into a duet–and I'd argue it works even better that way. (Patti's lyrics read like a conversation even in the original version.)
@@ -54,12 +53,8 @@ That's too bad, because the E Street version is gloriously gritty and features s
 
 [Watch on Youtube: A Town Called Heartbreak](https://www.youtube.com/watch?v=1J8a884WInk)
 
-
-
 **Town Called Heartbreak**<br>
-**Recorded:** Early 2007  
+**Recorded:** Early 2007
 **Released:** *Play It As It Lays* (2007)<br>
 **First performed:** September 25, 2007 (Asbury Park, NJ)<br>
 **Last performed:** November 12, 2007 (Washington, DC)<br>
-
-

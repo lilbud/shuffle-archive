@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 The Bruce Springsteen Band completes their residency at the Student Prince in Asbury Park. Following this show, Bruce will drive out to California to visit his parents, with no clear return date in mind. The band will continue on without him for a time, reverting to The Sundance Blues Band.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1971-1218-300x162.jpg?resize=758%2C409)
 
@@ -14,15 +11,11 @@ Bruce and his unnamed band play their last of a three-night stand at the Student
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1973-1219.jpg?resize=758%2C1011)
 
 Bruce plays his first-ever show in Canada when the Born to Run Tour stops in Montreal. The reporter who reviewed the show was decidedly unimpressed.
 
 **1975:** *Montreal Gazette*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1975-1219-122x300.jpg?resize=758%2C1864)
 
@@ -50,11 +43,7 @@ Bruce performs a solo acoustic rendition of "" at perhaps the most unexpected ve
 
 **2003:**[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2003-12-19a.png?resize=758%2C616&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2003-12-19b.png?resize=758%2C480&amp;ssl=1)
 
@@ -72,11 +61,7 @@ This year's holiday shows are at Harry's Roadhouse in Asbury Park, and although 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2004-12-19a.png?resize=758%2C790&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2004-12-19b.png?resize=758%2C672&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2004-12-19c.png?resize=758%2C1277&amp;ssl=1)
 
@@ -110,11 +95,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 **2017:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2017-12-19a.png?resize=758%2C736&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2017-12-19b.png?resize=758%2C748&amp;ssl=1)
 

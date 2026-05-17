@@ -35,5 +35,3 @@ On May 13, 2021, Bruce was awarded the annual Woody Guthrie Prize by the Woody G
 **Tom Joad**<br>
 **First performed:** September 25, 1996 (Akron, OH)<br>
 **Last performed:** May 13, 2021 (Colts Neck, NJ)<br>
-
-

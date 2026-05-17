@@ -1,5 +1,4 @@
 
-
 Stevie Wonder's "Signed, Sealed, Delivered I'm Yours" was a smash hit from the beginning, topping the U.S. R&B chart for six weeks and peaking at #3 on the Hot 100 in 1970.
 
 [https://www.youtube.com/embed/pUj9frKY46E?feature=oembed](https://www.youtube.com/embed/pUj9frKY46E?feature=oembed)

@@ -114,8 +114,6 @@ Contrast that with the very first E Street Band performance of "Human Touch," fr
 
 [Watch Video Highlight](https://videopress.com/embed/ZCVQXnYW?hd=0&cover=1)
 
-
-
 Regardless of which way you lean, there's no denying: by the time the *High Hopes* Tour came around, the E Street Band had enough "Human Touch" performances under their belt for it to feel like the song had been meant for them all along.
 
 I'll leave you with one of my favorite performances of "Human Touch," from Adelaide in 2014:
@@ -123,7 +121,7 @@ I'll leave you with one of my favorite performances of "Human Touch," from Adela
 [Watch on Youtube: Bruce Springsteen | Human Touch - Adelaide - 11/02/2014](https://www.youtube.com/watch?v=jyBfhpiZsSc)
 
 **Human Touch**<br>
-**Recorded:** Spring 1990  
+**Recorded:** Spring 1990
 **Released:** *Human Touch* (1992) (edited versions appear on *Greatest Hits* and *The Essential Bruce Springsteen* as well)<br>
 **First performed:** May 6, 1992 (New York City, NY)<br>
 **Last performed:** April 28, 2023 (Barcelona, Spain)<br>

@@ -5,5 +5,3 @@ Towards the end of an exuberant evening, Arcade Fire's Win Butler took to the st
 [Watch on Youtube: Win Butler & Preservation Hall Jazz Band - Born in the U.S.A. (Bruce Springsteen cover)](https://www.youtube.com/watch?v=vlQ6rFbU45o)
 
 Despite Win's introductory exhortation, we did indeed find ourselves living in the America that Butler never wanted to see. But that just makes Bruce's song and Butler's performance a more poignant reminder of the American promise, still unfulfilled.
-
-

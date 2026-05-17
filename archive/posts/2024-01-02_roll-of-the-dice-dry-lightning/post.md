@@ -64,7 +64,6 @@ At this sad moment of realization, we take our leave. But we'll meet our narrato
 
 ---
 
-
 "Dry Lightning" was a set list staple on the Ghost of Tom Joad Tour, played at virtually every show. In my opinion, it never packed as much power performed solo as it does on the album, but here's a video of Bruce performing it in 1996 so you can judge for yourself.
 
 [Watch on Youtube: Dry Lightning - Bruce Springsteen - SubIta](https://www.youtube.com/watch?v=lUXAo0QGeaM)

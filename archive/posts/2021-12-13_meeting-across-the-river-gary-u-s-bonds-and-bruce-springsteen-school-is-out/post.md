@@ -1,5 +1,4 @@
 
-
 This one's for the completists (like me).
 
 "School Is Out" was Gary U.S. Bonds follow-up to his smash hit (and frequent Springsteen encore) "."

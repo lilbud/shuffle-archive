@@ -90,8 +90,6 @@ But then a few months later, Bruce took "57 Channels" on tour, and our first hin
 
 [Watch Video Highlight](https://videopress.com/embed/0cAKvrCK?hd=1&cover=1)
 
-
-
 By the time the tour started, the song had evolved even more.
 
 [Watch on Youtube: Bruce Springsteen - 57 Channels (And Nothin' On) (from In Concert/MTV Plugged)](https://www.youtube.com/watch?v=2xktsE-VaUs)

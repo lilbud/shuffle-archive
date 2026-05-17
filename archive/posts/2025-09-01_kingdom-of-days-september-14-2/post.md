@@ -1,5 +1,4 @@
 
-
 *Audio for 1973 and 1984; new entry for 1977, 1983, 1989, and 2024***New for 2025:**
 
 A scheduled gig at Syracuse University is cancelled to make room for production work on at 914 Sound Studios in Blauvelt, New York. Today Bruce completes "New York City Serenade."
@@ -14,7 +13,7 @@ Bruce and the E Street Band play their second of two shows at the Houston Music 
 
 **1975:**<br>
 
-Bruce and the E Street Band record "" at The Record Plant in New York City. It will remain in the vault for 33 years until Bruce unearths, completes, and releases it on 
+Bruce and the E Street Band record "" at The Record Plant in New York City. It will remain in the vault for 33 years until Bruce unearths, completes, and releases it on
 
 **1977:** [Ain't Good Enough for You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)*The Promise.*
 
@@ -62,11 +61,7 @@ Bruce makes a guest appearance with Joe Ely at The Viper Room in West Hollywood,
 
 **1995:** [All Just to Get to You](https://estreetshuffle.com/index.php/2022/02/23/matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1995-0914-300x202.jpg?resize=758%2C510)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1995-09-14-300x141.jpg?resize=758%2C356)
 
@@ -77,8 +72,6 @@ At his Rising show in Chapel Hill, Bruce finally starts acknowledging his TOL/HT
 [https://videopress.com/embed/QUWjxN0h?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QUWjxN0h?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2003-09-14a.jpg?resize=758%2C1370&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2003-09-14b-158x300.jpg?resize=758%2C1439)
 

@@ -47,7 +47,6 @@ Maybe that's why the E Street Band ends the song on a note of triumph, even as C
 
 ---
 
-
 It's a genuine surprise to me that Bruce has only ever played "Car Wash" once, early in the Reunion Tour, in Leipzig, Germany. As I suggested above, listen to it back-to-back with "Darlington County," and you'll see how compatible the songs are if Bruce wanted to switch up his shows but still keep a honky-tonk rocker in the set list.
 
 But one lone performance is all we've been given, so we're fortunate that it was at least captured on video. The video quality is shaky for the first minute or so (it was 1999 after all), but it's watchable and fun: Bruce draws out the song (he'd almost have to, since it's only two minutes long on the record) with a great sax solo from Clarence.

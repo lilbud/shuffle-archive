@@ -1,10 +1,7 @@
 
-
 If you go see Bruce Springsteen after Thanksgiving, you better watch out, and you better not cry. And you better bring your Santy Claus hats, because odds are you're gonna need them.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/15178199_10154174869751158_5701225122112296324_n-300x169.jpg?resize=717%2C404)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/santy-300x175.jpg?resize=736%2C429)
 

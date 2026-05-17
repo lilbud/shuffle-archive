@@ -1,5 +1,4 @@
 
-
 One of my all-time favorite Bruce covers: "" by The Knack. (I'm a child of the 1980s. No apologies.)
 
 [Don't Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)

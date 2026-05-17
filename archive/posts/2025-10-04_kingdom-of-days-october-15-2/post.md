@@ -1,5 +1,4 @@
 
-
 *Video for 2005; new entry for 2024***New for 2025:**
 
 Child performs for Monmouth College's National Vietnam Moratorium Protest Day.
@@ -10,15 +9,11 @@ The Bruce Springsteen Band is in residence at The Student Prince in Asbury Park.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1971-1015-300x146.jpg?resize=758%2C369)
 
 Bruce and the as-yet-unnamed E Street Band kick off a four-night stand at Oliver's in Boston.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1973-1015-200x300.jpg?resize=758%2C1135)
 
@@ -29,8 +24,6 @@ The Born in the U.S.A. Tour resumes after a three-week break at Vancouver's Paci
 [https://www.youtube.com/embed/fXB3mqCUMcw?feature=oembed](https://www.youtube.com/embed/fXB3mqCUMcw?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-15a-269x300.png?resize=758%2C845)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1984-10-15b.png?resize=758%2C2252&amp;ssl=1)
 
@@ -46,11 +39,7 @@ The Human Rights Now! Tour comes to a close with a worldwide radio broadcast fro
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1988-10-15a.png?resize=516%2C2921&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1988-10-15b-300x154.png?resize=758%2C389)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1988-10-15c-259x300.png?resize=758%2C878)
 
@@ -66,8 +55,6 @@ Bruce performs in Utah for the very first time when his solo acoustic tour stops
 
 **1996:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-15-176x300.png?resize=758%2C1292)
 
 The Reunion Tour picks up after a two-week break at America West Arena in Phoenix, where Sam Moore joins the reunited E Street Band for an encore (and live debut for Bruce) of "." Take a listen below.
@@ -78,11 +65,7 @@ The Reunion Tour picks up after a two-week break at America West Arena in Phoeni
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-15a-300x119.png?resize=758%2C301)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-15b-300x177.png?resize=758%2C447)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-15c-300x158.png?resize=758%2C399)
 
@@ -104,8 +87,6 @@ Bruce returns to Madison, Wisconsin after almost 25 years when his solo acoustic
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-10-15a-300x235.png?resize=758%2C593)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-10-15b-153x300.png?resize=758%2C1486)
 
 Bruce tour premieres "" early in the set during his Magic Tour stop at the Air Canada Center in Toronto.
@@ -120,11 +101,9 @@ Bruce attends the Broadway opening of , Sting's musical about English shipbuildi
 
 **2014:** *The Last Ship*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/2014-1027-300x200.jpg?resize=758%2C505)
 
-Still in quarantine during the pandemic, Bruce grants interviews via Zoom in support of his upcoming album, 
+Still in quarantine during the pandemic, Bruce grants interviews via Zoom in support of his upcoming album,
 
 **2020:** [.](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)*Letter to You*
 

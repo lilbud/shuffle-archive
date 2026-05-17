@@ -1,10 +1,7 @@
 
-
 Bruce opens for Blood, Sweat and Tears, The Eagles, Joe Walsh, Billy Preston, and more at the Ohio University Music Festival.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0427.jpg?resize=430%2C626&amp;ssl=1)
 
@@ -12,11 +9,7 @@ Bruce plays three(!) shows at three schools in two states: First, a midnight sho
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/48959561473_bd28364ebd_6k-scaled.jpg?resize=758%2C1159&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0427a.jpg?resize=480%2C800&amp;ssl=1)
 
@@ -24,19 +17,15 @@ Bruce and the band are fifty miles into their drive from Chattanooga (where they
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/1976-04-27-scaled.jpg?resize=758%2C1526&amp;ssl=1)
 
-At the Power Station in New York City, Bruce works on several songs for what would eventually become 
+At the Power Station in New York City, Bruce works on several songs for what would eventually become
 
 **1982:** *Born in the U.S.A.*
 
 Bruce makes a guest appearance with The Diamonds at The Stone Pony.
 
 **1983:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1983-0427.jpg?resize=347%2C512&amp;ssl=1)
 
@@ -72,11 +61,7 @@ Bruce and Patti sing "Streets of Philadelphia" at a Tom Hanks tribute at New Yor
 
 **2009:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2009-04-27.jpg?resize=566%2C962&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2009-0427.jpg?resize=580%2C398&amp;ssl=1)
 
@@ -102,15 +87,9 @@ Lucky fans (including this blogger) view never-before-seen (and many never-since
 
 **2019:** *Backstreets*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-04-27a.jpg?resize=669%2C985&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-04-27b.jpg?resize=758%2C412&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/46975588464_1553b90db6_o.jpg?resize=550%2C367&amp;ssl=1)
 

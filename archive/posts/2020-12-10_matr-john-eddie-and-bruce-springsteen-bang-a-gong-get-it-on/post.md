@@ -1,5 +1,4 @@
 
-
 One of rock's greatest riffs was based on another one of rock's greatest riffs, and Bruce has played them both.
 
 "" is the more common of the two (forever associated by fans with the infamous "bomb scare show" of 1975); Bruce's version of "Get It On" is a lot more obscure.

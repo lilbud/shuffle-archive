@@ -60,8 +60,6 @@ What happens next is one of those unpredictable magic Springsteen moments: witho
 
 While mostly absent from his set lists in recent years, "Land of Hope and Dreams" makes regular reappearances when times are dire–whether during the original Trump presidential years where liberty and our social contract started to fray…
 
-
-
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L50sqx9fYjg)
 
 …or the COVID-19 pandemic years, short on live performances by anyone, let alone Bruce. But when we needed him, he was there. Early in the great shutdown of 2020, Bruce played a telethon to support the New Jersey pandemic relied fund, and the first song he played was, of course, "Land of Hope and Dreams."

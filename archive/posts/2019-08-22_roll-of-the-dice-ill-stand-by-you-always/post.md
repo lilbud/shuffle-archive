@@ -6,7 +6,6 @@ Original article below.
 
 ---
 
-
 Okay, admit it: when you heard that Bruce wrote an unsolicited song for a Harry Potter movie, this is probably pretty close to how you imagined it:
 
 [Watch on Youtube: Bruce Springsteen's Rejected "Harry Potter" Song | CONAN on TBS](https://www.youtube.com/watch?v=Xb24VJQqqzk)
@@ -16,8 +15,6 @@ You have to give Conan points for nailing that E Street sound–I laughed out lo
 As for the *actual* song Bruce wrote for Harry Potter… um, I think I'll just let Bruce do the talking on this one:
 
 [Watch Video](https://www.bbc.co.uk/programmes/p04cjymy/player)
-
-
 
 Yep, it's true: Bruce really did write a Harry Potter song.
 
@@ -70,7 +67,7 @@ To date, Bruce has never performed "I'll Stand By You" in concert.
 Please, for the love of Clarence: nobody bring a sign.
 
 **I'll Stand By You**<br>
-**Recorded:** 2001  
+**Recorded:** 2001
 **Released:** *Blinded by the Light (Original Motion Picture Soundtrack)* (2019)<br>
 **Never performed**<br>
 

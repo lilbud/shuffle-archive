@@ -1,5 +1,4 @@
 
-
 Willie Nile's "One Guitar" won the AIM Independent Music Award for Best Social Action Song in 2013. It was well deserved. Willie's metaphor for the power of the individual is tailor-suited for Bruce, and the two have performed it together at three Light of Day concerts over a four-year span.
 
 Here's the most recent one, from 2015:

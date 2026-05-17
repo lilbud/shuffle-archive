@@ -35,7 +35,7 @@ In any event, enjoy this curious historical artifact, because this is one song w
 
 **I Just Can't Change**<br>
 **Never recorded**<br>
-**Never released**  
+**Never released**
 **First performed:** February 4, 1972 (Richmond, VA)<br>
 **Last performed:** February 4, 1972 (Richmond, VA)<br>
 

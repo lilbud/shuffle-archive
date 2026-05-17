@@ -60,7 +60,7 @@ To a pair of 2018 ears, it's a little creepy.
 So, yeah: probably for the best that Bruce discarded this one. He's never performed it live, and I doubt he ever will.
 
 **Little Girl (Like You)**<br>
-**Recorded:** January 20, 1983  
+**Recorded:** January 20, 1983
 **Never released**<br>
 **Never performed**<br>
 

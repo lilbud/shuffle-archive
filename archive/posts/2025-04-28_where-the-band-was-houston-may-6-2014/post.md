@@ -53,5 +53,3 @@ Finally, Bruce sent us off into the night with an acoustic "Thunder Road."
 [Watch on Youtube: Bruce Springsteen - Thunder Road (Houston 05.06.14) HD](https://www.youtube.com/watch?v=Igrc91ns3xg)
 
 What a wild, unpredictable show that was–one of my all-time favorites for so many reasons. I'm so grateful to the folks who filmed so much of this show so I can keep reliving it!
-
-

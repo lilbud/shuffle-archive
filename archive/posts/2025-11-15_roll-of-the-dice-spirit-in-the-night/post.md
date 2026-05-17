@@ -61,8 +61,6 @@ The fact that "Spirit in the Night" swings as much as it does is entirely due to
 
 Let's take a listen.
 
-
-
 [Watch on Youtube: Spirit in the Night](https://www.youtube.com/watch?v=hFEeqfqoTSY)
 
 "Spirit in the Night" attracts a lot of discussion among fans trying to dissect it, but it's actually pretty direct, at least by early Springsteen standards. The setup couldn't be simpler: Crazy Janey and the bishop–oops, I mean her mission man–are playing cards in the alley when a car pulls up with Wild Billy and G-Man.

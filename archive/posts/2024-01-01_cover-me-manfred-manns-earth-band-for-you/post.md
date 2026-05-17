@@ -1,5 +1,4 @@
 
-
 Manfred Mann's cover of "" is one of the most famous Springsteen covers out there–it gets lots of airplay to this day.
 
 [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)

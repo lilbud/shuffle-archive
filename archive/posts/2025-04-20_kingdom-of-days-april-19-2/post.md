@@ -1,16 +1,11 @@
 
-
 *New entry for 1975 and 1980; video for 2014***New for 2025:**
 
 Bruce and the not quite E Street Band play a poorly advertised (and therefore poorly attended) show at the New Jersey State Theater in New Brunswick. In attendance tonight: Penn Jillette.
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1974-04-19.jpg?resize=758%2C291&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0419-300x234.jpg?resize=758%2C591)
 
@@ -98,15 +93,11 @@ The Canadian leg of the Rising Tour concludes with a show at Bell Center in Mont
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2003-04-19.jpg?resize=758%2C341&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2003-04-19b.jpg?resize=758%2C1660&amp;ssl=1)
 
 Bruce reschedules a scheduled show in Orlando due to the passing of Danny Federici.
 
 **2008:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Miami_Herald_Fri__Apr_18__2008_-scaled.jpg?resize=758%2C387&amp;ssl=1)
 

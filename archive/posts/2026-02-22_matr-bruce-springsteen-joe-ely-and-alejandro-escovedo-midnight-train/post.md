@@ -1,4 +1,4 @@
-"Midnight Train" is a Joe Ely deep cut from *Wheels of Fortune*, the 2004 comeback album for The Flatlanders, of which Ely was a founding member. 
+"Midnight Train" is a Joe Ely deep cut from *Wheels of Fortune*, the 2004 comeback album for The Flatlanders, of which Ely was a founding member.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=y_TyiFj-3uw)
 

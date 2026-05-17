@@ -1,18 +1,13 @@
 
-
 Eleven-year-old Bruce Springsteen receives the sacrament of confirmation at St. Rose of Lima Church in Freehold.
 
 **1961:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1961-05-05.jpg?resize=538%2C963&amp;ssl=1)
 
 Bruce and the as yet unnamed E Street Band play a show at Providence College in Rhode Island.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0505.jpg?resize=328%2C200&amp;ssl=1)
 
@@ -42,8 +37,6 @@ Bruce plays the first of two nights at the Tacoma Dome for the Tunnel of Love Ex
 
 **1988:** *Rolling Stone*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/rolling-stone-cover-volume-525-5-5-1988-bruce-springsteen.jpg?resize=750%2C900&amp;ssl=1)
 
 [https://videopress.com/embed/HsrTnjy0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HsrTnjy0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
@@ -54,11 +47,7 @@ Bruce plays the first of two nights at the Tacoma Dome for the Tunnel of Love Ex
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1988-05-05-save.jpg?resize=492%2C826&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1988-05-05a.jpg?resize=749%2C955&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1988-0505.jpg?resize=342%2C480&amp;ssl=1)
 
@@ -99,8 +88,6 @@ Bruce tour premieres "Nebraska" and an acoustic arrangement of "Land of Hope and
 [https://www.youtube.com/embed/psFjDUQuviY?feature=oembed](https://www.youtube.com/embed/psFjDUQuviY?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-05a.jpg?resize=758%2C368&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-05b.jpg?resize=687%2C957&amp;ssl=1)
 
@@ -151,7 +138,5 @@ Bruce and the E Street Band kick off the European leg of their World Tour with t
 Bruce visits the construction site for the future home of the Bruce Springsteen Center for American Music.
 
 **2025:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/medium-12.jpg?resize=500%2C375&amp;ssl=1)

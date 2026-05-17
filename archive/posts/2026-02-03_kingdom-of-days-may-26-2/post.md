@@ -1,5 +1,4 @@
 
-
 Seven-year-old Bruce Springsteen receives his first Communion at St. Rose of Lima Church.
 
 **1957:**<br>
@@ -30,8 +29,6 @@ Bruce joins John Mellencamp on stage for "Like a Rolling Stone" at the Irvine Me
 
 **1988:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1988-05-26.jpg?resize=758%2C670&amp;ssl=1)
 
 Bruce wraps up the Ghost of Tom Joad Tour with the second of two nights in Paris. Elliot Murphy makes a guest appearance, joining Bruce for "Blowin' Down This Road," and "Diamonds by the Yard" (the only known performance of this song).
@@ -56,8 +53,6 @@ At the first of two Rising shows at the Crystal Palace in London, Bruce tour pre
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Independent_Tue__May_27__2003_.jpg?resize=758%2C913&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/2003-0526.jpg?resize=758%2C597&amp;ssl=1)
 
 At the first of three shows in Germany–this one in Munich–Bruce opens with a solo acoustic "Who'll Stop the Rain" and plays a rare "Seaside Bar Song" along with in full.
@@ -77,7 +72,5 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 Bruce's radio show continues on E Street Radio with Episode 22, "Radio Radio."
 
 **2021:** *From My Home to Yours*<https://estreetshuffle.com/wp-content/uploads/2022/05/2021-05-26-Bruce-E-Street-Radio-DJ-set-22.mp3>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/The_Freehold_Transcript_and_The_Monmouth_Inquirer_1957_05_30_4-scaled.jpg?resize=758%2C1683&amp;ssl=1)

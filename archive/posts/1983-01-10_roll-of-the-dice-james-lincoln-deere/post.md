@@ -113,8 +113,8 @@ In my honest opinion, the reveal doesn't really work. It's too dark a turn, and 
 Bruce's tales of good men turned bad work better when subtler, and by the time "James Lincoln Deere" evolved into the also unreleased "Richfield Whistle," he had crafted a much stronger, more haunting story.
 
 **James Lincoln Deere**<br>
-**Recorded:** March 1982  
-**Never released**  
+**Recorded:** March 1982
+**Never released**
 **Never performed**<br>
 
 © November 29, 2022 / January 19, 2026

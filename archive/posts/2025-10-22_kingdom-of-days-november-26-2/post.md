@@ -1,5 +1,4 @@
 
-
 *Audio for 1996; new entry for 2024***New for 2025:**
 
 The Castiles play a gig at the Hullabaloo in Middletown, New Jersey.
@@ -9,8 +8,6 @@ The Castiles play a gig at the Hullabaloo in Middletown, New Jersey.
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1971-11-26-300x175.jpg?resize=758%2C445)
 
@@ -54,8 +51,6 @@ Bruce plays a solo acoustic show at the Wiltern Theater in Los Angeles, where he
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-26a-199x300.png?resize=758%2C1143)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-26b-300x235.png?resize=758%2C594)
 
 Bruce wraps up his three-night acoustic stand at the Paramount Theater in Asbury Park, once again joined by a posse of friends. Tonight's guest include Danny, Soozie, Patti, Steve, Vini, Big Danny Gallagher, and Richard Blackwell. For a solo show, Bruce is seldom on stage by himself. The setlist features the tour premieres of "" and "." This show is available as part of Bruce's official archive series–get it .
@@ -92,8 +87,6 @@ Bruce appears with Bono and Mick Jagger on the cover of .
 
 **2009:** *Rolling Stone*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/rollingstone1092-220x300.jpg?resize=758%2C1033)
 
 After a week off for Thanksgiving, the Wrecking Ball Tour resumes in Vancouver. The set list features no premieres, but a couple of songs appear in surprising positions: Bruce opens with "," and "" makes an unusual encore appearance. For more highlights from this show, see my .
@@ -105,8 +98,6 @@ After a week off for Thanksgiving, the Wrecking Ball Tour resumes in Vancouver. 
 [https://videopress.com/embed/tKxNYA4j?hd=0&amp;cover=1](https://videopress.com/embed/tKxNYA4j?hd=0&amp;cover=1)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2012-11-26a-1.png?resize=758%2C1072&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2012-11-26b-215x300.png?resize=758%2C1058)
 

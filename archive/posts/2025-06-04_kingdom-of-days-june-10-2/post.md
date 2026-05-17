@@ -1,12 +1,9 @@
 
-
 *Reviews for 1973; new entry for 1977 and 1983***New for 2025:**
 
 Bruce and his band open for Chicago at the Civic Center in Springfield.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/06/The_Morning_Union_1973_06_11_4.jpg?resize=758%2C367&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/06/The_Republican_1973_06_11_11.jpg?w=758&amp;ssl=1)
 
@@ -23,8 +20,6 @@ When the Darkness Tour stops in Bloomington, Minnesota, snippets of several song
 [https://www.youtube.com/embed/LH4de0n_t9U?feature=oembed](https://www.youtube.com/embed/LH4de0n_t9U?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-06-10a-266x300.jpg?resize=758%2C855)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1978-06-10b-300x140.jpg?resize=758%2C354)
 

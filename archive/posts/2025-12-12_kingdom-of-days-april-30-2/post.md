@@ -1,10 +1,7 @@
 
-
 At the Student Prince in Asbury Park, Bruce makes a guest appearance at the debut performance of The Sundance Blues Band, led by Steve Van Zandt and Southside Johnny, and featuring Vini Lopez, Garry Tallent, and Joe Hagstrom.
 
 **1971:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1971-04-30.jpg?resize=758%2C1618&amp;ssl=1)
 
@@ -12,7 +9,7 @@ Bruce plays in Alabama for the first time, at a very sparsely-attended show at t
 
 **1976:**<br>
 
-At the Power Station in New York City, Bruce records for what will eventually become 
+At the Power Station in New York City, Bruce records for what will eventually become
 
 **1982:** *Born in the U.S.A.*
 
@@ -32,11 +29,7 @@ Imagine this line-up: Bruce joins James Brown on stage at the opening of the Wes
 
 **1994:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1994-0430-300x199.jpg?resize=758%2C504)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1994-04-30.jpg?resize=755%2C962&amp;ssl=1)
 
@@ -101,8 +94,6 @@ Night Two in Oslo starts off strong with the tour premiere of "Leap of Faith."
 Bruce and the E Street Band attend the funeral of Lenore Travis, wife of concert producer and long-time friend George Travis. Bruce, Nils and Patti perform "I Wanna Marry You" and "If I Should Fall Behind."
 
 **2015:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2015-04-30.jpg?resize=758%2C396&amp;ssl=1)
 

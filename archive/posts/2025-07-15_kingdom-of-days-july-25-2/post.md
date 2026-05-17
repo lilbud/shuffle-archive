@@ -1,12 +1,9 @@
 
-
 *Audio for 1975 and 1992; new entry for 2024***New for 2025:**
 
 The Castiles play at a YMCA pool party at Camp Arrowhead, in Marlboro, New Jersey.
 
 **1967:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1967-07-25-137x300.png?resize=758%2C1660)
 
@@ -14,19 +11,13 @@ The Bruce Springsteen Band plays an IPO party (really) in Rumson for the Marine 
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1971-07-25-300x135.png?resize=758%2C341)
 
 Bruce and the E Street Band open for the late, great Dr. John at the Santa Monica Civic Auditorium.
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1974-0725-300x234.jpg?resize=758%2C591)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/santamonicanews-141x300.jpg?resize=758%2C1613)
 
@@ -49,8 +40,6 @@ Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for eight songs,
 is certified as 3x platinum in the U.K.
 
 **1985:***Born in the U.S.A.*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/platinum-300x250.jpg?resize=744%2C620)
 
@@ -80,11 +69,7 @@ Bruce and Patti welcome their first son, Evan James, into the world.
 
 **1990:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/evan-2-300x300.jpg?resize=758%2C758)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1990-07-25-300x278.png?resize=758%2C702)
 
@@ -98,8 +83,6 @@ On Night Two (of eleven!) at Brendan Byrne Arena in East Rutherford on World Tou
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1992-07-25a-276x300.png?resize=758%2C824)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1992-07-25b-259x300.png?resize=758%2C878)
 
 Soozie Tyrell joins the E Street Band as an unofficial member at a warm-up show at Convention Hall in Asbury Park. She'll be with the band ever after. Nine songs from are played for the first time with the band tonight.
@@ -109,8 +92,6 @@ Soozie Tyrell joins the E Street Band as an unofficial member at a warm-up show 
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Jesse Malin and Glen Hansard.
 
 **2018:** *Springsteen on Broadway*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/jesse-glen-300x300.jpg?resize=758%2C758)
 

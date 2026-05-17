@@ -1,10 +1,7 @@
 
-
 Steel Mill headlines an outdoor concert at Monmouth College in West Long Branch, New Jersey.
 
 **1970:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1970-0510.jpg?resize=378%2C583&amp;ssl=1)
 
@@ -47,8 +44,6 @@ Bruce plays "Cautious Man" for the very first time (and the very last for 17 yea
 [https://www.youtube.com/embed/HNUqIApF_pA?feature=oembed](https://www.youtube.com/embed/HNUqIApF_pA?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-10a.jpg?resize=758%2C485&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-05-10b.jpg?resize=619%2C956&amp;ssl=1)
 

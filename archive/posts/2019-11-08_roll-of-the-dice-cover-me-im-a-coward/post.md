@@ -1,5 +1,4 @@
 
-
 Oh man. I was dreading the first time the dice came up with one of these songs, because I'm not sure how to classify them. Are they originals or covers?
 
 See, Bruce does this thing once in a while where he "covers" a song but in the process rewrites all the lyrics and rearranges all the music. But the title and some snippets are the same (except when he changes the title, too).

@@ -23,5 +23,3 @@ That one's coming soon.
 **Free Money**<br>
 **First performed:** November 26, 1976 (New York City, NY)<br>
 **Last performed:** November 26, 1976 (New York City, NY)<br>
-
-

@@ -1,5 +1,4 @@
 
-
 One of my favorite things about writing this blog is coming across new Springsteen covers on an almost daily basis.
 
 And while it's the well-known ones by big-name artists that drive the most traffic and conversation, I often find myself taken by obscure ones by artists I've never heard before.

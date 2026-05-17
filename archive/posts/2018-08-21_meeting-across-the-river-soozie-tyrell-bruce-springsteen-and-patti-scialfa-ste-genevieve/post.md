@@ -8,8 +8,6 @@ In the interview below, Soozie explains how it all came about.
 
 [NPR embedded audio player](https://www.npr.org/player/embed/1335237/99403098)
 
-
-
 Bruce and Patti reprised their roles at the release party for *White Lines* at the Stone Pony in May 2003. Other than that, Bruce has never performed this song live.
 
 **Ste. Genevieve**<br>

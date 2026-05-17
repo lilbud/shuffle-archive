@@ -21,8 +21,8 @@ Is it significant? Does it change the meaning of the song? Nah–it's just cool,
 
 He was the lookout for a local pimp relying on his gift of gab, which is seriously impressive. Look–I mean really *look–*at the sheer density of assonance and alliteration packed into these three lines:
 
-*With my **blackjack** and **jack**et and hair slicked sweet*  
-*Silver star **studs** on my **duds** like a Harley in heat*  
+*With my **blackjack** and **jack**et and hair slicked sweet*
+*Silver star **studs** on my **duds** like a Harley in heat*
 > *When I strut down the street I could feel the heartbeat*
 
 Holy cow, that's some hotshot writing!
@@ -68,12 +68,12 @@ But about two thirds of the way through, the small changes start having a bigger
 …becomes:
 
 > *But it's too hot in these tunnels, you can get hit up by the heat*
-***You** get up to get out at **your** next stop but they push **you** back down in **your** seat*  
-***Your** heart starts beatin' faster as **you** struggle to **your** feet*  
+***You** get up to get out at **your** next stop but they push **you** back down in **your** seat*
+***Your** heart starts beatin' faster as **you** struggle to **your** feet*
 *And **you're** out of that hole, back up on the street*
 
 > *And them south side sisters sure look pretty*
-*The cripple on the corner cries out, "**Nickels for your pity**"*  
+*The cripple on the corner cries out, "**Nickels for your pity**"*
 > *Them downtown boys, they sure talk gritty*
 > *It's so hard to be a saint in the city*
 

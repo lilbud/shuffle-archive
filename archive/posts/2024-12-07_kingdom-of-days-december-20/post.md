@@ -1,12 +1,9 @@
 
-
 *Audio for 1978; new entry for 2005***New for 2024:**
 
 Earth plays two shows at the Off Broad Street Coffee House in Red Bank, New Jersey.
 
 **1968:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1968-12-20.png?resize=758%2C371&amp;ssl=1)
 
@@ -24,11 +21,7 @@ Bruce continues his first ever tour of Canada with a show at the National Arts C
 
 **1975:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1975-12-20.png?resize=758%2C505&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1975-12-20b.png?resize=758%2C606&amp;ssl=1)
 
@@ -59,8 +52,6 @@ Bruce holds his annual Christmas party at McLoone's Rum Runner in Sea Bright, wh
 Bruce and Patti take in on Broadway and are invited backstage to meet the cast.
 
 **2005:** *Dirty Rotten Scoundrels*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/Daily_News_2005_12_23_129-1.jpg?resize=758%2C559&amp;ssl=1)
 

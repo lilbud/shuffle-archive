@@ -1,5 +1,4 @@
 
-
 Bruce's connection with Dion DiMucci goes way back to 1975 (even further if you count a second-degree association between Dion and Steve Van Zandt when Steve and The Dovells backed Dion in a 1972 show in Miami), and Bruce has called Dion "the link between Sinatra and rock and roll."
 
 The two have performed together on stage in every decade since the 1970s, so it was perhaps only a matter of time before Dion tried his hand at covering one or two of Bruce's songs.

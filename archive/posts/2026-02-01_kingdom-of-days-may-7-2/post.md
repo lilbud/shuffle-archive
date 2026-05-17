@@ -1,5 +1,4 @@
 
-
 Four days before Bruce's scheduled show at Auburn University, Bruce makes an unannounced visit to the campus… or does he? (h/t Bud McLaughlin)
 
 **1976:**<br>
@@ -89,8 +88,6 @@ Bruce and the E Street Band (with guests The Mighty Max Horns) play a benefit sh
 [https://videopress.com/embed/AUI2bQ57?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AUI2bQ57?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-07a.jpg?resize=758%2C186&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-05-07b.jpg?resize=758%2C381&amp;ssl=1)
 

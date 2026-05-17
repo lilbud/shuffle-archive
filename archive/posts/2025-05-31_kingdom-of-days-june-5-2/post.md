@@ -1,5 +1,4 @@
 
-
 *New entry for 1973; audio for 1992***New for 2025:**
 
 Steel Mill headlines at the Rumson-Fairhaven Regional High School Junior-Senior Prom.
@@ -50,7 +49,7 @@ Night Two at St. James Park in Newcastle on the Born in the U.S.A. Tour features
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1985-06-05.jpg?resize=758%2C1300&amp;ssl=1)
 
-Bruce and his new band (plus Stevie and Patti) play a rehearsal show–only four days after they first began rehearsing together–broadcast live from Hollywood Center Studios Soundstage. For more highlights from this show, see today's 
+Bruce and his new band (plus Stevie and Patti) play a rehearsal show–only four days after they first began rehearsing together–broadcast live from Hollywood Center Studios Soundstage. For more highlights from this show, see today's
 
 **1992:** [guest blog.](http://estreetshuffle.com/?p=18728)*Where the Band Was*
 
@@ -61,8 +60,6 @@ Bruce and his new band (plus Stevie and Patti) play a rehearsal show–only four
 Bruce attends Mariah Carey's wedding to Tommy Mottola, president of Sony Music in Manhattan.
 
 **1993:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1993-06-05-300x162.jpg?resize=758%2C409)
 
@@ -85,8 +82,6 @@ Bruce and the Sessions Band appear on Later that night (the Tonight Show tapes d
 [https://www.youtube.com/embed/nkwEVEMDqlM?feature=oembed](https://www.youtube.com/embed/nkwEVEMDqlM?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2006-06-05a-300x220.jpg?resize=758%2C556)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2006-06-05b-300x281.jpg?resize=758%2C710)
 

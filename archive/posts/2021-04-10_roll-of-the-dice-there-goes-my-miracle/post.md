@@ -85,7 +85,6 @@ It's happened before, and it will likely happen again. The miracle may be that h
 
 ---
 
-
 Bruce hasn't performed "There Goes My Miracle" in concert, at least in part because there haven't been many opportunities for him to perform *anything* since its release thanks to the great pandemic of 2020.
 
 But he did perform it at least once for the cameras during the filming of *Western Stars* (the movie), and it's the exception among the album's tracks in that it was subtly improved in the process. (For example, see the backing vocals that enter at the "Look what we've done" section at the 2:30 mark.)

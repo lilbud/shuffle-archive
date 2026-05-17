@@ -9,5 +9,3 @@ It's also a song perfectly suited to Alvin's roots rock sensibilities, and its s
 One listen and you're gonna want to get in your car, hit the open road, and crank it up.
 
 [Watch on Youtube: Dave Alvin - Seeds](https://www.youtube.com/watch?v=Mb4oGdVP7bY)
-
-

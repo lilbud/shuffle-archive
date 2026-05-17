@@ -1,5 +1,4 @@
 
-
 The last night in Cape Town was a strange mix: on one hand, it was a throwback to the Wrecking Ball Tour, opening with "" and featuring standards from that tour like "" "" "," and "." It's almost as if Bruce felt bad that he skipped South Africa on that tour and wanted to give the locals a taste of what they missed.
 
 [We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)[Jack of All Trades,](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)[Rocky Ground](https://estreetshuffle.com/index.php/2023/03/20/roll-of-the-dice-rocky-ground/)

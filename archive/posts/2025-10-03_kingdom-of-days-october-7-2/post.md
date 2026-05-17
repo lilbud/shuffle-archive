@@ -1,12 +1,9 @@
 
-
 *No updates***New for 2025:**
 
 The Castiles take part in a battle of the bands at the Middletown Community Center.
 
 **1967:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1967-1007.jpg?resize=758%2C484)
 

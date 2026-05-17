@@ -1,10 +1,7 @@
 
-
 Child opens for the James Cotton Band for three shows in one day at the Pandemonium in Wanamassa, New Jersey.
 
 **1969:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1969-0523-1.gif?resize=250%2C191&amp;ssl=1)
 
@@ -12,19 +9,13 @@ The Sundance Blues Band plays The Student Prince in Asbury Park.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1971-0528.jpg?resize=485%2C558&amp;ssl=1)
 
 Bruce and the E Street Band play two shows on their first of two nights at The Main Point in Bryn Mawr, Pennsylvania.
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Philadelphia_Inquirer_Mon__Jun_3__1974_-scaled.jpg?resize=758%2C653&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1974-0528.jpg?resize=401%2C800&amp;ssl=1)
 
@@ -42,19 +33,13 @@ Bruce and the band close out their Chicken Scratch Tour with a show for the U.S.
 
 **1976:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1976-0528.gif?resize=168%2C250&amp;ssl=1)
 
 At 3am, Bruce and Mike Appel settle their legal dispute, finally freeing Bruce to record again. Appel retains 50% of the publishing rights over all songs recorded to date, but Bruce will own everything recorded henceforth. That night, Bruce and Steve see Elvis play in Philadelphia at the Spectrum.
 
 **1977:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1977-0528.jpg?resize=758%2C335&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1969-05-28-scaled.jpg?resize=758%2C343&amp;ssl=1)
 

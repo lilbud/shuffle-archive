@@ -131,7 +131,7 @@ The Captain and his Sergeants are doing their best to dissuade us from even cons
 
 **Visitation at Fort Horn**<br>
 **Recorded** June 27, 1972<br>
-**Never released**  
+**Never released**
 **First performed:** February 1972<br>
 **Last performed:** February 1972<br>
 

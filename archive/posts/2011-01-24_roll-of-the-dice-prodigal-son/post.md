@@ -107,7 +107,7 @@ Bruce recorded a demo of "Prodigal Son" (you listened to it above), but it never
 
 **Prodigal Son**<br>
 **Recorded** April 1972<br>
-**Never released**  
+**Never released**
 **Never performed**<br>
 
 © March 9, 2020

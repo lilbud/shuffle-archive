@@ -108,8 +108,6 @@
 
 [Watch Video](https://www.bbc.co.uk/programmes/p04cjxw4/player)
 
-
-
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, and Bruce releases a new song, a cover of "[If I Had a Hammer](https://estreetshuffle.com/index.php/2019/10/07/cover-me-if-i-had-a-hammer/)," on an anniversary compilation for Appleseed Records. The song was recorded during the Seeger Sessions in 2006.

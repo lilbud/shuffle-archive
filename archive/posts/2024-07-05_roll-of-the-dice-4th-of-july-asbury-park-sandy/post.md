@@ -130,7 +130,6 @@ That's something we all grapple with–but not always with the grace and success
 
 ---
 
-
 Bruce has performed "4th of July, Asbury Park (Sandy)" in concert hundreds of times, making it almost impossible to pick out just a few standouts. But I'll share two of my favorites, because I think they pair well together.
 
 The first is from the Darkness Tour in 1978, from Bruce's legendary shows at the Capitol Theater in Passaic. I love the clip below in part because of the joy and freedom in his performance. By this time, he'd successfully established himself as a successful rock star, and even though his vocals are as passionate (or even more so) than ever, there's a sense of the artist at peace.

@@ -122,7 +122,7 @@ There were hints of unrest to come, of course: a polarized electorate, a nascent
 Looking back from today, we can clearly see the breadcrumbs. But back then…. well, none of this had happened yet.
 
 **Livin' in the Future**<br>
-**Recorded:** March 2007  
+**Recorded:** March 2007
 **Released:** *Magic* (2007)
 **First performed:** September 24, 2007 (Asbury Park, NJ)<br>
 **Last performed:** August 30, 2008 (Milwaukee, WI)<br>

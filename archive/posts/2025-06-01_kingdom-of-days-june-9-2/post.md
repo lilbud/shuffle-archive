@@ -1,5 +1,4 @@
 
-
 *New entry for 1977***New for 2025:**
 
 The Castiles play the Senior Farewell Dance at Freehold Regional High School.
@@ -30,11 +29,7 @@ Bruce and Pete Townshend catch U2's gig at the Hammersmith Palais in London.
 
 **1981:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1981-0609-300x224.jpg?resize=758%2C566)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1981-06-09.jpg?resize=758%2C351&amp;ssl=1)
 

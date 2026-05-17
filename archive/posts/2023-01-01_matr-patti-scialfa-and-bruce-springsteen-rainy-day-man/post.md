@@ -23,5 +23,3 @@ I'm not aware of a live performance of "Rainy Day Man," sadly, and that's too ba
 **Rainy Day Man**<br>
 **Released:** *Play It As It Lays* (2007)<br>
 **Never Performed**<br>
-
-

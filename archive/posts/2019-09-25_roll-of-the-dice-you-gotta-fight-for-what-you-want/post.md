@@ -41,13 +41,9 @@ The earlier song comes off like mansplaining (even if that wasn't a term or a no
 
 Still, "You Gotta Fight (For What You Want)" provides insight into the influences and themes that would before long inform *The River.*
 
-
-
 **You Gotta Fight (For What You Want)**<br>
 **Recorded** Late 1979 (demo)
 **Never released**<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-

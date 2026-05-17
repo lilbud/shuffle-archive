@@ -1,5 +1,4 @@
 
-
 Bruce cancels a scheduled performance at Minnesota State University and instead records "The Fever" at 914 Sound Studios in Blauvelt, New York. It will remain in the vault for 26 years until Bruce finally releases it on .
 
 **1973:** *Tracks*
@@ -20,15 +19,11 @@ Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at 
 
 **1982:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1982-0516.jpg?resize=369%2C470&amp;ssl=1)
 
 : Bruce and Julianne leave Lake Oswego, Oregon, for their honeymoon.
 
 **1985**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1985-0516.jpg?resize=489%2C673&amp;ssl=1)
 
@@ -129,7 +124,5 @@ Bruce tour debuts a show-opening "Who'll Stop the Rain" and a unseasonable "Sant
 President Trump dismisses Bruce's recent on-stage comments, calling Springsteen a "pushy, obnoxious jerk," "dumb as a rock," and a "dried out prune."
 
 **2025:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/The_Times_2025_05_17_A3.jpg?resize=758%2C505&amp;ssl=1)

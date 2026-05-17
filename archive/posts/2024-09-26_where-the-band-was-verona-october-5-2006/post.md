@@ -63,5 +63,3 @@ But Bruce had one more song to send us off with — a celebratory arrangement of
 Looking back, what I remember most about this show are the *feelings* more than the performances, the crowd more than the band, and that gorgeous venue under the starriest sky on a perfect night, half a world away from my home and my life.
 
 It remains my all-time favorite show, even if my memories of it are inconsistently vivid. If you ever have a chance to see a show there–*any* show, by any artist–take it.
-
-

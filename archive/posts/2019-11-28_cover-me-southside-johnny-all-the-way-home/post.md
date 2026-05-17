@@ -5,5 +5,3 @@ From Southside Johnny's 1991 *Better Days* LP, this is the definitive version of
 (Listen carefully–you'll hear Bruce on backing vocals and keyboard.)
 
 [Watch on Youtube: All The Way Home](https://www.youtube.com/watch?v=MaXBYo7hHdg)
-
-

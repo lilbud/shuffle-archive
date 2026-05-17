@@ -73,7 +73,7 @@ In concert, Bruce has played it only three times, and only by dedication or requ
 [Watch on Youtube: Terry's Song - Bruce Springsteen - Perth Arena 8-2-14](https://www.youtube.com/watch?v=sNW3knnity0)
 
 **Terry's Song**<br>
-**Recorded:** August 2007  
+**Recorded:** August 2007
 **Released:** *Magic* (2007)<br>
 **First performed:** August 2, 2007 (Red Bank, NJ)<br>
 **Last performed:** February 8, 2014 (Perth, Australia)<br>

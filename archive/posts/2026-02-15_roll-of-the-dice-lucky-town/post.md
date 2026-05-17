@@ -52,7 +52,6 @@ Those final lines still resonate years later, and as a personal credo you could 
 
 ---
 
-
 "Lucky Town" made its official live debut at an intimate, private show for Sony insiders; the rest of us were introduced to it when Bruce played it as his first-ever performance on *Saturday Night Live*, more than a month before he kicked off his world tour.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kisUZm1yMpQ)
@@ -70,7 +69,7 @@ But the full-on E Street Band version shines too. I'll leave you with a great re
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aX6dOswftlc)
 
 **Lucky Town**<br>
-**Recorded:** September 1992-January 1992  
+**Recorded:** September 1992-January 1992
 **Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003)<br>
 **First performed:** May 6, 1992 (New York City, NY)<br>
 **Last performed:** January 26, 2026 (Red Bank, NJ)<br>

@@ -37,7 +37,7 @@ Bruce isn't encouraging us to not wish–he's urging us to lean in and accept th
 
 This is a cautionary tale about caution.
 
-We have crossed many rivers, but there are many more ahead.  
+We have crossed many rivers, but there are many more ahead.
 We've been burned and broken-hearted, but we can't help but hope and risk love again.
 
 Bruce closes the song by returning to the lake he fell into as a boy, this time deliberately drinking from it and ignoring the voice of the lake's angel.

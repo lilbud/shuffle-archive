@@ -1,5 +1,4 @@
 
-
 Night Four of five for Bruce at The Quiet Knight in Chicago opening for the Persuasions.
 
 **1973:**<br>
@@ -11,8 +10,6 @@ Bruce and the E Street Band wrap the first leg of the Tour at the Carrier Dome i
 [https://videopress.com/embed/oIAPRV7U?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oIAPRV7U?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/The_Ithaca_Journal_1985_01_28_Page_1.jpg?resize=758%2C1093&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1985-01-27b.png?resize=758%2C422&amp;ssl=1)
 
@@ -56,8 +53,6 @@ Bruce takes his solo tour to Tokyo, playing the first of four shows at the Inter
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2009-01-27a.png?resize=758%2C1073&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2009-01-27b.png?resize=758%2C1448&amp;ssl=1)
 
 The River Tour (2016 Edition) moves on to Madison Square Garden, where "" makes its tour premiere.
@@ -86,14 +81,10 @@ continues its theatrical run at the Walter Kerr Theater in New York City. David 
 
 **2018:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/01/patticrosby-300x300.jpg?resize=758%2C757)
 
 Bruce takes a break from rehearsing for his upcoming world tour and stops by the Springsteen Archives and Center for American Music at Monmouth University. (photo from Springsteen Archives Instagram)
 
 **2023:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Screenshot-2025-11-12-101723.jpg?resize=758%2C571&amp;ssl=1)

@@ -29,5 +29,3 @@ It was an inspired choice by a rock star who was also a huge film buff. Because 
 **High School Confidential**<br>
 **First performed:** August 14, 1978 (Hampton, VA)<br>
 **Last performed:** November 5, 2022 (Los Angeles, CA)<br>
-
-

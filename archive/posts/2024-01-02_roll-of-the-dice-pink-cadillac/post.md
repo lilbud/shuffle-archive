@@ -58,8 +58,6 @@ It's also even more overt than the finished version, which you might not have th
 > *Can you imagine what would have happened if she'd just stepped back*<br>
 > *And showed him her pink Cadillac*<br>
 
-
-
 [Watch on Youtube: RARE! Pink Cadillac-Bruce Springsteen](https://www.youtube.com/watch?v=61R5ECzHMiM)
 
 There's also another section toward the end of the song where Bruce makes it clear that he's not exactly thinking beyond the here and now:

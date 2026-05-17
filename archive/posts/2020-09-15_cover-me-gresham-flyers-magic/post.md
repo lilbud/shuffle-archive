@@ -8,6 +8,4 @@ To that, I answer only: listen to this.
 
 [Watch Video](https://bandcamp.com/EmbeddedPlayer/album=136685173/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/track=4208253094/transparent=true/)
 
-
-
 The Flyers do a bang-up job of transforming Bruce's moody caution into a sinister rocker without losing an ounce of the original's impact–which is good, because this is a song that deserves attention today more than ever.

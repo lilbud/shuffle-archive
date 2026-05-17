@@ -1,5 +1,4 @@
 
-
 Bruce Springsteen is no stranger to Eric Burdon and The Animals.
 
 Bruce's intense covers of "" (performed a remarkable 88 times over a three-year span in the mid-1970s) are legendary, certainly ranking among Bruce's all-time best covers.

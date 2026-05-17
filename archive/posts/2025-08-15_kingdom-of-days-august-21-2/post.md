@@ -1,12 +1,9 @@
 
-
 *New entry for 1979 and 2024***New for 2025:**
 
 The Castiles co-headline with The Rogues at the Surf ‘n' See Club in Sea Bright, New Jersey.
 
 **1966:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1966-0821-227x300.jpg?resize=758%2C1002)
 
@@ -14,15 +11,11 @@ Bruce and the E Street Band play their second night of a week-long residency at 
 
 **1973:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1973-0821-203x300.jpg?resize=758%2C1120)
 
 Bruce opens a three-night stand at Alex Cooley's Electric Ballroom in Atlanta.
 
 **1975:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1975-0821-300x219.jpg?resize=758%2C553)
 
@@ -33,8 +26,6 @@ Bruce, the E Street Band, and the Miami Horns bring the Lawsuit Tour to the Pala
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAjgbMwpEkMyYVEXwh-zM2O](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAjgbMwpEkMyYVEXwh-zM2O)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1976-08-21-136x300.png?resize=758%2C1672)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1976-0821-287x300.jpg?resize=758%2C793)
 
@@ -74,15 +65,13 @@ Bruce and Stevie share a stage again, when Bruce joins Steve and The Disciples o
 
 [https://www.youtube.com/embed/63bxYb-NsOw?feature=oembed](https://www.youtube.com/embed/63bxYb-NsOw?feature=oembed)
 
-Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for "" and "" 
+Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for "" and ""
 
 **1988:** [Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)[Around and Around.](http://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)(Photo credit: Debra Rothenberg)
 
 [https://videopress.com/embed/38uvJMi5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/38uvJMi5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1988-08-21-153x300.png?resize=758%2C1487)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1988-0821.jpg?resize=758%2C948)
 
@@ -100,8 +89,6 @@ Bruce and his 1992-93 touring band bring World Tour 1992 to the Richfield Colise
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-21a-300x268.png?resize=758%2C677)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-21b-300x212.png?resize=758%2C536)
 
 Bruce and the reunited E Street Band kick off a five-night Boston stand at the Fleet Center.
@@ -114,11 +101,9 @@ Bruce and the reunited E Street Band kick off a five-night Boston stand at the F
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1999-0821-201x300.jpg?resize=758%2C1131)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1999-08-21-224x300.png?resize=758%2C1015)
 
-Bruce debuts the modern-day rock arrangement of "" at his Rising Tour show in Tacoma. It will be an E Street Band tour staple ever after. Also tour premiering at this show: "." For more highlights from this show, see my 
+Bruce debuts the modern-day rock arrangement of "" at his Rising Tour show in Tacoma. It will be an E Street Band tour staple ever after. Also tour premiering at this show: "." For more highlights from this show, see my
 
 **2002:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)[](http://estreetshuffle.com/index.php/2018/08/21/where-the-band-was-tacoma-august-21-2002/)*Where the Band Was*[report.](http://estreetshuffle.com/index.php/2018/08/21/where-the-band-was-tacoma-august-21-2002/)
 
@@ -129,8 +114,6 @@ Bruce debuts the modern-day rock arrangement of "" at his Rising Tour show in Ta
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCglog4rO23DhkYFmSYQjxS](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zCglog4rO23DhkYFmSYQjxS)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2002-08-21a.jpg?resize=758%2C980&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2002-08-21b.jpg?resize=758%2C1285&amp;ssl=1)
 
@@ -150,8 +133,6 @@ Bruce and his daughter Jessica appear together on the cover of Harper's Bazaar.
 
 **2018:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/2018-0821-225x300.jpg?resize=683%2C909)
 
 Bruce sends a pre-recorded birthday video for a Save Our Stages benefit in honor of Joe Strummer.
@@ -164,17 +145,15 @@ Bruce is scheduled to perform "Because the Night" with Patti Smith at Clive Davi
 
 **2021:** *We Love NYC: The Homecoming Concert*,
 
-Join CNN Saturday August 21st for a once in a lifetime concert event! 
+Join CNN Saturday August 21st for a once in a lifetime concert event!
 
-WE LOVE NYC – The Homecoming Concert starts at 5 p.m. ET. Presented by 
+WE LOVE NYC – The Homecoming Concert starts at 5 p.m. ET. Presented by
 
 [@Expedia](https://twitter.com/Expedia?ref_src=twsrc%5Etfw)[pic.twitter.com/A5RXHG3fHs](https://t.co/A5RXHG3fHs)
 
 — CNN (@CNN)
 
 [August 14, 2021](https://twitter.com/CNN/status/1426355433028136960?ref_src=twsrc%5Etfw)
-
-
 
 More than a year after its originally scheduled date, Bruce and the E Street Band take the stage at Citizens Bank Park in Philadelphia, where "" makes its unsurprising tour debut.
 

@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 Castiles drummer Bart Haynes quits the band. A year later, Bart will join the Marines and ship out to Vietnam, where he will be killed in action. Bruce will remember Bart often–in his shows, in print, and on Broadway.
@@ -36,11 +35,7 @@ Bruce and the E Street Band kick off a four-night stand at the Los Angeles Sport
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-10-30a-300x222.png?resize=758%2C561)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1980-10-30b.png?resize=758%2C1601&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/33582182768_17f5871a49_o-159x300.jpg?resize=758%2C1430)
 
@@ -62,8 +57,6 @@ Also today, Bruce donates a complete signed collection of his albums to The Rain
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1987-10-30a-300x267.png?resize=758%2C675)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1987-10-30b-300x268.png?resize=758%2C677)
 
 Bruce and his new touring band bring World Tour 1992 to Iowa State University in Ames.
@@ -73,8 +66,6 @@ Bruce and his new touring band bring World Tour 1992 to Iowa State University in
 [https://videopress.com/embed/9XFkbcPs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9XFkbcPs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/10/1992-10-30a.png?resize=758%2C915&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1992-10-30b.png?resize=758%2C1736&amp;ssl=1)
 
@@ -118,11 +109,7 @@ A scheduled Wrecking Ball show in Rochester is postponed to the following day du
 
 **2012:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/2012-1030-300x160.jpg?resize=758%2C403)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2012-10-30-124x300.png?resize=758%2C1834)
 
@@ -134,11 +121,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 **2018:** *Springsteen on Broadway*
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-30b-300x242.jpg?resize=758%2C611)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-30a-300x200.jpg?resize=758%2C505)
 
@@ -148,11 +131,7 @@ Fifth-grader Camryn Sherer interviews Bruce for her school newspaper and scores 
 
 **2019:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2019-10-30a_LI.jpg?resize=758%2C728&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2019-10-30b-1.jpg?resize=758%2C205&amp;ssl=1)
 

@@ -1,12 +1,9 @@
 
-
 *Audio for 1981; new entry for 2013 and 2024***New for 2025:**
 
 Bruce and the E Street Band headline at The Main Point in Bryn Mawr, Pennsylvania. Bruce is no stranger to having his name misspelled by now, but this is a new one.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/mainpoint-1-300x176.jpg?resize=758%2C446)
 
@@ -84,11 +81,7 @@ Bruce guest-stars at Joe Grushecky's acoustic show at Hooligans in Long Branch, 
 
 **1999:** [Never Be Enough Time,](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/)[Pumping Iron](http://estreetshuffle.com/index.php/2018/11/03/meeting-across-the-river-bruce-springsteen-and-joe-grushecky-pumping-iron/)[Brown Eyed Girl](http://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1999-0709.jpg?resize=758%2C728)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1999-07-09-120x300.jpg?resize=758%2C1895)
 

@@ -1,20 +1,15 @@
 
-
 *Audio for 1975***New for 2025:**
 
 The Bruce Springsteen Band headlines two shows at D'Scene in South Amboy, New Jersey.
 
 **1971:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1971-0722-300x207.jpg?resize=734%2C506)
 
 Bruce and his band headline two shows at Max's Kansas City in New York, with The Wailers opening for them.
 
 **1973:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/1973-07-22-288x300.jpg?resize=753%2C784)
 
@@ -30,23 +25,17 @@ It's Night Two on the Born to Run Tour, and the band continues developing the sh
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1975-07-22.jpg?resize=758%2C921&amp;ssl=1)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1975-07-22-300x270.png?resize=758%2C682)
 
 : CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on "" and "."
 
 **1976**[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)[I Don't Want to Go Home](http://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1976-0722-226x300.jpg?resize=758%2C1006)
 
 Bruce's Darkness Tour show in Birmingham, Alabama is postponed to September due to a throat infection.
 
 **1978:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/07/The_Anniston_Star_1978_07_15_Page_27.jpg?w=758&amp;ssl=1)
 
@@ -70,11 +59,7 @@ Bruce makes a surprise appearance at Tradewinds in Sea Bright with Joe Grushecky
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1995-0722-300x165.jpg?resize=742%2C408)
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1995-07-22a.png?resize=758%2C1053&amp;ssl=1)
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1995-07-22b-300x263.png?resize=758%2C665)
 
@@ -85,8 +70,6 @@ Bruce and the E Street Band rehearse for the upcoming Rising Tour at the Expo Th
 Bruce takes a stroll along the Jersey shore, stops and borrows a guitar, and plays "Born to Run."
 
 **2011:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/2011-0722-300x300.jpg?resize=758%2C758)
 

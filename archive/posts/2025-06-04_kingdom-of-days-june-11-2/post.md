@@ -1,5 +1,4 @@
 
-
 *No updates***New for 2025:**
 
 The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a show at Stadio Comunale in Turin that features the tour premiere of "Because the Night."
@@ -51,8 +50,6 @@ The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where "" makes
 Bruce joins Jackson Browne, Tom Chapin, and others at a World Hunger Year benefit at The Lighthouse at Chelsea Piers in New York City.
 
 **2007:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Oakland_Tribune_Wed__Jun_13__2007_.jpg?resize=758%2C703&amp;ssl=1)
 

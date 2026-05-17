@@ -1,5 +1,4 @@
 
-
 Written by Sonny Bono and Jack Nitzsche, "Needles and Pins" was first recorded in 1963 by Jackie DeShannon, who scored a minor hit with it, peaking at #84 in the U.S. (but taking it all the way to the top in Canada.)
 
 [https://www.youtube.com/embed/SSbM_Zmx9kA?feature=oembed](https://www.youtube.com/embed/SSbM_Zmx9kA?feature=oembed)

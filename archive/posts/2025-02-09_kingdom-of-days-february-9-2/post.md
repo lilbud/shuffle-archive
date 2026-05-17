@@ -29,5 +29,3 @@
 [Watch on Youtube: Be True - Bruce Springsteen - Sydney Qudos Arena - 9th February 2017](https://www.youtube.com/watch?v=lfpkS8epHWk)
 
 [Watch on Youtube: Bruce Springsteen - Sydney, February 9, 2017 - Detroit Medley](https://www.youtube.com/watch?v=sut4A5aYFl8)
-
-

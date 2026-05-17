@@ -27,5 +27,3 @@ Finally, also by the time this sees print, my review of the aforementioned AB25 
 That's all for now, but I'll be back tomorrow with a couple more special treats. (So maybe this isn't really a break after all?)
 
 Anyway, thanks for sticking with me while I moonlight a bit. I'll be back home and blogging away again in a couple of days–look for a new *Roll of the Dice* this weekend.
-
-

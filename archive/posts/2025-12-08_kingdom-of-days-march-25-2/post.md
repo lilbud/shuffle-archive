@@ -1,10 +1,7 @@
 
-
 The Chicken Scratch Tour kicks off with a show at the Township Auditorium in Columbia, South Carolina–Bruce's first time performing in the state.
 
 **1976:**<br>
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/The_Columbia_Record_1976_03_26_page_6.jpg?resize=758%2C485&amp;ssl=1)
 

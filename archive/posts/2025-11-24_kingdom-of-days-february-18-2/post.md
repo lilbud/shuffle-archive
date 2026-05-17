@@ -1,5 +1,4 @@
 
-
 The Bruce Springsteen Band plays at The Back Door in Richmond.
 
 **1972:**<br>
@@ -8,15 +7,11 @@ Bruce cancels a concert in Cleveland after firing drummer Vini Lopez the week be
 
 **1974:**<br>
 
-
-
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/The_Plain_Dealer_1974_02_08_84.jpg?resize=144%2C300&amp;ssl=1)
 
 Bruce and the E Street Band play a gig at John Carroll University in Cleveland. Tim Russert organized the concert; Tim will later go on to host for many years.
 
 **1975:** ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1972-02-18.jpg?resize=758%2C972&amp;ssl=1)*Meet the Press*
-
-
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1975-02-18-204x300.jpg?resize=758%2C1114)
 

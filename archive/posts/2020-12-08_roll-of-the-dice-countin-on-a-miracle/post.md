@@ -62,7 +62,6 @@ The reference to a higher power isn't an affirmation of faith; it's an accusatio
 
 ---
 
-
 "Countin' on a Miracle" is a heartbreaking expression of love, loss, and resilience. It's right at home thematically on *The Rising*, an album released in the aftermath of the September 11, 2001 terrorist attacks. The historical context amplifies the already considerable emotional weight of the song–it's likely that the narrator's loss was one of the many lives claimed on that tragic day, which makes her lament of her love's kiss being stolen from her and the image of their love being dust beneath her feet less metaphorical and more literal.
 
 But again, you'd be forgiven for not feeling the weight of the song in its originally released arrangement. Even performed live with the E Street Band, the song can't quite convey the pain felt by the singer:
@@ -84,7 +83,6 @@ I found myself staying behind at every show I attended on that tour just to hear
 The country blues version of "Countin' on a Miracle" remains the definitive version of the song for me.
 
 ---
-
 
 **Bonus #1:** As the Rising Tour progressed, so did the arrangement of "Countin' on a Miracle." While the main song never evolved beyond its album arrangement, starting with the Rotterdam show in October 2002, Nils Lofgren contributed an exquisite acoustic guitar introduction that did more than provide the band a momentary breather in between songs–it helped established the delicateness and fragility of life and love. It immediately became a nightly highlight. Here's the first time Nils contributed his magic to "Countin' on a Miracle:"
 
