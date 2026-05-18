@@ -27,6 +27,9 @@
         "md033": {
             "enabled": false
         },
+        "md037": {
+            "enabled": true
+        },
         "md041": {
             "enabled": false
         },

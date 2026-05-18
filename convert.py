@@ -8,6 +8,20 @@ import html_to_markdown
 from cleanup import initial_cleanup
 
 
+def extra_fixes(content: str) -> str:
+    """Apply a few fixes for missing bolded tags."""
+    for line in content.split("\n"):
+        # missing ending bold tag
+        if line.startswith("**") and not line.endswith("**") and ":**" not in line:
+            content = content.replace(line, f"{line}**")
+
+        # missing starting bold tag
+        if not line.startswith("**") and ":**" in line:
+            content = content.replace(line, f"**{line}")
+
+    return content
+
+
 def save_to_archive(post: dict) -> None:
     """Save post to archive folder as MD and JSON."""
     date = datetime.datetime.strptime(
@@ -17,6 +31,8 @@ def save_to_archive(post: dict) -> None:
 
     content = initial_cleanup(post["content"]["rendered"])
     content = html_to_markdown.convert(content)
+
+    content = extra_fixes(content)
 
     save_path = Path(f"./archive/posts/{date.date()}_{post['slug']}")
 

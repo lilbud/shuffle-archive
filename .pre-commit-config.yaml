@@ -3,4 +3,4 @@ repos:
     rev: v0.9.37  # Replace with the latest version/tag
     hooks:
       - id: pymarkdown
-        args: [fix]
+        args: ["fix"]

@@ -26,24 +26,24 @@ In 2025, Springsteen re-introduced “Chimes of Freedom” to his set list, this
 
 This time, Bruce didn’t let the music speak for itself. On opening night in Minneapolis in 2026, before launching into the first verse, Bruce hushed the band and reminded the audience about the importance of adhering to our American values and our duty to each other and to our country:
 
-*These are the hard times, but, we’ll make it through… We’re the Americans.*
+> *These are the hard times, but, we’ll make it through… We’re the Americans.*
+>
+> *I know for me, the hardest part about all of this is feeling the distance between your neighbors, your fellow citizens, and that distance… it can darken your soul. We have a leader who says he wishes nothing but ill upon the people he disagrees with and who disagree with him.*
+>
+> *Well, I don’t feel that way.*
+>
+> *America, from the beginning, was born out of disagreement, was built on disagreement. We can argue about what course we think the country should take, while recognizing our common humanity, our dignity, and yes, our unity.*
+>
+> *Now, I go back to thinking about Renée Good's last words before she died, to the man who she was protesting against, the man who would take her life. She said, "That's fine, dude, I'm not mad at you. I'm not mad." God bless her.*
+>
+> *So tonight, when you go home, hold your loved ones close. And tomorrow, do as Renée did, find a way to take aggressive, peaceful action to defend our country's ideals.*
+>
+> *And as the great civil rights leader John Lewis said, "Go out and get into some good trouble."*
 
-*I know for me, the hardest part about all of this is feeling the distance between your neighbors, your fellow citizens, and that distance… it can darken your soul. We have a leader who says he wishes nothing but ill upon the people he disagrees with and who disagree with him.*
-
-*Well, I don’t feel that way.*
-
-*America, from the beginning, was born out of disagreement, was built on disagreement. We can argue about what course we think the country should take, while recognizing our common humanity, our dignity, and yes, our unity.*
-
-*Now, I go back to thinking about Renée Good's last words before she died, to the man who she was protesting against, the man who would take her life. She said, "That's fine, dude, I'm not mad at you. I'm not mad." God bless her.*
-
-*So tonight, when you go home, hold your loved ones close. And tomorrow, do as Renée did, find a way to take aggressive, peaceful action to defend our country's ideals.*
-
-*And as the great civil rights leader John Lewis said, "Go out and get into some good trouble."*
-
-**Chimes of Freedom  
-Recorded:** July 3, 1988  
-**Released:** *Chimes of Freedom* (1988)  
-**First performed:** September 1, 1978 (Detroit, MI)  
+**Chimes of Freedom
+Recorded:** July 3, 1988
+**Released:** *Chimes of Freedom* (1988)
+**First performed:** September 1, 1978 (Detroit, MI)
 **Last performed:** May 14, 2026 (New York City, NY)
 
 © July 18, 2018 / April 26, 2026

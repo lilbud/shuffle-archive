@@ -106,6 +106,19 @@ def initial_cleanup(orig_content: str) -> str:
     # replace bad single quote
     orig_content = re.sub("‘|’", "'", orig_content)
 
+    # fix missing bold
+    orig_content = re.sub("^([ \t]*\\*\\*[^\\*]*?)(?<!\\*\\*)$", r"\1**", orig_content)
+
+    # fix missing start bold
+    orig_content = re.sub(
+        r"^(((First|Last) performed|Recorded):\*\*.*)$",
+        r"**\1",
+        orig_content,
+    )
+
+    # add linebreak at end of bolded line
+    orig_content = re.sub(r"^(\*{2}.*[^>])$", r"\1<br>", orig_content)
+
     soup = bs4(orig_content, "lxml")
 
     # fix iframes having embed links instead of direct

@@ -17,19 +17,19 @@ from database import load_db
 # toedit = []
 
 # cookies = {"wordpress_test_cookie": "WP Cookie check"}
-headers = {
-    "User-Agent": generate_user_agent(),
-    # "Accept": "text/html,application/xhtml+xml,application/xml;q=0.9,*/*;q=0.8",
-    # "Accept-Language": "en-US,en;q=0.5",
-    # "Accept-Encoding": "gzip, deflate, br, zstd",
-    # "Connection": "keep-alive",
-    # "Cookie": "wordpress_test_cookie=WP%20Cookie%20check",
-    # "Upgrade-Insecure-Requests": "1",
-    # "Sec-Fetch-Dest": "document",
-    # "Sec-Fetch-Mode": "navigate",
-    # "Sec-Fetch-Site": "cross-site",
-    # "Priority": "u=0, i",
-}
+# headers = {
+# "User-Agent": generate_user_agent(),
+# "Accept": "text/html,application/xhtml+xml,application/xml;q=0.9,*/*;q=0.8",
+# "Accept-Language": "en-US,en;q=0.5",
+# "Accept-Encoding": "gzip, deflate, br, zstd",
+# "Connection": "keep-alive",
+# "Cookie": "wordpress_test_cookie=WP%20Cookie%20check",
+# "Upgrade-Insecure-Requests": "1",
+# "Sec-Fetch-Dest": "document",
+# "Sec-Fetch-Mode": "navigate",
+# "Sec-Fetch-Site": "cross-site",
+# "Priority": "u=0, i",
+# }
 
 
 # for file in Path("ia_json").glob("*.txt"):
@@ -50,15 +50,8 @@ with load_db() as conn, conn.cursor() as cur:
         # print(file.parent.name)
         content = file.read_text(encoding="utf-8")
 
-        if re.search(r"\*\*(First|Last) performed:\*\*<br>", content):
-            print(file.parent.name)
-            data = json.loads(
-                Path(
-                    f"./archive/posts/{file.parent.name}/meta.json",
-                ).read_text(encoding="utf-8"),
-            )
+        for line in content.split("\n"):
+            if line.startswith("**") and not line.endswith("<br>") and ":**" in line:
+                content = content.replace(line, f"{line}<br>")
 
-            content = initial_cleanup(data["content"]["rendered"])
-            content = html_to_markdown.convert(content)
-
-            file.write_text(content, encoding="utf-8")
+        file.write_text(content, encoding="utf-8")
