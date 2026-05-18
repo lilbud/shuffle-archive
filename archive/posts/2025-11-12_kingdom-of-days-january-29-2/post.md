@@ -54,7 +54,7 @@
 
 **2014:** The final night in Cape Town brings *sixteen* tour premieres, including the first-ever performance of “[This Is Your Sword.](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)” Mos Def guest-stars in the encore for “Sun City.”<br>
 
-![](../../assets/2018/01/2014-0129.jpg)
+![](../../assets/2018/01/20140129-CapeTown-Centermic-After.jpg)
 
 [Watch on Youtube: Bruce Springsteen - 2014-01-29 - Cape Town Bellville Velodrome - Sun City](https://www.youtube.com/watch?v=3JlUbRAxNCY)
 

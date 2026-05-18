@@ -10,7 +10,7 @@
 
 [Watch on Youtube: October 21st, 1984 - Oakland, CA](https://www.youtube.com/playlist?list=PLsxNBNx2akeX6UL9GTRQMANd8cU9njFV4)
 
-![](../../assets/2021/10/1984-1001.jpg)
+![](../../assets/2021/10/1984-1021.jpg)
 
 ![](../../assets/2020/10/1984-10-21a-1.png)
 

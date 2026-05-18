@@ -22,7 +22,7 @@
 
 ![](../../assets/2021/01/1992-01-24a.jpg)
 
-![](../../assets/2021/01/Springsteen-Lucky-Human-Buy-Sheets_0003.jpg)![](../../assets/2021/01/Springsteen-Lucky-Human-Buy-Sheets_0006.jpg)
+![](../../assets/2021/03/Springsteen-Lucky-Human-Buy-Sheets_0003.jpg)![](../../assets/2021/01/Springsteen-Lucky-Human-Buy-Sheets_0006.jpg)
 
 ![](../../assets/2021/01/Springsteen-Lucky-Human-Buy-Sheets_0007.jpg)
 

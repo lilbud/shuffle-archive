@@ -4,7 +4,7 @@
 
 **1973:** Bruce plays the first night of seven at Oliver’s in Boston.<br>
 
-![](../../assets/2018/03/1973-0316-1.jpg)
+![](../../assets/2018/03/1973-0316.jpg)
 
 **1981:** A mere five days away from his scheduled twelve-show River Tour stand in the U.K., Bruce postpones all shows until late May and early June due to exhaustion from the American leg of the tour.<br>
 

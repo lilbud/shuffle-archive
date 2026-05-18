@@ -2,7 +2,7 @@
 
 **1973:** Bruce headlines his final show of a three-night stand at My Father’s Place in Roslyn, New York.<br>
 
-![](../../assets/2019/10/1973-11-14.jpg)
+![](../../assets/2019/10/1973-11-15.jpg)
 
 **1974:** Bruce and the E Street Band play a gig at American University in Washington, DC, where Bruce’s cover of “[Wear My Ring Around Your Neck](https://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)” makes its debut.<br>
 

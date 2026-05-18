@@ -82,7 +82,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uh_QQl1Xm_o)
 
-![](../../assets/2018/07/circus.jpg)
+![](../../assets/2025/07/circus-1.jpg)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: John Mellencamp and Clark Gayton.<br>
 

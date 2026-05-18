@@ -4,7 +4,7 @@ I'm guessing, of course, but I'm pretty sure that Bruce didn't have musical acco
 
 Not only do the structure and meter of Bruce's lyrics suggest a more poetic than melodic intent, the opening line and several of his phrases appear in a poem entitled "My Lady" that Bruce submitted to *Seascape*, the literary magazine of Ocean County College*.* (The magazine published Bruce's poem in their January 1969 issue.)
 
-![](../../assets/2021/04/my-lady.jpg)
+![](../../assets/2022/01/1969_seascape_mylady.jpg)
 
 "Love Cycle" shares a lot of DNA with "My Lady," but it's a very different piece. It appears very late in Bruce's 1968 notebook, suggesting that it dates to the final months of that year–very possibly an early or abandoned version that gave rise to "My Lady" instead.
 

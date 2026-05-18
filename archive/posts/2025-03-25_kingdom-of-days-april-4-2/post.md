@@ -56,7 +56,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/P8RSioXo)
 
-![](../../assets/2018/04/2000-04-04a.jpg)
+![](../../assets/2020/03/2000-04-04a.jpg)
 
 ![](../../assets/2020/03/2000-04-04b.jpg)
 

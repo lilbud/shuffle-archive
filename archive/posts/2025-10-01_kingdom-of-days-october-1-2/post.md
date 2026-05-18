@@ -22,7 +22,7 @@
 
 **1984:** The San Mateo Times publishes the only interview Bruce's dad is known to have ever given. (Bruce's parents are local residents.)<br>
 
-![](../../assets/2021/10/1984-1001.jpg)
+![](../../assets/2021/10/1984-1021.jpg)
 
 **1985:** The television series *Growing Pains* (starring Alan Thicke, an ardent Springsteen fan) airs an episode centered around the Born in the U.S.A. Tour.<br>
 

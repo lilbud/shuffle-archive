@@ -1,6 +1,6 @@
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
-![](../../assets/2018/03/1969-0409.jpg)
+![](../../assets/2025/04/19690402_Advert_02.jpg)
 
 *![](../../assets/2024/04/Asbury_Park_Press_Fri__Apr_11__1969_-scaled.jpg)*
 

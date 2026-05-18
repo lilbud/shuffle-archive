@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Springsteen cancels North Carolina concert over law limiting LGBT rights](https://www.youtube.com/watch?v=BhUNIDscQG4)
 
-![](../../assets/2020/04/2016-04-08.jpg)
+![](../../assets/2022/04/2016-04-08.jpg)
 
 **2020:** Bruce officially becomes a radio DJ when he premieres his new Sirius XM series, *From My Home to Yours*.<br>
 

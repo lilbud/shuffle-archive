@@ -24,7 +24,7 @@ The models may have be uppity, but we fans are grateful to be there. Bruce recog
 
 And I have the photo to prove it. See? That's me on the left, and Bruce is wearing the same shirt he wears in the video.
 
-![](../../assets/2019/06/Sandi-Bruce-Donna.jpg)
+![](../../assets/2019/06/bruceandsandi.jpg)
 
 ---
 

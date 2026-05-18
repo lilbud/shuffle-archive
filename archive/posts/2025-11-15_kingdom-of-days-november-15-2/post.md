@@ -2,7 +2,7 @@
 
 **1973:** Bruce and his band headline two shows at My Father's Place in Roslyn, New York.<br>
 
-![](../../assets/2019/10/1973-11-14.jpg)
+![](../../assets/2019/10/1973-11-15.jpg)
 
 **1974:** Bruce and the E Street Band play a show at Lafayette College in Easton, Pennsylvania.<br>
 

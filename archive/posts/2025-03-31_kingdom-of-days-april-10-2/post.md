@@ -2,7 +2,7 @@
 
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
-![](../../assets/2018/03/1969-0409.jpg)
+![](../../assets/2025/04/19690402_Advert_02.jpg)
 
 **1971:** The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays host to the “Bruce Springsteen Acoustyc Jam.”<br>
 

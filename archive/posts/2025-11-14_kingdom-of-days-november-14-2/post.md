@@ -8,7 +8,7 @@
 
 **1973:** Bruce and the band that will someday be named E Street headline two shows at My Father's Place in Roslyn, New York.<br>
 
-![](../../assets/2019/10/1973-11-14.jpg)
+![](../../assets/2019/10/1973-11-15.jpg)
 
 **1974:** A scheduled show at the Houston Music Hall on this date was cancelled and moved earlier to November 9th instead.<br>
 
