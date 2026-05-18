@@ -30,7 +30,7 @@ Well, except for the history. "Hang On Sloopy" actually started life as "My Girl
 
 But it was The McCoys/Strangeloves version that most people remember today, and remember it they do–at least in Greensboro.
 
-**Bonus:** Although that 2009 Greensboro performance was the first time Bruce performed "Hang On Sloopy" at an "official" concert, he'd actually played it fourteen years earlier on a whim when The Del Fuegos invited Bruce to the stage when he and Nils stopped by to see the band perform at a local club... in Greensboro.
+**Bonus:** Although that 2009 Greensboro performance was the first time Bruce performed "Hang On Sloopy" at an "official" concert, he'd actually played it fourteen years earlier on a whim when The Del Fuegos invited Bruce to the stage when he and Nils stopped by to see the band perform at a local club... in Greensboro.<br>
 
 But even that wasn't Bruce's first performance of "Hang On Sloopy." For that, you've got to go back one year further, to the night of January 14, 1984 at the Patrix in New Brunswick, New Jersey.
 

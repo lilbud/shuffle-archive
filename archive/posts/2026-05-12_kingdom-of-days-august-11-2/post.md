@@ -1,22 +1,22 @@
-**1972:** Bruce plays his third of six two-shows-a-night solo gigs at Max's Kansas City that week.
+**1972:** Bruce plays his third of six two-shows-a-night solo gigs at Max's Kansas City that week.<br>
 
-**1974**: Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions.
+**1974**: Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions.<br>
 
 ![](../../assets/2019/08/1974-08-11.jpg)
 
-**1977:** Bruce holds a recording session for his upcoming album at Atlantic Studios in New York City.
+**1977:** Bruce holds a recording session for his upcoming album at Atlantic Studios in New York City.<br>
 
-**1981:** Bruce and the E Street Band bring the River Tour to Detroit's Joe Louis Arena for the first of two nights.
+**1981:** Bruce and the E Street Band bring the River Tour to Detroit's Joe Louis Arena for the first of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/j4p8FdMJ)
 
 ![](../../assets/2020/07/1981-08-11.png)
 
-**1984:** At Night Five (of ten) at the Brendan Byrne Arena in East Rutherford, John Entwistle guest-stars on the show-closing "Twist and Shout."
+**1984:** At Night Five (of ten) at the Brendan Byrne Arena in East Rutherford, John Entwistle guest-stars on the show-closing "Twist and Shout."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/D7LMS4B8)
 
-**1985:** At Pittsburgh's Three Rivers Stadium, Nils and Roy miss their signal to take the stage, so Bruce starts the show and plays "Born in the U.S.A." without them. Bruce will do a pre-show headcount ever after.
+**1985:** At Pittsburgh's Three Rivers Stadium, Nils and Roy miss their signal to take the stage, so Bruce starts the show and plays "Born in the U.S.A." without them. Bruce will do a pre-show headcount ever after.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/LBLlimMh)
 
@@ -24,7 +24,7 @@
 
 ![](../../assets/2021/08/1985-08-11b-scaled.jpg)
 
-**1989:** Bruce makes a surprise guest appearance at the Garden State Arts Center in Holmdel, joining Ringo Starr and His All Starr Band (including Nils and Clarence) for the encores of "Get Back," "Long Tall Sally," "Photograph" and "With a Little Help From My Friends."
+**1989:** Bruce makes a surprise guest appearance at the Garden State Arts Center in Holmdel, joining Ringo Starr and His All Starr Band (including Nils and Clarence) for the encores of "Get Back," "Long Tall Sally," "Photograph" and "With a Little Help From My Friends."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OK-lSq3vVZ0)
 
@@ -36,7 +36,7 @@
 
 ![](../../assets/2020/07/1989-08-11b.png)
 
-**1999:** It's the penultimate show of Bruce and the E Street Band's fifteen-night Reunion Tour stand at East Rutherford's Continental Airlines Arena, and the show rockets out of the gate with the first performance of "Night" in fifteen years. Later in the show: the first "New York City Serenade" in 24 years, and the show-closing tour premiere of "4th of July, Asbury Park (Sandy)."
+**1999:** It's the penultimate show of Bruce and the E Street Band's fifteen-night Reunion Tour stand at East Rutherford's Continental Airlines Arena, and the show rockets out of the gate with the first performance of "Night" in fifteen years. Later in the show: the first "New York City Serenade" in 24 years, and the show-closing tour premiere of "4th of July, Asbury Park (Sandy)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/a9oVxoDc)
 
@@ -44,7 +44,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/bAJmbbez)
 
-**2003:** Bruce and the E Street Band wrap up their three-show Rising stand at Philadelphia's Lincoln Financial Field in peak form, opening with "From Small Things (Big Things One Day Come)," and tour premiering "I'm Goin' Down" and "Pretty Flamingo" (the latter of which hadn't been played in 25 years). Throw in a rare "Incident on 57th Street" "Be True," and a show-closing "I'm a Rocker," and you've got the makings of a killer setlist. And then there's that "Ramrod" under a full moon…
+**2003:** Bruce and the E Street Band wrap up their three-show Rising stand at Philadelphia's Lincoln Financial Field in peak form, opening with "From Small Things (Big Things One Day Come)," and tour premiering "I'm Goin' Down" and "Pretty Flamingo" (the latter of which hadn't been played in 25 years). Throw in a rare "Incident on 57th Street" "Be True," and a show-closing "I'm a Rocker," and you've got the makings of a killer setlist. And then there's that "Ramrod" under a full moon…<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DyPmTlgg180)
 
@@ -56,7 +56,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ItDtlDPy-nE)
 
-**2005:** Bruce continues his solo acoustic swing through the Pacific Northwest with a show at Seattle's Key Arena, where Bruce tour premieres "Be True" and plays a one-off guitar version of "For You."
+**2005:** Bruce continues his solo acoustic swing through the Pacific Northwest with a show at Seattle's Key Arena, where Bruce tour premieres "Be True" and plays a one-off guitar version of "For You."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DOr0YpxkVtI)
 
@@ -64,8 +64,8 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WUMuta55JIg)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2023:** Bruce and the E Street Band play their second of two shows at Wrigley Field in Chicago.
+**2023:** Bruce and the E Street Band play their second of two shows at Wrigley Field in Chicago.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tDV7mychhkw)

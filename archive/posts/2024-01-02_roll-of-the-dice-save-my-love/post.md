@@ -86,8 +86,8 @@ Although certainly still considered a rarity, "Save My Love" has made a handful 
 So while it may never be a staple of any tour's setlist, I doubt it's ever going to disappear again either. Here's hoping for the chance to hear it again on the next tour.
 
 **Save My Love**<br>
-**Recorded:** July 22, 2010
-**Released:** *The Promise* (2010)
+**Recorded:** July 22, 2010<br>
+**Released:** *The Promise* (2010)<br>
 **First performed:** November 4, 2010 (Pittsburgh, PA)<br>
 **Last performed:** September 5, 2016 (Virginia Beach, VA)<br>
 

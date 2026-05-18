@@ -91,7 +91,7 @@ But you never know… the road is long.
 
 **Further On (Up the Road)**<br>
 **Recorded** Early 2002<br>
-**Released:** *The Rising* (2002)
+**Released:** *The Rising* (2002)<br>
 **First performed:** June 4, 2000 (Atlanta, GA)<br>
 **Last performed:** May 23, 2014 (Pittsburgh, PA)<br>
 

@@ -70,7 +70,7 @@ Act III brings us back to where we started: the narrator's bedroom. This time th
 
 In the end, it's easy to see why "Arabian Nights" was voted off the island, but it remains a fascinating document of Bruce's barely pre-fame songwriting.
 
-**Bonus #1:** I mentioned earlier that there are three circulating recordings of "Arabian Nights." We heard the official studio recording above, but there are two earlier ones with slightly different lyrics. Here's the earliest recording of "Arabian Nights," recorded at Mike Appel's office on Valentine's Day, 1972.
+**Bonus #1:** I mentioned earlier that there are three circulating recordings of "Arabian Nights." We heard the official studio recording above, but there are two earlier ones with slightly different lyrics. Here's the earliest recording of "Arabian Nights," recorded at Mike Appel's office on Valentine's Day, 1972.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ClhigOsj)
 
@@ -81,7 +81,7 @@ This recording doesn't have the exchange between the narrator and his father; in
 > *Even if you fear what you hear, try to conceal it*<br>
 > *And if what Mama feels is too real, she just claims she don't feel it*<br>
 
-**Bonus #2:** These are Bruce's early handwritten lyrics for "Arabian Nights," and if you read carefully, you'll see several places where the lyrics differ from even that early version above.
+**Bonus #2:** These are Bruce's early handwritten lyrics for "Arabian Nights," and if you read carefully, you'll see several places where the lyrics differ from even that early version above.<br>
 
 ![](../../assets/2020/01/39291198220_af0a8f7ba4_o.jpg)
 

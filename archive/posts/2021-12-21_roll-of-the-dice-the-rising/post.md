@@ -160,13 +160,13 @@ In craft, content, performance, and artistry, it stands incontrovertibly as one 
 
 ---
 
-**Bonus:** The 2020 official video for "The Rising" wasn't the first video for the song (although it's certainly the most viewed). Back in 2003, a video for "The Rising" aired once–and only once–on an Australian television show called *Rage*. As far as I know, it was never aired before or since, but it's floated around collector's circles and YouTube for years. It's not a great video (which may be why it's never been seen or even acknowledged since), but as a curiosity, it's worth a watch.
+**Bonus:** The 2020 official video for "The Rising" wasn't the first video for the song (although it's certainly the most viewed). Back in 2003, a video for "The Rising" aired once–and only once–on an Australian television show called *Rage*. As far as I know, it was never aired before or since, but it's floated around collector's circles and YouTube for years. It's not a great video (which may be why it's never been seen or even acknowledged since), but as a curiosity, it's worth a watch.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6i-fiRgbpr4)
 
-**The Rising
-**Recorded:** February-March 2002
-**Released:** *The Rising* (2002), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
+**The Rising**<br>
+**Recorded:** February-March 2002<br>
+**Released:** *The Rising* (2002), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
 **First performed:** July 25, 2002 (Asbury Park, NJ)<br>
 **Last performed:** September 4, 2021 (New York City, NY)<br>
 

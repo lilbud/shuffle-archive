@@ -14,6 +14,6 @@ Curiously, even though it's the title track, "True Companion" is the only song o
 
 **True Companion**<br>
 First played:** December 2, 2004 (Pittsburgh, PA)
-**Last played:** December 2, 2004 (Pittsburgh, PA)
+**Last played:** December 2, 2004 (Pittsburgh, PA)<br>
 
 © April 12, 2019

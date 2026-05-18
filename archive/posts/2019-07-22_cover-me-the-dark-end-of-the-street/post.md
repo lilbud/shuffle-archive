@@ -20,7 +20,7 @@ Bruce acknowledged the song's theme as one he was personally very familiar with.
 
 Bruce's soulful performance that day was perfectly suited for both his vocal and patter style; serious kudos to the fan who requested it.
 
-**Bonus:** Although several fans recorded snippets of the song, it doesn't seem like anyone caught the full song. Here's the closest thing to a complete version–it's only missing the first minute or so, and it includes the entire Carter-esque story.
+**Bonus:** Although several fans recorded snippets of the song, it doesn't seem like anyone caught the full song. Here's the closest thing to a complete version–it's only missing the first minute or so, and it includes the entire Carter-esque story.<br>
 
 [Watch on Youtube: Bruce Springsteen & ESB Tampere 09 Dark End Of The Street complete video](https://www.youtube.com/watch?v=aUqh2qJrraY)
 

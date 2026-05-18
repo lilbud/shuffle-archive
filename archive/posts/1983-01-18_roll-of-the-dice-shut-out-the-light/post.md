@@ -1,4 +1,4 @@
-**Author's Note:** It's impossible to discuss the genesis and evolution of "Shut Out the Light" without referencing the two songs with which it's inseparably intertwined. "Vietnam" has essential backstory for fully appreciating "Shut Out the Light," and "Born in the U.S.A." is a fraternal twin to it, developed by the songwriter in parallel. However, those tracks won't be available in print until later this year, so I apologize for starting this story in the middle.
+**Author's Note:** It's impossible to discuss the genesis and evolution of "Shut Out the Light" without referencing the two songs with which it's inseparably intertwined. "Vietnam" has essential backstory for fully appreciating "Shut Out the Light," and "Born in the U.S.A." is a fraternal twin to it, developed by the songwriter in parallel. However, those tracks won't be available in print until later this year, so I apologize for starting this story in the middle.<br>
 
 ---
 

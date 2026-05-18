@@ -1,14 +1,14 @@
-**1971:** Bruce joins an acoustic jam session (along with Steve Van Zandt on acoustic slide guitar, Kevin Kavanaugh on piano, and Vini Lopez on pebble-filled soda cans) at an outdoor folk concert organized by Tinker West.
+**1971:** Bruce joins an acoustic jam session (along with Steve Van Zandt on acoustic slide guitar, Kevin Kavanaugh on piano, and Vini Lopez on pebble-filled soda cans) at an outdoor folk concert organized by Tinker West.<br>
 
 ![](../../assets/2020/08/1971-08-05.png)
 
-**1976:** Bruce and the E Street Band play their fourth of six nights at the Monmouth Arts Center in Red Bank.
+**1976:** Bruce and the E Street Band play their fourth of six nights at the Monmouth Arts Center in Red Bank.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/P8BHqSd0)
 
-**1977:** Bruce holds a recording session for his fourth album at Atlantic Studios in New York City, where he and the band work on "The Way," "Talk to Me," and "After Dinner"–none of which will make the album.
+**1977:** Bruce holds a recording session for his fourth album at Atlantic Studios in New York City, where he and the band work on "The Way," "Talk to Me," and "After Dinner"–none of which will make the album.<br>
 
-**1978:** Bruce and the boys bring the Darkness Tour to Louisville for a night. Bruce loses his place early on during "Rosalita (Come Out Tonight)" and the band vamps until Bruce remembers where he was.
+**1978:** Bruce and the boys bring the Darkness Tour to Louisville for a night. Bruce loses his place early on during "Rosalita (Come Out Tonight)" and the band vamps until Bruce remembers where he was.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2zQ6Z7Uq)
 
@@ -20,11 +20,11 @@ After the show, Bruce sits down for an interview with Australian journalist Davi
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kHJ0u70kAf8)
 
-**1981:** Night Two at the Capital Center in Largo on the original River Tour.
+**1981:** Night Two at the Capital Center in Largo on the original River Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/pK3XrIXK)
 
-**1984:** Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand at the Meadowlands. This show features the tour premiere of "Jersey Girl" and is available as part of Bruce's official archive series. Watch the pro-shot opening of the show below.
+**1984:** Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand at the Meadowlands. This show features the tour premiere of "Jersey Girl" and is available as part of Bruce's official archive series. Watch the pro-shot opening of the show below.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xQWHgkEPO6M)
 
@@ -40,7 +40,7 @@ After the show, Bruce sits down for an interview with Australian journalist Davi
 
 ![](../../assets/2020/07/1984-08-05c.png)
 
-**1985:** Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tour–his first all-stadium tour–at RFK Stadium in Washington, DC. This show is notable for the second of only three performances ever of "Man at the Top," the first U.S. performance of "Seeds," and the first time Bruce closes a show with "Sherry Darling."
+**1985:** Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tour–his first all-stadium tour–at RFK Stadium in Washington, DC. This show is notable for the second of only three performances ever of "Man at the Top," the first U.S. performance of "Seeds," and the first time Bruce closes a show with "Sherry Darling."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rm49wginqwo)
 
@@ -56,16 +56,14 @@ Because this show marks Bruce's return to the U.S. and the first time playing to
 
 ![](../../assets/2020/07/1985-08-05c.png)
 
-**1992:** Jeff Porcaro of Toto, who played drums on most of the *Human Touch* album, passes away at the age of 38.
+**1992:** Jeff Porcaro of Toto, who played drums on most of the *Human Touch* album, passes away at the age of 38.<br>
 
 ![](../../assets/2020/07/1992-08-05.png)
 
-**2002:** The fourth rehearsal show for the Rising Tour is the first in an arena, an invitation-only show at the Continental Airlines Arena in East Rutherford.
+**2002:** The fourth rehearsal show for the Rising Tour is the first in an arena, an invitation-only show at the Continental Airlines Arena in East Rutherford.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zB4ezPROrBW1WqFU1B0KIHv)
 
-**2006:** Bruce makes a guest appearance with John Fogerty at John's show at the PNC Bank Arts Center in Holmdel, playing "Long Tall Sally."
+**2006:** Bruce makes a guest appearance with John Fogerty at John's show at the PNC Bank Arts Center in Holmdel, playing "Long Tall Sally."<br>
 
 ![](../../assets/2018/08/2006-0805.jpg)
-
- 

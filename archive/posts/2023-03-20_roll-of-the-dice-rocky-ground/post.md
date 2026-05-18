@@ -91,7 +91,7 @@ Even so, "Rocky Ground" vanished after the Wrecking Ball Tour (save for a single
 
 **Rocky Ground**<br>
 **Recorded** 2011<br>
-**Released:** *Wrecking Ball* (2012)
+**Released:** *Wrecking Ball* (2012)<br>
 **First performed:** March 9, 2012 (New York City, NY)<br>
 **Last performed:** January 29, 2014 (Cape Town, South Africa)<br>
 

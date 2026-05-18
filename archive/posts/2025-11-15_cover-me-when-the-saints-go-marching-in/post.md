@@ -37,7 +37,7 @@ Many Sessions Band songs and arrangements have translated successfully to the E 
 
 But we'll always have 2006. And when we need a little hope and solace, we could do worse than turn to "The Saints."
 
-**Bonus:** Here's a clip of Bruce strumming a little bit of "When The Saints Go Marching In" on Italian television, just because.
+**Bonus:** Here's a clip of Bruce strumming a little bit of "When The Saints Go Marching In" on Italian television, just because.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/iCn8QoAN)
 

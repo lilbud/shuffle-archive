@@ -46,8 +46,6 @@ Here’s Bruce’s last (for now, at least) performance of “Not Fade Away.”
 
 [Watch on Youtube: Bruce Springsteen performs](https://www.youtube.com/watch?v=s9_EESmDeJs)
 
-**Not Fade Away
-First performed:** October 23, 1971 (Richmond, VA)
-**Last performed:** July 6, 2019 (Asbury Park, NJ)
-
- 
+**Not Fade Away**<br>
+**First performed:** October 23, 1971 (Richmond, VA)<br>
+**Last performed:** July 6, 2019 (Asbury Park, NJ)<br>

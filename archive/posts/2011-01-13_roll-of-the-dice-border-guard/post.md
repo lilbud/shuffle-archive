@@ -69,7 +69,7 @@ Bruce would revisit the California/Mexico border in song decades later, this tim
 
 **Border Guard**<br>
 **Recorded** April 1972<br>
-**Never released**
+**Never released**<br>
 **Never performed**<br>
 
 © December 27, 2021

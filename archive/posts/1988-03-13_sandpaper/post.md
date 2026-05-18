@@ -22,9 +22,9 @@ This time, everyone sang along.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=exk4Q9zJvxc)
 
-**Sandpaper**
-**Released:** *The Great American Bar Scene* (2024)
-**First performed:** March 27, 2024 (Brooklyn, NY)
-**Last performed:** August 7, 2024 (Philadelphia, PA)
+**Sandpaper**<br>
+**Released:** *The Great American Bar Scene* (2024)<br>
+**First performed:** March 27, 2024 (Brooklyn, NY)<br>
+**Last performed:** August 7, 2024 (Philadelphia, PA)<br>
 
 © February 8, 2026

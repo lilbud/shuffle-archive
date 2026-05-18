@@ -1,20 +1,20 @@
-**1969:** Child headlines at the eighth grade graduation concert at Blessed Sacrament Regional School in Margate, New Jersey.
+**1969:** Child headlines at the eighth grade graduation concert at Blessed Sacrament Regional School in Margate, New Jersey.<br>
 
-**1972:** Recording sessions begin for Bruce's first album, *Greetings From Asbury Park, N.J.* Bruce records five solo tracks today: "Arabian Nights," "Cowboys of the Sea," "Growin' Up," "Lady and the Doctor," and "Street Queen." Only "Growin' Up" will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.
+**1972:** Recording sessions begin for Bruce's first album, *Greetings From Asbury Park, N.J.* Bruce records five solo tracks today: "Arabian Nights," "Cowboys of the Sea," "Growin' Up," "Lady and the Doctor," and "Street Queen." Only "Growin' Up" will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/IvoYACpv?hd=0&cover=1)
 
-**1973:** Bruce and the E Street Band open for Chicago at the Onondaga County War Memorial Auditorium in Syracuse, New York. The local paper mis-identifies Bruce, and they aren't even close: somehow, they refer to him as "Bris Christy." Mr. Reschke didn't do so well with the song titles, either. See if you can figure out the songs Bruce actually played below.
+**1973:** Bruce and the E Street Band open for Chicago at the Onondaga County War Memorial Auditorium in Syracuse, New York. The local paper mis-identifies Bruce, and they aren't even close: somehow, they refer to him as "Bris Christy." Mr. Reschke didn't do so well with the song titles, either. See if you can figure out the songs Bruce actually played below.<br>
 
 ![](../../assets/2025/06/Syracuse_Herald_Journal_1973_06_08_16-scaled.jpg)
 
-**1976:** Bruce and most of the E Street Band join Southside Johnny and The Asbury Jukes on stage at a private party for *Crawdaddy* magazine.
+**1976:** Bruce and most of the E Street Band join Southside Johnny and The Asbury Jukes on stage at a private party for *Crawdaddy* magazine.<br>
 
 ![](../../assets/2021/06/1976-0612.jpg)
 
-**1977:** Bruce and the band work on "Don't Look Back" at Atlantic Studios in New York City.
+**1977:** Bruce and the band work on "Don't Look Back" at Atlantic Studios in New York City.<br>
 
-**1981:** In Birmingham, Pete Townshend makes a guest appearance in the encores of the first show of the last European stand of the River Tour. In the main set, Bruce performs "Drive All Night" for the last time for 24 years.
+**1981:** In Birmingham, Pete Townshend makes a guest appearance in the encores of the first show of the last European stand of the River Tour. In the main set, Bruce performs "Drive All Night" for the last time for 24 years.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SWQc_xELokY)
 
@@ -22,11 +22,11 @@
 
 ![](../../assets/2024/06/Sandwell_Evening_Mail_Mon__Jun_8__1981_-scaled.jpg)
 
-**1992:** MTV's Guide to Summer features a spotlight on Bruce's upcoming World Tour 1992.
+**1992:** MTV's Guide to Summer features a spotlight on Bruce's upcoming World Tour 1992.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=V8GA_hlYbzg)
 
-**1999:** "My Hometown" makes its Reunion Tour premiere at the Estadio de la Comunidad in Madrid.
+**1999:** "My Hometown" makes its Reunion Tour premiere at the Estadio de la Comunidad in Madrid.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=95dOlNZgJoQ)
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=D5qUFPcnuJU)
 
-**2005:** Bruce plays a solo acoustic show at the Datch Forum in Milan, Italy, where he plays the tour premieres of "Open All Night" and "Lost in the Flood."
+**2005:** Bruce plays a solo acoustic show at the Datch Forum in Milan, Italy, where he plays the tour premieres of "Open All Night" and "Lost in the Flood."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9YTQEWlJ)
 
@@ -46,7 +46,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=obE4S0udwos)
 
-**2009:** At the final night in Sweden for the Working on a Dream Tour, Bruce tour premieres "The River," "Fade Away," (its first E Street outing since 1981) and "Surprise, Surprise."
+**2009:** At the final night in Sweden for the Working on a Dream Tour, Bruce tour premieres "The River," "Fade Away," (its first E Street outing since 1981) and "Surprise, Surprise."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MT52j7jnDcc)
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HnOvrSuUTEE)
 
-**2012:** Bruce plays a marathon show at San Siro in Milan, Italy. At over three and a half hours, it's one of his longest shows to date.
+**2012:** Bruce plays a marathon show at San Siro in Milan, Italy. At over three and a half hours, it's one of his longest shows to date.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zAKxhmdtQow)
 
@@ -64,12 +64,12 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vfe2MbjOf4E)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2021:** Bruce announces a return engagement of *Springsteen on Broadway* to help re-open Broadway during a lull in the Great Pandemic.
+**2021:** Bruce announces a return engagement of *Springsteen on Broadway* to help re-open Broadway during a lull in the Great Pandemic.<br>
 
 ![](../../assets/2022/06/2021-06-07b.jpg)
 
-**2025:** Hometown hero Sir Paul McCartney makes a surprise appearance with Bruce and the E Street Band on their second of two nights at Anfield in Liverpool, tour debuting "Can't Buy Me Love" and "Kansas City."
+**2025:** Hometown hero Sir Paul McCartney makes a surprise appearance with Bruce and the E Street Band on their second of two nights at Anfield in Liverpool, tour debuting "Can't Buy Me Love" and "Kansas City."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=X0o4MT_Lwxo)

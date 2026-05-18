@@ -1,16 +1,16 @@
-***New for 2025:** Video for 1999 and 2023; new entry for 2022*
+***New for 2025:** Video for 1999 and 2023; new entry for 2022*<br>
 
-**1971:** The Bruce Springsteen Band kicks off a residency at the Student Prince in Asbury Park that will last the rest of the calendar year.
+**1971:** The Bruce Springsteen Band kicks off a residency at the Student Prince in Asbury Park that will last the rest of the calendar year.<br>
 
 ![](../../assets/2018/09/1971-0903.jpg)
 
-**1978:** Bruce debuts his cover of "[Hang Up My Rock and Roll Shoes](https://estreetshuffle.com/index.php/2018/05/13/cover-me-hang-up-my-rock-and-roll-shoes/)" at his Darkness show in Saginaw.
+**1978:** Bruce debuts his cover of "[Hang Up My Rock and Roll Shoes](https://estreetshuffle.com/index.php/2018/05/13/cover-me-hang-up-my-rock-and-roll-shoes/)" at his Darkness show in Saginaw.<br>
 
 [Watch on Youtube: Bruce Springsteen- I Don't Wanna Hang Up My Rock and Roll Shoes Live 1978](https://www.youtube.com/watch?v=m38R-VSgAVc)
 
 ![](../../assets/2024/09/Detroit_Free_Press_1978_09_21_Page_23.jpg)
 
-**1984:** Bruce appears in and on the latest issue of *People Magazine*.
+**1984:** Bruce appears in and on the latest issue of *People Magazine*.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uvGjkjlm)
 
@@ -24,7 +24,7 @@
 
 ![](../../assets/2020/09/People5.jpg)
 
-**1992:** Bruce's World Tour 1992 visits Tinley Park, Illinois for the second of two nights, and CNN airs a segment on the end of the summer concert season.
+**1992:** Bruce's World Tour 1992 visits Tinley Park, Illinois for the second of two nights, and CNN airs a segment on the end of the summer concert season.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/JFEIp4vi)
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Bruce Springsteen - CNN Report on 1992 Summer Concert Season](https://www.youtube.com/watch?v=CKFRHpzkMtI)
 
-**1999:** Bruce and the reunited E Street Band wrap up their three-night stand at the MCI Center in Washington, DC with an all-star guest-star line-up: Bonnie Raitt, Bruce Hornsby, Jackson Browne, Shawn Colvin, Mary Chapin Carpenter and Frank Bruno join the band for the encores.
+**1999:** Bruce and the reunited E Street Band wrap up their three-night stand at the MCI Center in Washington, DC with an all-star guest-star line-up: Bonnie Raitt, Bruce Hornsby, Jackson Browne, Shawn Colvin, Mary Chapin Carpenter and Frank Bruno join the band for the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen Prove It All Night DC 99-02](https://www.youtube.com/watch?v=1eA8nibwxSQ)
 
@@ -46,7 +46,7 @@
 
 ![](../../assets/2021/09/1999-09-03.jpg)
 
-**2001:** In their last public appearance before the nation changes forever, Bruce and Patti join Brian Kirk and the Jirks on-stage for four songs at Donovan's Reef in Sea Bright, New Jersey. (The Jirks are the house band at the club.)
+**2001:** In their last public appearance before the nation changes forever, Bruce and Patti join Brian Kirk and the Jirks on-stage for four songs at Donovan's Reef in Sea Bright, New Jersey. (The Jirks are the house band at the club.)<br>
 
 [Watch on Youtube: Bruce Springsteen with Brian Kirk and the Jirks- "Rosalita"](https://www.youtube.com/watch?v=VcpMgWrmhUE)
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Bruce Springsteen with Brian Kirk and the Jirks- "Tenth Avenue Freeze Out"](https://www.youtube.com/watch?v=g-cAs0PgBd0)
 
-**2012:** Night Two at Philadelphia's Citizens Bank Park was a Labor Day special, opening with an acoustic tour premiere of "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" as part of a five-song [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)mini-set. The show stayed intense all the way through, which may be why Bruce omitted setlisted gems like "[Ain't Good Enough for You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)," "Love Train," "[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)," "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)," and "[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)." What a show *that* would have been!
+**2012:** Night Two at Philadelphia's Citizens Bank Park was a Labor Day special, opening with an acoustic tour premiere of "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" as part of a five-song [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)mini-set. The show stayed intense all the way through, which may be why Bruce omitted setlisted gems like "[Ain't Good Enough for You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)," "Love Train," "[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)," "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)," and "[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)." What a show *that* would have been!<br>
 
 [Watch on Youtube: Factory - Citizens Bank Park - Sept 3, 2012 - Bruce Springsteen](https://www.youtube.com/watch?v=9BaJ4KRkFcA)
 
@@ -70,17 +70,17 @@
 
 ![](../../assets/2020/08/2012-09-03b.jpg)
 
-**2016:** A scheduled River Tour show in Virginia Beach is postponed for two days due to Tropical Storm Hermine.
+**2016:** A scheduled River Tour show in Virginia Beach is postponed for two days due to Tropical Storm Hermine.<br>
 
 ![](../../assets/2018/09/2016-0903.jpg)
 
-**2021:** It's the penultimate night for *Springsteen on Broadway* at the St. James Theater in New York City.
+**2021:** It's the penultimate night for *Springsteen on Broadway* at the St. James Theater in New York City.<br>
 
-**2022:** Bruce records "Addicted to Romance" in his home studio in Colts Neck.
+**2022:** Bruce records "Addicted to Romance" in his home studio in Colts Neck.<br>
 
 [Watch on Youtube: Addicted to Romance (Bruce Springsteen)](https://www.youtube.com/watch?v=FPM0gG2ueV8)
 
-**2023:** Featuring the tour premiere of "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" and rarities like "Jungleland" and "[Jersey Gir](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)l," the third and final show at MetLife Stadium seems to promise a looser setlist in the autumn leg of World Tour 2023. Sadly, it proves to be the E Street Band's last show of the year.
+**2023:** Featuring the tour premiere of "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)" and rarities like "Jungleland" and "[Jersey Gir](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)l," the third and final show at MetLife Stadium seems to promise a looser setlist in the autumn leg of World Tour 2023. Sadly, it proves to be the E Street Band's last show of the year.<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Two Hearts - East Rutherford, NJ - 03/09/2023](https://www.youtube.com/watch?v=khQVExmECY0)
 

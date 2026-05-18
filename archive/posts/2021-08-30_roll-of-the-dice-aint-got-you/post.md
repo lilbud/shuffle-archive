@@ -88,8 +88,8 @@ It's been sixteen years since we last heard from "Ain't Got You" in a Springstee
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WQYKWveDFWY)
 
-**Ain't Got You
-**Recorded:** January – April 1987
+**Ain't Got You**<br>
+**Recorded:** January – April 1987<br>
 **Released:** *Tunnel of Love* (1987)<br>
 **First performed:** March 26, 1988 (Lexington, KY)<br>
 **Last performed:** November 19, 2005 (Hollywood, FL)<br>

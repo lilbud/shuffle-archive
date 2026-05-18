@@ -84,7 +84,7 @@ Billy's mom is our point-of-view character for the remainder of the song; it's h
 
 As we take our leave of our cast, Billy's mom offers her daughter-in-law shelter and solace. What happens from here we never learn, but we hope they're able to help each other rock away the days and nights until their mutual pain and loss subsides.
 
-**Bonus:** Bruce has never performed "Rockaway the Days" live, but he *sort of* half-played it once. At his legendary acoustic 1986 Bridge School benefit performance, Bruce played an acoustic version of "[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)" that featured a completely different melody from the officially released version on *Live 1975-85*, less angry but more infectious with an irresistible riff.
+**Bonus:** Bruce has never performed "Rockaway the Days" live, but he *sort of* half-played it once. At his legendary acoustic 1986 Bridge School benefit performance, Bruce played an acoustic version of "[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)" that featured a completely different melody from the officially released version on *Live 1975-85*, less angry but more infectious with an irresistible riff.<br>
 
 Bruce gave no explanation for the one-off arrangement, and he never played the song that way again. Only after Bruce's 1984 recording of "Rockaway the Days" was released on *Tracks* in 1998 would the jigsaw pieces fall into in place.
 

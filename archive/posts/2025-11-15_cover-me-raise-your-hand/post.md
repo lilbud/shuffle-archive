@@ -41,7 +41,7 @@ Originally an encore or show-closer, in recent years Bruce has used "Raise Your 
 
 And while it's now been more than seven years since Bruce last uttered those immortal words, "If there's something you *want*… if there's something you *need*…." you can bet we'll be raising our hands again someday soon.
 
-**Bonus:** Here's that performance Eddie alluded to in that *American Songwriter* interview, from Eddie and Bruce's only on-stage meeting–the night of April 29, 1976. Eddie sings lead vocals on his own; Bruce relegates himself to the background. But keep in mind as you listen: Eddie had never seen Bruce perform his song before. Bruce leads the E Street Band through their standard arrangement, so close to Eddie's own live arrangement that Eddie wears it like a comfortable shoe.
+**Bonus:** Here's that performance Eddie alluded to in that *American Songwriter* interview, from Eddie and Bruce's only on-stage meeting–the night of April 29, 1976. Eddie sings lead vocals on his own; Bruce relegates himself to the background. But keep in mind as you listen: Eddie had never seen Bruce perform his song before. Bruce leads the E Street Band through their standard arrangement, so close to Eddie's own live arrangement that Eddie wears it like a comfortable shoe.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/GFBm1mrR)
 

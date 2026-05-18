@@ -102,7 +102,7 @@ Bruce obviously wrote "Across the Border" with a specific context in mind, but t
 
 For what are we without hope in our hearts?
 
-**Update 5/22/21:** Bruce played "Across the Border" last week for the first time in thirteen years, and it may have been my favorite performance yet. The occasion was the awarding of the Woody Guthrie Prize, and Bruce is this year's recipient. He performed a mini-set for the occasion, comprised of songs by and inspired by Woody, and the highlight of the set was most definitely "Across the Border."
+**Update 5/22/21:** Bruce played "Across the Border" last week for the first time in thirteen years, and it may have been my favorite performance yet. The occasion was the awarding of the Woody Guthrie Prize, and Bruce is this year's recipient. He performed a mini-set for the occasion, comprised of songs by and inspired by Woody, and the highlight of the set was most definitely "Across the Border."<br>
 
 [Watch on Youtube: Springsteen- Across The Border- Woody Guthrie Center Award](https://www.youtube.com/watch?v=xX1NMiVJD-E)
 

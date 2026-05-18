@@ -105,7 +105,7 @@ That take appears on the final album, and although *Darkness* bears the name of 
 
 ---
 
-**Bonus:** Although not exactly an ultra-rarity, "Something in the Night" has appeared only infrequently since the Darkness Tour. When it does, however, it's always a showstopper, and choosing a performance to highlight is a tough task. If pressed, though, I'll go with this atmospheric performance to an appropriately empty theater in 2009, recorded as part of a full-album set for inclusion with *The Promise: The Darkness on the Edge of Town Story.*
+**Bonus:** Although not exactly an ultra-rarity, "Something in the Night" has appeared only infrequently since the Darkness Tour. When it does, however, it's always a showstopper, and choosing a performance to highlight is a tough task. If pressed, though, I'll go with this atmospheric performance to an appropriately empty theater in 2009, recorded as part of a full-album set for inclusion with *The Promise: The Darkness on the Edge of Town Story.*<br>
 
 There's something about the darkness, the emptiness, and of course that album-perfect arrangement (down to that all-important skipped beat) that perfectly suits the song.
 

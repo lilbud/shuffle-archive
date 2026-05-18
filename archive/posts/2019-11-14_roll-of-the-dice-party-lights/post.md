@@ -69,13 +69,13 @@ Before we leave, there's something else worth pointing out about "Party Lights."
 
 "Party Lights" has never been performed live, but it surely deserves to be.
 
-**Bonus:** Here's yet another work-in-progress arrangement (this time a rockabilly one) of "Party Lights," from the spring of 1981, well after the release of *The River.* It seems Bruce didn't give up on this one so easily.
+**Bonus:** Here's yet another work-in-progress arrangement (this time a rockabilly one) of "Party Lights," from the spring of 1981, well after the release of *The River.* It seems Bruce didn't give up on this one so easily.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/C66uAIaH)
 
 **Party Lights**<br>
 **Recorded** October 8, 1979<br>
-**Released:** *The Ties That Bind: The River Collection* (2015)
+**Released:** *The Ties That Bind: The River Collection* (2015)<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

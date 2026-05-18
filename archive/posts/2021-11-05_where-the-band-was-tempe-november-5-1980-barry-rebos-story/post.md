@@ -1,6 +1,6 @@
 Editor's Note
 
-**Editor's Note:** Today's guest blogger is friend of the blog and long-time Springsteen fan Barry Rebo. Even if you don't know his name (and many of you certainly do), if you read this blog I guarantee you're familiar with his work.
+**Editor's Note:** Today's guest blogger is friend of the blog and long-time Springsteen fan Barry Rebo. Even if you don't know his name (and many of you certainly do), if you read this blog I guarantee you're familiar with his work.<br>
 
 Having once lived down the Jersey Shore, Barry is one of Bruce's earliest fans (since 1969), and more importantly: he's pretty mean with a camera. He filmed Bruce and the band in the studio recording "Jungleland" in the *Wings for Wheels* documentary; the archival footage included in *The Promise: Darkness on the Edge of Town*; and the River Tour rehearsal video and multi-camera Live in Tempe concert that accompanies the *The River* anniversary box set. As fans, we all share a debt of gratitude to Barry.
 

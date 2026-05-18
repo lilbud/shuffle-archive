@@ -79,7 +79,7 @@ The problem with writing a song so timely and topical, though, is that it quickl
 
 **How Can a Poor Man Stand Such Times and Live?**<br>
 **Never recorded**<br>
-**Released (live):** *We Shall Overcome: The Seeger Sessions (American Land Edition)* (2006)
+**Released (live):** *We Shall Overcome: The Seeger Sessions (American Land Edition)* (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
 **Last performed:** May 6, 2014 (Houston, TX)<br>
 

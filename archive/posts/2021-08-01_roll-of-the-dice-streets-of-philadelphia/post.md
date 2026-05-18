@@ -139,4 +139,4 @@ Looking for your favorite Bruce song? Check our full index [here](https://estree
 
 Editor's Note
 
-***Editor's Note:*** *Our Roll of the Dice series goes on hiatus after today while I take some time off to relax, recharge, and reload the blog's editorial queue. Roll of the Dice will resume in August–until then, consider checking out our [album index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/) to explore more of Bruce's catalog, and have a great summer!*
+***Editor's Note:*** *Our Roll of the Dice series goes on hiatus after today while I take some time off to relax, recharge, and reload the blog's editorial queue. Roll of the Dice will resume in August–until then, consider checking out our [album index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/) to explore more of Bruce's catalog, and have a great summer!*<br>

@@ -102,7 +102,7 @@ Bruce finally included "Be True" on an official studio album in 1998 with *Track
 
 It remains on many fans' chase list, but like I said: "Be True" hasn't missed an E Street Band outing since 1984. Odds are good we'll have a chance to hear it again soon.
 
-**Bonus:** During the summer and autumn legs of his 2005 solo acoustic tour, Bruce played "Be True" on electric piano a few times, starting with this debut in Seattle. It's a bit rough, but worth a listen as a curiosity.
+**Bonus:** During the summer and autumn legs of his 2005 solo acoustic tour, Bruce played "Be True" on electric piano a few times, starting with this debut in Seattle. It's a bit rough, but worth a listen as a curiosity.<br>
 
 [Watch on Youtube: Bruce Springsteen Be True Solo Acoustic Live From Seattle 11/08/2005](https://www.youtube.com/watch?v=LjFlB4r5jMQ)
 

@@ -100,7 +100,7 @@ But it was on the Rising Tour when Bruce finally brought back "Night" as a semi-
 
 That's a good thing, because "Night" never gets old. It's a shot of classic E Street that immediately electrifies any show where it appears.
 
-**Bonus:** "Night" was famously recorded in a single day–May 10, 1975–although it took several takes before the band landed on one Bruce liked. But well before Bruce captured his bolt of lightning in the studio, he'd laid down some demos.
+**Bonus:** "Night" was famously recorded in a single day–May 10, 1975–although it took several takes before the band landed on one Bruce liked. But well before Bruce captured his bolt of lightning in the studio, he'd laid down some demos.<br>
 
 Here's one of them, from nine months earlier in August 1974:
 
@@ -113,8 +113,8 @@ Here's one of them, from nine months earlier in August 1974:
 Both have minor lyrical differences (including some bluffing in the earlier version) and some minor musical variations as well. But both reveal just how clear Bruce's vision was for the song almost a year before he officially recorded it in the studio.
 
 **Night**<br>
-**Recorded:** May 10, 1975
-**Released:** *Born to Run* (1975)
+**Recorded:** May 10, 1975<br>
+**Released:** *Born to Run* (1975)<br>
 **First performed:** August 13, 1975 (New York City, NY)<br>
 **Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 

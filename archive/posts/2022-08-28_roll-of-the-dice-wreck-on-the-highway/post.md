@@ -82,13 +82,13 @@ For most of us, though, "Wreck on the Highway" remains an elusive rarity, seldom
 
 Isn't that what Bruce's shows are all about, too?
 
-**Bonus:** In January 1980, Bruce assembled the E Street Band for a run-through rehearsal of a work-in-progress "Wreck on the Highway." If we listen closely to the distant vocals, we can recognize most of the lyrics, but the uptempo arrangement is very different from the one we'd come to know and love by the end of the year.
+**Bonus:** In January 1980, Bruce assembled the E Street Band for a run-through rehearsal of a work-in-progress "Wreck on the Highway." If we listen closely to the distant vocals, we can recognize most of the lyrics, but the uptempo arrangement is very different from the one we'd come to know and love by the end of the year.<br>
 
 [Watch on Youtube: Bruce Springsteen Wreck On The Highway country version](https://www.youtube.com/watch?v=3RsuAJUAtlA)
 
 **Wreck on the Highway**<br>
 **Recorded** January – April, 1980<br>
-**Released:** *The River* (1980)
+**Released:** *The River* (1980)<br>
 **First performed:** October 3, 1980 (Ann Arbor, MI)<br>
 **Last performed:** July 28, 2016 (Oslo, Norway)<br>
 

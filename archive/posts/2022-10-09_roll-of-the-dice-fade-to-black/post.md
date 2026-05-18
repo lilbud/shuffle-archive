@@ -67,7 +67,7 @@ It's a disquieting note on which to end, and an atypical one too. More often tha
 Why it didn't make *Nebraska* or a later album is still a mystery, but if Bruce's session logs (which indicate a studio version was recorded in 1982) are to be believed, we might yet someday get to hear the finished version.
 
 **Fade to Black**<br>
-**Recorded** Late 1981 (demo only)
+**Recorded** Late 1981 (demo only)<br>
 **Never released**<br>
 **Never performed**<br>
 

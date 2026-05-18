@@ -10,9 +10,9 @@ Take a listen below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OiuH7_ITOaI)
 
-**Endless Night**
-**Recorded:** December 1979
-**Released:** *The Up Escalator* (1980)
-**Never performed**
+**Endless Night**<br>
+**Recorded:** December 1979<br>
+**Released:** *The Up Escalator* (1980)<br>
+**Never performed**<br>
 
 © July 15, 2019

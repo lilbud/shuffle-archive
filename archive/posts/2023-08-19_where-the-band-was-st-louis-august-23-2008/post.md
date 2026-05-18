@@ -104,6 +104,6 @@ A decade down the road, this show still stands head and shoulders above the many
 
 Oh, and I never did get to hear "When You Walk in the Room" that night. Bruce apparently decided to keep that one in hibernation a bit longer. But coincidentally I'd be there when it did finally make its return on the following tour.
 
-**Bonus:** Here's another soundcheck highlight–I'm glad I didn't hear this one at the time, or it would have spoiled the first surprise.
+**Bonus:** Here's another soundcheck highlight–I'm glad I didn't hear this one at the time, or it would have spoiled the first surprise.<br>
 
 https://youtu.be/geYTbeoe2Lc

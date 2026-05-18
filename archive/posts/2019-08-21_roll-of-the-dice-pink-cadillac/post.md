@@ -153,11 +153,11 @@ But despite a handful of terrific E Street Band concert performances, it's at th
 
 [Watch Video Highlight](https://videopress.com/embed/bqHUn1hv)
 
-**Bonus #1:** Although Bruce has occasionally recorded and released multiple studio versions of a song over time ("This Hard Land" and "The Promise" come immediately to mind), "Pink Cadillac" carries an additional distinction in that small club: Bruce recorded a new version of it in 2003, providing backing vocals and encouragement ("Come on, Killer!") for Jerry Lee Lewis. Jerry Lee released his version of "Pink Cadillac" a few years later on his 2006 album, *Last Man Standing*, and I wouldn't be the obsessive completist that I am if I ended this essay without drawing your attention to it.
+**Bonus #1:** Although Bruce has occasionally recorded and released multiple studio versions of a song over time ("This Hard Land" and "The Promise" come immediately to mind), "Pink Cadillac" carries an additional distinction in that small club: Bruce recorded a new version of it in 2003, providing backing vocals and encouragement ("Come on, Killer!") for Jerry Lee Lewis. Jerry Lee released his version of "Pink Cadillac" a few years later on his 2006 album, *Last Man Standing*, and I wouldn't be the obsessive completist that I am if I ended this essay without drawing your attention to it.<br>
 
 [Watch on Youtube: Pink Cadillac Jerry Lee Lewis and Bruce Springsteen](https://www.youtube.com/watch?v=Ki9JnV9wbBU)
 
-**Bonus #2:** The officially released version of "Pink Cadillac" includes a fade-out ending, but the unfaded original track escaped into the wild some time ago. Here it is, with about ten extra seconds, so you can hear how the song actually ends. It's not likely to add to or detract from your enjoyment of the song, but see my Bonus #1 note above.
+**Bonus #2:** The officially released version of "Pink Cadillac" includes a fade-out ending, but the unfaded original track escaped into the wild some time ago. Here it is, with about ten extra seconds, so you can hear how the song actually ends. It's not likely to add to or detract from your enjoyment of the song, but see my Bonus #1 note above.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bL4Mc0Lt)
 

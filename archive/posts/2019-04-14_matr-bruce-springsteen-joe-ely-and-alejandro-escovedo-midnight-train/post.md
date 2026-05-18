@@ -6,6 +6,6 @@ Here’s the original–
 
 [Watch on Youtube: Midnight Train](https://www.youtube.com/watch?v=y_TyiFj-3uw)
 
-**Midnight Train
-First performed:** March 14, 2012 (Austin, TX)
-**Last performed:** March 14, 2012 (Austin, TX)
+**Midnight Train**<br>
+**First performed:** March 14, 2012 (Austin, TX)<br>
+**Last performed:** March 14, 2012 (Austin, TX)<br>

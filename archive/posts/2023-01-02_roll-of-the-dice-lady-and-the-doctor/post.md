@@ -58,15 +58,15 @@ As I wrote earlier, "Lady and the Doctor" ultimately feels unfinished, more a ch
 
 Still, "Lady and the Doctor" is a gem of an early outtake.
 
-**Bonus:** A couple of months before Bruce recorded "Lady and the Doctor" in the studio, he played and recorded it in Mike Appel's New York City office. The recording is somewhat muddy, but it's the only other known recording of this lost song.
+**Bonus:** A couple of months before Bruce recorded "Lady and the Doctor" in the studio, he played and recorded it in Mike Appel's New York City office. The recording is somewhat muddy, but it's the only other known recording of this lost song.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2020/09/Bruce-Springsteen-The-Lady-And-The-Doctor-1.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2020/09/Bruce-Springsteen-The-Lady-And-The-Doctor-1.mp3?_=1)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/09/Bruce-Springsteen-The-Lady-And-The-Doctor-1.mp3>
 
-**Lady and the Doctor
-**Recorded:** June 7, 1972
-**Never released**
+**Lady and the Doctor**<br>
+**Recorded:** June 7, 1972<br>
+**Never released**<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

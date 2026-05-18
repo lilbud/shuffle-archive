@@ -67,9 +67,9 @@ While "Coming Home" never saw the light of day (officially), it wouldn't be the 
 
 But in 1972, that story was still burning ten years down the road.
 
-**Coming Home
-**Recorded:** March 14, 1972
-**Never released**
+**Coming Home**<br>
+**Recorded:** March 14, 1972<br>
+**Never released**<br>
 **First performed:** October 23, 1971 (Richmond, VA)<br>
 **Last performed:** February 25, 1972 (Richmond, VA)<br>
 

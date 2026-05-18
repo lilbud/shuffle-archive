@@ -69,13 +69,13 @@ Bruce figured that out early on, and that's why we connect to his music on such 
 
 "The Power of Prayer" may never be one of the songs Bruce is remembered for (except for in Italy, perhaps, where the song went to #1 and still receives frequent radio airplay), but the power of prayer is the reason why we'll remember him at all.
 
-**Update 1/1/2024:** Bruce finally debuted "The Power of Prayer" at Stand Up For Heroes last November. Here's that debut performance.
+**Update 1/1/2024:** Bruce finally debuted "The Power of Prayer" at Stand Up For Heroes last November. Here's that debut performance.<br>
 
 [Watch on Youtube: Power of Prayer @brucespringsteen](https://www.youtube.com/watch?v=otO5hkhocZE)
 
 **The Power of Prayer**<br>
 **Recorded** November 2019<br>
-**Released:** *Letter to You* (2020)
+**Released:** *Letter to You* (2020)<br>
 **First performed:** November 6, 2023(New York City, NY)<br>
 **Last performed:** November 6, 2023 (New York City, NY)<br>
 

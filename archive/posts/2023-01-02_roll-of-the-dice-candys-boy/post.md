@@ -72,7 +72,7 @@ So don't ask me which is the stronger song–at least not yet. We'll pick up thi
 
 ***To be continued in "[The Fast Song](https://estreetshuffle.com/index.php/2021/01/30/roll-of-the-dice-the-fast-song/)"***<br>
 
-**Bonus:** There are several studio outtakes of "Candy's Boy" floating around out there, all variations recorded in June 1977. Here's one of them, almost a full minute longer than the released version on *The Promise.*
+**Bonus:** There are several studio outtakes of "Candy's Boy" floating around out there, all variations recorded in June 1977. Here's one of them, almost a full minute longer than the released version on *The Promise.*<br>
 
 [Watch on Youtube: Bruce Springsteen Candy's Boy Darkness Session Outtake](https://www.youtube.com/watch?v=RxpYXYO-heQ)
 

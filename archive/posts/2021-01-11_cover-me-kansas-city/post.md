@@ -40,14 +40,12 @@ If you're a fan of that brassy arrangement, check out Bruce's performance with T
 
 It's been almost a decade since Bruce last performed "Kansas City," but it's one of those songs that's too perennially popular to disappear for good. We're almost certain to hear him play it again, hopefully someday soon.
 
-**Bonus:** Most of Bruce's off-tour performances have been via surprise guest appearances at Jersey Shore clubs. In 1982, Bruce joined Cats on a Smooth Surface at The Stone Pony; in 1989, he was with Bobby Bandiera at Martell's Sea Breeze; in 1994, he played it with Joe Grushecky and The Houserockers at Marz American Style.
+**Bonus:** Most of Bruce's off-tour performances have been via surprise guest appearances at Jersey Shore clubs. In 1982, Bruce joined Cats on a Smooth Surface at The Stone Pony; in 1989, he was with Bobby Bandiera at Martell's Sea Breeze; in 1994, he played it with Joe Grushecky and The Houserockers at Marz American Style.<br>
 
 But one night in 1987, Bruce (and most of the E Street Band) joined Cats on a Smooth Surface on stage at The Stone Pony for a twelve-song set, and when they closed the show with a "Kansas City" encore, they were joined by another very special guest: Jon Bon Jovi. A couple of minutes of fragmented video exist from that performance–enjoy it below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=idDI0dCmH_k)
 
-**Kansas City
-First performed:** January 11, 1979 (Fair Haven, NJ)
+**Kansas City**<br>
+**First performed:** January 11, 1979 (Fair Haven, NJ)<br>
 **Last performed:** November 17, 2012 (Kansas City, MO)<br>
-
- 

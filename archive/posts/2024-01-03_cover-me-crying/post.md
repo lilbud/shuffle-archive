@@ -1,4 +1,4 @@
-**Update 5/6/2022:** Purely by coincidence (I have no advance knowledge of these things), Bruce's cover of "Crying" was released this morning along with the rest of his May 16, 1988 show as part of his official archive series. Get it [here](https://live.brucespringsteen.net/live-music/0,28984/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-5-16-1988-Madison-Square-Garden-New-York-NY.html) to listen to it in much better quality than the sound check version below.
+**Update 5/6/2022:** Purely by coincidence (I have no advance knowledge of these things), Bruce's cover of "Crying" was released this morning along with the rest of his May 16, 1988 show as part of his official archive series. Get it [here](https://live.brucespringsteen.net/live-music/0,28984/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-5-16-1988-Madison-Square-Garden-New-York-NY.html) to listen to it in much better quality than the sound check version below.<br>
 
 ---
 

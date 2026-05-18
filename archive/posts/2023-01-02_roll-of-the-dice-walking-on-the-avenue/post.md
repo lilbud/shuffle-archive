@@ -19,7 +19,7 @@ But the melody is warm, Bruce's vocals are pure, and if we're to judge from Bruc
 Regardless of whether Bruce evolved or abandoned it, however, this is as far as Bruce got with "Walking on the Avenue" (unless he surprises us someday on *Tracks 2*).
 
 **Walking on the Avenue**<br>
-**Recorded:** January-June 1979
+**Recorded:** January-June 1979<br>
 **Never released**<br>
 **Never performed**<br>
 

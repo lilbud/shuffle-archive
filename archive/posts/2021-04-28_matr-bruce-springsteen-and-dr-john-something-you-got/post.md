@@ -58,7 +58,7 @@ They played it slow that night–slower than Bruce and the band would likely hav
 
 "Something You Got" turned out to be a highlight of the evening... a highlight forty years in the making.
 
-**Bonus:** Bruce played "Something You Got" once more since that night with Dr. John, and this time was a team-up too. At the Asbury Park Music & Film Festival in 2017, Bruce joined Southside Johnny, Little Steven, and a host of local legends in a one-time-only Upstage Jam Band to celebrate the legacy of the long-defunct club. Southside Johnny had covered "Something You Got" himself (on album with The Poor Fools and on stage with The Asbury Jukes), and he and Bruce were the focal points for that particular number.
+**Bonus:** Bruce played "Something You Got" once more since that night with Dr. John, and this time was a team-up too. At the Asbury Park Music & Film Festival in 2017, Bruce joined Southside Johnny, Little Steven, and a host of local legends in a one-time-only Upstage Jam Band to celebrate the legacy of the long-defunct club. Southside Johnny had covered "Something You Got" himself (on album with The Poor Fools and on stage with The Asbury Jukes), and he and Bruce were the focal points for that particular number.<br>
 
 [Watch on Youtube: Something You Got](https://www.youtube.com/watch?v=NglYuD-Hndc)
 

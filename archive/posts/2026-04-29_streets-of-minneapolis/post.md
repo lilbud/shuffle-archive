@@ -121,7 +121,7 @@ Springsteen never had any doubts about where the impromptu tour would open: it c
 
 **Streets of Minneapolis**<br>
 **Recorded** January 27, 2026<br>
-**Released:** *Streets of Minneapolis* (single, 2026)
+**Released:** *Streets of Minneapolis* (single, 2026)<br>
 **First performed:** January 30, 2026 (Minneapolis, MN)<br>
 **Last performed:** April 26, 2026 (Austin, TX)<br>
 

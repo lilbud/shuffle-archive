@@ -66,7 +66,7 @@ In recent years, Bruce has chosen to walk paths where the song wouldn't fit (alt
 It's too gentle a song to translate well to a full band, but I hold out hope for "Leah" to get a return outing if we can just get one more acoustic tour from Bruce.
 
 **Leah**<br>
-**Recorded:** Mid-2004
+**Recorded:** Mid-2004<br>
 **Released:** *Devils & Dust* (2005)<br>
 **First performed:** April 21. 2005 (Asbury Park, NJ)<br>
 **Last performed:** November 22, 2005 (Trenton, NJ)<br>

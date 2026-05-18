@@ -24,7 +24,7 @@ The next time Bruce covered "Money" was more than five years later–this time a
 
 [Watch on Youtube: 9. Money (Bruce Springsteen - Live At The Stone Pony 8-2-1987)](https://www.youtube.com/watch?v=Wx8xeRbYNUA)
 
-**Updated 1/7/2021:** Bruce has played "Money (That's What I Want)" a couple of times since, but you'd have had to be fortunate, connected or wealthy enough to attend the private benefit shows where he performed them, like this 2016 benefit for the U.S. Equestrian Team.
+**Updated 1/7/2021:** Bruce has played "Money (That's What I Want)" a couple of times since, but you'd have had to be fortunate, connected or wealthy enough to attend the private benefit shows where he performed them, like this 2016 benefit for the U.S. Equestrian Team.<br>
 
 [Watch on Youtube: Bruce Springsteen performs at USET Rockin' Rio Gala](https://www.youtube.com/watch?v=e6n2jeN_x7E)
 

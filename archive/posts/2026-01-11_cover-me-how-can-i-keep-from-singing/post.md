@@ -26,7 +26,7 @@ Those lucky Brits–they're the only ones who got to experience this song live i
 
 **How Can I Keep From Singing?**<br>
 **Recorded** January 21, 2006<br>
-**Released:** *We Shall Overcome: The Seeger Sessions (American Land Edition)* (2006)
+**Released:** *We Shall Overcome: The Seeger Sessions (American Land Edition)* (2006)<br>
 **First performed:** May 7, 2006 (Manchester, England)<br>
 **Last performed:** May 9, 2006 (London, England)<br>
 

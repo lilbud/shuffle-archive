@@ -156,7 +156,7 @@ Will we see "Jackson Cage" again? If history is any indication, probably. Althou
 
 **Jackson Cage**<br>
 **Recorded** February-March, 1980<br>
-**Released:** *The River* (1980)
+**Released:** *The River* (1980)<br>
 **First performed:** October 3, 1980 (Ann Arbor, MI)<br>
 **Last performed:** July 28, 1980 (Oslo, Norway)<br>
 

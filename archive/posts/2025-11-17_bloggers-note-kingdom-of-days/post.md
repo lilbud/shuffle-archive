@@ -52,11 +52,11 @@ Now It's time to meet our main players:
 > *The captain says, "Have no fear, boys, for what you hear*<br>
 > *Because danger can't be spoken"*<br>
 
-**The Sergeant** represents the rogue elements of a corrupt state, and specifically its enforcement arm: the riot police, officers who operate outside of protocol. (If the song was set in 2025, we would add ICE agents as well.)
+**The Sergeant** represents the rogue elements of a corrupt state, and specifically its enforcement arm: the riot police, officers who operate outside of protocol. (If the song was set in 2025, we would add ICE agents as well.)<br>
 
-**The Captain** represents contemptuous authority and institutional cruelty. He commands from the safety of his desk and is unable or unwilling to to grok the inevitably irresistible force of resistance. He cares only for protecting his power and believes it is self-reinforcing.
+**The Captain** represents contemptuous authority and institutional cruelty. He commands from the safety of his desk and is unable or unwilling to to grok the inevitably irresistible force of resistance. He cares only for protecting his power and believes it is self-reinforcing.<br>
 
-**The Prisoner** is the embodiment of justice. civic integrity, and American spirit–currently restrained by the brute force of The Sergeant, The Captain, and the unescapable Fort they command.
+**The Prisoner** is the embodiment of justice. civic integrity, and American spirit–currently restrained by the brute force of The Sergeant, The Captain, and the unescapable Fort they command.<br>
 
 Once we understand who our players are, the story reveals itself: The Sergeant has captured The Prisoner with his brutality but doesn't know what to with her. The Captain dismisses The Prisoner with disdain: *Let her go. Danger can't be spoken.* Or put another way, words are just words. The state has institutional authority, legal weaponry, and and brute strength on their side. They have nothing to fear.
 
@@ -71,7 +71,7 @@ But we have one more character to introduce now.
 > *His spirit rises high into the western sky*<br>
 > *The magician lies an empty token*<br>
 
-**Merlin** is the martyr: the activist jailed or canceled, the whistleblower whose career is destroyed, the university or media outlets sued or starved for refusing to bend a knee. Bruce casts Merlin as a magician, because what other explanation is there for indomitability without any weapon, power, or obvious advantage?
+**Merlin** is the martyr: the activist jailed or canceled, the whistleblower whose career is destroyed, the university or media outlets sued or starved for refusing to bend a knee. Bruce casts Merlin as a magician, because what other explanation is there for indomitability without any weapon, power, or obvious advantage?<br>
 
 At first it seems like Merlin is easily vanquished, but that's only his physical form. His essence rises high into the western sky, and here we arrive at Bruce's central thesis: you can shoot the messenger, but you can't shoot the message. The message is the magic; the magicians are merely the vessels.
 
@@ -103,7 +103,7 @@ He rages and threatens, but both Captain and Prisoner know that his true power l
 > *And the captain ran crazily*<br>
 > *For the first time in his life, in the captain's heart, fear was born*<br>
 
-**The Storm**, of course, represents the cultural shift toward societal change, now deafening in volume and intensity. Mass resistance has always been and still is the only force that despots fear, and our Captain is now terrified.
+**The Storm**, of course, represents the cultural shift toward societal change, now deafening in volume and intensity. Mass resistance has always been and still is the only force that despots fear, and our Captain is now terrified.<br>
 
 Bruce's final lines drive it home:
 

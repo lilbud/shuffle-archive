@@ -14,8 +14,8 @@ You can watch both performances below and judge for yourself which one is better
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jDhzEAHjIYs)
 
-**Heaven Help the Lonely
-First performed:** January 16, 2010 (Asbury Park, NJ)
-**Last performed:** January 15, 2011 (Asbury Park, NJ)
+**Heaven Help the Lonely**<br>
+**First performed:** January 16, 2010 (Asbury Park, NJ)<br>
+**Last performed:** January 15, 2011 (Asbury Park, NJ)<br>
 
 © December 29, 2018

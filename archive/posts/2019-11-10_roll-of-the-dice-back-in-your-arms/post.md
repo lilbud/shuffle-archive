@@ -92,11 +92,11 @@ Twenty-four years later, we know that Bruce is in a much more emotionally secure
 
 ---
 
-**Bonus #1:** Here's a rare acoustic version of "Back in Your Arms, performed only seven times on the Devils & Dust Tour. To me, it doesn't come close to matching the power of a full-band performance, and I consider it more of a novelty than an essential. (But I wish I could have been there for it nonetheless.)
+**Bonus #1:** Here's a rare acoustic version of "Back in Your Arms, performed only seven times on the Devils & Dust Tour. To me, it doesn't come close to matching the power of a full-band performance, and I consider it more of a novelty than an essential. (But I wish I could have been there for it nonetheless.)<br>
 
 [Watch on Youtube: Bruce Springsteen - Back in Your Arms (live 2005)](https://www.youtube.com/watch?v=Rgn8O2lU7OA)
 
-**Bonus #2:** This is one of my all-time favorite performances at a Springsteen show, because it's one giant sixteen-minute train wreck. Seriously, watch it and try not to cringe–the band absolutely can *not* get it together for the entirety of the song, and what makes matters worse is that Bruce is completely unable to lead them without breaking the spell of the song.
+**Bonus #2:** This is one of my all-time favorite performances at a Springsteen show, because it's one giant sixteen-minute train wreck. Seriously, watch it and try not to cringe–the band absolutely can *not* get it together for the entirety of the song, and what makes matters worse is that Bruce is completely unable to lead them without breaking the spell of the song.<br>
 
 So why is it one of my favorites? It's because of Bruce's unflinching determination to make it through the song through sheer force of will and passion. At times, it feels as if Bruce is literally pulling the entire weight of the band with his vocals.
 

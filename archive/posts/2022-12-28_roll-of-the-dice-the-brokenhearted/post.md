@@ -83,7 +83,7 @@ I actually don't take issue with that assessment–in fact, I agree with it. The
 It's hard to know how Bruce ultimately feels about "The Brokenhearted," because so far, he's only played it once in concert, during a promotional show in 2010 for the release of *The Promise.* It's on my chase list, though–I'd love to hear it performed intact.
 
 **The Brokenhearted**<br>
-**Recorded:** November 29, 1977 (plus additional work in 2010)
+**Recorded:** November 29, 1977 (plus additional work in 2010)<br>
 **Released:** *The Promise* (2010)<br>
 **First performed:** December 7, 2010 (Asbury Park, NJ)<br>
 **Last performed:** December 7, 2010 (Asbury Park, NJ)<br>

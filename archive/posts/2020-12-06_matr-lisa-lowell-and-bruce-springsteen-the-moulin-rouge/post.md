@@ -10,4 +10,4 @@ Too bad they've never performed it together live.
 
 **The Moulin Rouge**<br>
 **Released:** *Beautiful Behavior* (2010)<br>
-**Never performed live** (by Bruce)
+**Never performed live** (by Bruce)<br>

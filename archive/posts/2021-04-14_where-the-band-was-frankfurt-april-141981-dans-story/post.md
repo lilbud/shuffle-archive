@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *Today's guest blogger has the most vividly detailed and colorful E Street adventure I've ever heard (so much so that I've had to split it into two parts).*
+***Editor's Note:*** *Today's guest blogger has the most vividly detailed and colorful E Street adventure I've ever heard (so much so that I've had to split it into two parts).*<br>
 
 > *Dan French is the founder of one of the very first Springsteen fanzines: Point Blank, first published in 1980. Point Blank published ten issues (and a couple of specials) through 1992; today, it lives on as a vibrant [Facebook community](https://www.facebook.com/groups/290908270798).*<br>
 

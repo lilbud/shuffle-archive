@@ -72,7 +72,7 @@ It was a highlight of Steve's Summer of Sorcery tour to hear "Little Girl So Fin
 [Watch on Youtube: Little Steven and the Disciples of Soul - Little Girl So Fine @ Leeds O2 Academy 2019](https://www.youtube.com/watch?v=l1IiErAx2P8)
 
 **Little Girl So Fine**<br>
-**Recorded:** December 1976 or early 1977
+**Recorded:** December 1976 or early 1977<br>
 **Released:** *This Time It's For Real* (1977)<br>
 **Never performed live**<br>
 

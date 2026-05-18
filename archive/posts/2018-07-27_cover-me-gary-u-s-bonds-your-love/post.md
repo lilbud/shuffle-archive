@@ -71,7 +71,7 @@ So "Your Love" remains on my chase list, and it's probably destined to stay ther
 **Your Love**<br>
 **Recorded** 1981<br>
 **Released:** Dedication (1981)<br>
-**First performed** (by Bruce): July 2, 1989 (Long Branch, NJ)
-**Last performed** (by Bruce): July 2, 1989 (Long Branch, NJ)
+**First performed** (by Bruce): July 2, 1989 (Long Branch, NJ)<br>
+**Last performed** (by Bruce): July 2, 1989 (Long Branch, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -46,12 +46,12 @@ Watch Bruce spontaneously decide to keep it going when Joe tries to end it at ar
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kz8TjdmOSuw)
 
-**Update 1/3/2024:** At the Rock and Roll Hall of Fame induction ceremony in 2022, attendees (including this blogger) were delighted by a surprise encore performance at the ceremony’s conclusion: a loose, seemingly unplanned team-up on “Great Balls of Fire” by Bruce and John Mellencamp.
+**Update 1/3/2024:** At the Rock and Roll Hall of Fame induction ceremony in 2022, attendees (including this blogger) were delighted by a surprise encore performance at the ceremony’s conclusion: a loose, seemingly unplanned team-up on “Great Balls of Fire” by Bruce and John Mellencamp.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IgNDpFCzDvA)
 
-**Great Balls of Fire
-First performed:** October 29, 1990 (San Fernando Valley, CA)
-**Last performed:** November 5, 2022 (Los Angeles, CA)
+**Great Balls of Fire**<br>
+**First performed:** October 29, 1990 (San Fernando Valley, CA)<br>
+**Last performed:** November 5, 2022 (Los Angeles, CA)<br>
 
 © August 10, 2022

@@ -99,15 +99,15 @@ I'm too far invested in Bruce's life story and body of work to be able to evalua
 
 A deep cut in every sense, "House of a Thousand Guitars" is the letter in *Letter to You*.
 
-**Bonus:** For a song purportedly written in celebration of his band, it's ironic that Bruce's first public performance of "House of a Thousand Guitars" was an acoustic husband-and-wife duet, at the annual Stand Up For Heroes benefit in late 2020. It was a perfect selection, though: their stripped-down arrangement revealed a more universally resonant song that celebrates the heroic sacrifices and resilience of those who defend the ideals of a nation struggling to live up to them.
+**Bonus:** For a song purportedly written in celebration of his band, it's ironic that Bruce's first public performance of "House of a Thousand Guitars" was an acoustic husband-and-wife duet, at the annual Stand Up For Heroes benefit in late 2020. It was a perfect selection, though: their stripped-down arrangement revealed a more universally resonant song that celebrates the heroic sacrifices and resilience of those who defend the ideals of a nation struggling to live up to them.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=z27MexwKxT4)
 
-**Bonus #2 (Updated 1/2/2024):** "House of a Thousand Guitars" seemed a lock for the E Street Band's first post-pandemic tour, but surprisingly Bruce dropped it after only two outings. Perhaps it was too slow and contemplative for an arena show, but as someone who was front and center for both nights, I can attest to its power. Here's an early full-band version of "House of a Thousand Guitars" so you can judge for yourself.
+**Bonus #2 (Updated 1/2/2024):** "House of a Thousand Guitars" seemed a lock for the E Street Band's first post-pandemic tour, but surprisingly Bruce dropped it after only two outings. Perhaps it was too slow and contemplative for an arena show, but as someone who was front and center for both nights, I can attest to its power. Here's an early full-band version of "House of a Thousand Guitars" so you can judge for yourself.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s9Yt6IYR0EA)
 
-**Bonus #3 (Updated 12/4/2025):** "House of a Thousand Guitars" returned for the Land of Hope and Dreams Tour in 2025. This time, however, Bruce played it alone on acoustic guitar, recapturing the song's original intimacy.
+**Bonus #3 (Updated 12/4/2025):** "House of a Thousand Guitars" returned for the Land of Hope and Dreams Tour in 2025. This time, however, Bruce played it alone on acoustic guitar, recapturing the song's original intimacy.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=c-W_0R1V4TA)
 

@@ -81,7 +81,7 @@ While fans would have to wait until 2025 to hear the official studio recording, 
 
 **Follow That Dream**<br>
 **Recorded** January 30, 1983<br>
-**Released:** *L.A. Garage Sessions '83* (2025)
+**Released:** *L.A. Garage Sessions '83* (2025)<br>
 **First performed:** April 19, 1981 (Paris, France)<br>
 **Last performed:** February 16, 2017 (Brisbane, Australia)<br>
 

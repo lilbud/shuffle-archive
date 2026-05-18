@@ -30,7 +30,7 @@ And then never again.
 
 Bruce's arrangement was gorgeous and his vocals warm, longing, and impassioned. King must have been impressed.
 
-**Bonus:** In his introduction to the song, Bruce acknowledged King and tipped his hat to The Byrds' version (calling them "my favorite L.A. band, I guess").
+**Bonus:** In his introduction to the song, Bruce acknowledged King and tipped his hat to The Byrds' version (calling them "my favorite L.A. band, I guess").<br>
 
 But he also acknowledged one other notable cover by 24-year-old Nils Lofgren. Nils had released his version just six months earlier, and only a few weeks after his future bandmates performed it in L.A., Nils would be singing it himself in the U.K.
 

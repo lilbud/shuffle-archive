@@ -83,13 +83,13 @@ But I think my favorite all-time performance of "Jersey Girl" was on August 25, 
 
 This video was too close to capture the fireworks at the end of the song. But I was there, so trust me when I tell you: the fireworks couldn't make that moment any more wonderful than it already was.
 
-**Updated 12/13/2020:** During the early days of the great shutdown of 2020, Bruce and Patti contributed their talents to a fundraiser for the New Jersey Pandemic Relief Fund. One of the songs they performed that evening was a poignant reading of "Jersey Girl."
+**Updated 12/13/2020:** During the early days of the great shutdown of 2020, Bruce and Patti contributed their talents to a fundraiser for the New Jersey Pandemic Relief Fund. One of the songs they performed that evening was a poignant reading of "Jersey Girl."<br>
 
 [Watch on Youtube: Jersey Girl - Bruce Springsteen and Patti Scialfa (Jersey 4 Jersey COVID-19 Benefit Relief 2020)](https://www.youtube.com/watch?v=1thNca2rZW4)
 
 **Jersey Girl**<br>
-**Recorded:** July 9, 1981 (live)
-**Released:** *Live 1975-85* (1986)
+**Recorded:** July 9, 1981 (live)<br>
+**Released:** *Live 1975-85* (1986)<br>
 **First performed:** June 22, 1981 (East Orange, NJ)<br>
 **Last performed:** September 15, 2024 (Asbury Park, NJ)<br>
 

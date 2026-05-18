@@ -16,7 +16,7 @@ Take a listen to this superb recording of Joe Grushecky and The Houserockers (fe
 
 Bruce joined Joe and The Houserockers throughout their American Babylon Tour (otherwise known as the October Assault), and "Pumping Iron" featured prominently in the setlist.
 
-**Bonus:** Bruce and Joe would reprise it many times over the years that followed–although only in Pittsburgh or Asbury Park. Their last performances (to date, at least) were at the Wonder Bar on July 18, 2015, and at Light of Day in January 2020, and fortunately they were captured from close-up.
+**Bonus:** Bruce and Joe would reprise it many times over the years that followed–although only in Pittsburgh or Asbury Park. Their last performances (to date, at least) were at the Wonder Bar on July 18, 2015, and at Light of Day in January 2020, and fortunately they were captured from close-up.<br>
 
 [Watch on Youtube: Bruce Springsteen live at Wonder Bar Atlantic City into Pumping Iron 07/18/2015](https://www.youtube.com/watch?v=SN5QnT6WOp4)
 

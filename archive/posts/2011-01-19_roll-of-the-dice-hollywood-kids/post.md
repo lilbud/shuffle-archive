@@ -39,7 +39,7 @@ As the singer signs off: Yeah, that's it for that one.
 
 **Hollywood Kids**<br>
 **Recorded** April 1972<br>
-**Never released**
+**Never released**<br>
 **Never performed**<br>
 
 © January 9, 2018

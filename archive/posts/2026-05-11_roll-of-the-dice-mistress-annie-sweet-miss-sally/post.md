@@ -22,8 +22,8 @@ Whether it's Sally or Annie, either way it seems that the woman question is a la
 
 Enjoy the jam instead.
 
-**Sweet Miss Sally/Mistress Annie**
-**Never recorded
+**Sweet Miss Sally/Mistress Annie**<br>
+**Never recorded**<br>
 Never released**
 **First performed:** December 3, 1971 (Asbury Park, NJ)<br>
 **Last performed:** January 21, 1972 (Neptune, NJ)<br>

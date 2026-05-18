@@ -24,7 +24,7 @@ This second and last known Bruce Springsteen Band performance of "Bright Lights,
 
 Bruce would end his eponymous band by that summer; by the fall, he'd begin touring for his first album. But that first half of 1972 brought a collection of smoking, stunning pre-fame performances by a band that would soon set the world on fire.
 
-**Bonus:** Bruce played "Bright Lights, Big City," only once more after his Bruce Springsteen Band era. Just before he reached his peak of popularity in the summer of 1984, Bruce joined John Eddie & The Front Street Runners on stage at The Stone Pony.
+**Bonus:** Bruce played "Bright Lights, Big City," only once more after his Bruce Springsteen Band era. Just before he reached his peak of popularity in the summer of 1984, Bruce joined John Eddie & The Front Street Runners on stage at The Stone Pony.<br>
 
 Bruce joined John for four songs that night, one of which was a cover of the Jimmy Read classic. That performance was captured, too. It sounds a lot more like what we'd expect a Springsteen cover of "Bright Lights, Big City" to sound like, but I prefer the swinging 1972 version to the hard-rocking '84 one.
 

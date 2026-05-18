@@ -129,11 +129,11 @@ My favorite performances, though, are when Bruce plays it alone at the piano. "I
 
 [Watch on Youtube: Independence Day (Live - Paris, 07/04/12)](https://www.youtube.com/watch?v=SKzOHemAFPw)
 
-**Bonus #1:** The original recording of "Independence Day" featured a longer instrumental coda, which was abridged for the final album version. Here's that original uncut track below, almost a minute longer than on the album.
+**Bonus #1:** The original recording of "Independence Day" featured a longer instrumental coda, which was abridged for the final album version. Here's that original uncut track below, almost a minute longer than on the album.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/YHwWy2gb)
 
-**Bonus #2:** I love this intimate solo guitar performance from the documentary accompanying the anniversary box set for *The River*. It's annotated with Bruce's comments over the song in a few spots, but it's lovely all the same.
+**Bonus #2:** I love this intimate solo guitar performance from the documentary accompanying the anniversary box set for *The River*. It's annotated with Bruce's comments over the song in a few spots, but it's lovely all the same.<br>
 
 [Watch on Youtube: Bruce Springsteen-Independence Day from "Ties" Documentary](https://www.youtube.com/watch?v=xouTzlWWpa4)
 

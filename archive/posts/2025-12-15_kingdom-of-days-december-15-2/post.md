@@ -1,12 +1,12 @@
-***New for 2025:** New entry for 1977; audio for 1978*
+***New for 2025:** New entry for 1977; audio for 1978*<br>
 
-**1973:** Bruce and the E Street Band play a gig at Nassau Community College in Garden City, New York. The show is filmed, and snippets of it have been aired at special events and in documentaries.
+**1973:** Bruce and the E Street Band play a gig at Nassau Community College in Garden City, New York. The show is filmed, and snippets of it have been aired at special events and in documentaries.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/0GMcGpH8)
 
-**1977:** Bruce and the E Street Band work on "Adam Raised a Cain" at a recording session at The Record Plant in New York City.
+**1977:** Bruce and the E Street Band work on "Adam Raised a Cain" at a recording session at The Record Plant in New York City.<br>
 
-**1978:** Bruce and the band play their first of two nights at the Winterland Ballroom in San Francisco on the Darkness Tour, and it will go down in history as one of their best. Broadcast live on KSAN-FM and captured as a soundboard recording, this show will be prolifically bootlegged for decades to come. It will finally be officially released more than four decades later as part of Bruce's archive series–get it [here](https://live.brucespringsteen.net/live-music/0,23615/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-15-1978-Winterland-Arena-San-Francisco-CA.html).
+**1978:** Bruce and the band play their first of two nights at the Winterland Ballroom in San Francisco on the Darkness Tour, and it will go down in history as one of their best. Broadcast live on KSAN-FM and captured as a soundboard recording, this show will be prolifically bootlegged for decades to come. It will finally be officially released more than four decades later as part of Bruce's archive series–get it [here](https://live.brucespringsteen.net/live-music/0,23615/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-15-1978-Winterland-Arena-San-Francisco-CA.html).<br>
 
 [Watch on Youtube: Streets of Fire (Live at Winterland Arena, San Francisco, CA - 12/15/1978)](https://www.youtube.com/watch?v=buib4a2xlDs)
 
@@ -22,19 +22,19 @@
 
 ![](../../assets/2020/11/1978-12-15.png)
 
-**1980:** Bruce and the boys play their first of two River Tour nights at the Boston Garden.
+**1980:** Bruce and the boys play their first of two River Tour nights at the Boston Garden.<br>
 
 [Watch on Youtube: Bruce Springsteen - "For You" - Boston, 1980-12-15](https://www.youtube.com/watch?v=1z2be7bb0QI)
 
 ![](../../assets/2020/11/1980-12-15.png)
 
-**1995:** Bruce plays his first of two solo acoustic shows at the Orpheum Theater in Boston, where he plays every song from [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) for the last time to date.
+**1995:** Bruce plays his first of two solo acoustic shows at the Orpheum Theater in Boston, where he plays every song from [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) for the last time to date.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8xw9PMw0)
 
 ![](../../assets/2018/12/1995-1215.jpg)
 
-**2001:** Bruce makes a guest appearance with Tim McLoone's Holiday Express at the Continental Airlines Arena in East Rutherford.
+**2001:** Bruce makes a guest appearance with Tim McLoone's Holiday Express at the Continental Airlines Arena in East Rutherford.<br>
 
 [Watch on Youtube: Merry Christmas Baby - Bruce Springsteen (live at the Meadowlands Arena, East Rutherford 2001)](https://www.youtube.com/watch?v=idLXa1qQmNc)
 
@@ -42,7 +42,7 @@
 
 ![](../../assets/2024/12/Asbury_Park_Press_2001_12_21_Page_102-scaled.jpg)
 
-**2007:** Bruce and the E Street Band bring the Magic Tour to the Odyssey Arena in Belfast.
+**2007:** Bruce and the E Street Band bring the Magic Tour to the Odyssey Arena in Belfast.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Lgj-Bn7CHv0?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
 
@@ -52,7 +52,7 @@
 
 ![](../../assets/2023/12/The_Daily_Telegraph_Mon__Dec_17__2007_.jpg)
 
-**2012:** Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, joining Mick Jagger on vocals for "[Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/)."
+**2012:** Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, joining Mick Jagger on vocals for "[Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/)."<br>
 
 [Watch on Youtube: Lady Gaga, Bruce Springsteen and the Black Keys rehearse with the Rolling Stones](https://www.youtube.com/watch?v=1MDytQVZb34)
 
@@ -60,9 +60,9 @@
 
 ![](../../assets/2020/12/2012-12-15.png)
 
-**2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
+**2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2018:** *Springsteen on Broadway* closes its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Oprah Winfrey. Shortly after the show ends, Netflix releases the show on streaming video.
+**2018:** *Springsteen on Broadway* closes its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Oprah Winfrey. Shortly after the show ends, Netflix releases the show on streaming video.<br>
 
 ![](../../assets/2020/12/2018-12-15a.png)
 
@@ -70,6 +70,6 @@
 
 [Watch on Youtube: Springsteen on Broadway | Official Trailer [HD] | Netflix](https://www.youtube.com/watch?v=M1xDzgob1JI)
 
-**2020:** Bruce appears on a television special entitled *Play On: Celebrating the Power of Music to Make Change*, speaking in support of WhyHunger.
+**2020:** Bruce appears on a television special entitled *Play On: Celebrating the Power of Music to Make Change*, speaking in support of WhyHunger.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/GHZohMSF)

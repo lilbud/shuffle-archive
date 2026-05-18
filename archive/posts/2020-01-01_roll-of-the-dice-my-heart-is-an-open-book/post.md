@@ -48,7 +48,7 @@ Bruce's lyrics are unclear here at times–perhaps bluffed, even–but this is a
 > *My heart is an open book to you*<br>
 
 **My Heart Is an Open Book**<br>
-**Recorded** March-April 1981 (home demo)
+**Recorded** March-April 1981 (home demo)<br>
 **Never released**<br>
 **Never performed**<br>
 

@@ -1,8 +1,8 @@
-**1969:** Child plays their last of six consecutive nights at the Pandemonium in Wanamassa, New Jersey. On this night, however, the band isn't the center of attention: during Bruce's performance, Neil Armstrong lands and walks on the moon. That's tough for anyone to compete with, and the band takes issue with the distracting televisions placed around the club. They won't play this club again.
+**1969:** Child plays their last of six consecutive nights at the Pandemonium in Wanamassa, New Jersey. On this night, however, the band isn't the center of attention: during Bruce's performance, Neil Armstrong lands and walks on the moon. That's tough for anyone to compete with, and the band takes issue with the distracting televisions placed around the club. They won't play this club again.<br>
 
-**1973:** Bruce and the E Street band play their third of six consecutive two-shows-nightly gigs at Max's Kansas City in New York, with the Wailers as the opening act.
+**1973:** Bruce and the E Street band play their third of six consecutive two-shows-nightly gigs at Max's Kansas City in New York, with the Wailers as the opening act.<br>
 
-**1975:** A red-letter (and red-eyed) day for Bruce and the E Street Band: after a marathon nineteen-hour rehearsal that ends at 3am, and after recording work on "Jungleland" that continued until 10am, the band races to the Palace Theater in Providence, Rhode Island, for the opening night of the Born to Run Tour and Steven Van Zandt's debut as a member of the E Street Band.
+**1975:** A red-letter (and red-eyed) day for Bruce and the E Street Band: after a marathon nineteen-hour rehearsal that ends at 3am, and after recording work on "Jungleland" that continued until 10am, the band races to the Palace Theater in Providence, Rhode Island, for the opening night of the Born to Run Tour and Steven Van Zandt's debut as a member of the E Street Band.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=l6IwxpL-ZDk)
 
@@ -10,29 +10,29 @@
 
 ![](../../assets/2021/07/1975-07-20.png)
 
-**1999:** The opening stand of the Reunion Tour's U.S. leg continues with Night Three at the Continental Airlines Arena in East Rutherford.
+**1999:** The opening stand of the Reunion Tour's U.S. leg continues with Night Three at the Continental Airlines Arena in East Rutherford.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DhJGQnGP)
 
 ![](../../assets/2020/07/1999-07-20.png)
 
-**2005:** Bruce brings his solo acoustic tour to Bridgeport, Connecticut, where he tour premieres "All That Heaven Will Allow" and "Nothing Man," both on electric piano.
+**2005:** Bruce brings his solo acoustic tour to Bridgeport, Connecticut, where he tour premieres "All That Heaven Will Allow" and "Nothing Man," both on electric piano.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/wpRIRm41)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L9XCvwdwCVk)
 
-**2008:** Bruce and the E Street Band play their last European Magic show, at Camp Nou in Barcelona, tour premiering "I'm Goin' Down" (the first time that song has ever been played in Europe).
+**2008:** Bruce and the E Street Band play their last European Magic show, at Camp Nou in Barcelona, tour premiering "I'm Goin' Down" (the first time that song has ever been played in Europe).<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SzMNhfqCOJ8)
 
 [Watch Video Highlight](https://videopress.com/embed/sWVYJ29B)
 
-**2011:** Bruce takes Evan to see U2 at the New Meadowlands Stadium, where Bono pays tribute to Clarence and outros from "Moment of Surrender" into "Jungleland."
+**2011:** Bruce takes Evan to see U2 at the New Meadowlands Stadium, where Bono pays tribute to Clarence and outros from "Moment of Surrender" into "Jungleland."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dtmUsQjADjc)
 
-**2013:** Bruce tour debuts "Nebraska" (as the fourth song in a *Nebraska* mini-set) and "Fade Away" when the Wrecking Ball Tour stops at King's Hall in Belfast. Early fans get an extra treat: short but remarkable pre-show featuring a rare outing for "Maria's Bed."
+**2013:** Bruce tour debuts "Nebraska" (as the fourth song in a *Nebraska* mini-set) and "Fade Away" when the Wrecking Ball Tour stops at King's Hall in Belfast. Early fans get an extra treat: short but remarkable pre-show featuring a rare outing for "Maria's Bed."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZG9JFy-hfXA)
 
@@ -46,7 +46,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=N8_Te_3hzjc)
 
-**2016:** The revived River Tour moves on to Horsens, Denmark, where Bruce opens with a tour premiere of "Dream Baby Dream" in memory of songwriter Alan Vega, who died four days prior. Other tour premieres include "You Never Can Tell," "Frankie" and "Follow That Dream."
+**2016:** The revived River Tour moves on to Horsens, Denmark, where Bruce opens with a tour premiere of "Dream Baby Dream" in memory of songwriter Alan Vega, who died four days prior. Other tour premieres include "You Never Can Tell," "Frankie" and "Follow That Dream."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=M7VBOp1OrEM)
 
@@ -56,9 +56,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ibvtobZFKNE)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2025:** Bruce makes a surprise on-stage appearance with Zach Bryan at MetLife Stadium, performing with Zach and Caleb Followill on "Atlantic City" and returning for an encore of "Revival."
+**2025:** Bruce makes a surprise on-stage appearance with Zach Bryan at MetLife Stadium, performing with Zach and Caleb Followill on "Atlantic City" and returning for an encore of "Revival."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=E1V0ncuInHc)
 

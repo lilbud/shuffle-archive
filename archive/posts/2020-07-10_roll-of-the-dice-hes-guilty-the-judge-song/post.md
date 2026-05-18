@@ -65,7 +65,7 @@ In 2005, however, original Steel Mill (and E Street Band) drummer Vini Lopez for
 https://www.youtube.com/watch?v=ElFaxyfclRc
 
 **He's Guilty (The Judge Song)**<br>
-**Recorded:** February 22, 1970
+**Recorded:** February 22, 1970<br>
 **Released:** *Chapter and Verse* (2016)<br>
 **First performed:** January 13, 1970 (San Francisco, CA)<br>
 **Last performed:** January 23, 1971 (Asbury Park, NJ)<br>

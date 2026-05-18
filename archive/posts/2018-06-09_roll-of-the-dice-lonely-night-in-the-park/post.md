@@ -128,8 +128,8 @@ Seriously: this song is an absolute mess, but I love it. I can't explain why suc
 
 Lonely lonely lonely night…
 
-**Lonely Night in the Park****Recorded:** Feb-Apr, 1975
-**Never Released**
+**Lonely Night in the Park****Recorded:** Feb-Apr, 1975<br>
+**Never Released**<br>
 **Never Performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

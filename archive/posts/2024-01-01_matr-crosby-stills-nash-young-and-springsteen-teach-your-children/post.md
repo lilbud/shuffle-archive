@@ -8,10 +8,10 @@ The original, of course, can’t be topped.
 
 [Watch on Youtube: Teach Your Children](https://www.youtube.com/watch?v=UuBGEoxbFN4)
 
-**Update:** 35 years later, Bruce reprised “Teach Your Children” with Steve Earle, Willie Nile, and Rosanne Cash at Earle’s benefit show in New Yor City.
+**Update:** 35 years later, Bruce reprised “Teach Your Children” with Steve Earle, Willie Nile, and Rosanne Cash at Earle’s benefit show in New Yor City.<br>
 
 [Watch on Youtube: Teach Your Children Bruce Springsteen Steve Earle Rosanne Cash Willie Nile Town Hall 12-13-21 NYC](https://www.youtube.com/watch?v=Lwy6jhemprw)
 
-**Teach Your Children
-First performed:** October 13, 1986 (Mountain View, CA)
-**Last performed:** December 13, 2021 (New York City, NY)
+**Teach Your Children**<br>
+**First performed:** October 13, 1986 (Mountain View, CA)<br>
+**Last performed:** December 13, 2021 (New York City, NY)<br>

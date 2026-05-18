@@ -93,7 +93,7 @@ It was almost a full decade before Bruce tried again, this time by request on th
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=u45c-Owpl40)
 
 **Local Hero**<br>
-**Recorded:** Late 1991
+**Recorded:** Late 1991<br>
 **Released:** *Lucky Town* (1992), *In Concert/MTV Plugged* (1993)<br>
 **First performed:** May 6, 1992 (New York City, NY)<br>
 **Last performed:** September 15, 2024 (Asbury Park, NJ)<br>

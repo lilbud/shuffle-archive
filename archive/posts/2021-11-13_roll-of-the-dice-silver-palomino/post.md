@@ -97,12 +97,12 @@ As for our narrator, he rides in red, the color of blood and life, a nightly vis
 
 ---
 
-**Bonus:** Bruce performed "Silver Palomino" frequently during the Devils & Dust Tour (including once when Tyler Chappel was in the audience in Albany), but not at all since. Here's one of his best performances, captured on film on the tour's opening night.
+**Bonus:** Bruce performed "Silver Palomino" frequently during the Devils & Dust Tour (including once when Tyler Chappel was in the audience in Albany), but not at all since. Here's one of his best performances, captured on film on the tour's opening night.<br>
 
 [Watch on Youtube: Silver Palomino (solo acoustic) Bruce Springsteen 4/25/2005 Detroit, MI](https://www.youtube.com/watch?v=F20vN0Fs8ZU)
 
 **Silver Palomino**<br>
-**Recorded** 1996-97 (core recording), 2004 (strings)
+**Recorded** 1996-97 (core recording), 2004 (strings)<br>
 **Released:** *Devils & Dust* (2005)<br>
 **First performed:** April 21, 2005 (Asbury Park, NJ)<br>
 **Last performed:** October 28, 2005 (Boston, MA)<br>

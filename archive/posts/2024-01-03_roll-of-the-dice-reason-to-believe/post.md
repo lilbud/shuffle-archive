@@ -135,7 +135,7 @@ Bruce's 1982 recording of "Reason to Believe" was a question, but when he perfor
 
 **Reason to Believe**<br>
 **Recorded** January 3, 1982<br>
-**Released:** *Nebraska* (1982)
+**Released:** *Nebraska* (1982)<br>
 **First performed:** July 1, 1984 (St. Paul, MN)<br>
 **Last performed:** July 11, 2016 (Paris, France)<br>
 

@@ -1,6 +1,6 @@
 ***Editor's Note***<br>
 
-****Roll of the Dice, Cover Me, and Meeting Across the River take a brief holiday after today's post so I can do my annual year-end site clean-up.*
+****Roll of the Dice, Cover Me, and Meeting Across the River take a brief holiday after today's post so I can do my annual year-end site clean-up.*<br>
 
 > *Each December, I take a sweep through the site and replace broken video links, update song performance statistics, add cross-links to all the essays I wrote that year, and other miscellaneous tidying tasks. I've always managed to do it without taking time off, but each year adds another 365 or so essays, and now that we're four years in… well, that's a lot of reviewing and updating.*<br>
 
@@ -8,7 +8,7 @@
 
 *Regular programming resumes on Christmas Eve. Have a great holiday season until then, and thanks for reading!****
 
-***Ben E. King was listening to Sam Cooke's "Stand By Me Father," recorded by The Soul Stirrers in 1959, when inspiration struck.
+***Ben E. King was listening to Sam Cooke's "Stand By Me Father," recorded by The Soul Stirrers in 1959, when inspiration struck.<br>
 
 [Watch on Youtube: "Stand By Me Father" - The Soul Stirrers | ABKCO](https://www.youtube.com/watch?v=weYZt3FAqi4)
 

@@ -1,4 +1,4 @@
-**Updated 10/23/20:** Well, the first sentence of my original essay sure did age well. As of a few minutes ago, we finally have an officially released version of "If I Was the Priest," and an E Street Band version to boot. I'm going to let my original essay stand unedited–I think the lyrical analysis holds up (the differences between the original and modern versions are minor), and while the tremendous E Street Band performance deserves some discussion (as well as Bruce's vocals–he's in full Dylan mode), I'll save that for another day. For now, it's enough to just rejoice in a terrific song finally realized fifty years after Bruce first played it.
+**Updated 10/23/20:** Well, the first sentence of my original essay sure did age well. As of a few minutes ago, we finally have an officially released version of "If I Was the Priest," and an E Street Band version to boot. I'm going to let my original essay stand unedited–I think the lyrical analysis holds up (the differences between the original and modern versions are minor), and while the tremendous E Street Band performance deserves some discussion (as well as Bruce's vocals–he's in full Dylan mode), I'll save that for another day. For now, it's enough to just rejoice in a terrific song finally realized fifty years after Bruce first played it.<br>
 
 [Watch on Youtube: Bruce Springsteen - If I Was The Priest (Official Audio)](https://www.youtube.com/watch?v=izbq7IUYja0)
 
@@ -100,7 +100,7 @@ So here's a bonus demo instead: earlier than both of the above performances, thi
 [Watch on Youtube: Bruce Springsteen - "If I Was the Priest" version 1](https://www.youtube.com/watch?v=w-QDe3ZJ4QE)
 
 **If I Was the Priest**<br>
-**Recorded** April-June 1972 (solo), November 2019 (band)
+**Recorded** April-June 1972 (solo), November 2019 (band)<br>
 **Released:** *Letter to You* (2020)<br>
 **First performed:** February 14, 2023 (Houston, TX) (but likely performed in 1971 as well)<br>
 **Last performed:** February 21, 2023 (Tulsa, OK)<br>

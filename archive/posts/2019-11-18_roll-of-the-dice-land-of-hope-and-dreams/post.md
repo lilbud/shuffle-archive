@@ -50,7 +50,7 @@ LOHAD has been a staple ever since. Bruce performed it throughout the Rising Tou
 
 The studio version of LOHAD also contains Clarence Clemons' last (albeit posthumous) contribution to Bruce's catalog: the saxophone solo you hear is actually lifted from a live concert performance, grafted seamlessly into the studio recording to bring it to life.
 
-**Standout performance:** My all-time favorite LOHAD performance is an acoustic one, at Chicago's Rosemont Theater in the spring of 2005. Bruce had performed this arrangement several times prior, but on this night, Bruce snapped a few guitar strings in the middle of the performance. ("We're screwed, now!" he laughed.)
+**Standout performance:** My all-time favorite LOHAD performance is an acoustic one, at Chicago's Rosemont Theater in the spring of 2005. Bruce had performed this arrangement several times prior, but on this night, Bruce snapped a few guitar strings in the middle of the performance. ("We're screwed, now!" he laughed.)<br>
 
 What happens next is one of those unpredictable magic Springsteen moments: without missing a single beat, Bruce throws his guitar to Kevin Buell, his guitar tech, and sings the bridge a capella. Kevin returns an intact, tuned guitar to Bruce at the very moment the bridge ends, and Bruce resumes playing as if that was the plan all along. The crowd, of course, goes nuts.
 
@@ -58,12 +58,12 @@ What happens next is one of those unpredictable magic Springsteen moments: witho
 
 <https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3>
 
-**Updated 11/17/2019:** I was fortunate to see Bruce play an acoustic version of "Land of Hope and Dreams" a couple of weeks ago at this year's Stand Up for Heroes Benefit. It was the most achingly beautiful version I've ever heard him play, and it needs to be shared. Watch it below, following its segue from "Dancing in the Dark."
+**Updated 11/17/2019:** I was fortunate to see Bruce play an acoustic version of "Land of Hope and Dreams" a couple of weeks ago at this year's Stand Up for Heroes Benefit. It was the most achingly beautiful version I've ever heard him play, and it needs to be shared. Watch it below, following its segue from "Dancing in the Dark."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L50sqx9fYjg)
 
-**Land of Hope and Dreams
-**Recorded:** July 1, 2000 (live), unknown (studio)**Released:** *Live in New York City* (2002), *Wrecking Ball* (2011)**First performed:** March 18, 1999 (Asbury Park, NJ)
+**Land of Hope and Dreams**<br>
+**Recorded:** July 1, 2000 (live), unknown (studio)**Released:** *Live in New York City* (2002), *Wrecking Ball* (2011)**First performed:** March 18, 1999 (Asbury Park, NJ)<br>
 **Last performed:** November 4, 2019 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

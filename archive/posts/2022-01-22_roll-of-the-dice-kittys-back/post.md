@@ -101,7 +101,7 @@ The song they came to play that night was the song that truly showcases the amaz
 
 **Kitty's Back**<br>
 **Recorded** June 28, 1973 – September 23, 1973<br>
-**Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)
+**Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)<br>
 **First performed:** July 20, 1973 (New York City, NY)<br>
 **Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 

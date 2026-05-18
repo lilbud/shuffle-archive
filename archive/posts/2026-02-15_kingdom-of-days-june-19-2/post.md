@@ -1,38 +1,38 @@
-**1967:** Bruce Springsteen graduates from Freehold Borough High School. He does not attend, however, but instead picks up his diploma later.
+**1967:** Bruce Springsteen graduates from Freehold Borough High School. He does not attend, however, but instead picks up his diploma later.<br>
 
 ![](../../assets/2018/06/1967-0619.jpg)
 
-**1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
+**1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
 ![](../../assets/2018/06/1968-0619.jpg)
 
-**1970:** Steel Mill takes a trip down to Richmond, where they play the first of two nights at The String Factory. The set list includes a twenty-minute "Garden State Parkway Blues" and the only known performance of "Where Was Jesus in Ohio?"
+**1970:** Steel Mill takes a trip down to Richmond, where they play the first of two nights at The String Factory. The set list includes a twenty-minute "Garden State Parkway Blues" and the only known performance of "Where Was Jesus in Ohio?"<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=75UD5Xo01M4)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=q0Du_WZIjgo)
 
-**1971:** The Sundance Blues Band plays the Student Prince in Asbury Park.
+**1971:** The Sundance Blues Band plays the Student Prince in Asbury Park.<br>
 
 ![](../../assets/2020/06/1971-06-19.jpg)
 
 ![](../../assets/2018/06/1971-0619.jpg)
 
-**1974:** Bruce cancels a scheduled date at the Cowtown Ballroom in Kansas City.
+**1974:** Bruce cancels a scheduled date at the Cowtown Ballroom in Kansas City.<br>
 
-**1988:** Bruce and the E Street Band bring the Tunnel of Love Tour to Paris for a single show at the Hippodrome de Vincennes.
+**1988:** Bruce and the E Street Band bring the Tunnel of Love Tour to Paris for a single show at the Hippodrome de Vincennes.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6zv4sUHh5lg)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=McWF04ZD7qw)
 
-**1999:** At Night One in Arnhem on the Reunion Tour, Bruce and the E Street Band tour premiere "Stand On It."
+**1999:** At Night One in Arnhem on the Reunion Tour, Bruce and the E Street Band tour premiere "Stand On It."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/EHBMBZae)
 
 [Watch Video Highlight](https://videopress.com/embed/oiYswN6O)
 
-**2003:** The Rising Tour stops in Oslo for a night, where "Where the Bands Are" gets a rare outing. Word gets out about where Bruce and the band are staying, and crowds form to greet him as he leaves for the show.
+**2003:** The Rising Tour stops in Oslo for a night, where "Where the Bands Are" gets a rare outing. Word gets out about where Bruce and the band are staying, and crowds form to greet him as he leaves for the show.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NCAYMEGXfXo)
 
@@ -40,11 +40,11 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ea1y2A6FAIY)
 
-**2004:** In support of her new album, *23rd Street Lullaby*, Patti Scialfa drops by *Weekend Today* for an interview.
+**2004:** In support of her new album, *23rd Street Lullaby*, Patti Scialfa drops by *Weekend Today* for an interview.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/14y2ksQZ)
 
-**2005:** Bruce plays "Adam Raised a Cain" for the first time on the Devils & Dust Tour, opening with it at his solo acoustic show in Rotterdam. Before the show, Bruce sits down for an interview with a local reporter.
+**2005:** Bruce plays "Adam Raised a Cain" for the first time on the Devils & Dust Tour, opening with it at his solo acoustic show in Rotterdam. Before the show, Bruce sits down for an interview with a local reporter.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7YGNzMtCMqo)
 
@@ -56,13 +56,13 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zO9akJo53-8)
 
-**2006:** The Seeger Sessions Tour stops at the Performing Arts Center in Saratoga Springs, where "Buffalo Gals" makes its final tour appearance.
+**2006:** The Seeger Sessions Tour stops at the Performing Arts Center in Saratoga Springs, where "Buffalo Gals" makes its final tour appearance.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-Pi4xwctX_o)
 
 ![](../../assets/2021/06/2006-06-19.jpg)
 
-**2012:** The Wrecking Ball Tour stops in Montpellier, where Bruce and the band tour premiere "Growin' Up" and "Fire."
+**2012:** The Wrecking Ball Tour stops in Montpellier, where Bruce and the band tour premiere "Growin' Up" and "Fire."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oj8ss5Pt6TI)
 
@@ -72,7 +72,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OaymbCdxrvM)
 
-**2016:** Bruce and the E Street Band tour premiere "My Lucky Day" at their tour stop in Berlin.
+**2016:** Bruce and the E Street Band tour premiere "My Lucky Day" at their tour stop in Berlin.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=l-pvsoFf9KM)
 
@@ -84,7 +84,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WqvI0lQyCWY)
 
-**2018:** News has been building surrounding the Trump administration's inhumane child separation policy, and Bruce has had enough of it. He deviates from his *Springsteen on Broadway* script mid-show at New York City's Walter Kerr Theater in order to address it:
+**2018:** News has been building surrounding the Trump administration's inhumane child separation policy, and Bruce has had enough of it. He deviates from his *Springsteen on Broadway* script mid-show at New York City's Walter Kerr Theater in order to address it:<br>
 
 > *I never believed that people come to my shows, or rock shows to be told anything.*<br>
 

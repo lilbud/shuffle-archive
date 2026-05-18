@@ -68,8 +68,8 @@ But about two thirds of the way through, the small changes start having a bigger
 …becomes:
 
 > *But it's too hot in these tunnels, you can get hit up by the heat*
-***You** get up to get out at **your** next stop but they push **you** back down in **your** seat*
-***Your** heart starts beatin' faster as **you** struggle to **your** feet*
+***You** get up to get out at **your** next stop but they push **you** back down in **your** seat*<br>
+***Your** heart starts beatin' faster as **you** struggle to **your** feet*<br>
 *And **you're** out of that hole, back up on the street*
 
 > *And them south side sisters sure look pretty*
@@ -107,8 +107,8 @@ For my money the song still works best acoustically. I haven't been lucky enough
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_q3BRl9M9Zg)
 
-**It's Hard to Be a Saint in the City
-**Recorded:** June-October 1972
+**It's Hard to Be a Saint in the City**<br>
+**Recorded:** June-October 1972<br>
 **Released:** *Greetings from Asbury Park, N.J.* (1973), *Tracks* (1998) (Demo version)<br>
 **First performed:** May 2, 1972 (New York City, NY)<br>
 **Last performed:** February 21, 2017 (Christchurch, New Zealand)<br>

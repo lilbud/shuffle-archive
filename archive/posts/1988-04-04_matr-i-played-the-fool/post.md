@@ -12,12 +12,12 @@ The all-star set kicked off with “I Played the Fool,” and although the sound
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HmAi_1d1MJM)
 
-**Bonus:** Although the 1994 performance above is the only one in which Bruce’s vocals can be heard, he did in fact play “I Played the Fool” one other time, at a benefit show in 1998. For that performance, however, Bruce’s contribution was strictly on guitar, with Steve and Southside sharing the vocals. Still, it’s a great performance and a much clearer listen–hear for yourself below.
+**Bonus:** Although the 1994 performance above is the only one in which Bruce’s vocals can be heard, he did in fact play “I Played the Fool” one other time, at a benefit show in 1998. For that performance, however, Bruce’s contribution was strictly on guitar, with Steve and Southside sharing the vocals. Still, it’s a great performance and a much clearer listen–hear for yourself below.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yXHBxZVvT5E)
 
-**I Played the Fool**
-**First performed:** July 16, 1994 (Asbury Park, NJ)
-**Last performed:** January 31, 1998 (Red Bank, NJ)
+**I Played the Fool**<br>
+**First performed:** July 16, 1994 (Asbury Park, NJ)<br>
+**Last performed:** January 31, 1998 (Red Bank, NJ)<br>
 
 © April 4, 2019

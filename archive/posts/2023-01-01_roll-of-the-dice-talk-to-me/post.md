@@ -89,12 +89,12 @@ And that strange emphasis on the money in his pocket, asking how much he must pa
 
 Let's just enjoy the song as a light-hearted romp and laugh at the goofy self-mocking skits. It's better that way.
 
-**Bonus:** if you want to hear a great Bruce and Southside team-up on "Talk to Me" minus the mid-song comedic break, take a listen to this fantastic holiday show performance from 2003.
+**Bonus:** if you want to hear a great Bruce and Southside team-up on "Talk to Me" minus the mid-song comedic break, take a listen to this fantastic holiday show performance from 2003.<br>
 
 [Watch on Youtube: Southside Johnny & Bruce Springsteen - Talk To Me 2003](https://www.youtube.com/watch?v=xabSr3O3zfo)
 
 **Talk to Me**<br>
-**Recorded:** July-October 1977
+**Recorded:** July-October 1977<br>
 **Released:** *The Promise* (2010)<br>
 **First performed:** September 26, 1991 (Asbury Park, NJ)<br>
 **Last performed:** November 16, 2019 (Asbury Park, NJ)<br>

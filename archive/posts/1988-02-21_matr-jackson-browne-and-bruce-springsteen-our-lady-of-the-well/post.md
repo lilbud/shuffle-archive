@@ -8,8 +8,8 @@ The latter performance in particular features some lovely guitar work from Bruce
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uoZE3iJKs8g)
 
-**Our Lady of the Well
-First performed:** September 22, 2015 (Red Bank, NJ)
-**Last performed:** September 21, 2017 (Holmdel, NJ)
+**Our Lady of the Well**<br>
+**First performed:** September 22, 2015 (Red Bank, NJ)<br>
+**Last performed:** September 21, 2017 (Holmdel, NJ)<br>
 
 © April 24, 2019

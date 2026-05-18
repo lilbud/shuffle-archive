@@ -116,7 +116,7 @@ But every time I hear it in concert–which is a *lot* (Bruce has played it at 6
 
 And whether you see the song through that lens or not–whether "The Promised Land" leaves you feeling exhilarated or defeated–it's the sign of a great work of art when you feel that much of *anything*. "The Promised Land" ranks up there among Bruce's greatest art. That's probably why it hasn't missed a tour since it debuted.
 
-**Bonus clips**:
+**Bonus clips**:<br>
 
 Here's an alternate mix of "The Promised Land," minus Bruce's guitar solo. More of a curiosity than anything else.
 
@@ -126,8 +126,8 @@ Here's an alternate mix of "The Promised Land," minus Bruce's guitar solo. More 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KxY7CiPQa_g)
 
-**The Promised Land
-**Recorded:** December 1977**Released:** *Darkness on the Edge of Town* (1978), *The Essential Bruce Springsteen* (2003)
+**The Promised Land**<br>
+**Recorded:** December 1977**Released:** *Darkness on the Edge of Town* (1978), *The Essential Bruce Springsteen* (2003)<br>
 **First performed:** May 23, 1978 (Buffalo, NY)<br>
 **Last performed:** December 13, 2021 (New York City, NY)<br>
 

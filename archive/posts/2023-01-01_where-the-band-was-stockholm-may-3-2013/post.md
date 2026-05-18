@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *My favorite thing about writing my* *[Kingdom of Days](https://estreetshuffle.com/index.php/category/kingdom-of-days/)* *articles is the "I was there!" discussion they generate with readers. My* *[Where the Band Was](https://estreetshuffle.com/index.php/category/where-the-band-was/)* *series started out as a way to share my own personal stories from the Springsteen shows I've seen, but now that we're more than a full year in and in between tours, my stories have pretty much all been told.*
+***Editor's Note:*** *My favorite thing about writing my* *[Kingdom of Days](https://estreetshuffle.com/index.php/category/kingdom-of-days/)* *articles is the "I was there!" discussion they generate with readers. My* *[Where the Band Was](https://estreetshuffle.com/index.php/category/where-the-band-was/)* *series started out as a way to share my own personal stories from the Springsteen shows I've seen, but now that we're more than a full year in and in between tours, my stories have pretty much all been told.*<br>
 
 *That's why I've opened the series to other fans with stories to tell, and I couldn't be happier to feature my friend* ***Anna Lind*** *as the Shuffle's inaugural guest blogger. (**[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next one!)*
 

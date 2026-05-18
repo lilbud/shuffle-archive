@@ -70,7 +70,7 @@ And in all that time, Bruce brought Ricky out on stage exactly once: at the very
 
 I was genuinely surprised that "Ricky" didn't get an encore during the 2016 River Tour–that seemed like a no-brainer to me–but hope springs eternal. Let's hope Bruce brings her back for the next tour; she's certainly fully grown by now.
 
-**Bonus:** Listen to an unreleased alternate take of "Ricky Wants a Man of Her Own," with a different third verse.
+**Bonus:** Listen to an unreleased alternate take of "Ricky Wants a Man of Her Own," with a different third verse.<br>
 
 > *Well daddy's pullin' out his hair, he says, "The girl ain't got no direction"*
 > *She don't care to bring her boyfriends home to pass daddy's inspection*
@@ -78,8 +78,8 @@ I was genuinely surprised that "Ricky" didn't get an encore during the 2016 Rive
 [Watch Video Highlight](https://videopress.com/embed/Zef83eCx)
 
 **Ricky Wants a Man of Her Own**<br>
-**Recorded:** July 16, 1979
-**Released:** *Tracks* (1998), *The Ties That Bind: The River Collection* (2015)
+**Recorded:** July 16, 1979<br>
+**Released:** *Tracks* (1998), *The Ties That Bind: The River Collection* (2015)<br>
 **First performed:** August 24, 2008 (Kansas City, MO)<br>
 **Last performed:** August 24, 2008 (Kansas City, MO)<br>
 

@@ -16,7 +16,7 @@ It's quite possible that this acoustic demo is simply an early version of what w
 
 But for students of Bruce's songwriting process, it's still interesting to hear an early draft of a song that never was.
 
-**Bonus:** In addition to the demo above, there's also a brief snippet of Bruce working out harmonies and a riff for "Love Is a Gun." Check it out below.
+**Bonus:** In addition to the demo above, there's also a brief snippet of Bruce working out harmonies and a riff for "Love Is a Gun." Check it out below.<br>
 
 [Watch on Youtube: Bruce Springsteen Love is a Gun #1 harmonies](https://www.youtube.com/watch?v=opXs1pAbrM4)
 

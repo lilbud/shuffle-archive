@@ -56,7 +56,7 @@ What do you know… it looks like Bruce had his eighties look in mind long befor
 
 [Watch Video Highlight](https://videopress.com/embed/aurpq2vn)
 
-**Jumbeliah****Never recorded
+**Jumbeliah****Never recorded<br>
 **First performed:** May 14, 1971 (Asbury Park, NJ)<br>
 **Last performed:** September 1, 1971 (Long Branch, NJ)<br>
 

@@ -55,7 +55,7 @@ The final verses are a bit hard to make out at times–the song was still unfini
 > *Well then I heard Jesse saying to himself*
 ***I'm sorry for what I've done***<br>
 
-**Those lines** are too close to a key couplet in "[Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/)" to be coincidence:
+**Those lines** are too close to a key couplet in "[Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/)" to be coincidence:<br>
 
 > *Dan smiled as he lay in his own blood dying in the sun*
 > *And whispered in Pete's ear, "We cannot undo these things we've done."*
@@ -64,12 +64,12 @@ It may not have been a conscious recycling choice, but it had to have been at le
 
 Fascinatingly, even though we know "Robert Ford" never made it to *Nebraska*, surviving records indicate that Bruce did record at least one take of a full-band arrangement with the E Street Band in April 1982. If so, it remains securely in the vault without even a hint of an escaped bootleg. Let's hope we get to hear it someday when Bruce releases his next wave of outtakes.
 
-**Bonus:** here's one more demo take of "Robert Ford" — no lyrics in this one, though, only harmonies.
+**Bonus:** here's one more demo take of "Robert Ford" — no lyrics in this one, though, only harmonies.<br>
 
 [Watch on Youtube: Bruce Springsteen Jesse James #2 harmonies](https://www.youtube.com/watch?v=-0wiyoQIBYg)
 
 **Robert Ford**<br>
-**Recorded:** September 1981 – April 1982
+**Recorded:** September 1981 – April 1982<br>
 **Never released**<br>
 **Never performed**<br>
 

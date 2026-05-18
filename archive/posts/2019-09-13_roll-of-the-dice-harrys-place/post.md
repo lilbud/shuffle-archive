@@ -113,7 +113,7 @@ I've shared my own take with you here, but ultimately your guess is as good as m
 And apparently as good as Bruce's.
 
 **Harry's Place**<br>
-**Recorded:** 2007 and 2014
+**Recorded:** 2007 and 2014<br>
 **Released:** *High Hopes* (2014)<br>
 **Never performed**<br>
 

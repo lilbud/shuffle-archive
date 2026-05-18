@@ -28,7 +28,7 @@ Since then, "Summertime Blues" can be counted on to make a few cameo appearances
 
 [Watch on Youtube: Bruce Springsteen - Summer Time Blues](https://www.youtube.com/watch?v=_Gp1O7VJEaE)
 
-**Bonus:** Although Bruce didn't perform "Summertime Blues" with the E Street Band between the River and Magic Tours, he did play it once with Beaver Brown at Big Man's West during Memorial Day Weekend in 1982. It's an incredibly high-energy performance, and although the sound quality isn't pristine, it's still my all-time favorite performance of the song. It rarely circulates but deserves a listen–enjoy.
+**Bonus:** Although Bruce didn't perform "Summertime Blues" with the E Street Band between the River and Magic Tours, he did play it once with Beaver Brown at Big Man's West during Memorial Day Weekend in 1982. It's an incredibly high-energy performance, and although the sound quality isn't pristine, it's still my all-time favorite performance of the song. It rarely circulates but deserves a listen–enjoy.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/CZbyGqLp)
 

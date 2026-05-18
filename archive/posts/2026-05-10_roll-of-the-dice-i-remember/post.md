@@ -114,9 +114,9 @@ For an example of just how much of an improv piece "I Remember" was, compare it 
 
 No studio recording of "I Remember" is known to exist, and if there are other live performances they do not circulate widely. But these fifty-year-old live recordings give us an early glimpse into the show-stopping power Bruce Springsteen would soon bring to bigger and bigger stages.
 
-**I Remember
+**I Remember**<br>
 **Never recorded**<br>
-**Never released**
+**Never released**<br>
 **First performed:** November 13, 1971 (Asbury Park, NJ)<br>
 **Last performed:** February 26, 1972 (Richmond, VA)<br>
 

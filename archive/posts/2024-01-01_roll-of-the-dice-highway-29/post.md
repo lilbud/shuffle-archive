@@ -69,7 +69,7 @@ In concert, "Highway 29" was a staple on the Ghost of Tom Joad tour, and it made
 On vinyl and on stage, "Highway 29" is always a solo Bruce Springsteen performance.
 
 **Highway 29**<br>
-**Recorded:** 1995
+**Recorded:** 1995<br>
 **Released:** [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)(1995)<br>
 **First performed:** November 21, 1995 (New Brunswick, NJ)<br>
 **Last performed:** November 8, 2005 (Philadelphia, PA)<br>

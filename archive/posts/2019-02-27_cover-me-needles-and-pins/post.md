@@ -14,11 +14,11 @@ Why didn't he actually play it during a show? I have no idea. But we're fortunat
 
 [Watch on Youtube: Bruce Springsteen - "Needles and Pins" - Soundcheck in Geneva , 1975-07-22](https://www.youtube.com/watch?v=zaANhuBBSzc)
 
-**Bonus:** here's a clearer recording from a soundcheck earlier in the year: February 23rd at the Westbury Music Fair. Unfortunately, we only have thirty seconds of it, but it's a nice listen anyway.
+**Bonus:** here's a clearer recording from a soundcheck earlier in the year: February 23rd at the Westbury Music Fair. Unfortunately, we only have thirty seconds of it, but it's a nice listen anyway.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2019/02/307-Needles-And-Pins-Soundcheck.flac?_=3](https://estreetshuffle.com/wp-content/uploads/2019/02/307-Needles-And-Pins-Soundcheck.flac?_=3)
 
 **Needles and Pins**<br>
 **Never performed in concert**<br>
-**First soundchecked:** February 23, 1975 (Westbury, NY)
-**Last soundchecked:** December 12, 1975 (Greenvale, NY)
+**First soundchecked:** February 23, 1975 (Westbury, NY)<br>
+**Last soundchecked:** December 12, 1975 (Greenvale, NY)<br>

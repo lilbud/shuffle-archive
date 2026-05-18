@@ -93,17 +93,17 @@ Something tells me we'll be celebrating the misadventures of Wayne and Wilson fo
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Darlington County LIVE - Atlanta, GA 2/3/23](https://www.youtube.com/watch?v=SsrrPXL25wM)
 
-**Bonus #1:** Although it's not nearly as obvious as "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)," the album version of "Darlington County" is artificially sped up from the original recording. Here's the original take below; once you hear it, you'll never be able to not notice the acceleration in the original again.
+**Bonus #1:** Although it's not nearly as obvious as "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)," the album version of "Darlington County" is artificially sped up from the original recording. Here's the original take below; once you hear it, you'll never be able to not notice the acceleration in the original again.<br>
 
 [Watch on Youtube: Bruce Springsteen Darlington County](https://www.youtube.com/watch?v=RlE5fdrJ9ug)
 
-**Bonus #2:** Here's Bruce working out the melody for "Darlington County" on his tape recorder at home, just because.
+**Bonus #2:** Here's Bruce working out the melody for "Darlington County" on his tape recorder at home, just because.<br>
 
 [Watch on Youtube: Bruce Springsteen Untitled Harmonies #1](https://www.youtube.com/watch?v=dcjjeHtdsLg)
 
 **Darlington County**<br>
 **Recorded** May 13, 1982<br>
-**Released:** *Born in the U.S.A.* (1984)
+**Released:** *Born in the U.S.A.* (1984)<br>
 **First performed:** June 8, 1984 (Asbury Park, NJ)<br>
 **Last performed:** August 24, 2023 (Foxborough, MA)<br>
 

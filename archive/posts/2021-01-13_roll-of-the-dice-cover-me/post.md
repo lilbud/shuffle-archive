@@ -122,13 +122,13 @@ I'm thinking this is a streak worth extending.
 
 ---
 
-**Bonus:** Here's an alternate, unreleased mix of "Cover Me." I present it here for the catharsis of hearing the E Street Band bring the song to a satisfying halt. You can almost hear the sigh of relief.
+**Bonus:** Here's an alternate, unreleased mix of "Cover Me." I present it here for the catharsis of hearing the E Street Band bring the song to a satisfying halt. You can almost hear the sigh of relief.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/e3V4yBk8)
 
 **Cover Me**<br>
 **Recorded** January 25, 1982<br>
-**Released:** *Born in the U.S.A.* (1984)
+**Released:** *Born in the U.S.A.* (1984)<br>
 **First performed:** July 2, 1984 (St. Paul, MN)<br>
 **Last performed:** February 4, 2017 (Melbourne, Australia)<br>
 

@@ -4,6 +4,6 @@ Willie Nelson and Emmylou Harris infuse "[Dry Lightning](https://estreetshuffle.
 
 [Watch on Youtube: Dry Lightning](https://www.youtube.com/watch?v=2whOuAwk2Y4)
 
-**Updated:** if the video above doesn't work in your country, try this one instead:
+**Updated:** if the video above doesn't work in your country, try this one instead:<br>
 
 [Watch on Youtube: Willie Nelson - Dry Lightning](https://www.youtube.com/watch?v=KK6nLBrhMbM)

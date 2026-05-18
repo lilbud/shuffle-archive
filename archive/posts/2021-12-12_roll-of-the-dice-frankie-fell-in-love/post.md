@@ -66,7 +66,7 @@ Bruce inevitably introduces the song by referencing its underlying arithmetic. A
 [Watch on Youtube: Frankie Fell in Love - Springsteen - Mohegan Sun Arena, CT - May 17, 2014 (Better Audio)](https://www.youtube.com/watch?v=kMND-6X9XzA)
 
 **Frankie Fell in Love**<br>
-**Recorded:** 2008 (probably)
+**Recorded:** 2008 (probably)<br>
 **Released:** *High Hopes* (2014)<br>
 **First performed:** January 18, 2014 (Asbury Park, NJ)<br>
 **Last performed:** July 18, 2015 (Asbury Park, NJ)<br>

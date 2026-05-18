@@ -181,7 +181,7 @@ But in the back of my mind, I'll be thinking about poor Ralph, locked away and f
 
 **Johnny 99**<br>
 **Recorded** January 3, 1982<br>
-**Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)
+**Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)<br>
 **First performed:** June 29, 1984 (St. Paul, MN)<br>
 **Last performed:** August 30, 2023 (East Rutherford, NJ)<br>
 

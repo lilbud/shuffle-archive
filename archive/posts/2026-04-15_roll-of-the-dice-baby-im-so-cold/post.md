@@ -77,7 +77,7 @@ Bruce would like us to believe that the vault is now empty, at least with regard
 But we can hope.
 
 **Baby, I'm So Cold**<br>
-**Recorded:** Early 1982 (acoustic demo, band rehearsal), May 11, 1982 (studio)
+**Recorded:** Early 1982 (acoustic demo, band rehearsal), May 11, 1982 (studio)<br>
 **Never released**<br>
 **Never performed**<br>
 

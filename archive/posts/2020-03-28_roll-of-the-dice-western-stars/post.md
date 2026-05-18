@@ -142,7 +142,7 @@ You can listen to the live recording below, but I honestly think you're better o
 
 [Watch on Youtube: Bruce Springsteen - Western Stars (Film Version - Official Audio)](https://www.youtube.com/watch?v=WjOIf_Z1c1M)
 
-**Bonus:** Here's a promotional clip from the movie, *Western Stars*. It's only a partial performance of the title track, but it's enough for us to recognize that both the film and the video were probably shot at or around the same time.
+**Bonus:** Here's a promotional clip from the movie, *Western Stars*. It's only a partial performance of the title track, but it's enough for us to recognize that both the film and the video were probably shot at or around the same time.<br>
 
 [Watch on Youtube: Bruce Springsteen - Western Stars (From The Film Western Stars)](https://www.youtube.com/watch?v=GBRPo6lQRBg)
 

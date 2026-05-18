@@ -103,7 +103,7 @@ So until we catch that bus again, here's one more performance to enjoy–the las
 
 **Does This Bus Stop at 82nd Street?**<br>
 **Recorded** June 27-July 12, 1972<br>
-**Released:** [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1972), *Tracks* (demo, 1998)
+**Released:** [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1972), *Tracks* (demo, 1998)<br>
 **First performed:** August 10, 1972 (New York City, NY)<br>
 **Last performed:** November 9, 2024 (Ottawa, Ontario)<br>
 

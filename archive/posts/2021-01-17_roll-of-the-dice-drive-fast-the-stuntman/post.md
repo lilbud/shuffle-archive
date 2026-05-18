@@ -93,7 +93,7 @@ That last line of the song–*a steel rod in my leg, but it walks me home* is ev
 
 ---
 
-**Bonus:** While Bruce hasn't performed "Drive Fast (The Stuntman)" in public yet, he did perform it in front of an intimate audience in his barn in the film version of *Western Stars*.
+**Bonus:** While Bruce hasn't performed "Drive Fast (The Stuntman)" in public yet, he did perform it in front of an intimate audience in his barn in the film version of *Western Stars*.<br>
 
 Throughout the film, the live performance pales in comparison to the album. (*Western Stars* is probably the only album I'll ever be able to say that about, so carefully is it crafted.) But "Drive Fast" is very nearly an exception.
 

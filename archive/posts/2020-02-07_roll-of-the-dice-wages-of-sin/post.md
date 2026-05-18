@@ -142,7 +142,7 @@ If you're wondering why Bruce chose to break out such an obscurity that night in
 Sometimes it ain't glamorous to be in the pit.
 
 **Wages of Sin**<br>
-**Recorded:** May 10, 1982
+**Recorded:** May 10, 1982<br>
 **Released:** *Tracks* (1998)<br>
 **First performed:** May 8, 2013 (Turku, Finland)<br>
 **Last performed:** May 8, 2013 (Turku, Finland)<br>

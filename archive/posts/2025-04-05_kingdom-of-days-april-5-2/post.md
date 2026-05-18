@@ -1,30 +1,30 @@
-***New for 2025:** New entry for 1969 and 1978; video for 2023*
+***New for 2025:** New entry for 1969 and 1978; video for 2023*<br>
 
-**1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.
+**1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
 ![](../../assets/2025/04/19690402_Advert_02.jpg)
 
-**1974:** Bruce and the E Street Band headline a show at Widener College.
+**1974:** Bruce and the E Street Band headline a show at Widener College.<br>
 
 ![](../../assets/2018/03/1974-0405.jpg)
 
-**1976:** The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a show at the Ohio Theater in Columbus.
+**1976:** The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a show at the Ohio Theater in Columbus.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-05 Ohio Theatre, Columbus, OH](https://www.youtube.com/watch?v=lGkeKgZblAo)
 
 ![](../../assets/2018/03/1976-0405.jpg)
 
-**1978:** "[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)" receives its final mix at the Record Plant in New York City.
+**1978:** "[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)" receives its final mix at the Record Plant in New York City.<br>
 
 [Watch on Youtube: Streets of Fire](https://www.youtube.com/watch?v=HzIm7Ek6Vv0)
 
-**1988:** Night Two at the Capital Center in Largo, Maryland, along the Tunnel of Love Express Tour.
+**1988:** Night Two at the Capital Center in Largo, Maryland, along the Tunnel of Love Express Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/v5RXcyFL)
 
 ![](../../assets/2021/03/1988-04-05.jpg)
 
-**1995:** A busy day for Bruce and the (temporarily) reunited E Street Band: First, they make an appearance on *The Late Show with David Letterman*, where they premiere "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)."
+**1995:** A busy day for Bruce and the (temporarily) reunited E Street Band: First, they make an appearance on *The Late Show with David Letterman*, where they premiere "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)."<br>
 
 [Watch on Youtube: Bruce Springsteen & E Street Band on Letterman, April 5, 1995](https://www.youtube.com/watch?v=KLtihzJ6gdw)
 
@@ -34,23 +34,23 @@
 
 ![](../../assets/2021/03/1995-04-05.jpg)
 
-**2006:** Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Theater in Asbury Park.
+**2006:** Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Theater in Asbury Park.<br>
 
 ![](../../assets/2020/03/2006-04-05.jpg)
 
-**2007:** Bruce makes a surprise appearance at a Carnegie Hall benefit show, *Celebrating the Music of Bruce Springsteen: Music for Youth*, joining Craig Finn, Jesse Malin, and Badly Drawn Boy on stage.
+**2007:** Bruce makes a surprise appearance at a Carnegie Hall benefit show, *Celebrating the Music of Bruce Springsteen: Music for Youth*, joining Craig Finn, Jesse Malin, and Badly Drawn Boy on stage.<br>
 
 [Watch on Youtube: bruce & friends - rosalita](https://www.youtube.com/watch?v=jtjPO47XIbs)
 
 ![](../../assets/2020/03/2007-04-05.jpg)
 
-**2008:** Another radio station contest to pick a song for the set list–this time "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)" is the winner for this Magic Tour stop at HP Pavilion in San Jose. "[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)" and "[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)" make their tour debut tonight as well.
+**2008:** Another radio station contest to pick a song for the set list–this time "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)" is the winner for this Magic Tour stop at HP Pavilion in San Jose. "[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)" and "[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)" make their tour debut tonight as well.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/4ds7LEvR)
 
 ![](../../assets/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-1-scaled.jpg)
 
-**2009:** Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare "[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)" and "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)."
+**2009:** Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare "[I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)" and "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)."<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - SEEDS - AUSTIN 2009](https://www.youtube.com/watch?v=1yChqkwXgbI)
 
@@ -60,7 +60,7 @@
 
 ![](../../assets/2021/03/2009-04-05b.jpg)
 
-**2016:** At a River Tour stop in Dallas, things get a little out of hand during "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)."
+**2016:** At a River Tour stop in Dallas, things get a little out of hand during "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)."<br>
 
 [Watch on Youtube: Born to Run / Dancing in the Dark - Bruce Springsteen. AA Center, Dallas TX. April 5, 2016.](https://www.youtube.com/watch?v=nXqgo0oSJc0)
 
@@ -68,13 +68,13 @@
 
 [Watch on Youtube: Bruce Springsteen & the E-Street Band - Cadillac Ranch - Dallas - April 5, 2016](https://www.youtube.com/watch?v=ynUvaSq_ynM)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" in place of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" in place of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."<br>
 
-**2021:** Bruce and President Barack Obama release the final episode of their Spotify podcast, *Renegades: Born in the U.S.A.* This episode is entitled "The Rising: Looking Towards American Renewal" and features an acoustic performance of "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)"
+**2021:** Bruce and President Barack Obama release the final episode of their Spotify podcast, *Renegades: Born in the U.S.A.* This episode is entitled "The Rising: Looking Towards American Renewal" and features an acoustic performance of "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)"<br>
 
 [Spotify Embed: Looking Towards American Renewal](https://open.spotify.com/embed/episode/3w2WPhbgj9xfaIitFYDfif?si=8269cf5fbab84393&utm_source=oembed)
 
-**2023:** For the fourth show in a row, Bruce introduces a tour debut into his mostly static World Tour setlist. Tonight, "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" premieres at Rocket Mortgage Fieldhouse in Cleveland.
+**2023:** For the fourth show in a row, Bruce introduces a tour debut into his mostly static World Tour setlist. Tonight, "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" premieres at Rocket Mortgage Fieldhouse in Cleveland.<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - "Atlantic City" - Cleveland, Ohio - April 5, 2023](https://www.youtube.com/watch?v=Q_whKRSfRYg)
 

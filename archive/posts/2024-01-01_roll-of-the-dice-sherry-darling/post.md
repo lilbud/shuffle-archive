@@ -79,8 +79,8 @@ On his 2005 solo tour stop in Grand Rapids, Bruce performed "Sherry Darling" by 
 [Watch on Youtube: Bruce Springsteen - Sherry Darling](https://www.youtube.com/watch?v=TlYjluwtyls)
 
 **Sherry Darling**<br>
-**Recorded:** May 1979 – April 1980
-**Released:** *The River* (1980)
+**Recorded:** May 1979 – April 1980<br>
+**Released:** *The River* (1980)<br>
 **First performed:** August 4, 1978 (Charleston, WV)<br>
 **Last performed:** August 30, 2023 (East Rutherford, NJ)<br>
 

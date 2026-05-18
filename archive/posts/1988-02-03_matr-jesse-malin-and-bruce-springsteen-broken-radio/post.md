@@ -38,10 +38,10 @@ Perhaps that’s reading too much into it. Regardless, both the studio and 2011 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ucy_O9lXdh8)
 
-**Broken Radio**
-**Recorded:** August 2006 (audio), April 18, 2007 (video)
-**Released:** *Glitter in the Gutter* (2007)
-**First performed:** January 16, 2010 (Asbury Park, NJ)
-**Last performed:** January 18, 2025 (Red Bank, NJ)
+**Broken Radio**<br>
+**Recorded:** August 2006 (audio), April 18, 2007 (video)<br>
+**Released:** *Glitter in the Gutter* (2007)<br>
+**First performed:** January 16, 2010 (Asbury Park, NJ)<br>
+**Last performed:** January 18, 2025 (Red Bank, NJ)<br>
 
 © August 17, 2019

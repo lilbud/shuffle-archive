@@ -1,32 +1,32 @@
-***New for 2025:** New entry for 1972, 1975, 1983, and 2024; audio for 1985*
+***New for 2025:** New entry for 1972, 1975, 1983, and 2024; audio for 1985*<br>
 
-**1962:** Adele Springsteen takes Bruce and Ginny to their first-ever rock concert when Chubby Checker plays at Steel Pier in Atlantic City. She also takes them to see Anita Bryant that evening. Bruce enjoys the afternoon show a lot more than the evening show.
+**1962:** Adele Springsteen takes Bruce and Ginny to their first-ever rock concert when Chubby Checker plays at Steel Pier in Atlantic City. She also takes them to see Anita Bryant that evening. Bruce enjoys the afternoon show a lot more than the evening show.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/06/1962-0629.jpg)
 
-**1968:** The Castiles play a show at Hullabaloo in Freehold, New Jersey.
+**1968:** The Castiles play a show at Hullabaloo in Freehold, New Jersey.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/1968-06-29.jpg)
 
-**1972:** Richard Davis records his upright bass overdubs for “The Angel” at 914 Sound Studios in New York City.
+**1972:** Richard Davis records his upright bass overdubs for “The Angel” at 914 Sound Studios in New York City.<br>
 
-**1974:** A scheduled E Street Band gig in Memphis is cancelled.
+**1974:** A scheduled E Street Band gig in Memphis is cancelled.<br>
 
-**1975:** Bruce and the E Street Band record “[Linda Let Me Be the One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)” at the Record Plant in New York City. It won’t be released for another 23 years.
+**1975:** Bruce and the E Street Band record “[Linda Let Me Be the One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)” at the Record Plant in New York City. It won’t be released for another 23 years.<br>
 
 [Watch on Youtube: Linda Let Me Be The One (Studio Outtake - 1975)](https://www.youtube.com/watch?v=G4yx0JdiKfo)
 
-**1978:** Bruce and the E Street Band make a Darkness Tour stop at San Jose’s Center for the Performing Arts.
+**1978:** Bruce and the E Street Band make a Darkness Tour stop at San Jose’s Center for the Performing Arts.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/e0eKZI7h)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/1978-0629.jpg)
 
-**1983:** Bruce and the E Street Band record “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” at The Hit Factory in New York City.
+**1983:** Bruce and the E Street Band record “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” at The Hit Factory in New York City.<br>
 
 [Watch on Youtube: My Hometown](https://www.youtube.com/watch?v=KrGi8ODOWR0)
 
-**1984:** A big, big night for Bruce Springsteen and the E Street Band: The Born in the U.S.A. Tour kicks off at the St. Paul Civic Center Arena, with Nils and Patti making their official debuts as full-fledged members of the band. Film director Brian De Palma is on hand to film Bruce’s performance (twice!) of “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” for the now classic music video, and fan [Sandi Pederson is front and center](https://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/). This is also Courtney Cox’s debut–as most people know, she’s the “lucky fan” pulled out of the audience to dance with Bruce on-stage.
+**1984:** A big, big night for Bruce Springsteen and the E Street Band: The Born in the U.S.A. Tour kicks off at the St. Paul Civic Center Arena, with Nils and Patti making their official debuts as full-fledged members of the band. Film director Brian De Palma is on hand to film Bruce’s performance (twice!) of “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” for the now classic music video, and fan [Sandi Pederson is front and center](https://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/). This is also Courtney Cox’s debut–as most people know, she’s the “lucky fan” pulled out of the audience to dance with Bruce on-stage.<br>
 
 Watch footage from the video premiere below, and then listen to a never-before-circulated soundboard recording of Bruce’s first-ever public concert performance of “Dancing in the Dark.” (Sorry about those drum machines…)
 
@@ -48,7 +48,7 @@ In the setlist, a couple of notable moments: Bruce covers “[Street Fighting Ma
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-06-29.jpg)
 
-**1985:** The Born in the U.S.A. Tour arrives in Paris for the first of two nights at Parc de la Courneuve. The show was captured in stunning (for the time) video and audio quality.
+**1985:** The Born in the U.S.A. Tour arrives in Paris for the first of two nights at Parc de la Courneuve. The show was captured in stunning (for the time) video and audio quality.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/kmI7T1QT)
 
@@ -64,31 +64,31 @@ Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-
 
 [Watch Video Highlight](https://videopress.com/embed/bjCt8eEl)
 
-**1988:** Night Two in Rotterdam on the Tunnel of Love Tour features the first performances of “[Chimes of Freedom](https://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)” and “[Paradise by the ‘C’](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)” in a decade.
+**1988:** Night Two in Rotterdam on the Tunnel of Love Tour features the first performances of “[Chimes of Freedom](https://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)” and “[Paradise by the ‘C’](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)” in a decade.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ewosTtgL)
 
 [Watch on Youtube: Bruce Springsteen Rotterdam 29/06/1988 Full Concert](https://www.youtube.com/watch?v=s3oWgq4VYCQ)
 
-**1989:** Bruce plays a 20-minute-long “Twist and Shout” with The Fabulous Greaseband at The Headliner in Neptune, New Jersey.
+**1989:** Bruce plays a 20-minute-long “Twist and Shout” with The Fabulous Greaseband at The Headliner in Neptune, New Jersey.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Asbury_Park_Press_1989_07_09_Page_135-scaled.jpg)
 
-**1990:** Bruce records “[Seven Angels](https://estreetshuffle.com/index.php/2018/06/07/roll-of-the-dice-seven-angels/)” at Oceanway Studios in Los Angeles.
+**1990:** Bruce records “[Seven Angels](https://estreetshuffle.com/index.php/2018/06/07/roll-of-the-dice-seven-angels/)” at Oceanway Studios in Los Angeles.<br>
 
 [Watch on Youtube: Seven Angels (Studio Outtake - 1990)](https://www.youtube.com/watch?v=SWUXK4D7F-E)
 
-**1992:** Bruce and his new touring band bring World Tour 1992 to Paris for the first of two nights at Palais Omnisports de Paris-Bercy, where Bruce reveals that “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” and “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” share a common character.
+**1992:** Bruce and his new touring band bring World Tour 1992 to Paris for the first of two nights at Palais Omnisports de Paris-Bercy, where Bruce reveals that “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” and “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” share a common character.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/3NLub5G0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/The_Jersey_Journal_1992_07_01_24-scaled.jpg)
 
-**1993:** Bruce and Patti publicly reveal that their third child is on the way.
+**1993:** Bruce and Patti publicly reveal that their third child is on the way.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1993-06-29.jpg)
 
-**2000:** Bruce and the E Street Band play their penultimate Reunion show at Madison Square Garden, their ninth show of this final MSG stand. Several songs from this show are recorded, filmed, and eventually released on *Live in New York City.*
+**2000:** Bruce and the E Street Band play their penultimate Reunion show at Madison Square Garden, their ninth show of this final MSG stand. Several songs from this show are recorded, filmed, and eventually released on *Live in New York City.*<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Jungleland (Live in New York City)](https://www.youtube.com/watch?v=lW1RAYYs8RI)
 
@@ -96,19 +96,19 @@ Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Don't Look Back (Live in New York City)](https://www.youtube.com/watch?v=2i5QJBSNcvo)
 
-**2004:** Bruce discovers a painting of himself by local high school student Michael Antrim, who submitted it for (and won) an art contest held by the Freehold Library two years prior. Bruce heads over to Michael’s house in Red Bank to sign it. Learning that Michael plays guitar, he spends time playing with him–about 90 minutes in total spent at the boy’s house.
+**2004:** Bruce discovers a painting of himself by local high school student Michael Antrim, who submitted it for (and won) an art contest held by the Freehold Library two years prior. Bruce heads over to Michael’s house in Red Bank to sign it. Learning that Michael plays guitar, he spends time playing with him–about 90 minutes in total spent at the boy’s house.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/06/2004-0629.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Asbury_Park_Press_2004_05_16_Page_47-scaled.jpg)
 
-**2008:** The Magic Tour heads north for a Scandinavian leg, starting with a show at Parken Stadium in Copenhagen.
+**2008:** The Magic Tour heads north for a Scandinavian leg, starting with a show at Parken Stadium in Copenhagen.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3?_=4)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3>
 
-**2013:** Bruce and the E Street Band bring the Wrecking Ball Tour to Stade de France outside of Paris, where lucky fans get an acoustic pre-show that features a cover of “[Burning Love](https://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/).” Elliot Murphy and his son guest-star on “Born to Run,” and Bruce tour premieres “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” in the opening pack.
+**2013:** Bruce and the E Street Band bring the Wrecking Ball Tour to Stade de France outside of Paris, where lucky fans get an acoustic pre-show that features a cover of “[Burning Love](https://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/).” Elliot Murphy and his son guest-star on “Born to Run,” and Bruce tour premieres “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” in the opening pack.<br>
 
 [Watch on Youtube: Bruce Springsteen - Lucille - Stade de France - Paris - 29.06.2013](https://www.youtube.com/watch?v=RPNgL3dOTpM)
 
@@ -118,18 +118,18 @@ Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-
 
 [Watch on Youtube: Bruce Springsteen - American Land (2013-06-29 - Paris)](https://www.youtube.com/watch?v=9UIt2fP0ik0)
 
-**2016:** The River Tour (2016 edition) *almost* returns to its original form in Oslo, with at least 13 songs from the album making the setlist.
+**2016:** The River Tour (2016 edition) *almost* returns to its original form in Oslo, with at least 13 songs from the album making the setlist.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/5RghO2RM)
 
 [Watch on Youtube: Bruce Springsteen - I'm a Rocker (Oslo 2016/06/29)](https://www.youtube.com/watch?v=cH73sVMiH4A)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2021:** It’s Night Two for the return engagement of *Springsteen on Broadway,* and Bob Seger is in attendance.
+**2021:** It’s Night Two for the return engagement of *Springsteen on Broadway,* and Bob Seger is in attendance.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-29.jpg)
 
-**2024:** Bruce and the E Street Band tour debut “[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)” on Night Two in Nijmegen in The Netherlands. Stream or buy this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-goffertpark-nijmegen-netherlands-06-29-2024-mp3-flac-or-online-music-streaming/35855.html).
+**2024:** Bruce and the E Street Band tour debut “[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)” on Night Two in Nijmegen in The Netherlands. Stream or buy this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-goffertpark-nijmegen-netherlands-06-29-2024-mp3-flac-or-online-music-streaming/35855.html).<br>
 
 [Watch on Youtube: Bruce Springsteen, 7 Nights To Rock, Nijmegen, June 29, 2024](https://www.youtube.com/watch?v=9ZdNyvVTDXQ)

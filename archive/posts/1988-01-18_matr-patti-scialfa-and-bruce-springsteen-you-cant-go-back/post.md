@@ -14,9 +14,9 @@ And while Bruce and Patti have never performed it together in concert, we fortun
 
 [Watch Video Highlight](https://videopress.com/embed/VKJ2hyKD)
 
-**You Can’t Go Back
-Recorded:** January 200
-**Released:** *23rd Street Lullaby* (2004)
-**Never performed**
+**You Can’t Go Back**<br>
+**Recorded:** January 2000<br>
+**Released:** *23rd Street Lullaby* (2004)<br>
+**Never performed**<br>
 
 © October 16, 2021

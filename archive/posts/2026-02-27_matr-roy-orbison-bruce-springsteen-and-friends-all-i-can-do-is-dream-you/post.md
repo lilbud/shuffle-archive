@@ -16,7 +16,7 @@ Unfortunately, Bruce wasn't center stage for this song, though–to spot him, yo
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZG-Y2r3aVAQ)
 
-**Bonus:** After the show ended that night, Roy brought the band back to the stage to film a five-song mini "secret concert," and "(All I Can Do Is) Dream You" was on the set list for that one too. This is a completely different performance than the one above, seen by far fewer people. Enjoy,.
+**Bonus:** After the show ended that night, Roy brought the band back to the stage to film a five-song mini "secret concert," and "(All I Can Do Is) Dream You" was on the set list for that one too. This is a completely different performance than the one above, seen by far fewer people. Enjoy,.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4uBj5TwUsq0)
 

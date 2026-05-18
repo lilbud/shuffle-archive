@@ -1,22 +1,22 @@
-**1966:** The Castiles perform at their own junior prom at Freehold Regional High School.
+**1966:** The Castiles perform at their own junior prom at Freehold Regional High School.<br>
 
-**1971:** Even shorter-lived than Dr. Zoom and the Sonic Boom: *Bruce Springsteen and the Hot Mammas*, making their debut performance in two shows at The Upstage. Bruce also plays an afternoon show on this date with The Sundance Blues Band.
+**1971:** Even shorter-lived than Dr. Zoom and the Sonic Boom: *Bruce Springsteen and the Hot Mammas*, making their debut performance in two shows at The Upstage. Bruce also plays an afternoon show on this date with The Sundance Blues Band.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1971-0521.jpg)
 
-**1974:** Bruce cuts the first version of “Born to Run” in the studio (instrumental only).
+**1974:** Bruce cuts the first version of “Born to Run” in the studio (instrumental only).<br>
 
-**1977:** Bruce takes in a show by local band Pegasus (but does not perform) at The Jail in Hillsdale, New Jersey.
+**1977:** Bruce takes in a show by local band Pegasus (but does not perform) at The Jail in Hillsdale, New Jersey.<br>
 
-**1985:** With the band on break while Bruce and Julianne honeymoon, Clarence appears on *Late Night with David Letterman*.
+**1985:** With the band on break while Bruce and Julianne honeymoon, Clarence appears on *Late Night with David Letterman*.<br>
 
 [Watch on Youtube: Clarence Clemons on Late Night with David Letterman - May 21, 1985](https://www.youtube.com/watch?v=5bIj5yIHnlI)
 
-**1992:** Bruce rehearses with his new band for their upcoming tour. After the rehearsal, Bruce sits down with David Hepworth for an interview that was published in the August 1992 issue of *Q Magazine*. You can read that interview [here](https://www.greasylake.org/v6/display_article.php?category=interview&Id=14&headline=Springsteen+-+The+Q+Interview&publication=Q&concert_date=&release_title=).
+**1992:** Bruce rehearses with his new band for their upcoming tour. After the rehearsal, Bruce sits down with David Hepworth for an interview that was published in the August 1992 issue of *Q Magazine*. You can read that interview [here](https://www.greasylake.org/v6/display_article.php?category=interview&Id=14&headline=Springsteen+-+The+Q+Interview&publication=Q&concert_date=&release_title=).<br>
 
 [Watch on Youtube: Bruce Springsteen interview on Lucky Town and Human Touch (1992)](https://www.youtube.com/watch?v=yX9TrkY3IKo)
 
-**1997**: The marathon Ghost of Tom Joad Tour enters its last week with a show at Teatro Verdi in Florence.
+**1997**: The marathon Ghost of Tom Joad Tour enters its last week with a show at Teatro Verdi in Florence.<br>
 
 [Watch on Youtube: Bruce Springsteen - THE RIVER 1997 - live](https://www.youtube.com/watch?v=K7U2VN19AYo)
 
@@ -24,19 +24,19 @@
 
 [Watch on Youtube: Bruce Springsteen - This hard land, live in Firenze may 21st 1997](https://www.youtube.com/watch?v=D_QFzQ0fCDI)
 
-**1998:** ABC-TV airs a Rolling *Stone State of the Union* special featuring rare (for the time) band performances of “The Ghost of Tom Joad” and “Across the Border.”
+**1998:** ABC-TV airs a Rolling *Stone State of the Union* special featuring rare (for the time) band performances of “The Ghost of Tom Joad” and “Across the Border.”<br>
 
 [Watch on Youtube: Rolling Stone Special - State of the Union (Bruce Springsteen)](https://www.youtube.com/watch?v=SsS2S0I_E6E)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/1998-05-21.jpg)
 
-**1999:** Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of “You Can Look (But You Better Not Touch)” and the first “Meeting Across the River” in 20 years. Watch the soundcheck below, featuring a lovely, lonely “Racing in the Street” and a bit of Patti Scialfa’s beautiful ballad, “As Long As I (Can Be With You).”
+**1999:** Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of “You Can Look (But You Better Not Touch)” and the first “Meeting Across the River” in 20 years. Watch the soundcheck below, featuring a lovely, lonely “Racing in the Street” and a bit of Patti Scialfa’s beautiful ballad, “As Long As I (Can Be With You).”<br>
 
 [Watch on Youtube: Bruce Springsteen - London 1999-05-21 soundcheck including Racing In The Street](https://www.youtube.com/watch?v=0raE2AKOFtA)
 
 [Watch on Youtube: Meeting Across The River Bruce Springsteen 5/21/1999 London](https://www.youtube.com/watch?v=D6EvkMt7NKE)
 
-**2000:** Still chugging along, the Reunion Tour stops in Anaheim for the first of two shows.
+**2000:** Still chugging along, the Reunion Tour stops in Anaheim for the first of two shows.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2000-05-21a.jpg)
 
@@ -44,11 +44,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/2000-05-21c.jpg)
 
-**2006:** Stockholm gets its first Seeger Sessions show, and the BBC airs a Johnnie Walker interview with Bruce.
+**2006:** Stockholm gets its first Seeger Sessions show, and the BBC airs a Johnnie Walker interview with Bruce.<br>
 
 [Watch on Youtube: Bruce Springsteen interviewed by Johnnie Walker](https://www.youtube.com/watch?v=T8RlhwsRDAA)
 
-**2009:** The final stand of the first American leg of the Working on a Dream Tour begins with the first of two shows at the Izod Center in East Rutherford.
+**2009:** The final stand of the first American leg of the Working on a Dream Tour begins with the first of two shows at the Izod Center in East Rutherford.<br>
 
 [Watch on Youtube: Bruce Springsteen - Outlaw Pete - Live in New Jersey - 05-21-2009](https://www.youtube.com/watch?v=q-bzVBUCcKg)
 
@@ -60,7 +60,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/2009-05-21b.jpg)
 
-**2016:** When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres “My City of Ruins,” and “Land of Hope and Dreams.” Buy or stream this show [here](https://live.brucespringsteen.net/live-music/0,14109/Bruce-Springsteen-mp3-flac-download-5-21-2016-Estadio-Santiago-Bernabeu-Madrid-ES.html).
+**2016:** When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres “My City of Ruins,” and “Land of Hope and Dreams.” Buy or stream this show [here](https://live.brucespringsteen.net/live-music/0,14109/Bruce-Springsteen-mp3-flac-download-5-21-2016-Estadio-Santiago-Bernabeu-Madrid-ES.html).<br>
 
 [Watch on Youtube: Reportaje Bruce Springsteen Madrid 2016](https://www.youtube.com/watch?v=pyAY9FsJ_yI)
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - "Spirit in the night" [HD] (Madrid 21-05-2016)](https://www.youtube.com/watch?v=YsYZC6zVScc)
 
-**2023:** Bruce and the E Street Band return to Circus Maximus for a star-studded (in attendance, anyway) show in Rome. In attendance tonight: Sting, Chris Rock, Woody Harrelson, Aaron Sorkin, Lars Ulrich, Nick Cave, Isla Fisher, and more.
+**2023:** Bruce and the E Street Band return to Circus Maximus for a star-studded (in attendance, anyway) show in Rome. In attendance tonight: Sting, Chris Rock, Woody Harrelson, Aaron Sorkin, Lars Ulrich, Nick Cave, Isla Fisher, and more.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Backstreets (05/21/2023 - Circo Massimo, Rome, IT)](https://www.youtube.com/watch?v=A-dAnZytl24)
 

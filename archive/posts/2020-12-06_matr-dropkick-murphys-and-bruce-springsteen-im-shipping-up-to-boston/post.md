@@ -8,6 +8,6 @@ On St. Patrick’s Day in 2011, Bruce shipped up to Boston to perform it with th
 
 [Watch on Youtube: I'm Shipping Up To Boston - Dropkick Murphys and The Boss (HiRes)](https://www.youtube.com/watch?v=a7QsVPYWQFE)
 
-**I’m Shipping Up to Boston**
-**First performed:** March 18, 2011 (Boston, MA)
-**Last performed:** March 18, 2011 (Boston, MA)
+**I’m Shipping Up to Boston**<br>
+**First performed:** March 18, 2011 (Boston, MA)<br>
+**Last performed:** March 18, 2011 (Boston, MA)<br>

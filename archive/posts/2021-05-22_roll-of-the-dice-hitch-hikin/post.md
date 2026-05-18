@@ -57,7 +57,7 @@ On an album filled with vividly cinematic character studies, these two songs are
 
 ---
 
-**Bonus:** Bruce has only performed "Hitch Hikin'" once in concert, a private affair that was filmed and released under the same name. And like the rest of the album, the live version of "Hitch Hikin" does not match the beauty of the studio version.
+**Bonus:** Bruce has only performed "Hitch Hikin'" once in concert, a private affair that was filmed and released under the same name. And like the rest of the album, the live version of "Hitch Hikin" does not match the beauty of the studio version.<br>
 
 The differences are subtle but significant, like the extended introduction that robs the song of its immediacy, and the absence of the soundstage that progressively layers the orchestration to convey an increasingly crowded vehicle. Still, it's a lovely performance and Bruce's only live one to date for this song. It's worth a watch.
 

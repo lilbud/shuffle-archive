@@ -12,7 +12,7 @@ The all-star set kicked off with "I Played the Fool," and although the sound qua
 
 [Watch on Youtube: I Played the Fool (2016 Remaster)](https://www.youtube.com/watch?v=HmAi_1d1MJM)
 
-**Bonus:** Although the 1994 performance above is the only one in which Bruce's vocals can be heard, he did in fact play "I Played the Fool" one other time, at a benefit show in 1998. For that performance, however, Bruce's contribution was strictly on guitar, with Steve and Southside sharing the vocals. Still, it's a great performance and a much clearer listen–hear for yourself below.
+**Bonus:** Although the 1994 performance above is the only one in which Bruce's vocals can be heard, he did in fact play "I Played the Fool" one other time, at a benefit show in 1998. For that performance, however, Bruce's contribution was strictly on guitar, with Steve and Southside sharing the vocals. Still, it's a great performance and a much clearer listen–hear for yourself below.<br>
 
 [Watch on Youtube: Little Steven and Southside Johnny (w/Bruce Springsteen) - "I Played the Fool" - 1998-01-31](https://www.youtube.com/watch?v=yXHBxZVvT5E)
 

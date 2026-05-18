@@ -44,22 +44,22 @@ While it’s disappointing that our recording of Bruce and Gary’s first “Jol
 
 “Jole Blon” remains a rarity, performed by Bruce only a few dozen times over the years, most of them way back on the River Tour. Still, Bruce always seems game to give it an outing or three during each tour, so for those of us who have never seen it live (myself included), there’s still hope.
 
-**Bonus #1:** It’s pretty hard to find video footage of “Jole Blon” dating back to the River Tour. Here’s a rare clip from Bruce’s Rosemont show on September 8, 1981:
+**Bonus #1:** It’s pretty hard to find video footage of “Jole Blon” dating back to the River Tour. Here’s a rare clip from Bruce’s Rosemont show on September 8, 1981:<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VhRhyFda0zA)
 
-**Bonus #2:** Although Bruce tends to save his “Jole Blon” duets for Bonds (except for his surprise bar appearances, where he might pull it out with anyone), at a benefit show in 1993, Bruce played it as a one-off with Terence Trent D’Arby. At the time, Bruce hadn’t played the song live for over a decade, and it would be almost another decade before he’d play it again.
+**Bonus #2:** Although Bruce tends to save his “Jole Blon” duets for Bonds (except for his surprise bar appearances, where he might pull it out with anyone), at a benefit show in 1993, Bruce played it as a one-off with Terence Trent D’Arby. At the time, Bruce hadn’t played the song live for over a decade, and it would be almost another decade before he’d play it again.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tC7nPJQ5LoA)
 
-**Bonus #3:** Here’s an E Street Band performance from Gothenburg in 2016, for no other reason or significance than that it’s just a great performance captured in outstanding quality.
+**Bonus #3:** Here’s an E Street Band performance from Gothenburg in 2016, for no other reason or significance than that it’s just a great performance captured in outstanding quality.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BqDWGw1MLfY)
 
-**Jole Blon**
-**Recorded:** July 1980
-**Released:** *Dedication* (1981)
-**First performed:** June 5, 1981 (London, England)
-**Last performed:** January 26, 2026 (Red Bank, NJ)
+**Jole Blon**<br>
+**Recorded:** July 1980<br>
+**Released:** *Dedication* (1981)<br>
+**First performed:** June 5, 1981 (London, England)<br>
+**Last performed:** January 26, 2026 (Red Bank, NJ)<br>
 
 © August 29, 2019

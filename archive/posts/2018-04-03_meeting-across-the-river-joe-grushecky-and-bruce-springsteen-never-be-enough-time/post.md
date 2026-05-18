@@ -12,7 +12,7 @@ Bruce and Joe play the song live together frequently (30 times over the past 24 
 
 [Watch on Youtube: Never Be Enough Time - Springsteen with Joe Grushecky & the Houserockers - Jan 16 2010](https://www.youtube.com/watch?v=jOySzwhTtZI)
 
-**Updated 11/27/20:** This year has been short on live performances by anyone, but Bruce and Joe managed to sneak one in just a few weeks before the great shutdown. Here's their performance of "Never Be Enough Time" from Light of Day 20 in January.
+**Updated 11/27/20:** This year has been short on live performances by anyone, but Bruce and Joe managed to sneak one in just a few weeks before the great shutdown. Here's their performance of "Never Be Enough Time" from Light of Day 20 in January.<br>
 
 [Watch on Youtube: Joe Grushecky & Houserockers Bruce Springsteen "Never Be Enough Time" ~ Rose A Montana Video](https://www.youtube.com/watch?v=aor4Wdwbfgc)
 

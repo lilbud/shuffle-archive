@@ -57,7 +57,7 @@ Other than a Magic Tour cameo, Thompson hasn't performed with Bruce since the en
 
 **Eyes on the Prize**<br>
 **Recorded** January 21, 2006<br>
-**Released:** [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) (2006)
+**Released:** [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
 **Last performed:** November 21, 2006 (Belfast, Northern Ireland)<br>
 

@@ -1,10 +1,10 @@
-**1969:** Child plays several sets at the Pandemonium in Wanamassa, New Jersey.
+**1969:** Child plays several sets at the Pandemonium in Wanamassa, New Jersey.<br>
 
 ![](../../assets/2018/07/1969-0715.jpg)
 
-**1975:** Bruce works on "Thunder Road" at a recording session at the Record Plant in New York City.
+**1975:** Bruce works on "Thunder Road" at a recording session at the Record Plant in New York City.<br>
 
-**1978:** Before his Darkness show at the Sam Houston Coliseum, Bruce Stops by Houston radio station KILT-FM for a wide-ranging interview. Of particular interest are the interviewer's probing questions on Bruce's attitude towards women and Bruce's discomfort with the questions.
+**1978:** Before his Darkness show at the Sam Houston Coliseum, Bruce Stops by Houston radio station KILT-FM for a wide-ranging interview. Of particular interest are the interviewer's probing questions on Bruce's attitude towards women and Bruce's discomfort with the questions.<br>
 
 (Note: Brucebase says that the interview is with Ed Beauchamp, but unless Ed developed a British accent for the occasion, I don't believe that's him doing the interviewing. If anyone knows who it is, please let me know.)
 
@@ -16,21 +16,21 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 ![](../../assets/2024/07/The_Lexington_Herald_1978_07_30_73-scaled.jpg)
 
-**1981:** It's Night Two of a five-night River Tour stand at the Philadelphia Spectrum.
+**1981:** It's Night Two of a five-night River Tour stand at the Philadelphia Spectrum.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zDre-2uM6STkmSN0bghNA3b)
 
-**1984:** Bruce and the E Street Band kick off a three-night Born in the U.S.A. Tour stand at the Rosemont Horizon near Chicago.
+**1984:** Bruce and the E Street Band kick off a three-night Born in the U.S.A. Tour stand at the Rosemont Horizon near Chicago.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s4tI02srR48)
 
 ![](../../assets/2020/06/1984-07-15.jpg)
 
-**1989:** Bruce makes a guest appearance with X-Men at T-Birds Cafe in Asbury Park.
+**1989:** Bruce makes a guest appearance with X-Men at T-Birds Cafe in Asbury Park.<br>
 
 ![](../../assets/2020/06/1989-07-15.jpg)
 
-**1999:** Bruce and the E Street Band kick off the U.S. leg of the Reunion Tour with the first of fifteen(!) shows at the Continental Airlines Arena in East Rutherford. The anticipation and build-up to this show is intense, and VH1 broadcasts the first couple of songs. Kicking off the encores, Bruce plays "Freehold" for only the second time in the U.S. This show is available to stream or purchase as part of Bruce's official archive series.
+**1999:** Bruce and the E Street Band kick off the U.S. leg of the Reunion Tour with the first of fifteen(!) shows at the Continental Airlines Arena in East Rutherford. The anticipation and build-up to this show is intense, and VH1 broadcasts the first couple of songs. Kicking off the encores, Bruce plays "Freehold" for only the second time in the U.S. This show is available to stream or purchase as part of Bruce's official archive series.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=MtoJDzSPpyE)
 
@@ -44,7 +44,7 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 ![](../../assets/2020/06/1999-07-15c.jpg)
 
-**2003:** Bruce and the E Street Band kick off the final leg of the Rising Tour with the first of a ten-night stand at Giants Stadium in East Rutherford. The sets will be relatively standard at first, legendary by the end. Similar to the kick-off of the U.S. Reunion Tour exactly four years prior to the day, public attention and news coverage is intense. Check out some of it below, including a special episode of *Tailgate Party* marking the occasion.
+**2003:** Bruce and the E Street Band kick off the final leg of the Rising Tour with the first of a ten-night stand at Giants Stadium in East Rutherford. The sets will be relatively standard at first, legendary by the end. Similar to the kick-off of the U.S. Reunion Tour exactly four years prior to the day, public attention and news coverage is intense. Check out some of it below, including a special episode of *Tailgate Party* marking the occasion.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HtzXYYVVCcw)
 
@@ -54,7 +54,7 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9HICkNqhkJ0)
 
-**2008:** The final European leg of the Magic Tour enters the home stretch with a final run of shows in Spain, starting with a night in San Sebastian. Bruce opens with "Tunnel of Love," and the set list features a rare "Incident on 57th Street" as well.
+**2008:** The final European leg of the Magic Tour enters the home stretch with a final run of shows in Spain, starting with a night in San Sebastian. Bruce opens with "Tunnel of Love," and the set list features a rare "Incident on 57th Street" as well.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=h6Rfl6Esl1g)
 
@@ -64,19 +64,19 @@ Meanwhile, Bruce releases a new live EP entitled *Magic Tour Highlights*, featur
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_lPvBiPi0J7n2v-3zLAgEk-VpKA93lg9FQ)
 
-**2020:** E Street Radio debuts "Summertime, Summertime," the eighth installment of Bruce's *From My Home to Yours* radio show.
+**2020:** E Street Radio debuts "Summertime, Summertime," the eighth installment of Bruce's *From My Home to Yours* radio show.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-15-Bruce-ESR-DJ-set-8.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-15-Bruce-ESR-DJ-set-8.mp3?_=1)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-15-Bruce-ESR-DJ-set-8.mp3>
 
-**2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: Pamela Springsteen.
+**2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: Pamela Springsteen.<br>
 
-**2023:** Bruce and the E Street Band bring their World Tour to Hamburg, Germany.
+**2023:** Bruce and the E Street Band bring their World Tour to Hamburg, Germany.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dIhZWKYWtaA)
 
-**2024:** Bruce opens with "Into the Fire" in Solna on World Tour '24.
+**2024:** Bruce opens with "Into the Fire" in Solna on World Tour '24.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=10E9X8EF2VA)
 

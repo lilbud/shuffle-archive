@@ -108,7 +108,7 @@ Still, "Fire" remains a fan favorite for those able to look past its content, or
 
 **Fire**<br>
 **Recorded** 1977 and 2010<br>
-**Released:** *The Promise* (2010)
+**Released:** *The Promise* (2010)<br>
 **First performed:** May 23, 1978 (Buffalo, NY)<br>
 **Last performed:** September 4, 2021 (New York City, NY)<br>
 

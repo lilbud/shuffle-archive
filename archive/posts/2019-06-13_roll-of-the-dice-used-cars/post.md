@@ -99,8 +99,8 @@ Bruce played "Used Cars" only once more in the years since. It was another acous
 As I wrote at the top, there's a lot of information conveyed in "Used Cars," and even more emotion–and almost all of it lies beneath the surface. To this day it remains one of Bruce's most nuanced and powerfully layered songs.
 
 **Used Cars**<br>
-**Recorded:** December 1981 – January 1982
-**Released:** *Nebraska* (1982)
+**Recorded:** December 1981 – January 1982<br>
+**Released:** *Nebraska* (1982)<br>
 **First performed:** June 29, 1984 (St. Paul, MN)<br>
 **Last performed:** October 6, 2008 (Ypsilanti, MI)<br>
 

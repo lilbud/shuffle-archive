@@ -28,6 +28,6 @@ Still, itâ€™s hard to beat the exuberance of that 1995 all-star performance. Iâ€
 
 [Watch Video Highlight](https://videopress.com/embed/Dzaly57k)
 
-**Jailhouse Rock
-First performed:** May 19, 1977 (Asbury Park, NJ)
-**Last performed:** July 13, 2013 (Werchter, Belgium)
+**Jailhouse Rock**<br>
+**First performed:** May 19, 1977 (Asbury Park, NJ)<br>
+**Last performed:** July 13, 2013 (Werchter, Belgium)<br>

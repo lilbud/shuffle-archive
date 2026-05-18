@@ -1,12 +1,12 @@
-**1974:** Bruce and the E Street Band co-headline with Roger McGuinn at The Troubadour in West Hollywood, a surprise gig that only became public three days prior. (Bruce doesn't actually take the stage until almost 2am, however, so this technically qualifies as an entry for July 31.)
+**1974:** Bruce and the E Street Band co-headline with Roger McGuinn at The Troubadour in West Hollywood, a surprise gig that only became public three days prior. (Bruce doesn't actually take the stage until almost 2am, however, so this technically qualifies as an entry for July 31.)<br>
 
-**1975:** Bruce wraps up a three-night stand at the Carter Barron Amphitheater in Washington DC's Rock Creek Park, where he debuts his cover of The Drifters' "Up on the Roof."
+**1975:** Bruce wraps up a three-night stand at the Carter Barron Amphitheater in Washington DC's Rock Creek Park, where he debuts his cover of The Drifters' "Up on the Roof."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eYu78f4lNvs)
 
 ![](../../assets/2018/07/1975-0730.jpg)
 
-**1981:** Southside Johnny guest-stars on "I Don't Want to Go Home" when Bruce and the E Street Band bring the River Tour to Richfield, Ohio for the second of two nights.
+**1981:** Southside Johnny guest-stars on "I Don't Want to Go Home" when Bruce and the E Street Band bring the River Tour to Richfield, Ohio for the second of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/RwhE4R38)
 
@@ -16,7 +16,7 @@
 
 ![](../../assets/2018/07/1984-0730.jpg)
 
-**1984:** At the first of two nights in Detroit on the Born in the U.S.A. Tour, Bruce tour premieres "Independence Day" in a new arrangement. In attendance tonight: *Funky Winkerbean* cartoonist Tom Batiuk.
+**1984:** At the first of two nights in Detroit on the Born in the U.S.A. Tour, Bruce tour premieres "Independence Day" in a new arrangement. In attendance tonight: *Funky Winkerbean* cartoonist Tom Batiuk.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1Tbv8N9O)
 
@@ -26,23 +26,23 @@
 
 ![](../../assets/2021/07/1984-07-30b.jpg)
 
-**1985:** Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
+**1985:** Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.<br>
 
-**1987:** Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey, playing reggae versions of "Born in the U.S.A." and "My Hometown," along with covers of "One Love" and "People Get Ready."
+**1987:** Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey, playing reggae versions of "Born in the U.S.A." and "My Hometown," along with covers of "One Love" and "People Get Ready."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/r1cTI473)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xVV5FTnI4FM)
 
-**1988:** The Tunnel of Love Tour nears its end with this final German show in Bremen, where "Working on the Highway" makes its tour debut.
+**1988:** The Tunnel of Love Tour nears its end with this final German show in Bremen, where "Working on the Highway" makes its tour debut.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/mpsQeIHo)
 
-**1992:** At Night Five of eleven at World Tour 1992's opening stand in the Meadowlands, Bruce performs "All the Way Home" for the first time, and "4th of July, Asbury Park (Sandy)" comes out as well, accompanied by only Bruce and Roy.
+**1992:** At Night Five of eleven at World Tour 1992's opening stand in the Meadowlands, Bruce performs "All the Way Home" for the first time, and "4th of July, Asbury Park (Sandy)" comes out as well, accompanied by only Bruce and Roy.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_FhpvZT3dks)
 
-**2002:** Finally! After 18 years, Bruce releases a new E Street Band album. *The Rising* is an instant success, the darling of music reviewers and critics, and the catalyst for a new era that lasts to this day, cementing the return of the E Street Band. To celebrate the occasion, Bruce and the band get up early to appear on NBC's *Today Show* for a mini-concert. Katie Couric interviews virtually the entire band (poor Garry!) before the show. Watch that fun interview below, followed by the songs performed that morning.
+**2002:** Finally! After 18 years, Bruce releases a new E Street Band album. *The Rising* is an instant success, the darling of music reviewers and critics, and the catalyst for a new era that lasts to this day, cementing the return of the E Street Band. To celebrate the occasion, Bruce and the band get up early to appear on NBC's *Today Show* for a mini-concert. Katie Couric interviews virtually the entire band (poor Garry!) before the show. Watch that fun interview below, followed by the songs performed that morning.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ar-qvX1F0t4)
 
@@ -70,11 +70,11 @@ Finally, ABC's *Nightline* airs Bruce's performance of "Empty Sky" recorded a fe
 
 ![](../../assets/2020/07/2002-07-30c.png)
 
-**2007:** Bruce's close friend, personal assistant, and right-hand man Terry Magovern passes away at the age of 67. Terry's life and death will inspire Bruce to write "Terry's Song."
+**2007:** Bruce's close friend, personal assistant, and right-hand man Terry Magovern passes away at the age of 67. Terry's life and death will inspire Bruce to write "Terry's Song."<br>
 
 ![](../../assets/2020/07/2007-07-30.png)
 
-**2009:** A beautiful set list in Benidorm, Spain, on the Working on a Dream Tour, as "Janey, Don't You Lose Heart," "Girls in Their Summer Clothes," and "If I Should Fall Behind" receive their tour debuts and "Be True" gets a rare outing.
+**2009:** A beautiful set list in Benidorm, Spain, on the Working on a Dream Tour, as "Janey, Don't You Lose Heart," "Girls in Their Summer Clothes," and "If I Should Fall Behind" receive their tour debuts and "Be True" gets a rare outing.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mZw8n91G2nY)
 
@@ -84,4 +84,4 @@ Finally, ABC's *Nightline* airs Bruce's performance of "Empty Sky" recorded a fe
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=G5AgJr1q0b4)
 
-**2012:** As the Wrecking Ball Tour prepares to wrap up its European leg and return to America, *The New Yorker* publishes an extensive piece on Bruce and the E Street Band.
+**2012:** As the Wrecking Ball Tour prepares to wrap up its European leg and return to America, *The New Yorker* publishes an extensive piece on Bruce and the E Street Band.<br>

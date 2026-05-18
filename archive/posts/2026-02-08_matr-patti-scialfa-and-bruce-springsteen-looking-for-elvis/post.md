@@ -39,7 +39,7 @@ And that live performance is very worth watching–it's even stronger than the s
 
 **Play It As It Lays**<br>
 **Recorded** Unknown<br>
-**Released:** *Play It As It Lays* (2007)
+**Released:** *Play It As It Lays* (2007)<br>
 **First performed:** August 2007 (exact date unknown)<br>
 **Last performed:** August 2007 (exact date unknown)<br>
 

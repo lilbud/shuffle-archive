@@ -44,7 +44,7 @@ So give a listen to this never-released, never-performed classic, lost somewhere
 
 **Walking in the Street**<br>
 **Recorded** August-September 1974<br>
-**Never released**
+**Never released**<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

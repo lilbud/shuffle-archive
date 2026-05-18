@@ -128,7 +128,7 @@ TV was now a part of life rather than apart from it, and Bruce would shortly hav
 
 **57 Channels (And Nothin' On)**<br>
 **Recorded** Early December 1990<br>
-**Released:** *Human Touch* (1992)
+**Released:** *Human Touch* (1992)<br>
 **First performed:** November 16, 1990 (Los Angeles, CA)<br>
 **Last performed:** June 26, 1993 (New York City, NY)<br>
 

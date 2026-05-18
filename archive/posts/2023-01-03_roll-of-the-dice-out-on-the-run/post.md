@@ -18,7 +18,7 @@ It wasn't a total loss, though–six months later, Bruce took the verse melody f
 
 Even Bruce's abandoned experiments often point the way to something better.
 
-**Bonus:** Here's an early 1979 recording of Bruce working on the riff alone at home, prior to the rehearsal sessions above.
+**Bonus:** Here's an early 1979 recording of Bruce working on the riff alone at home, prior to the rehearsal sessions above.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/TnSI3PrI)
 

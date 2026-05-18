@@ -14,7 +14,7 @@ Their live arrangement is even lovelier and more intimate than the album track, 
 
 Here's hoping for another Scialfa album (and some solo shows) sometime soon.
 
-**Bonus:** There's a reason Emmylou Harris was discussing Patti in that NPR interview: she covered "Spanish Dancer" with Rodney Crowell on their wonderful *Old Yellow Moon* album. Here's their version, along with a live performance below.
+**Bonus:** There's a reason Emmylou Harris was discussing Patti in that NPR interview: she covered "Spanish Dancer" with Rodney Crowell on their wonderful *Old Yellow Moon* album. Here's their version, along with a live performance below.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8Rn6hBjg2SE)
 

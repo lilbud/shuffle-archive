@@ -146,7 +146,7 @@ I imagine that for Bruce Springsteen, that momentary freedom from his public fac
 
 ---
 
-**Bonus:** Here's a rare live performance of "Pilgrim in the Temple of Love" captured on video, from Cincinnati on December 12, 1996.
+**Bonus:** Here's a rare live performance of "Pilgrim in the Temple of Love" captured on video, from Cincinnati on December 12, 1996.<br>
 
 [Watch on Youtube: Pilgrim In The Temple Of Love Bruce Springsteen 12/10/1996 OH](https://www.youtube.com/watch?v=YfNiDh9zndQ)
 

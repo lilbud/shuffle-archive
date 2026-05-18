@@ -49,6 +49,6 @@ It's pretty darn clever writing for an 18-year-old who claims to have been a poo
 **Upon This Day (Eurydice)**<br>
 **Never recorded**<br>
 **Never released**<br>
-**Never performed** (although possible in solo performances in 1968)
+**Never performed** (although possible in solo performances in 1968)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

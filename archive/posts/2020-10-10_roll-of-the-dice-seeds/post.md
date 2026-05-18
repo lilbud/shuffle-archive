@@ -109,7 +109,7 @@ Given the state of the economy, however, and its likely prolonged recovery, I su
 
 **Seeds**<br>
 **Recorded** May 25, 1983<br>
-**Never released** (Live version released on *Live 1975-85*)
+**Never released** (Live version released on *Live 1975-85*)<br>
 **First performed:** July 3, 1985 (London, England)<br>
 **Last performed:** June 5, 2016 (London, England)<br>
 

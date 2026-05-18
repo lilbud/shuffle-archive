@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *Today's guest blogger is my long-time friend (and I'm pretty sure this blog's first subscriber) Marietta Phillips. Marietta has been to a lot of Springsteen shows over the years, but none as unusual or intimate as this one from a decade ago today. Read on…*
+***Editor's Note:*** *Today's guest blogger is my long-time friend (and I'm pretty sure this blog's first subscriber) Marietta Phillips. Marietta has been to a lot of Springsteen shows over the years, but none as unusual or intimate as this one from a decade ago today. Read on…*<br>
 
 It's all cold along the beach….the wind's whipping down the boardwalk….
 

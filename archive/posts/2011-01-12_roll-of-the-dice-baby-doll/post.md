@@ -69,7 +69,7 @@ But just like "[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/09/
 
 **Baby Doll**<br>
 **Recorded** April 1972<br>
-**Never released**
+**Never released**<br>
 **First performed:** November 4, 1971 (New York City, NY)<br>
 **Last performed:** November 4, 1971 (New York City, NY)<br>
 

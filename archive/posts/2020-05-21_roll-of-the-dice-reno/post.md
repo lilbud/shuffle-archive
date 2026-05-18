@@ -107,7 +107,7 @@ It's very different from Bruce's nightly performance on tour, and the only live 
 
 **Reno**<br>
 **Recorded** 1997-2004<br>
-**Released:** *Devils & Dust* (2005)
+**Released:** *Devils & Dust* (2005)<br>
 **First performed:** April 22, 2005 (Asbury Park, NJ)<br>
 **Last performed:** November 22, 2005 (Trenton, NJ)<br>
 

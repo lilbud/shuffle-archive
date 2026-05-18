@@ -79,7 +79,7 @@ Regardless, "TV Movie" needs at least one more outing to set things right. Let's
 
 **TV Movie**<br>
 **Recorded** June 13, 1983<br>
-**Released:** *Tracks* (1998)
+**Released:** *Tracks* (1998)<br>
 **First performed:** July 23, 2013 (Cardiff, Wales)<br>
 **Last performed:** July 23, 2013 (Cardiff, Wales)<br>
 

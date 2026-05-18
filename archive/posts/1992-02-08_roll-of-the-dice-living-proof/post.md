@@ -127,13 +127,13 @@ However, if you ask me for the true definitive "Living Proof" performance, I wou
 
 These days, "Living Proof" is considered a rarity. Bruce has only played it a dozen times in the past quarter-century and only four times with his band. But it's a song that clearly means a lot to Bruce, so while it may be rare, it likely won't ever be gone.
 
-**Bonus:** Of the 98 times Bruce has played "Living Proof" to date, only once has he played it "off tour." That was in the summer of 1994, when Bruce played an unadvertised set with Joe Grushecky and The Houserockers at Marz American Style in Long Branch, New Jersey. Here's that rarely heard performance, back when the song was still shiny and new.
+**Bonus:** Of the 98 times Bruce has played "Living Proof" to date, only once has he played it "off tour." That was in the summer of 1994, when Bruce played an unadvertised set with Joe Grushecky and The Houserockers at Marz American Style in Long Branch, New Jersey. Here's that rarely heard performance, back when the song was still shiny and new.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uJ7EeWz5)
 
 **Living Proof**<br>
 **Recorded** July-December 1991<br>
-**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
+**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
 **First performed:** May 6, 1992 (New York City, NY)<br>
 **Last performed:** August 30, 2016 (East Rutherford, NJ)<br>
 

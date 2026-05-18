@@ -1,4 +1,4 @@
-***Updated 2/25/20** with corrections from Rose Montana (thanks, Rose!)*
+***Updated 2/25/20** with corrections from Rose Montana (thanks, Rose!)*<br>
 
 When I introduce one of these entries as "one for the completists," that's code for one of the following: either a) the accompanying recording is terrible, or b) Bruce isn't in it very much.
 

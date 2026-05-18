@@ -76,7 +76,7 @@ And the backing track barrels forward with the power of Bruce's most ardent anth
 So come on, Bruce: Bring "American Beauty" to the stage on your next tour. You couldn't have known it when you wrote it, but it's more relevant today than ever.
 
 **American Beauty**<br>
-**Recorded:** early 2013
+**Recorded:** early 2013<br>
 **Released:** *American Beauty* (2014)<br>
 **First performed:** April 19, 2014 (soundcheck only)<br>
 **Last performed:** April 19, 2014 (soundcheck only)<br>

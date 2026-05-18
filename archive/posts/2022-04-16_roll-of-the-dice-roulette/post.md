@@ -133,7 +133,7 @@ Bruce headlined two of those concerts, but despite his continued concern for the
 
 **Roulette**<br>
 **Recorded** April 1979<br>
-**Released:** *One Step Up* (B-side, 1988)*,Tracks* (1998), *The River: Outtakes* (2015)
+**Released:** *One Step Up* (B-side, 1988)*,Tracks* (1998), *The River: Outtakes* (2015)<br>
 **First performed:** February 25, 1988 (Worcester, MA)<br>
 **Last performed:** July 5, 2016 (Milan, Italy)<br>
 

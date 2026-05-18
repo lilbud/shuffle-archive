@@ -26,8 +26,6 @@ Bruce played two songs with The Shots that night, the first of which was “Funk
 
 Bruce played one other song with The Shots that night–Bruce’s one and only appearance with the short-lived band–but that’s a story for another day.
 
-**Funky Broadway
-First performed:** April 24, 1970 (West Long Branch, NJ)
-**Last performed:** July 16, 1994 (Asbury Park, NJ)
-
- 
+**Funky Broadway**<br>
+**First performed:** April 24, 1970 (West Long Branch, NJ)<br>
+**Last performed:** July 16, 1994 (Asbury Park, NJ)<br>

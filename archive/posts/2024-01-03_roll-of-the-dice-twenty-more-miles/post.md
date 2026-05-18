@@ -20,8 +20,8 @@ But what a jam it is–every band member gets a turn in the spotlight, and Danny
 So apologies for the lack of lyrical analysis today, but even if we could make out enough of the words to transcribe them, I suspect we'd reach the same conclusion: "Twenty More Miles" is more about the ride than the vehicle.
 
 **Twenty More Miles**<br>
-**Never recorded**
-**Never released**
+**Never recorded**<br>
+**Never released**<br>
 **First performed:** April 18, 1970 (Toms River, NJ)<br>
 **Last performed:** August 14, 1970 (Richmond, VA)<br>
 

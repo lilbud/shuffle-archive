@@ -28,7 +28,7 @@ On May 13, 2021, Bruce was awarded the annual Woody Guthrie Prize by the Woody G
 
 "Tom Joad" isn't one of Bruce's most well-known covers, but it holds a special place of importance for inspiring him to turn Steinbeck's classic tale into a modern-day call for social activism.
 
-**In a way, "Tom Joad" inspired two of Bruce's officially released tracks, because Guthrie set his song to the melody of "John Henry," which Bruce released a version of in 2006.*
+**In a way, "Tom Joad" inspired two of Bruce's officially released tracks, because Guthrie set his song to the melody of "John Henry," which Bruce released a version of in 2006.*<br>
 
 **Tom Joad**<br>
 **First performed:** September 25, 1996 (Akron, OH)<br>

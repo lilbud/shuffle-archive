@@ -1,4 +1,4 @@
-***Updated 7/9/2020–**upon review, corrected to reflect Steve on vocals rather than Southside. (Thanks for the catch, Mike Saunders!)*
+***Updated 7/9/2020–**upon review, corrected to reflect Steve on vocals rather than Southside. (Thanks for the catch, Mike Saunders!)*<br>
 
 I almost feel guilty including "Why's It So Hard" in the *Roll of the Dice* series.
 

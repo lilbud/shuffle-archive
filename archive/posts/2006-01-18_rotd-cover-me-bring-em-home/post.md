@@ -61,7 +61,7 @@ Like all great folk songs, Pete Seeger's patriotic anti-war song will continue t
 
 **Bring ‘Em Home**<br>
 **Recorded** January 21 and May 18, 2006<br>
-**Released:** *Bring ‘Em Home* (single, 2006)
+**Released:** *Bring ‘Em Home* (single, 2006)<br>
 **First performed:** May 10, 2006 (Paris, France)<br>
 **Last performed:** November 14, 2006 (Sheffield, England)<br>
 

@@ -176,7 +176,7 @@ Now that the reprised River Tour is behind us, it's unclear whether we'll ever h
 But "The Price You Pay" remains one of Bruce's most powerful, poignant, and reflective songs, with a semi-mythic status that's only (and ironically) elevated by Bruce's inscrutable attitude toward it.
 
 **The Price You Pay**<br>
-**Recorded:** June 1979
+**Recorded:** June 1979<br>
 **Released:** *The River* (1980), *The Ties That Bind* (2015)<br>
 **First performed:** October 31, 1980 (Los Angeles, CA)<br>
 **Last performed:** July 28, 2016 (Oslo, Norway)<br>

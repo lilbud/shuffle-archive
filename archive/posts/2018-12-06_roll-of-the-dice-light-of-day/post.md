@@ -69,16 +69,16 @@ So that's the story of "Light of Day," the never-released outtake that's rocked 
 
 May it always be just around the corner.
 
-**Update 11/17/19:** I recently saw Bruce play "Light of Day" almost literally just around the corner from where he grew up. On September 28, 2019, Bruce made a surprise appearance at the preview party for an exhibit at the Monmouth County Historical Museum devoted to his early life. Here's that performance (with Joe Grushecky and the Houserockers), along with hope for many more.
+**Update 11/17/19:** I recently saw Bruce play "Light of Day" almost literally just around the corner from where he grew up. On September 28, 2019, Bruce made a surprise appearance at the preview party for an exhibit at the Monmouth County Historical Museum devoted to his early life. Here's that performance (with Joe Grushecky and the Houserockers), along with hope for many more.<br>
 
 [Watch on Youtube: Bruce Springsteen/Joe Grushecky - "Light of Day" - Freehold, NJ - 9/28/19](https://www.youtube.com/watch?v=PCJhy7XowvY)
 
-**Update 10/29/21:** If Joe's band seemed particularly well-suited for the challenge in the clip above, that's because they have plenty of practice with "Light of Day." It appears frequently when Bruce and Joe perform together, going all the way back to their 1995 "October Assault" tour in support of [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/). In honor of that album's new 25th anniversary re-issue [(released today!),](https://store.clevelandinternational.com/products/joe-grushecky-the-houserockers-american-babylon-25th-anniversary-edition) here's an absolutely smoking version of "Light of Day" from the bonus disc that accompanies the album.
+**Update 10/29/21:** If Joe's band seemed particularly well-suited for the challenge in the clip above, that's because they have plenty of practice with "Light of Day." It appears frequently when Bruce and Joe perform together, going all the way back to their 1995 "October Assault" tour in support of [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/). In honor of that album's new 25th anniversary re-issue [(released today!),](https://store.clevelandinternational.com/products/joe-grushecky-the-houserockers-american-babylon-25th-anniversary-edition) here's an absolutely smoking version of "Light of Day" from the bonus disc that accompanies the album.<br>
 
 [Watch on Youtube: Joe Grushecky and The Houserockers - Light Of Day (feat. Bruce Springsteen) [Live]](https://www.youtube.com/watch?v=sk523KCgNFM)
 
 **Light of Day**<br>
-**Recorded** September 22, 1992 (live performance)
+**Recorded** September 22, 1992 (live performance)<br>
 **Released:** *In Concert: MTV xxPlugged* (1993)**First performed:** April 12, 1987 (Asbury Park, NJ)<br>
 **Last performed:** January 18, 2020 (Asbury Park, NJ)<br>
 

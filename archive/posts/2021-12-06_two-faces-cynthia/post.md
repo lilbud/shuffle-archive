@@ -1,12 +1,12 @@
 ***Editor's Note***<br>
 
-****Katy Crane returns today with her third Two Faces entry. This one's a little bit different, though, and I'll let Katy explain why.*
+****Katy Crane returns today with her third Two Faces entry. This one's a little bit different, though, and I'll let Katy explain why.*<br>
 
 Author's note: This is going to be an unusual post: one where Ken and I agree completely about what's happening in the song. Usually, I write counterpoints to Ken's posts, which means I write about songs where Ken and I have radically different takes: about the tone of the song, what's happening in it, whether it's good or not. The problem–and this is a funny problem to have–is that Ken and I agree a lot. And that doesn't leave me many songs to write about.
 
 Ken has already made my central point about "Cynthia:" that it's a more enlightened version of Roy Orbison's "Oh, Pretty Woman." But I think there's more to be said about just how Springsteen accomplishes this. So this will be a companion post rather than a counterpoint, a close reading to sit alongside Ken's more comprehensive overview.***
 
-***There's a video of a *Late Show* interview from 2016, in which Stephen Colbert challenges Bruce Springsteen to name his top 5 Bruce songs. Springsteen gets through the first four pretty easily –"Born to Run," "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)," "Thunder Road," and "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)"–and then stalls out. The audience tries to help as Bruce dramatically ponders his choices. Then a woman's voice rises above the rest, shouting loud enough to get Bruce's attention. "Cynthia! CYNTHIAAA!"
+***There's a video of a *Late Show* interview from 2016, in which Stephen Colbert challenges Bruce Springsteen to name his top 5 Bruce songs. Springsteen gets through the first four pretty easily –"Born to Run," "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)," "Thunder Road," and "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)"–and then stalls out. The audience tries to help as Bruce dramatically ponders his choices. Then a woman's voice rises above the rest, shouting loud enough to get Bruce's attention. "Cynthia! CYNTHIAAA!"<br>
 
 Bruce, unsurprisingly, goes with "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" instead.
 

@@ -114,7 +114,7 @@ So there. Mock it if you must, but you'll not convince me that "Queen of the Sup
 I'm in love with "Queen of the Supermarket."
 
 **Queen of the Supermarket**<br>
-**Recorded** 2007-2008**Released:** *Working on a Dream* (2009)
+**Recorded** 2007-2008**Released:** *Working on a Dream* (2009)<br>
 **First performed:** May 6, 2009 (Stockholm, Sweden)**Last performed:** May 7, 2013 (Turku, Finland)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

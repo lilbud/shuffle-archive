@@ -2,7 +2,7 @@
 >
 > — Ken Rosen (@Krosen) [October 21, 2020](https://twitter.com/Krosen/status/1318917363803115520?ref_src=twsrc%5Etfw)
 
-**Updated 10/23/20:** Context matters. As of a few minutes ago, we finally have a fully realized official E Street Band recording of "Song for Orphans" via Bruce's just-released [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/) album. And while the song is still as lyrically dense as ever, the subtext that I alluded to in the original essay below (about the temptations facing an aspiring rock star) seem much less sub- and much more primary. As I mused in my Twitter conversation with Anthony above, Bruce seems to pair and place "[If I Was The Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" and "Song for Orphans" deliberately, as a look back (on multiple levels) to the beginning of his journey from his current location far, far up the road. I'll let my original essay stand for now; perhaps someday I'll revise it to reflect the tremendous modern version. But for now, it feels like honoring the spirit of the album to preserve the past alongside the present.
+**Updated 10/23/20:** Context matters. As of a few minutes ago, we finally have a fully realized official E Street Band recording of "Song for Orphans" via Bruce's just-released [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/) album. And while the song is still as lyrically dense as ever, the subtext that I alluded to in the original essay below (about the temptations facing an aspiring rock star) seem much less sub- and much more primary. As I mused in my Twitter conversation with Anthony above, Bruce seems to pair and place "[If I Was The Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" and "Song for Orphans" deliberately, as a look back (on multiple levels) to the beginning of his journey from his current location far, far up the road. I'll let my original essay stand for now; perhaps someday I'll revise it to reflect the tremendous modern version. But for now, it feels like honoring the spirit of the album to preserve the past alongside the present.<br>
 
 [Watch on Youtube: Bruce Springsteen - Song For Orphans (Official Audio)](https://www.youtube.com/watch?v=ib96-ytmLDg)
 
@@ -94,7 +94,7 @@ That's not to say the song doesn't translate well to the stage, though. Besides 
 [Watch on Youtube: 9. Song To The Orphans (Bruce Springsteen - Live In New York City 1-31-1973)](https://www.youtube.com/watch?v=voGU6hwjmiw)
 
 **Song for Orphans**<br>
-**Recorded:** February 19-20, 1973 (solo), November 2019 (band)
+**Recorded:** February 19-20, 1973 (solo), November 2019 (band)<br>
 **Released:** *Letter to You* (2020)<br>
 **First performed:** December 7, 1972 (New York City, NY)<br>
 **Last performed:** November 22, 2005 (Trenton, NJ)<br>

@@ -133,7 +133,7 @@ All of this, of course, is just to serve as a build-up for the song's climax. Br
 
 **Badlands**<br>
 **Recorded** Late 1977<br>
-**Released:** *Darkness on the Edge of Town* (1978), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
+**Released:** *Darkness on the Edge of Town* (1978), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
 **First performed:** May 19, 1978 (Asbury Park, NJ)<br>
 **Last performed:** April 23, 2026 (Sunrise, FL)<br>
 

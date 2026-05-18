@@ -91,17 +91,17 @@ One of my favorite Bruce-and-Nils "Darlington County" performances, though, is t
 
 Something tells me we'll be celebrating the misadventures of Wayne and Wilson for a long time to come.
 
-**Bonus #1:** Although it's not nearly as obvious as "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)," the album version of "Darlington County" is artificially sped up from the original recording. Here's the original take below; once you hear it, you'll never be able to not notice the acceleration in the original again.
+**Bonus #1:** Although it's not nearly as obvious as "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)," the album version of "Darlington County" is artificially sped up from the original recording. Here's the original take below; once you hear it, you'll never be able to not notice the acceleration in the original again.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RlE5fdrJ9ug)
 
-**Bonus #2:** Here's Bruce working out the melody for "Darlington County" on his tape recorder at home, just because.
+**Bonus #2:** Here's Bruce working out the melody for "Darlington County" on his tape recorder at home, just because.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dcjjeHtdsLg)
 
-**Darlington County
-**Recorded:** May 13, 1982
-**Released:** *Born in the U.S.A.* (1984)
+**Darlington County**<br>
+**Recorded:** May 13, 1982<br>
+**Released:** *Born in the U.S.A.* (1984)<br>
 **First performed:** June 8, 1984 (Asbury Park, NJ)<br>
 **Last performed:** November 16, 2019 (Asbury Park, NJ)<br>
 

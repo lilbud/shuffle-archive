@@ -35,10 +35,10 @@ We're left to wonder which path the boy chose for himself, which is undoubtedly 
 
 Rumors still fly about a someday-soon box set treatment for *Born in the U.S.A.* and its contemporary outtakes. Odds are good–or at least they *should* be–that "The Klansman" will finally see a release if and when.
 
-**Update: December 2025:** We did finally get that official release this year, although it was released on *L.A. Garage Sessions '83* as part of *Tracks II* instead of a *Born in the U.S.A.* box set. "The Klansman" is a lost track that very much deserved to be found.
+**Update: December 2025:** We did finally get that official release this year, although it was released on *L.A. Garage Sessions '83* as part of *Tracks II* instead of a *Born in the U.S.A.* box set. "The Klansman" is a lost track that very much deserved to be found.<br>
 
 **The Klansman**<br>
-**Recorded:** March 10, 1983
+**Recorded:** March 10, 1983<br>
 **Released:** *L.A. Garage Sessions '83* (2025)<br>
 **Never performed**<br>
 

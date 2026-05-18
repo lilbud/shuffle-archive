@@ -53,5 +53,5 @@ To this day, Bruce has never performed "Do Your Job" in concert, and given the c
 
 **Do Your Job**<br>
 **Recorded** 2008<br>
-**Released:** *Funny or Die* (2008)
+**Released:** *Funny or Die* (2008)<br>
 **Never performed**<br>

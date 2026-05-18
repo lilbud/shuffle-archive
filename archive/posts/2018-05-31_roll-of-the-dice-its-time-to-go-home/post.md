@@ -33,8 +33,8 @@ Bruce has said on more than one occasion that when he started out as an artist, 
 
 There's no resolution, here, just observation. The song ends with the narrator spotting a girl crying silently behind a tree, experiencing a different kind of withdrawal, and reaching the same conclusion: like it or not, it's time to go home.
 
-**It's Time to Go Home**
-**Recorded:** N/A
+**It's Time to Go Home**<br>
+**Recorded:** N/A<br>
 **Released:** N/A<br>
 **First performed:** September 1, 1971 (Long Branch, NJ)<br>
 **Last performed:** September 1, 1971 (Long Branch, NJ)<br>

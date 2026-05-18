@@ -42,7 +42,7 @@ But here's one of my favorites–from one of the very last Steel Mill concerts, 
 [Watch on Youtube: Robbin Thompson w/Steel Mill, Going Back to Georgia,1971-01-18 - D'SCENE, SOUTH AMBOY, NJ](https://www.youtube.com/watch?v=KY5oUCPdx14)
 
 **Goin' Back to Georgia**<br>
-**Recorded:** February 22, 1970
+**Recorded:** February 22, 1970<br>
 **Never released**<br>
 **First performed:** February 28, 1970 (Richmond, VA) (and probably earlier, although we lack documentation)<br>
 **Last performed:** October 23, 1971 (Richmond, VA)<br>

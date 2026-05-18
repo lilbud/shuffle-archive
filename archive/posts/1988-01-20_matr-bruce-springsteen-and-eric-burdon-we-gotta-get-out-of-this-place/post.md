@@ -36,12 +36,12 @@ A year or so later, Bruce and Eric reprised their team-up–this time in Cardiff
 
 That was the last time to date Bruce performed “We Gotta Get Out of This Place” in concert, but with a song so influential on rock and on Bruce himself, don’t count it out for good–it’s bound to surface again soon.
 
-**Bonus:** Bruce played an abbreviated acoustic version of “We Gotta Get Out of This Place” during his SXSW keynote, and it was captured in gorgeous quality. Check it out below.
+**Bonus:** Bruce played an abbreviated acoustic version of “We Gotta Get Out of This Place” during his SXSW keynote, and it was captured in gorgeous quality. Check it out below.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZE6evYHrL58)
 
-**We Gotta Get Out of This Place
-First performed:** October 1965 (Marlboro, NJ)
-**Last performed:** July 23, 2013 (Cardiff, Wales)
+**We Gotta Get Out of This Place**<br>
+**First performed:** October 1965 (Marlboro, NJ)<br>
+**Last performed:** July 23, 2013 (Cardiff, Wales)<br>
 
 © March 17, 2022

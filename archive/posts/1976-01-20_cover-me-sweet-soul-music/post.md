@@ -45,7 +45,7 @@ Alas, unlike the full album performance of *The River*, "Sweet Soul Music" was d
 We likely haven't heard the last of "Sweet Soul Music." With another E Street Band tour on the horizon, odds are good for at least one more outing for this fan and artist favorite.
 
 **Sweet Soul Music**<br>
-**First played:** April 19, 1981 (Paris, France)
-**Last played:** July 27, 2013 (Kilkenny, Ireland)
+**First played:** April 19, 1981 (Paris, France)<br>
+**Last played:** July 27, 2013 (Kilkenny, Ireland)<br>
 
 (c) November 1, 2019

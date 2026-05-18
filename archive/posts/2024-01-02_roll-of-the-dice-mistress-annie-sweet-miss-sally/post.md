@@ -22,9 +22,9 @@ Whether it’s Sally or Annie, either way it seems that the woman question is a 
 
 Enjoy the jam instead.
 
-**Sweet Miss Sally/Mistress Annie**
-**Never recorded or released**
-**First performed:** December 3, 1971 (Asbury Park, NJ)
-**Last performed:** January 21, 1972 (Neptune, NJ)
+**Sweet Miss Sally/Mistress Annie**<br>
+**Never recorded or released**<br>
+**First performed:** December 3, 1971 (Asbury Park, NJ)<br>
+**Last performed:** January 21, 1972 (Neptune, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

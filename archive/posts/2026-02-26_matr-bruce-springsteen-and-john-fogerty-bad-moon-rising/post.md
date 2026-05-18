@@ -36,7 +36,7 @@ Bruce's final "Bad Moon Rising" performance to date was on the Wrecking Ball Tou
 
 Even though it's been a full decade since that last "Bad Moon Rising" performance, don't bet against another appearance.
 
-**Update:** Sure enough, Bruce and John performed it together at the American Music Honors in 2025.
+**Update:** Sure enough, Bruce and John performed it together at the American Music Honors in 2025.<br>
 
 Bruce has covered more of John Fogerty's songs than almost any other artist. This is our seventh entry on Fogerty covers, and we're not done yet.
 

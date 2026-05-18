@@ -88,13 +88,13 @@ Only once in the post-Reunion era did "Lion's Den" get an outing beyond the Penn
 
 "Lion's Den" occupies the top of my "favorite Bruce lyrics" list, and it sits atop my chase list as well. And if we're lucky enough to get the long-rumored *Born in the U.S.A.* box set soon, I just might be lucky enough to catch it.
 
-**Bonus:** Here's an early work-in-progress outtake of "Lion's Den." It's unrecognizable except for the central conceit and a wordless chorus, but it's a good example of how Bruce sometimes fixes his sights on an idea and sets out in search of the right song to give it a home.
+**Bonus:** Here's an early work-in-progress outtake of "Lion's Den." It's unrecognizable except for the central conceit and a wordless chorus, but it's a good example of how Bruce sometimes fixes his sights on an idea and sets out in search of the right song to give it a home.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NISWyTEK)
 
 **Lion's Den**<br>
-**Recorded** January 25, 1982 (core recording), 1998 (horns)
-**Released:** *Tracks* (1998), *18 Tracks* (1999)
+**Recorded** January 25, 1982 (core recording), 1998 (horns)<br>
+**Released:** *Tracks* (1998), *18 Tracks* (1999)<br>
 **First performed:** June 3, 1999 (Paris, France)<br>
 **Last performed:** November 1, 2012 (University Park, PA)<br>
 

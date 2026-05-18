@@ -41,10 +41,10 @@ We may never know. But once again: with a groove this good, does it really matte
 
 I think not.
 
-**Down to Mexico
+**Down to Mexico**<br>
 Never recorded
 Never released
-First performed:** February 4, 1972 (Richmond, VA)
+**First performed:** February 4, 1972 (Richmond, VA)<br>
 **Last performed:** February 26, 1972 (Richmond, VA)<br>
 
 © March 10, 2021

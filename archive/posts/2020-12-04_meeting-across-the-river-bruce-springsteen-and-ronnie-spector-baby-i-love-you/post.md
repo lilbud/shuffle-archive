@@ -12,6 +12,6 @@ This recording of “Baby, I Love You” is from Ronnie’s very first on-stage 
 
 [Watch on Youtube: Bruce Springsteen and Ronnie Spector, "Baby I Love You" - 1976-11-04](https://www.youtube.com/watch?v=jdWqZ3U-e68)
 
-**Baby, I Love You**
-**First performed:** November 4, 1976 (New York City, NY)
-**Last performed:** May 13, 1977 (Red Bank, NJ)
+**Baby, I Love You**<br>
+**First performed:** November 4, 1976 (New York City, NY)<br>
+**Last performed:** May 13, 1977 (Red Bank, NJ)<br>

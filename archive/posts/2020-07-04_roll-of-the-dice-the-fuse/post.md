@@ -108,7 +108,7 @@ Perhaps Bruce thought better of it once he heard it in the film, because "The Fu
 
 **The Fuse**<br>
 **Recorded** February-March 2002<br>
-**Released:** *The Rising* (2002)
+**Released:** *The Rising* (2002)<br>
 **First performed:** July 25, 2002 (Asbury Park, NJ)<br>
 **Last performed:** October 1, 2003 (New York City, NY)<br>
 

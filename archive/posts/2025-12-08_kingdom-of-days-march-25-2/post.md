@@ -1,38 +1,38 @@
-**1976:** The Chicken Scratch Tour kicks off with a show at the Township Auditorium in Columbia, South Carolina–Bruce’s first time performing in the state.
+**1976:** The Chicken Scratch Tour kicks off with a show at the Township Auditorium in Columbia, South Carolina–Bruce’s first time performing in the state.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/03/The_Columbia_Record_1976_03_26_page_6.jpg)
 
-**1977:** The Lawsuit Tour comes to a close with a final show at Boston’s Music Hall, featuring the last “Don’t Look Back” for 22 years, the last “(Your Love Keeps Lifting Me) Higher and Higher” for 32 years, and the last “Action in the Streets” for 34 years.
+**1977:** The Lawsuit Tour comes to a close with a final show at Boston’s Music Hall, featuring the last “Don’t Look Back” for 22 years, the last “(Your Love Keeps Lifting Me) Higher and Higher” for 32 years, and the last “Action in the Streets” for 34 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - DON'T LOOK BACK 1977 (audio)](https://www.youtube.com/watch?v=s_cwfe-0E8w)
 
 [Watch on Youtube: March 25th, 1977 - Boston, MA](https://www.youtube.com/playlist?list=PLsxNBNx2akeWluJwZz56jBquSMdPEpyIl)
 
-**1979:** At his home studio in Holmdel, Bruce and the E Street Band rehearse “Meet Me in the City.”
+**1979:** At his home studio in Holmdel, Bruce and the E Street Band rehearse “Meet Me in the City.”<br>
 
 [Watch on Youtube: Bruce Springsteen In The City Tonight #4 aka Meet Me in the City Tonight](https://www.youtube.com/watch?v=-KuFJEzoFuE)
 
 That evening, Bruce catches The Ramones playing at The Fast Lane in Asbury Park. Backstage, Joey Ramone asks Bruce to write a song for them. Bruce starts writing “Hungry Heart” that very night.
 
-**1984:** Bruce joins Cats on a Smooth Surface on-stage at The Stone Pony in Asbury Park for “I’m Bad, I’m Nationwide” and “Lucille.”
+**1984:** Bruce joins Cats on a Smooth Surface on-stage at The Stone Pony in Asbury Park for “I’m Bad, I’m Nationwide” and “Lucille.”<br>
 
-**1996:** Bruce performs “Dead Man Walkin'” at the Academy Awards, where it is nominated (but loses) for Best Original Song. Watch the CNN news coverage and full performance:
+**1996:** Bruce performs “Dead Man Walkin'” at the Academy Awards, where it is nominated (but loses) for Best Original Song. Watch the CNN news coverage and full performance:<br>
 
 [Watch on Youtube: Bruce Springsteen at the Oscars - 1996-03-25](https://www.youtube.com/watch?v=GbGoqDY9RzM)
 
 [Watch on Youtube: Bruce Springsteen - Dead Man Walking](https://www.youtube.com/watch?v=TxF8mlR2fmk)
 
-**2003:** The Australian leg of The Rising Tour moves on to Brisbane, where “Jungleland” makes its tour debut.
+**2003:** The Australian leg of The Rising Tour moves on to Brisbane, where “Jungleland” makes its tour debut.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/KievsdMg)
 
-**2023:** Bruce and the E Street Band bring their World Tour to the Greensboro Coliseum.
+**2023:** Bruce and the E Street Band bring their World Tour to the Greensboro Coliseum.<br>
 
 [Watch on Youtube: No Surrender - Bruce Springsteen & ESB opening (live at Greensboro 3/25/2023)](https://www.youtube.com/watch?v=axLQaXPe1Yw)
 
 [Watch on Youtube: Bruce Springsteen - "Thunder Road" - Greensboro, NC - 3/25/23](https://www.youtube.com/watch?v=r7RNsuTUzH0)
 
-**2024:** Bruce and the E Street Band return to San Diego for the first time in 18 years, tour debuting “My City of Ruins” at Pechanga Arena.
+**2024:** Bruce and the E Street Band return to San Diego for the first time in 18 years, tour debuting “My City of Ruins” at Pechanga Arena.<br>
 
 [Watch on Youtube: Bruce Springsteen - My City of Ruins. Live from San Diego March 25, 2024](https://www.youtube.com/watch?v=954jw3q8x7E)
 

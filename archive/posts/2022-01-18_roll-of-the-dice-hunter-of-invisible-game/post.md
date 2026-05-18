@@ -88,13 +88,13 @@ Because, as he tells us before literally walking off into the sunset, there's al
 
 ---
 
-**Bonus:** Bruce has only played "Hunter of Invisible Game" once ever (although I was lucky enough to hear him soundcheck it before his show in Houston in 2014)–in Adelaide on the High Hopes Tour. It didn't translate well to a large venue stage, however, and that's likely why we haven't seen it since.
+**Bonus:** Bruce has only played "Hunter of Invisible Game" once ever (although I was lucky enough to hear him soundcheck it before his show in Houston in 2014)–in Adelaide on the High Hopes Tour. It didn't translate well to a large venue stage, however, and that's likely why we haven't seen it since.<br>
 
 [Watch on Youtube: Bruce Springsteen - Hunter Of Invisible Game - Adelaide, Australia 12 February 2014](https://www.youtube.com/watch?v=KwDdVpXdvgE)
 
 **Hunter of Invisible Game**<br>
 **Recorded** 2004-2008<br>
-**Released:** *High Hopes* (2014)
+**Released:** *High Hopes* (2014)<br>
 **First performed:** February 12, 2014 (Adelaide, Australia)<br>
 **Last performed:** February 12, 2014 (Adelaide, Australia)<br>
 

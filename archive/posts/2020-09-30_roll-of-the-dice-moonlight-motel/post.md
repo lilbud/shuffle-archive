@@ -156,7 +156,7 @@ That's why I get worked up at the suggestion that there's a third shot, as if th
 
 ---
 
-**Bonus:** Bruce hasn't performed "Moonlight Motel" in public (yet), but of course he included it in the filmed version of *Western Stars*. Honestly, the song gains nothing from its live performance, and in fact I'd argue the additional orchestration detracts slightly from the power of the lyrics.
+**Bonus:** Bruce hasn't performed "Moonlight Motel" in public (yet), but of course he included it in the filmed version of *Western Stars*. Honestly, the song gains nothing from its live performance, and in fact I'd argue the additional orchestration detracts slightly from the power of the lyrics.<br>
 
 Bruce's vocals are more gruff in the filmed version as well. Some might like that, but I'm not among them. I include the soundtrack version here for completeness, but recommend sticking with the original.
 

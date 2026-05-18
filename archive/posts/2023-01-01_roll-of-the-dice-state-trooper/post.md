@@ -86,7 +86,7 @@ I'll leave you with that masterful and nightmarish Vancouver performance, my all
 [Watch Video Highlight](https://videopress.com/embed/6LD966KH)
 
 **State Trooper**<br>
-**Recorded:** December 17, 1981 – January 3, 1982
+**Recorded:** December 17, 1981 – January 3, 1982<br>
 **Released:** *Nebraska* (1982)<br>
 **First performed:** September 8, 1984 (Hartford, CT)<br>
 **Last performed:** November 15, 2012 (Omaha, NE)<br>

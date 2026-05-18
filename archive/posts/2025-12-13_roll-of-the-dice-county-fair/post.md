@@ -87,6 +87,6 @@ Bruce has only ever performed "County Fair" live twice: once in 2003, with Danny
 This is one of the rare instances, however, where a live Bruce Springsteen performance can't match the recorded version of the song. "County Fair" is too delicate; it's completely overpowered when attempted live, and that's probably why Bruce hasn't tried since.
 
 **County Fair**<br>
-**Recorded** early 1983**Released:** *The Essential Bruce Springsteen* (2003), *L.A. Garage Sessions* (2025)**First performed:** September 20, 2003 (Darien, NY)**Last performed:** August 6, 2005 (St. Louis, MO)
+**Recorded** early 1983**Released:** *The Essential Bruce Springsteen* (2003), *L.A. Garage Sessions* (2025)**First performed:** September 20, 2003 (Darien, NY)**Last performed:** August 6, 2005 (St. Louis, MO)<br>
 
 © February 17, 2018

@@ -65,12 +65,12 @@ It's certainly easy to see why Bruce didn't include it on *Greetings*. (One coul
 
 But it's a song I'd love to hear included if we ever get that fabled *Tracks Volume 2* release.
 
-**Bonus:** Here's an alternate, aborted take of Bruce recording "She's Leaving." (It was going fine until he forgot the words.)
+**Bonus:** Here's an alternate, aborted take of Bruce recording "She's Leaving." (It was going fine until he forgot the words.)<br>
 
 [Watch on Youtube: Bruce Springsteen - "She's Leaving" Version 1](https://www.youtube.com/watch?v=rLLo2vppHqw)
 
-**She's Leaving****Recorded:** May-June 1972
-**Never released**
+**She's Leaving****Recorded:** May-June 1972<br>
+**Never released**<br>
 **First performed:** December 3, 1971 (Asbury Park, NJ)<br>
 **Last performed:** December 3, 1971 (Asbury Park, NJ)<br>
 

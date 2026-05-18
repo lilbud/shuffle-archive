@@ -108,9 +108,9 @@ Mask up, everybody.
 
 ![](../../assets/2020/12/obit.png)
 
-**Randolph Street
-**Recorded:** April 1972
-**Never released**
+**Randolph Street**<br>
+**Recorded:** April 1972<br>
+**Never released**<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

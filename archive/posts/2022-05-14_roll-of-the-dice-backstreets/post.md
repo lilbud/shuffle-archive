@@ -173,11 +173,11 @@ From the day it debuted, "Backstreets" has never missed an E Street Band Tour, a
 
 To date, Bruce has performed "Backstreets" an even 500 times. Let's hope we get to celebrate a few more centennials.
 
-**Update 1/3/2024:** On his World Tour in 2023, Bruce recontextualized "Backstreets" as a tribute to his fallen former bandmate, George Theiss. Each night, Bruce offered a heartfelt mid-song remembrance, but (at least for me, and I seem to be in the minority) it felt jarringly out of place in the middle of this particular song. Judge for yourself below.
+**Update 1/3/2024:** On his World Tour in 2023, Bruce recontextualized "Backstreets" as a tribute to his fallen former bandmate, George Theiss. Each night, Bruce offered a heartfelt mid-song remembrance, but (at least for me, and I seem to be in the minority) it felt jarringly out of place in the middle of this particular song. Judge for yourself below.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Backstreets" (Live 4K HQ Audio) - Amalie Arena Tampa February 1, 2023](https://www.youtube.com/watch?v=Biq_yBwQPnA)
 
-**Bonus:** Although "Backstreets" functions best as a full-band showcase, on rare occasion Bruce has performed it solo. Here's one of those solo piano performances from his 2005 acoustic tour.
+**Bonus:** Although "Backstreets" functions best as a full-band showcase, on rare occasion Bruce has performed it solo. Here's one of those solo piano performances from his 2005 acoustic tour.<br>
 
 [Watch on Youtube: Bruce Springsteen - Backstreets (Live 2005 solo piano)](https://www.youtube.com/watch?v=NLmxhx4Zo0o)
 

@@ -99,12 +99,12 @@ I'm too far invested in Bruce's life story and body of work to be able to evalua
 
 A deep cut in every sense, "House of a Thousand Guitars" is the letter in *Letter to You*.
 
-**Bonus:** For a song purportedly written in celebration of his band, it's ironic that Bruce's first public performance of "House of a Thousand Guitars" was an acoustic husband-and-wife duet, at the annual Stand Up For Heroes benefit in late 2020. It was a perfect selection, though: their stripped-down arrangement revealed a more universally resonant song that celebrates the heroic sacrifices and resilience of those who defend the ideals of a nation struggling to live up to them.
+**Bonus:** For a song purportedly written in celebration of his band, it's ironic that Bruce's first public performance of "House of a Thousand Guitars" was an acoustic husband-and-wife duet, at the annual Stand Up For Heroes benefit in late 2020. It was a perfect selection, though: their stripped-down arrangement revealed a more universally resonant song that celebrates the heroic sacrifices and resilience of those who defend the ideals of a nation struggling to live up to them.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=z27MexwKxT4)
 
-**House of a Thousand Guitars
-**Recorded:** November 2019
+**House of a Thousand Guitars**<br>
+**Recorded:** November 2019<br>
 **Released:** *Letter to You* (2020)<br>
 **First performed:** November 18, 2020 (Colts Neck, NJ)<br>
 **Last performed:** November 18, 2020 (Colts Neck, NJ)<br>

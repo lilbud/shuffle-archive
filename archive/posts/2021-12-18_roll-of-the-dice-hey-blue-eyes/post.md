@@ -85,7 +85,7 @@ And as the song trails the final chorus, we're deeply unsettled by the realizati
 > *Hey blue eyes, yeah it's alright*<br>
 
 **Hey Blue Eyes**<br>
-**Recorded:** Unknown, but likely 2007-ish
+**Recorded:** Unknown, but likely 2007-ish<br>
 **Released:** *American Beauty* (2014)<br>
 **Never performed**<br>
 

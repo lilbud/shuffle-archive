@@ -4,7 +4,7 @@ She was robbed, I tell you, *robbed.* "Rainy Day Man" has hit single written all
 
 [Watch on Youtube: Rainy Day Man](https://www.youtube.com/watch?v=xSszvYkUNSM)
 
-**Update:** If the above video doesn't work in your country, try this one:
+**Update:** If the above video doesn't work in your country, try this one:<br>
 
 [Watch on Youtube: PATTI SCIALFA - Rainy Day Man (HQ, 2007)](https://www.youtube.com/watch?v=Lqw_FlMbIzg)
 

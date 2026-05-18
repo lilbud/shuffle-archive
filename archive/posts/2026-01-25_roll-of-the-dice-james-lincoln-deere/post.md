@@ -141,7 +141,7 @@ Jimmy was eventually paroled in the winter of 1981, although we don't learn that
 We'll pick up the story of Jim Deer in "Richfield Whistle."
 
 **James Lincoln Deere**<br>
-**Recorded:** January-March 1983
+**Recorded:** January-March 1983<br>
 **Released:** *L.A. Garage Sessions '83* (2025)<br>
 **Never performed**<br>
 

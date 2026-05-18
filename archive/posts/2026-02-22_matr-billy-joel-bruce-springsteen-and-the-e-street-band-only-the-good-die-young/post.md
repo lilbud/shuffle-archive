@@ -12,7 +12,7 @@ The legendary rockers' performance is a bit rocky–Bruce accidentally transpose
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iX_y3_bt-8U)
 
-**Bonus:** The clip above missed the introduction and opening line (and second ending), so here's an intact audio version for your listening pleasure.
+**Bonus:** The clip above missed the introduction and opening line (and second ending), so here's an intact audio version for your listening pleasure.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QWUOhrvS)
 

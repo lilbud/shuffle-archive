@@ -97,14 +97,14 @@ And that last time, at Hyde Park–they *nailed* it (even if Bruce truncated the
 
 [Watch on Youtube: Bruce Springsteen - Take'm As They Come](https://www.youtube.com/watch?v=CuvU0sd6Fh0)
 
-**Bonus:** For years before the release of *Tracks*, a bootleg version of "Take 'em as They Come" circulated among collectors. It's pretty close to the released version, but the last verse is different–more poetic, but also more ambiguous. Take a listen:
+**Bonus:** For years before the release of *Tracks*, a bootleg version of "Take 'em as They Come" circulated among collectors. It's pretty close to the released version, but the last verse is different–more poetic, but also more ambiguous. Take a listen:<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3?_=2)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3>
 
 **Take 'em as They Come**<br>
-**Recorded:** December 5, 1979 (backing track), April 10, 1980 (vocals)
+**Recorded:** December 5, 1979 (backing track), April 10, 1980 (vocals)<br>
 **Released:** *Tracks* (1998)<br>
 **First performed:** June 15, 1999 (Offenbach, Germany)<br>
 **Last performed:** July 14, 2012 (London, England)<br>

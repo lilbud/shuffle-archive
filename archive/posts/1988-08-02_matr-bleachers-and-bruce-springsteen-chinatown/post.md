@@ -28,14 +28,14 @@ Jack’s vocals are clearer in the live version, and Bruce’s are more prominen
 
 Bruce also plays acoustic guitar throughout the song, and the resulting video was medicine to live music fans at the end of a year mostly devoid of it.
 
-**Update 1/3/2024:** Since this article was first published, Bruce made a guest appearance with Bleachers on “Chinatown” at Radio City Music Hall in 2022. Here’s that performance below.
+**Update 1/3/2024:** Since this article was first published, Bruce made a guest appearance with Bleachers on “Chinatown” at Radio City Music Hall in 2022. Here’s that performance below.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pRkOjCufff8)
 
-**Chinatown
-Recorded:** 2020
-**Released:** *Take the Sadness Out of Saturday Night* (2020)
-**First performed:** November 2020 (New York City, NY)
-**Last performed:** July 26, 2022 (New York City, NY)
+**Chinatown**<br>
+**Recorded:** 2020<br>
+**Released:** *Take the Sadness Out of Saturday Night* (2020)<br>
+**First performed:** November 2020 (New York City, NY)<br>
+**Last performed:** July 26, 2022 (New York City, NY)<br>
 
 © May 24, 2022

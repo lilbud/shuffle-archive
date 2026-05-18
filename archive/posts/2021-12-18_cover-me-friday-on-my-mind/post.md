@@ -12,6 +12,6 @@ When Bruce brought the High Hopes Tour to Sydney in the summer of 2014, he decid
 
 Wondering how you follow up a show opener like that? If you’re Bruce, you give a little wink and segue directly into your own attempt at the same song: “[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/).”
 
-**Friday on My Mind**
-**First performed:** February 19, 2014 (Sydney, Australia)
-**Last performed:** February 22, 2014 (Hunter Valley, Australia)
+**Friday on My Mind**<br>
+**First performed:** February 19, 2014 (Sydney, Australia)<br>
+**Last performed:** February 22, 2014 (Hunter Valley, Australia)<br>

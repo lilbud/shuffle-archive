@@ -55,7 +55,7 @@ By now, I should know not to make absolute statements–after all, "If I Was the
 
 **Southern Sun**<br>
 **Recorded** May-June 1972<br>
-**Never released**
+**Never released**<br>
 **First performed:** February 5, 1972 (Richmond, VA)<br>
 **Last performed:** February 17, 1972 (Freehold, NJ)<br>
 

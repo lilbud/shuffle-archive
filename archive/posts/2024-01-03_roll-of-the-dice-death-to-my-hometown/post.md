@@ -81,7 +81,7 @@ With such careful construction, "Death to My Hometown" might seem like a challen
 
 "Death to My Hometown" has been a set list staple ever since its debut–it hasn't missed a tour since its original release, and its appearances are regular enough to disqualify as cameo or rare. It remains as relevant today as it was a decade ago, and it's a good bet that we'll be hearing it live again soon.
 
-**Bonus:** There are several great professionally shot live performances to choose from, but here's the earliest: the debut of "Death to My Hometown" from Bruce's appearance on *Late Night with Jimmy Fallon* from March 2, 2012.
+**Bonus:** There are several great professionally shot live performances to choose from, but here's the earliest: the debut of "Death to My Hometown" from Bruce's appearance on *Late Night with Jimmy Fallon* from March 2, 2012.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/I43auK8y?hd=0&cover=1)
 

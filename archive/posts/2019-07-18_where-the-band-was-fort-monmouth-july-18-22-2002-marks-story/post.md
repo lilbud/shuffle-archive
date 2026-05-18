@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *After last month's back-to-back behind-the-scenes first-hand accounts from* *[Sandi Pederson](https://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/)* *and* *[Kevin Doyle](https://estreetshuffle.com/index.php/2019/07/02/where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/)**, I figured it would be a long time before I'd have the privilege to feature another exclusive "I was there" report.*
+***Editor's Note:*** *After last month's back-to-back behind-the-scenes first-hand accounts from* *[Sandi Pederson](https://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/)* *and* *[Kevin Doyle](https://estreetshuffle.com/index.php/2019/07/02/where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/)**, I figured it would be a long time before I'd have the privilege to feature another exclusive "I was there" report.*<br>
 
 > *Enter Mark Cunningham. Mark first wrote to me last year to share a pair of experiences any Springsteen fan would drool over. Now, a year later, he's graciously offered to share the first of those stories with us below.*
 

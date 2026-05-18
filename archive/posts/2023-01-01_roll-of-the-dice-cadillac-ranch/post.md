@@ -111,13 +111,13 @@ I'll lay odds that we'll hear Bruce and the band play "Cadillac Ranch" for as lo
 
 Because the closer we all get to the end of the drive, the more we need to enjoy the ride.
 
-**Bonus:** Here's an unreleased studio outtake featuring a different mix, but the thing you'll notice most is the siren and peelout that introduces the song. It makes "Cadillac Ranch" sound like the perfect candidate for the opening credits of a Burt Reynolds movie.
+**Bonus:** Here's an unreleased studio outtake featuring a different mix, but the thing you'll notice most is the siren and peelout that introduces the song. It makes "Cadillac Ranch" sound like the perfect candidate for the opening credits of a Burt Reynolds movie.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/RcbkHi9g)
 
 **Cadillac Ranch**<br>
 **Recorded** February 16-April 26, 1980<br>
-**Released:** *The River* (1980)
+**Released:** *The River* (1980)<br>
 **First performed:** October 3, 1980 (Ann Arbor, MI)<br>
 **Last performed:** November 16, 2019 (Asbury Park, NJ)<br>
 

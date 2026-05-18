@@ -11,5 +11,5 @@ In 2020, Patti Scialfa and Bruce Springsteen lent their talents to Dion for a ne
 In the album's liner notes, Dion wrote: "I gave Patti a simple, raw demo of 'Angel in the Alleyways,' with just my guitar and vocal. What you'll hear now is what Patti made of it. There are five verses, and she treated each of them in a unique way. This is her gift. The lady's imagination is unlimited. Her husband contributed the right tones on guitar and harmonica. They are my dream team. They truly make me feel loved."
 
 **Angel in the Alleyways**<br>
-**Released:** *Stomping Ground* (2021)
+**Released:** *Stomping Ground* (2021)<br>
 **Never performed**<br>

@@ -8,8 +8,8 @@ Still, any Lyon/Springsteen collaboration is worth at least one listen, even one
 
 (And we’re talking seriously under the radar here: If either of them have ever performed the song live, I’m not aware of it.)
 
-**Walking Through Midnight**
-**Released:** *Slow Dance* (1988)
-**Never performed**
+**Walking Through Midnight**<br>
+**Released:** *Slow Dance* (1988)<br>
+**Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

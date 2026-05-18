@@ -139,7 +139,7 @@ In any arrangement, "Blood Brothers" continues to be an emotional rarity, long a
 
 **Blood Brothers**<br>
 **Recorded** January 1995<br>
-**Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)
+**Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)<br>
 **First performed:** April 4, 1995 (New York City, NY)<br>
 **Last performed:** January 22, 2017 (Perth, Australia)<br>
 

@@ -1,4 +1,4 @@
-**Updated August 9, 2019:** An official version of "I'll Stand By You" was just released on the soundtrack album for *Blinded by the Light*. It's a tighter, shorter, and much better mix, with new (or at least different) vocals than the leaked demo. From a musical standpoint, it's a lot more listenable. Unfortunately, though, the lyrics are still the same.
+**Updated August 9, 2019:** An official version of "I'll Stand By You" was just released on the soundtrack album for *Blinded by the Light*. It's a tighter, shorter, and much better mix, with new (or at least different) vocals than the leaked demo. From a musical standpoint, it's a lot more listenable. Unfortunately, though, the lyrics are still the same.<br>
 
 [Watch on Youtube: Bruce Springsteen - I'll Stand By You (Official Lyric Video)](https://www.youtube.com/watch?v=hwfPtkxF0aA)
 
@@ -66,8 +66,8 @@ To date, Bruce has never performed "I'll Stand By You" in concert.
 
 Please, for the love of Clarence: nobody bring a sign.
 
-**I'll Stand By You**
-**Recorded:** 2001
+**I'll Stand By You**<br>
+**Recorded:** 2001<br>
 **Released:** *Blinded by the Light (Original Motion Picture Soundtrack)* (2019)<br>
 **Never performed**<br>
 

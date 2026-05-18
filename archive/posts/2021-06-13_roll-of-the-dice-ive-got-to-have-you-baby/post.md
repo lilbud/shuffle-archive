@@ -52,7 +52,7 @@ If the band sounds comfortable with their material, that's probably because it w
 
 But like much of the material from the too-short-lived BSB, "I Got to Have You Baby" was never recorded in the studio, and Bruce has never revisited it on stage. Thankfully, though, we can always set the wayback machine for 1971-72 and relive those great early performances.
 
-***Note:** Some Springsteen resource sites refer to "I Got to Have You, Baby" as a cover of the Jimmy Jones and The Pretenders song, "I've Got to Have You, Baby." It's not. Other than sharing a title, the two songs have nothing in common. This is clearly a Springsteen original.*
+***Note:** Some Springsteen resource sites refer to "I Got to Have You, Baby" as a cover of the Jimmy Jones and The Pretenders song, "I've Got to Have You, Baby." It's not. Other than sharing a title, the two songs have nothing in common. This is clearly a Springsteen original.*<br>
 
 **I've Got Have You, Baby**<br>
 **First performed:** September 1, 1971 (Long Branch, NJ)<br>

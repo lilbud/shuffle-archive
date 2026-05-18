@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *My* *[Where the Band Was](https://estreetshuffle.com/index.php/category/where-the-band-was/)* *series started out as a way to share my own personal stories from the Springsteen shows I've seen, but now that we're more than a full year in and in between tours, my stories have pretty much all been told.*
+***Editor's Note:*** *My* *[Where the Band Was](https://estreetshuffle.com/index.php/category/where-the-band-was/)* *series started out as a way to share my own personal stories from the Springsteen shows I've seen, but now that we're more than a full year in and in between tours, my stories have pretty much all been told.*<br>
 
 *That's why I've opened the series to other fans with stories to tell, and today's entry is a special one**. When I originally published my Kingdom of Days entry for June 28th a year ago, I made mention that much of the footage for Bruce's "[Dancing in Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" video was shot on this date in 1984 with actress Courtney Cox and 200 extras. When lifelong Springsteen fan Sandi Pederson read that, she wrote to me and set me straight: Courtney Cox was no actress at the time–she was a model, one of three used for the video shoot. And in addition to the two hundred extras (which Sandi insists is too low an estimate), there were five local, lucky fans. Sandi should know: she was one of those fans, making her one of only five members of E Street Nation to be in that now iconic video.*
 

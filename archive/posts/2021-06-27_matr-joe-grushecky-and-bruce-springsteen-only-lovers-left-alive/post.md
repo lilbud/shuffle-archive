@@ -16,7 +16,7 @@ The song ends on an unresolved note; we never do find out whether the son takes 
 
 Joe and Bruce have never performed "Only Lovers Left Alive" in concert, but Bruce's guitar can be heard on the studio track. Intriguingly, Joe told me in our *American Babylon* conversation last year that an alternate but unreleased version exists with a long guitar solo by Bruce. If we're lucky, maybe that will see the light of day someday...
 
-**Update 10/29/21:** That track has seen the light of day! Take a listen to this terrific demo (that term hardly seems to do it justice) of "Only Lovers Left Alive" with a terrific Springsteen guitar solo, from the brand-new [25th anniversary edition of *American Babylon*](https://orcd.co/JoeGrusheckyAmericanBabylon25).
+**Update 10/29/21:** That track has seen the light of day! Take a listen to this terrific demo (that term hardly seems to do it justice) of "Only Lovers Left Alive" with a terrific Springsteen guitar solo, from the brand-new [25th anniversary edition of *American Babylon*](https://orcd.co/JoeGrusheckyAmericanBabylon25).<br>
 
 [Watch on Youtube: Only Lovers Left Alive (Demo)](https://www.youtube.com/watch?v=XfgXRr0dWyU)
 

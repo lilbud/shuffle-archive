@@ -78,11 +78,11 @@ It's made cameo appearances in every E Street Band tour since, right up through 
 
 I don't expect Bruce to break that streak. As oxymoronic as it sounds, "Rendezvous" is a dependable rarity bound to appear once more when the E Street Band takes to the road again.
 
-**Bonus #1:** Long before Bruce released his studio version of "Rendezvous," a studio outtake recorded a few months earlier managed to escape as a bootleg. That outtake was one of the very first songs recorded during the *Darkness on the Edge of Town* sessions (it may, in fact, hail from the very first day), and you can hear it below. Despite some early audio dropouts, it's a great recording in a much more guitar-driven arrangement than we're used to hearing.
+**Bonus #1:** Long before Bruce released his studio version of "Rendezvous," a studio outtake recorded a few months earlier managed to escape as a bootleg. That outtake was one of the very first songs recorded during the *Darkness on the Edge of Town* sessions (it may, in fact, hail from the very first day), and you can hear it below. Despite some early audio dropouts, it's a great recording in a much more guitar-driven arrangement than we're used to hearing.<br>
 
 [Watch on Youtube: Bruce Springsteen - Rendezvous (Studio Version)](https://www.youtube.com/watch?v=sQKhsmH98E4)
 
-**Bonus #2:** Bruce knew "Rendezvous" wasn't going to find a home on one of his albums, but he seemed determined to find some adoptive parents for it. Bruce first donated the song to Greg Kihn, who released [his cover](https://estreetshuffle.com/index.php/2018/07/17/cover-me-greg-kihn-band-rendezvous/) in 1979, followed by Gary U.S. Bonds, who covered it on his *On the Line* album in 1982.
+**Bonus #2:** Bruce knew "Rendezvous" wasn't going to find a home on one of his albums, but he seemed determined to find some adoptive parents for it. Bruce first donated the song to Greg Kihn, who released [his cover](https://estreetshuffle.com/index.php/2018/07/17/cover-me-greg-kihn-band-rendezvous/) in 1979, followed by Gary U.S. Bonds, who covered it on his *On the Line* album in 1982.<br>
 
 But he also tried giving "Rendezvous" to The Knack in 1978, offering the band a choice between that song and "[Don't Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)." They chose the latter, so we never got to hear what The Knack might have done with "Rendezvous." However: someone actually recorded Bruce *teaching* The Knack how to play "Rendezvous" before the band ultimately decided to pass on it, and that recording escaped as well. It's a fun listen and a glimpse at what an acoustic arrangement of "Rendezvous" might have sounded like.
 

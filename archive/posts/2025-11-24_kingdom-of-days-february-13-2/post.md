@@ -1,10 +1,10 @@
-**1970:** Steel Mill opens for Boz Scaggs for the second of three nights at The Matrix in San Francisco.
+**1970:** Steel Mill opens for Boz Scaggs for the second of three nights at The Matrix in San Francisco.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1972-02-14.jpg)
 
-**1971:** Bruce jams at an open mic night at The Upstage in Asbury Park.
+**1971:** Bruce jams at an open mic night at The Upstage in Asbury Park.<br>
 
-**1977:** After performing “[Tenth Avenue Freeze-Out,](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” Bruce and the E Street Band take a mid-show intermission for the first time, as the Lawsuit Tour continues its Canadian leg with a show at Toronto’s Maple Leaf Gardens.
+**1977:** After performing “[Tenth Avenue Freeze-Out,](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” Bruce and the E Street Band take a mid-show intermission for the first time, as the Lawsuit Tour continues its Canadian leg with a show at Toronto’s Maple Leaf Gardens.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/A8Zbtavl)
 
@@ -12,10 +12,8 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/02/The_Toronto_Star_1977_02_14_19-scaled.jpg)
 
-**1981:** Bruce and the band play Mississippi State University along the River Tour.
+**1981:** Bruce and the band play Mississippi State University along the River Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ClPPlc19)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/02/1981-02-13.jpg)
-
- 

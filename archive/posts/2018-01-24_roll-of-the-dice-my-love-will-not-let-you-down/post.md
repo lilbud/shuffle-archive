@@ -52,12 +52,12 @@ The "Dancing" narrator is self-obsessed:
 
 The "My Love" narrator shows no self-loathing. but instead hints at an inability to spark the connection he seeks. His inner fire and bravery is belied by his outward shyness and hesitation:
 
-> *At night I walk the streets looking for romance  *<br>
-> *But I always end up stumbling in a half-trance  *<br>
-> *I search for connection in some new eyes  *<br>
-> *that hardly protect you from too many dreams passed by  *<br>
-> *I see you standing across the room, watching me without a sound  *<br>
-> *I'm gonna push my way through that crowd  *<br>
+> *At night I walk the streets looking for romance*<br>
+> *But I always end up stumbling in a half-trance*<br>
+> *I search for connection in some new eyes*<br>
+> *that hardly protect you from too many dreams passed by*<br>
+> *I see you standing across the room, watching me without a sound*<br>
+> *I'm gonna push my way through that crowd*<br>
 > *I'm gonna tear all your walls down*<br>
 
 The irony, as any introvert will have already realized, is that it isn't *her* walls holding him back.
@@ -87,9 +87,9 @@ No surprise that Bruce opened his first U.S. reunion show with the E Street Band
 
 [Watch on Youtube: my love will not let you down & The promised land - (u.s tour opener reunion ) bruce springsteen](https://www.youtube.com/watch?v=i0gycxFYxiA)
 
-**My Love Will Not Let You Down**
-**Recorded:** May 5, 1982
-**Released:** *Tracks* (1998), *18 Tracks* (1999), *Live in New York City* (2001)
+**My Love Will Not Let You Down**<br>
+**Recorded:** May 5, 1982<br>
+**Released:** *Tracks* (1998), *18 Tracks* (1999), *Live in New York City* (2001)<br>
 **First performed:** March 18, 1999 (Asbury Park, NJ)<br>
 **Last performed:** July 13, 2023 (Copenhagen, Denmark)<br>
 

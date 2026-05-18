@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *Today's guest blogger is my long-time friend (and I'm pretty sure this blog's first subscriber) Marietta Phillips.*
+***Editor's Note:*** *Today's guest blogger is my long-time friend (and I'm pretty sure this blog's first subscriber) Marietta Phillips.*<br>
 
 > *Marietta has shared a lot of her Springsteen concert memories with me over the years, but this one has always been my favorite. Ever wonder how that back-of-the-pit riser became such valuable real estate? Read on…*<br>
 

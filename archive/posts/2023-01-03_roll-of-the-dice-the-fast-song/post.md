@@ -66,12 +66,12 @@ That fourth verse, though… now, we're cooking. Other than the "blood rushing" 
 
 But that's a thread we'll pick up another day, when we (finally!) bring the pieces together and take a deep listen to "Candy's Room."
 
-**Bonus:** The early take of "The Fast Song" is too muddy to listen to more than once, but it's worth that lone listen just to admire Bruce's guitar solo that wouldn't make it to the final version.
+**Bonus:** The early take of "The Fast Song" is too muddy to listen to more than once, but it's worth that lone listen just to admire Bruce's guitar solo that wouldn't make it to the final version.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ejuhlzzg)
 
 **The Fast Song**<br>
-**Recorded:** June-September, 1977
+**Recorded:** June-September, 1977<br>
 **Never released**<br>
 **Never performed**<br>
 

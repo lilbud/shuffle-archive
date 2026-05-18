@@ -97,7 +97,7 @@ It isn't hard to find a great performance of "Good Man"; we just have to look to
 
 **A Good Man Is Hard to Find (Pittsburgh)**<br>
 **Recorded** May 5-6, 1982<br>
-**Released:** *Tracks* (1998)
+**Released:** *Tracks* (1998)<br>
 **First performed:** May 10, 2005 (St. Paul, MN)<br>
 **Last performed:** November 4, 2010 (Pittsburgh, PA)<br>
 

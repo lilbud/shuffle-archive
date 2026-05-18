@@ -20,10 +20,10 @@ But the last time Bruce performed "634-5789," he stayed in the background: At a 
 
 In any setting, when Bruce breaks out "634-5789" it's gonna be a party. I think we'll continue to see this one in played live for a long time to come.
 
-**Updated November 17, 2019:** See what I mean? Bruce has played "634-5789" twice since this article was posted. Here's the most recent time, last night at a private benefit for Boston College at The Stone Pony.
+**Updated November 17, 2019:** See what I mean? Bruce has played "634-5789" twice since this article was posted. Here's the most recent time, last night at a private benefit for Boston College at The Stone Pony.<br>
 
 [Watch on Youtube: Bruce Springsteen 634-5789](https://www.youtube.com/watch?v=ldfdgTvQOsY)
 
 **634-5789 (Soulsville U.S.A.)**<br>
-**First played:** February 14, 1973 (Richmond, VA)
-**Last played:** November 16, 2019 (Asbury Park, NJ)
+**First played:** February 14, 1973 (Richmond, VA)<br>
+**Last played:** November 16, 2019 (Asbury Park, NJ)<br>

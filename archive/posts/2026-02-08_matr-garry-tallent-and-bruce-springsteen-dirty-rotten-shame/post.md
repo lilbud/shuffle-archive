@@ -20,7 +20,7 @@ But it's not about how long the song is but rather what you do with the time you
 
 **Dirty Rotten Shame**<br>
 **Recorded** Unknown<br>
-**Released:** *More Like Me* (2019)
+**Released:** *More Like Me* (2019)<br>
 **First performed:** July 6, 2019 (Asbury Park, NJ)<br>
 **Last performed:** July 6, 2019 (Asbury Park, NJ)<br>
 

@@ -65,7 +65,7 @@ But context is king, and if we're lucky enough to get at least one more Sessions
 
 **This Is Your Sword**<br>
 **Recorded** 2013<br>
-**Released:** *High Hopes* (2014)
+**Released:** *High Hopes* (2014)<br>
 **First performed:** January 29, 2014 (Cape Town, South Africa)<br>
 **Last performed:** May 13, 2014 (Albany, NY)<br>
 

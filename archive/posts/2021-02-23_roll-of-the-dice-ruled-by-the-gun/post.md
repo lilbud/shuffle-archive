@@ -37,12 +37,12 @@ Only "Murder Incorporated" would see an official release, however, and even that
 
 But that's a topic for another day.
 
-**Bonus:** Here's an additional outtake of "Ruled by the Gun." No lyrics in this one, just some harmonies and guitar.
+**Bonus:** Here's an additional outtake of "Ruled by the Gun." No lyrics in this one, just some harmonies and guitar.<br>
 
 [Watch on Youtube: Bruce Springsteen Ruled By The Gun #2 harmonies & guitar solos](https://www.youtube.com/watch?v=pvJXJPjk9NM)
 
 **Ruled by the Gun**<br>
-**Recorded** September 1981 – May 1982 (demos only)
+**Recorded** September 1981 – May 1982 (demos only)<br>
 **Never released**<br>
 **Never performed**<br>
 

@@ -26,12 +26,12 @@ The crowd ate it up, so much so that McCartney invited Bruce to join him again o
 
 [Watch Video Highlight](https://videopress.com/embed/XPKAKtFD)
 
-**Bonus:** Although they'd played the same songs together just nine days earlier, the two rock legends took some time to rehearse with McCartney's band before they took the stage in Glastonbury. Check out this rare behind-the-scenes rehearsal footage.
+**Bonus:** Although they'd played the same songs together just nine days earlier, the two rock legends took some time to rehearse with McCartney's band before they took the stage in Glastonbury. Check out this rare behind-the-scenes rehearsal footage.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/WfZdsAa1)
 
 **I Wanna Be Your Man**<br>
 First performance:** June 16, 2022 (East Rutherford, NJ)
-**Last performance:** June 25, 2022 (Pilton, England)
+**Last performance:** June 25, 2022 (Pilton, England)<br>
 
 © July 15, 2023

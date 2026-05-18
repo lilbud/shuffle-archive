@@ -44,7 +44,7 @@ As is often the case, Bruce hides the moral of the song in the bridge–or in th
 
 > *Well you may think the world's black and white*<br>
 > *And you're dirty or you're clean*<br>
-***Son**, you better watch out you don't slip*
+***Son**, you better watch out you don't slip*<br>
 > *Through them spaces in between*<br>
 
 Despite our narrator's promises of fidelity, Bruce is suggesting that we are listening to someone who rationalizes his actions when he falls short. He's *generally* good, *mostly* faithful. But the world isn't binary, Bruce cautions, and you can find yourself going south in small increments.

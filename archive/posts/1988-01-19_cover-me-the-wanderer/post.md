@@ -24,8 +24,8 @@ It took a request sign to finally get Bruce to play the song with the E Street B
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kg2AOVXpqU4)
 
-**The Wanderer
-First performed:** July 25, 1982 (Asbury Park, NJ)
-**Last performed:** September 21, 2009 (Des Moines, IA)
+**The Wanderer**<br>
+**First performed:** July 25, 1982 (Asbury Park, NJ)<br>
+**Last performed:** September 21, 2009 (Des Moines, IA)<br>
 
 © May 8, 2019

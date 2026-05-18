@@ -111,8 +111,6 @@ Because "For You" isn't a love story. It's not even a story at all. It's an impr
 
 It's not a song that resonates with everyone. But if you've been there, it resonates deeply.
 
- 
-
 ---
 
 Bruce recorded "For You" during the summer of 1972 with The Bruce Springsteen Band (minus Steve Van Zandt), in a loose, almost disheveled arrangement that serves to underscore the narrator's frame of mind.
@@ -131,8 +129,8 @@ In recent years, the arrangement seems to be a toss-up depending on Bruce's mood
 
 That misstep aside, "For You" is one of Bruce's oldest fan-favorites, and one almost guaranteed to make an appearance or three on any given tour. That's not likely to change anytime soon; when Bruce finally gets back out on the road someday, we're likely to hear him play "For You" for us.
 
-**For You
-**Recorded:** June 27 – October 28, 1972
+**For You**<br>
+**Recorded:** June 27 – October 28, 1972<br>
 **Released:** *Greetings from Asbury Park, N.J.* (1973)<br>
 **First performed:** February 14, 1972 (New York City, NY)<br>
 **Last performed:** September 5, 2016 (Virginia Beach, VA)<br>

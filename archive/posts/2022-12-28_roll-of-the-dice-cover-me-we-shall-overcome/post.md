@@ -52,8 +52,8 @@ The other was remarkable for both the location–Cape Town, South Africa, where 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=36p9_u3enos)
 
-**We Shall Overcome**
-**Recorded:** November 2, 1997
+**We Shall Overcome**<br>
+**Recorded:** November 2, 1997<br>
 **Released:** *Where Have All the Flowers Gone: The Songs of Pete Seeger* (1998), *We Shall Overcome: The Seeger Sessions* (2006), *We Shall Overcome: The Seeger Sessions – American Land Edition* (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>
 **Last performed:** January 28, 2014 (Cape Town, South Africa)<br>

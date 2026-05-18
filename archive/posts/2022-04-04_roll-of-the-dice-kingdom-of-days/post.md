@@ -80,7 +80,7 @@ Watch this performance all the way through to hear Bruce channel his inner Orbis
 
 [Watch on Youtube: Bruce Springsteen - 2014-05-22 Pittsburgh - Kingdom Of Days (solo acoustic)](https://www.youtube.com/watch?v=Sv31KH_Q2YQ)
 
-**Bonus:** the DVD that accompanied *Working on a Dream* contained some behind-the-scenes footage from the recording sessions. Here's a look at the creation of "Kingdom of Days."
+**Bonus:** the DVD that accompanied *Working on a Dream* contained some behind-the-scenes footage from the recording sessions. Here's a look at the creation of "Kingdom of Days."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/6UU4PT3e)
 

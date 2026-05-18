@@ -84,7 +84,7 @@ With only three performances ever, "Iceman" remains a rarity–too misunderstood
 
 **Iceman**<br>
 **Recorded** October 27, 1977<br>
-**Released:** *Tracks* (1998)
+**Released:** *Tracks* (1998)<br>
 **First performed:** May 17, 2005 (Philadelphia, PA)<br>
 **Last performed:** July 13, 2016 (Paris, France)<br>
 

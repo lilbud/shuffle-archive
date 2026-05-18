@@ -151,7 +151,7 @@ We're much further away from the America he sings about than we were when he wro
 
 **Long Walk Home**<br>
 **Recorded** March-April 2007<br>
-**Released:** *Magic* (2007)
+**Released:** *Magic* (2007)<br>
 **First performed:** November 11, 2006 (London, England)<br>
 **Last performed:** April 23, 2026 (Sunrise, FL)<br>
 

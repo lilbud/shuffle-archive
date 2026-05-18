@@ -96,21 +96,21 @@ It's enough to make us all frustrated.
 
 ---
 
-**Bonus #1:** No essay on "Murder Incorporated" could be complete without the spectacular *Live in New York City* performance. Recorded at the very end of the Reunion Tour with the E Street Band at the peak of their powers, after performing the song every single night of the tour without exception, "Murder Incorporated" is a tour de force, one of Bruce's most exciting performances on official video.
+**Bonus #1:** No essay on "Murder Incorporated" could be complete without the spectacular *Live in New York City* performance. Recorded at the very end of the Reunion Tour with the E Street Band at the peak of their powers, after performing the song every single night of the tour without exception, "Murder Incorporated" is a tour de force, one of Bruce's most exciting performances on official video.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hJhULVsCctI)
 
-**Bonus #2:** "Murder Incorporated" actually made its proper public concert debut not with the E Street Band or even solo but with Joe Grushecky and the Houserockers. Bruce, Joe, and the band played it several times during the 1995 mini-tour for *American Babylon*, which featured Bruce as an honorary Houserocker.
+**Bonus #2:** "Murder Incorporated" actually made its proper public concert debut not with the E Street Band or even solo but with Joe Grushecky and the Houserockers. Bruce, Joe, and the band played it several times during the 1995 mini-tour for *American Babylon*, which featured Bruce as an honorary Houserocker.<br>
 
 Bruce would continue to perform "Murder Incorporated" many times with the Houserockers over the years that followed. Here's one such great performance from Light of Day 2010.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L6rjiJmDymU)
 
-**Bonus #3:** Here's an alternate unreleased mix of the same recording used for the official release. It's most notable for its very different introduction and much more prominent piano and organ. Bruce made the right choice for the album.
+**Bonus #3:** Here's an alternate unreleased mix of the same recording used for the official release. It's most notable for its very different introduction and much more prominent piano and organ. Bruce made the right choice for the album.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uBzzfUQ5)
 
-**Bonus #4:** Here's three minutes of Patti and Nils rehearsing their backing vocals in 1995. Just because.
+**Bonus #4:** Here's three minutes of Patti and Nils rehearsing their backing vocals in 1995. Just because.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nJPDVsqagF0)
 

@@ -36,10 +36,10 @@ As for the lyrics, there are several lines almost impossible to decipher, but th
 
 In other words, the lovers in "Magic Kind of Loving" may not be beauties, but they're all right–and that's alright with them.
 
-**Magic Kind of Loving
+**Magic Kind of Loving**<br>
 Never recorded
 Never released
-First performed:** February 4, 1972 (Richmond, VA)
+**First performed:** February 4, 1972 (Richmond, VA)<br>
 **Last performed:** February 25, 1972 (Richmond, VA)<br>
 
 © May 10, 2021

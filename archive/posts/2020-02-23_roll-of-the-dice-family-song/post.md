@@ -83,7 +83,7 @@ I'm not ashamed to admit that I tear up when I listen to "Family Song." Bruce ta
 
 "Family Song" isn't about the process of reconciliation, it's about the result.
 
-**Bonus:** Here's a second, earlier version of "Family Song," considerably slower and less poignant than the later version above. Both were recorded in March 1972 (after Bruce had returned home from California) at Mike Appel's office in New York City.
+**Bonus:** Here's a second, earlier version of "Family Song," considerably slower and less poignant than the later version above. Both were recorded in March 1972 (after Bruce had returned home from California) at Mike Appel's office in New York City.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/fxxfruGh)
 

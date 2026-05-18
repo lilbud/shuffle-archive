@@ -21,4 +21,4 @@ Although Bruce has never performed "Gypsy Woman" live in full, he did give us a 
 **Gypsy Woman**<br>
 **Recorded:** September-October 1993<br>
 **Released:** *A Tribute to Curtis Mayfield* (1994)<br>
-**Never performed** (but excerpted at the Grammy Awards on March 1, 1994 in New York City)
+**Never performed** (but excerpted at the Grammy Awards on March 1, 1994 in New York City)<br>

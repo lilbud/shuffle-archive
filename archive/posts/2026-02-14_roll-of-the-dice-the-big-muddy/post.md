@@ -87,7 +87,7 @@ Enjoy the official video (yes, there is one) for "The Big Muddy."
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nkSoGDQ09M8)
 
 **The Big Muddy**<br>
-**Recorded:** Late 1991
+**Recorded:** Late 1991<br>
 **Released:** *Lucky Town* (1992)<br>
 **First performed:** May 6, 1992 (New York City, NY)<br>
 **Last performed:** December 17, 1992 (Lexington, KY)<br>

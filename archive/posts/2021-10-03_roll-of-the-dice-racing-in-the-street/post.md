@@ -140,7 +140,7 @@ Over the years, though, it's been Roy Bittan who's emerged as the hero of live p
 
 [Watch on Youtube: Racing In The Street - Philadelphia (Best Version) - 9/9/16](https://www.youtube.com/watch?v=DQc_HLYh_NI)
 
-**Bonus #1:** In 2010, Bruce released an alternate vintage version of "Racing in the Street" on his album *The Promise.*" Commonly known as "Racing in the Street ('78)" (inexplicably, since it was recorded in 1977), the song features lyrics closer to the original solo piano version above, arranged for a more powerful band performance.
+**Bonus #1:** In 2010, Bruce released an alternate vintage version of "Racing in the Street" on his album *The Promise.*" Commonly known as "Racing in the Street ('78)" (inexplicably, since it was recorded in 1977), the song features lyrics closer to the original solo piano version above, arranged for a more powerful band performance.<br>
 
 It's a fascinating insight into the evolution of a classic song, but even though it's a fantastic performance (featuring David Lindley on violin), the arrangement stomps on the song's sadness and robs it of its emotional power.
 
@@ -164,12 +164,12 @@ It's likely to stay rare, though, because after performing the original version 
 
 That version of "Racing in the Street" is likely to stay a curiosity, but the original version is sure to always rank among Bruce's best work, a favorite of fans and critics alike.
 
-**Bonus #2:** My favorite version of "Racing in the Street" isn't any of the above. It's the to-die-for acoustic version from 1996 performed by just Bruce on guitar accompanied by Soozie Tyrell on violin. It's simply stunning.
+**Bonus #2:** My favorite version of "Racing in the Street" isn't any of the above. It's the to-die-for acoustic version from 1996 performed by just Bruce on guitar accompanied by Soozie Tyrell on violin. It's simply stunning.<br>
 
 [Watch on Youtube: Bruce Springsteen- Racing in the Street Asbury Park 1996](https://www.youtube.com/watch?v=PiCrYEChi9Q)
 
 **Racing in the Street**<br>
-**Recorded** August 1977 (both versions)
+**Recorded** August 1977 (both versions)<br>
 **Released:** *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*(1978), *The Promise* (2010, '78 version)<br>
 **First performed:** May 23, 1978 (Buffalo, NY)<br>
 **Last performed:** June 26, 2023 (Gothenburg, Sweden)<br>

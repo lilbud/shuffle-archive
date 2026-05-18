@@ -35,12 +35,12 @@ Although it's believed that The Castiles performed the song often over the next 
 
 [Watch on Youtube: Bruce Springsteen (The Castiles ) - BABY I](https://www.youtube.com/watch?v=I-3piB3bR7A)
 
-**Updated 10/23/20:** Well, knock me down with a feather: we finally have a document of Bruce playing "Baby I" live, and it's a video to boot. It's not vintage, though–in fact, it's about as modern as it gets. From the documentary film *Letter to You*, here's Bruce and his cousin Frank playing the very first song Bruce ever wrote.
+**Updated 10/23/20:** Well, knock me down with a feather: we finally have a document of Bruce playing "Baby I" live, and it's a video to boot. It's not vintage, though–in fact, it's about as modern as it gets. From the documentary film *Letter to You*, here's Bruce and his cousin Frank playing the very first song Bruce ever wrote.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/UmOLrDkm)
 
 **Baby I**<br>
-**Recorded:** May 18, 1966
+**Recorded:** May 18, 1966<br>
 **Released:** *Chapter & Verse* (2016)<br>
 **First performed:** November 2019 (Colts Neck, NJ)<br>
 **Last performed:** November 2019 (Colts Neck, NJ)<br>

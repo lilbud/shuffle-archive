@@ -14,8 +14,8 @@ Take a listen below and enjoy Joe and Bruce’s only team-up to date on “I Was
 
 [Watch Video Highlight](https://videopress.com/embed/TTD71Lro)
 
-**I Was Born to Rock
-First performed:** May 22, 2014 (Pittsburgh, PA)
-**Last performed:** May 22, 2014 (Pittsburgh, PA)
+**I Was Born to Rock**<br>
+**First performed:** May 22, 2014 (Pittsburgh, PA)<br>
+**Last performed:** May 22, 2014 (Pittsburgh, PA)<br>
 
 © February 26, 2022

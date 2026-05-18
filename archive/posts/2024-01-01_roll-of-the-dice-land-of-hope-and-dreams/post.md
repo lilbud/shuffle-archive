@@ -50,7 +50,7 @@ LOHAD has been a staple ever since. Bruce performed it throughout the Rising Tou
 
 The studio version of LOHAD also contains Clarence Clemons' last (albeit posthumous) contribution to Bruce's catalog: the saxophone solo you hear is actually lifted from a live concert performance, grafted seamlessly into the studio recording to bring it to life.
 
-**Standout performance:** My all-time favorite LOHAD performance is an acoustic one, at Chicago's Rosemont Theater in the spring of 2005. Bruce had performed this arrangement several times prior, but on this night, Bruce snapped a few guitar strings in the middle of the performance. ("We're screwed, now!" he laughed.)
+**Standout performance:** My all-time favorite LOHAD performance is an acoustic one, at Chicago's Rosemont Theater in the spring of 2005. Bruce had performed this arrangement several times prior, but on this night, Bruce snapped a few guitar strings in the middle of the performance. ("We're screwed, now!" he laughed.)<br>
 
 What happens next is one of those unpredictable magic Springsteen moments: without missing a single beat, Bruce throws his guitar to Kevin Buell, his guitar tech, and sings the bridge a capella. Kevin returns an intact, tuned guitar to Bruce at the very moment the bridge ends, and Bruce resumes playing as if that was the plan all along. The crowd, of course, goes nuts.
 
@@ -58,15 +58,15 @@ What happens next is one of those unpredictable magic Springsteen moments: witho
 
 <https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3>
 
-**Updated 11/17/2019:** I was fortunate to see Bruce play an acoustic version of "Land of Hope and Dreams" a couple of weeks ago at this year's Stand Up for Heroes Benefit. It was the most achingly beautiful version I've ever heard him play, and it needs to be shared. Watch it below, following its segue from "[Dancing in the Dark](https://estreetshuffle.com/index.php/2022/05/08/matr-joe-grushecky-and-bruce-springsteen-labor-of-love/)."
+**Updated 11/17/2019:** I was fortunate to see Bruce play an acoustic version of "Land of Hope and Dreams" a couple of weeks ago at this year's Stand Up for Heroes Benefit. It was the most achingly beautiful version I've ever heard him play, and it needs to be shared. Watch it below, following its segue from "[Dancing in the Dark](https://estreetshuffle.com/index.php/2022/05/08/matr-joe-grushecky-and-bruce-springsteen-labor-of-love/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Dancing In The Dark"/"Land of Hope and Dreams" - Theater a MSG - 11/4/19](https://www.youtube.com/watch?v=L50sqx9fYjg)
 
-**Updated 11/27/2020:** This year has been short on live performances by anyone, let alone Bruce. But when we need him, Bruce is there. Early in the great shutdown of 2020, Bruce played a telethon to support the New Jersey pandemic relied fund, and the first song he played was, of course:
+**Updated 11/27/2020:** This year has been short on live performances by anyone, let alone Bruce. But when we need him, Bruce is there. Early in the great shutdown of 2020, Bruce played a telethon to support the New Jersey pandemic relied fund, and the first song he played was, of course:<br>
 
 [Watch on Youtube: Land of Hope and Dreams - Bruce Springsteen and Patti Scialfa (Jersey 4 Jersey Benefit Show 2020)](https://www.youtube.com/watch?v=vXkauUI_AU4)
 
-**Updated 1/20/21:** Following a bitter election and a last-minute insurrection attempt–all during a worsening pandemic–America was on edge heading into the inauguration of President Biden. But all went smoothly on Inauguration Day, and when it was time for the traditional evening festivities, Bruce kicked off the evening alone on the steps of the Lincoln Memorial with perhaps his strongest acoustic performance to date of "Land of Hope and Dreams."
+**Updated 1/20/21:** Following a bitter election and a last-minute insurrection attempt–all during a worsening pandemic–America was on edge heading into the inauguration of President Biden. But all went smoothly on Inauguration Day, and when it was time for the traditional evening festivities, Bruce kicked off the evening alone on the steps of the Lincoln Memorial with perhaps his strongest acoustic performance to date of "Land of Hope and Dreams."<br>
 
 [Watch on Youtube: Bruce Springsteen Performs "Land of Hope and Dreams"| Biden-Harris Inauguration 2021](https://www.youtube.com/watch?v=fW_Vny_aXNM)
 

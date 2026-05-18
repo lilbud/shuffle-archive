@@ -21,8 +21,8 @@ It's a great set-up, though (even if it pales beside the first verse of "Growin'
 > *Well, late in the night ‘neath the pale moonlight that power comes over me*
 > *And it's all Eloise, yeah*
 
-**Eloise****Recorded:** April-May 1972
-**Never released**
+**Eloise****Recorded:** April-May 1972<br>
+**Never released**<br>
 **Never performed**<br>
 
 © September 17, 2018

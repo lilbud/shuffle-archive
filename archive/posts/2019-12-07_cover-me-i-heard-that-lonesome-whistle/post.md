@@ -12,7 +12,7 @@ Bruce's version is more pensive than Williams' original, and although the taper 
 
 [Watch on Youtube: Bruce Springsteen - I HEARD THAT LONESOME WHISTLE 1978 (audio)](https://www.youtube.com/watch?v=eScrQVnfB34)
 
-**Bonus:** Although the clip above is Bruce's only known "official" performance of "(I Heard That) Lonesome Whistle," we do have one more partial recording, from a soundcheck in Passaic just a few weeks later. You can listen to that one below.
+**Bonus:** Although the clip above is Bruce's only known "official" performance of "(I Heard That) Lonesome Whistle," we do have one more partial recording, from a soundcheck in Passaic just a few weeks later. You can listen to that one below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QHqTXyFd)
 

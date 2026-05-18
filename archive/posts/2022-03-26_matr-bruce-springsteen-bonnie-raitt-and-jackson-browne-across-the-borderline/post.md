@@ -38,7 +38,7 @@ All three icons were in peak form that night, their voices and instruments blend
 
 [Watch on Youtube: Across the border line Bruce Springsteen w/Jackson Browne & Bonnie Raitt](https://www.youtube.com/watch?v=lfO6M1pSr1Q)
 
-**Bonus:** Bruce played "Across the Borderline" only once more after his 1993 World Tour, in Denver on the Wrecking Ball Tour nineteen years later. With the full E Street Band behind him, he dedicated the song to a woman who told him his music had helped her make it through a hard time. It was an unexpected choice to be sure, but an incredibly moving one as well. Enjoy.
+**Bonus:** Bruce played "Across the Borderline" only once more after his 1993 World Tour, in Denver on the Wrecking Ball Tour nineteen years later. With the full E Street Band behind him, he dedicated the song to a woman who told him his music had helped her make it through a hard time. It was an unexpected choice to be sure, but an incredibly moving one as well. Enjoy.<br>
 
 [Watch on Youtube: Bruce Springsteen | Across The Borderline - Denver - 19/11/2012](https://www.youtube.com/watch?v=3WqKKf0jfoE)
 

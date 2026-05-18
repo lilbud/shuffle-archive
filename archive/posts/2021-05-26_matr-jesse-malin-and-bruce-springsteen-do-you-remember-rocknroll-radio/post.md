@@ -8,8 +8,6 @@ Here’s the original for good measure–because there’s no such thing as too 
 
 [Watch on Youtube: Ramones - Do You Remember Rock and Roll Radio? (Official Music Video)](https://www.youtube.com/watch?v=Gi9a7IdRiBI)
 
-**Do You Remember Rock ‘n’ Roll Radio
-First performed:** January 18, 2014 (Asbury Park, NJ)
-**Last performed:** January 18, 2014 (Asbury Park, NJ)
-
- 
+**Do You Remember Rock ‘n’ Roll Radio**<br>
+**First performed:** January 18, 2014 (Asbury Park, NJ)<br>
+**Last performed:** January 18, 2014 (Asbury Park, NJ)<br>

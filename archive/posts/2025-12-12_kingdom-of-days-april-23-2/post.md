@@ -1,24 +1,24 @@
-**1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
+**1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1971-0423.jpg)
 
-**1973:** Bruce opens for Richie Havens at Bushnell Memorial Hall in Hartford, his first show in Connecticut. Bruce opens the show with the earliest known performance of “4th of July, Asbury Park (Sandy).”
+**1973:** Bruce opens for Richie Havens at Bushnell Memorial Hall in Hartford, his first show in Connecticut. Bruce opens the show with the earliest known performance of “4th of July, Asbury Park (Sandy).”<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1973-0423.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/Hartford_Courant_Sat__Apr_21__1973_-scaled.jpg)
 
-**1975:** Bruce works on “Jungleland” and “Thunder Road” at the Record Plant in New York City.
+**1975:** Bruce works on “Jungleland” and “Thunder Road” at the Record Plant in New York City.<br>
 
-**1983:** Bruce works on “Richfield Whistle” at his home studio in Los Angeles.
+**1983:** Bruce works on “Richfield Whistle” at his home studio in Los Angeles.<br>
 
 [Watch on Youtube: Bruce Springsteen - Richfield Whistle (RARE home demo 1983)](https://www.youtube.com/watch?v=Gn1OcjnKDsw)
 
-**1985:** Bruce concludes his first Japanese tour with a second show in Osaka.
+**1985:** Bruce concludes his first Japanese tour with a second show in Osaka.<br>
 
 [Watch on Youtube: Osaka 23/04/1985](https://www.youtube.com/playlist?list=PLJTyL9twk3zD50qvA8LTkxCY5odh5R9PY)
 
-**1988:** At Night Two in Los Angeles on the Tunnel of Love Express Tour, Bruce debuts “[Ha](https://estreetshuffle.com/index.php/2019/12/20/cover-me-have-love-will-travel/)ve Love Will Travel” and tour premieres “Sweet Soul Music.” Roy Orbison is in attendance tonight, celebrating his 52nd birthday. Audio of the show is available for purchase as part of Bruce’s official archive series, but it was filmed by an enterprising fan as well.
+**1988:** At Night Two in Los Angeles on the Tunnel of Love Express Tour, Bruce debuts “[Ha](https://estreetshuffle.com/index.php/2019/12/20/cover-me-have-love-will-travel/)ve Love Will Travel” and tour premieres “Sweet Soul Music.” Roy Orbison is in attendance tonight, celebrating his 52nd birthday. Audio of the show is available for purchase as part of Bruce’s official archive series, but it was filmed by an enterprising fan as well.<br>
 
 [Watch on Youtube: Bruce Springsteen "Be True" LA 4-23-88](https://www.youtube.com/watch?v=Cnz_eKxTOwI)
 
@@ -38,17 +38,17 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 <https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp3>
 
-**1992:** Bruce rehearses with his new band for their upcoming tour.
+**1992:** Bruce rehearses with his new band for their upcoming tour.<br>
 
-**1993:** Bruce’s World Tour 1993 arrives in Belgium for the first of two nights at Flanders Expo in Ghent.
+**1993:** Bruce’s World Tour 1993 arrives in Belgium for the first of two nights at Flanders Expo in Ghent.<br>
 
 [Watch on Youtube: Bruce Springsteen Ghent 23/04/1993 Full Concert](https://www.youtube.com/watch?v=Ja7PoZlgvWo)
 
-**1999:** The Reunion Tour makes a stop at Donau Arena in Regensburg, Germany.
+**1999:** The Reunion Tour makes a stop at Donau Arena in Regensburg, Germany.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/AnphOexP)
 
-**2005:** Bruce’s episode of *VH1 Storytellers* premieres on VH1.
+**2005:** Bruce’s episode of *VH1 Storytellers* premieres on VH1.<br>
 
 [Watch on Youtube: Bruce Springsteen: VH1 Storytellers (Trailer)](https://www.youtube.com/watch?v=oxAas5MEbmU)
 
@@ -58,7 +58,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2005-04-23b.jpg)
 
-**2008:** Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with the rock version of “Blood Brothers.” Roger McGuinn guests on “Turn! Turn! Turn!” and “Mr. Tambourine Man” in the encores, the former of which will appear on the *Magic Tour Highlights* EP later in the year. Also tour premiering at this show: “Does This Bus Stop at 82nd Street?” This show is available as part of Bruce’s official archive series.
+**2008:** Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with the rock version of “Blood Brothers.” Roger McGuinn guests on “Turn! Turn! Turn!” and “Mr. Tambourine Man” in the encores, the former of which will appear on the *Magic Tour Highlights* EP later in the year. Also tour premiering at this show: “Does This Bus Stop at 82nd Street?” This show is available as part of Bruce’s official archive series.<br>
 
 [Watch on Youtube: "Blood Brothers" Bruce Springsteen & The E Street Band April 23, 2008](https://www.youtube.com/watch?v=j9a_xcfrxqk)
 
@@ -72,7 +72,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2008-04-23b.jpg)
 
-**2016:** As the U.S. leg of the River Tour (2016 edition) comes to a close, Bruce opens the first of two closing shows at Brooklyn’s Barclays Center with “Purple Rain” in tribute to Prince, who passed away two days prior.
+**2016:** As the U.S. leg of the River Tour (2016 edition) comes to a close, Bruce opens the first of two closing shows at Brooklyn’s Barclays Center with “Purple Rain” in tribute to Prince, who passed away two days prior.<br>
 
 [Watch on Youtube: Bruce Springsteen Purple Rain (Pro Shot)](https://www.youtube.com/watch?v=sAYhtbp5Br8)
 
@@ -82,12 +82,12 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 [Watch on Youtube: No Surrender - Springsteen - Brooklyn April 23, 2016](https://www.youtube.com/watch?v=eyPtFqV-f3w)
 
-**2018:** At the premiere for the new Patti Smith concert documentary *Horses: Patti Smith and Her Band,* Bruce makes a surprise appearance, joining Patti for “Because the Night” and both Patti and Michael Stipe for “People Have the Power.”
+**2018:** At the premiere for the new Patti Smith concert documentary *Horses: Patti Smith and Her Band,* Bruce makes a surprise appearance, joining Patti for “Because the Night” and both Patti and Michael Stipe for “People Have the Power.”<br>
 
 [Watch on Youtube: Patti Smith w/ Bruce Springsteen and Michael Stipe 4/23/18 Beacon](https://www.youtube.com/watch?v=5iOLJTm6YNA)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2018-04-23.jpg)
 
-**2019:** For the second day in a row, Bruce’s twitter account offers a mysterious photo with no accompanying text. Rumors begin to fly: is a new album imminent?
+**2019:** For the second day in a row, Bruce’s twitter account offers a mysterious photo with no accompanying text. Rumors begin to fly: is a new album imminent?<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2019-04-23.jpg)

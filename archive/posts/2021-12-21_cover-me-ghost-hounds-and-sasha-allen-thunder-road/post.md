@@ -18,6 +18,6 @@ Their web site describes The Ghost Hounds as "a rock 'n' roll band at a time whe
 
 I couldn't say it any better.
 
-**Bonus:** Here's a behind-the-scenes look at the band's recording session for "Thunder Road." It's fun to watch them work out the song.
+**Bonus:** Here's a behind-the-scenes look at the band's recording session for "Thunder Road." It's fun to watch them work out the song.<br>
 
 [Watch on Youtube: Ghost Hounds - Thunder Road ft. Sasha Allen (Behind The Scenes)](https://www.youtube.com/watch?v=16vJ9m8Z2lU)

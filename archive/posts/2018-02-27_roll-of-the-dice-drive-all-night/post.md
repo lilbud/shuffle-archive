@@ -133,6 +133,6 @@ That final minute, with the band aglow and the audience rapt and Bruce refusing 
 Or as Bruce says as the final bars fade, "That's nice."
 
 **Drive All Night**<br>
-**Recorded** 1977 (music), 1980 (vocals)**Released:** *The River* (1980)**First performed:** October 18, 1980 (St. Louis, MO)**Last performed:** January 27, 2017 (Perth, Australia)
+**Recorded** 1977 (music), 1980 (vocals)**Released:** *The River* (1980)**First performed:** October 18, 1980 (St. Louis, MO)**Last performed:** January 27, 2017 (Perth, Australia)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

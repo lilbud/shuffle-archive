@@ -80,7 +80,7 @@ The first is Bruce's opening number from a Labor Day concert in Philadelphia in 
 
 **Factory**<br>
 **Recorded** October-November, 1977<br>
-**Released:** *Darkness on the Edge of Town* (1978)
+**Released:** *Darkness on the Edge of Town* (1978)<br>
 **First performed:** July 21, 1978 (Nashville, TN)<br>
 **Last performed:** September 5, 2016 (Virginia Beach, VA)<br>
 

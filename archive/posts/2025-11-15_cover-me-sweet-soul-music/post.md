@@ -46,6 +46,6 @@ We likely haven't heard the last of "Sweet Soul Music." With another E Street Ba
 
 **Sweet Soul Music**<br>
 First played:** April 19, 1981 (Paris, France)
-**Last played:** July 27, 2013 (Kilkenny, Ireland)
+**Last played:** July 27, 2013 (Kilkenny, Ireland)<br>
 
 (c) November 1, 2019

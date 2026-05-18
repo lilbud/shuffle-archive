@@ -38,8 +38,6 @@ He never attempted it on stage again.
 
 Maybe it just works better at home?
 
-**My Girl
-First performed:** June 3, 1979 (West Hollywood, CA)
-**Last performed:** December 22, 2002 (Asbury Park, NJ)
-
- 
+**My Girl**<br>
+**First performed:** June 3, 1979 (West Hollywood, CA)<br>
+**Last performed:** December 22, 2002 (Asbury Park, NJ)<br>

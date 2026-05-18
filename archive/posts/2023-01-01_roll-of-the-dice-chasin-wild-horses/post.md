@@ -107,7 +107,7 @@ Bruce has been coy when asked whether we'll ever hear any of the *Western Stars*
 
 **Chasin' Wild Horses**<br>
 **Recorded** Unknown<br>
-**Released:** *Western Stars* (2019)
+**Released:** *Western Stars* (2019)<br>
 **First performed:** April 2019 (exact date unknown) (Colts Neck, NJ)<br>
 **Last performed:** April 2019 (exact date unknown) (Colts Neck, NJ)<br>
 

@@ -90,7 +90,7 @@ Obviously, "Born in the U.S.A." still has miles to travel before it reaches its 
 ***To be continued in Roll of the Dice: "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)"***<br>
 
 **Vietnam**<br>
-**Recorded:** Autumn 1981
+**Recorded:** Autumn 1981<br>
 **Never released**<br>
 **Never performed**<br>
 

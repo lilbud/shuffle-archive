@@ -51,8 +51,8 @@ That last verse is identical to "Unsatisfied Heart" as well–at least most of i
 
 Here, however, it's not just the distant past that the narrator must now carry as a burden–it's the knowledge that he came close to killing a man to keep his secret buried. And while it's true that he ultimately didn't go through with it, the songwriter hardly sees that as a victory. The dimming stars symbolize the encroaching darkness in the narrator's soul and foretell a future that is anything but peaceful.
 
-**Fugitive's Dream**
-**Recorded:** January-March 1983
+**Fugitive's Dream**<br>
+**Recorded:** January-March 1983<br>
 **Released:** *L.A. Garage Sessions '83* (2025)<br>
 **Never performed**<br>
 

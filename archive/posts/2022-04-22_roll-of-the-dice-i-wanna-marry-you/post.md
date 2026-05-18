@@ -97,7 +97,7 @@ He'd find out soon enough.
 
 [Watch on Youtube: Bruce Springsteen - I Wanna Marry You (Pittsburgh 1/16/16) 日本語字幕](https://www.youtube.com/watch?v=iqQnRaUQJ6M)
 
-**Bonus:** "I Wanna Marry You" was one of the earliest songs recorded for *The River*, and it was included in the original one-disc version submitted to (but then revoked from) the record company. Bruce finally released the single-disc version of *The River* in this 2015 box set, *The Ties That Bind: The River Collection*.
+**Bonus:** "I Wanna Marry You" was one of the earliest songs recorded for *The River*, and it was included in the original one-disc version submitted to (but then revoked from) the record company. Bruce finally released the single-disc version of *The River* in this 2015 box set, *The Ties That Bind: The River Collection*.<br>
 
 What most fans don't realize, however, is that the version of "I Wanna Marry You" included on that disc is not the same version as the one on the original two-disc *The River.* The backing track is the same recording, but the mix is different, and the vocals are too. Listen below and compare with the audio and lyrics above and you'll see what I mean.
 
@@ -105,7 +105,7 @@ What most fans don't realize, however, is that the version of "I Wanna Marry You
 
 **I Wanna Marry You**<br>
 **Recorded** July 1979 – May 1980<br>
-**Released:** *The River* (1980), *The River: Single Album* (2015)
+**Released:** *The River* (1980), *The River: Single Album* (2015)<br>
 **First performed:** October 3, 1980 (Ann Arbor, MI)<br>
 **Last performed:** July, 28, 2016 (Oslo, Norway)<br>
 

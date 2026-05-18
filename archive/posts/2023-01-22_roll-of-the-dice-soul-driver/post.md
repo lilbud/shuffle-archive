@@ -66,13 +66,13 @@ Like his very first performance fifteen years earlier, Bruce's final (to date) a
 
 If only he'd realized that when recording the album.
 
-**Bonus:** Here's some terrific and rare footage of Bruce and his band rehearsing "Soul Driver" in an empty, dimly lit venue. It totally works.
+**Bonus:** Here's some terrific and rare footage of Bruce and his band rehearsing "Soul Driver" in an empty, dimly lit venue. It totally works.<br>
 
 [Watch on Youtube: Bruce Springsteen - Soul Driver (rehearsal)](https://www.youtube.com/watch?v=ziVw8itIXVU)
 
 **Soul Driver**<br>
 **Recorded** January 1990<br>
-**Released:** *Human Touch* (1992)
+**Released:** *Human Touch* (1992)<br>
 **First performed:** November 17, 1990 (Los Angeles, CA)<br>
 **Last performed:** August 10, 2005 (Portland, OR)<br>
 

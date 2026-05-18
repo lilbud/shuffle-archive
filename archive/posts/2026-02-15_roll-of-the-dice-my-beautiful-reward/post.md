@@ -80,7 +80,7 @@ A return engagement is a long shot at this point. "[I'll See You in My Dreams](h
 
 **My Beautiful Reward**<br>
 **Recorded** Late 1991<br>
-**Released:** *Lucky Town* (1992)
+**Released:** *Lucky Town* (1992)<br>
 **First performed:** May 6, 1992 (New York City, NY)<br>
 **Last performed:** May 23, 2014 (Pittsburgh, PA)<br>
 

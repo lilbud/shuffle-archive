@@ -14,8 +14,6 @@ That video, of course, became one of the most frequently aired videos during the
 
 The Rolling Stones would never achieve that level of chart success again. Despite its status as the iconic band’s last big hit, that Hall of Fame performance is the only time Bruce is known to have played “Start Me Up.”
 
-**Start Me Up**
-**First performed:** January 18, 1989 (New York City, NY)
-**Last performed:** January 18, 1989 (New York City, NY)
-
- 
+**Start Me Up**<br>
+**First performed:** January 18, 1989 (New York City, NY)<br>
+**Last performed:** January 18, 1989 (New York City, NY)<br>

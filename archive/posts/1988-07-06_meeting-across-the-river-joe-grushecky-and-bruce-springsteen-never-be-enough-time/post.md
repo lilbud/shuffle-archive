@@ -12,12 +12,12 @@ Bruce and Joe play the song live together frequently (30 times over the past 24 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jOySzwhTtZI)
 
-**Updated 11/27/20:** This year has been short on live performances by anyone, but Bruce and Joe managed to sneak one in just a few weeks before the great shutdown. Here’s their performance of “Never Be Enough Time” from Light of Day 20 in January.
+**Updated 11/27/20:** This year has been short on live performances by anyone, but Bruce and Joe managed to sneak one in just a few weeks before the great shutdown. Here’s their performance of “Never Be Enough Time” from Light of Day 20 in January.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aor4Wdwbfgc)
 
-**Never Be Enough Time
-First performed:** August 20, 1994 (Long Branch, NJ)
-**Last performed:** January 17, 2026 (Red Bank, NJ)
+**Never Be Enough Time**<br>
+**First performed:** August 20, 1994 (Long Branch, NJ)<br>
+**Last performed:** January 17, 2026 (Red Bank, NJ)<br>
 
 © April 3, 2018

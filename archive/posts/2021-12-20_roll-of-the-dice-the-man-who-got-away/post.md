@@ -62,11 +62,11 @@ But other than its under-the-radar official release in the anniversary box set, 
 
 —
 
-**Bonus #1:** Here's an inside look at Bruce working on an early acoustic version of "The Man Who Got Away." The lyrics are very different–the song would evolve considerably before Bruce brought it to the band.
+**Bonus #1:** Here's an inside look at Bruce working on an early acoustic version of "The Man Who Got Away." The lyrics are very different–the song would evolve considerably before Bruce brought it to the band.<br>
 
 [Watch on Youtube: Bruce Springsteen Man Who Got Away #2 Acoustic Demo](https://www.youtube.com/watch?v=KaOta11KKKU)
 
-**Bonus #2:** Although it took more than 35 years for us to get an official release of "The Man Who Got Away," we did get a glimpse of it much, much earlier when a recording of an E Street Band rehearsal escaped into the wild. Take a listen to that full run-through of "The Man Who Got Away," followed by Bruce listening to the recording and practicing his harmonies.
+**Bonus #2:** Although it took more than 35 years for us to get an official release of "The Man Who Got Away," we did get a glimpse of it much, much earlier when a recording of an E Street Band rehearsal escaped into the wild. Take a listen to that full run-through of "The Man Who Got Away," followed by Bruce listening to the recording and practicing his harmonies.<br>
 
 [Watch on Youtube: Bruce Springsteen Man Who Got Away #1](https://www.youtube.com/watch?v=0EAjq87xUjs)
 

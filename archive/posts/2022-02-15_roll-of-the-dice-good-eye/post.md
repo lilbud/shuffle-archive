@@ -42,7 +42,7 @@ In the clip below, you'll hear a distorted Bruce reference the love and fear tat
 
 **Good Eye**<br>
 **Recorded** 2008<br>
-**Released:** *Working on Dream* (2009)
+**Released:** *Working on Dream* (2009)<br>
 **First performed:** March 23, 2009 (Asbury Park, NJ)<br>
 **Last performed:** April 1, 2009 (San Jose, CA)<br>
 

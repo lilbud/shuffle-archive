@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *By popular demand, guest blogger Katy Crane returns today with a new **Two Faces** entry.*
+***Editor's Note:*** *By popular demand, guest blogger Katy Crane returns today with a new **Two Faces** entry.*<br>
 
 > *And I do mean popular: Katy's [debut counterpoint](https://estreetshuffle.com/index.php/2021/11/04/two-faces-western-stars/) to my "[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)" Roll of the Dice essay already ranks #3 among this site's most-viewed posts of the year!*<br>
 

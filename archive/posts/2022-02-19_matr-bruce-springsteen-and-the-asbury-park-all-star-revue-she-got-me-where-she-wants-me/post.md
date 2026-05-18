@@ -20,7 +20,7 @@ As for Southside, he was back in action pretty quickly. Here he is back where he
 
 [Watch on Youtube: Southside Johnny & the Asbury Jukes - She Got Me Where She Wants Me - 7/30/1977](https://www.youtube.com/watch?v=_cZJDioMsOg)
 
-**Bonus:** Here's another chance to hear Steve sing "She Got Me Where She Wants Me," from a rehearsal session at the Stone Pony sometime that same year.
+**Bonus:** Here's another chance to hear Steve sing "She Got Me Where She Wants Me," from a rehearsal session at the Stone Pony sometime that same year.<br>
 
 [Watch on Youtube: She Got Me Where She Wants Me (Stone Pony Rehearsal, 1977 / Mono)](https://www.youtube.com/watch?v=LgDFjxLJ5B0)
 

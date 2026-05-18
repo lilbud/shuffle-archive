@@ -114,10 +114,10 @@ Is there anybody alive out there?
 
 **Radio Nowhere**<br>
 **Recorded** March 2007<br>
-**Released:** *Magic* (2007), *The Essential Bruce Springsteen* (2015)
+**Released:** *Magic* (2007), *The Essential Bruce Springsteen* (2015)<br>
 **First performed:** September 24, 2007 (Asbury Park, NJ)<br>
 **Last performed:** February 21, 2017 (Christchurch, New Zealand)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-**Also, as it turns out, blogging. Thanks for sticking around while I was on vacation; it's good to be back.*
+**Also, as it turns out, blogging. Thanks for sticking around while I was on vacation; it's good to be back.*<br>

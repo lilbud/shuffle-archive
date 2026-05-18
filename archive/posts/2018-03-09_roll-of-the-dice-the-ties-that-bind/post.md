@@ -35,7 +35,7 @@ Here's the second-ever performance from the following night in Largo, MD:
 The perspective has now shifted–in this version, we're in "Two Hearts" territory–there's even a line that would migrate over to that song someday:
 
 > *Outside, inside, anyway you wanna go*
-***There's one thing, darling, that I know***
+***There's one thing, darling, that I know***<br>
 > *People cry and wonder who's gonna stop the rain*
 > *Ease the sadness, who's gonna quiet your pain*
 > *You'll walk the wire, will you stand and walk the line*
@@ -86,12 +86,12 @@ By the time "The Ties That Bind" was officially released on *The River* in 1980,
 
 On the River Tour, "The Ties That Bind" was a setlist staple, but it disappeared immediately after, resurfacing only after 18 years on the Reunion tour. It's been a staple of every E Street Band tour since–and I don't think that's a coincidence. Some ties really do bind.
 
-**Bonus:** There are many arrangements of "The Ties That Bind" prior to its release, but only a single new one since–and it's wonderful. Here's the rarely performed (seven times only) acoustic version:
+**Bonus:** There are many arrangements of "The Ties That Bind" prior to its release, but only a single new one since–and it's wonderful. Here's the rarely performed (seven times only) acoustic version:<br>
 
 [Watch on Youtube: The Ties That Bind (solo acoustic) Bruce Springsteen 11/8/2005 Philly](https://www.youtube.com/watch?v=q83NktVFUD0)
 
-**The Ties That Bind**
-**Recorded:** April 10-11, 1979; April 10, 1980
+**The Ties That Bind**<br>
+**Recorded:** April 10-11, 1979; April 10, 1980<br>
 **Released:** *The River* (1980), *The Ties That Bind: The River Collection* (alternate version) (2015)<br>
 **First Performed:** November 1, 1978 (Princeton, NJ)<br>
 **Last Performed:** June 24, 2023 (Gothenburg, Sweden)<br>

@@ -19,15 +19,15 @@ No, I don't think they make dice with hundreds of sides. But I do keep it random
 
 ? Because there so many covers. Seriously, it was an effort cataloging the hundreds of songs that Bruce has penned or performed (I still have almost 1,400 in my list, so I don't think I'll run out of material any time soon). I can't even begin to wrap my head around how many covers of Bruce's songs there are by other artists–the list is crazy long. It's also a fun way to keep content coming while I'm thinking about the longer analysis pieces, and I enjoy seeing how other artists interpret Bruce's music. I hope you're enjoying them, too. If you have favorites or obscure ones, please send them my way.
 
-**Why so many covers***are*
+**Why so many covers***are*<br>
 
 I'll revisit. Those posts started mostly as a way for me to organize all the random video and audio clips I'd collected over the years and share anything that appears not to be in layperson's circulation (i.e. Youtube). So far, almost everything I've linked to was already available, which I greatly appreciate. But I've created a for the clips that I can't find elsewhere–and those clips start with Saturday's post. You can subscribe to the channel if you want to see the clips as soon as they're posted (generally about a week before the blog posts catch up). If you're a long time "uber" collector, I don't you'll discover anything new. But if you're a moderate to ardent fan, you might dig the stuff I upload. Either way, let me know. Oh yeah, and the revisit: I don't want to overstuff these posts, so in year two my plan is to freshen them up with new media.
 
-**What happens with the Kingdom of Days posts after a year?** [youtube channel](https://www.youtube.com/channel/UCsJqIOT5dS3zfPk31U8o8_A)*think*
+**What happens with the Kingdom of Days posts after a year?** [youtube channel](https://www.youtube.com/channel/UCsJqIOT5dS3zfPk31U8o8_A)*think*<br>
 
 Nope. Other than launching a new series tomorrow (concert reviews of shows I attended, called ""), I'm satisfied with the focus of this blog. There are so many great Springsteen-focused blogs out there, each with their own unique lens, so I want to keep this one personal and true to its name: an unpredictable journey through Bruce's catalog, cameos, and influencees, one song at a time.
 
-**Any plans to broaden the scope?**[Where the Band Was](http://estreetshuffle.com/index.php/category/where-the-band-was/)
+**Any plans to broaden the scope?**[Where the Band Was](http://estreetshuffle.com/index.php/category/where-the-band-was/)<br>
 
 Thanks again for reading, and for all of the retweets, likes, and especially the comments (those are my favorite!). Your feedback is always welcome and appreciated.
 

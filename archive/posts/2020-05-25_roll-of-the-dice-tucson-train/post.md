@@ -85,12 +85,12 @@ It's a beautiful performance, but it doesn't quite measure up to the album track
 
 [Watch on Youtube: Bruce Springsteen - Tucson Train (Film Version - Official Audio)](https://www.youtube.com/watch?v=dEB0HZeGYQ8)
 
-**Bonus:** While the filmed *Western Stars* performance are still working their way through the paid streaming services, Bruce has published a few free excerpts on his YouTube page. Here's an incomplete clip of his only known (to date) live performance of "Tucson Train."
+**Bonus:** While the filmed *Western Stars* performance are still working their way through the paid streaming services, Bruce has published a few free excerpts on his YouTube page. Here's an incomplete clip of his only known (to date) live performance of "Tucson Train."<br>
 
 [Watch on Youtube: Bruce Springsteen - Tucson Train (From The Film Western Stars)](https://www.youtube.com/watch?v=Pctwuj8s2l0)
 
 **Tucson Train**<br>
-**Recorded** Unknown**Released:** *Western Stars* (2019)
+**Recorded** Unknown**Released:** *Western Stars* (2019)<br>
 **First performed:** April 2019 (Colts Neck, NJ)<br>
 **Last performed:** April 2019 (Colts Neck, NJ)<br>
 

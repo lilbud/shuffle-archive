@@ -16,7 +16,7 @@ Take a listen to this superb recording of Joe Grushecky and The Houserockers (fe
 
 Bruce joined Joe and The Houserockers throughout their American Babylon Tour (otherwise known as the October Assault), and "Pumping Iron" featured prominently in the setlist.
 
-**Bonus:** Bruce and Joe would reprise it many times over the years that followed–although only in Pittsburgh or the Jersey Shore. Here are a couple performances from the Wonder Bar on July 18, 2015, and at Light of Day in January 2020. Both were fortunately captured from close-up.
+**Bonus:** Bruce and Joe would reprise it many times over the years that followed–although only in Pittsburgh or the Jersey Shore. Here are a couple performances from the Wonder Bar on July 18, 2015, and at Light of Day in January 2020. Both were fortunately captured from close-up.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SN5QnT6WOp4)
 

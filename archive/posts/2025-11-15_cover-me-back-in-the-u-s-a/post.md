@@ -10,8 +10,8 @@ Originally released in 1959, Berry’s ode to hamburgers at the corner cafe (or 
 
 The song would go on to chart once more–higher even–when Linda Ronstadt covered it three years later, but no one could quite match the energy and passion for burgers that Bruce brought to it back in 1975.
 
-**Back in the U.S.A.**
-**First performed:** February 5, 1975 (Bryn Mawr, PA)
-**Last performed:** December 27, 1975 (Philadelphia, PA)
+**Back in the U.S.A.**<br>
+**First performed:** February 5, 1975 (Bryn Mawr, PA)<br>
+**Last performed:** December 27, 1975 (Philadelphia, PA)<br>
 
 (c) March 11, 2019

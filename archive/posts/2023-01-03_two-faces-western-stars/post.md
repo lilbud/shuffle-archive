@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *For four years, I've been working my way through Bruce's catalog, song by song, day by day. I've had some great guest-writers along the way, but always in the "Where the Band Was" series. When it comes to analyzing Bruce's songs, I've held the Roll of the Dice series with a pretty tight grip.*
+***Editor's Note:*** *For four years, I've been working my way through Bruce's catalog, song by song, day by day. I've had some great guest-writers along the way, but always in the "Where the Band Was" series. When it comes to analyzing Bruce's songs, I've held the Roll of the Dice series with a pretty tight grip.*<br>
 
 > *But then I met Katy Crane. Katy caught my interest from the very first of a string of deeply insightful comments in response to my Roll of the Dice articles, featuring provocative takes, surprising connections, broad musical knowledge, and a writer's voice I only aspire to.*<br>
 

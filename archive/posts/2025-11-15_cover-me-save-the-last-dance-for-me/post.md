@@ -24,8 +24,8 @@ Bruce granted her wish and chose a perfect song for the occasion. Captured close
 
 [Watch on Youtube: Bruce Springsteen - Save The Last Dance For Me (Live Albany 2014) HD Pro recorded audio](https://www.youtube.com/watch?v=whq2XZyMT9s)
 
-**Save the Last Dance For Me
-First performed:** 1971-1972 (exact date unknown) (Richmond, VA)
-**Last performed:** May 13, 2014 (Albany, NY)
+**Save the Last Dance For Me**<br>
+**First performed:** 1971-1972 (exact date unknown) (Richmond, VA)<br>
+**Last performed:** May 13, 2014 (Albany, NY)<br>
 
 (c) October 25, 2020

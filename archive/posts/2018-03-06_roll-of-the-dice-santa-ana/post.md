@@ -28,7 +28,7 @@ The second verse is grittier and streetier, with imagery reminiscent of "[Hollyw
 > *But there's only secret sinners here, Lord, there's only secret thieves*<br>
 > *Only a fool would try to save what the desert chose to leave*<br>
 > *And now, hey there, senorita, with your playboys in their Spanish bandanas*<br>
-***French cream won't soften those boots, baby***
+***French cream won't soften those boots, baby***<br>
 ***French kisses will not break your heart, oh!***<br>
 
 (Those last two lines would reappear slightly morphed in "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)" a few years later.)
@@ -62,8 +62,8 @@ In concert, "Santa Ana" has been performed very few times–that we know of. The
 
 Bruce rescued "Santa Ana" from obscurity in 2005 for five performances, and then promptly returned it from whence it came. It hasn't been seen since.
 
-**Santa Ana**
-**Recorded:** June 28, 1973
+**Santa Ana**<br>
+**Recorded:** June 28, 1973<br>
 **Released:** *Tracks* (1998)<br>
 **First performed:** January 3, 1973 (Bryn Mawr, PA)<br>
 **Last performed:** November 21, 2005 (Trenton, NJ)<br>

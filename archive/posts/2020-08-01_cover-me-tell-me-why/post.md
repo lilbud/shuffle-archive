@@ -14,7 +14,7 @@ The song Bruce chose wasn't in The Beatles' set list that night in 1964, but its
 
 That night in 2003 was the first and only time Bruce has played "Tell Me Why" in public, but he played it before and since in private settings, at his annual Stone Pony benefit shows for the Rumson Country Day School in 2002 and 2003.
 
-**Bonus:** Before Bruce and the E Street Band played "Tell Me Why" in Atlantic City, they rehearsed it at sound check. Let's eavesdrop on them working out the song.
+**Bonus:** Before Bruce and the E Street Band played "Tell Me Why" in Atlantic City, they rehearsed it at sound check. Let's eavesdrop on them working out the song.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/EahETezG)
 

@@ -14,7 +14,7 @@ But on that earlier occasion John sang the lead vocals himself. This time, John 
 
 [Watch on Youtube: John Fogerty with Bruce Springsteen & Robbie Robertson - "Born On The Bayou" | 1993 Inductions](https://www.youtube.com/watch?v=pfn4G2IJUxA)
 
-**Bonus:** Bruce and John performed "Born on the Bayou" once more together–two years later at John's 50th birthday party at John's house in Beverly Hills. Here's a snippet of that performance.
+**Bonus:** Bruce and John performed "Born on the Bayou" once more together–two years later at John's 50th birthday party at John's house in Beverly Hills. Here's a snippet of that performance.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/7AXPHcVE)
 

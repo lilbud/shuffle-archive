@@ -22,7 +22,7 @@ It's just start-to-finish awesome.
 
 Obscure? Sure. But it's one of my all-time favorite moments at a Bruce Springsteen concert.
 
-**Bonus:** Bruce actually performed the song on two other occasions: one was at a private home concert for which there's no audio, but the other was an ensemble encore at the "Come Together" benefit concert for the Sergeant Patrick King Memorial Fund in 1998. You can hear that performance below, featuring Bruce, Southside Johnny, Jon Bon Jovi, Little Steven, and Clarence Clemons.
+**Bonus:** Bruce actually performed the song on two other occasions: one was at a private home concert for which there's no audio, but the other was an ensemble encore at the "Come Together" benefit concert for the Sergeant Patrick King Memorial Fund in 1998. You can hear that performance below, featuring Bruce, Southside Johnny, Jon Bon Jovi, Little Steven, and Clarence Clemons.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/e4ykmr7s)
 

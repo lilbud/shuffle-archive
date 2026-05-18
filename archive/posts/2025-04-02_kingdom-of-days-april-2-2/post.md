@@ -1,20 +1,20 @@
-***New for 2025:** No updates*
+***New for 2025:** No updates*<br>
 
-**1969:** Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they'll rename themselves Steel Mill.
+**1969:** Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they'll rename themselves Steel Mill.<br>
 
 ![](../../assets/2018/03/1969-0402.jpg)
 
-**1971:** Bruce and Steve play The Upstage in Asbury Park, leading separate bands but each playing a slate of hits from the 1950s.
+**1971:** Bruce and Steve play The Upstage in Asbury Park, leading separate bands but each playing a slate of hits from the 1950s.<br>
 
-**1976:** The Chicken Scratch Tour moves on to Louisville with a show at the Macauley Theater.
+**1976:** The Chicken Scratch Tour moves on to Louisville with a show at the Macauley Theater.<br>
 
 ![](../../assets/2020/03/1976-04-02.jpg)
 
-**1981:** Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.
+**1981:** Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.<br>
 
 ![](../../assets/2018/03/1981-0318.jpg)
 
-**1988:** Bruce and the E Street Band play their second of two Tunnel of Love Express shows at Nassau Coliseum in Uniondale, New York.
+**1988:** Bruce and the E Street Band play their second of two Tunnel of Love Express shows at Nassau Coliseum in Uniondale, New York.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/HHgVWkOa)
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen | Love Me Tender | April 2, 1988](https://www.youtube.com/watch?v=9wopuObCeV0)
 
-**2011:** The Garden State Film Festival premieres *Who Do I Think I Am*, a biographical film about Clarence Clemons, at the Paramount Theater in Asbury Park. Meanwhile, Bruce joins local Asbury musicians (including Southside Johnny, Vini Lopez, Ed Manion, and more) at a panel and Nicky Addeo concert at the Wonder Bar. Watch the complete panel discussion below and concert highlights below.
+**2011:** The Garden State Film Festival premieres *Who Do I Think I Am*, a biographical film about Clarence Clemons, at the Paramount Theater in Asbury Park. Meanwhile, Bruce joins local Asbury musicians (including Southside Johnny, Vini Lopez, Ed Manion, and more) at a panel and Nicky Addeo concert at the Wonder Bar. Watch the complete panel discussion below and concert highlights below.<br>
 
 [Watch on Youtube: West Side Sound AP 1 of 8](https://www.youtube.com/watch?v=S_LsNVa_HZ8)
 

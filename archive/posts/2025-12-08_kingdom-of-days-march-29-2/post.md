@@ -1,4 +1,4 @@
-**1973:** Bruce and his band open for Stevie Wonder at Kutztown State College.
+**1973:** Bruce and his band open for Stevie Wonder at Kutztown State College.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/1973-03-29a.jpg)
 
@@ -6,19 +6,19 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0329.jpg)
 
-**1976:** Finding themselves with time to spare following a gig at Duke University, Bruce and the E Street band play an extra show at the Ovens Auditorium in Charlotte.
+**1976:** Finding themselves with time to spare following a gig at Duke University, Bruce and the E Street band play an extra show at the Ovens Auditorium in Charlotte.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/1976-03-29.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1976-0329.jpg)
 
-**1988**: Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform “One Step Up” below.
+**1988**: Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform “One Step Up” below.<br>
 
 [Watch on Youtube: Bruce Springsteen - "One Step Up" live in Detroit MI on March 29th 1988.](https://www.youtube.com/watch?v=RGj1gGvXJT8)
 
-**1989:** *Video Anthology/1978-1988* is certified 3x multi-platinum by the Recording Industry Association of America.
+**1989:** *Video Anthology/1978-1988* is certified 3x multi-platinum by the Recording Industry Association of America.<br>
 
-**2008:** Bruce opens with “Trapped” and pulls out the Magic tour premiere of “Point Blank” and a very rare “Your Own Worst Enemy” at his KeyArena show in Seattle.
+**2008:** Bruce opens with “Trapped” and pulls out the Magic tour premiere of “Point Blank” and a very rare “Your Own Worst Enemy” at his KeyArena show in Seattle.<br>
 
 [Watch on Youtube: Bruce Springsteen - Point Blank - Seattle - March 29, 2008](https://www.youtube.com/watch?v=RSl5Oe0oXIo)
 
@@ -26,7 +26,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/2008-03-29.png)
 
-**2012:** Night Two in Philadelphia features a rare (outside of Philly, anyway) “Streets of Philadelphia” and a glorious, brassy “Kitty’s Back.” Also today: Bruce appears on the cover of the new issue of *Rolling Stone,* which features an interview with him by Jon Stewart.
+**2012:** Night Two in Philadelphia features a rare (outside of Philly, anyway) “Streets of Philadelphia” and a glorious, brassy “Kitty’s Back.” Also today: Bruce appears on the cover of the new issue of *Rolling Stone,* which features an interview with him by Jon Stewart.<br>
 
 [Watch on Youtube: Trapped - Springsteen - Philadelphia March 29, 2012](https://www.youtube.com/watch?v=QimUtzbHEvg)
 
@@ -40,9 +40,9 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/RollingStone11.jpg)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2021:** Bruce and President Barack Obama release Episode 7 of their *Renegades: Born in the U.S.A.* podcast, entitled “Finding Home: Fatherhood.”
+**2021:** Bruce and President Barack Obama release Episode 7 of their *Renegades: Born in the U.S.A.* podcast, entitled “Finding Home: Fatherhood.”<br>
 
 [Spotify Embed: Fatherhood](https://open.spotify.com/embed/episode/1NTNCe83v8fBXxLe5RKhSY?si=17cb78b9cc6e4a41&utm_source=oembed)
 
@@ -50,7 +50,7 @@
 
 <https://estreetshuffle.com/wp-content/uploads/2025/03/8a34-53b8-4d4c-a599-a8b2b4e38fc0.mp3>
 
-**2023:** “Darkness on the Edge of Town” makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.
+**2023:** “Darkness on the Edge of Town” makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band Concert - Live in Detroit - March 29, 2023](https://www.youtube.com/watch?v=ozJ7CrhBLKI)
 

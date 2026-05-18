@@ -1,10 +1,10 @@
-**1973:** Bruce and the E Street Band headline the first two shows of a three-night/six-show stand at My Father's Place in Roslyn, New York. WLIR-FM broadcasts the late show live.
+**1973:** Bruce and the E Street Band headline the first two shows of a three-night/six-show stand at My Father's Place in Roslyn, New York. WLIR-FM broadcasts the late show live.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0FxHJBVKI2g)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hyHvurRWvX0)
 
-**1978:** The Darkness Tour continues its southern swing, arriving in Columbia, South Carolina, for a show at the Township Auditorium.
+**1978:** The Darkness Tour continues its southern swing, arriving in Columbia, South Carolina, for a show at the Township Auditorium.<br>
 
 ![](../../assets/2018/07/1978-0731.jpg)
 
@@ -12,11 +12,11 @@
 
 ![](../../assets/2024/07/The_Columbia_Record_1978_08_01_30-scaled.jpg)
 
-**1982:** Bruce makes a guest appearance with Sonny Kenn and the Wild Ideas at Big Man's West in Red Bank.
+**1982:** Bruce makes a guest appearance with Sonny Kenn and the Wild Ideas at Big Man's West in Red Bank.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/lzcXNflW)
 
-**1984:** "Cover Me" is released as the second single off of the red-hot *Born in the U.S.A.* album. It will peak at #7 on the charts.
+**1984:** "Cover Me" is released as the second single off of the red-hot *Born in the U.S.A.* album. It will peak at #7 on the charts.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
@@ -26,7 +26,7 @@ That evening, Bruce tour premieres "Growin' Up" at Night Two in Detroit on the B
 
 ![](../../assets/2020/07/1984-07-31.png)
 
-**1987:** Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for "You Can't Sit Down," "La Bamba," and "Twist and Shout."
+**1987:** Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for "You Can't Sit Down," "La Bamba," and "Twist and Shout."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/91vNP1rr)
 
@@ -34,17 +34,17 @@ That evening, Bruce tour premieres "Growin' Up" at Night Two in Detroit on the B
 
 ![](../../assets/2020/07/1987-07-31b.png)
 
-**1992:** The opening stand of World Tour 1992 reaches its midpoint in East Rutherford on Night Six of eleven. Many tour premieres tonight, including "Atlantic City," "Spirit in the Night," "I'm on Fire", and the live debuts of "Pony Boy" and "Cross My Heart."
+**1992:** The opening stand of World Tour 1992 reaches its midpoint in East Rutherford on Night Six of eleven. Many tour premieres tonight, including "Atlantic City," "Spirit in the Night," "I'm on Fire", and the live debuts of "Pony Boy" and "Cross My Heart."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xeSRlWZq2lk)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zESafYXuPiM)
 
-**2001:** Bruce makes a surprise guest appearance at the Count Basie Theater in Red Bank, joining Bruce Hornsby for the final encore of "Cadillac Ranch."
+**2001:** Bruce makes a surprise guest appearance at the Count Basie Theater in Red Bank, joining Bruce Hornsby for the final encore of "Cadillac Ranch."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/EQ77Afpd)
 
-**2005:** Bruce plays a stunning acoustic show in Columbus, playing "Lift Me Up" for the first time ever, and tour premiering "Cynthia" and "Back in Your Arms." This show is available as part of Bruce's official archive series, and it's a wonderful listen.
+**2005:** Bruce plays a stunning acoustic show in Columbus, playing "Lift Me Up" for the first time ever, and tour premiering "Cynthia" and "Back in Your Arms." This show is available as part of Bruce's official archive series, and it's a wonderful listen.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OjCUV60okiU)
 
@@ -58,11 +58,11 @@ That evening, Bruce tour premieres "Growin' Up" at Night Two in Detroit on the B
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vdZ12-Y7_pU)
 
-**2008:** At the final of three Giants Stadium shows on the Magic Tour, Bruce tour premieres "Pretty Flamingo" and "Jersey Girl" and holds a mini-Seeger Sessions reunion when Jeremy Chatzky, Sam Bardfeld, and Curtis King join the band for "American Land."
+**2008:** At the final of three Giants Stadium shows on the Magic Tour, Bruce tour premieres "Pretty Flamingo" and "Jersey Girl" and holds a mini-Seeger Sessions reunion when Jeremy Chatzky, Sam Bardfeld, and Curtis King join the band for "American Land."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=y1Pht9wCmdc)
 
-**2012:** Bruce wraps up the first European leg of the Wrecking Ball Tour with a marathon of a show in Helsinki–his longest ever, over four hours–and that's not even including a five-song pre-show! Five songs have their tour premieres, including "Back in Your Arms", "Detroit Medley," and covers of "I Don't Want to Go Home," "Rockin' All Over the World," and "(Your Love Keeps Lifting Me) Higher and Higher." Plus: rare outings for "Loose Ends," "Be True," "Light of Day," and more–an absolutely amazing show. No surprise that it's part of Bruce's official archive series.
+**2012:** Bruce wraps up the first European leg of the Wrecking Ball Tour with a marathon of a show in Helsinki–his longest ever, over four hours–and that's not even including a five-song pre-show! Five songs have their tour premieres, including "Back in Your Arms", "Detroit Medley," and covers of "I Don't Want to Go Home," "Rockin' All Over the World," and "(Your Love Keeps Lifting Me) Higher and Higher." Plus: rare outings for "Loose Ends," "Be True," "Light of Day," and more–an absolutely amazing show. No surprise that it's part of Bruce's official archive series.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=b6wPi_h9O7k)
 
@@ -80,11 +80,11 @@ That evening, Bruce tour premieres "Growin' Up" at Night Two in Detroit on the B
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kOAjh5yFM4w)
 
-**2015:** Bruce makes a surprise guest appearance with U2 at the band's gig at Madison Square Garden, joining them for "I Still Haven't Found What I'm Looking For" and "Stand By Me."
+**2015:** Bruce makes a surprise guest appearance with U2 at the band's gig at Madison Square Garden, joining them for "I Still Haven't Found What I'm Looking For" and "Stand By Me."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IR2y_Hjzmy8)
 
-**2016:** Bruce wraps the European River Tour with a final show in Zurich, where he tour debuts "None But the Brave" and "Roll of the Dice" and plays a rare "Jole Blon."
+**2016:** Bruce wraps the European River Tour with a final show in Zurich, where he tour debuts "None But the Brave" and "Roll of the Dice" and plays a rare "Jole Blon."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aiQDVrUxSYk)
 
@@ -92,7 +92,7 @@ That evening, Bruce tour premieres "Growin' Up" at Night Two in Detroit on the B
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=n0UGOzugjjI)
 
-**2022:** Bruce strolls the Asbury Park boardwalk and stops by the Wonder Bar in Asbury Park to acknowledge the storied venue's 20th anniversary. Before he leaves, he graciously poses for a photo with this blogger and Jersey Shore rock and roll tour guide Stan Goldstein.
+**2022:** Bruce strolls the Asbury Park boardwalk and stops by the Wonder Bar in Asbury Park to acknowledge the storied venue's 20th anniversary. Before he leaves, he graciously poses for a photo with this blogger and Jersey Shore rock and roll tour guide Stan Goldstein.<br>
 
 ![](../../assets/2023/07/IMG_5216.jpg)
 

@@ -6,7 +6,7 @@ The result was an absolutely gorgeous and romantic piece of music, officially re
 
 [Watch on Youtube: Once Upon A Time In The West](https://www.youtube.com/watch?v=CBTy5EF7upk)
 
-**Once Upon a Time in the West
-Recorded:** July-August 2006
-**Released:** *We All Love Ennio Morricone* (2007)
-**Never performed**
+**Once Upon a Time in the West**<br>
+**Recorded:** July-August 2006<br>
+**Released:** *We All Love Ennio Morricone* (2007)<br>
+**Never performed**<br>

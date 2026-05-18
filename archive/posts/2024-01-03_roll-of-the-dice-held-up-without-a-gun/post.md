@@ -43,7 +43,7 @@ It would be more than 27 years before Bruce performed it again in concert, but w
 
 "Held Up Without a Gun" made one more appearance, on the Wrecking Ball Tour in 2012. With only five performances ever, it remains on many fans' chase lists and is likely to stay there. If you're lucky enough to catch it, pay attention–because if you blink, you might miss it.
 
-**Bonus:** Like much of Bruce's River-era material "Held Up Without a Gun" started out as an acoustic home demo. In this recording (slower than but just as brief as the final electric version), we can hear Bruce working on his lyrics. Although there are some notable detail differences, the verses are remarkably close to their final form.
+**Bonus:** Like much of Bruce's River-era material "Held Up Without a Gun" started out as an acoustic home demo. In this recording (slower than but just as brief as the final electric version), we can hear Bruce working on his lyrics. Although there are some notable detail differences, the verses are remarkably close to their final form.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/114-Held-Up-Without-A-Gun.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/10/114-Held-Up-Without-A-Gun.mp3?_=2)
 
@@ -51,7 +51,7 @@ It would be more than 27 years before Bruce performed it again in concert, but w
 
 **Held Up Without a Gun**<br>
 **Recorded** February 23 – April 1, 1980<br>
-**Released:** *The River: Outtakes* (2015)
+**Released:** *The River: Outtakes* (2015)<br>
 **First performed:** December 31, 1980 (Uniondale, NY)<br>
 **Last performed:** October 25, 2012 (Hartford, CT)<br>
 

@@ -8,9 +8,9 @@ Bruce recorded his vocals from his home studio and e-mailed them to Joe. The res
 
 Keep resisting. No kings.
 
-**That’s What Makes Us Great
-Recorded:** February 2017
-**Released:** *More Yesterdays Than Tomorrows* (2018)
-**Never performed**
+**That’s What Makes Us Great**<br>
+**Recorded:** February 2017<br>
+**Released:** *More Yesterdays Than Tomorrows* (2018)<br>
+**Never performed**<br>
 
 © June 15, 2018 / February 22, 2026

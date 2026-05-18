@@ -113,8 +113,8 @@ So I'll leave you to listen to it. Turn up the volume and enjoy. I will as well�
 [Watch on Youtube: All The Way Home Rome 10/10/2006](https://www.youtube.com/watch?v=PiDrdW64Vs8)
 
 **All the Way Home**<br>
-**Recorded:** July 1991 (Southside Johnny version), 2004 (Bruce version)
-**Released:** *Better Days* (1991), *Devils & Dust* (2005)
+**Recorded:** July 1991 (Southside Johnny version), 2004 (Bruce version)<br>
+**Released:** *Better Days* (1991), *Devils & Dust* (2005)<br>
 **First performed:** July 30, 1992 (East Rutherford, NJ)<br>
 **Last performed:** October 25, 2006 (Santander, Spain)<br>
 

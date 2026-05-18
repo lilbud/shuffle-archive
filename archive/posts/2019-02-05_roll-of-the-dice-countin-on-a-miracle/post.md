@@ -84,15 +84,15 @@ The country blues version of "Countin' on a Miracle" remains the definitive vers
 
 ---
 
-**Bonus #1:** As the Rising Tour progressed, so did the arrangement of "Countin' on a Miracle." While the main song never evolved beyond its album arrangement, starting with the Rotterdam show in October 2002, Nils Lofgren contributed an exquisite acoustic guitar introduction that did more than provide the band a momentary breather in between songs–it helped established the delicateness and fragility of life and love. It immediately became a nightly highlight. Here's the first time Nils contributed his magic to "Countin' on a Miracle:"
+**Bonus #1:** As the Rising Tour progressed, so did the arrangement of "Countin' on a Miracle." While the main song never evolved beyond its album arrangement, starting with the Rotterdam show in October 2002, Nils Lofgren contributed an exquisite acoustic guitar introduction that did more than provide the band a momentary breather in between songs–it helped established the delicateness and fragility of life and love. It immediately became a nightly highlight. Here's the first time Nils contributed his magic to "Countin' on a Miracle:"<br>
 
 [Watch on Youtube: Bruce Springsteen - "Countin' on a Miracle" - Rotterdam, 2002-10-22](https://www.youtube.com/watch?v=Hj71uBv9V8k)
 
-**Bonus #2:** In mid-June 2005, lucky European fans at Bruce's solo acoustic shows in Frankfurt and Rotterdam (Rotterdam again! How did the Dutch get so lucky?) were treated to Bruce's only two performances of "Countin' on a Miracle" post-Rising Tour. And it was a lovely arrangement, starting on electric piano and segueing to full piano just at the moment where our heroine summons her strength to carry on. It's a wonderful effect, and while the performance is little bit rough around the edges (Bruce was adding new songs to the setlist nightly, flying without a net), it's absolutely worth hearing.
+**Bonus #2:** In mid-June 2005, lucky European fans at Bruce's solo acoustic shows in Frankfurt and Rotterdam (Rotterdam again! How did the Dutch get so lucky?) were treated to Bruce's only two performances of "Countin' on a Miracle" post-Rising Tour. And it was a lovely arrangement, starting on electric piano and segueing to full piano just at the moment where our heroine summons her strength to carry on. It's a wonderful effect, and while the performance is little bit rough around the edges (Bruce was adding new songs to the setlist nightly, flying without a net), it's absolutely worth hearing.<br>
 
 [Watch on Youtube: Bruce Springsteen- Countin on a miracle- Piano live 2005](https://www.youtube.com/watch?v=fIbgKRyipaU)
 
-**Countin' on a Miracle****Recorded:** February-March 2002 (both versions)
+**Countin' on a Miracle****Recorded:** February-March 2002 (both versions)<br>
 **Released:** *The Rising* (2002, rock version), *The Essential Bruce Springsteen* (2003, country blues version)<br>
 **First performed:** July 26, 2002 (Asbury Park, NJ)<br>
 **Last performed:** June 19, 2005 (Rotterdam, The Netherlands)<br>

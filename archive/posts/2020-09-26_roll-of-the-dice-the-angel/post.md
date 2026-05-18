@@ -90,9 +90,9 @@ That night–[November 22, 2009](https://estreetshuffle.com/index.php/2018/11/22
 
 Bruce would continue to reach far back into his catalog (and even earlier) in the years to come, but that perfect performance of "The Angel" felt like a farewell and a fond send-off from a once-desperate, hungry songwriter to a song that had long since served its purpose.
 
-**The Angel
-**Recorded:** June 27 – October 26, 1972
-**Released:** *Greetings from Asbury Park, N.J.* (1973)
+**The Angel**<br>
+**Recorded:** June 27 – October 26, 1972<br>
+**Released:** *Greetings from Asbury Park, N.J.* (1973)<br>
 **First performed:** February 14, 1972 (New York City, NY)<br>
 **Last performed:** November 22, 2009 (Buffalo, NY)<br>
 

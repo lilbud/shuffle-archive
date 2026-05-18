@@ -37,12 +37,10 @@ Many Sessions Band songs and arrangements have translated successfully to the E 
 
 But we'll always have 2006. And when we need a little hope and solace, we could do worse than turn to "The Saints."
 
-**Bonus:** Here's a clip of Bruce strumming a little bit of "When The Saints Go Marching In" on Italian television, just because.
+**Bonus:** Here's a clip of Bruce strumming a little bit of "When The Saints Go Marching In" on Italian television, just because.<br>
 
 [Watch Video](https://videopress.com/embed/iCn8QoAN?hd=1&loop=0&autoPlay=0&permalink=1)
 
-**When the Saints Go Marching In
-First performed:** April 20, 2006 (Asbury Park, NJ)
+**When the Saints Go Marching In**<br>
+**First performed:** April 20, 2006 (Asbury Park, NJ)<br>
 **Last performed:** May 3, 2014 (New Orleans, LA)<br>
-
- 

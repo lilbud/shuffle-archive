@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *I wrote the article that follows for Backstreets.com ; it was published on September 29, 2019, the day after the events chronicled. I'm reprinting it here as part of my [Where the Band Was series](https://estreetshuffle.com/index.php/category/where-the-band-was/), in which I recap shows I've attended on their anniversary dates.*
+***Editor's Note:*** *I wrote the article that follows for Backstreets.com ; it was published on September 29, 2019, the day after the events chronicled. I'm reprinting it here as part of my [Where the Band Was series](https://estreetshuffle.com/index.php/category/where-the-band-was/), in which I recap shows I've attended on their anniversary dates.*<br>
 
 I've seen the past of Rock and Roll Future, but for at least a few minutes on Saturday night, it couldn't compete with Rock and Roll Present.
 

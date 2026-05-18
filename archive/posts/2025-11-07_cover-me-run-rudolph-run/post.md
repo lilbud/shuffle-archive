@@ -30,7 +30,7 @@ He reprised it four years later at his holidays shows at Harry’s Roadhouse, th
 
 It’s been ten years since “Run Rudolph Run” last made Bruce’s setlist, but don’t count it out just yet–the next time Bruce plays a holiday show, there’s a good chance Rudolph will be on the invite list.
 
-**Run Rudolph Run****First performed:** December 20, 1994 (Sea Bright, NJ)
-**Last performed:** December 22, 2008 (Red Bank, NJ)
+**Run Rudolph Run****First performed:** December 20, 1994 (Sea Bright, NJ)<br>
+**Last performed:** December 22, 2008 (Red Bank, NJ)<br>
 
 (c) December 25, 2018 by Ken Rosen

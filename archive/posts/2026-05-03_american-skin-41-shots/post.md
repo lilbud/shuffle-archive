@@ -186,8 +186,8 @@ It's one of the few songs in Bruce's catalog that moves me to tears every time I
 
 I hope we live to see the day when it can be retired.
 
-**American Skin (41 Shots)****Recorded:** 2013
-**Released:** *High Hopes* (2014)
+**American Skin (41 Shots)****Recorded:** 2013<br>
+**Released:** *High Hopes* (2014)<br>
 **First performed:** June 4, 2000 (Atlanta, GA)<br>
 **Last performed:** April 26, 2026 (Austin, TX)<br>
 

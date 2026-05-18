@@ -6,7 +6,7 @@ So it’s remarkable when we hear of a circumstance in which Bruce actually *ref
 
 While the story is always told from Midler’s perspective (Bruce has never made a public comment about it), Bruce allegedly protested that the song was inappropriate for a female singer.
 
-**(Updated August 17, 2019:** In his book *The Stories Behind the Songs*, Brian Hiatt finally provides insight into why Bruce declined to let Midler release her version. Apparently when Bruce heard it, he remarked, “I mean, it’s just in your face.” I’ll just leave that there without comment.)
+**(Updated August 17, 2019:** In his book *The Stories Behind the Songs*, Brian Hiatt finally provides insight into why Bruce declined to let Midler release her version. Apparently when Bruce heard it, he remarked, “I mean, it’s just in your face.” I’ll just leave that there without comment.)<br>
 
 Now, it’s true that “Pink Cadillac” is a song-length sexual metaphor, but certainly men don’t have a monopoly on fascination with it. Chalk it up to a less enlightened time and a less enlightened Bruce, I guess.
 
@@ -15,5 +15,3 @@ To this day Bette’s studio cover has never been released (she replaced the alb
 Enjoy the Springsteen cover that never was:
 
 [Watch on Youtube: Pink Cadillac Cadillac Walk - Art Or Bust -1982 - Bette Midler](https://www.youtube.com/watch?v=9typ8Q5YLFc)
-
- 

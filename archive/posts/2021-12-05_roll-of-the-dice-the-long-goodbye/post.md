@@ -72,8 +72,8 @@ Bruce dropped it a few months into the tour and never attempted it with the E St
 [Watch on Youtube: The Long Goodbye Bruce Springsteen June 26,1992 Frankfurt, GER](https://www.youtube.com/watch?v=AuLvzIM27aE)
 
 **The Long Goodbye**<br>
-**Recorded:** April-May, 1990
-**Released:** *Human Touch* (1992)
+**Recorded:** April-May, 1990<br>
+**Released:** *Human Touch* (1992)<br>
 **First performed:** June 26, 1992 (Frankfurt, Germany)<br>
 **Last performed:** October 22, 1992 (Mountain View, CA)<br>
 

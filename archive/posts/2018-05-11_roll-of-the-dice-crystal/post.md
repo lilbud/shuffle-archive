@@ -31,6 +31,6 @@ I would have liked to have seen what this would have developed into.
 
 **Crystal**<br>
 **Never recorded**<br>
-**Performed:** Possibly May 1968 (Red Bank, NJ)
+**Performed:** Possibly May 1968 (Red Bank, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

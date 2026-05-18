@@ -63,9 +63,9 @@ But it's also a fun and fascinating peek into how beloved songs sometimes start 
 
 ![](../../assets/2026/05/lyricsheet_nothingcanstopme_2.jpg)
 
-**Come On Billy, Break Out the Wine
+**Come On Billy, Break Out the Wine**<br>
 **Never recorded**<br>
-**Never released**
+**Never released**<br>
 **First performed:** July 10, 1971 (Lincroft, NJ)<br>
 **Last performed:** July 29, 1971 (South Amboy, NJ)<br>
 

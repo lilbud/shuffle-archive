@@ -16,8 +16,6 @@ They certainly succeeded with this listener. What I admire most is the way Free 
 
 Free Redemption’s version of “I’m Goin’ Down” is easily my favorite of the many, many covers of this particular song out there. Well done, Nico, and thanks for sharing your music with us! I’m looking forward to hearing your next re-invention.
 
-**[Check out more from Free Redemption](https://www.facebook.com/FreeRedemption/)**
+**[Check out more from Free Redemption](https://www.facebook.com/FreeRedemption/)**<br>
 
-**Nico Mirandola,** lead vocal, harmonica, guitar**Ivan Sacchi,** guitar, backing vocals**Michele Leoni,** bass, backing vocals**Gianluca Garavaso,** drums, backing vocals
-
- 
+**Nico Mirandola,** lead vocal, harmonica, guitar**Ivan Sacchi,** guitar, backing vocals**Michele Leoni,** bass, backing vocals**Gianluca Garavaso,** drums, backing vocals<br>

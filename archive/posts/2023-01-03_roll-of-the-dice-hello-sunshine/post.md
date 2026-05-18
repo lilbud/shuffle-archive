@@ -87,7 +87,7 @@ It's a beautiful note to end the song on–and combined with the sublime "[Moonl
 
 On this first day of a new year, may you feel that same hope and possibility–and sunshine–as well.
 
-**Bonus:** Like much of *Western Stars*, "Hello Sunshine" is so carefully and masterfully crafted that I'm skeptical that it can be surpassed (or even equaled) when performed live. Bruce's only performance to date (from the filmed *Western Stars* concert) certainly doesn't measure up to the studio version, but it's a lovely attempt. I include it here for comparison.
+**Bonus:** Like much of *Western Stars*, "Hello Sunshine" is so carefully and masterfully crafted that I'm skeptical that it can be surpassed (or even equaled) when performed live. Bruce's only performance to date (from the filmed *Western Stars* concert) certainly doesn't measure up to the studio version, but it's a lovely attempt. I include it here for comparison.<br>
 
 [Watch on Youtube: Hello Sunshine - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=ItacaaT6Nsk)
 

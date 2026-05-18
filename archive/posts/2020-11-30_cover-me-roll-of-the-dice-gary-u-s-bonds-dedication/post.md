@@ -72,9 +72,9 @@ They're not Bruce's deepest lyrics, but they would have been right at home on *T
 [Watch Video Highlight](https://videopress.com/embed/SsZa33Wh)
 
 **Dedication**<br>
-**Recorded** June-August 1980 (vocals–possibly using a December 1979 instrumental track)
+**Recorded** June-August 1980 (vocals–possibly using a December 1979 instrumental track)<br>
 **Released:** Dedication (1981)<br>
-**First performed** (by Bruce): July 2, 1989 (Long Branch, NJ)
-**Last performed** (by Bruce): July 2, 1989 (Long Branch, NJ)
+**First performed** (by Bruce): July 2, 1989 (Long Branch, NJ)<br>
+**Last performed** (by Bruce): July 2, 1989 (Long Branch, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

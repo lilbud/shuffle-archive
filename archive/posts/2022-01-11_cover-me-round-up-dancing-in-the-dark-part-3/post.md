@@ -40,6 +40,6 @@ It's about time to wrap up this episode, and since we're already in a late night
 
 That's it for this installment, but as always: there will be more. I discover new covers of "Dancing in the Dark" daily, so look for more great versions soon!
 
-**Bonus:** Dig that groovy Benny Sings performance earlier? Here's a minute or so of video from his studio session to play us out.
+**Bonus:** Dig that groovy Benny Sings performance earlier? Here's a minute or so of video from his studio session to play us out.<br>
 
 [Watch on Youtube: Benny Sings - Dancing In The Dark (Studio Recording)](https://www.youtube.com/watch?v=QU8p4KFo-8A)

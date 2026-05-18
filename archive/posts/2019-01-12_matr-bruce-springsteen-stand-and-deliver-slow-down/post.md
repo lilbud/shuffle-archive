@@ -10,6 +10,6 @@ Bruce has never covered “Slow Down” in concert, but he did perform it once, 
 
 [Watch on Youtube: Stand & Deliver and Bruce Springsteen - "Slow Down" - Westwood, NJ - 1994-08-26](https://www.youtube.com/watch?v=J1NXrCA2DOc)
 
-**Slow Down**
-**First performed:** August 26, 1994 (Westwood, NJ)
-**Last performed:** August 26, 1994 (Westwood, NJ)
+**Slow Down**<br>
+**First performed:** August 26, 1994 (Westwood, NJ)<br>
+**Last performed:** August 26, 1994 (Westwood, NJ)<br>

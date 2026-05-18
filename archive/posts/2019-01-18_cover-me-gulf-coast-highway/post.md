@@ -26,4 +26,4 @@ Bruce was apparently taken with the song, because not long after the song's rele
 Too bad Bruce bluffs some of the vocals; this is one cover I'd love to have a true recording of.
 
 **Gulf Coast Highway**<br>
-**Never performed live** (but soundchecked in 1988)
+**Never performed live** (but soundchecked in 1988)<br>

@@ -1,4 +1,4 @@
-**Updated 10/23/20:** If you'd told me when I first published this essay that we'd seen an officially released, brand new recording of "Janey Needs a Shooter" within ninety days, I'd have thought you were nuts. And yet, here we are: Bruce's new album, [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/), is available and includes–at long, long last–a fully realized version of "Janey Needs a Shooter," and it is glorious.
+**Updated 10/23/20:** If you'd told me when I first published this essay that we'd seen an officially released, brand new recording of "Janey Needs a Shooter" within ninety days, I'd have thought you were nuts. And yet, here we are: Bruce's new album, [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/), is available and includes–at long, long last–a fully realized version of "Janey Needs a Shooter," and it is glorious.<br>
 
 [Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter (Official Audio)](https://www.youtube.com/watch?v=A_BRCRkAkAE)
 
@@ -146,15 +146,15 @@ And now, finally, we've reached the end of the story–for now at least. Because
 
 Janey has waited in the wings for far too long to be denied some time in the sun.
 
-**Bonus:** During his home demo recording sessions for *The River* (probably not long before the band rehearsal above), Bruce worked for a bit on "Janey Needs a Shooter." Here are those outtakes below.
+**Bonus:** During his home demo recording sessions for *The River* (probably not long before the band rehearsal above), Bruce worked for a bit on "Janey Needs a Shooter." Here are those outtakes below.<br>
 
 [Watch on Youtube: Bruce Springsteen Jeannie Needs A Shooter #1 harmonies](https://www.youtube.com/watch?v=7-g11Lv3hno)
 
 [Watch on Youtube: Bruce Springsteen Jeannie Needs A Shooter #2](https://www.youtube.com/watch?v=eWb7tjESLzY)
 
 **Janey Needs a Shooter**<br>
-**Recorded** January 29, 1973 (solo), November 2019 (band)
-**Released:** *Letter to You* (2020)
+**Recorded** January 29, 1973 (solo), November 2019 (band)<br>
+**Released:** *Letter to You* (2020)<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

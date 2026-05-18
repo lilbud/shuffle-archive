@@ -43,9 +43,9 @@ It's years later, and the son hints that his father may not be around any moreâ€
 
 Each episode of the Daddy Trilogy builds in power and culminates in a killer couplet. Traced across time, they form an arc that we all play out with our parents and our children.
 
-**Adam Raised a Cain:** *Daddy worked his whole life for nothing but the pain; Now he walks these empty rooms looking for something to blame.*
+**Adam Raised a Cain:** *Daddy worked his whole life for nothing but the pain; Now he walks these empty rooms looking for something to blame.*<br>
 
-**Independence Day:** *Papa, now I know the things you wanted that you could not say; I swear I never meant to take those things away.*
+**Independence Day:** *Papa, now I know the things you wanted that you could not say; I swear I never meant to take those things away.*<br>
 
 and finally, **Walk Like a Man:** *I was young and I didn't know what to do when I saw your best steps stolen away from you.*
 
@@ -72,7 +72,7 @@ In a brilliant stroke, Bruce switches mid-song from the electric to acoustic pia
 [Watch on Youtube: Walk Like A Man (solo piano) Bruce Springsteen 8/1/2005 Cincinnati, OH](https://www.youtube.com/watch?v=LwNPvRvFhKg)
 
 **Walk Like a Man**<br>
-**Recorded:** January 20, 1987
+**Recorded:** January 20, 1987<br>
 **Released:** [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) (1987)<br>
 **First performed:** February 25, 1987 (Worcester, MA)<br>
 **Last performed:** August 1, 2005 (Cincinnati, OH)<br>

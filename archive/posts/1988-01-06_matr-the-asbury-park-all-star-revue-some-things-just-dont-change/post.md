@@ -18,8 +18,8 @@ It only took forty years for Steve to record his own version, finally and glorio
 
 …which makes “Some Things Just Don’t Change” a curiosity: a cover performed 40 years before the original artist released it.
 
-**Some Things Just Don’t Change
-First performed:** May 13, 1977 (Red Bank, NJ)
-**Last performed:** May 13, 1977 (Red Bank, NJ)
+**Some Things Just Don’t Change**<br>
+**First performed:** May 13, 1977 (Red Bank, NJ)<br>
+**Last performed:** May 13, 1977 (Red Bank, NJ)<br>
 
 © June 18, 2019

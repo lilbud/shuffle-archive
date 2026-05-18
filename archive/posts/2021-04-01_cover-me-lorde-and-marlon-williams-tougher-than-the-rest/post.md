@@ -10,7 +10,7 @@ But *everyone* covers "I'm on Fire." It's wonderful to see and hear these two gr
 
 ---
 
-**Special Announcement:** We don't do a lot of breaking news on this blog (I'm more of a historian than a newscaster), but since this is a breaking news post today anyway, I've got some exciting news to share:
+**Special Announcement:** We don't do a lot of breaking news on this blog (I'm more of a historian than a newscaster), but since this is a breaking news post today anyway, I've got some exciting news to share:<br>
 
 The second annual [*Cover Me* contest](https://www.noiespringsteen.com/contest/) is now accepting entries, and I'm honored to have been asked to serve on the Critics Award Jury for the event. (My first ever jury duty!)
 

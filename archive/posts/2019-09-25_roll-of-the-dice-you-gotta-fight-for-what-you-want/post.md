@@ -42,7 +42,7 @@ The earlier song comes off like mansplaining (even if that wasn't a term or a no
 Still, "You Gotta Fight (For What You Want)" provides insight into the influences and themes that would before long inform *The River.*
 
 **You Gotta Fight (For What You Want)**<br>
-**Recorded** Late 1979 (demo)
+**Recorded** Late 1979 (demo)<br>
 **Never released**<br>
 **Never performed**<br>
 

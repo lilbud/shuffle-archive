@@ -13,7 +13,7 @@ Although "Eye Catcher" is a studio track, Bruce's contribution was captured live
 "Up to You" probably won't make any Springsteen fan's best-of list, but it's fascinating to hear how Bruce's Americana harmonica melodies (you can *almost* hear hints of "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" and "This Hard Land" if you listen) blend with Indian melodies and instrumentation.
 
 **Up to You**<br>
-**Recorded** Unknown (live excerpt from 9/30/88)
-**Released:** *Eye Catcher* (1989)
+**Recorded** Unknown (live excerpt from 9/30/88)<br>
+**Released:** *Eye Catcher* (1989)<br>
 **First performed:** September 30, 1988 (New Delhi, India)<br>
 **Last performed:** September 30, 1988 (New Delhi, India)<br>

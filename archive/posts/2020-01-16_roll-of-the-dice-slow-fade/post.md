@@ -1,4 +1,4 @@
-**Update 5/15/20:** Friend of the blog Mike Nichols has unbelievably sharp hearing. He cracked the case: "Slow Fade" appears to be an early version of "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)," because those are the lyrics we hear at a distance. We already know that Bruce experimented with alternative melodies for "Point Blank;" this appears to be one of them. (Or at the very least, it's Bruce working on an instrumental track using "Point Blank" lyrics as a place holder.) Great detective work, Mike!
+**Update 5/15/20:** Friend of the blog Mike Nichols has unbelievably sharp hearing. He cracked the case: "Slow Fade" appears to be an early version of "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)," because those are the lyrics we hear at a distance. We already know that Bruce experimented with alternative melodies for "Point Blank;" this appears to be one of them. (Or at the very least, it's Bruce working on an instrumental track using "Point Blank" lyrics as a place holder.) Great detective work, Mike!<br>
 
 ---
 

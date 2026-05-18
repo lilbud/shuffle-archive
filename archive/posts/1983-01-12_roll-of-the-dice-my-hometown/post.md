@@ -179,12 +179,12 @@ As Bruce self-mockingly pointed out each night during his Broadway run, he thoug
 
 Today Bruce lives ten minutes from his hometown, which tells us all we need to know to guess where his characters ended up, too.
 
-**Bonus:** Here's Bruce's very first live performance of "My Hometown," a rarely heard warm-up for the Born in the U.S.A. Tour at The Stone Pony three weeks before the tour kicked off in St. Paul.
+**Bonus:** Here's Bruce's very first live performance of "My Hometown," a rarely heard warm-up for the Born in the U.S.A. Tour at The Stone Pony three weeks before the tour kicked off in St. Paul.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Hl3yZQHU)
 
-**My Hometown**
-**Recorded:** June 29, 1983
+**My Hometown**<br>
+**Recorded:** June 29, 1983<br>
 **Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *L.A. Garage Sessions '83* (2025)<br>
 **First performed:** June 8, 1984 (Asbury Park, NJ)<br>
 **Last performed:** July 11, 2023 (Copenhagen, Denmark)<br>

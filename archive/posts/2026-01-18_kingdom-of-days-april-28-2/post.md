@@ -1,28 +1,28 @@
-**1973:** Bruce opens for Jerry Lee Lewis and Chuck Berry at the University of Maryland. After his set, Bruce and the E Street Band (plus Southside Johnny) serve as the backing band at no charge for Lewis and Berry, remaining on stage the entire night. The band has no rehearsal time with Berry, who keeps the band on their toes the entire night. Watch Bruce tell the story below. (Thanks to Dave Homorody for the photo!)
+**1973:** Bruce opens for Jerry Lee Lewis and Chuck Berry at the University of Maryland. After his set, Bruce and the E Street Band (plus Southside Johnny) serve as the backing band at no charge for Lewis and Berry, remaining on stage the entire night. The band has no rehearsal time with Berry, who keeps the band on their toes the entire night. Watch Bruce tell the story below. (Thanks to Dave Homorody for the photo!)<br>
 
 [Watch on Youtube: Springsteen - Chuck Berry Memory](https://www.youtube.com/watch?v=ZdWu4peTI3Y)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/Bruce-with-Chuck-signed-3-rotated.jpg)
 
-**1974:** Bruce and the E Street Band play an intimate (less than 300 attendees) outdoor show at Swarthmore College.
+**1974:** Bruce and the E Street Band play an intimate (less than 300 attendees) outdoor show at Swarthmore College.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/1974-0428.jpg)
 
-**1976:** Bruce plays the Grand Ole Opry House in Nashville.
+**1976:** Bruce plays the Grand Ole Opry House in Nashville.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/1976-04-28b.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1976-0428.jpg)
 
-**1981:** Flo and Eddie guest-star on “Hungry Heart” when the River Tour arrives in Rotterdam.
+**1981:** Flo and Eddie guest-star on “Hungry Heart” when the River Tour arrives in Rotterdam.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/JJqRnR4k)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1981-0428.jpg)
 
-**1982:** At the Power Station in New York City, Bruce works on several songs for what would eventually become *Born in the U.S.A.*
+**1982:** At the Power Station in New York City, Bruce works on several songs for what would eventually become *Born in the U.S.A.*<br>
 
-**1988:** Bruce wraps up a five-night stand at the L.A. Sports Arena. This show is available as part of Bruce’s official archive series.
+**1988:** Bruce wraps up a five-night stand at the L.A. Sports Arena. This show is available as part of Bruce’s official archive series.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/04/bs880428.jpg)
 
@@ -30,11 +30,11 @@
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band "Have Love, Will Travel", Los Angeles, CA 4/28/1988](https://www.youtube.com/watch?v=b1CAW6-FXdQ)
 
-**1997:** *Greatest Hits* is certified 3x multi-platinum by the Recording Industry Association of America.
+**1997:** *Greatest Hits* is certified 3x multi-platinum by the Recording Industry Association of America.<br>
 
 [Watch on Youtube: Born to Run](https://www.youtube.com/watch?v=1glxaEB5G7I)
 
-**1999:** At the Reunion show in Lyon, France, Jon Bon Jovi guest-stars on “Hungry Heart.”
+**1999:** At the Reunion show in Lyon, France, Jon Bon Jovi guest-stars on “Hungry Heart.”<br>
 
 [Watch on Youtube: Bruce Springsteen / Bon Jovi Hungry Heart Live In Lyon 28/04/1999](https://www.youtube.com/watch?v=xHFBjrH_Z0Q)
 
@@ -42,9 +42,9 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/Omaha_World_Herald_Fri__May_7__1999_-scaled.jpg)
 
-**2003:** Bruce rehearses at the Count Basie Theater for Bobby Bandiera’s Hope Concert benefit the following day.
+**2003:** Bruce rehearses at the Count Basie Theater for Bobby Bandiera’s Hope Concert benefit the following day.<br>
 
-**2005:** On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays “Two Faces” for the first time in 17 years, and Jimmy LaFave guest-stars on “Oklahoma Hills.” Also new to the set list tonight: “Galveston Bay” and “My Hometown.”
+**2005:** On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays “Two Faces” for the first time in 17 years, and Jimmy LaFave guest-stars on “Oklahoma Hills.” Also new to the set list tonight: “Galveston Bay” and “My Hometown.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ZDEYaKNZ)
 
@@ -56,7 +56,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2005-04-28c.jpg)
 
-**2008:** Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres of “Roulette” and “Don’t Look Back,” before segueing to “Radio Nowhere,” “Out in the Street,” and “The Promised Land.” Opening packs don’t get much better than that. Also tour premiering tonight: “Mary’s Place.” This show is available as part of Bruce’s official archive series.
+**2008:** Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres of “Roulette” and “Don’t Look Back,” before segueing to “Radio Nowhere,” “Out in the Street,” and “The Promised Land.” Opening packs don’t get much better than that. Also tour premiering tonight: “Mary’s Place.” This show is available as part of Bruce’s official archive series.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/04/2008-04-28-greensboro-nc.jpg)
 
@@ -72,7 +72,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2008-04-28b-scaled.jpg)
 
-**2009:** Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of “The Fever,” “Mountain of Love,” “Fire” and “You Can’t Sit Down.”
+**2009:** Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of “The Fever,” “Mountain of Love,” “Fire” and “You Can’t Sit Down.”<br>
 
 [Watch on Youtube: Bruce Springsteen - Fire - Live from Philadelphia - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=0kTnyP33fbM)
 
@@ -82,9 +82,9 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/04/2009-04-28b-rotated.jpg)
 
-**2013:** Bruce and the E Street Band rehearse for the next leg of the Wrecking Ball Tour at Nordisk Film Studios in Oslo.
+**2013:** Bruce and the E Street Band rehearse for the next leg of the Wrecking Ball Tour at Nordisk Film Studios in Oslo.<br>
 
-**2017:** Tom Hanks interviews Bruce at the Tribeca Film Festival.
+**2017:** Tom Hanks interviews Bruce at the Tribeca Film Festival.<br>
 
 [Watch on Youtube: Bruce Springsteen with Tom Hanks 2017 Tribeca Film Festival Storeytellers](https://www.youtube.com/watch?v=ZZDea7CzzFY)
 
@@ -92,13 +92,13 @@
 
 [Watch on Youtube: Bruce Springsteen with Tom Hanks 2017 Tribeca Film Festival Storeytellers](https://www.youtube.com/watch?v=BWvXD2SD_VM)
 
-**2021:** *From My Home to Yours* continues with Episode 21, “Waiting on a Friend” on E Street Radio.
+**2021:** *From My Home to Yours* continues with Episode 21, “Waiting on a Friend” on E Street Radio.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3?_=1)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3>
 
-**2023:** Bruce and the E Street Band kick off the European leg of their 2023 World Tour in Barcelona with some special guests: former U.S. First Lady Michelle Obama and actress Kate Capshaw join Patti Scialfa on stage for backing vocals on “Glory Days.” The run of nightly tour premieres continue with “Human Touch.”
+**2023:** Bruce and the E Street Band kick off the European leg of their 2023 World Tour in Barcelona with some special guests: former U.S. First Lady Michelle Obama and actress Kate Capshaw join Patti Scialfa on stage for backing vocals on “Glory Days.” The run of nightly tour premieres continue with “Human Touch.”<br>
 
 [Watch on Youtube: Bruce Springsteen singing Nightshift live in Barcelona 28/04/2023](https://www.youtube.com/watch?v=KUoPAY8d0uY)
 
@@ -108,6 +108,6 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/La_Prensa_Sat__Apr_29__2023_-scaled.jpg)
 
-**2025:** Bruce joins Thom Zimny and Max Weinberg for a Q&A panel following a screening of *Road Diary* at the Saban Media Center in Los Angeles.
+**2025:** Bruce joins Thom Zimny and Max Weinberg for a Q&A panel following a screening of *Road Diary* at the Saban Media Center in Los Angeles.<br>
 
 [Watch on Youtube: [HULU] Bruce Springsteen ROAD DIARY panel discussion](https://www.youtube.com/watch?v=k5eMTo-e13M)

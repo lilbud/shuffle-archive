@@ -12,7 +12,7 @@ The original, of course, can't be topped. In his autobiography, Graham Nash reca
 
 Although first written it while Nash was a member of The Hollies, it was Crosby, Stills, Nash and Young who first recorded and charted with it in 1970. It only reached #16 on the Billboard Hot 100, but it's remained a timeless classic thanks to its important message.
 
-**Update:** 35 years later, Bruce reprised "Teach Your Children" with Steve Earle, Willie Nile, and Rosanne Cash at Earle's benefit show in New Yor City.
+**Update:** 35 years later, Bruce reprised "Teach Your Children" with Steve Earle, Willie Nile, and Rosanne Cash at Earle's benefit show in New Yor City.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Lwy6jhemprw)
 

@@ -34,4 +34,4 @@ This is different.
 
 [Watch on Youtube: Sandy](https://www.youtube.com/watch?v=4RrVxoFQJRs)
 
-**Update 3/17/21:** Reader Joe Lewin reminded me that The Hollies' cover of "4th of July, Asbury Park (Sandy)" (released a decade prior to Air Supply's) featured the same lyrical surgery, so it was very likely an influence as well.
+**Update 3/17/21:** Reader Joe Lewin reminded me that The Hollies' cover of "4th of July, Asbury Park (Sandy)" (released a decade prior to Air Supply's) featured the same lyrical surgery, so it was very likely an influence as well.<br>

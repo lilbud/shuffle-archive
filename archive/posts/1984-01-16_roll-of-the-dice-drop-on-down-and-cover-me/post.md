@@ -66,7 +66,7 @@ Unless we're lucky enough to get a sign-requested debut someday, we're not likel
 
 **Drop on Down and Cover Me**<br>
 **Recorded** May 31 – June 2, 1983<br>
-**Never released**
+**Never released**<br>
 **Never performed**<br>
 
 © December 18, 2019

@@ -1,10 +1,10 @@
-**1981:** Bruce and the E Street Band play their second River Tour show in Edinburgh, Scotland, with “The Ties That Bind” in the opening spot for the first time.
+**1981:** Bruce and the E Street Band play their second River Tour show in Edinburgh, Scotland, with “The Ties That Bind” in the opening spot for the first time.<br>
 
 [Watch on Youtube: Bruce Springsteen - JOHNNY BYE BYE 1981 (audio)](https://www.youtube.com/watch?v=m4LeZxuFzvY)
 
-**1993:** Bruce wraps up the German leg of his World Tour with a show in Mannheim, closing with the tour premiere of “It’s All Right.”
+**1993:** Bruce wraps up the German leg of his World Tour with a show in Mannheim, closing with the tour premiere of “It’s All Right.”<br>
 
-**2003:** “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” makes its Rising Tour premiere in Barcelona.
+**2003:** “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” makes its Rising Tour premiere in Barcelona.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E street Band The Ties that Bind BCN](https://www.youtube.com/watch?v=6Vyn76to6es)
 
@@ -12,7 +12,7 @@
 
 [Watch on Youtube: bruce springsteen en barcelona noticias TVE 2003 the rising](https://www.youtube.com/watch?v=fbfKpMyBHr0)
 
-**2005:** Bruce shocks fans at the Tower Theater in Philadelphia when he performs “Iceman” for the very first time, on piano. “Ramrod” makes its tour premiere, and during the soundcheck, Bruce covers Dominic Behan’s “The Patriot Game” on pump organ. This show is available as part of Bruce’s official archive series.
+**2005:** Bruce shocks fans at the Tower Theater in Philadelphia when he performs “Iceman” for the very first time, on piano. “Ramrod” makes its tour premiere, and during the soundcheck, Bruce covers Dominic Behan’s “The Patriot Game” on pump organ. This show is available as part of Bruce’s official archive series.<br>
 
 [Watch on Youtube: Iceman (Live at Tower Theater, Upper Darby, PA - 5/17/2005)](https://www.youtube.com/watch?v=7Bn28oZ069w)
 
@@ -24,17 +24,17 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/2005-05-17c.jpg)
 
-**2006:** Wolfgang Niedecken joins Bruce and the Sessions Band for “Buffalo Gals” in Frankfurt.
+**2006:** Wolfgang Niedecken joins Bruce and the Sessions Band for “Buffalo Gals” in Frankfurt.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Columbian_Sat__May_20__2006_-scaled.jpg)
 
-**2008:** Bruce joins Mike Ness on stage at The Stone Pony.
+**2008:** Bruce joins Mike Ness on stage at The Stone Pony.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2008-05-17.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/2008-0517.jpg)
 
-**2012:** An amazing Wrecking Ball show in Barcelona, where the tour premieres (“Hungry Heart” and “You Can Look (But You Better Not Touch)” are the least of the highlights. This show will be remembered as the night when the legendary extended instrumental intro to “Prove It All Night” from the Darkness Tour finally returned–by request–after being absent for 32 years.
+**2012:** An amazing Wrecking Ball show in Barcelona, where the tour premieres (“Hungry Heart” and “You Can Look (But You Better Not Touch)” are the least of the highlights. This show will be remembered as the night when the legendary extended instrumental intro to “Prove It All Night” from the Darkness Tour finally returned–by request–after being absent for 32 years.<br>
 
 [Watch on Youtube: SPRINGSTEEN JACK OF ALL TRADES 2012-05-17 BARCELONA](https://www.youtube.com/watch?v=7orMrJZ8vPM)
 
@@ -44,7 +44,7 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 [Watch on Youtube: Springsteen gospel blues jam soundcheck Barcelona 170512](https://www.youtube.com/watch?v=43OA9MuzoGU)
 
-**2014:** The first night of a jaw-dropping two-night closing stand for the High Hopes Tour in an unusual venue: the Mohegan Sun Casino in Uncasville, Connecticut. The set list features an embarrassment of riches from the opening “Racing in the Street ’78” to the tour premiere of “The Price You Pay” and “Quarter to Three” to the closing “Thunder Road.” Little Steven makes his unannounced and triumphant return to the band for these last two shows.
+**2014:** The first night of a jaw-dropping two-night closing stand for the High Hopes Tour in an unusual venue: the Mohegan Sun Casino in Uncasville, Connecticut. The set list features an embarrassment of riches from the opening “Racing in the Street ’78” to the tour premiere of “The Price You Pay” and “Quarter to Three” to the closing “Thunder Road.” Little Steven makes his unannounced and triumphant return to the band for these last two shows.<br>
 
 [Watch on Youtube: Stayin' Alive - Springsteen - Mohegan Sun Arena, CT - May 17, 2014](https://www.youtube.com/watch?v=As2eg3sJiw4)
 
@@ -58,7 +58,7 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Day_Mon__May_19__2014_-scaled.jpg)
 
-**2016:** *The River* tracks still dominate the set list as the European leg gathers steam, but there’s still plenty of room for tour premieres: “Fire,” “Murder Incorporated,” “Waitin’ on a Sunny Day” and a solo acoustic “This Hard Land” all make their debut in San Sebastian.
+**2016:** *The River* tracks still dominate the set list as the European leg gathers steam, but there’s still plenty of room for tour premieres: “Fire,” “Murder Incorporated,” “Waitin’ on a Sunny Day” and a solo acoustic “This Hard Land” all make their debut in San Sebastian.<br>
 
 [Watch on Youtube: La llegada de Bruce Springsteen a Donostia](https://www.youtube.com/watch?v=Ja7SJRQVRKA)
 
@@ -66,11 +66,11 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 [Watch on Youtube: Bruce Springsteen-FIRE - The River Tour San Sebastian 2016 (HD)](https://www.youtube.com/watch?v=0f_mcNaT2Yw)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Actress/singer Connie Britton is in attendance tonight.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Actress/singer Connie Britton is in attendance tonight.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/05/conniebritto.jpg)
 
-**2025:** Night Two in Manchester on the Land of Hope and Dreams Tour features the return of “Out in the Street” to the setlist, absent since 2023.
+**2025:** Night Two in Manchester on the Land of Hope and Dreams Tour features the return of “Out in the Street” to the setlist, absent since 2023.<br>
 
 [Watch on Youtube: Bruce Springsteen - Out In The Street - Live at Co-op Live Arena Manchester 17/05/25](https://www.youtube.com/watch?v=Z0uePUDT1UI)
 

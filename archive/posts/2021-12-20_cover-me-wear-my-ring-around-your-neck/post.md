@@ -14,8 +14,6 @@ Bruce debuted his cover of "Wear My Ring Around Your Neck" late on the Wild and 
 
 Other than a one-off performance with Rickie Lee Jones and Boz Scaggs in 1979 (for which I would pay dearly for a copy), Bruce hasn't covered it since.
 
-**Wear My Ring Around Your Neck
-First performed:** November 16, 1974 (Washington, DC)
+**Wear My Ring Around Your Neck**<br>
+**First performed:** November 16, 1974 (Washington, DC)<br>
 **Last performed:** June 3, 1979 (West Hollywood, CA)<br>
-
- 

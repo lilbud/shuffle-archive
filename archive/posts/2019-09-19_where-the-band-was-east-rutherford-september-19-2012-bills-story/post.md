@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *Today's guest blogger is Bill Kenney, who's kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill's blog](https://billk128.tumblr.com/)–he's got some great show reviews (not just Bruce-related) and insightful commentary.*
+***Editor's Note:*** *Today's guest blogger is Bill Kenney, who's kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill's blog](https://billk128.tumblr.com/)–he's got some great show reviews (not just Bruce-related) and insightful commentary.*<br>
 
 > *If you'd like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).*
 

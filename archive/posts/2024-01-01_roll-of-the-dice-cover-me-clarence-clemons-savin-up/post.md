@@ -37,14 +37,14 @@ Bruce also recorded a duet of "Savin' Up" in 2009 with John Luraschi (who played
 
 [Watch on Youtube: "Savin' Up" ~ John Luraschi & Bruce Springsteen ~ Video by Rose A Montana](https://www.youtube.com/watch?v=EzhuwnTFqfg)
 
-**Update 1/24/2020:** Improbably, Bruce played "Savin' Up" once more since this essay was posted, and boy was it a great one. Here's Bruce and his hat with Joe Grushecky and The Houserockers at Light of Day 20.
+**Update 1/24/2020:** Improbably, Bruce played "Savin' Up" once more since this essay was posted, and boy was it a great one. Here's Bruce and his hat with Joe Grushecky and The Houserockers at Light of Day 20.<br>
 
 [Watch on Youtube: Bruce Springsteen](https://www.youtube.com/watch?v=qOl9uXUBbHM)
 
 Where did "Cardi B. backyard" come from?
 
 **Savin' Up**<br>
-**Released:** *Rescue* (1983, Clarence Clemons & The Red Bank Rockers)
+**Released:** *Rescue* (1983, Clarence Clemons & The Red Bank Rockers)<br>
 **First Performed:** August 14, 1987 (Asbury Park, NJ)<br>
 **Last performed:** January 18, 2020 (Asbury Park, NJ)<br>
 

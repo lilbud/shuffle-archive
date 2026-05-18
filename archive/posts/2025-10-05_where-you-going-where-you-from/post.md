@@ -12,13 +12,13 @@ All things end, though, and soon this site will too.
 
 Here's what the months ahead look like:
 
-**Already in effect:** All commenting has been disabled site-wide for version control as I work on archiving the site. I did this a few days ago, and I apologize for not acknowledging it sooner.
+**Already in effect:** All commenting has been disabled site-wide for version control as I work on archiving the site. I did this a few days ago, and I apologize for not acknowledging it sooner.<br>
 
-**Now through January 5, 2026:** Kingdom of Days will continue its daily publication schedule. The last post will be on January 5th, which marks the official end of the series' eighth year. That seemed like a nice place to tie the bow..
+**Now through January 5, 2026:** Kingdom of Days will continue its daily publication schedule. The last post will be on January 5th, which marks the official end of the series' eighth year. That seemed like a nice place to tie the bow..<br>
 
 Concurrently, I'll be reviewing every Roll of the Dice, Cover Me, Meeting Across the River, and other posts I've published over the last eight years in preparation for archiving. I'll repair or replace any broken links or media, update live performance statistics, etc. so the articles are as clean as possible. For previously unreleased tracks that are now available on *Tracks II: The Lost Albums*, I will note the additional release in the article footer but will not revisit the main text other than to correct factual statements in light of the official release. I expect this work to be completed by December 31st.
 
-**January 6, 2026:** This site essentially becomes a zombie, while I make a personal, offline archive of the site. I will also delete the entire subscriber database on this date so there's no retention of your email address (if you are a subscriber).
+**January 6, 2026:** This site essentially becomes a zombie, while I make a personal, offline archive of the site. I will also delete the entire subscriber database on this date so there's no retention of your email address (if you are a subscriber).<br>
 
 What happens after that is still a little fuzzy. At some point in 2026, this site will completely vanish, but I don't know exactly when that will happen. When I started this site, I went through a gradual process of licensing the software, web hosting, domain names, plugins, backup service, media hosting, etc., and I don't remember when those all come up for annual renewal.
 

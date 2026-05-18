@@ -18,4 +18,4 @@ Free Redemption's version of "I'm Goin' Down" is easily my favorite of the many,
 
 **[Check out more from Free Redemption](https://www.facebook.com/FreeRedemption/)**<br>
 
-**Nico Mirandola*,* lead vocal, harmonica, guitar**Ivan Sacchi*,* guitar, backing vocals**Michele Leoni*,* bass, backing vocals**Gianluca Garavaso*,* drums, backing vocals
+**Nico Mirandola*,* lead vocal, harmonica, guitar**Ivan Sacchi*,* guitar, backing vocals**Michele Leoni*,* bass, backing vocals**Gianluca Garavaso*,* drums, backing vocals<br>

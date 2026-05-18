@@ -54,13 +54,13 @@ If it seems like I'm hating on "When You Need Me," I'm not. It's hard to take is
 
 Which is exactly how Bruce seems to have treated it: "When You Need Me" has never received a concert outing and probably won't barring a fan's sign request (which isn't likely to happen, either). Very probably, "When You Need Me" will remain an inoffensive, largely forgotten outtake.
 
-**Update #1:** Astute reader Yoli Clavero noted that while Bruce hasn't performed "When You Need Me" in concert, he did rehearse it way back on March 30, 1993. Here's that recording below. Gracias, Yoli!
+**Update #1:** Astute reader Yoli Clavero noted that while Bruce hasn't performed "When You Need Me" in concert, he did rehearse it way back on March 30, 1993. Here's that recording below. Gracias, Yoli!<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3?_=2)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3>
 
-**Update** #2: I'm humbled today by how sharp my readers are–Magnus Lauglo noticed that in the last verse, the tense shifts to the present: "'cause without you my life just isn't the same." That implies that "When You Need Me" is more than just a sweet love song; it's a song about the bond that persists even after a relationship ends. It deepens the song considerably, and I may have to upgrade my opinion of the song as a result. Thanks, Magnus!
+**Update** #2: I'm humbled today by how sharp my readers are–Magnus Lauglo noticed that in the last verse, the tense shifts to the present: "'cause without you my life just isn't the same." That implies that "When You Need Me" is more than just a sweet love song; it's a song about the bond that persists even after a relationship ends. It deepens the song considerably, and I may have to upgrade my opinion of the song as a result. Thanks, Magnus!<br>
 
 **When You Need Me**<br>
 **Recorded** January 10, 1987<br>

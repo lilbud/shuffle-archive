@@ -108,7 +108,7 @@ Since the Magic Tour, "Tunnel of Love" has made only a single appearance, at Got
 
 But don't count out future appearances. "Tunnel of Love" is too significant a track in Bruce's catalog to stay absent for long.
 
-**Bonus:** Here's an alternate, rarely seen cut of Meiert Avis' award-winning video with less carnival imagery and more Bruce.
+**Bonus:** Here's an alternate, rarely seen cut of Meiert Avis' award-winning video with less carnival imagery and more Bruce.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/laIqiHGm?hd=0&cover=1)
 

@@ -82,7 +82,7 @@ But those are stories for another day.
 
 **Goin' Cali**<br>
 **Recorded** January 29, 1991<br>
-**Released:** *Tracks* (1998)
+**Released:** *Tracks* (1998)<br>
 **Never performed live**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

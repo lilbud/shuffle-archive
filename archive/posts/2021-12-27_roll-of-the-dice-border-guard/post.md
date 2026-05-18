@@ -67,9 +67,9 @@ That last couplet is heartbreaking: a son's refusal to surrender to his father's
 
 Bruce would revisit the California/Mexico border in song decades later, this time with a true focus on it. As for his reconciliation with his father, that would take a while yet. But his unreleased "Border Guard" reveals he was at least working his way towards it.
 
-**Border Guard
-**Recorded:** April 1972
-**Never released**
+**Border Guard**<br>
+**Recorded:** April 1972<br>
+**Never released**<br>
 **Never performed**<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

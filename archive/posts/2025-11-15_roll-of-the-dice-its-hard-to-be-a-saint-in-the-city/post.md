@@ -68,8 +68,8 @@ But about two thirds of the way through, the small changes start having a bigger
 …becomes:
 
 > *But it's too hot in these tunnels, you can get hit up by the heat*<br>
-***You** get up to get out at **your** next stop but they push **you** back down in **your** seat*
-***Your** heart starts beatin' faster as **you** struggle to **your** feet*
+***You** get up to get out at **your** next stop but they push **you** back down in **your** seat*<br>
+***Your** heart starts beatin' faster as **you** struggle to **your** feet*<br>
 *And **you're** out of that hole, back up on the street*
 
 > *And them south side sisters sure look pretty*<br>

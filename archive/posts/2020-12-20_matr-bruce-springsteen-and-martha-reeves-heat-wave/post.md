@@ -30,12 +30,10 @@ Did Bruce and the band bring anything new and innovative to their arrangement? N
 
 But it’s hard to resist falling under the spell of the E Street Band having that much fun with their unique show opener.
 
-**Bonus:** “Heat Wave” technically made a third appearance on Bruce’s E Street set lists, but it was an instrumental-only one. Here’s Bruce’s very recognizable sign-collecting background music from his Mansfield show on the Working on a Dream Tour in 2009.
+**Bonus:** “Heat Wave” technically made a third appearance on Bruce’s E Street set lists, but it was an instrumental-only one. Here’s Bruce’s very recognizable sign-collecting background music from his Mansfield show on the Working on a Dream Tour in 2009.<br>
 
 [Watch on Youtube: Bruce Springsteen "Heatwave" - "I'm Goin' Down" Mansfield, MA 8-23-09](https://www.youtube.com/watch?v=aA8Po2DBtf8)
 
-**Heat Wave
-First performed:** September 21, 2003 (Detroit, MI)
-**Last performed:** February 2, 2014 (Adelaide, Australia)
-
- 
+**Heat Wave**<br>
+**First performed:** September 21, 2003 (Detroit, MI)<br>
+**Last performed:** February 2, 2014 (Adelaide, Australia)<br>

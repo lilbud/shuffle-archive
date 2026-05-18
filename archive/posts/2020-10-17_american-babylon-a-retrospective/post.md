@@ -1,6 +1,6 @@
 Editor's Note
 
-***Updated November 2, 2021:*** *The 25th anniversary edition of American Babylon is available now, featuring bonus tracks Joe only hinted at during our original July 2020 interview below, and a tremendous live concert recording with Bruce from 1995. Well worth picking up –get it [here](https://orcd.co/JoeGrusheckyAmericanBabylon25).*
+***Updated November 2, 2021:*** *The 25th anniversary edition of American Babylon is available now, featuring bonus tracks Joe only hinted at during our original July 2020 interview below, and a tremendous live concert recording with Bruce from 1995. Well worth picking up –get it [here](https://orcd.co/JoeGrusheckyAmericanBabylon25).*<br>
 
 In 1993, Bruce Springsteen had just finished a year-long world tour with his new band and was, as the saying goes, between projects.
 

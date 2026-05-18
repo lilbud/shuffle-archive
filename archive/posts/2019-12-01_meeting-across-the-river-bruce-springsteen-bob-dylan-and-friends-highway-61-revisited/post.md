@@ -30,6 +30,6 @@ Just saying.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8hr3Stnk8_k)
 
-**Highway 61 Revisited**
+**Highway 61 Revisited**<br>
 **First performed:** November 16, 1990 (Los Angeles, CA)<br>
 **Last performed:** October 4, 2003 (New York City, NY)<br>

@@ -28,7 +28,7 @@ Jack's vocals are clearer in the live version, and Bruce's are more prominent, d
 
 Bruce also plays acoustic guitar throughout the song, and the resulting video was medicine to live music fans at the end of a year mostly devoid of it.
 
-**Update 1/3/2024:** Since this article was first published, Bruce made a guest appearance with Bleachers on "Chinatown" at Radio City Music Hall in 2022. Here's that performance below.
+**Update 1/3/2024:** Since this article was first published, Bruce made a guest appearance with Bleachers on "Chinatown" at Radio City Music Hall in 2022. Here's that performance below.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pRkOjCufff8)
 

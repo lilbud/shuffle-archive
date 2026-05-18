@@ -12,12 +12,12 @@ The legendary rockers’ performance is a bit rocky–Bruce accidentally transpo
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iX_y3_bt-8U)
 
-**Bonus:** The clip above missed the introduction and opening line (and second ending), so here’s an intact audio version for your listening pleasure.
+**Bonus:** The clip above missed the introduction and opening line (and second ending), so here’s an intact audio version for your listening pleasure.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QWUOhrvS)
 
-**Only the Good Die Young
-First performed:** October 29, 2009 (New York City, NY)
-**Last performed:** October 29, 2009 (New York City, NY)
+**Only the Good Die Young**<br>
+**First performed:** October 29, 2009 (New York City, NY)<br>
+**Last performed:** October 29, 2009 (New York City, NY)<br>
 
 © February 10, 2020

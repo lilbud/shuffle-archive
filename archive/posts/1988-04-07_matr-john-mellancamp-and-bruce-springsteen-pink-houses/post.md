@@ -18,8 +18,8 @@ John returned the favor shortly after, which left them tied at one each. With lu
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_Qo_-W4lBe4)
 
-**Pink Houses
-First performed:** December 9, 2019 (New York City, NY)
-**Last performed:** March 10, 2024 (Newark, NJ)
+**Pink Houses**<br>
+**First performed:** December 9, 2019 (New York City, NY)<br>
+**Last performed:** March 10, 2024 (Newark, NJ)<br>
 
 © March 11, 2021

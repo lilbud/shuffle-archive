@@ -46,7 +46,7 @@ Watch Bruce spontaneously decide to keep it going when Joe tries to end it at ar
 
 [Watch on Youtube: Great Balls Of Fire-Bruce Springsteen & Joe Ely (6-05-2014 Cynthia Woods Mitchell Pavilion, Houston)](https://www.youtube.com/watch?v=L4K9AXwts-U)
 
-**Update 1/3/2024:** At the Rock and Roll Hall of Fame induction ceremony in 2022, attendees (including this blogger) were delighted by a surprise encore performance at the ceremony's conclusion: a loose, seemingly unplanned team-up on "Great Balls of Fire" by Bruce and John Mellencamp.
+**Update 1/3/2024:** At the Rock and Roll Hall of Fame induction ceremony in 2022, attendees (including this blogger) were delighted by a surprise encore performance at the ceremony's conclusion: a loose, seemingly unplanned team-up on "Great Balls of Fire" by Bruce and John Mellencamp.<br>
 
 [Watch on Youtube: Great Balls Of Fire-Bruce Springsteen & John Mellencamp (5-11-2022 Microsoft Theater,Los Angeles,CA)](https://www.youtube.com/watch?v=x5T_Jgxew0o)
 

@@ -139,13 +139,13 @@ The second was just a couple of weeks ago during Bruce's interview with Howard S
 
 As the genesis for *Letter to You*, "Last Man Standing" seems like a pretty good bet for at least a few set list appearances on Bruce's next tour–which as of this writing is only weeks away. So if you're waiting for a full-band performance, we hopefully won't have to wait much longer.
 
-**Update 1/3/2024:** With World Tour 2023 behind us, we now know that of course "Last Man Standing" did indeed feature nightly–but as an affecting solo performance rather than with the full band (although Curt Ramm played a moving trumpet solo during the bridge).
+**Update 1/3/2024:** With World Tour 2023 behind us, we now know that of course "Last Man Standing" did indeed feature nightly–but as an affecting solo performance rather than with the full band (although Curt Ramm played a moving trumpet solo during the bridge).<br>
 
 [Watch on Youtube: Bruce Springsteen - Last Man Standing - St. Paul, MN - 3/5/2023](https://www.youtube.com/watch?v=loLoscZVRzI)
 
 **Last Man Standing**<br>
 **Recorded** November 18-22, 2019<br>
-**Released:** *Letter to You* (2020)
+**Released:** *Letter to You* (2020)<br>
 **First performed:** October 27, 2020 (Colts Neck, NJ)<br>
 **Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 

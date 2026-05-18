@@ -16,13 +16,13 @@ But while the protagonist of "My Love" is fiercely defiant and determined to mak
 > *When I walk home in the daybreak, I pray come back home, baby, won't you give me*
 > *Darling bring on the night*
 
-***I walk the street, I'm looking for romance***
-***I end up stumbling in some stupid half-trance***
+***I walk the street, I'm looking for romance***<br>
+***I end up stumbling in some stupid half-trance***<br>
 > *As I watch the lovers mix with circumstance*
 > *We watch the disco dancers dance*
 
-***I look for connection in some new eyes***
-***But for protection they're tranquilized***
+***I look for connection in some new eyes***<br>
+***But for protection they're tranquilized***<br>
 > *Forbidding close inspection of who's telling who*
 > *Forbidding close inspection of who's telling who lies*
 
@@ -62,12 +62,12 @@ On June 13, 1979, the band recorded the final take, but it would sit in the vaul
 
 Nevertheless, it offers a fascinating peek into Bruce's songwriting process, and some insight into what would become one of my favorite Springsteen songs. For those reasons at least, I'm glad Bruce released "Bring on the Night."
 
-**Bonus:** Here's another early outtake–I suspect this one is earlier than the others, as it has almost nothing in common with them other than the title and theme. This version is full of violent imagery, with a narrator who call for night because he wants to black out all of the crime and pain that comes during the day. It's an interesting conceit to use night to combat the paradoxical darkness of day, but clearly, Bruce wanted to take the song in a different direction.
+**Bonus:** Here's another early outtake–I suspect this one is earlier than the others, as it has almost nothing in common with them other than the title and theme. This version is full of violent imagery, with a narrator who call for night because he wants to black out all of the crime and pain that comes during the day. It's an interesting conceit to use night to combat the paradoxical darkness of day, but clearly, Bruce wanted to take the song in a different direction.<br>
 
 [Watch on Youtube: Bruce Springsteen Bring on the Night #3](https://www.youtube.com/watch?v=ZYpPhvthseA)
 
-**Bring on the Night**
-**Recorded:** June 13, 1979
+**Bring on the Night**<br>
+**Recorded:** June 13, 1979<br>
 **Released:** *Tracks* (1998)<br>
 **Never performed**<br>
 

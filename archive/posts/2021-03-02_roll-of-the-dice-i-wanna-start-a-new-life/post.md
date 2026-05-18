@@ -26,7 +26,7 @@ That last line likely gives away the game: had Bruce completed the song, it's li
 Unfortunately, though, Bruce doesn't seem to have pursued the song any further, so "I Wanna Start a New Life" never had a chance at any life at all.
 
 **I Wanna Start a New Life**<br>
-**Recorded** Late 1979 (demo only)
+**Recorded** Late 1979 (demo only)<br>
 **Never released**<br>
 **Never performed**<br>
 

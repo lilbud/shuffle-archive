@@ -16,6 +16,6 @@ Together with John Eddie, Greg Kihn, Marshall Crenshaw, and Elliott Murphy, Bruc
 
 [Watch on Youtube: Bruce Springsteen, John Eddie, and Friends - "Bang a Gong (Get It On)" / "Route 66"](https://www.youtube.com/watch?v=9osA0jMFeBk)
 
-**Get It On**
-**First performed:** October 21, 1994 (Sayreville, NJ)
-**Last performed:** October 21, 1994 (Sayreville, NJ)
+**Get It On**<br>
+**First performed:** October 21, 1994 (Sayreville, NJ)<br>
+**Last performed:** October 21, 1994 (Sayreville, NJ)<br>

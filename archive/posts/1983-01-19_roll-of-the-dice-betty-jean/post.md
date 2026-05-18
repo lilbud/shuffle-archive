@@ -57,9 +57,9 @@ But Beverly's story is a tale for another day.
 
 Bobby may have been the first member of the Jean family to make it out into the wide world, but the others still have tales worth telling.
 
-**Betty Jean**
-**Recorded:** January 20, 1983
-**Never released**
+**Betty Jean**<br>
+**Recorded:** January 20, 1983<br>
+**Never released**<br>
 **Never performed**<br>
 
 © February 13, 2019

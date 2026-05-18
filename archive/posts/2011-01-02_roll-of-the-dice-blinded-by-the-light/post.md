@@ -40,7 +40,7 @@ While at least some musical ingredients might have ripened on other trees, there
 
 On more than one occasion, Bruce has led his audience through a line-by-line exegesis, admitting at times that even he doesn't know what certain passages are about. I'll do some of that here, too. But to spend too much energy analyzing the lyrics ("overthinking it," Bruce would say) is to miss the trees for the forest. And these are some hella impressive trees.
 
-***M**ad**m**an **drummers** **bummers** and Indians in the **summer** with a teenage diplomat*
+***M**ad**m**an **drummers** **bummers** and Indians in the **summer** with a teenage diplomat*<br>
 *In the **dumps** with the **mumps** as the adolescent **pumps** his way into his hat*
 *With a **boulder** on my **shoulder**, feelin' kinda **older** I tripped the merry-go-round*
 *With this very **unpleasing** **sneezing** and **wheezing** the **c**alliope **c**rashed to the ground*
@@ -165,7 +165,7 @@ Bruce did.
 
 [Watch on Youtube: "Blinded by the light" - Bruce Springsteen & special guest"](https://www.youtube.com/watch?v=QTMfT2Pr_P4)
 
-**Bonus:** If there is any segment of E Street Nation that doesn't care for "Blinded by the Light" it might be the American Sign Language (ASL) interpreters who deserve combat pay for trying to keep up with Springsteen's lyrics. Watch Bruce's 2001 Asbury Park community performance below to see a confident interpreter give it her best shot (and apparently do a commendable job).
+**Bonus:** If there is any segment of E Street Nation that doesn't care for "Blinded by the Light" it might be the American Sign Language (ASL) interpreters who deserve combat pay for trying to keep up with Springsteen's lyrics. Watch Bruce's 2001 Asbury Park community performance below to see a confident interpreter give it her best shot (and apparently do a commendable job).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/FpUdQtkf)
 

@@ -171,7 +171,7 @@ During the revival of the River Tour in 2016, Bruce introduced a dramatic, cinem
 
 I consider that to be the definitive arrangement, but does Bruce? Time will tell, I suppose, but given his endless tinkering with it, I'm guessing we've yet to hear the final form of "Point Blank."
 
-**Bonus:** In 2005, Bruce debuted yet another arrangement for "Point Blank," this time as a solo number on the electric piano. I include it here as a curiosity, because musically… well, let's just say that "Point Blank" demands a tenured professor at the piano, and Bruce is an associate at best.
+**Bonus:** In 2005, Bruce debuted yet another arrangement for "Point Blank," this time as a solo number on the electric piano. I include it here as a curiosity, because musically… well, let's just say that "Point Blank" demands a tenured professor at the piano, and Bruce is an associate at best.<br>
 
 [Watch on Youtube: Bruce Springsteen- Point Blank (Acoustic)](https://www.youtube.com/watch?v=lUXbgUkM8_g)
 

@@ -96,7 +96,7 @@ We've taken that first step, and although its songwriter couldn't have foreseen 
 
 ---
 
-**Bonus:** Bruce played "We Take Care of Our Own" with the E Street Band nightly throughout the Wrecking Ball Tour, but it was a non-tour performance late in the year that proved the most powerful.
+**Bonus:** Bruce played "We Take Care of Our Own" with the E Street Band nightly throughout the Wrecking Ball Tour, but it was a non-tour performance late in the year that proved the most powerful.<br>
 
 At Bruce's sixth annual appearance at the *Stand Up For Heroes* benefit, Bruce played an acoustic version of "We Take Care of Our Own."
 

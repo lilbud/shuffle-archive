@@ -55,13 +55,13 @@ Fifteen years later, Bruce reprised "Deportee" at a Woody Guthrie tribute concer
 
 Bruce performed the songs on two more occasions in 1996, both on his solo acoustic Ghost of Tom Joad Tour. The first time was as a warm-up for the Guthrie tribute three nights later; the second and was at his tour stop in Fresno, not far from the burial ground of the late victims of that 1948 plane crash.
 
-**Update 5/22/21:** That was the last time Bruce played "Deportee" to date, until the spring of 2021, when Bruce was honored with the Woody Guthrie Prize. The ceremony was virtual this year, but Bruce generously performed a mini-set of Woody's music, including a lovely performance of "Deportee (Plane Wreck at Los Gatos)."
+**Update 5/22/21:** That was the last time Bruce played "Deportee" to date, until the spring of 2021, when Bruce was honored with the Woody Guthrie Prize. The ceremony was virtual this year, but Bruce generously performed a mini-set of Woody's music, including a lovely performance of "Deportee (Plane Wreck at Los Gatos)."<br>
 
 [Watch on Youtube: Deportee - Bruce Springsteen (13-05-2021 Woody Guthrie Center Award)](https://www.youtube.com/watch?v=7mO4Um2a7lk)
 
 ---
 
-*****Recent research suggests that perhaps not all of the doomed flight's passengers were Mexican. Listen to the interview below for a fascinating postscript to the true story of the plane wreck at Los Gatos.
+*****Recent research suggests that perhaps not all of the doomed flight's passengers were Mexican. Listen to the interview below for a fascinating postscript to the true story of the plane wreck at Los Gatos.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3?_=2)
 
@@ -69,6 +69,6 @@ Bruce performed the songs on two more occasions in 1996, both on his solo acoust
 
 **Deportee (Plane Wreck at Los Gatos)**<br>
 **Recorded** September 29, 1996<br>
-**Released:** *‘Till We Outnumber 'em* (2000)
+**Released:** *‘Till We Outnumber 'em* (2000)<br>
 **First performed:** August 28, 1981 (Los Angeles, CA)<br>
 **Last performed:** May 13, 2021 (Colts Neck, NJ)<br>

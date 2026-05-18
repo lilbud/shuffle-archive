@@ -10,4 +10,4 @@ But this is a band I'd certainly like to see and hear more from.
 
 Editor's Note
 
-***Blogger's Note:*** *Speaking of Italy and "Cover Me," this weekend is the final event of this years international Cover Me competition in Bergamo, Italy. I'm on my way there now, so look for my coverage and cover spotlights in the weeks to come.*
+***Blogger's Note:*** *Speaking of Italy and "Cover Me," this weekend is the final event of this years international Cover Me competition in Bergamo, Italy. I'm on my way there now, so look for my coverage and cover spotlights in the weeks to come.*<br>

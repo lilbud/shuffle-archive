@@ -22,10 +22,10 @@ Of particular delight is the middle section (skip to the five-minute mark if you
 
 If you enjoyed this track, stay tuned for more Bruce Springsteen Band performances through the summer. (And if not, don't worry: modern programming resumes on Monday.)
 
-**Bless My Soul
+**Bless My Soul**<br>
 Never recorded
 Never released
-First performed:** November 13, 1971 (Asbury Park, NJ)
+**First performed:** November 13, 1971 (Asbury Park, NJ)<br>
 **Last performed:** February 26, 1972 (Richmond, VA)<br>
 
 © June 11, 2022

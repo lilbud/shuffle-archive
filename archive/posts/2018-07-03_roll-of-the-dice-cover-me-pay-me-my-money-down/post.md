@@ -39,12 +39,12 @@ In concert on the all-too-short Seeger Sessions Tour, "Pay Me My Money Down" was
 
 "Pay Me" is one of the few Seeger songs that Bruce refuses to leave on the shelf. He played it frequently during the Wrecking Ball and High Hopes tours, and although it didn't see an outing on the last tour, it's too much fun for retirement. I'm confident we'll see it again.
 
-**Update 1/1/2024:** We did see it again! Eight times in fact, during Bruce's World Tour 2023. Here's one of them:
+**Update 1/1/2024:** We did see it again! Eight times in fact, during Bruce's World Tour 2023. Here's one of them:<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Pay Me My Money Down - Dublin RDS Arena - 2023-05-07](https://www.youtube.com/watch?v=0_D5_4Em6Jg)
 
-**Pay Me My Money Down**
-**Recorded:** March 19, 2005**Released:** *We Shall Overcome: The Seeger Sessions* (2006)*, We Shall Overcome: The Seeger Sessions – American Land Edition* (2006)*, Live in Dublin* (2007)**First performed:** April 20, 2006 (Asbury Park, NJ)
+**Pay Me My Money Down**<br>
+**Recorded:** March 19, 2005**Released:** *We Shall Overcome: The Seeger Sessions* (2006)*, We Shall Overcome: The Seeger Sessions – American Land Edition* (2006)*, Live in Dublin* (2007)**First performed:** April 20, 2006 (Asbury Park, NJ)<br>
 **Last performed:** May 15, 2023 (Nanterre, France)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor’s Note:*** *Today’s guest blogger is Bill Kenney, who’s kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill’s blog](https://billk128.tumblr.com/)–he’s got some great show reviews (not just Bruce-related) and insightful commentary.*
+***Editor’s Note:*** *Today’s guest blogger is Bill Kenney, who’s kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill’s blog](https://billk128.tumblr.com/)–he’s got some great show reviews (not just Bruce-related) and insightful commentary.*<br>
 
 *If you’d like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).*
 
@@ -54,9 +54,9 @@ What's your story?
 
 *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*
 
-**9/19/12 – MetLife Stadium, NJ**
+**9/19/12 – MetLife Stadium, NJ**<br>
 
-**Setlist:**
+**Setlist:**<br>
 Shackled and Drawn
 Prove It All Night (’78 intro)
 The Ties That Bind

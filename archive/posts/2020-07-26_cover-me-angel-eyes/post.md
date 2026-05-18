@@ -24,7 +24,7 @@ Bruce reverted to the original lyrics for his cover and arranged the song for ac
 
 Not surprisingly, that was the one and only time Bruce has ever covered "Angel Eyes." It's likely to remain that way. Thankfully the performance was televised and recorded for posterity, because it's a rare and intimate moment between two of New Jersey's favorite sons.
 
-**Update:** Thanks to friend of the blog Bill Anderson for pointing me to a May 2000 interview with Frank Sinatra Jr., who was not at all a fan of Bruce' interpretation. But then again, Junior apparently wasn't a fan of a lot of things...
+**Update:** Thanks to friend of the blog Bill Anderson for pointing me to a May 2000 interview with Frank Sinatra Jr., who was not at all a fan of Bruce' interpretation. But then again, Junior apparently wasn't a fan of a lot of things...<br>
 
 ![](../../assets/2020/07/sinatra.png)
 

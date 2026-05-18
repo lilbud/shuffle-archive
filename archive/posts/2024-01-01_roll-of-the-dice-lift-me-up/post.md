@@ -49,7 +49,7 @@ But I still maintain that to appreciate the song fully, watch it in context with
 
 **Lift Me Up**<br>
 **Recorded** Oct 1998 – Jan 1999<br>
-**Released:** *Limbo (Music from the Motion Picture)* (1999), *The Essential Bruce Springsteen* (2003)
+**Released:** *Limbo (Music from the Motion Picture)* (1999), *The Essential Bruce Springsteen* (2003)<br>
 **First performed:** July 31, 2005 (Columbus, OH)<br>
 **Last performed:** July 31, 2005 (Columbus, OH)<br>
 

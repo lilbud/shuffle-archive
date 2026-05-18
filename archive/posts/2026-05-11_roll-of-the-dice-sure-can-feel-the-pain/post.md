@@ -59,10 +59,10 @@ And then, like I said, that last verse:
 
 I'll be darned if I know what the big black rooster symbolizes, what the bells are about, and why the animals are talking. Maybe it's because I've never tried acid. (Bruce has often stated that he never tried drugs, and I believe him–but man, he sure could have fooled me on this song.) Or maybe I'm just trying too hard to find meaning a song that's just supposed to take you on a trip.
 
-**Sure Can Feel the Pain
+**Sure Can Feel the Pain**<br>
 Never Recorded
 Never Released
-First performed:** December 3, 1971 (Asbury Park, NJ)
+**First performed:** December 3, 1971 (Asbury Park, NJ)<br>
 **Last performed:** December 3, 1971 (Asbury Park, NJ)<br>
 
 © July 15, 2018

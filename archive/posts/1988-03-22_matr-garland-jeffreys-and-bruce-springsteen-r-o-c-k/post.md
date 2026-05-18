@@ -14,8 +14,8 @@ Here’s a wonderful clip from the second night, with Garland and Bruce backed b
 
 Bruce and Garland certainly lifted the show, and you can clearly sense their mutual esteem and affection.
 
-**R.O.C.K.
-First performed:** December 5, 2003 (Asbury Park, NJ)
-**Last performed:** December 8, 2003 (Asbury Park, NJ)
+**R.O.C.K.**<br>
+**First performed:** December 5, 2003 (Asbury Park, NJ)<br>
+**Last performed:** December 8, 2003 (Asbury Park, NJ)<br>
 
 © December 4, 2019

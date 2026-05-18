@@ -41,7 +41,7 @@ I wouldn't be surprised if the song dates much farther back than 2014. But that'
 
 This one is perfect as is.
 
-**Bonus:** Here's Darlene's live performance of "Night Closing In" (with Little Steven) from shortly after her record release in 2015.
+**Bonus:** Here's Darlene's live performance of "Night Closing In" (with Little Steven) from shortly after her record release in 2015.<br>
 
 [Watch on Youtube: Darlene Love Night Closing In 2015](https://www.youtube.com/watch?v=N-5FXMhnKMg)
 

@@ -130,7 +130,7 @@ Someday we'll be out there on our own.
 
 **Ghosts**<br>
 **Recorded** November 2019<br>
-**Released:** *Letter to You* (2020)
+**Released:** *Letter to You* (2020)<br>
 **First performed:** December 12, 2020 (New York City, NY)<br>
 **Last performed:** June 11, 2025 (Berlin, Germany)<br>
 

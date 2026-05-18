@@ -78,13 +78,13 @@ For now, though, enjoy the one and only time Bruce performed the song live–in 
 
 [Watch on Youtube: Bruce Springsteen - WHAT LOVE CAN DO - SUB ITA](https://www.youtube.com/watch?v=S5G0JiAHUIo)
 
-**Bonus:** Here's some brief footage of Bruce playing an acoustic "What Love Can Do" from the *Working on a Dream* recording sessions.
+**Bonus:** Here's some brief footage of Bruce playing an acoustic "What Love Can Do" from the *Working on a Dream* recording sessions.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/peRsvJRB)
 
 **What Love Can Do**<br>
-**Recorded:** mid-2007
-**Released:** *Working on a Dream* (2009)
+**Recorded:** mid-2007<br>
+**Released:** *Working on a Dream* (2009)<br>
 **First performed:** October 14, 2009<br>
 **Last performed:** October 14, 2009<br>
 

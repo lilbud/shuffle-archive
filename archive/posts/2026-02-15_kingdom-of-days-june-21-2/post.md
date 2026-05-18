@@ -1,20 +1,20 @@
-**1951:** The E Street Band's greatest guitarist is born in Chicago. Happy birthday, Nils Lofgren!
+**1951:** The E Street Band's greatest guitarist is born in Chicago. Happy birthday, Nils Lofgren!<br>
 
-**1970:** A scheduled Steel Mill date at the Clearwater Swim Club in Atlantic Highlands, New Jersey is postponed by a day due to bad weather.
+**1970:** A scheduled Steel Mill date at the Clearwater Swim Club in Atlantic Highlands, New Jersey is postponed by a day due to bad weather.<br>
 
 ![](../../assets/2020/06/1970-06-21.jpg)
 
-**1974:** Bruce and the E Street Band play two shows on their first of three consecutive nights at Le Garage on Long Beach Island.
+**1974:** Bruce and the E Street Band play two shows on their first of three consecutive nights at Le Garage on Long Beach Island.<br>
 
 ![](../../assets/2018/06/1974-0621.jpg)
 
-**1976:** Bruce drops by The Main Point in Bryn Mawr, Pennsylvania to catch Tone, a band that includes E Street alumni David Sancious and Boom Carter. (Photo credit: Phil Ceccola)
+**1976:** Bruce drops by The Main Point in Bryn Mawr, Pennsylvania to catch Tone, a band that includes E Street alumni David Sancious and Boom Carter. (Photo credit: Phil Ceccola)<br>
 
 ![](../../assets/2018/06/1976-0621.jpg)
 
-**1979:** Bruce and the E Street Band hold a recording session for *The River* at The Power Station in New York City.
+**1979:** Bruce and the E Street Band hold a recording session for *The River* at The Power Station in New York City.<br>
 
-**1984:** Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at Clair Brothers Audio in Lititz, Pennsylvania. That evening, the boys (the entire band except for Danny) drop by The Village in Lancaster and play a 35-minute set. You can listen to that entire set below in amazing quality–but be forewarned: you'll never hear the E Street Band sound eighties-er than they do here.
+**1984:** Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at Clair Brothers Audio in Lititz, Pennsylvania. That evening, the boys (the entire band except for Danny) drop by The Village in Lancaster and play a 35-minute set. You can listen to that entire set below in amazing quality–but be forewarned: you'll never hear the E Street Band sound eighties-er than they do here.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2VRaI53f)
 
@@ -26,7 +26,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eEJjBDNGmyU)
 
-**1985:** Bruce plays in Italy for the very first time, at the San Siro in Milan, home to many legendary Springsteen shows yet to come.
+**1985:** Bruce plays in Italy for the very first time, at the San Siro in Milan, home to many legendary Springsteen shows yet to come.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Cj7LIPEemPg)
 
@@ -46,7 +46,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fKER3FQJQ3g)
 
-**1988:** The Tunnel of Love Tour stops at Villa Park in Birmingham, England, for the first of two nights. "One Step Up" makes its final tour appearance at this show.
+**1988:** The Tunnel of Love Tour stops at Villa Park in Birmingham, England, for the first of two nights. "One Step Up" makes its final tour appearance at this show.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aLPJR6LC8pg)
 
@@ -58,23 +58,23 @@ Wondering how that show came to happen? Watch the interview below.
 
 ![](../../assets/2018/06/1988-0621.jpg)
 
-**1992:** At Night Two in Milan, "Badlands" makes its tour premiere and for the very first time, the crowd sings the instrumental bridge before the final verse, establishing a worldwide "Badlands" tradition forevermore. (*Of course*, that starts in Milan!) "Downbound Train," "Tougher than the Rest" and "Born to Run" make their tour debuts as well, and a soundcheck of "Club Soul City" is surreptitiously recorded.
+**1992:** At Night Two in Milan, "Badlands" makes its tour premiere and for the very first time, the crowd sings the instrumental bridge before the final verse, establishing a worldwide "Badlands" tradition forevermore. (*Of course*, that starts in Milan!) "Downbound Train," "Tougher than the Rest" and "Born to Run" make their tour debuts as well, and a soundcheck of "Club Soul City" is surreptitiously recorded.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2025/06/CSC_Milano_1992_KLICKAUD.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2025/06/CSC_Milano_1992_KLICKAUD.mp3?_=5)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/06/CSC_Milano_1992_KLICKAUD.mp3>
 
-**2003:** Nils celebrates his birthday on-stage with the E Street Band in Gothenburg, where the crowd serenades him with a Swedish birthday song at the end of "Mary's Place."
+**2003:** Nils celebrates his birthday on-stage with the E Street Band in Gothenburg, where the crowd serenades him with a Swedish birthday song at the end of "Mary's Place."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2aeAI8cl)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BjhQHD8t1gk)
 
-**2004:** Promoting her new album, *23rd Street Lullaby*, Patti Scialfa plays a mini-concert on *The Early Show*, including the title track, "You Can't Go Back," and "Rose."
+**2004:** Promoting her new album, *23rd Street Lullaby*, Patti Scialfa plays a mini-concert on *The Early Show*, including the title track, "You Can't Go Back," and "Rose."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jnPT7zjR)
 
-**2008:** Bruce and the E Street Band bring the Magic Tour to Hamburg, where they play "Held Up Without a Gun" for the first time in 28 years.
+**2008:** Bruce and the E Street Band bring the Magic Tour to Hamburg, where they play "Held Up Without a Gun" for the first time in 28 years.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YCnclWpvx84)
 
@@ -84,13 +84,13 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Vi3j3Gl74Yw)
 
-**2011:** At the memorial service for the late Clarence Clemons in Palm Beach, Bruce delivers Clarence's eulogy and performs a sad, acoustic "Tenth Avenue Freeze-Out" in tribute to the Big Man. Bruce and Jackson Browne close the ceremony with a duet of "You're a Friend of Mine."
+**2011:** At the memorial service for the late Clarence Clemons in Palm Beach, Bruce delivers Clarence's eulogy and performs a sad, acoustic "Tenth Avenue Freeze-Out" in tribute to the Big Man. Bruce and Jackson Browne close the ceremony with a duet of "You're a Friend of Mine."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lr6bSgqsCec)
 
 ![](../../assets/2021/06/2011-06-21.jpg)
 
-**2012:** The Wrecking Ball Tour stops at the Stadium of Light in Sunderland, England.
+**2012:** The Wrecking Ball Tour stops at the Stadium of Light in Sunderland, England.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_IC9Cnwag1g)
 
@@ -100,13 +100,13 @@ Wondering how that show came to happen? Watch the interview below.
 
 ![](../../assets/2024/06/The_Daily_Telegraph_Fri__Jun_22__2012_-scaled.jpg)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2023:** Bruce and the E Street Band open their show in Dusseldorf with the tour premiere of "The Ties That Bind."
+**2023:** Bruce and the E Street Band open their show in Dusseldorf with the tour premiere of "The Ties That Bind."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7WzDdeJixmU)
 
-**2025:** Bruce and the E Street Band bring the Land of Hope and Dreams Tour to San Sebastian for the first of two nights.
+**2025:** Bruce and the E Street Band bring the Land of Hope and Dreams Tour to San Sebastian for the first of two nights.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4wRycsNmu5g)
 

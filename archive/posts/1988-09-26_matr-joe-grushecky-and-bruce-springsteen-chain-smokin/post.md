@@ -20,14 +20,14 @@ Joe fortuitously had their hometown show at Nick’s Fat City in Pittsburgh reco
 
 Bruce and Joe have only played it together twice more since their 1995 tour together, but “Chain Smokin'” remains a fan and artist favorite. Catch Joe and The Houserockers in concert when they get back on the road, and odds are good you’ll catch a great rendition of “Chain Smokin’,” too.
 
-**Update 9/20/2021:** In advance of the 25th anniversary reissue of *American Babylon*, Joe released the original demo he and Bruce made for “Chain Smokin’.” Take a listen to the track that kicked off years of collaboration:
+**Update 9/20/2021:** In advance of the 25th anniversary reissue of *American Babylon*, Joe released the original demo he and Bruce made for “Chain Smokin’.” Take a listen to the track that kicked off years of collaboration:<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TTjzF7dHCHI)
 
-**Chain Smokin’
-Recorded:** October-November 1993
-**Released:** *American Babylon* (1995)
-**First performed:** August 20, 1994 (Long Branch, NJ)
-**Last performed:** July 18, 2015 (Asbury Park, NJ)
+**Chain Smokin’**<br>
+**Recorded:** October-November 1993<br>
+**Released:** *American Babylon* (1995)<br>
+**First performed:** August 20, 1994 (Long Branch, NJ)<br>
+**Last performed:** July 18, 2015 (Asbury Park, NJ)<br>
 
 © May 25, 2021

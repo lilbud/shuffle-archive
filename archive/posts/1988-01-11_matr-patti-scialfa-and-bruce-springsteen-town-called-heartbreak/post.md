@@ -49,12 +49,12 @@ That's too bad, because the E Street version is gloriously gritty and features s
 
 "Town Called Heartbreak" is one of Patti's strongest tracks, and her live performances with Bruce were highlights of the early Magic Tour. This one deserves to be heard from again soon.
 
-**Bonus:** Here's a rare live, televised solo Scialfa performance of "Town Called Heartbreak" from 2007 (with some familiar faces in her backing band).
+**Bonus:** Here's a rare live, televised solo Scialfa performance of "Town Called Heartbreak" from 2007 (with some familiar faces in her backing band).<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1J8a884WInk)
 
 **Town Called Heartbreak**<br>
-**Recorded:** Early 2007
+**Recorded:** Early 2007<br>
 **Released:** *Play It As It Lays* (2007)<br>
 **First performed:** September 25, 2007 (Asbury Park, NJ)<br>
 **Last performed:** November 12, 2007 (Washington, DC)<br>

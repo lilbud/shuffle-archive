@@ -83,7 +83,7 @@ I'll leave you with a terrific video of that performance of "Don't Look Back" â€
 
 [Watch Video Highlight](https://videopress.com/embed/7N8Z2fdo)
 
-**Bonus:** The lyrics for "Don't Look Back" may have been constantly evolving, but the backing track was pretty well set from the get-go. Here are two early instrumental takes that offer fascinating glimpses into fuller, more lush arrangements that might have breathed a bit more had Bruce pursued them.
+**Bonus:** The lyrics for "Don't Look Back" may have been constantly evolving, but the backing track was pretty well set from the get-go. Here are two early instrumental takes that offer fascinating glimpses into fuller, more lush arrangements that might have breathed a bit more had Bruce pursued them.<br>
 
 [Watch on Youtube: Bruce Springsteen DonÂ´t Look Back Instrumental](https://www.youtube.com/watch?v=y4X6BeO0d9M)
 
