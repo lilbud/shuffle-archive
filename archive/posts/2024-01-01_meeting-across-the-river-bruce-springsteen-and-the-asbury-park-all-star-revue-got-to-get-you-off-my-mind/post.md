@@ -4,8 +4,6 @@ For most of the shows–including "Got to Get You Off My Mind," which the Revue 
 
 [https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T02-Got-to-Get-You-Off-of-My-Mind.mp3](https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T02-Got-to-Get-You-Off-of-My-Mind.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T02-Got-to-Get-You-Off-of-My-Mind.mp3>
-
 "Got to Get You Off My Mind" was a 1965 hit written and recorded by Solomon Burke, who Bruce has often cited as an influence.
 
 [Watch on Youtube: Got to Get You off My Mind (Edit)](https://www.youtube.com/watch?v=JkVsWfj7JKo)

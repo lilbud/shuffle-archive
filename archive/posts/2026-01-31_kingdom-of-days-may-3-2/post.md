@@ -30,8 +30,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3](https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/2000-05-03.jpg)
 
 **2001:** *Live in New York City* is certified platinum by the Recording Industry Association of America.<br>

@@ -6,8 +6,6 @@ Bruce has cited The Who as a major influence on several occasions, including thi
 
 [https://estreetshuffle.com/wp-content/uploads/2018/03/01-Track-11.mp3](https://estreetshuffle.com/wp-content/uploads/2018/03/01-Track-11.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/03/01-Track-11.mp3>
-
 Bonus footage: One minute of pro-shot footage from 2009, where Bruce and the E Street Band covered “My Generation” by sign request.
 
 [Watch on Youtube: Bruce Springsteen - My Generation - Live from University Park - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=21ShrNP31CY)

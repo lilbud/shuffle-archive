@@ -58,8 +58,6 @@ Which is exactly how Bruce seems to have treated it: "When You Need Me" has neve
 
 [https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3](https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3>
-
 **Update** #2: I'm humbled today by how sharp my readers are–Magnus Lauglo noticed that in the last verse, the tense shifts to the present: "'cause without you my life just isn't the same." That implies that "When You Need Me" is more than just a sweet love song; it's a song about the bond that persists even after a relationship ends. It deepens the song considerably, and I may have to upgrade my opinion of the song as a result. Thanks, Magnus!<br>
 
 **When You Need Me**<br>

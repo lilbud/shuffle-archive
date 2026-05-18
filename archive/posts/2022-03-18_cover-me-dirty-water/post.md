@@ -8,8 +8,6 @@ If you're gonna rock in Boston, sooner or later you've got to play "Dirty Water.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/03/02-Dirty-Water.mp3](https://estreetshuffle.com/wp-content/uploads/2022/03/02-Dirty-Water.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/03/02-Dirty-Water.mp3>
-
 By the 21st century, however, "Dirty Water" had been lovingly embraced by sports fans in the town The Standells paid questionable tribute to, and the song was frequently heard at Bruins hockey games in (finally!) Boston.
 
 Which is exactly where Bruce next played it: at the FleetCenter (formerly the Boston Garden) with hometown hero Peter Wolf joining Bruce and the E Street Band on stage for a special final encore on the Rising Tour in 2002.

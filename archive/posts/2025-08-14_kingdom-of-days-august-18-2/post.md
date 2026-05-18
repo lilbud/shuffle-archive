@@ -12,11 +12,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/08/101-Born-in-the-USA.mp3](https://estreetshuffle.com/wp-content/uploads/2022/08/101-Born-in-the-USA.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/08/101-Born-in-the-USA.mp3>
-
 [https://estreetshuffle.com/wp-content/uploads/2022/08/306-Jersey-Girl.mp3](https://estreetshuffle.com/wp-content/uploads/2022/08/306-Jersey-Girl.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/08/306-Jersey-Girl.mp3>
 
 [Watch on Youtube: Bruce Springsteen - Giants Stadium, August 18-19, 1985 news coverage](https://www.youtube.com/watch?v=Yl845kNMzmA)
 
@@ -89,8 +85,6 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 **2021:** Bruce debuts Episode 26 of *From My Home to Yours,* entitled “My Hometown,” on E Street Radio. Later that evening, *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/08/2021-08-18-Bruce-E-Street-Radio-DJ-set-26.mp3](https://estreetshuffle.com/wp-content/uploads/2022/08/2021-08-18-Bruce-E-Street-Radio-DJ-set-26.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/08/2021-08-18-Bruce-E-Street-Radio-DJ-set-26.mp3>
 
 **2023:** Bruce’s scheduled show at Citizens Bank Park in Philadelphia is postponed by more than a year due to illness.<br>
 

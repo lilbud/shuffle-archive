@@ -53,8 +53,6 @@ Here is The Bruce Springsteen Band performing "She's Leaving" at the legendary S
 
 [https://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3>
-
 There are some notable differences in this version: Instead of suffering humiliation in front of his friends, Bruce just wants to crawl up into a ball. The bridge couplet is missing, but most significantly, there are several additional verses that follow our protagonist down a tightening spiral of self-pity.
 
 It's not clear whether Bruce dropped the additional verses because he realized they were overkill, or whether it was a natural editing exercise. (Several of the verses that survived to the recorded demo were tightened as well.) Maybe Bruce just realized that without a band to gradually build the song's emotional intensity, the lyrics would quickly outpace his acoustic guitar.

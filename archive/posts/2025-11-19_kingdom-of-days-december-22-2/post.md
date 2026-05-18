@@ -24,8 +24,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/12/AT40-1984-12-22.mp3](https://estreetshuffle.com/wp-content/uploads/2021/12/AT40-1984-12-22.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/12/AT40-1984-12-22.mp3>
-
 **2002:** Bruce holds a private holiday party and performance at The Stone Pony in Asbury Park.<br>
 
 **2008:** Bruce makes a surprise appearance at Bobby Bandiera’s Hope Concert at the Count Basie Theater in Red Bank, performing a few numbers with Jon Bon Jovi, Southside Johnny, Gary U.S. Bonds, and others.<br>

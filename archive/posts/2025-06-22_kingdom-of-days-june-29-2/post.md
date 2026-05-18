@@ -106,8 +106,6 @@ Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-
 
 [https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3](https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3>
-
 **2013:** Bruce and the E Street Band bring the Wrecking Ball Tour to Stade de France outside of Paris, where lucky fans get an acoustic pre-show that features a cover of “[Burning Love](https://estreetshuffle.com/index.php/2018/05/01/cover-me-burning-love/).” Elliot Murphy and his son guest-star on “Born to Run,” and Bruce tour premieres “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” in the opening pack.<br>
 
 [Watch on Youtube: Bruce Springsteen - Lucille - Stade de France - Paris - 29.06.2013](https://www.youtube.com/watch?v=RPNgL3dOTpM)

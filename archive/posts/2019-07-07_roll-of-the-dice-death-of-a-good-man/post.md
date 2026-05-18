@@ -6,7 +6,7 @@ The 1968 Notebook was unveiled at an auction in 2006. where it was snapped up fo
 
 Today's entry is buried deep in the heart of the notebook, and it reads more like a newspaper article than a song–an article that could just as easily be printed today, more than a half century later. Let's take a look at the eleventh entry in Bruce's notebook: "Death of a Good Man," dated April 30, 1968.
 
-![](../../assets/2019/01/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2021/06/1968_lyricsnotebook-contentspage.jpg)
 
 It's June of 2019 as I write this, in an American society that has become inured to mass shootings. In 1968, they were a lot less common, and yet Bruce–barely past his childhood–managed to capture the confusion we all feel when we learn a heretofore upstanding member of the community had been harboring a simmering rage.
 

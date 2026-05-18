@@ -6,7 +6,7 @@
 
 **1973:** Bruce and the band play their third of seven nights at Oliver’s in Boston.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316.jpg)
 
 **1975:** Extended studio sessions for *Born to Run* prompt the postponement of a scheduled show in Atlanta.<br>
 

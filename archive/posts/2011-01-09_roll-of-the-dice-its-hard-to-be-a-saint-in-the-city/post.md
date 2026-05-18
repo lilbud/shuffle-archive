@@ -95,8 +95,6 @@ In electric form, it seemed to serve primarily as a showcase for Bruce's guitar-
 
 [https://estreetshuffle.com/wp-content/uploads/2018/10/06-Its-Hard-To-Be-A-Saint-In-The-City-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/10/06-Its-Hard-To-Be-A-Saint-In-The-City-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/10/06-Its-Hard-To-Be-A-Saint-In-The-City-online-audio-converter.com_.mp3>
-
 As the years passed, it evolved into a guitar duel between Bruce and Steve, which was fun and impressive but completely overshadowed and undermined the content of the song.
 
 [Watch on Youtube: Bruce Springsteen - Saint In The City (London '75)](https://www.youtube.com/watch?v=1fwaS01Zg5k)

@@ -8,8 +8,6 @@ Actress Ashley Johnson and writer-singer Brian W. Foster felt it, too. Foster ha
 
 [https://a.tumblr.com/tumblr_pgcvdjuami1r0xd1ao1.mp3](https://a.tumblr.com/tumblr_pgcvdjuami1r0xd1ao1.mp3)
 
-<https://a.tumblr.com/tumblr_pgcvdjuami1r0xd1ao1.mp3>
-
 He never got around to posting a complete cover, though… at least not solo.
 
 But last March, back in the earliest, scariest days of the pandemic, Foster and Johnson (who have been engaged since 2018) recorded a version of "Radio Nowhere" together, under the name The Wild Years.

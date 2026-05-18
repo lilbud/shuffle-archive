@@ -88,8 +88,6 @@ Strangely enough, sandwiched into an encore that included "Born to Run," "[Fortu
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/1987-10-31-Two-Faces.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/1987-10-31-Two-Faces.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/05/1987-10-31-Two-Faces.mp3>
-
 (The crowd didn't sound particularly impressed, but given the circumstances I can understand why. I'm guessing the costume theme of the evening might have inspired the song's inclusion.)
 
 "Two Faces" returned months later when the Tunnel of Love Express Tour kicked off, and it remained a nightly staple in the set list throughout most of the tour.

@@ -14,8 +14,6 @@ Bruce and Billy’s main set has been circulating broadly for a while now, but t
 
 [https://estreetshuffle.com/wp-content/uploads/2021/11/Signed-Sealed-2008-10-16.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/Signed-Sealed-2008-10-16.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/11/Signed-Sealed-2008-10-16.mp3>
-
 And if audio from that performance is rare, video is scarcer still. But check this out: it’s only about a minute or so, but it’s enough to capture the energy and excitement in the room that night, and the anticipation of eight years to come.
 
 [Watch on Youtube: Barack Obama Signed, Sealed & Delivered at NYC Change Rocks](https://www.youtube.com/watch?v=Gz20pPR3yXU)

@@ -61,5 +61,3 @@
 **2020:** After almost a month’s hiatus, *From My Home to Yours* returns with Volume 15, “We’re a Winner.”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/11/2020-11-25-Bruce-E-Street-Radio-DJ-set-15.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/2020-11-25-Bruce-E-Street-Radio-DJ-set-15.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/11/2020-11-25-Bruce-E-Street-Radio-DJ-set-15.mp3>

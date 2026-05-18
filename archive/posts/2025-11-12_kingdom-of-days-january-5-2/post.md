@@ -36,8 +36,6 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 [https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3](https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3>
-
 **1994:** Bruce’s youngest child, Sam Ryan Springsteen, is born in Los Angeles.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/Quad_City_Times_1994_01_08_2-scaled.jpg)

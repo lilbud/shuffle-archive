@@ -20,13 +20,9 @@ According to Bruce, he'd been playing "Carol" on stage in bars long before that 
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/1981-08-06-Washington-01.-Carol.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/1981-08-06-Washington-01.-Carol.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/02/1981-08-06-Washington-01.-Carol.mp3>
-
 …and future E Street bandmate Nils Lofgren.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/02-Bruce-Springsteen-with-Nils-Lofgren.-Carol.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/02-Bruce-Springsteen-with-Nils-Lofgren.-Carol.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/02/02-Bruce-Springsteen-with-Nils-Lofgren.-Carol.mp3>
 
 Bruce's ease and familiarity with Berry's song is evident in every performance, which is probably why it popped up so often in Bruce's string of surprise club appearances in the eighties.
 

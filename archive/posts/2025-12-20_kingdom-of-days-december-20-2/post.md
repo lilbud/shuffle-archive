@@ -41,5 +41,3 @@
 **2020:** Bruce phones E Street Radio DJ Jim Rotolo for a year-in-review discussion, during which Bruce surprises fans with the premiere of an E Street Band cover of Slim Dunlap's "Girlfriend."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2025/12/2024-12-20-Bruceon-E-St-Radio.mp3](https://estreetshuffle.com/wp-content/uploads/2025/12/2024-12-20-Bruceon-E-St-Radio.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2025/12/2024-12-20-Bruceon-E-St-Radio.mp3>

@@ -8,8 +8,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3](https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3>
-
 **1976:** Bruce continues his Chicken Scratch Tour of the south with a show at Louisiana State University in Baton Rouge.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/1976-0508.jpg)

@@ -28,8 +28,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3>
-
 **1992:** It’s Election Day in the United States, and during Bruce’s show in Milwaukee, Bill Clinton is declared the winner. Bruce congratulates him from the stage, dedicating (fittingly) “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/).”<br>
 
 [Watch on Youtube: Bruce Springsteen - "Glory Days" Milwaukee, 1992-11-03](https://www.youtube.com/watch?v=kItDzU6Jz38)

@@ -84,8 +84,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2023/12/d1t06-Springsteen-Intro__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/d1t06-Springsteen-Intro__Merged.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/12/d1t06-Springsteen-Intro__Merged.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/2006-12-02.png)
 
 **2007:** The Magic Tour continues its trek across Europe, as Bruce and the E Street Band arrive at the SAP Arena in Mannheim.<br>

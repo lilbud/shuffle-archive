@@ -14,8 +14,6 @@ And yet, if we can pretend that we've never listened to "Factory," "[Out in the 
 
 [https://estreetshuffle.com/wp-content/uploads/2020/12/113-Lets-Go-Tonight-v2.mp3](https://estreetshuffle.com/wp-content/uploads/2020/12/113-Lets-Go-Tonight-v2.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2020/12/113-Lets-Go-Tonight-v2.mp3>
-
 In the clip above, we can clearly hear that this is a song where the music preceded the lyrics–melodically, "Come On (Let's Go Tonight)"/"Factory" was fully formed from the beginning (even if it lacks the gorgeous David Lindley violin overdub that was added later).
 
 Lyrically, though, this is definitely an early draft. There's a lot of bluffing going on, but there's at least one gem of a line that Bruce ultimately discarded but which truly deserved to be adopted elsewhere:

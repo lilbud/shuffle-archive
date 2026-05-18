@@ -4,8 +4,6 @@ You're about to hear the earliest live recording of Bruce Springsteen performing
 
 [https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3>
-
 I'll warn you that the recording is terrible. It's impossible to make out most of the lyrics, and the best I've been able to do is *mostly* decipher three consecutive lines (the final verse, in which the singer says goodbye, looks up into an orange cloud-filled sky and witnesses the strangest sight he's ever seen).
 
 But it's clearly Bruce singing the lead vocal, and it's a fascinating historical document of his very beginning days as a musician, performing at a teen club called The Left Foot in Freehold. (You can even hear him ask the audience for requests, a practice that continues to this day.)

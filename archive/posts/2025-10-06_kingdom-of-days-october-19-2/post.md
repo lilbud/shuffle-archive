@@ -122,6 +122,4 @@
 
 [Watch on Youtube: Bruce Springsteen - Apple Music 'Letter To You' Interview](https://www.youtube.com/watch?v=PhkL4K7Esc0)
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-19-LTY-Radio-1-Bruce-Clive-Davis-Jon-Landau-1.mp35](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-19-LTY-Radio-1-Bruce-Clive-Davis-Jon-Landau-1.mp35)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-19-LTY-Radio-1-Bruce-Clive-Davis-Jon-Landau-1.mp3>
+[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-19-LTY-Radio-1-Bruce-Clive-Davis-Jon-Landau-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-19-LTY-Radio-1-Bruce-Clive-Davis-Jon-Landau-1.mp3)

@@ -4,8 +4,6 @@ On the Born to Run Tour, one of the more frequent covers (performed 13 times) wa
 
 [https://estreetshuffle.com/wp-content/uploads/2018/02/110-Sha-la-La.mp3](https://estreetshuffle.com/wp-content/uploads/2018/02/110-Sha-la-La.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/02/110-Sha-la-La.mp3>
-
 Bruce clearly modeled his take on "Sha La La" after Manfred Mann's 1964 version (which hit #3 in the UK, #12 in the US).
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Xz2CXDFmz5w)

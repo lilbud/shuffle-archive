@@ -14,8 +14,6 @@ Jeff Stevens and the Bullets recorded “Darlington County” as their debut sin
 
 [https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3>
-
 The single was successful enough to earn Stevens a live television performance on The Nashville Network in 1987.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cO6_vEfNGHg)

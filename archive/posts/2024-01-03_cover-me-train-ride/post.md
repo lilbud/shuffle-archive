@@ -16,8 +16,6 @@ But Robbin brought more than just his vocal talents to the band–he also brough
 
 [https://estreetshuffle.com/wp-content/uploads/2021/09/TRAIN-RIDE.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/TRAIN-RIDE.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/09/TRAIN-RIDE.mp3>
-
 Steel Mill's version of "Train Ride" was a far cry from Mercy Flight's. Robbin's new band was a *rock* band, not a rock-and-roll band; Steel Mill's version of "Train Ride" is a fourteen-minute hard-rocking guitar jam that would be unrecognizable if not for its lyrics.
 
 [Watch on Youtube: Bruce Springsteen and Steel Mill: Train Ride 1970 11 27, Sunshine In, Asbury Park, NJ](https://www.youtube.com/watch?v=uZV-rKsHjEg)

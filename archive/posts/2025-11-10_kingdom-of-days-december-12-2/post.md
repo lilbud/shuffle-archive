@@ -54,8 +54,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/2006-12-12.png)
 
 **2007:** Bruce tour premieres “Because the Night” at his Magic Tour stop in Antwerp.<br>

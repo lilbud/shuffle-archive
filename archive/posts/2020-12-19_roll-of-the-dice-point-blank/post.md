@@ -133,8 +133,6 @@ Interestingly, Bruce bluffed most of the lyrics beyond the familiar first verse,
 
 [https://estreetshuffle.com/wp-content/uploads/2020/12/120-Point-Blank-3-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2020/12/120-Point-Blank-3-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2020/12/120-Point-Blank-3-online-audio-converter.com_.mp3>
-
 Bruce found the lyrics he was looking for in "[Party Lights](https://estreetshuffle.com/index.php/2019/11/14/roll-of-the-dice-party-lights/)," another song he'd written and recorded for *The River.*
 
 [Watch on Youtube: Bruce Springsteen - Party Lights (The River: Outtakes) [Lyric]](https://www.youtube.com/watch?v=S2WWQAvS_6I)

@@ -16,7 +16,7 @@ I didn't leave from the moment I arrived back at the venue in the morning; once 
 
 As showtime grew closer, the band arrived for soundcheck, and those of us in position were lucky enough to hear one of the first performances of an early version of "." The sound was too muffled for us to make out the words, but we heard the music and could tell we were bearing witness to a new song being worked out. That very performance leaked out last year–you can hear it here:
 
-[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)<http://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3>
+[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)
 
 I have to admit: while I appreciate and prefer the lottery system for its relative lack of stress and expended energy, it's nice to know from the get-go that you'll have a great place in the pit–and I did. I was about 80th in line, so I knew I'd have a pretty good vantage point. On the advice of new friends, we made a beeline for the left side of the stage rather than the center, and I ended up with just one person between me and the stage.
 

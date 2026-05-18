@@ -12,8 +12,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2019/11/Bruce-Springsteen-1974-11-23.mp3](https://estreetshuffle.com/wp-content/uploads/2019/11/Bruce-Springsteen-1974-11-23.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/11/Bruce-Springsteen-1974-11-23.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2018/11/1974-1123.jpg)
 
 **1975:** Bruce plays his first-ever show in the Netherlands, a Born to Run Tour stop at RAI Amsterdam.<br>
@@ -63,8 +61,6 @@
 **2022:** Bruce makes and appearance by phone on E Street Radio, speaking with Jim Rotolo about his new album, *Only the Strong Survive.* That evening, he appears on *Late Night with Seth Meyers*.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2023/11/2022-11-23-Bruce-on-E-St-Radio.mp3](https://estreetshuffle.com/wp-content/uploads/2023/11/2022-11-23-Bruce-on-E-St-Radio.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2023/11/2022-11-23-Bruce-on-E-St-Radio.mp3>
 
 [Watch on Youtube: Obama Inspired Bruce Springsteen to Write a Broadway Show](https://www.youtube.com/watch?v=u_YYMuZIOWU)
 

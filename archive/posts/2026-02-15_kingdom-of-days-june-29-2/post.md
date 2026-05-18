@@ -104,8 +104,6 @@ Meanwhile, "Glory Days," Bruce's latest single, climbs the charts and is profile
 
 [https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3](https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3>
-
 **2013:** Bruce and the E Street Band bring the Wrecking Ball Tour to Stade de France outside of Paris, where lucky fans get an acoustic pre-show that features a cover of "Burning Love." Elliot Murphy and his son guest-star on "Born to Run," and Bruce tour premieres "Lucille" in the opening pack.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RPNgL3dOTpM)

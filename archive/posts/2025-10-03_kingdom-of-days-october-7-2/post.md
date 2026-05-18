@@ -54,8 +54,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-07-Bruce-E-Street-Radio-DJ-set-13-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-07-Bruce-E-Street-Radio-DJ-set-13-1.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-07-Bruce-E-Street-Radio-DJ-set-13-1.mp3>
-
 Later that day, Bruce records a promotional interview for [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)with Zane Lowe. The interview will be aired on Apple Music later this month.
 
 [Watch on Youtube: Bruce Springsteen - Apple Music 'Letter To You' Interview](https://www.youtube.com/watch?v=PhkL4K7Esc0)

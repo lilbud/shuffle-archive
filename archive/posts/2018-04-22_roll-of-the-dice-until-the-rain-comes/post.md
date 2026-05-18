@@ -2,11 +2,11 @@ Today's entry is an unusual one. I've covered unreleased songs and even work-in-
 
 The only reason we know that "Until the Rain Comes" exists is that its lyrics were included in the 2006 public auction of a notebook containing lyrics from songs Bruce had written in 1968 at the tender age of eighteen.
 
-![](../../assets/2018/04/1968_lyricsnotebook.jpg)
+![](../../assets/2019/01/1968_lyricsnotebook.jpg)
 
 The table of contents shows several previously-unknown songs.
 
-![](../../assets/2018/04/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2021/06/1968_lyricsnotebook-contentspage.jpg)
 
 The ninth song, "Until the Rain Comes," is actually known to have been played by Bruce during his solo acoustic shows that spring and summer, but no recording has surfaced.
 

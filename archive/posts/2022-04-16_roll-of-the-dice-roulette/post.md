@@ -22,8 +22,6 @@ Bruce continued working on his song that week, and on April 3rd–just four days
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/208-Roulette-1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/208-Roulette-1.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/04/208-Roulette-1.mp3>
-
 Bruce's song was called "Roulette," after the way state officials were taking chances and placing bets on the safety of its residents. "Roulette" captured the sense of fear, panic, and distrust that was prevalent in the immediate aftermath of the accident–distrust bordering on paranoia.
 
 Even in its earliest full-band version, "Roulette" kicks off with a terrifying drum entrance by Max Weinberg on the tom-toms and a suspenseful guitar riff lifted from Magazine's "Shot by Both Sides."

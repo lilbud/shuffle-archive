@@ -64,6 +64,4 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-01-Bruce-E-Street-Radio-DJ-set-7.mp3](https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-01-Bruce-E-Street-Radio-DJ-set-7.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-01-Bruce-E-Street-Radio-DJ-set-7.mp3>
-
 **2021:** *Springsteen on Broadway* continues its return engagement at the St. James Theater in New York City.<br>

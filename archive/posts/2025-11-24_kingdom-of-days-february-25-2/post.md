@@ -2,11 +2,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3>
-
 [https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3>
 
 **1974:** Sick with the flu, Bruce somehow manages to perform at The Main Point in Bryn Mawr, Pennsylvania, but he is forced to sit for the entire performance. Even though he’s sick, a photo from this evening will become the cover of *Tracks* 24 years later. (photo credits: Phil Ceccola)<br>
 

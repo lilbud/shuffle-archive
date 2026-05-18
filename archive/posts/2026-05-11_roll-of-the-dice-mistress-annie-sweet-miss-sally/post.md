@@ -10,13 +10,9 @@ Take a listen and decide for yourself who Bruce is singing about. (Me, I hear a 
 
 [https://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3>
-
 Now compare with this 1971 recording:
 
 [https://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3>
 
 Whether it's Sally or Annie, either way it seems that the woman question is a lady of the evening, a visit with whom is a rite of passage for a young man. The idea of poppas bringing their sons to see her (much less sons begging their poppas to do so) is kind of creepy, though, so let's not dwell on the lyrics for this one.
 

@@ -28,7 +28,7 @@
 
 **2003:** Bruce and the E Street Band close out their ten-night stand at Giants Stadium, opening with the very first live performance of "[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)." A few songs later, "[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)" makes its only tour appearance, and a full-band "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" fittingly closes the show.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp33](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp33)
+[https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3)
 
 [Watch Video Highlight](https://videopress.com/embed/7Ahqp4On)
 

@@ -38,8 +38,6 @@ Later that night–so late that it's technically the following day, August 31–
 
 [https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3>
-
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yi7DO6uBlXM)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=35gqbd3yZ3A)

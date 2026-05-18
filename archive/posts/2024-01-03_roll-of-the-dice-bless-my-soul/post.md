@@ -12,8 +12,6 @@ Do yourself a favor and take nine minutes out of your day to enjoy the opening s
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3>
-
 Despite the remarkable sound clarity, Bruce's diction is too lazy for us to make out most of the lyrics. (All circulating versions of "Bless My Soul" have this problem.) But don't let that disappoint you: I'm confident the lyrics are irrelevant to this particular song.
 
 "Bless My Soul" is a band showcase, designed to establish their sound and spotlight the talents of the individual members, all of whom get a chance to shine and are acknowledged by name: Steve Van Zandt, Garry Tallent, Dave Sancious, and "Crazy Vince" Lopez. (Bruce would come up with a better nickname soon.)

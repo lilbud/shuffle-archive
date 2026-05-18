@@ -12,6 +12,7 @@ from bs4 import BeautifulSoup as bs4
 from user_agent import generate_user_agent
 
 from cleanup import initial_cleanup
+from convert import save_to_archive
 from database import load_db
 
 # toedit = []
@@ -44,14 +45,13 @@ from database import load_db
 #         json.dump(data, f)
 
 with load_db() as conn, conn.cursor() as cur:
-    folder = Path(r"./archive/posts")
+    folder = Path(r".\archive\posts\2024-01-02_cover-me-fire")
 
-    for file in folder.glob("**/*.md"):
-        # print(file.parent.name)
-        content = file.read_text(encoding="utf-8")
+    data = Path(folder, "meta.json").read_text(encoding="utf-8")
 
-        for line in content.split("\n"):
-            if line.startswith("**") and not line.endswith("<br>") and ":**" in line:
-                content = content.replace(line, f"{line}<br>")
+    data = json.loads(data)
 
-        file.write_text(content, encoding="utf-8")
+    content = initial_cleanup(data["content"]["rendered"])
+    content = html_to_markdown.convert(content)
+
+    Path(folder, "post.md").write_text(content, encoding="utf-8")

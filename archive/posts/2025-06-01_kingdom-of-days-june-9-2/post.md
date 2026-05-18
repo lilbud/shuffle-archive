@@ -55,5 +55,3 @@
 **2021:** *From My Home to Yours* continues its run on E Street Radio with Episode 23, “Old Bones.”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3>

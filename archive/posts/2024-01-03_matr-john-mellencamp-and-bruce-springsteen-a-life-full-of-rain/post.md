@@ -14,17 +14,13 @@ It took a little longer than that, but Mellencamp finally released *Strictly a O
 
 Bruce's third album appearance went almost completely under the radar.
 
-[https://audio.pulsewebcontent.com/MP3/2022/01_jan/John_Mellencamp_On_Sessions_With_Bruce_Springsteen.mp30](https://audio.pulsewebcontent.com/MP3/2022/01_jan/John_Mellencamp_On_Sessions_With_Bruce_Springsteen.mp30)
-
-<https://audio.pulsewebcontent.com/MP3/2022/01_jan/John_Mellencamp_On_Sessions_With_Bruce_Springsteen.mp3>
+[https://audio.pulsewebcontent.com/MP3/2022/01_jan/John_Mellencamp_On_Sessions_With_Bruce_Springsteen.mp3](https://audio.pulsewebcontent.com/MP3/2022/01_jan/John_Mellencamp_On_Sessions_With_Bruce_Springsteen.mp3)
 
 "He's playing guitar on ‘(A) Life Full of Rain,' Mellencamp told MyRadioLink.com, "He's playin' the lead. ‘Cause Bruce started out as a lead guitar player — he wasn't so much the singer of the band as he was the guitar player. So he had that ability to play that type of guitar."
 
 It wasn't the first time Mellencamp praised Bruce's melodic talents. While most fans and critics focus on his lyrics, Mellencamp had this to say to Howard Stern in 2018:
 
-[https://estreetshuffle.com/wp-content/uploads/2022/07/John_Mellencamp_On_Bruce_Springsteen1.mp31](https://estreetshuffle.com/wp-content/uploads/2022/07/John_Mellencamp_On_Bruce_Springsteen1.mp31)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/07/John_Mellencamp_On_Bruce_Springsteen1.mp3>
+[https://estreetshuffle.com/wp-content/uploads/2022/07/John_Mellencamp_On_Bruce_Springsteen1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/John_Mellencamp_On_Bruce_Springsteen1.mp3)
 
 "A Life Full of Rain" is a moody and contemplative closing track, featuring gruff solo vocals from Mellencamp and an emotive Springsteen guitar solo unlike anything we've heard from him on his own albums.
 

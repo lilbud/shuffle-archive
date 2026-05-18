@@ -62,8 +62,6 @@ Wondering how that show came to happen? Watch the interview below.
 
 [https://estreetshuffle.com/wp-content/uploads/2025/06/CSC_Milano_1992_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2025/06/CSC_Milano_1992_KLICKAUD.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/06/CSC_Milano_1992_KLICKAUD.mp3>
-
 **2003:** Nils celebrates his birthday on-stage with the E Street Band in Gothenburg, where the crowd serenades him with a Swedish birthday song at the end of "Mary's Place."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2aeAI8cl)

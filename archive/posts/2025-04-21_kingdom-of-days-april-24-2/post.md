@@ -106,9 +106,7 @@
 
 **2020:** Bruce makes an encore appearance as an E Street Radio DJ when he premieres a second installment of *From My Home to Yours.*<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-24-Bruce-E-Street-Radio-DJ-set-2-1.mp31](https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-24-Bruce-E-Street-Radio-DJ-set-2-1.mp31)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-24-Bruce-E-Street-Radio-DJ-set-2-1.mp3>
+[https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-24-Bruce-E-Street-Radio-DJ-set-2-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-24-Bruce-E-Street-Radio-DJ-set-2-1.mp3)
 
 **2022:** Bruce joins Gary Clark Jr. to open the 23rd annual Mark Twain Prize for American Humor ceremony (honoring Jon Stewart) with a smoking cover of “[Come Together](https://estreetshuffle.com/index.php/2018/01/15/meeting-across-the-river-bruce-springsteen-and-axl-rose/).” Later in the evening, he returns to perform a solo acoustic “Born to Run.”<br>
 

@@ -2,7 +2,7 @@
 
 **1973:** Bruce and his band headline two shows at My Father's Place in Roslyn, New York.<br>
 
-![](../../assets/2019/10/1973-11-15.jpg)
+![](../../assets/2019/10/1973-11-14.jpg)
 
 **1974:** Bruce and the E Street Band play a show at Lafayette College in Easton, Pennsylvania.<br>
 
@@ -86,7 +86,7 @@ Meanwhile, for those of us not at the show, The Ben Stiller show gets educationa
 
 **2010:** Bruce appears on Sirius XM radio for a Q&A with fans to celebrate the release of *The Promise: The Darkness on the Edge of Town Story.*<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2024/11/Bruce-Darkness-on-the-Edge-of-Your-Town-Promise-QA-Session-Sirius-E-Street-Radio-2.mp32](https://estreetshuffle.com/wp-content/uploads/2024/11/Bruce-Darkness-on-the-Edge-of-Your-Town-Promise-QA-Session-Sirius-E-Street-Radio-2.mp32)
+[https://estreetshuffle.com/wp-content/uploads/2024/11/Bruce-Darkness-on-the-Edge-of-Your-Town-Promise-QA-Session-Sirius-E-Street-Radio-2.mp3](https://estreetshuffle.com/wp-content/uploads/2024/11/Bruce-Darkness-on-the-Edge-of-Your-Town-Promise-QA-Session-Sirius-E-Street-Radio-2.mp3)
 
 **2012:** Bruce's Wrecking Ball show in Omaha is the closest we've come to a full-album *Nebraska* performance, with six songs from that album played, three of which are tour premieres. We're also getting close to the holidays now, which means it's time for Santa Claus to come to town.<br>
 

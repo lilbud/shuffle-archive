@@ -64,8 +64,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2019/09/20090106_atc_preglorydays.mp3](https://estreetshuffle.com/wp-content/uploads/2019/09/20090106_atc_preglorydays.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/09/20090106_atc_preglorydays.mp3>
-
 **2009:** In Greenville, South Carolina, Bruce and the E Street Band tour premiere “[(I Can’t Get No) Satisfaction](https://estreetshuffle.com/index.php/2022/02/02/matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/)” and “[Double Shot (of My Baby’s Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/),” performing the latter with The Swingin’ Medallions themselves. Jay Weinberg helms the drums for the entire show–the last time he’ll do that on this tour.<br>
 
 [Watch on Youtube: Bruce Springsteen 9/16/09 Greenville SC "Double Shot (of my babys love)" with the Swinging Medalions](https://www.youtube.com/watch?v=IiV0IRpXhBA)
@@ -83,7 +81,5 @@
 **2020:** Bruce bids farewell to the Summer of 2020 with “Summer’s End,” the twelfth installment of his *From My Home to Yours* radio show on E Street Radio.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-16-Bruce-E-Street-Radio-DJ-set-12.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-16-Bruce-E-Street-Radio-DJ-set-12.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-16-Bruce-E-Street-Radio-DJ-set-12.mp3>
 
 **2023:** Bruce’s scheduled show at Mohegan Sun Arena in Uncasville is postponed for a second time, this time to seven months later.<br>

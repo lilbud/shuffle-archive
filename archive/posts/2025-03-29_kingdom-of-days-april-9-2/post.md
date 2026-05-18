@@ -32,13 +32,9 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/Twist-Shout-1982-04-09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/Twist-Shout-1982-04-09.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/04/Twist-Shout-1982-04-09.mp3>
-
 **1988:** While introducing Bruce’s current hit on the charts (“[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)“), *American Top 40* host Casey Kasem reveals how *Us Magazine’s* derision of Bruce’s physique prompted him to bulk up.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp3>
 
 **1992:** *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*is certified is 2x multi-platinum by the Recording Industry Association of America.<br>
 

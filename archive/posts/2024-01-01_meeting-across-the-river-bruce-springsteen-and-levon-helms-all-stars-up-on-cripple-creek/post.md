@@ -4,8 +4,6 @@ Take a listen:
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/01-Up-On-Cripple-Creek-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/01-Up-On-Cripple-Creek-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/01/01-Up-On-Cripple-Creek-online-audio-converter.com_.mp3>
-
 [Watch Video Highlight](https://videopress.com/embed/8mnXClx5)
 
 And of course, here’s the original by The Band from way back in 1969.

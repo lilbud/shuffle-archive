@@ -40,8 +40,6 @@ Apparently, however, Bruce had confidence to spare. He turned up in Highlands to
 
 [https://estreetshuffle.com/wp-content/uploads/2023/12/Bruce-Invite1.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/Bruce-Invite1.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/12/Bruce-Invite1.mp3>
-
 I've listened to the entire show, and it's clear to me that Bruce had not rehearsed any material. Not because he sounded rusty or anything–in fact, it's astounding to hear the confidence and skill with which the 22-year-old artist not only plays in but essentially fronts someone else's band.
 
 It's simply that this was a true jam session, with music created on the spot drawn from tribal memory and instinct. Although the set rests on a foundation of mostly covers, Bruce doesn't appear to know or remember all the words to the songs they perform together. Not that it stops him.
@@ -71,8 +69,6 @@ But oh my gosh, what a gorgeous recording: over fourteen minutes of crystal clea
 Again, this recording has not circulated until now. So do yourself a favor, clear your schedule for fifteen minutes, and take a listen to this piece of history.
 
 [https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3>
 
 Bruce starts off tentatively, buying himself some time to think of a theme with a few bars of "sweet mama" vamping. But before long, he's off and running, weaving a story about an old flame named Janey and the death of the relationship (if not Janey herself) due to an unplanned pregnancy. (Again, it's not worth trying to analyze the lyrics–this is stream-of-consciousness composition, and it's best appreciated for what it is.)
 
@@ -151,8 +147,6 @@ The band takes it down for the final minute, and if we listen closely we can hea
 Amusingly, Bruce knows barely any of the words, so he substitutes with some song lyrics he'd recorded for his upcoming album but had as yet not sang in public. I shared that performance for the first time [last year](https://estreetshuffle.com/index.php/2023/09/09/kingdom-of-days-september-9-2/), but here it is in context, segueing directly out of "Water Station."
 
 [https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3](https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3>
 
 The band (and presumably some of the crowd), made their way to the bar after that, the First Annual Highlands Music and Art Fair now in the books. Although press coverage was, I suppose, positive (I think? The *Asbury Park Press* review was one of the strangest I've ever read), it doesn't appear that a second installment ever came to pass.
 

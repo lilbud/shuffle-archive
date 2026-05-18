@@ -86,8 +86,6 @@ But no matter what the form, "Ramrod" is an opportunity for Bruce to cut loose, 
 
 [https://estreetshuffle.com/wp-content/uploads/2022/09/1978-12-28-Ramrod.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/1978-12-28-Ramrod.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/09/1978-12-28-Ramrod.mp3>
-
 **Ramrod**<br>
 **Recorded** June 1979 – April 1980<br>
 **Released:** *The River* (1980)<br>

@@ -16,8 +16,6 @@ Even so, Bruce wouldn’t cover “You Really Got Me” properly until 2009 (alt
 
 [https://estreetshuffle.com/wp-content/uploads/2020/12/02-YOU-REALLY-GOT-ME.mp3](https://estreetshuffle.com/wp-content/uploads/2020/12/02-YOU-REALLY-GOT-ME.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2020/12/02-YOU-REALLY-GOT-ME.mp3>
-
 During what had become a nightly “Stump the Band” segment of the show, Bruce accepted a fan’s challenge/request, calling on “one hundred years of collective bar band experience” to tackle “You Really Got Me.”
 
 [Watch on Youtube: Bruce Springsteen - You Really Got Me - C'Ville-5/5/09](https://www.youtube.com/watch?v=-MMryww4Ae8)

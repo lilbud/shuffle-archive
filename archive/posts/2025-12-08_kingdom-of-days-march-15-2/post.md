@@ -84,6 +84,4 @@ After the speech, Bruce plays a warm-up show for the upcoming Wrecking Ball Tour
 
 [https://estreetshuffle.com/wp-content/uploads/2025/03/bb09-e377-4ad6-b4a4-20805ac2d669.mp3](https://estreetshuffle.com/wp-content/uploads/2025/03/bb09-e377-4ad6-b4a4-20805ac2d669.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/03/bb09-e377-4ad6-b4a4-20805ac2d669.mp3>
-
 **2024:** Bruce and the E Street Band rehearse for the next leg of their world tour, resuming within days in Phoenix.<br>

@@ -52,7 +52,7 @@
 
 **2020:** It's the day before the release of Bruce's latest album, and the virtual publicity tour is in full swing. This morning, E Street Radio airs Episode 4 of *Letter to You Radio*, featuring a conversation between Bruce and Jon Stewart.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-22-LTY-Radio-4-Bruce-Jon-Stewart-1.mp32](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-22-LTY-Radio-4-Bruce-Jon-Stewart-1.mp32)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-22-LTY-Radio-4-Bruce-Jon-Stewart-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-22-LTY-Radio-4-Bruce-Jon-Stewart-1.mp3)
 
 Also today, NPR airs an interview with Bruce.
 

@@ -22,8 +22,6 @@ Commonly attributed to Steel Mill, the recording below almost certainly dates la
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/09-Chains.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/09-Chains.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/04/09-Chains.mp3>
-
 Bruce’s version of “Chains” is loose and sloppy–almost drunken–and based on the fact that Bruce only seems to know the words to one verse (which he sings over and over again), there’s a good argument to be made for this being an audible. It doesn’t swing like the original, but it grooves and swaggers for a good eight minutes (almost four times the length of the original), and the band seems to be having a fine time with it.
 
 As far as we know, this was a true one-off: “Chains” hasn’t turned up in Bruce’s sets before or since.

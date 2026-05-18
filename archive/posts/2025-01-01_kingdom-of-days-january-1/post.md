@@ -22,5 +22,3 @@ most memorable hits and events in rock and roll history, including Bruce Springs
 U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)"
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-2000-01-01.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-2000-01-01.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-2000-01-01.mp3>

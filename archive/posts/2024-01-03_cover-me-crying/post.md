@@ -40,8 +40,6 @@ The date was May 3, 1988, and the Tunnel of Love Express Tour had arrived in Mou
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/309-Crying-1988-05-16-Madison-Square-Garden-New-York-NY.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/309-Crying-1988-05-16-Madison-Square-Garden-New-York-NY.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/05/309-Crying-1988-05-16-Madison-Square-Garden-New-York-NY.mp3>
-
 But all that was just one long warm-up for the next and last time that Bruce performed "Crying"–at the Rock and Roll Hall of Fame induction ceremony in January 1989.
 
 Orbison had passed away only a few weeks prior, and the assembled all-star artists paid tribute by covering "Crying," with Bruce on lead vocals.

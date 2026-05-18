@@ -42,8 +42,6 @@ Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Stev
 
 [https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-22.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-22.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-22.mp3>
-
 **1985:** A bad weather forecast prompts the postponement of a scheduled show at Denver’s Mile High Stadium. The evening ended up with clear skies, however, causing a bit of a backlash among fans and press.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1985-09-22a.jpg)

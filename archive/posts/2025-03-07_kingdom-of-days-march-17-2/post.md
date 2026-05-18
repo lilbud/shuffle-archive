@@ -8,7 +8,7 @@
 
 **1973:** Bruce and the as-yet-unnamed E Street Band play a gig at Oliver’s in Boston, their sixth of seven straight nights.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316.jpg)
 
 **1975:** At Columbia Recording Studios in New York City, Bruce attempts to remix “Born to Run” for his upcoming album but ultimately decide to stick with the original.<br>
 

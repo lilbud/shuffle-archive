@@ -6,8 +6,6 @@ Buried in the middle of the set was this haunting song, performed virtually as a
 
 [https://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3](https://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3>
-
 We're covering walking a dark, lonely road here: the narrator, like Bruce, is a musician, describing the moments immediately following the end of a concert festival. When the music stops, the communal connection is broken, and the introverted artist who just entertained thousands is now isolated and withdrawn from the crowd he so recently commanded:
 
 > *Empty tin cans cover the ground*

@@ -22,8 +22,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3>
-
 [Watch on Youtube: SPRINGSTEEN JOKES NEBRASKA PROJECT GOT IT WRONG](https://www.youtube.com/watch?v=fzmcmc6s35U)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/2006-01-14.png)

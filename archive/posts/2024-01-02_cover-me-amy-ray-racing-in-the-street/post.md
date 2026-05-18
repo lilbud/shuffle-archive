@@ -14,6 +14,4 @@ In a radio interview last year, Amy zeroed in on a particular line of "Racing in
 
 [https://estreetshuffle.com/wp-content/uploads/2020/01/amyray.mp3](https://estreetshuffle.com/wp-content/uploads/2020/01/amyray.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2020/01/amyray.mp3>
-
 But regardless of whether Amy's performance above was channeling the personal or the political, the end result is the same: a gorgeous, heartfelt cover of one of Bruce's finest songs.

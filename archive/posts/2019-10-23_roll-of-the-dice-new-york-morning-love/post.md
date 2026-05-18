@@ -2,7 +2,7 @@ It's time for another dip into the "[1968 Notebook,](https://estreetshuffle.com/
 
 Today's entry is the thirteenth song in the notebook's table of contents: "New York Morning Love."
 
-![](../../assets/2019/08/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2021/06/1968_lyricsnotebook-contentspage.jpg)
 
 Like all of the songs in Bruce's notebook, we have no record of Bruce ever performing "New York Morning Love" live, and there's no known recording–so we don't know what the song would have sounded like.
 

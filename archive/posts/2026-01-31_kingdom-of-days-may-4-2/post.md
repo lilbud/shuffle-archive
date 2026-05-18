@@ -24,13 +24,9 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3>
-
 **2000:** On Night Two at the Air Canada Center in Toronto, Bruce plays “Incident on 57th Street” for the first time ever in Canada.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3](https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3>
 
 **2008:** Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the ceremony, Bruce inducts Frank Sinatra and plays “I Thank You” and “Glory Days” with La Bamba and The Hubcaps.<br>
 

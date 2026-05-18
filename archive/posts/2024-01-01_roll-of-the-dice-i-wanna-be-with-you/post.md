@@ -10,8 +10,6 @@ And then there was "I Wanna Be With You." First recorded in June 1977, the lyric
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/06-Bruce-Springsteen-I-Wanna-Be-With-You-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/06-Bruce-Springsteen-I-Wanna-Be-With-You-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/01/06-Bruce-Springsteen-I-Wanna-Be-With-You-online-audio-converter.com_.mp3>
-
 Bruce had always been fascinated with pop music. One of his favorite pop bands was The Raspberries (Bruce has often encouraged his fans to seek out their recordings, even decades later) and it's clear that "I Wanna Be With You" was at least in part an homage to them. In fact, the first song on The Raspberries' first album bears the same name and covers similar ground:
 
 [Watch on Youtube: I WANNA BE WITH YOU--THE RASPBERRIES (NEW ENHANCED VERSION) 720p](https://www.youtube.com/watch?v=FNAsRAT3Q7Q)

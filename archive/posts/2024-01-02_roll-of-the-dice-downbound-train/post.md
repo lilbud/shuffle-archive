@@ -102,8 +102,6 @@ And oh, the pathos: his wife (we've just learned that they were married–see ho
 
 [https://estreetshuffle.com/wp-content/uploads/2019/01/16-Lucille_On-The-Prowl-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/01/16-Lucille_On-The-Prowl-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/01/16-Lucille_On-The-Prowl-online-audio-converter.com_.mp3>
-
 And finally, now, an almost literal coup de grace, as we learn the reason for the song's peculiar drumbeat as it returns for the song's final stanza:
 
 > *Now I swing a sledge hammer on a railroad gang*<br>

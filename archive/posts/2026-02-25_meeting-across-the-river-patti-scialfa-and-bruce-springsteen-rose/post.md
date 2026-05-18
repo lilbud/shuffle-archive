@@ -4,8 +4,6 @@ Although Patti released "Rose" on her 2004 album *23rd Street Lullaby*, well-con
 
 [https://estreetshuffle.com/wp-content/uploads/2018/03/Bruce-Springsteen-10-Rose-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/03/Bruce-Springsteen-10-Rose-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/03/Bruce-Springsteen-10-Rose-online-audio-converter.com_.mp3>
-
 But the song dates much farther back than that.
 
 How far back, I don't know. But we do know that Patti performed it more than twenty years prior to those holiday shows, at a *Sounds of Asbury Park* concert at the Paramount Theater on August 30, 1980–and amazingly, we have a wonderful video recording of that performance:

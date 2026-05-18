@@ -2,7 +2,7 @@
 
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/04/19690402_Advert_02.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1969-0409.jpg)
 
 **1974:** Bruce and the E Street Band headline a show at Widener College.<br>
 

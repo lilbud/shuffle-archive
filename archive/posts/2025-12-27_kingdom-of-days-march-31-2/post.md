@@ -76,8 +76,6 @@ If you aren’t in Denver tonight, you still have a chance to see The Boss: the 
 
 [https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3](https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3>
-
 **2024:** At Night Two in San Francisco, Bruce and the E Street Band open their show with “Light of Day.”<br>
 
 [Watch on Youtube: Bruce Springsteen Chase Center San Francisco, CA 3/31/2024-Light of Day](https://www.youtube.com/watch?v=FaQGdRu2ysI)

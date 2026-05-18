@@ -48,8 +48,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/03/8a34-53b8-4d4c-a599-a8b2b4e38fc0.mp3](https://estreetshuffle.com/wp-content/uploads/2025/03/8a34-53b8-4d4c-a599-a8b2b4e38fc0.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/03/8a34-53b8-4d4c-a599-a8b2b4e38fc0.mp3>
-
 **2023:** “Darkness on the Edge of Town” makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band Concert - Live in Detroit - March 29, 2023](https://www.youtube.com/watch?v=ozJ7CrhBLKI)

@@ -10,8 +10,6 @@ Case in point: "Come On."
 
 [https://estreetshuffle.com/wp-content/uploads/2020/01/02-Come-On.mp3](https://estreetshuffle.com/wp-content/uploads/2020/01/02-Come-On.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2020/01/02-Come-On.mp3>
-
 If "Come On" is notable for anything at all, it's for the remarkable quality of this surviving recording (who could have known in 1970 that the young band playing at Asbury Park's Sunshine In would have such historical significance?) and the power of Bruce's vocals, particularly as the song shifts into gear in the third line of the song.
 
 > *Well come on, are you ready*<br>

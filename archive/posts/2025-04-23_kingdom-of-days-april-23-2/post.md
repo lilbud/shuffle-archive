@@ -34,13 +34,13 @@
 
 [Watch on Youtube: Two Faces (Live at LA Arena, Los Angeles, CA - 4/23/1988)](https://www.youtube.com/watch?v=UQVhs7LL2A4)
 
-![](../../assets/2020/04/1988-04-22-1-rotated.jpg)
+![](../../assets/2020/04/1988-04-22-rotated.jpg)
 
-![](../../assets/2020/04/1988-04-22b-1.jpg)
+![](../../assets/2020/04/1988-04-22b.jpg)
 
 Also today, *American Top 40* host Casey Kasem introduces Bruce's current chart-climbing single "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)" with a story about how music helped Bruce survive high school.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp32](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp32)
+[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp3)
 
 **1992:** Bruce rehearses with his new band for their upcoming tour.<br>
 

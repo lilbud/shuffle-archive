@@ -57,5 +57,3 @@
 **2020:** On the occasion of Patti Scialfa's 67th birthday, her husband debuts Volume 9 of his ongoing radio show, *From My Home to Yours*. This episode is entitled (appropriately) "Rumble Doll."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-29-Bruce-ESR-DJ-set-9.mp3](https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-29-Bruce-ESR-DJ-set-9.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-29-Bruce-ESR-DJ-set-9.mp3>

@@ -14,8 +14,6 @@ And then, that one time only, Prince, Bruce Springsteen (on guitar) and Madonna 
 
 [https://estreetshuffle.com/wp-content/uploads/2020/08/LA_Forum_Baby_Im_A_Star_feat_Madonna_Bruce_Springsteen_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2020/08/LA_Forum_Baby_Im_A_Star_feat_Madonna_Bruce_Springsteen_KLICKAUD.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2020/08/LA_Forum_Baby_Im_A_Star_feat_Madonna_Bruce_Springsteen_KLICKAUD.mp3>
-
 The original album version of "Baby I'm a Star" was much shorter, of course. Released as the B-side to "Take Me With U" in 1984 it clocked in at a mere four-and-half minutes.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NEvxLjxkEz8)

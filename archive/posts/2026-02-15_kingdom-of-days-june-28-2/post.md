@@ -8,7 +8,7 @@
 
 **1984:** At the Civic Center Arena in St. Paul, the day before the Born in the U.S.A. Tour begins, director Brian De Palma films footage for the video for "Dancing in the Dark." Bruce performs before an "audience" of three professional models (including future actress Courtney Cox), five lucky fans, and at least 200 extras behind the stage. To thank the intimate crowd, Bruce and the band perform a mini-concert concluding with "Detroit Medley" when the shoot is complete. Bruce fan (and E Street Shuffle guest blogger!) Sandi Pederson is one of the five lucky locals chosen to join the models and extras for the video shoot.<br>
 
-![](../../assets/2019/06/bruceandsandi.jpg)
+![](../../assets/2019/06/Sandi-Bruce-Donna.jpg)
 
 **1988:** The Tunnel of Love Tour arrives in Rotterdam for the first of two nights.<br>
 

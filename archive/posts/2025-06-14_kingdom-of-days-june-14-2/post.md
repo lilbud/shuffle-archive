@@ -2,7 +2,7 @@
 
 **1969:** Child plays at The Auction Coffee House in Long Branch, New Jersey.<br>
 
-![](../../assets/2021/06/1969-06-13-1.jpg)
+![](../../assets/2021/06/1969-06-13.jpg)
 
 **1970:** Steel Mill plays an afternoon set at Freak Beach in East Long Branch, New Jersey.<br>
 

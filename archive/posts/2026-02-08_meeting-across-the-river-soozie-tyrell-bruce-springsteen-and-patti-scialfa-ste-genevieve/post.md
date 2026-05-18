@@ -8,8 +8,6 @@ In the interview below, Soozie explains how it all came about.
 
 [https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3>
-
 Bruce and Patti reprised their roles at the release party for *White Lines* at the Stone Pony in May 2003. Other than that, Bruce has never performed this song live.
 
 **Ste. Genevieve**<br>

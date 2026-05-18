@@ -6,8 +6,6 @@ That was true for Bruce Springsteen, who admitted to not fully appreciating The 
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/Garcia__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/Garcia__Merged.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/04/Garcia__Merged.mp3>
-
 I’m not enough (or at all) of a Dead scholar to say whether Garcia ever warmed to Bruce, but by the time of Garcia’s death in August 1995, Bruce had certainly learned to appreciate The Grateful Dead.
 
 Just one day after Garcia passed away from a heart attack at the young age of 53, the North Jersey-based, Dead-influenced band Solar Circus played a gig at the Metro Lounge in Long Branch. With raw emotions sweeping both the band and the crowd, the show essentially became a tribute to Garcia and the Dead.

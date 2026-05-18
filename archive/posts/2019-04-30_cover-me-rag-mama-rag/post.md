@@ -12,8 +12,6 @@ Which, by the way, is exactly what happened one of the first times Bruce and the
 
 [https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-024-Rag-Mama-Rag-2006-06-06-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-024-Rag-Mama-Rag-2006-06-06-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-024-Rag-Mama-Rag-2006-06-06-online-audio-converter.com_.mp3>
-
 The band went on to nail it, though, and over the course of the tour it became an encore staple. Bruce's arrangement was the perfect balance of rock against roll, requiring a tight band that can still convey the loose spirit of the original–in other words, a perfect fit for the Sessions Band. (And besides, they already had the tuba!)
 
 From its penultimate performance in Verona on October 5, 2006, here's one of the best outings for "Rag Mama Rag" by Bruce Springsteen and the Sessions Band.

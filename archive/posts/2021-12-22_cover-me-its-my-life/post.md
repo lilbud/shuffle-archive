@@ -10,8 +10,6 @@ I'm not entirely certain how much I trust Max's recollection, though. Listening 
 
 [https://estreetshuffle.com/wp-content/uploads/2021/11/1975-12-12-108-Its-My-Life.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/1975-12-12-108-Its-My-Life.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/11/1975-12-12-108-Its-My-Life.mp3>
-
 Because the arrangement they "fell into" that night bears scant resemblance to the original song.
 
 "It's My Life" had been a hit for The Animals a decade earlier, peaking at #23 on the Billboard Hot 100 (and #7 in the U.K.) in 1965. A dark, ominous-sounding, bass-driven, class-conscious piece of rebellion, "It's My Life" resonated with both rock artists and fans alike who had found themselves feeling increasingly apart from mainstream society.

@@ -12,8 +12,6 @@ Springsteen has been a Fogerty fan for as long as he’s been playing music, fir
 
 [https://estreetshuffle.com/wp-content/uploads/2023/01/1987-10-31-Bad-Moon-Rising.mp3](https://estreetshuffle.com/wp-content/uploads/2023/01/1987-10-31-Bad-Moon-Rising.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/01/1987-10-31-Bad-Moon-Rising.mp3>
-
 From a Jersey shore club to a French royal castle: six months later Bruce turned up in Paris, where he concluded his four-song set at the S.O.S. Racisme Concert with a solo acoustic performance of Fogerty’s classic.
 
 [Watch on Youtube: Bad Moon Rising - Bruce Springsteen (18-06-1988 Château De Vincennes, Paris, France)](https://www.youtube.com/watch?v=71KT9GWx340)
@@ -27,8 +25,6 @@ Fogerty made nightly appearances with Springsteen on the short-lived (and ill-fa
 The highest-quality recording of a Springsteen “Bad Moon Rising” performance is the most obscure of the bunch: a private benefit for his kids’ school in April 2005 at The Stone Pony.
 
 [https://estreetshuffle.com/wp-content/uploads/2023/01/2005-04-10-T06-Bad-Moon-Rising.mp3](https://estreetshuffle.com/wp-content/uploads/2023/01/2005-04-10-T06-Bad-Moon-Rising.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2023/01/2005-04-10-T06-Bad-Moon-Rising.mp3>
 
 Bruce’s final “Bad Moon Rising” performance to date was on the Wrecking Ball Tour, when he honored a fan’s request in Leeds, England.
 

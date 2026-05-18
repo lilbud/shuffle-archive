@@ -26,8 +26,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp3>
-
 **1992:** Bruce and his new touring band bring World Tour 1992 to The Omni in Atlanta.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Local Hero" - Atlanta, 1992-11-30](https://www.youtube.com/watch?v=cjOiRN382kg)

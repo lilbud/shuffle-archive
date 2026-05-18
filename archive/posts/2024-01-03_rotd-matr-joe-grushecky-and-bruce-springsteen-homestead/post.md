@@ -40,8 +40,6 @@ It was worth the hassle. "Homestead" ended up as one of the strongest tracks on 
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/16-Homestead.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/16-Homestead.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/06/16-Homestead.mp3>
-
 Bruce may have decided not to release his own version of "Homestead," but Joe's lyrics certainly seemed to have made an impression on him–because shortly after putting the finishing touches on *American Babylon* with Joe, Bruce recorded a song called "Youngstown" and released it on *The Ghost of Tom Joad* only a few weeks on the heels of Joe's album.
 
 Youngstown, Ohio is only a ninety-minute drive from Homestead, Pennsylvania, and the two songs bear some remarkable thematic and lyrical similarities. Compare Joe's first verse…

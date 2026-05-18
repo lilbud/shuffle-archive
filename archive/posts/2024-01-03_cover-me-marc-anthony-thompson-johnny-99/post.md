@@ -16,8 +16,6 @@ After the performance, Thompson explained why Bruce's song resonated with him so
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3>
-
 I wasted no time ordering every Chocolate Genius CD I could find. You shouldn't either, if you enjoyed that performance above. Start with *GodMusic, Black Music*, and *Black Yankee Rock* (but good luck–they're tough to locate both in print and online), and you'll discover three incredible albums of genre-defying music.
 
 Bruce was hooked, too. He introduced himself to Thompson that night; soon after, he asked Marc to join his own musical collective, the touring ensemble known as the Sessions Band.

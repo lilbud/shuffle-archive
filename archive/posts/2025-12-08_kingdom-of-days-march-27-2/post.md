@@ -16,8 +16,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3>
-
 **1985:** Night Four of five at the Sydney Entertainment Center on the Born in the U.S.A. Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/RxOJwN5n)

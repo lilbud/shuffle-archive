@@ -58,8 +58,6 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 [https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3>
-
 ![](../../assets/2021/04/2005-04-22.jpg)
 
 **2008:** Bruce and the E Street Band play their first show since the passing of Danny Federici. The Tampa show opens with a tribute film set to "Blood Brothers" and opens with an emotional "Backstreets." The band kicks of the encores with a gorgeous rendition of the gospel classic "I'll Fly Away." This show is available for purchase as part of Bruce's official archive series-.<br>
@@ -81,8 +79,6 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 [Watch on Youtube: Bruce Springsteen - I Wanna Be sedated (Boston 2009)](https://www.youtube.com/watch?v=kCvJo1-Z3B8)
 
 [https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3>
 
 [Watch on Youtube: Bruce Springsteen ~ So Young and In Love - 4/22/09](https://www.youtube.com/watch?v=t7UzgZmNacY)
 

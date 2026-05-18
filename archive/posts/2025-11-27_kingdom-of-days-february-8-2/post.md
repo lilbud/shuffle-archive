@@ -14,8 +14,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1997-02-08.png)
 
 **2004:** Bruce and the late Warren Zevon win the Grammy Award for Best Rock Vocal Performance by a Duo or Group with Vocal for “[Disorder in the House.](https://estreetshuffle.com/index.php/2020/06/08/matr-warren-zevon-and-bruce-springsteen-disorder-in-the-house/)”<br>

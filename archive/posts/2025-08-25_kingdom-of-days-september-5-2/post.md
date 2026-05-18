@@ -2,7 +2,7 @@
 
 **1971:** The Bruce Springsteen Band is in residency at the Student Prince in Asbury Park.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1971-0903-1.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/09/1971-0903.jpg)
 
 **1978:** Bruce and the E Street Band make a Darkness Tour stop at the Veterans Memorial Auditorium in Columbus.<br>
 

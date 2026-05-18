@@ -38,8 +38,6 @@ Bruce debuted "She's the One" in concert on October 4, 1974 (more than ten month
 
 [https://estreetshuffle.com/wp-content/uploads/2021/03/108-Shes-The-One-1974-10-29.mp3](https://estreetshuffle.com/wp-content/uploads/2021/03/108-Shes-The-One-1974-10-29.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/03/108-Shes-The-One-1974-10-29.mp3>
-
 Clinton Heylin's excellent documentation of Bruce's recording sessions in *E Street Shuffle* pins Bruce's first studio cut at "She's the One" on October 16th, and I'm inclined to believe it based on the recording.
 
 The lyrics are the same as in the Boston performance on the 29th, but Clarence's solo is more restrained, lending credence to placing it in mid-October.
@@ -109,8 +107,6 @@ Now, we've heard Bruce borrow his own lyrics when working on new music before. B
 Bruce's last known performance of the early version of "She's the One" was in March 1975; one month later, he recorded both the earliest circulating studio take of "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" (which we'll listen to in a future *Roll of the Dice* entry) and this next studio outtake of "She's the One." As we can hear, the transplant is complete–the "Backstreets" lyrics have been completely excised. We have no replacements, though; "She's the One" is now shorter and tighter but still angry and harsh.
 
 [https://estreetshuffle.com/wp-content/uploads/2021/04/313-Shes-The-One-v2a-May-5-1975.mp3](https://estreetshuffle.com/wp-content/uploads/2021/04/313-Shes-The-One-v2a-May-5-1975.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/04/313-Shes-The-One-v2a-May-5-1975.mp3>
 
 This second outtake is also notable for Bruce's scat-ified sax solo–Clarence must not have been at the studio that day.
 

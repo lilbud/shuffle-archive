@@ -63,5 +63,3 @@
 **2020:** E Street Radio premieres Volume 16 of Bruce’s *From My Home to Yours* radio show, entitled “Hits of the Week.”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/12/2020-12-16-Bruce-E-Street-Radio-DJ-set-16.mp3](https://estreetshuffle.com/wp-content/uploads/2021/12/2020-12-16-Bruce-E-Street-Radio-DJ-set-16.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/12/2020-12-16-Bruce-E-Street-Radio-DJ-set-16.mp3>

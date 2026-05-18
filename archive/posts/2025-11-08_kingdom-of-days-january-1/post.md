@@ -15,5 +15,3 @@
 **2000:** On the first day of the new millennium, *American Top 40* host Casey Kasem recounts the most memorable hits and events in rock and roll history, including Bruce Springsteen’s “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-2000-01-01.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-2000-01-01.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-2000-01-01.mp3>

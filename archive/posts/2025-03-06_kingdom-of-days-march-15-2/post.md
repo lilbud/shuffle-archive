@@ -2,7 +2,7 @@
 
 **1973**: Bruce and the band play their fourth of seven nights at Oliver’s in Boston.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316.jpg)
 
 **1974:** Bruce plays Austin for the first time to a sold-out crowd at Armadillo World Headquarters. He’ll be back in 38 years to the day to keynote at SXSW. (photo credit: Burton Wilson)<br>
 

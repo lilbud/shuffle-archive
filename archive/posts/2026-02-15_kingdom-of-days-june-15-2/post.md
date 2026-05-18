@@ -14,8 +14,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3>
-
 ![](../../assets/2020/06/1981-06-15.jpg)
 
 ![](../../assets/2018/06/1981-0615.jpg)

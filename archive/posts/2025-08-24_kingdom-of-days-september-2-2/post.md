@@ -28,8 +28,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3>
-
 [Watch on Youtube: Bruce Springsteen - Amnesty Tour, Wembley 1988-09-03](https://www.youtube.com/watch?v=Y58hMb-kR4c)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1988-09-02a.jpg)
@@ -85,8 +83,6 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berryâ
 **2020:** Bruce releases a Labor Day-themed episode (#11 for those keeping count) of *From My Home to Yours* on E Street Radio.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-02-Bruce-E-Street-Radio-DJ-set-11-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-02-Bruce-E-Street-Radio-DJ-set-11-1.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-02-Bruce-E-Street-Radio-DJ-set-11-1.mp3>
 
 **2021:** *Springsteen on Broadway* nears the end of its final week at the St. James Theater in New York City. In attendance tonight: Eddie Vedder and Jarod Clemons.<br>
 

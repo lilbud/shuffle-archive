@@ -4,8 +4,6 @@ When it came time to sequence the final album, though, “Growin’ Up” didn�
 
 [https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3](https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3>
-
 This wouldn’t be the only time Bowie would record and then shelve a Springsteen song. He did the same thing the following year with “[It’s Hard to Be a Saint in the City.](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)”
 
 [Watch on Youtube: David Bowie-It's Hard To Be A Saint In The City](https://www.youtube.com/watch?v=_pDYK4Ns-co)

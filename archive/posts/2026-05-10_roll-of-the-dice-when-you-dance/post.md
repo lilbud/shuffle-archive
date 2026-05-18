@@ -46,8 +46,6 @@ There are a few Bruce Springsteen Band performances of "When You Dance" circulat
 
 [https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3>
-
 **When You Dance****Never recorded<br>
 Never released
 **First performed:** October 23, 1971 (Richmond, VA)<br>

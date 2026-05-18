@@ -18,8 +18,6 @@ By the time Bruce's recording career started in earnest, Sam and Dave were alrea
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/2021-09-01-Bruce-E-Street-Radio-DJ-set-271.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/2021-09-01-Bruce-E-Street-Radio-DJ-set-271.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/05/2021-09-01-Bruce-E-Street-Radio-DJ-set-271.mp3>
-
 Sam and Dave split up not long after that show at The Fast Lane, and Dave died only a few years after that, in a 1988 car crash.
 
 A year later, Bruce recorded his most Stax-inspired song yet, a Sam and Dave-styled soul romp about a man's pledge to love his woman right. In fact, if not for a mid-song twist, "Man's Job" would basically be a rewrite of Sam and Dave's "[Hold On, I'm Comin'](https://estreetshuffle.com/index.php/2019/04/24/matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/)."

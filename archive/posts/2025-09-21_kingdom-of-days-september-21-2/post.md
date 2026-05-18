@@ -92,7 +92,7 @@ Also today, *Bruce Springsteen & The E Street Band* is nominated for Emmy Awards
 
 [https://estreetshuffle.com/wp-content/uploads/2020/09/02-As-Long-As-I-Can-Be-With-You.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/02-As-Long-As-I-Can-Be-With-You.mp3)
 
-[https://estreetshuffle.com/wp-content/uploads/2020/09/01-Love-Stand-Up.mp30](https://estreetshuffle.com/wp-content/uploads/2020/09/01-Love-Stand-Up.mp30)
+[https://estreetshuffle.com/wp-content/uploads/2020/09/01-Love-Stand-Up.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/01-Love-Stand-Up.mp3)
 
 **2007:** Bruce and the E Street Band rehearse for their upcoming Magic Tour at Convention Hall in Asbury Park.<br>
 

@@ -24,8 +24,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/1977-12-31.png)
 
 **1978:** Bruce and the E Street Band play their last show of the year in Richfield, Ohio. It’s also the second-to-last show of the Darkness Tour, featuring the last “[Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)” for 25 years. Shortly after midnight, boisterous fans start lighting off firecrackers, one of which hits Bruce. Steve in particular does not take kindly to this. (Bruce is only a little more restrained.)<br>

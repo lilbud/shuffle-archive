@@ -14,8 +14,6 @@ Chuck Berry's original 1959 version was a bit more uptempo and energetic, but in
 
 [https://estreetshuffle.com/wp-content/uploads/2018/12/01-LITTLE-QUEENIE-START-CUT.mp3](https://estreetshuffle.com/wp-content/uploads/2018/12/01-LITTLE-QUEENIE-START-CUT.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/12/01-LITTLE-QUEENIE-START-CUT.mp3>
-
 Bruce never forgot that bomb scare experience, though. Bruce was back in Milwaukee almost exactly 27 years after that infamous show. He winkingly asked the audience, "Are you loose?" and closed the show with a "Milwaukee special."
 
 [Watch on Youtube: Bruce Springsteen - "Little Queenie" - Milwaukee, 2002-09-27](https://www.youtube.com/watch?v=jgnT1UIbfmA)

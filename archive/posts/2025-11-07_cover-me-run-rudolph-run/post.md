@@ -18,8 +18,6 @@ When Bruce kicked off a holiday show tradition of his own in 2000, “Run Rudolp
 
 [https://estreetshuffle.com/wp-content/uploads/2018/12/Bruce-Springsteen-06-Run-Run-Rudolph-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/12/Bruce-Springsteen-06-Run-Run-Rudolph-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/12/Bruce-Springsteen-06-Run-Run-Rudolph-online-audio-converter.com_.mp3>
-
 He reprised it four years later at his holidays shows at Harry’s Roadhouse, this time backed by Bobby Bandiera’s band and the Jukes’ horn section…
 
 [Watch on Youtube: Bruce Springsteen & The Max Weinbergs 7 w/ Friends ☜🎅☞ Run Run Rudolph {Audio}](https://www.youtube.com/watch?v=P5beBZhB0vc)

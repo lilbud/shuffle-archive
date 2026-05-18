@@ -41,8 +41,6 @@ Bruce recorded his new version of "Bring ‘Em Home" in Oslo while on tour with 
 
 [https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-Bring-Them-Home-Studio-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-Bring-Them-Home-Studio-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-Bring-Them-Home-Studio-online-audio-converter.com_.mp3>
-
 Bruce had already debuted "Bring ‘Em Home" in concert the week prior in Paris. It seemed like it was destined for one-off status, but just three days after he recorded his studio version with the band, Bruce reintroduced it to his setlist, where it remained a fixture throughout the remainder of the American leg of the tour.
 
 [Watch on Youtube: Bruce Springsteen - Bring 'Em Home (Live Tour Video)](https://www.youtube.com/watch?v=Mv4vW1FGnCQ)

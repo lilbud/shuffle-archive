@@ -36,8 +36,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-11-20.mp3](https://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-11-20.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-11-20.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1996-11-20.png)
 
 **1998:** Bruce sits down for a remarkable 50-minute television interview with Charlie Rose and performs an acoustic “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” Both are must-watch.<br>
@@ -77,5 +75,3 @@
 **2023:** Bruce’s scheduled show in Montreal is postponed to the following Halloween due to his peptic ulcer disease. Instead, Bruce releases the last episode (as of this writing) of *From My Home to Yours* on Sirius XM. This episode is entitled “California Sun.”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2024/11/2023-11-20-Bruce-E-Street-Radio-DJ-set-31.mp3](https://estreetshuffle.com/wp-content/uploads/2024/11/2023-11-20-Bruce-E-Street-Radio-DJ-set-31.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2024/11/2023-11-20-Bruce-E-Street-Radio-DJ-set-31.mp3>

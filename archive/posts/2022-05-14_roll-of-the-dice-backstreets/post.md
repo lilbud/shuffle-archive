@@ -12,8 +12,6 @@ Suki made her E Street Band stage debut at Avery Fisher Hall in New York City on
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/d1-avery-fisher08.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/d1-avery-fisher08.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/05/d1-avery-fisher08.mp3>
-
 Some have claimed that Suki was the inspiration for "She's the One," and certainly the timing of her arc with the band would cooperate with that thesis. But if "She's the One" was truly inspired by her, things had already gone very wrong by then.
 
 That early version of "She's the One" was a very different song than the one Bruce would release on *Born to Run* within the year. It was clearly a post-breakup song, and Bruce's lyrics were spiteful and vituperative. In particular, it contained some lines destined for another classic altogether:
@@ -31,8 +29,6 @@ But by March 1975, something seemed to have come to a head, and the Lahavs abrup
 In April, Bruce recorded the his first attempt at "Backstreets."
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/09-Backstreets.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/09-Backstreets.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/05/09-Backstreets.mp3>
 
 That early studio take was almost certainly intended as a band rehearsal, as many of the lyrics were obviously bluffed. However, the arrangement was in its almost final form and the first verse was as complete as it would ever be, suggesting that while "Backstreets" may have evolved over time as have many of Bruce's songs, it likely germinated from this particular seed:
 

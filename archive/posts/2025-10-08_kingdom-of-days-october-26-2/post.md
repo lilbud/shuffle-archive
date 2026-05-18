@@ -90,8 +90,6 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 [https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3](https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3>
-
 [Watch on Youtube: Bruce Springsteen - Spiritual Songwriting &](https://www.youtube.com/watch?v=QZuBEO-ilg4)
 
 [Watch on Youtube: Bruce Springsteen on 50 years of E Street band, making Letter To You and more| Triple M](https://www.youtube.com/watch?v=9M1_aZ-qp9w)

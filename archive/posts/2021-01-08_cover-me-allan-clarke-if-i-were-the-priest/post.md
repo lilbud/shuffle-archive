@@ -14,8 +14,6 @@ Philadelphia DJ Ed Sciaky was one of those fans. Sciaky got his hands on a copy 
 
 [https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-031.mp3](https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-031.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-031.mp3>
-
 Sciaky played the cover in full for Bruce and the band; we can only imagine the reactions taking place in the studio for those four minutes.
 
 The thing is, though: it's a *great* cover. Clarke not only captured the spirit of the song, he managed to summon the early E Street sound as well–the arrangement sounds very much like what we would have expected if Bruce had played it live on his 1973-74 tours (except for maybe that funky but tantalizingly brief mid-song break).
@@ -25,8 +23,6 @@ The thing is, though: it's a *great* cover. Clarke not only captured the spirit 
 After listening to Clarke's version, Bruce complimented the harmonies but seemed eager to change the subject, which they quickly did.
 
 [https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-03.mp3](https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-03.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-03.mp3>
 
 Bruce may have wished he could put that genie back in the bottle, but we can hear in his voice that he already knew he couldn't. Several bootleg versions of Bruce singing "If I Was the Priest" would surface over the years to come, and in 2019 he finally decided to release it officially.
 

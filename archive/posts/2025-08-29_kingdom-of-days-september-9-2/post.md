@@ -4,11 +4,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3>
-
 [https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3](https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3>
 
 **1973:** A scheduled gig at Penn State University is cancelled to make room for studio work on *The Wild, The Innocent, and the E Street Shuffle*.<br>
 

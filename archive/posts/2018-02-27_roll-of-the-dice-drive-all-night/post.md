@@ -90,8 +90,6 @@ Interestingly, for long-time fans, "Drive All Night" began in concert: the first
 
 [https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3>
-
 But many fans were first exposed to the lyrics in a mid-song performance art piece that characterized "Backstreets" from 1977 through 1978. The interlude came to be known as "Sad Eyes" and typically conveyed a tale of anger and betrayal, but at times during the Darkness tour, some familiar lines shone through:
 
 [Watch on Youtube: 22. Backstreets (Bruce Springsteen - Live At The Roxy Theatre 7-7-1978)](https://www.youtube.com/watch?v=JQxmrR8-ZN0)

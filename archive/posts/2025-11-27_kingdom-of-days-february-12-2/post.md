@@ -16,8 +16,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1990-02-12.png)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1977-02-12a.png)

@@ -30,8 +30,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-20-Bruce-E-Street-Radio-DJ-set-4.mp3](https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-20-Bruce-E-Street-Radio-DJ-set-4.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-20-Bruce-E-Street-Radio-DJ-set-4.mp3>
-
 **2025:** Bruce and the E Street Band play their last of three nights at Co-op Live in Manchester.<br>
 
 [Watch on Youtube: Bruce Springsteen, Glory Days, Manchester Co-op Live, Manchester, 2025-05-20 in 4K 2160p](https://www.youtube.com/watch?v=IAVJ1nh2gzg)

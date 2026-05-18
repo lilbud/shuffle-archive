@@ -16,8 +16,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2023/10/1979-10-05-Twist-and-Shout.mp3](https://estreetshuffle.com/wp-content/uploads/2023/10/1979-10-05-Twist-and-Shout.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/10/1979-10-05-Twist-and-Shout.mp3>
-
 **1980:** Bruce and the band (except for Steven) head backstage at the Cleveland Music Hall to visit fellow New Jersey band The Proof at their opening set for Pat Benatar.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2023/10/1979-10-05a.jpg)

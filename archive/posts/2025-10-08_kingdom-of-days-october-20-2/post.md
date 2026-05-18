@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "Detroit Medley" - Denver, 1980-10-20](https://www.youtube.com/watch?v=auwiLX3GFwc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/46543102155_a6488a1d3c_o.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/10/1980-1023.jpg)
 
 **1994:** Bruce and Neil Young make a guest appearance for two songs (“[Rainy Day Women #12 & 35](https://estreetshuffle.com/index.php/2020/01/29/matr-bob-dylan-bruce-springsteen-and-neil-young-rainy-day-women-12-35/)” and “[Highway 61 Revisited](https://estreetshuffle.com/index.php/2018/11/07/meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/)“) at Bob Dylan’s show at the Roseland Ballroom in New York City.<br>
 
@@ -88,9 +88,7 @@
 
 **2020:** E Street Radio airs Episode 2 of *Letter to You Radio*, featuring conversations between Bruce, Eddie Vedder, and Dave Grohl.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp34](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp34)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp3>
+[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp3)
 
 **2021:** At the Javits Center in New York City, Bruce supports The Robin Hood Foundation with an acoustic set of “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/),” “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/),” and “Thunder Road.”<br>
 

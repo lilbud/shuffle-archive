@@ -60,8 +60,6 @@ After the River Tour, however, "Factory" pretty much disappeared until the Reuni
 
 [https://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3>
-
 Interestingly, that wasn't an altogether new arrangement. An alternate take of "Factory" with strings was considered at one point–you'd recognize it as the instrumental track from "[Come On, Let's Go Tonight](https://estreetshuffle.com/index.php/2020/12/05/roll-of-the-dice-come-on-lets-go-tonight/)" from *The Promise.* (Both of those officially released songs use virtually the same instrumental track, except for the violin absent from "Factory.") Take a listen to the unreleased outtake (featuring David Lindley on violin) below:
 
 [Watch on Youtube: Bruce Springsteen - "Factory" (alternate with strings)](https://www.youtube.com/watch?v=lKyCP-0DUbs)

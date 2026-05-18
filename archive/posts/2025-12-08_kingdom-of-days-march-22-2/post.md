@@ -68,8 +68,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/03/0059-20f9-4ae3-8917-0096a9ce1fe6.mp3](https://estreetshuffle.com/wp-content/uploads/2025/03/0059-20f9-4ae3-8917-0096a9ce1fe6.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/03/0059-20f9-4ae3-8917-0096a9ce1fe6.mp3>
-
 **2024:** Bruce and the E Street Band perform in Las Vegas for the first time in over two decades, opening with the tour premiere of “Roll of the Dice” and kicking off the encores with their first performance of “Viva Las Vegas” since 2002.<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance +](https://www.youtube.com/watch?v=P6t_j51yi30)

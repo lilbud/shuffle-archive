@@ -70,8 +70,6 @@
 
 **2020:** With no fanfare, Bruce premieres his own recording of "Idiot's Delight," (originally released by Joe Grushecky but co-written by both artists) on the fifth installment of his *From My Home to Yours* radio show on Sirius XM.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp32](https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp32)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3>
+[https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3](https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3)
 
 **2024:** Bruce postpones his scheduled show at San Siro Stadium in Milan due to vocal challenges. As of this writing, the rescheduled show has not yet taken place.<br>

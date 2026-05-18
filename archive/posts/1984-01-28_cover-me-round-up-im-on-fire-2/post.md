@@ -32,8 +32,6 @@ If you've got 110 minutes or so, take a listen to Efrain and David discovering a
 
 [https://estreetshuffle.com/wp-content/uploads/2026/03/0335_BFP_Era_Tracks_-_Im_On_Fire_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2026/03/0335_BFP_Era_Tracks_-_Im_On_Fire_KLICKAUD.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2026/03/0335_BFP_Era_Tracks_-_Im_On_Fire_KLICKAUD.mp3>
-
 Meet Life Size Models.
 
 An indie band with a sound both fresh and retro, Life Size Models is a band to watch. Their single, "Cusack, 1984" is fantastic, and if you came of age in the 1980s like me, you're going to love it.

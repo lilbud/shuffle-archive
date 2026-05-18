@@ -101,8 +101,6 @@ And that last time, at Hyde Park–they *nailed* it (even if Bruce truncated the
 
 [https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3>
-
 **Take 'em as They Come**<br>
 **Recorded:** December 5, 1979 (backing track), April 10, 1980 (vocals)<br>
 **Released:** *Tracks* (1998)<br>

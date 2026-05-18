@@ -18,8 +18,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3>
-
 ![](../../assets/2020/06/1982-06-12.jpg)
 
 [Watch Video Highlight](https://videopress.com/embed/oVFluiql)

@@ -40,8 +40,6 @@ And something was. In an earlier version of "Linda Let Me Be The One" (which rep
 
 [https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3](https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3>
-
 Now *that* is a great line. Like, seriously great. So why did Bruce surgically excise it from the final lyrics? I have absolutely no idea, but this is the sort of thing I obsess about. The verse is weaker without it.
 
 The second line recovers the emotional momentum with an achingly beautiful image of Eddie wrapping himself in Linda's scarves, the closest he's able to get to his love–but the third line takes Eddie's supplication just a bit too far, losing the listener's (this one, at least) empathy and replacing it with pity.

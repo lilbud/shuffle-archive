@@ -6,8 +6,6 @@ Even by Steel Mill standards, though, "Oh Mama" was a bit of a mess.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/1971-01-23-T02-Oh-Mama-Why_.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/1971-01-23-T02-Oh-Mama-Why_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/10/1971-01-23-T02-Oh-Mama-Why_.mp3>
-
 Lyrically, it sounds like something written by a kid in a high school band–and that's not a slam since Bruce was probably only twenty when he wrote it. Musically, I find "Oh Mama" a tough listen. There are certainly songs that showcase the boys' instrumental chops and vocal skills, but this isn't one of them.
 
 Bruce turns in a couple of fine guitar solos, Danny dominates in the mix on the organ, and Vini does his best to hold everyone together. But those vocals… ouch. Perhaps they couldn't hear themselves in the mix (there's some late banter suggesting as much); let's extend the benefit of the doubt.

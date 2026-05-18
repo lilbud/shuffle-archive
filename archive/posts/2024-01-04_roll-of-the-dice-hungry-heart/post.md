@@ -16,8 +16,6 @@ It might have come quickly, but Bruce was likely primed for it. He had already f
 
 [https://estreetshuffle.com/wp-content/uploads/2022/12/Bruce-Springsteen-Stolen-Car-11.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/Bruce-Springsteen-Stolen-Car-11.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/12/Bruce-Springsteen-Stolen-Car-11.mp3>
-
 …and the instantly irresistible piano riff sounds inspired by The Four Seasons' "Dawn (Go Away)."
 
 [Watch on Youtube: The Four Seasons - Dawn (Go Away) (Official Audio)](https://www.youtube.com/watch?v=wV0rNF3_g4E)
@@ -35,8 +33,6 @@ Van Zandt recruited Mark Volman and Howard Kaylan of The Turtles, who had a #1 h
 Volman and Kaylan (now performing under the comedy-rock moniker Flo & Eddie) layered Beach Boys-esque vocals onto the E Street Band's backing track. The influence is unmistakable: compare their "Hungry Heart" backing vocals below…
 
 [https://estreetshuffle.com/wp-content/uploads/2022/12/Bruce-Springteen-Hungry-Heart-Backing-Vocals.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/Bruce-Springteen-Hungry-Heart-Backing-Vocals.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/12/Bruce-Springteen-Hungry-Heart-Backing-Vocals.mp3>
 
 …with the backgrounds on The Beach Boys' 1964 opus, "Don't Worry Baby."
 
@@ -114,8 +110,6 @@ It was enough. Although Bruce's voice is almost unrecognizable on the studio tra
 Oddly (considering it was the lead single), "Hungry Heart" was one of the last songs from *The River* to debut in concert, making its first appearance more than two weeks into the tour. When he finally premiered it, he introduced it as a song about "when you meet somebody, fall in love with them, and you say this is gonna be forever. And then forever sort of goes by… and for some reason it ain't."
 
 [https://estreetshuffle.com/wp-content/uploads/2022/12/211-Hungry-Heart.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/211-Hungry-Heart.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/12/211-Hungry-Heart.mp3>
 
 That first performance was from October 18, 1980, one day after the album's release and three days before the single. While the crowd responds politely, they are clearly unfamiliar with the song, and Bruce himself sounds awkward, unsure of how to infuse the song with the proper energy.
 

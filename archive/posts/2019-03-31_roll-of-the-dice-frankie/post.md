@@ -140,8 +140,6 @@ Bonus #2: Here's another "Frankie" studio outtake, this one from the 1982 sessio
 
 [https://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3>
-
 **Frankie**<br>
 **Recorded** May 14,1982<br>
 **Released:** *Tracks* (1998)<br>

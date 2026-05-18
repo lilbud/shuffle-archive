@@ -8,8 +8,6 @@ Here's Bruce describing the song's genesis just before he debuted it in Detroit 
 
 [https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3>
-
 As for the song itself… well, one could argue that it's at least as socially conscious as the rest of the Joad material, just in a different fashion. Depending on the night and the delivery, it was either an homage to, lament of, or apology for American infomercials. And although the song has so many pop culture references that it now sounds as dated as "[I'm a Rocker,](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)" the song is as relevant now as it was then.
 
 Let's take a listen. Here's one of the clearest recordings of "Sell It and They Will Come," from Hamburg on February 17, 1997:

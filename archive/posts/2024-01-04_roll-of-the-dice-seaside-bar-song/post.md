@@ -70,8 +70,6 @@ When "Seaside Bar Song" finally did return, it was–appropriately–at the Jers
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/107-Seaside-Bar-Song.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/107-Seaside-Bar-Song.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/10/107-Seaside-Bar-Song.mp3>
-
 "Seaside Bar Song" made fourteen appearances between 2001 and 2006, all at the Jersey Shore. It wasn't until a Philadelphia stop on the Working on a Dream Tour that fans heard it on the E Street stage. That was the night Springsteen revealed the identity of the titular bar.
 
 [Watch on Youtube: Seaside Bar Song - Bruce Springsteen and The E Street Band - March 28, 2012](https://www.youtube.com/watch?v=l7K-iCMlpJY)

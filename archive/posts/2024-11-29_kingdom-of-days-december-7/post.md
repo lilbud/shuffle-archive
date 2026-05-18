@@ -72,8 +72,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/12/1998-12-07-Reunion.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/1998-12-07-Reunion.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/12/1998-12-07-Reunion.mp3>
-
 [Watch Video Highlight](https://videopress.com/embed/9Afvrv6O)
 
 **2001:** Bruce, The Max Weinberg 7 and a host of friends play their fourth of five holiday shows at Asbury Park’s Convention Hall in support of local charities. All of the week’s usual suspects are present: Patti, Soozie, Nils, Southside, Lisa Lowell, The Miami Horns, Bobby Bandiera–and tonight, Bruce Hornsby joins as well.<br>

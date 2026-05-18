@@ -18,8 +18,6 @@ But it would take a few more years before Bruce would play the original on stage
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/201-Something-About-You-Baby.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/201-Something-About-You-Baby.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/06/201-Something-About-You-Baby.mp3>
-
 Bruce’s arrangement was pretty faithful to the original–a bit brighter, thanks to the full horn section, but instantly recognizable from the riff, even if his vocals are too distant to be fully made out.
 
 Springsteen never did get around to performing it on stage, then or ever. But then again, Bruce hasn’t toured since shortly after revealing his desert island influences, so don’t count out a Four Tops appearance in his set list in 2023.

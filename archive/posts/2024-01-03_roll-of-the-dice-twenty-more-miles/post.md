@@ -9,8 +9,6 @@ Way back over a half-century ago, Bruce Springsteen fronted a band called Steel 
 
 Once in a while, though, they segued from Havens' 1968 song into a completely different number, an original Springsteen composition known as "Twenty More Miles" that eclipsed in length the song it was appended to.
 
-<https://estreetshuffle.com/wp-content/uploads/2021/12/205-Run-Shaker-LifeTwenty-More-Miles1.mp3>
-
 There are a few recordings of "Twenty More Miles" circulating, but unfortunately none of them are of any clearer quality than the recording above.
 
 The muddy recording is just clear enough to make out the song's train theme (the whistle and percussive effects are a pretty quick giveaway), and we can discern barely enough of the lyrics to recognize that "Twenty More Miles" is little more than an excuse for one last jam before bringing the show home.

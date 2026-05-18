@@ -75,5 +75,3 @@
 **2023:** Bruce's scheduled show in Montreal is postponed to the following Halloween due to his peptic ulcer disease. Instead, Bruce releases the last episode (as of this writing) of *From My Home to Yours* on Sirius XM. This episode is entitled "California Sun."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2024/11/2023-11-20-Bruce-E-Street-Radio-DJ-set-31.mp3](https://estreetshuffle.com/wp-content/uploads/2024/11/2023-11-20-Bruce-E-Street-Radio-DJ-set-31.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2024/11/2023-11-20-Bruce-E-Street-Radio-DJ-set-31.mp3>

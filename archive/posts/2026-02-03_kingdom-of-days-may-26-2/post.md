@@ -14,8 +14,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3>
-
 **1984:** Bruce’s world premiere performance of “Dancing in the Dark” occurs under very strange circumstances: Bruce happens to be at Xanadu in Asbury Park where the band Bystander is playing. The band had managed to obtain a promo copy of Bruce’s new single, learned the song, and planned to debut it on this night. When they learn that Bruce is in the house, they invite him to join them, but Bruce declines. The band extends the intro, hoping Bruce will relent–and he does, grabbing the mic at the last second and performing the live debut of his greatest hit.<br>
 
 **1988:** Bruce joins John Mellencamp on stage for “Like a Rolling Stone” at the Irvine Meadows Amphitheater in Irvine, California.<br>
@@ -55,7 +53,5 @@
 **2021:** Bruce’s *From My Home to Yours* radio show continues on E Street Radio with Episode 22, “Radio Radio.”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/2021-05-26-Bruce-E-Street-Radio-DJ-set-22.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/2021-05-26-Bruce-E-Street-Radio-DJ-set-22.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/05/2021-05-26-Bruce-E-Street-Radio-DJ-set-22.mp3>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/05/The_Freehold_Transcript_and_The_Monmouth_Inquirer_1957_05_30_4-scaled.jpg)

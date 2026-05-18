@@ -58,8 +58,6 @@ It's time. If you have headphones, put them on so you can best experience the cl
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3>
-
 If you've read *Born to Run* or heard Bruce speak of losing his grandparents, you already knew the story. You just hadn't heard it told this way.
 
 > *I remember back when I was just a small boy*<br>

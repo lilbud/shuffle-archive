@@ -32,7 +32,7 @@
 
 **1992:** A scheduled show at Mountain View’s Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/1992-10-08-1.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2021/10/1992-10-08.jpg)
 
 **2005:** Bruce opens his solo acoustic show at the Nassau Coliseum with a rare “Stolen Car.”<br>
 

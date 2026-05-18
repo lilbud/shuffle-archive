@@ -70,8 +70,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/04/79a3-710a-498b-8305-22729e94d6c8.mp3](https://estreetshuffle.com/wp-content/uploads/2025/04/79a3-710a-498b-8305-22729e94d6c8.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/04/79a3-710a-498b-8305-22729e94d6c8.mp3>
-
 **2023:** For the fourth show in a row, Bruce introduces a tour debut into his mostly static World Tour setlist. Tonight, “Atlantic City” premieres at Rocket Mortgage Fieldhouse in Cleveland.<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band -](https://www.youtube.com/watch?v=Q_whKRSfRYg)

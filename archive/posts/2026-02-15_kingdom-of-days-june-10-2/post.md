@@ -36,8 +36,6 @@ Also on this date in 2003: the BBC premieres a three-part series narrated by Joh
 
 [https://estreetshuffle.com/wp-content/uploads/2025/06/80ea-6831-42e4-b0b6-c8859be190cb.mp3](https://estreetshuffle.com/wp-content/uploads/2025/06/80ea-6831-42e4-b0b6-c8859be190cb.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/06/80ea-6831-42e4-b0b6-c8859be190cb.mp3>
-
 **2006:** The Seeger Sessions Tour stops at the Wells Fargo Arena in Des Moines, Iowa.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DrAHXxgk)

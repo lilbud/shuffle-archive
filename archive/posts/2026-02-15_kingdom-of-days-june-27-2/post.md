@@ -96,6 +96,4 @@ Bruce opens his own set with his first and only performance of "Coma Girl," in t
 
 [https://estreetshuffle.com/wp-content/uploads/2025/06/2025-06-27-E-Street-Radio-BS-JR-on-Tracks-II.mp3](https://estreetshuffle.com/wp-content/uploads/2025/06/2025-06-27-E-Street-Radio-BS-JR-on-Tracks-II.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/06/2025-06-27-E-Street-Radio-BS-JR-on-Tracks-II.mp3>
-
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5kq7LzZZLQM)

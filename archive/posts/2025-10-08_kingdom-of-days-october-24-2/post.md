@@ -18,8 +18,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3>
-
 **![](https://estreetshuffle.com/wp-content/uploads/2020/10/1995-10-24.png)**<br>
 
 **2002:** Bruce and the E Street Band bring the Rising Tour to the Globe Arena in Stockholm, where “Gloria” makes its tour debut.<br>
@@ -56,9 +54,7 @@
 
 **2020:** Promotional activities for Bruce’s *Letter to You* album continue with appearances on Dermot O’Leary’s radio show and [RNZ’s *Music 101*.](https://www.rnz.co.nz/audio/player?audio_id=2018769750#)<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp30](https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp30)
-
-<https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp3>
+[https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp3)
 
 **2021:** Bruce joins former President Barack Obama in a series of pre-recorded interviews with television hosts from around the world to promote their new book, *Renegades: Born in the U.S.A.*<br>
 

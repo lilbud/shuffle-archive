@@ -2,8 +2,6 @@ Bruce and Patti made my job easy today. They discussed "Talk to Me Like the Rain
 
 [https://estreetshuffle.com/wp-content/uploads/2021/09/2020-07-29-Bruce-ESR-DJ-set-9.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/2020-07-29-Bruce-ESR-DJ-set-9.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/09/2020-07-29-Bruce-ESR-DJ-set-9.mp3>
-
 Although Bruce is the one with the notoriously unreliable memory, I suspect his modest recollection is closer to the truth than his wife's on this one, because Bruce certainly doesn't play every instrument on the track–at least not if the liner notes are to be believed.
 
 Heartbreaker Mike Campbell also plays guitar on the track, as does Tim Pierce, who played rhythm guitar on "Soul Driver" and "[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)." And that's the late Jeff Porcaro of Toto (who plays on every single track on *Human Touch)* on drums *.*

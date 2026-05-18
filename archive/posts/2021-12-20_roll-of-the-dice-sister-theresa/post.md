@@ -20,8 +20,6 @@ Here's that second, superior performance–although we can't precisely date it, 
 
 [https://estreetshuffle.com/wp-content/uploads/2020/02/08-Sister-Teresa.mp3](https://estreetshuffle.com/wp-content/uploads/2020/02/08-Sister-Teresa.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2020/02/08-Sister-Teresa.mp3>
-
 Gentle and tentative, 19-year-old Bruce Springsteen's lyrics (the lyrics in the 1970 performance are identical to the earlier one) walk a tightrope between fantasy and worship. He can't help but see Sister Teresa as a woman, and he can't reconcile her celibate devotion.
 
 > *Sister Theresa, golden hair all tucked away*<br>

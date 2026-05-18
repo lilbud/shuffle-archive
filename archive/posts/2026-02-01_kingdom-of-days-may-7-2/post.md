@@ -38,8 +38,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3](https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3>
-
 **1997:** On Night Two in Vienna during Bruce’s first-ever tour stop in Austria, Patti makes a guest appearance in the encores, joining Bruce on “Two Hearts.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/vUOwcBfv)

@@ -2,7 +2,7 @@ It's time for another dip into the "[1968 Notebook,](https://estreetshuffle.com/
 
 Somehow, the notebook survived through the years until it was auctioned by one of Bruce's former roadies in the late 1980s, fetching $57,706.61. Because it was auctioned publicly, fans and collectors were able to get a peek at it. Here's the table of contents:
 
-![](../../assets/2019/08/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2021/06/1968_lyricsnotebook-contentspage.jpg)
 
 Although we're not aware of either studio or live recordings of any of these songs, we do have reason to believe that Bruce performed some of not most of them during his solo acoustic gigs that year.
 

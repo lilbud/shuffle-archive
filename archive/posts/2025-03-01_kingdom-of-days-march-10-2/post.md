@@ -84,8 +84,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-10-Bruce-E-Street-Radio-DJ-set-19.mp3](https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-10-Bruce-E-Street-Radio-DJ-set-19.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-10-Bruce-E-Street-Radio-DJ-set-19.mp3>
-
 **2024:** Bruce joins John Mellencamp on stage at the New Jersey Performing Arts Center in Newark for “[Pink Houses.](https://estreetshuffle.com/index.php/2021/03/11/matr-john-mellancamp-and-bruce-springsteen-pink-houses/)”<br>
 
 [Watch on Youtube: John Mellencamp with Bruce Springsteen - Live | Pink Houses - NJ PAC, Newark NJ - 3/10/24](https://www.youtube.com/watch?v=_Qo_-W4lBe4)

@@ -10,8 +10,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3>
-
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBU71zy1szdg9oirFfoyzMi)
 
 ![](../../assets/2021/07/1975-07-22.jpg)

@@ -2,8 +2,6 @@ From the Darkness on the Edge of Town tour’s November 16, 1978 show in Toronto
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3>
-
 It’s a great opener, so it’s a surprise that this was a true one-off–Bruce never played it with the E Street Band again. (He did play it during a handful of 1982 bar appearances, and once at a 1991 benefit, though.)
 
 [Watch on Youtube: Little Richard - Ready Teddy](https://www.youtube.com/watch?v=tpMaCUh569I)

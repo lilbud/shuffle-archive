@@ -42,6 +42,4 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3](https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2024/08/Daily_Record_2021_08_27_X7-scaled.jpg)

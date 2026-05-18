@@ -16,8 +16,6 @@ Joe fortuitously had their hometown show at Nick's Fat City in Pittsburgh record
 
 [https://estreetshuffle.com/wp-content/uploads/2021/05/03-Chain-Smoking.mp3](https://estreetshuffle.com/wp-content/uploads/2021/05/03-Chain-Smoking.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/05/03-Chain-Smoking.mp3>
-
 Bruce and Joe have only played it together twice more since their 1995 tour together, but "Chain Smokin'" remains a fan and artist favorite. Catch Joe and The Houserockers in concert when they get back on the road, and odds are good you'll catch a great rendition of "Chain Smokin'," too.
 
 **Update 9/20/2021:** In advance of the 25th anniversary reissue of *American Babylon*, Joe released the original demo he and Bruce made for "Chain Smokin'." Take a listen to the track that kicked off years of collaboration:<br>

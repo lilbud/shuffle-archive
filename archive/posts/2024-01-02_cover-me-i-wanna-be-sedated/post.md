@@ -12,8 +12,6 @@ After taking a moment or ten to work out the song with the band, they barrel-rol
 
 [https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3>
-
 (Oh, and a fun fact about that brilliant video at the top of the post: that’s a very young Courtney Love playing the role of the bride.)
 
 A true one-off performance, that was–Bruce has never played “I Wanna Be Sedated” before or since.

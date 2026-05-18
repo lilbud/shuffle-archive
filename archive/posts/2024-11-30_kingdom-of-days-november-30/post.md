@@ -22,7 +22,7 @@
 
 **1985:** On this week's episode of *American Top 40*, host Casey Kasem introduces Clarence's new single with the story of how The Boss and The Big Man first met.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp30](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp30)
+[https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp3)
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to The Omni in Atlanta.<br>
 

@@ -8,8 +8,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/03/1974-03-24_Phoenix_interview_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2025/03/1974-03-24_Phoenix_interview_KLICKAUD.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/03/1974-03-24_Phoenix_interview_KLICKAUD.mp3>
-
 **1977:** Bruce and the E Street Band play their third of four nights at Boston’s Music Hall in the final stand of the Lawsuit Tour. This show features the debut of Jackie Wilson’s “(Your Love Keeps Lifting Me) Higher and Higher.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/5budtv00?hd=0&cover=1)

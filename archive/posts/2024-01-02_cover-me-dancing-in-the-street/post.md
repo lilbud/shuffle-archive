@@ -12,8 +12,6 @@ Bruce first took a crack at “Dancing in the Street” at the tender age of 20,
 
 [https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3>
-
 In theory, “Dancing in the Street” makes for a great show opener… if you’re a dance band. Steel Mill was many things, but a dance band wasn’t one of them.
 
 Steel Mill was, however, a pretty darn impressive jam band, which is why any individual song performance (“Dancing in the Street” included) could easily and often did stretch well beyond ten minutes.
@@ -25,8 +23,6 @@ In the clips below (much clearer than the one above), you’ll hear Bruce and Ro
 [Watch on Youtube: Bruce Springsteen and Steel Mill: Dancing in the Street with Honky Tonk Women 1971 South Amboy, NJ](https://www.youtube.com/watch?v=ChmsOg816d0)
 
 [https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3>
 
 When Steel Mill folded in January 1971, “Dancing in the Street” vanished from Bruce’s set lists as well.
 

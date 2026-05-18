@@ -16,8 +16,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3](https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/1976-05-30a.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/1976-05-30b.jpg)

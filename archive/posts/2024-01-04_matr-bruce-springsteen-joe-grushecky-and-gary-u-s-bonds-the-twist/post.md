@@ -54,8 +54,6 @@ At the end of their set, Joe, Bruce, Garland, and Gary U.S. Bonds all took the s
 
 [https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3](https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3>
-
 Toward the end of the song, Bonds took over. He segued the band into "Peppermint Twist," a 1961 song by Joey Dee and The Starliters (another New Jersey band) that not only rode Checker's coattails to the top of the Hot 100, it stomped on them, dethroning Checker from his second reign in the process.
 
 [Watch on Youtube: Joey Dee & The Starliters - Peppermint Twist.](https://www.youtube.com/watch?v=7WIvZu4dPQQ)

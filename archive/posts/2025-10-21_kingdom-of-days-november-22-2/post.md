@@ -18,11 +18,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2024/11/03-Dont-Let-Me-Down.mp3](https://estreetshuffle.com/wp-content/uploads/2024/11/03-Dont-Let-Me-Down.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2024/11/03-Dont-Let-Me-Down.mp3>
-
 [https://estreetshuffle.com/wp-content/uploads/2024/11/06-Go-Your-Own-Way.mp3](https://estreetshuffle.com/wp-content/uploads/2024/11/06-Go-Your-Own-Way.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2024/11/06-Go-Your-Own-Way.mp3>
 
 **1995:** Bruce kicks off what will prove to be a marathon-length world tour, performing solo and acoustic in small theaters and intimate venues. The tour begins at the Count Basie Theater in Red Bank, where “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” makes its only appearance of the opening leg.<br>
 

@@ -16,8 +16,6 @@ Bruce played "The Ghost of Tom Joad" at almost every show on the tour (usually a
 
 [https://estreetshuffle.com/wp-content/uploads/2021/05/101-Tom-Joad.mp3](https://estreetshuffle.com/wp-content/uploads/2021/05/101-Tom-Joad.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/05/101-Tom-Joad.mp3>
-
 Bruce gave no explanation for the set list shake-up, but it was almost certainly inspired by his upcoming appearance at a Woody Guthrie tribute concert four days later in Akron, where he again opened with "Tom Joad."
 
 Bruce continued opening with Guthrie's ballad for an entire month before reverting back to his original opener. After that, he only played "Tom Joad" twice more (the following summer in Australia), and then never again.

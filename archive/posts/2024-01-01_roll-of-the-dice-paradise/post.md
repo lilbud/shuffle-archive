@@ -77,8 +77,6 @@ In the same promotional interview, Bruce says that was trying to say that "hey, 
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3>
-
 "Paradise" found an on-stage home in 2005, however. Far more suited to the stripped-down, intimate setting of an acoustic theater tour, Bruce performed the song a dozen times, seamlessly switching from an electric keyboard to an acoustic piano between the second and third verses to great effect, telegraphing the determination of the final point-of-view character to find his paradise in the here and now. Watch a gorgeous performance of this arrangement, performed in East Rutherford on May 19, 2005.
 
 [Watch on Youtube: Bruce Springsteen - PARADISE 2005](https://www.youtube.com/watch?v=EmZLYGjDiQc)

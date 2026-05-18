@@ -20,8 +20,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/09-Track09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/09-Track09.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/06/09-Track09.mp3>
-
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KZjA-f-jhIw)
 
 ![](../../assets/2021/06/1989-06-30.jpg)
@@ -73,8 +71,6 @@
 **2021:** Bruce releases the 24th installment of his E Street Radio show, *From My Home to Yours*, entitled "Night Time is the Right Time."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-30-Bruce-E-Street-Radio-DJ-set-24.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-30-Bruce-E-Street-Radio-DJ-set-24.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-30-Bruce-E-Street-Radio-DJ-set-24.mp3>
 
 That evening, *Springsteen on Broadway* continues its return engagement at the St. James Theater in New York City, and Jon Stewart, Patti Hansen, and Michael Kors are in attendance.
 

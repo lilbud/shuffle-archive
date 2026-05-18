@@ -2,7 +2,7 @@
 
 **1973:** Bruce headlines his final show of a three-night stand at My Father’s Place in Roslyn, New York.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/1973-11-15.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/10/1973-11-14.jpg)
 
 **1974:** Bruce and the E Street Band play a gig at American University in Washington, DC, where Bruce’s cover of “[Wear My Ring Around Your Neck](https://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)” makes its debut.<br>
 
@@ -10,9 +10,7 @@
 
 **1978:** Bruce opens his Darkness show in Toronto with his first-ever performance of “[Ready Teddy.](https://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp31](https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp31)
-
-<https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3>
+[https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2023/11/The_Toronto_Star_Fri__Nov_17__1978_.jpg)
 

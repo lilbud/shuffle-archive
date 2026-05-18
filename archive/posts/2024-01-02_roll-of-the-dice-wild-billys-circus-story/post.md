@@ -106,8 +106,6 @@ The song all but disappeared for a quarter-century after the Wild & Innocent Tou
 
 [https://estreetshuffle.com/wp-content/uploads/2019/03/111-Wild-Billys-Circus-Story.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/111-Wild-Billys-Circus-Story.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/03/111-Wild-Billys-Circus-Story.mp3>
-
 In the post-Reunion era, "Wild Billy" has made a dozen or so appearances–just often enough to reassure us that Bruce hasn't forgotten about him.
 
 I'll share one more unusual performance, this one from 2009. Bruce joined Elvis Costello at the Apollo Theater in New York City for a two-part episode of *Spectacle*, and during the interview, Elvis asked Bruce what inspired him to write the song. Bruce answered with the quote at the top of this essay and followed up by performing the song with Nils and Roy by his side. It's a lovely reading of a song that's held up remarkably well for more than four decades.

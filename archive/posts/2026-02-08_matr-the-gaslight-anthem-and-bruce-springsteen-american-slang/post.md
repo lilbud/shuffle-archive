@@ -6,8 +6,6 @@ Bruce even admitted in an interview with Simon Mayo that if he was ever taken ou
 
 [https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-with-Simon-Mayo1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-with-Simon-Mayo1.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-with-Simon-Mayo1.mp3>
-
 Bruce had already appeared on stage with Brian twice just two years prior, joining the band for their title track when they toured behind "The '59 Sound."
 
 When the band came through Asbury in 2011, Bruce once again joined them for their title track–but this time the album was their follow-up, *American Slang.*

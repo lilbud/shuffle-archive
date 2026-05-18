@@ -12,8 +12,6 @@ Earlier that same day, Bruce and Dave Sancious drop by WMMR-FM in Philadelphia t
 
 [https://estreetshuffle.com/wp-content/uploads/2023/04/Flashback_-Bruce-Springsteen-Guest-DJ-Spot-on-MMR-April-7-1974.mp3](https://estreetshuffle.com/wp-content/uploads/2023/04/Flashback_-Bruce-Springsteen-Guest-DJ-Spot-on-MMR-April-7-1974.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/04/Flashback_-Bruce-Springsteen-Guest-DJ-Spot-on-MMR-April-7-1974.mp3>
-
 **1976:** Bruce and the E Street Band bring the Chicken Scratch Tour to Cleveland for the first of two nights, to at least one underwhelming review. Earlier in the day, Kid Leo interviews Bruce on WMMS-FM radio.<br>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/04/The_Plain_Dealer_1976_04_09_94.jpg)

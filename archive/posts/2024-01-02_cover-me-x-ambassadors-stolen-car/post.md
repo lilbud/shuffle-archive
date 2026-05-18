@@ -8,5 +8,3 @@ So it was probably inevitable that the guys would eventually cover one of Bruce'
 That moment came last year, in March of 2018–and when they chose a song, they chose wisely, eschewing the hits and zeroing in on one of Bruce's deepest and most atmospheric cuts.
 
 Here's the X Ambassadors' wonderful take on Bruce's "Stolen Car.'
-
-<http://estreetshuffle.com/wp-content/uploads/2019/05/X-Ambassadors-Spotify-Singles.mp3>

@@ -14,8 +14,6 @@ There were plenty of artists on hand to take a swing at the verses; in the recor
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/NowOrNever.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/NowOrNever.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/02/NowOrNever.mp3>
-
 To this day, those two lines and shared choruses represent the only time Bruce has ever covered "It's Now or Never" in concert, but if all we're destined to get is an ensemble number, at least we got quite the ensemble.
 
 **It's Now or Never**<br>

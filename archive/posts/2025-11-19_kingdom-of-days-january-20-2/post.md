@@ -48,8 +48,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3>
-
 That evening, Bruce kicks off the inaugural celebration for President Joe Biden with a gorgeous solo performance of “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/).”
 
 [Watch on Youtube: Bruce Springsteen Performs "Land of Hope and Dreams"| Biden-Harris Inauguration 2021](https://www.youtube.com/watch?v=fW_Vny_aXNM)

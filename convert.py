@@ -58,7 +58,7 @@ def save_to_archive(post: dict) -> None:
         print(f"{save_path.name}: created md")
 
 
-for file in Path("./posts_json/").glob("*.json"):
-    with file.open("r", encoding="utf-8") as f:
-        post = json.load(f)
-        save_to_archive(post)
+# for file in Path("./posts_json/").glob("*.json"):
+#     with file.open("r", encoding="utf-8") as f:
+#         post = json.load(f)
+#         save_to_archive(post)

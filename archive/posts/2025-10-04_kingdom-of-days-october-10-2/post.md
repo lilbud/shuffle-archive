@@ -8,8 +8,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3](https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2018/10/1976-1010.jpg)
 
 **1980:** Bruce and the E Street Band bring the River Tour to Chicago for the first of two nights at the Uptown Theater, where they tour premiere a show-closing “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/).”<br>
@@ -55,8 +53,6 @@
 **2017:** Previews continue for *Springsteen on Broadway* at the Walter Kerr Theater in New York City.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2024/10/101-Welcome.-I-Have-A-Magic-Trick-Bruce-Springsteen.mp3](https://estreetshuffle.com/wp-content/uploads/2024/10/101-Welcome.-I-Have-A-Magic-Trick-Bruce-Springsteen.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2024/10/101-Welcome.-I-Have-A-Magic-Trick-Bruce-Springsteen.mp3>
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

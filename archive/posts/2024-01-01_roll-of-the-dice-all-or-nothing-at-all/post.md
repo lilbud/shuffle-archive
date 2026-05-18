@@ -19,8 +19,6 @@ So yeah, the chorus says it all: the narrator wants his love to give him all of 
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3>
-
 Bruce knows this song doesn't rank among his best work; it's probably why he's only ever performed it eight times, and only twice (by request, somehow) since 1992.
 
 The last time he played it was in Woodlands, Texas, in 2014, and wouldn't you know it: I was 5th in the pit, leaning dead center on the stage by Bruce the whole night. My best pit position ever. By that point of the High Hopes Tour, every show was a wild card of requests and rarities. I was excited to see what Bruce would surprise us with that night, and I was none too pleased when he chose "All or Nothin' at All." Heck, the person who requested it wasn't even there that night!

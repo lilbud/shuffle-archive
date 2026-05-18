@@ -18,8 +18,6 @@ Riding high on the success of *The River* and feeling low after near exhausting 
 
 [https://estreetshuffle.com/wp-content/uploads/2022/07/20-Bye-Bye-Johnny.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/20-Bye-Bye-Johnny.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/07/20-Bye-Bye-Johnny.mp3>
-
 This new version of "Come On (Let's Go Tonight)" was more uptempo and urgent than his earlier outtake. (It actually sounded very much like the *Nebraska* material he'd write only months later.)
 
 It was a stronger song, and one that showed considerable promise. When he returned to the stage a few weeks later, Bruce brought his new song with him. It wasn't the version he'd recorded at home, though–the song had evolved and now featured a new melody, three new verses, and a new title: "Johnny Bye Bye."

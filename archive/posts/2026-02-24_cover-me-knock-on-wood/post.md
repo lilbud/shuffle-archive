@@ -18,8 +18,6 @@ It was the evening of April 29, 1976 (the same night Bruce and Steve broke into 
 
 [https://estreetshuffle.com/wp-content/uploads/2021/04/Knock-on-Wood-1976-04-29.mp3](https://estreetshuffle.com/wp-content/uploads/2021/04/Knock-on-Wood-1976-04-29.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/04/Knock-on-Wood-1976-04-29.mp3>
-
 It was a terrific performance, but as great as the E Street Band is, you really can't do justice to "Knock on Wood" without a horn section.
 
 Flash forward 36 years: At Bruce's legendary second show at Fenway Park on the Wrecking Ball Tour, Bruce saw a sign for "Knock on Wood" and leapt at it. By this point in the tour, the super-sized E Street Band–complete with horn section and backing vocalists–was firing on all cylinders, and when Bruce threw this particular curve ball, they *nailed* it.

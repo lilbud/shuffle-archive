@@ -16,7 +16,7 @@
 
 **1972:** Bruce plays his third of six two-shows-a-night solo gigs at Max’s Kansas City that week.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11-1.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11.jpg)
 
 **1973:** Bruce and the E Street Band play Uncle Al’s Erlton Theater Lounge in Cherry Hill, New Jersey. Why was Bruce’s name so hard to spell correctly during these years?<br>
 
@@ -123,5 +123,3 @@ You’d be forgiven for thinking nothing else happened in the news today–here�
 **2020:** A special nocturnal-themed Episode 10 (“In Dreams”) of *From My Home to Yours* airs at midnight.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/08/2020-08-15-Bruce-E-Street-Radio-DJ-set-10.mp3](https://estreetshuffle.com/wp-content/uploads/2021/08/2020-08-15-Bruce-E-Street-Radio-DJ-set-10.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/08/2020-08-15-Bruce-E-Street-Radio-DJ-set-10.mp3>

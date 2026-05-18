@@ -4,7 +4,7 @@
 
 **1972:** Bruce plays his fourth of six two-shows-a-night solo gigs at Max’s Kansas City that week.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11-1.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11.jpg)
 
 **1974**: Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions.<br>
 

@@ -30,11 +30,7 @@ And as for the electric guitar riff that opens both the track and the album (the
 
 [https://estreetshuffle.com/wp-content/uploads/2022/12/Blinded-By-The-Light1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/Blinded-By-The-Light1.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/12/Blinded-By-The-Light1.mp3>
-
 [https://estreetshuffle.com/wp-content/uploads/2022/12/Listen-to-the-Music.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/Listen-to-the-Music.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/12/Listen-to-the-Music.mp3>
 
 While at least some musical ingredients might have ripened on other trees, there's no doubt Springsteen's lyrics flowed freely from his fertile imagination and his rhyming dictionary. They're too metrically unique to have come from anywhere else.
 

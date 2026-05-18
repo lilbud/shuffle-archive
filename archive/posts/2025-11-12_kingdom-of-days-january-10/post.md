@@ -24,15 +24,11 @@ That night, the Born in the U.S.A. Tour stops in Louisville at Freedom Hall.
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/109-Sell-It-and-They-will-Come-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/109-Sell-It-and-They-will-Come-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/01/109-Sell-It-and-They-will-Come-online-audio-converter.com_.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/Detroit_Free_Press_1996_01_12_Page_56.jpg)
 
 **2014:** Days before the release of *High Hopes*, Bruce calls into E Street Radio for a lengthy interview. Listen to the entire conversation below.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/2014-01-10-Interview-on-E-Street-Radio-January-10-2014-65-minutes.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/2014-01-10-Interview-on-E-Street-Radio-January-10-2014-65-minutes.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/01/2014-01-10-Interview-on-E-Street-Radio-January-10-2014-65-minutes.mp3>
 
 **2017**: Bob Santelli interviews Bruce on stage at Monmouth University.<br>
 

@@ -32,8 +32,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1988-05-14.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1988-05-14.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1988-05-14.mp3>
-
 **1993:** Bruce’s World Tour 1993 moves on to Germany for the first of four shows. The opener is in Berlin, where Bruce plays “[Satan’s Jeweled Crown](https://estreetshuffle.com/index.php/2020/05/09/cover-me-satans-jeweled-crown/)” for the very first time. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28724/Bruce-Springsteen-mp3-flac-download-5-14-1993-Waldb%C3%BChne-Berlin-DE.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - SATAN'S JEWEL CROWN 1993 (audio)](https://www.youtube.com/watch?v=Fg1Uze7_2W4)

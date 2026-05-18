@@ -45,8 +45,6 @@ Of course, just because Bruce meant his song as an expression of grief rather th
 
 [https://estreetshuffle.com/wp-content/uploads/2022/09/Bruce-Springsteen-Empty-Sky-Atlantic-City-070320031.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/Bruce-Springsteen-Empty-Sky-Atlantic-City-070320031.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/09/Bruce-Springsteen-Empty-Sky-Atlantic-City-070320031.mp3>
-
 Other than the rare exceptional occasion, Bruce typically found his audiences receptive to his quiet, introspective song. That was very likely due at least in part to the arrangement he used in concert: a quiet, plaintive acoustic duet with Patti Scialfa that betrayed not a hint of anger.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Empty Sky (Live In Barcelona)](https://www.youtube.com/watch?v=GwpcTn1djC8)

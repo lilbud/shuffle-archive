@@ -62,8 +62,6 @@ To figure out someone's true name, you must completely understand them. With thi
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/Bruce-Springsteen-02-Adam-Raised-A-Cain.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/Bruce-Springsteen-02-Adam-Raised-A-Cain.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/05/Bruce-Springsteen-02-Adam-Raised-A-Cain.mp3>
-
 The irony of "Adam Raised a Cain" comes in the third verse, in which our narrator resents his father for blaming others for his own metaphorical imprisonment. (He changed another line in the outtake version above: a reference to his father haunting "these empty rooms rattling these chains," which might have been a little too on-the-nose.)
 
 But of course, blaming others for his own situation is exactly what our narrator is doing in this verse as well.

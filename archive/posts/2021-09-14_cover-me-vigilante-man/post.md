@@ -51,8 +51,6 @@ Years before Bruce recorded *The Ghost of Tom Joad*, he was taken enough with Gu
 
 [https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3>
-
 Bruce's version leverages Guthrie's lyrics, but he drops the verses that date the song to the Dust Bowl era. That simple omission makes the song resonate with contemporary urgency–it could have been written about the plight of the homeless and the dangers they face on the city streets.
 
 Musically, though, Bruce completely reinvents the song as a taut, suspenseful rocker. Listen with your eyes closed and you'll see the narrator hiding and darting in the shadows, you'll bear witness to violent scenes choreographed to Bruce's guitar solo.

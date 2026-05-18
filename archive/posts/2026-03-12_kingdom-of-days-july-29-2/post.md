@@ -16,8 +16,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/07/1975-07-29_WHFS_interview_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2025/07/1975-07-29_WHFS_interview_KLICKAUD.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/07/1975-07-29_WHFS_interview_KLICKAUD.mp3>
-
 **1976:** Mike Appel countersues Bruce for breach of contract, escalating their legal battle.<br>
 
 **1978:** At the Bayfront Center Arena in St. Petersburg, Bruce opens his Darkness Tour show with his debut of "Oh Boy" and adds a second cover debut later in the show: Chuck Berry's "Around and Around."<br>
@@ -55,5 +53,3 @@
 **2020:** On the occasion of Patti Scialfa's 67th birthday, her husband debuts Volume 9 of his ongoing radio show, *From My Home to Yours*. This episode is entitled (appropriately) "Rumble Doll."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-29-Bruce-ESR-DJ-set-9.mp3](https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-29-Bruce-ESR-DJ-set-9.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-29-Bruce-ESR-DJ-set-9.mp3>

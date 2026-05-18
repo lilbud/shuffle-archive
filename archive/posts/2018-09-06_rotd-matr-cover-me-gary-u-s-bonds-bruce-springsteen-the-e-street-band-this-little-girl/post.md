@@ -77,8 +77,6 @@ Whenever Bruce *did* play it on stage, it was because Bonds was right there next
 
 [https://estreetshuffle.com/wp-content/uploads/2018/09/204-This-Little-Girl-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/09/204-This-Little-Girl-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/09/204-This-Little-Girl-online-audio-converter.com_.mp3>
-
 …and another one (a bit too slow for my tastes) from 2012:
 
 [Watch on Youtube: This Little Girl - Springsteen & Gary US Bonds - MetLife Stadium - Sept 22, 2012](https://www.youtube.com/watch?v=FP7m_o7Gqc4)

@@ -26,8 +26,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3](https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3>
-
 **1984:** Bruce records a new song, “Ida Rose (No One Knows).” It hasn’t surfaced as of this writing, but it was included on an unreleased 1993 prototype for *Tracks.*<br>
 
 **1996:** Bruce opens the San Remo Music Festival with an acoustic performance of “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” on Italian TV.<br>

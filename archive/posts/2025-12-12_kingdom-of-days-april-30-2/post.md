@@ -22,9 +22,7 @@
 
 **1996:** Bruce brings his solo acoustic tour to Strasbourg, France.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp31](https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp31)
-
-<https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3>
+[https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3)
 
 **2000:** “Dancing in the Dark” makes its Reunion-era debut in a unique and short-lived country arrangement at the Firstar Center in Cincinnati.<br>
 

@@ -22,8 +22,6 @@ Bruce and the band recorded "Kitty's Back" in the summer of '73. A contemporaneo
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/06-Kittys-Back-earliest-known-live-version-1973-2.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/06-Kittys-Back-earliest-known-live-version-1973-2.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/01/06-Kittys-Back-earliest-known-live-version-1973-2.mp3>
-
 But we're not going to talk about the lyrics today, because as I said earlier: the lyrics are incidental. I'm not even sure why Bruce wrote them–this isn't a song you sing, it's a song you *play*. It's a song you feel, and a song you experience.
 
 Lyrics? Bah. Apart from the endless "ooooh all right" coda. there's only one essential line in "Kitty's Back":

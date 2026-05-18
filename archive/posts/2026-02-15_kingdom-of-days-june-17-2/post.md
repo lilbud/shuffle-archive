@@ -70,8 +70,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-17-Bruce-E-Street-Radio-DJ-set-6.mp3](https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-17-Bruce-E-Street-Radio-DJ-set-6.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-17-Bruce-E-Street-Radio-DJ-set-6.mp3>
-
 **2023:** On his night off between shows in Birmingham, Bruce attends Steve Earle's solo acoustic show.<br>
 
 **2024:** Bruce and the E Street Band wrap up their three-night stand in Madrid, tour premiering "[Cover Me.](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)"<br>

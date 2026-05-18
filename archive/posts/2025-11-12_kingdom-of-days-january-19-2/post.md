@@ -14,8 +14,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1981-01-19.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1981-01-19.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1981-01-19.mp3>
-
 **1983:** Bruce records “[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)” and “[One Love](https://estreetshuffle.com/index.php/2019/04/23/roll-of-the-dice-one-love/).” The former will be released as a 1984 B-side (and on *Tracks* fifteen years later); the latter is unreleased to this day.<br>
 
 [Watch on Youtube: Shut Out The Light](https://www.youtube.com/watch?v=1w_S4JhQ2lE)
@@ -38,8 +36,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3](https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3>
-
 **2012:** “[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)” is released as a digital download single in advance of the release of [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/).<br>
 
 [Watch on Youtube: Bruce Springsteen -- We Take Care Of Our Own (Official Lyric Video)](https://www.youtube.com/watch?v=M3Bz0d2xm7U)
@@ -49,8 +45,6 @@
 **2016:** The River Tour moves on to Chicago. In memory of Glenn Frey, who died the day before, Bruce performs an acoustic “[Take It Easy](https://wp.me/p9w3Lk-3y)” in the encore. This is only night two of the tour, and Bruce is a little rusty. Listen to him forget how to start “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/).” Twice.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3>
 
 [Watch Video Highlight](https://videopress.com/embed/8RnJsHus)
 

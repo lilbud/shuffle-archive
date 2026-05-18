@@ -8,7 +8,7 @@ While we don't have any music to pair with the lyrics, the lyrics themselves giv
 
 Today's entry is the very first song transcribed in that notebook, entitled simply "Clouds."
 
-![](../../assets/2019/01/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2021/06/1968_lyricsnotebook-contentspage.jpg)
 
 "Clouds" is very much of its time, an anti-war song from the point of view of a young soldier in Vietnam, trying desperately to hang on to his life, his love, and his sanity. He's on the battlefield, and the clouds above offer temporary refuge from the chaos below. They seduce him and endanger him at the same time. He's not sure why he's there or what he's fighting for, and he's beginning to doubt whether he'll ever know or make it back to his home and his sweetheart.
 

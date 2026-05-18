@@ -28,8 +28,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3>
-
 [Watch Video Highlight](https://videopress.com/embed/7Ahqp4On)
 
 [Watch Video Highlight](https://videopress.com/embed/ZmiCslvD)

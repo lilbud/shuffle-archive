@@ -12,8 +12,6 @@ If you haven't heard it before, trust me: you need to. It's magnificent, even mo
 
 [https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3>
-
 Lamar's additional lyrics add heightened resonance, and I'm sure Bruce approves–he's always been one to adapt, reinvent, and rewrite when covering other artists.
 
 In case they fly by a bit too quickly to fully appreciate, here are Lamar's lyrics:

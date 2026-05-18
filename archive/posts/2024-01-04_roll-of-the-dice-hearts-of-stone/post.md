@@ -26,8 +26,6 @@ For years, fans have debated over which version is the superior one, and it inev
 
 [https://estreetshuffle.com/wp-content/uploads/2022/09/01-Hearts-of-Stone.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/01-Hearts-of-Stone.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/09/01-Hearts-of-Stone.mp3>
-
 So which version should we think of as the true original "Hearts of Stone?" Take your pick. They're both built on the same original E Street Band performance, and they both have additional elements.
 
 But DNA typing isn't the only challenge we're presented with when analyzing "Hearts of Stone," because lyrically we're listening to one of the coldest, most emotionally brutal songs in Springsteen's catalog. You wouldn't realize it from listening to the painfully exquisite end result though, because both Bruce and Southside deliver their vocals with soulful tenderness and empathy that belie the song's actual content.
@@ -82,8 +80,6 @@ Unfortunately, that debut performance kind of sucked.
 The blame can't be placed with Bruce, though: the fault lies with Southside, who so thoroughly and completely forgets the lyrics that it's painful to listen to. (I suppose we could blame Bruce for not coming to his buddy's rescue sooner.)
 
 [https://estreetshuffle.com/wp-content/uploads/2022/09/1988-11-26-Hearts-of-Stone.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/1988-11-26-Hearts-of-Stone.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/09/1988-11-26-Hearts-of-Stone.mp3>
 
 It would take a full quarter-century after that before Bruce would attempt "Hearts of Stone" on his own. That moment came during a surprise pre-show in Limerick during the Wrecking Ball Tour, when Bruce thrilled early-arriving fans with his first-ever live solo performance (acoustic, too!) of "Hearts of Stone."
 

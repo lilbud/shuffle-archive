@@ -14,8 +14,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3>
-
 [Watch on Youtube: New York 22/07/1975](https://www.youtube.com/playlist?list=PLJTyL9twk3zBU71zy1szdg9oirFfoyzMi)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/07/1975-07-22.jpg)

@@ -4,8 +4,6 @@ After all, "Bad Day" evolved in true Springsteenian style, first appearing in th
 
 [https://estreetshuffle.com/wp-content/uploads/2021/05/REM_-_PSA_Bad_Day_-_JBs_Theater_Albany_NY_25_August_1985_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2021/05/REM_-_PSA_Bad_Day_-_JBs_Theater_Albany_NY_25_August_1985_KLICKAUD.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/05/REM_-_PSA_Bad_Day_-_JBs_Theater_Albany_NY_25_August_1985_KLICKAUD.mp3>
-
 A year later, those lyrics appeared as the chorus of a demo called "P.S.A." recorded–but not released–for the band's *Life's Rich Pageant* album.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BNrjJoH_uXI)

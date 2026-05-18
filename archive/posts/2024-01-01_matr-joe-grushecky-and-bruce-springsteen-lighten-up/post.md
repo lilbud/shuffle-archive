@@ -6,8 +6,6 @@ This audio clip is the final encore from the October 20, 1995 show at Nick’s F
 
 [https://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3>
-
 Here’s the original for comparison.
 
 [Watch on Youtube: Lighten Up](https://www.youtube.com/watch?v=hZdE37zkdiA)

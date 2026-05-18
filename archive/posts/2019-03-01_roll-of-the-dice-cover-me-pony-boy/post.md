@@ -67,8 +67,6 @@ But when he was about to turn fifteen… well, I imagine he had a somewhat diffe
 
 [https://estreetshuffle.com/wp-content/uploads/2019/03/05-Long-Time-Comin.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/05-Long-Time-Comin.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/03/05-Long-Time-Comin.mp3>
-
 Gentle embarrassment: the tool of choice for loving parents of teenagers.
 
 How better to make it easier for your kids to leave the nest while always making sure they know they always have a home?

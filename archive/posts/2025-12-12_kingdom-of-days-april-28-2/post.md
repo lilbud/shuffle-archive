@@ -96,8 +96,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3>
-
 **2023:** Bruce and the E Street Band kick off the European leg of their 2023 World Tour in Barcelona with some special guests: former U.S. First Lady Michelle Obama and actress Kate Capshaw join Patti Scialfa on stage for backing vocals on “Glory Days.” The run of nightly tour premieres continue with “Human Touch.”<br>
 
 [Watch on Youtube: Bruce Springsteen singing Nightshift live in Barcelona 28/04/2023](https://www.youtube.com/watch?v=KUoPAY8d0uY)

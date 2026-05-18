@@ -58,8 +58,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3>
-
 **2024:** Bruce has played in Asbury Park many times over the years, but never to a crowd this big, as he closes out Sea Hear Now with a headlining set featuring several tour premieres and a setlist tailored for the occasion. Before his set, Bruce pops up on two separate stages, joining undercards Gaslight Anthem and Trey Anastasio Band in guest appearances.<br>
 
 [Watch on Youtube: Bruce Springsteen and Trey Anastasio - "Kitty's Back" - Asbury Park, NJ - 9/15/24](https://www.youtube.com/watch?v=HHhGgZ-Uz9Q)

@@ -10,7 +10,7 @@ Getting Bruce to appear on your track is a tall order under normal circumstances
 
 One day, Antonoff brought the track with him to Bruce's home studio, and... well, let's let him tell us what happened next in this clip from an NPR interview from last year.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/20210729_me_jack_antonoff_and_bruce_springsteen_head_home_to_jersey_on_bleachers_chinatown1.mp33](https://estreetshuffle.com/wp-content/uploads/2022/05/20210729_me_jack_antonoff_and_bruce_springsteen_head_home_to_jersey_on_bleachers_chinatown1.mp33)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/20210729_me_jack_antonoff_and_bruce_springsteen_head_home_to_jersey_on_bleachers_chinatown1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/20210729_me_jack_antonoff_and_bruce_springsteen_head_home_to_jersey_on_bleachers_chinatown1.mp3)
 
 Now, it's one thing to get Bruce Springsteen to appear on your album track. It's another to get him to co-star in your video. But come on–we're talking about a song that's literally about driving to New Jersey. How could Bruce not appear in it?
 

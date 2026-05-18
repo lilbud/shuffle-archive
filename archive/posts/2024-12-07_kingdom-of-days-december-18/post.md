@@ -43,4 +43,4 @@ Bruce holds his second of two inaugural Asbury Park holiday shows at Convention 
 
 BBC Radio 4 airs Bruce's October 19th interview with Kirsty Young on in which Bruce chooses eight songs he wouldn't want to live without.
 
-**2016:***Desert Island Discs*, <https://estreetshuffle.com/wp-content/uploads/2023/12/DesertIslandDiscs-20161218-BruceSpringsteen.mp3>
+**2016:***Desert Island Discs*,

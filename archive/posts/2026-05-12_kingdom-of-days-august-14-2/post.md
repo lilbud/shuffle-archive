@@ -121,5 +121,3 @@ You'd be forgiven for thinking nothing else happened in the news today–here's 
 **2020:** A special nocturnal-themed Episode 10 ("In Dreams") of *From My Home to Yours* airs at midnight.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/08/2020-08-15-Bruce-E-Street-Radio-DJ-set-10.mp3](https://estreetshuffle.com/wp-content/uploads/2021/08/2020-08-15-Bruce-E-Street-Radio-DJ-set-10.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/08/2020-08-15-Bruce-E-Street-Radio-DJ-set-10.mp3>

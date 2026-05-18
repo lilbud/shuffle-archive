@@ -26,8 +26,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3>
-
 **1989**: Bruce joins the Rolling Stones, the Temptations, Tina Turner, Stevie Wonder, Pete Townshend, and more on stage for the all-star jam at the fourth annual Rock and Roll Hall of Fame induction ceremony. Bruce takes lead vocals on Roy Orbison’s “[Crying](https://estreetshuffle.com/index.php/2022/05/06/cover-me-crying/)” and plays guitar throughout the rest of the jam.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/F1pnPZMx)

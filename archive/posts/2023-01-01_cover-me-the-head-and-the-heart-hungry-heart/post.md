@@ -9,5 +9,3 @@ But fear not, THATH/Springsteen fans: late last year, The Head and The Heart pai
 Here's that performance: a lovely and aptly-chosen cover of Bruce's "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)."
 
 [https://estreetshuffle.com/wp-content/uploads/2020/02/head-heart-hungry.mp3](https://estreetshuffle.com/wp-content/uploads/2020/02/head-heart-hungry.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2020/02/head-heart-hungry.mp3>

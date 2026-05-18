@@ -14,7 +14,7 @@ Bruce's pieces were published in the journal's January 1969 issue, only a few co
 
 We'll take a look at the poem Bruce wrote later this year. Today, let's take a look at his prose submission, a metaphorical ode entitled "My Lady."
 
-![](../../assets/2022/01/1969_seascape_mylady.jpg)
+![](../../assets/2021/04/my-lady.jpg)
 
 "My Lady" has a pretty clever conceit: it's told from the perspective of a middle-aged man growing increasingly aware of his mortality and decreasingly fearful of it. It's a short narrative, but Bruce still manages to hold the reveal until the end: the lady for whom he expresses his appreciation is Death herself.
 

@@ -4,7 +4,7 @@ While many of those prehistoric songs were incomplete and some were just wisps, 
 
 "The Window" was among the first four entries that Bruce transcribed in his notebook when he broke it in on April 26, 1968.
 
-![](../../assets/2020/12/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2021/06/1968_lyricsnotebook-contentspage.jpg)
 
 Because he entered all four on the same day, it's very likely that all four had been written previously, which would explain their relative polish.
 

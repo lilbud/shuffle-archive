@@ -18,8 +18,6 @@ Bob Alfano was the last member to join The Castiles. He followed the band's lead
 
 [https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3>
-
 ---
 
 Vinnie Manniello replaced Bart Haynes as the band's drummer and remained with the band until their 1968 breakup. When his former bandmate scored an audition with Columbia A&R legend John Hammond four years later, Manniello leant him his acoustic guitar to audition with. He remained an active musician and a Freehold resident until his peaceful death in 2011.
@@ -134,8 +132,6 @@ The first was shortly after the song's release in October 2020 when Bruce appear
 The second was just a couple of weeks ago during Bruce's interview with Howard Stern.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/11/Stern-LMS.mp3](https://estreetshuffle.com/wp-content/uploads/2022/11/Stern-LMS.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/11/Stern-LMS.mp3>
 
 As the genesis for *Letter to You*, "Last Man Standing" seems like a pretty good bet for at least a few set list appearances on Bruce's next tour–which as of this writing is only weeks away. So if you're waiting for a full-band performance, we hopefully won't have to wait much longer.
 

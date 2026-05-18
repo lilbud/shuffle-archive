@@ -83,5 +83,3 @@
 **2020:** It's starting to look like a series: Bruce makes his third appearance as radio DJ on his E Street Radio show, *From My Home to Yours.*<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-06-Bruce-E-Street-Radio-DJ-set-3.mp3](https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-06-Bruce-E-Street-Radio-DJ-set-3.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-06-Bruce-E-Street-Radio-DJ-set-3.mp3>

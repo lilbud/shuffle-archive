@@ -28,8 +28,6 @@ Bruce’s appearance was heavy on classic rock and roll covers, including a few 
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/1997-03-08-My-Girl.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/1997-03-08-My-Girl.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/10/1997-03-08-My-Girl.mp3>
-
 Bruce is clearly enjoying himself in that recording, so again we wonder: why haven’t we seen him perform it on the E Street stage? Maybe it’s because the last time he tried cozying up to Patti with it on stage… well, let’s just say he didn’t get the reaction he was hoping for.
 
 [Watch Video Highlight](https://videopress.com/embed/pxiim0oC)

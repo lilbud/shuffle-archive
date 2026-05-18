@@ -2,7 +2,7 @@
 
 **1972:** Bruce plays his fifth of six two-shows-a-night solo gigs at Max’s Kansas City this week.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11-1.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11.jpg)
 
 **1974**: Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions. Bruce does play a show that evening at the Stone Balloon in Newark, though–his one and only show ever in the state of Delaware.<br>
 

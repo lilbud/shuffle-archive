@@ -22,8 +22,6 @@ That night, the boys play two shows at Liberty Hall.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3>
-
 **1988:** Bruce and the E Street Band play the second of two nights at the Spectrum in Philadelphia, where “Raise Your Hand” closes the show in its first appearance in seven years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/JEl15R0m)

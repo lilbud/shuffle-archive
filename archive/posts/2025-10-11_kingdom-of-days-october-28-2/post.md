@@ -46,8 +46,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-10-28.mp3](https://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-10-28.mp3)
 
-<https://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-10-28.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2024/10/The_Oregonian_1996_10_29_27-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/10/The_Oregonian_1996_10_29_29.jpg)
 
 **1999:** Bruce and the E Street Band play their last of three Reunion Tour shows at the Oakland Arena, where “Sinaloa Cowboys” makes its tour and full-band debut and Southside Johnny guest-stars on “[Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)”<br>
@@ -71,8 +69,6 @@
 **2005:** Bruce’s solo acoustic show at the TD Banknorth Garden in Boston is filmed but remains in the vaults to this day. In 2008, “[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)” from this show will be released as a single and on various promotional EPs.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteen-Dream-Baby-Dream-Live.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteen-Dream-Baby-Dream-Live.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteen-Dream-Baby-Dream-Live.mp3>
 
 [Watch on Youtube: Bruce Springsteen - "You Can Look (But You Better Not Touch)" - Boston, 2005-10-28](https://www.youtube.com/watch?v=AvYK0CaeORU)
 
@@ -99,8 +95,6 @@
 **2020:** E Street Radio airs Volume 14 of Bruce’s *From My Home to Yours* radio show, entitled “Farewell to the Thief.”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-28-Bruce-E-Street-Radio-DJ-set-14-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-28-Bruce-E-Street-Radio-DJ-set-14-1.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-28-Bruce-E-Street-Radio-DJ-set-14-1.mp3>
 
 **2022:** Bruce releases the third advance single from his upcoming *Only the Strong Survive* album: “[Don’t Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/).”<br>
 

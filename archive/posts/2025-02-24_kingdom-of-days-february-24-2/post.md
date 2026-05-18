@@ -27,5 +27,3 @@
 Also today, E Street Radio premieres Volume 18 of Bruce's *From My Home to Yours* radio show, entitled "New Born Soul."
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/2021-02-24-Bruce-E-Street-Radio-DJ-set-18.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/2021-02-24-Bruce-E-Street-Radio-DJ-set-18.mp3)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/02/2021-02-24-Bruce-E-Street-Radio-DJ-set-18.mp3>
