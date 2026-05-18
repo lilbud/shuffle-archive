@@ -1,7 +1,9 @@
 import json
 from pathlib import Path
+
 import psycopg
 from psycopg.rows import dict_row
+
 from main import get_client
 
 DATABASE_URL = "postgresql://postgres:password@localhost:5432/shuffle_new"
@@ -14,6 +16,7 @@ def load_db() -> psycopg.Connection:
         row_factory=dict_row,
     )
 
+
 def get_categories() -> None:
     """Get all categories using WP REST API."""
     with get_client() as client:
@@ -21,18 +24,10 @@ def get_categories() -> None:
 
         res = client.get(url)
 
-        with Path("categories.json").open("w") as f:
-            json.dump(res.json(), f)
-
-def insert_categories() -> None:
-    """Insert categories into database."""
-    with load_db() as conn, conn.cursor() as cur:
-        with Path("categories.json").open("r") as f:
-            categories = json.load(f)
-
-            for cat in categories:
+        with load_db() as conn, conn.cursor() as cur:
+            for cat in res.json():
                 cur.execute(
-                    """INSERT INTO categories (category_id, name, slug) VALUES (%s, %s, %s) on conflict (category_id, name) do nothing""",
+                    """INSERT INTO categories (id, name, slug) VALUES (%s, %s, %s) on conflict (id, name) do nothing""",
                     (
                         cat["id"],
                         cat["name"],
@@ -42,5 +37,8 @@ def insert_categories() -> None:
 
                 conn.commit()
 
+        json.dump(res.json(), Path("categories.json").open("w"))
+
+
 if __name__ == "__main__":
-    insert_categories()
+    get_categories()
