@@ -2,19 +2,19 @@
 
 **1973:** Bruce and the E Street Band play their third night of a week-long residency at Oliver’s in Boston.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1973-08-22.png)
+![](../../assets/2020/08/1973-08-22.png)
 
 **1975:** Bruce and the boys play their second of three nights at Alex Cooley’s Electric Ballroom in Atlanta.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/1975-0822.jpg)
+![](../../assets/2018/08/1975-0822.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1975-08-22.png)
+![](../../assets/2020/08/1975-08-22.png)
 
 **1976:** The original Miami Horns (also known as the Asbury Jukes horn section) make their final appearance with Bruce and the E Street Band at their show at the Springfield Civic Center.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Byyk5H71)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/1976-08-22.jpg)
+![](../../assets/2021/08/1976-08-22.jpg)
 
 **1978:** At Night Two of a three-night Darkness Tour stand at Madison Square Garden, Bruce brings his sixteen-year-old kid sister Pam on stage during the final encore.<br>
 
@@ -42,13 +42,13 @@
 
 [Watch on Youtube: Sherry Darling (Live at Giants Stadium, E. Rutherford, NJ - 8/22/1985)](https://www.youtube.com/watch?v=5heubw6GS9Y)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-22.png)
+![](../../assets/2020/08/1985-08-22.png)
 
 **1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm’s All-Stars for “[Up on Cripple Creek](https://estreetshuffle.com/index.php/2018/01/29/meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/)” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/gxirqWhO)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/08/Press_of_Atlantic_City_1987_08_28_64-scaled.jpg)
+![](../../assets/2024/08/Press_of_Atlantic_City_1987_08_28_64-scaled.jpg)
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to the Richfield Coliseum for the second of two nights.<br>
 
@@ -60,11 +60,11 @@
 
 [Watch on Youtube: Boston 22/08/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zCEh2K-yqI1PAzBZnCXjDzJ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1999-08-22.png)
+![](../../assets/2020/08/1999-08-22.png)
 
 **2002:** Bruce appears on the cover of the new issue of *Rolling Stone*.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/RScover.jpg)
+![](../../assets/2020/08/RScover.jpg)
 
 **2009:** Bruce brings the Working on a Dream Tour to Mansfield, Massachusetts, for the first of two shows. Jay Weinberg takes the drums for the encores.<br>
 
@@ -78,6 +78,6 @@
 
 [Watch on Youtube: Bruce Springsteen "American Land" Band Intros Mansfield 8-22-09](https://www.youtube.com/watch?v=uZmlxapGWww)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2009-08-22.png)
+![](../../assets/2020/08/2009-08-22.png)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>

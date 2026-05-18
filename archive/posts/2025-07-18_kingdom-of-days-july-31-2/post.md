@@ -8,9 +8,9 @@
 
 **1978:** The Darkness Tour continues its southern swing, arriving in Columbia, South Carolina, for a show at the Township Auditorium.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/07/The_Columbia_Record_1978_08_01_30-scaled.jpg)
+![](../../assets/2024/07/The_Columbia_Record_1978_08_01_30-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1978-0731.jpg)
+![](../../assets/2018/07/1978-0731.jpg)
 
 **1982:** Bruce makes a guest appearance with Sonny Kenn and the Wild Ideas at Big Man’s West in Red Bank.<br>
 
@@ -24,15 +24,15 @@ That evening, Bruce tour premieres “[Growin’ Up](https://estreetshuffle.com/
 
 [Watch Video Highlight](https://videopress.com/embed/1IZ822FI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-31.png)
+![](../../assets/2020/07/1984-07-31.png)
 
 **1987:** Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/),” “La Bamba,” and “Twist and Shout.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/91vNP1rr)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1987-07-31a.png)
+![](../../assets/2020/07/1987-07-31a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1987-07-31b.png)
+![](../../assets/2020/07/1987-07-31b.png)
 
 **1992:** The opening stand of World Tour 1992 reaches its midpoint in East Rutherford on Night Six of eleven. Many tour premieres tonight, including “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/),” “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/),” “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)“, and the live debuts of “[Pony Boy](https://estreetshuffle.com/index.php/2019/03/01/roll-of-the-dice-cover-me-pony-boy/)” and “[Cross My Heart](https://estreetshuffle.com/index.php/2020/12/29/roll-of-the-dice-cross-my-heart/).”<br>
 
@@ -84,7 +84,7 @@ That evening, Bruce tour premieres “[Growin’ Up](https://estreetshuffle.com/
 
 [Watch on Youtube: U2 & Bruce Springsteen - (HD) I Still Haven't Found What I'm Looking For - July 31, 2015](https://www.youtube.com/watch?v=IR2y_Hjzmy8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2015-07-31.png)
+![](../../assets/2020/07/2015-07-31.png)
 
 **2016:** Bruce wraps the European River Tour with a final show in Zurich, where he tour debuts “[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)” and “[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)” and plays a rare “[Jole Blon.](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)”<br>
 
@@ -96,9 +96,9 @@ That evening, Bruce tour premieres “[Growin’ Up](https://estreetshuffle.com/
 
 **2022:** Bruce strolls the Asbury Park boardwalk and stops by the Wonder Bar in Asbury Park to acknowledge the storied venue’s 20th anniversary. Before he leaves, he graciously poses for a photo with this blogger and Jersey Shore rock and roll tour guide Stan Goldstein.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/07/IMG_5216.jpg)
+![](../../assets/2023/07/IMG_5216.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/07/e4aac969-2276-4cd0-a652-cd3fbd55f91b.jpg)
+![](../../assets/2023/07/e4aac969-2276-4cd0-a652-cd3fbd55f91b.jpg)
 > Bruce Springsteen stops by the Wonder Bar in Asbury Park today to thank manager Debbie DeLisa on its 20th anniversary. [pic.twitter.com/hJDHOk6tRL](https://t.co/hJDHOk6tRL)
 >
 > — Stan Goldstein (@Stan_Goldstein) [July 31, 2022](https://twitter.com/Stan_Goldstein/status/1553806532663558147?ref_src=twsrc%5Etfw)

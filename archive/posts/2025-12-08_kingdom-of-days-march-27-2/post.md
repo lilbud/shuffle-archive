@@ -1,14 +1,14 @@
 **1970:** Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1970-0327.jpg)
+![](../../assets/2018/03/1970-0327.jpg)
 
 **1971:** Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional materials but changed to Dr. Zoom and the Sonic Boom by the night of the shows) in order to land a gig opening for the Allman Brothers at Asbury Park’s Sunshine In. These two shows feature an on-stage Monopoly game and a baton twirler during the band’s set. (Lore has it that all Dr. Zoom shows featured these distractions, but this date is the only documented instance of it.)<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1971-0327.jpg)
+![](../../assets/2018/03/1971-0327.jpg)
 
 **1976:** Bruce and Steve drop by Atlanta’s WQXI-FM for an interview with DJ Cat Simon.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1976-0327.jpg)
+![](../../assets/2018/03/1976-0327.jpg)
 
 **1981:** Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.<br>
 

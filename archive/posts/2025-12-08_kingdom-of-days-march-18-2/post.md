@@ -1,18 +1,18 @@
 **1967:** The Castiles play The Cage in Middletown, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1967-0318.jpg)
+![](../../assets/2018/03/1967-0318.jpg)
 
 **1971:** Bruce Springsteen meets his future wife when high school student Patti Scialfa attends his gig at the local YWHA in Deal, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1971-0318.jpg)
+![](../../assets/2018/03/1971-0318.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/1971-03-18.jpg)
+![](../../assets/2020/03/1971-03-18.jpg)
 
 **1972:** The Bruce Springsteen Band plays a gig at Hampden-Sydney College in Virginia.<br>
 
 **1973:** Bruce and his band finish their weeklong stint at Oliver’s in Boston with a rare Sunday matinee performance. Following the show, the band drives to the University of Rhode Island for an evening show opening for Sha Na Na. (Photo credit: Bob Savage)<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0318.jpg)
+![](../../assets/2018/03/1973-0318.jpg)
 
 **1974:** Bruce and his unnamed band play their first two shows (of eight total) at Gertie’s in Dallas. Bruce is not yet popular in Dallas, and the shows are poorly attended.<br>
 
@@ -22,7 +22,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/gcTFjzCM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1977-03-18.jpg)
+![](../../assets/2021/03/1977-03-18.jpg)
 
 **1999:** Bruce and the reunited E Street Band play their first public show at Convention Hall in Asbury Park. The show is a warm-up for the upcoming tour and a benefit for local Asbury Park community organizations. “My Love Will Not Let You Down” and “Land of Hope and Dreams” both make their debuts tonight; “If I Should Fall Behind” makes its E Street Band debut; “Factory” is played for the first time in 15 years; and “The River” and “Youngstown” get new arrangements.<br>
 
@@ -34,9 +34,9 @@ News coverage from the day:
 
 [Watch on Youtube: Prove It All Night Bruce Springsteen March 18 1999, THE REUNION OF THE E STREET BAND](https://www.youtube.com/watch?v=yx-6qyVaUJA)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1999-03-18a.jpg)
+![](../../assets/2021/03/1999-03-18a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/1999-03-18b.jpg)
+![](../../assets/2020/03/1999-03-18b.jpg)
 
 **2000:** The Reunion Tour moves on to Memphis and the Pyramid Arena, where “Follow That Dream” makes its tour debut and only appearance.<br>
 
@@ -44,7 +44,7 @@ News coverage from the day:
 
 [Watch on Youtube: Bruce Springsteen: Land of hope and dreams (dedicated to Elvis and Martin Luther King)](https://www.youtube.com/watch?v=NeANijU5eh0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/03/The_Commercial_Appeal_Sun__Mar_19__2000_.jpg)
+![](../../assets/2024/03/The_Commercial_Appeal_Sun__Mar_19__2000_.jpg)
 
 **2009:** Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park’s Convention Hall. Eavesdrop below to hear them work out several songs, including Jimmy Cliff’s “Sufferin’ in the Land,” which won’t make it to the final setlist.<br>
 
@@ -58,7 +58,7 @@ News coverage from the day:
 
 [Watch on Youtube: I'm Shipping Up To Boston - Dropkick Murphys and The Boss (HiRes)](https://www.youtube.com/watch?v=a7QsVPYWQFE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/2011-03-18.jpg)
+![](../../assets/2020/03/2011-03-18.jpg)
 
 **2012:** The Wrecking Ball Tour kicks off at Philips Arena in Atlanta, featuring the live debut of “Easy Money.”<br>
 
@@ -88,6 +88,6 @@ News coverage from the day:
 
 [Watch on Youtube: 10th Ave Freeze Out - Springsteen - Penn State PA - 3/18/23](https://www.youtube.com/watch?v=bzpVJE1_dGk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-1-scaled.jpg)
+![](../../assets/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-scaled.jpg) ![](../../assets/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-1-scaled.jpg)
 
 **2024:** Bruce and the E Street Band rehearse at the Footprint Center in Phoenix.<br>

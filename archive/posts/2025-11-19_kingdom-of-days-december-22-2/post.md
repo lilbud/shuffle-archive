@@ -2,19 +2,19 @@
 
 **1966:** The Castiles play a gig at the Hullaballoo in Middletown, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/12/hulla.jpg)
+![](../../assets/2021/12/hulla.jpg)
 
 **1967:** The Castiles open for The Broadways at the Ocean Side Surf Club in Sea Bright, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/12/1967-1222.jpg)
+![](../../assets/2018/12/1967-1222.jpg)
 
 **1971:** Bruce is in California visiting his parents, with no set return date. It appears that he anticipates staying a while, though, because he takes the time to obtain his California driver’s license.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/12/cadriverlice-e1540747774272.jpg)
+![](../../assets/2018/12/cadriverlice-e1540747774272.jpg)
 
 **1973:** Bruce and his band headline at Uncle Al’s Erlton Theater Lounge in Cherry Hill, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/12/1973-1222.jpeg)
+![](../../assets/2018/12/1973-1222.jpeg)
 
 **1977:** Bruce calls into WHFS-FM in Bethesda to record a Christmas message for his fans and the station’s listeners.<br>
 
@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Springsteen Live - We're Having a Party - 12-22-2008 Southside Johnny & NJ Greats](https://www.youtube.com/watch?v=W4VjcseoJlo)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2008-12-22.png)
+![](../../assets/2020/11/2008-12-22.png)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 > [View this post on Instagram](https://www.instagram.com/p/BdB6EP4ncwG/?utm_source=ig_embed&utm_campaign=loading)

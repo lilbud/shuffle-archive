@@ -1,8 +1,8 @@
 **1971:** Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under that name, at Asbury Park’s Sunshine In.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/1971-05-14.jpg)
+![](../../assets/2021/05/1971-05-14.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1971-0514.jpg)
+![](../../assets/2018/05/1971-0514.jpg)
 
 **1973:** Bruce assembles his band at 914 Sound Studio to begin recording his second album.<br>
 
@@ -16,15 +16,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/oAGgq6zb)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1981-0514.jpg)
+![](../../assets/2018/05/1981-0514.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/Daily_Mail_Thu__May_21__1981_-scaled.jpg)
+![](../../assets/2024/05/Daily_Mail_Thu__May_21__1981_-scaled.jpg)
 
 **1982:** Bruce and the E Street Band are in the studio at the Power Station in New York City, working on what will become *Born in the U.S.A.*<br>
 
 **1985:** Bruce and Julianne hold their wedding reception, a day after their wedding.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/1985-05-14.jpg)
+![](../../assets/2021/05/1985-05-14.jpg)
 
 **1988:** On *American Top 40*, host Casey Kasem introduces Natalie Cole’s cover of “Pink Cadillac” with a medley of Springsteen covers that hit the Top 40.<br>
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Wreck on the Highway, Fairfax 5/14/05](https://www.youtube.com/watch?v=aurDV4QN-Os)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/Richmond_Times_Dispatch_Mon__May_16__2005_.jpg)
+![](../../assets/2024/05/Richmond_Times_Dispatch_Mon__May_16__2005_.jpg)
 
 **2006:** The Seeger Sessions Tour stops in Barcelona. Watch the local news coverage and interview below.<br>
 
@@ -60,7 +60,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/1rgn9jg5)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2009-05-14.jpg)
+![](../../assets/2021/05/2009-05-14.jpg)
 
 **2013:** Bruce continues playing full albums on the Wrecking Ball Tour, this time *Born to Run* in Copenhagen.<br>
 
@@ -84,7 +84,7 @@
 
 [Watch on Youtube: "Waitin on Sunny Day" Bruce Springsteen & Young Fan@Hersheypark PA Stadium 5/14/14](https://www.youtube.com/watch?v=qz-EYmmp7_g)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2014-05-14a-1.jpg)
+![](../../assets/2021/05/2014-05-14a-1.jpg)
 
 **2016:** The European leg of the River Tour kicks off with a show at Camp Nou in Barcelona. Immediately noticeable: Bruce is no longer playing the entire *The River* album, although he does play much of it, along with a rare outing for “I Wanna Be With You” and the tour premiere of “Twist and Shout.”<br>
 
@@ -100,4 +100,4 @@
 
 [Watch on Youtube: Bruce Springsteen - Chimes of Freedom (Manchester May 14, 2025 [Official Live Video])](https://www.youtube.com/watch?v=HK1WMIHRsQM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/05/The_Guardian_2025_05_16_9-scaled.jpg)
+![](../../assets/2025/05/The_Guardian_2025_05_16_9-scaled.jpg)

@@ -2,7 +2,7 @@
 
 **1976:** Bruce drops by The Hanger in Hazlet, New Jersey, to see Gary U.S. Bonds perform–unknown to Gary. Mid-show, the owner whispers to Gary that Bruce is in the audience and is interested in joining him on stage. Gary has no idea who Bruce is, but his band does and they encourage Bonds to say yes. He does, and Bruce and Gary meet for the first time. Bruce borrows a guitar and plays with Bonds and the band for about an hour, and afterwards Bruce invites Gary to join him at his show at the Palladium the following week.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/1976-1022.jpg)
+![](../../assets/2018/10/1976-1022.jpg)
 
 **1984:** At their second of two nights at the Oakland Coliseum on the Born in the U.S.A. Tour, Bruce and the band tour premiere “Stolen Car” and play their very first performance of “[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/).” Bruce brings his sister Pam on stage for “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).”<br>
 
@@ -10,9 +10,9 @@
 
 [Watch on Youtube: Oakland 22/10/1984](https://www.youtube.com/playlist?list=PLJTyL9twk3zB33eyP6HMctOXaEcrYQa9_)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/1984-10-22.png)
+![](../../assets/2021/10/1984-10-22.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-22a.png)
+![](../../assets/2020/10/1984-10-22a.png)
 
 **1992:** Bruce and his new band play their second of two nights at Mountain View’s Shoreline Amphitheater, featuring the last performance to date of “[The Long Goodbye](https://estreetshuffle.com/index.php/2021/12/05/roll-of-the-dice-the-long-goodbye/).”<br>
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "Tom Joad" - San Diego, 1996-10-22](https://www.youtube.com/watch?v=df5JHctwzsQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/1996-10-22.png)
+![](../../assets/2021/10/1996-10-22.png)
 
 **2002:** Bruce tour premieres “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” in a new solo guitar arrangement at his Rising Tour stop in Rotterdam. “[Countin’ on a Miracle](https://estreetshuffle.com/index.php/2019/02/05/roll-of-the-dice-countin-on-a-miracle/)” also receives a new arrangement, with Nils debuting a beautiful new acoustic introduction.<br>
 
@@ -48,7 +48,7 @@
 
 **2011:** Bruce (along with Roy, Max, Bobby Bandiera’s band and a horn section) plays a benefit show for Boston College at The Stone Pony in Asbury Park, featuring Bruce’s first “[A Woman’s Got the Power](https://estreetshuffle.com/index.php/2018/03/01/cover-me-a-womans-got-the-power/)” in 27 years.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/2011-10-22.jpg)
+![](../../assets/2019/10/2011-10-22.jpg)
 
 **2020:** It’s the day before the release of Bruce’s latest album, and the virtual publicity tour is in full swing. This morning, E Street Radio airs Episode 4 of *Letter to You Radio*, featuring a conversation between Bruce and Jon Stewart.<br>
 

@@ -18,7 +18,7 @@ Check out the videos, and you’ll feel the mood that held for the whole evening
 
 I expected this stand to feature setlist surprises, guest-stars and memorable audience moments (and we got all of them). What I didn’t expect was to get a taste of three different tours on three separate nights.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/2014_01_28-cape-town.-sa.jpg)
+![](../../assets/2018/01/2014_01_28-cape-town.-sa.jpg)
 
 Night 1 featured a High Hopes Tour setlist (although I had no idea at the time what that would look like, given that this was the opening stand), but Night 2 felt like a throwback to 2006 and the Seeger Session Tour.
 

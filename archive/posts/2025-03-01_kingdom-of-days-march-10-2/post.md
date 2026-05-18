@@ -2,15 +2,15 @@
 
 **1967:** The Castiles play the Hullabaloo in Middletown, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/02/1967-0310.jpg)
+![](../../assets/2018/02/1967-0310.jpg)
 
 **1968:** The destined-for-legend Upstage club prepares to open for business in Asbury Park, and the local paper publishes a profile.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/1968-03-10.jpg)
+![](../../assets/2020/03/1968-03-10.jpg)
 
 **1972:** The Bruce Springsteen Band performs at St. Joseph High School mixer in Metuchen, New Jersey. (The school mangles his name a bit, though.)<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/03/medium-2.jpg)
+![](../../assets/2025/03/medium-2.jpg)
 
 **1974:** Bruce and the still unnamed E Street Band play two shows at Houston’s Liberty Hall. The late show features the concert debut of “[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/),” “[Gimme That Wine](https://estreetshuffle.com/index.php/2019/03/22/cover-me-gimme-that-wine/)” and “[Angel’s Blues](https://estreetshuffle.com/index.php/2019/10/05/roll-of-the-dice-angels-blues/).”<br>
 
@@ -26,7 +26,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ofg8Vn4K)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1977-0310.jpg)
+![](../../assets/2021/03/1977-0310.jpg)
 
 **1978:** Bruce and the band complete their recording of “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” at the Record Plant in New York City.<br>
 
@@ -52,11 +52,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/CH2ys76b)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/03/The_Boston_Globe_Fri__Mar_14__2003_-scaled.jpg)
+![](../../assets/2024/03/The_Boston_Globe_Fri__Mar_14__2003_-scaled.jpg)
 
 **2005:** Bruce rehearses for his upcoming solo tour at the Paramount Theater in Asbury Park.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/2005-03-10.png)
+![](../../assets/2021/03/2005-03-10.png)
 
 **2008:** A rare “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” highlights the Magic Tour’s stop at the Nassau Coliseum in Uniondale.<br>
 
@@ -64,7 +64,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Incident on 57th Street - Nassau - March 10, 2008](https://www.youtube.com/watch?v=XyVsqp2ty4c)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/03/Newsday__Suffolk_Edition__Thu__Mar_13__2008_-scaled.jpg)
+![](../../assets/2024/03/Newsday__Suffolk_Edition__Thu__Mar_13__2008_-scaled.jpg)
 
 **2016:** The 2016 version of the River Tour moves on to the Talking Stick Resort Arena in Phoenix, where “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” makes its tour debut.<br>
 
@@ -78,7 +78,7 @@
 
 **2018:** *Springsteen on Broadway* continues its run at the Walter Kerr Theater in New York City. In attendance tonight: Nathaniel Rateliff and The Night Sweats.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/03/2018-Springsteen-Broadway_celeb_NathanielRateliff.jpg)
+![](../../assets/2025/03/2018-Springsteen-Broadway_celeb_NathanielRateliff.jpg)
 
 **2021:** Bruce’s *From My Home to Yours* radio show continues with Episode 19, “Fans and Bands,” on E Street Radio.<br>
 

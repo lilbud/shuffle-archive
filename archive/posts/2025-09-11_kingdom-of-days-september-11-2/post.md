@@ -4,27 +4,27 @@
 
 *…we were doing [this show] to raise bail money for “Mad Dog” Lopez who was in jail in Richmond, Virginia, for having an altercation with police officers who we’d aggravated by playing too long. Danny allegedly knocked over our huge Marshall stacks on some of Middletown’s finest who had rushed the stage because we broke the law by…playing too long. As I stood there watching, several police officers crawled out from underneath the speaker cabinets and rushed away to seek medical attention. Another nice young officer stood in front of me onstage waving his nightstick, poking and calling me nasty names. I looked over to see Danny with a beefy police officer pulling on one arm while Flo Federici, his first wife, pulled on the other, assisting her man in resisting arrest. A kid leapt from the audience onto the stage, momentarily distracting the beefy officer with the insults of the day. Forever thereafter, “Phantom” Dan Federici slipped into the crowd and disappeared.*
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1970-09-11a.jpg)
+![](../../assets/2020/09/1970-09-11a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1970-09-11b.jpg)
+![](../../assets/2020/09/1970-09-11b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1970-09-11c.jpg)
+![](../../assets/2021/09/1970-09-11c.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1970-09-11d.jpg)
+![](../../assets/2021/09/1970-09-11d.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1970-09-11g.jpg)
+![](../../assets/2020/09/1970-09-11g.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1970-09-11f.jpg)
+![](../../assets/2021/09/1970-09-11f.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1970-09-11h.jpg)
+![](../../assets/2020/09/1970-09-11h.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1970-09-11i.jpg)
+![](../../assets/2020/09/1970-09-11i.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/09/1970-09-11.jpg)
+![](../../assets/2022/09/1970-09-11.jpg)
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1971-09-11.jpg)
+![](../../assets/2019/08/1971-09-11.jpg)
 
 **1972:** At 914 Sound Studios in Blauvelt, New York, Bruce records “[Blinded by the Light”](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/) and “[Spirit in the Night,](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” the final tracks for his upcoming debut album.<br>
 
@@ -46,9 +46,9 @@
 
 [Watch on Youtube: Bruce Springsteen - Ed Schiaky Interview on Philly AM - 9/11/84](https://www.youtube.com/watch?v=P06wbEoJc-Y)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1984-09-11a.jpg)
+![](../../assets/2021/09/1984-09-11a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1984-09-11b.jpg)
+![](../../assets/2021/09/1984-09-11b.jpg)
 
 **1985:** *Born in the U.S.A.* is certified 8x multi-platinum by the Recording Industry Association of America.<br>
 

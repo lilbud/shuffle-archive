@@ -2,9 +2,9 @@
 
 **1972:** The Bruce Springsteen Band headlines a show at Rutgers University.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/1972-04-15.jpg)
+![](../../assets/2021/04/1972-04-15.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1972-0415.jpg)
+![](../../assets/2018/04/1972-0415.jpg)
 
 **1975:** Bruce’s interview with Bill Ayres (recorded in late 1974) premieres on the radio show *On This Rock.* It’s not exactly Bruce at his most articulate, but it’s an interesting listen.<br>
 
@@ -12,15 +12,15 @@
 
 **1976:** The Chicken Scratch Tour moves on to Pittsburgh, for a single show at the Syria Mosque.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/1976-04-15.jpg)
+![](../../assets/2020/04/1976-04-15.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/1976-0415.jpg)
+![](../../assets/2021/04/1976-0415.jpg)
 
 **1979:** Bruce joins Beaver Brown and Asbury Jukes members Joel Gramolini, Kevin Kavanaugh, Ed Manion, and Ritchie Rosenberg for four songs at The Fast Lane in Asbury Park.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1975-0415.jpg)
+![](../../assets/2018/04/1975-0415.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1979-0415b.jpg)
+![](../../assets/2018/04/1979-0415b.jpg)
 
 **1985:** The fourth of five nights at Tokyo’s Yoyogi National Gymnasium.<br>
 
@@ -30,17 +30,17 @@
 
 [Watch Video Highlight](https://videopress.com/embed/GU2F61f3)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-15a.jpg)
+![](../../assets/2020/04/1988-04-15a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-15b.jpg)
+![](../../assets/2020/04/1988-04-15b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-15c.jpg)
+![](../../assets/2020/04/1988-04-15c.jpg)
 
 **1993:** The first of two shows at Sheffield Arena in England.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/HTAFhS2M)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/04/Manchester_Evening_News_Fri__Apr_16__1993_.jpg)
+![](../../assets/2024/04/Manchester_Evening_News_Fri__Apr_16__1993_.jpg)
 
 Before the show, Bruce sits down for an interview that will air shortly before his show at Milton Keynes the following month.
 
@@ -62,11 +62,11 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 [Watch Video Highlight](https://videopress.com/embed/yXOohZUy)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2000-04-15.jpg)
+![](../../assets/2020/04/2000-04-15.jpg)
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park. Fans are delighted when Bruce announces two rehearsal shows in Asbury Park for the following week.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2005-04-15.jpg)
+![](../../assets/2020/04/2005-04-15.jpg)
 
 **2009:** At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” and “[Hard Times (Come Again No More)](https://estreetshuffle.com/index.php/2022/01/21/cover-me-hard-times-come-again-no-more/).” Making their tour premieres tonight: “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/),” “[Spirit in the Night,](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” and “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/).”<br>
 
@@ -74,14 +74,14 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 [Watch on Youtube: Bruce Springsteen "Darkness on the Edge of Town" 4/15/09 Los Angeles Sports Arena](https://www.youtube.com/watch?v=cgZBKgpCOD4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2009-04-15a.jpg)
+![](../../assets/2021/04/2009-04-15a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2009-04-15b.jpg)
+![](../../assets/2020/04/2009-04-15b.jpg)
 
 **2010:** Bruce joins Rosanne Cash on stage at Duke University for a live performance of their duet, “[Sea of Heartbreak](https://estreetshuffle.com/index.php/2018/01/12/meeting-across-the-river-bruce-springsteen-and-rosanne-cash/).”<br>
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2010-04-15.jpg)
+![](../../assets/2021/04/2010-04-15.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/2010-0415.jpg)
+![](../../assets/2018/04/2010-0415.jpg)
 
 **2011:** *Little Steven's Underground Garage* airs the third and final part of "The Bruce and Stevie Show." Essential listening for fans of Bruce, Steve, great music, and great friendships.<br>
 
@@ -89,7 +89,7 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 **2013:** Bruce and Patti catch their friend Rita Wilson in concert at 54 Below on New York City.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/04/medium-3.jpg)
+![](../../assets/2025/04/medium-3.jpg)
 
 **2014:** The High Hopes Tour hits Columbus, bringing with it the tour premiere of “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/).”<br>
 
@@ -103,7 +103,7 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 [Watch on Youtube: Bruce Springsteen, Wonder Bar, Asbury Park, April 15, 2018](https://www.youtube.com/watch?v=KTRrWFRSS3c)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2018-04-15.jpg)
+![](../../assets/2020/04/2018-04-15.jpg)
 
 **2023:** Bruce and Patti are scheduled to present (and perform) at the first annual American Music Honors at Monmouth University, but they are unfortunately forced to cancel when they test positive for COVID-19 the morning of the event. Still, Bruce records video tributes for honorees Darlene Love and Steven Van Zandt, and his videos are shown during the event.<br>
 

@@ -2,7 +2,7 @@
 
 **1973:** Bruce and the band continue their Boston residency with two shows at Paul’s Mall.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/12/1973-01-11.jpg)
+![](../../assets/2019/12/1973-01-11.jpg)
 
 **1979:** Bruce and the E Street Band play a set of cover tunes at a private 37th birthday party for Clarence at Lock Stock & Barrel in Fair Haven, New Jersey.<br>
 
@@ -24,15 +24,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/jbc3T593)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/01/Hartford_Courant_2002_01_15_27-scaled.jpg)
+![](../../assets/2025/01/Hartford_Courant_2002_01_15_27-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/2001-01-11b.png)
+![](../../assets/2021/01/2001-01-11b.png)
 
 **2009**: At the 66th Annual Golden Globes, Bruce wins the award for Best Original Song for “[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)” (and wishes Clarence a happy birthday in his acceptance speech).<br>
 
 [Watch on Youtube: Bruce Springsteen Wins Best Original Song Motion Picture - Golden Globes 2009](https://www.youtube.com/watch?v=uEbhqOPKHdo)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/2009-01-11.png)
+![](../../assets/2021/01/2009-01-11.png)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Watch highlights from this performance below.<br>
 

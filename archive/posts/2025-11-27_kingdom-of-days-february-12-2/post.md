@@ -1,32 +1,32 @@
 **1970:** Steel Mill opens for Boz Scaggs at The Matrix in San Francisco.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/02/1972-02-14.jpg)
+![](../../assets/2021/02/1972-02-14.jpg)
 
 **1971:** Bruce jams at an open mic night at The Upstage in Asbury Park.<br>
 
 **1972:** The Bruce Springsteen Band opens for Crazy Horse at the Sunshine In in Asbury Park.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1972_02_02_Page_22-scaled.jpg)
+![](../../assets/2025/02/Asbury_Park_Press_1972_02_02_Page_22-scaled.jpg)
 
 **1974:** Bruce and the still unnamed E Street Band play the University of Kentucky, their first time performing in the state. After a fight with road manager Steve Appel, drummer Vini Lopez is fired immediately after the show, and the next three shows are cancelled.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/02/1974-02-12.jpg)
+![](../../assets/2018/02/1974-02-12.jpg)
 
 **1977:** The Lawsuit Tour continues with a show at the Ottawa Civic Center.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/02/1990-02-12.png)
+![](../../assets/2021/02/1990-02-12.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/02/1977-02-12a.png)
+![](../../assets/2021/02/1977-02-12a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/02/The_Ottawa_Journal_1977_02_14_Page_23.jpg)
+![](../../assets/2025/02/The_Ottawa_Journal_1977_02_14_Page_23.jpg)
 
 **1981:** The original River Tour stops in Mobile, Alabama.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/lJzCY3iA)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/02/Birmingham_Post_Herald_Fri__Feb_13__1981_.jpg)
+![](../../assets/2024/02/Birmingham_Post_Herald_Fri__Feb_13__1981_.jpg)
 
 **1990**: Bruce, Sting, Bruce Hornsby, and others attend and perform at a benefit for the Rainforest Foundation in Beverly Hills. Among the numbers Bruce performs: his only known cover of “Big Yellow Taxi.”<br>
 
@@ -72,4 +72,4 @@ After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and
 
 [Watch on Youtube: Rosalita - Springsteen - Philadelphia Feb 12, 2016](https://www.youtube.com/watch?v=06X5-0OJoD4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/02/2016-02-12.png)
+![](../../assets/2021/02/2016-02-12.png)

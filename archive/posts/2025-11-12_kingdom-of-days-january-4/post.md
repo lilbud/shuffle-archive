@@ -10,14 +10,14 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ifgI0KWR)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1985-01-04.png)
+![](../../assets/2020/12/1985-01-04.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/01/Richmond_Times_Dispatch_Sat__Jan_5__1985_.jpg)
+![](../../assets/2023/01/Richmond_Times_Dispatch_Sat__Jan_5__1985_.jpg)
 
 **1994:** Bruce and Patti make an appearance at the Hollywood premiere of *Philadelphia.* Bruce wrote “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” for the movie, for which he will go on to earn an Oscar. Check out the news coverage from the event.<br>
 
 [Watch on Youtube: Bruce Springsteen at the premiere of "Philadelphia" - 1994-01-04](https://www.youtube.com/watch?v=3ScFkSlJb4w)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/01/The_Daily_Spectrum_Thu__Jan_6__1994_.jpg)
+![](../../assets/2023/01/The_Daily_Spectrum_Thu__Jan_6__1994_.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/12/1973-01-03.jpg)
+![](../../assets/2019/12/1973-01-03.jpg)

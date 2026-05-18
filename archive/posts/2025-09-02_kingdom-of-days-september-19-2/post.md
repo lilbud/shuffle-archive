@@ -2,23 +2,23 @@
 
 **1969:** Child plays their first of two nights at Richmond’s Free University.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1969-0919.jpg)
+![](../../assets/2018/09/1969-0919.jpg)
 
 **1970:** Local bands hold a benefit concert at Point Pleasant Beach to raise legal defense funds for those arrested at the [Clearwater Swim Club fiasco](https://estreetshuffle.com/index.php/2018/09/11/kingdom-of-days-september-11/) the week prior. Steel Mill doesn’t play (possibly because Vini is still in Richmond and Danny is on the lam), but they lend their sound equipment for the cause.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1970-09-19.jpg)
+![](../../assets/2020/09/1970-09-19.jpg)
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1971-0917.jpg)
+![](../../assets/2018/09/1971-0917.jpg)
 
 **1974:** Max Weinberg and Roy Bittan make their official debut as members of the E Street Band when Bruce and the boys play two shows at The Main Point in Bryn Mawr, Pennsylvania. A local newspaper reviewer slightly misspells Roy’s name, however, and as for Max’s name…<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1974-0919.jpg)
+![](../../assets/2018/09/1974-0919.jpg)
 
 **1975:** A scheduled gig at the University of Nebraska is postponed and moved to a large venue due to high demand.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1975-0919.jpg)
+![](../../assets/2018/09/1975-0919.jpg)
 
 **1978:** Bruce and the band play one of their most legendary shows, opening a three-night homecoming stand at the Capitol Theater in Passaic with an epic show that is broadcast live from Boston to Baltimore. Better yet, the entire show is professionally shot and preserved–watch and marvel at the band at their peak. (And then get the entire show’s audio [here](https://live.brucespringsteen.net/live-music/0,22963/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-19-1978-Capitol-Theatre-Passaic-NJ.html)–it’s available as part of Bruce’s official archive series.)<br>
 
@@ -30,11 +30,11 @@
 
 [Watch on Youtube: Rosalita (Come Out Tonight) (Live at Capitol Theatre, Passaic, NJ - 09/19/78 - Official...](https://www.youtube.com/watch?v=YaOo3packk0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1978-09-19a.jpg)
+![](../../assets/2020/09/1978-09-19a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1978-09-19b.jpg)
+![](../../assets/2020/09/1978-09-19b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1978-09-19c.jpg)
+![](../../assets/2020/09/1978-09-19c.jpg)
 
 After the show, Bruce sits down for an interview with local TV station WBCN.
 
@@ -60,19 +60,19 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 [Watch Video Highlight](https://videopress.com/embed/PXkEsOr2)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1988-09-19a.jpg)
+![](../../assets/2020/09/1988-09-19a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1988-09-19b.jpg)
+![](../../assets/2020/09/1988-09-19b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1988-09-19c.jpg)
+![](../../assets/2020/09/1988-09-19c.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1988-09-19d.jpg)
+![](../../assets/2021/09/1988-09-19d.jpg)
 
 **1996:** New song alert! At his solo acoustic stop in Providence, Bruce debuts “[There Will Never Be Any Other For Me But You](https://estreetshuffle.com/index.php/2019/08/23/roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/),” dedicated to a friend about to get married.<br>
 
 [Watch on Youtube: Bruce Springsteen - "There Will Never Be Any Other for Me But You" - 1996-09-19](https://www.youtube.com/watch?v=cl0yvRaAOm8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/09/The_Salisbury_Post_1996_09_22_17.jpg)
+![](../../assets/2024/09/The_Salisbury_Post_1996_09_22_17.jpg)
 
 **2006:** Bruce rehearses with the Sessions Band for their upcoming European tour.<br>
 
@@ -88,16 +88,16 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 [Watch on Youtube: Bruce Springsteen - Land Of Hope & Dreams Live 9/19/12 MetLife New Jersey Full HD Show](https://www.youtube.com/watch?v=gtAK1EQC2uA)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/09/The_Star_Ledger_2012_09_20_2-scaled.jpg)
+![](../../assets/2025/09/The_Star_Ledger_2012_09_20_2-scaled.jpg)
 
 **2015:** Bruce attends (and reportedly sings at) the wedding of actress Allison Willams and Ricky Van Veen in Saratoga, Wyoming.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/09/Daily_News_2015_09_20_3-scaled.jpg)
+![](../../assets/2024/09/Daily_News_2015_09_20_3-scaled.jpg)
 
 **2017**: Bruce holds a private rehearsal for *Springsteen on Broadway* for an intimate group of friends and family at Monmouth University’s Pollak Theater.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/2017-09-19a.jpg)
+![](../../assets/2021/09/2017-09-19a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/2017-09-19b.jpg)
+![](../../assets/2020/09/2017-09-19b.jpg)
 
 **2023:** Bruce’s scheduled show at MVP Arena in Albany–already postponed once from its original date six months ago–is rescheduled yet again to the following April due to Bruce’s peptic ulcer disease.<br>

@@ -4,7 +4,7 @@
 
 **1971:** Even shorter-lived than Dr. Zoom and the Sonic Boom: *Bruce Springsteen and the Hot Mammas*, making their debut performance in two shows at The Upstage. Bruce also plays an afternoon show on this date with The Sundance Blues Band.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1971-0521.jpg)
+![](../../assets/2018/05/1971-0521.jpg)
 
 **1974:** Bruce cuts the first version of “Born to Run” in the studio (instrumental only).<br>
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Rolling Stone Special - State of the Union (Bruce Springsteen)](https://www.youtube.com/watch?v=SsS2S0I_E6E)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/1998-05-21.jpg)
+![](../../assets/2021/05/1998-05-21.jpg)
 
 **1999:** Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)” and the first “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)” in 20 years. Watch the soundcheck below, featuring a lovely, lonely “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” and a bit of Patti Scialfa’s beautiful ballad, “[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/).”<br>
 
@@ -48,11 +48,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/iW3kCI3S)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2000-05-21a.jpg)
+![](../../assets/2020/05/2000-05-21a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2000-05-21b.jpg)
+![](../../assets/2021/05/2000-05-21b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2000-05-21c.jpg)
+![](../../assets/2021/05/2000-05-21c.jpg)
 
 **2006:** Stockholm gets its first Seeger Sessions show, and the BBC airs a Johnnie Walker interview with Bruce.<br>
 
@@ -70,9 +70,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/WnLyKn0T)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2009-05-21a.jpg)
+![](../../assets/2020/05/2009-05-21a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2009-05-21b.jpg)
+![](../../assets/2021/05/2009-05-21b.jpg)
 
 **2016:** When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres “My City of Ruins,” and “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/).” Buy or stream this show [here](https://live.brucespringsteen.net/live-music/0,14109/Bruce-Springsteen-mp3-flac-download-5-21-2016-Estadio-Santiago-Bernabeu-Madrid-ES.html).<br>
 

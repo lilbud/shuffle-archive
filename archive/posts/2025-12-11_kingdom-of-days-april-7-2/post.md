@@ -1,10 +1,10 @@
 **1973:** Bruce and the E Street Band open for The Beach Boys in Norfolk.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0407.jpg)
+![](../../assets/2018/03/1973-0407.jpg)
 
 **1974:** Bruce Springsteen meets Max Weinberg for the first time when Max’s band opens for Bruce and the original (but still unnamed) E Street Band at Seton Hall University.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1974-0407.jpg)
+![](../../assets/2018/03/1974-0407.jpg)
 
 Earlier that same day, Bruce and Dave Sancious drop by WMMR-FM in Philadelphia to play guest DJ with host David Dye.
 
@@ -12,15 +12,15 @@ Earlier that same day, Bruce and Dave Sancious drop by WMMR-FM in Philadelphia t
 
 **1976:** Bruce and the E Street Band bring the Chicken Scratch Tour to Cleveland for the first of two nights, to at least one underwhelming review. Earlier in the day, Kid Leo interviews Bruce on WMMS-FM radio.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/04/The_Plain_Dealer_1976_04_09_94.jpg)
+![](../../assets/2025/04/The_Plain_Dealer_1976_04_09_94.jpg)
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-07 Allen Theatre, Cleveland, OH](https://www.youtube.com/watch?v=Om03JLiBgok)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/04/The_Plain_Dealer_1976_04_09_76-scaled.jpg)
+![](../../assets/2025/04/The_Plain_Dealer_1976_04_09_76-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/04/The_Plain_Dealer_1976_04_09_77-scaled.jpg)
+![](../../assets/2025/04/The_Plain_Dealer_1976_04_09_77-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/04/2009-04-07.jpg)
+![](../../assets/2022/04/2009-04-07.jpg)
 
 **1981:** The European leg of The River Tour finally kicks off with Bruce’s first-ever show in Germany–at Congress Centrum in Hamburg, where Bruce covers “Rockin’ All Over the World” for the first time.<br>
 
@@ -44,9 +44,9 @@ Earlier that same day, Bruce and Dave Sancious drop by WMMR-FM in Philadelphia t
 
 [Watch on Youtube: Live In New York City](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pYNWbfBg97PB_HuPXxskrWc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2001-04-07.jpg)
+![](../../assets/2020/04/2001-04-07.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/04/2001-04-07b.jpg)
+![](../../assets/2022/04/2001-04-07b.jpg)
 
 **2006:** Bruce rehearses with the Sessions Band at Asbury Park’s Paramount Theater, preparing for their upcoming tour.<br>
 
@@ -62,7 +62,7 @@ Earlier that same day, Bruce and Dave Sancious drop by WMMR-FM in Philadelphia t
 
 [Watch on Youtube: Bruce Springsteen - The Price You Pay - 4/7/2016 - Sprint Center, Kansas City, MO](https://www.youtube.com/watch?v=uQRzIrBXKdU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2016-04-07-2.jpg)![](https://estreetshuffle.com/wp-content/uploads/2021/04/2016-04-07-1.jpg)**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "Long Time Comin'" and "The Ghost of Tom Joad" in place of "Brilliant Disguise" and "Tougher Than the Rest."
+![](../../assets/2021/04/2016-04-07-2.jpg)![](../../assets/2021/04/2016-04-07-1.jpg)**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "Long Time Comin'" and "The Ghost of Tom Joad" in place of "Brilliant Disguise" and "Tougher Than the Rest."
 
 **2023:** “Lucky Town” makes its tour premiere when Bruce and the E Street Band bring their World Tour to CFG Bank Arena in Baltimore.<br>
 

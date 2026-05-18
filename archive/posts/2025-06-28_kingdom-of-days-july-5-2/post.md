@@ -4,15 +4,15 @@
 
 **1972:** The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant’s Cinema III movie theater in Red Bank, New Jersey. This is perhaps Bruce’s first overtly political action as a musician, and even then his favored candidates were decidedly liberal.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1972-07-05a.jpg)
+![](../../assets/2020/06/1972-07-05a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1972-07-05b.jpg)
+![](../../assets/2020/06/1972-07-05b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1972-0705.jpg)
+![](../../assets/2018/07/1972-0705.jpg)
 
 **1973:** Bruce and the E Street Band begin a five-night stand at The Main Point in Bryn Mawr, Pennsylvania, playing two shows on this first night.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1973-0705.jpg)
+![](../../assets/2018/07/1973-0705.jpg)
 
 **1974:** Bruce cancels a scheduled gig opening for Frank Zappa in St. Louis, most likely to make room for *Born to Run* recording sessions.<br>
 
@@ -24,13 +24,13 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: July 5th, 1978 - Inglewood, CA](https://www.youtube.com/playlist?list=PLsxNBNx2akeXLxXErlUAz5L0HrcE8Ahab)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1978-07-05a.jpg)
+![](../../assets/2021/07/1978-07-05a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1978-07-05b.jpg)
+![](../../assets/2020/06/1978-07-05b.jpg)
 
 **1981:** Bruce and the E Street Band play their third of six nights opening the Brendan Byrne Arena in the Meadowlands, where they play “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” for the first time in the U.S. (Photo credit: Dari)<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1981-0705.jpg)
+![](../../assets/2018/07/1981-0705.jpg)
 
 [Watch Video Highlight](https://videopress.com/embed/g1ylNep8)
 
@@ -38,9 +38,9 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch Video Highlight](https://videopress.com/embed/C92hW6tT)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-07-05a.jpg)
+![](../../assets/2020/06/1984-07-05a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1984-07-05b.jpg)
+![](../../assets/2021/07/1984-07-05b.jpg)
 
 **2008:** Bruce and the E Street Band play a stunner of a show–their second in Gothenburg on the Magic Tour–with their first full-band “[Drive All Night"](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)  in 27 years as the centerpiece (check out the sound check below), and a rare “[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)” and “[Janey, Don’t You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” in the set as well.<br>
 

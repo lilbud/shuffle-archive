@@ -2,7 +2,7 @@
 
 **1973:** Bruce and his band-with-no-name headline an intimate show (less than 200 were in attendance) at the Pinecrest Country Club in Shelton, Connecticut.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/11/1973-12-14.jpg)
+![](../../assets/2019/11/1973-12-14.jpg)
 
 **1974:** Bruce attends his second Billy Joel concert in three weeks, this time at Rutgers University, where Billy dedicates “The Entertainer” to Bruce. During the encores, Bruce joins Billy on stage for “Twist and Shout.” After the show, Bruce walks over to the Rutgers Student Center, where he jams with the band Heavy Trucking into the wee hours of the morning.<br>
 
@@ -16,11 +16,11 @@
 
 [Watch on Youtube: Bruce Springsteen Boston MA 12-14-1992](https://www.youtube.com/watch?v=1jEiPrnmFxk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1992-12-14a.png)
+![](../../assets/2020/11/1992-12-14a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1992-12-14b.png)
+![](../../assets/2020/11/1992-12-14b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1992-12-14c.png)
+![](../../assets/2020/12/1992-12-14c.png)
 
 **1995:** Bruce performs “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)” on *Late Show with David Letterman* in New York City.<br>
 
@@ -30,11 +30,11 @@
 
 [Watch on Youtube: Bruce Springsteen - "The Promised Land" - Charlotte, 1996-12-14](https://www.youtube.com/watch?v=sheKN1qqDis)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1996-12-14a.png)
+![](../../assets/2020/12/1996-12-14a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1996-12-14b.png)
+![](../../assets/2020/12/1996-12-14b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1996-12-14c.png)
+![](../../assets/2020/12/1996-12-14c.png)
 
 **1998:** Bruce is interviewed and performs “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” and “This Hard Land” on Spanish television show *Musica Si* in Madrid.<br>
 
@@ -48,7 +48,7 @@
 
 [Watch on Youtube: Bruce Springsteen, "Merry Christmas Baby", Carnegie Hall, December 14, 2016](https://www.youtube.com/watch?v=bhsJUCB5Gc8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/2016-12-14.png)
+![](../../assets/2020/12/2016-12-14.png)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
@@ -56,6 +56,6 @@
 
 [Watch on Youtube: Growin' Up (Introduction) (Live at the Walter Kerr Theatre, New York, NY - July 2018)](https://www.youtube.com/watch?v=JyTytz0G38I)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/11/2018-12-14.jpg)
+![](../../assets/2019/11/2018-12-14.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/11/2018-12-14b.jpg)
+![](../../assets/2019/11/2018-12-14b.jpg)

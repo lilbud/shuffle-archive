@@ -1,6 +1,6 @@
 **1973:** Bruce plays two shows at The Main Point in Bryn Mawr, Pennsylvania. (Photo credit: Phil Ceccola)<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1973-0425.jpg)
+![](../../assets/2018/04/1973-0425.jpg)
 
 **1975:** Bruce works on “Jungleland” and “Thunder Road” at the Record Plant in New York City.<br>
 
@@ -20,7 +20,7 @@
 
 **1989:** At Micky Rourke’s Rubber Club in Los Angeles, Bruce joins a local band on stage for “Stand By Me.”<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/1989-04-25.jpg)
+![](../../assets/2021/04/1989-04-25.jpg)
 
 **1996:** Elliott Murphy and Joe Grushecky join Bruce for a final encore of “Blowin’ Down This Road” at Bruce’s second solo acoustic show at Brixton Academy in London.<br>
 
@@ -34,9 +34,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ZCVQXnYW)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2000-04-25a.jpg)
+![](../../assets/2020/04/2000-04-25a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2000-04-25b.jpg)
+![](../../assets/2021/04/2000-04-25b.jpg)
 
 **2004:** Bruce plays a benefit for Rumson Country Day School (along with Patti, Southside Johnny, and Bobby Bandiera) for the third year running at The Stone Pony in Asbury Park.<br>
 
@@ -46,11 +46,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/DZZkyhyC)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2005-04-25a.jpg)
+![](../../assets/2020/04/2005-04-25a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2005-04-25b.jpg)
+![](../../assets/2021/04/2005-04-25b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2005-04-25c.jpg)
+![](../../assets/2021/04/2005-04-25c.jpg)
 
 **2006:** Bruce releases *We Shall Overcome: The Seeger Sessions* and appears on *Good Morning America* to promote the album and upcoming tour.<br>
 
@@ -64,19 +64,19 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 [Watch Video Highlight](https://videopress.com/embed/yTqnj3vq)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2006-04-25a.jpg)
+![](../../assets/2021/04/2006-04-25a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2006-04-26c.jpg)
+![](../../assets/2020/04/2006-04-26c.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2006-0425b.jpg)
+![](../../assets/2020/04/2006-0425b.jpg)
 
 **2008:** The Magic Tour moves to Atlanta for a show at Philips Arena, where “Blinded by the Light” makes its tour premiere.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/CcJp0LLz)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2008-04-25a.jpg)
+![](../../assets/2020/04/2008-04-25a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2008-04-25b.jpg)
+![](../../assets/2021/04/2008-04-25b.jpg)
 
 **2016:** The closing night of the first U.S. leg of the River Tour (2016 version) at Barclays Center in Brooklyn brings the tour premieres of “Boom Boom” and “Trapped” along with a reprise of Bruce’s “Purple Rain” tribute, a rare “Loose Ends,” and an adorable fan singalong to “Blinded by the Light.”<br>
 
@@ -90,4 +90,4 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 **2019:** After days of teasing and speculation, Bruce officially announces his next album, *Western Stars,* coming in June.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2019-04-25.jpg)
+![](../../assets/2020/04/2019-04-25.jpg)

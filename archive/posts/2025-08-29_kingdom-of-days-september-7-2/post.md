@@ -2,19 +2,19 @@
 
 **1973:** Bruce and the as yet unnamed E Street Band headline during freshman orientation at Dean College in Franklin, Massachusetts.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1973-0906.jpg)
+![](../../assets/2021/09/1973-0906.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1973-0907a.jpg)
+![](../../assets/2020/08/1973-0907a.jpg)
 
 **1975:** Live at the Ya Ya Lounge in New Orleans, it’s… Lee Dorsey and the E Street Band? Bruce is on his way to the next tour stop in Texas, but the E Street Band stays behind in New Orleans to play a gig at the club without him. The gig is a barter for Dorsey lending his vocals on Southside Johnny’s upcoming Steve Van Zandt-produced album.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1975-0907.jpg)
+![](../../assets/2018/09/1975-0907.jpg)
 
 **1984:** In honor of Buddy Holly’s birthday, Bruce tour premieres “[Rave On](https://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)” as an encore at his Born in the U.S.A. show in Hartford. They won’t ever play it again (at least to date).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/tkC2vmHI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1984-09-07.jpg)
+![](../../assets/2020/08/1984-09-07.jpg)
 
 **1988**: At the annual MTV Video Music Awards, “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” loses in all five of its nominated categories: Video of the Year (to INXS’ “Need You Tonight/Mediate”); Best Male Video (to Prince’s “U Got the Look”); Best Art Direction (to Squeeze’s “Hourglass”); Best Editing (again to INXS); and Viewer’s Choice (INXS).<br>
 
@@ -26,9 +26,9 @@
 
 [Watch on Youtube: Bruce Springsteen Fenway Park Boston 07/09/2003 Full Concert](https://www.youtube.com/watch?v=KOQYe1Dbi8k)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2003-09-07a.jpg)
+![](../../assets/2020/08/2003-09-07a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2003-09-07b.jpg)
+![](../../assets/2020/08/2003-09-07b.jpg)
 
 **2012:** Bruce plays his first-ever show at Wrigley Field in Chicago when the Wrecking Ball Tour arrives for the first of two nights, and what a show it is: Bruce opens with “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” with the Darkness Tour intro and tour premieres “[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/).” Tom Morello and Eddie Vedder both make multiple guest appearances.<br>
 
@@ -38,9 +38,9 @@
 
 [Watch on Youtube: Bruce Springsteen & Eddie Vedder - Atlantic City - Chicago (September 7, 2012)](https://www.youtube.com/watch?v=LVgK3DNGIHc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2012-09-07a.jpg)
+![](../../assets/2020/08/2012-09-07a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2012-09-07b.jpg)
+![](../../assets/2020/08/2012-09-07b.jpg)
 
 **2016:** A show for the ages at Citizens Bank Park in Philadelphia–clocking in at 4:04, it remains Bruce’s longest show in the U.S. and his second longest show ever. The setlist continues the chronological “autobiography” theme of the victory lap, opening once again with a string-accompanied “New York City Serenade” and a stunning *eleven* pre-1974 songs. Philly specials abound: “[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)” “[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/),” and “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” all make their tour debut. For more highlights from this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/09/07/where-the-band-was-philadelphia-september-7-2016/).<br>
 
@@ -52,13 +52,13 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band "Shout" Live @ Citizens Bank Park,](https://www.youtube.com/watch?v=626ioFGJtwk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2016-09-07a.jpg)
+![](../../assets/2020/08/2016-09-07a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2016-09-07b.jpg)
+![](../../assets/2020/08/2016-09-07b.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Following this show, Bruce takes a three-week break. Earlier in the day, Bruce and Patti attend Ralph Lauren’s 50th anniversary party at New York Fashion Week.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/09/2018-09-07.jpg)
+![](../../assets/2019/09/2018-09-07.jpg)
 
 **2021:** On the 20th anniversary of the September 11th terror attacks, a new documentary film is released featuring Bruce’s narration. (Skip to the five-minute mark to hear Bruce’s contribution.)<br>
 

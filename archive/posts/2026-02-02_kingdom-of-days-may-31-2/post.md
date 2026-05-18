@@ -8,7 +8,7 @@
 
 Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicago at the Richmond Coliseum, where the set list features an ultra-rare “Secret to the Blues.” The local music reviewer is more impressed with the opening act than than the headliner.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/Richmond_Times_Dispatch_Fri__Jun_1__1973_-scaled.jpg)
+![](../../assets/2024/05/Richmond_Times_Dispatch_Fri__Jun_1__1973_-scaled.jpg)
 
 **1974:** A scheduled gig at the Agora in Columbus is cancelled due to low ticket sales.<br>
 
@@ -28,7 +28,7 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 **1985:** Bruce and the E Street Band play a warm-up rehearsal at Slane Castle in Ireland in preparation for the kick-off of the European leg of the Born in the U.S.A. Tour. Meanwhile, “Glory Days” is released as the fifth single from *Born in the U.S.A*.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1985-05-31.jpg)
+![](../../assets/2020/05/1985-05-31.jpg)
 
 [Watch on Youtube: Glory Days](https://www.youtube.com/watch?v=GLBnj159q3s)
 
@@ -38,7 +38,7 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 **2006:** At his Seeger show in Noblesville, Indiana, Bruce opens with the premiere of a new arrangement of “Atlantic City,” and debuts “Froggie Went A-Courtin'” by request for a seven-year-old boy.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2006-05-31.jpg)
+![](../../assets/2020/05/2006-05-31.jpg)
 
 **2008:** Back-to-back tour premieres at Night Two at London’s Emirates Stadium, both from *Born in the U.S.A.*: “Downbound Train” and “I’m on Fire.”<br>
 

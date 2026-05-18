@@ -2,7 +2,7 @@
 
 **1953:** Original E Street Band member David Sancious is born in Asbury Park, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/11/david-san.jpg)
+![](../../assets/2018/11/david-san.jpg)
 
 **1973:** A scheduled show at Virginia Commonwealth University in Richmond is postponed to January.<br>
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "The Promised Land" - Pittsburgh, 1980-11-30](https://www.youtube.com/watch?v=I1Ab0iyJitA)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/11/32516974517_f2dba9430d_o.jpg)
+![](../../assets/2019/11/32516974517_f2dba9430d_o.jpg)
 
 **1983:** Bruce records “Roll Away the Stone,” “Swoop Man,” and “Under the Big Sky,” all of which remain unreleased to this day.<br>
 
@@ -30,9 +30,9 @@
 
 [Watch on Youtube: Bruce Springsteen - "Local Hero" - Atlanta, 1992-11-30](https://www.youtube.com/watch?v=cjOiRN382kg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1992-11-30a.png)
+![](../../assets/2020/11/1992-11-30a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1992-11-30b.png)
+![](../../assets/2020/11/1992-11-30b.png)
 
 **1995:** Bruce plays his second of two nights at the Berkeley Community Theater, where “[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)” makes its debut, and the setlist contains the entire [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) album. Once again, John Wesley Harding opens the show with a short set.<br>
 
@@ -50,7 +50,7 @@
 
 [Watch on Youtube: Kitty's Back--Bruce Springsteen & The E St Band Oakland, CA 2012-11-30](https://www.youtube.com/watch?v=wJg8MlZUUZs)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-1-scaled.jpg)
+![](../../assets/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-scaled.jpg) ![](../../assets/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-1-scaled.jpg)
 
 **2016:** Bruce continues his promotional book tour, stopping at Tattered Cover Bookstore in Denver to meet fans.<br>
 

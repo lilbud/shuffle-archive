@@ -2,15 +2,15 @@
 
 **1972:** The still-unnamed E Street Band makes its concert debut as the Greetings from Asbury Park Tour kicks off with Bruce’s first-ever show in Pennsylvania, where they open for Cheech & Chong at West Chester College. Bruce was a late addition by the school, and Cheech & Chong’s manager does not approve. He forces the school to end Bruce’s set early.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/1972-1028.jpg)
+![](../../assets/2018/10/1972-1028.jpg)
 
 **1976:** Bruce and the E Street Band kick off a six-night stand at the Palladium in New York City.<br>
 
 [Watch on Youtube: Bruce Springsteen - Live In New York 28/10/1976 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=6AK0OSiwTLY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1976-10-28.png)
+![](../../assets/2020/10/1976-10-28.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/47579847782_3533f2d6a5_o.jpg)
+![](../../assets/2019/10/47579847782_3533f2d6a5_o.jpg)
 
 **1980:** Bruce and the E Street Band play their second of two River Tour shows at the Oakland Coliseum, where they open with “[Good Rockin’ Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/).” They won’t play it again for 28 years.<br>
 
@@ -22,11 +22,11 @@
 
 [Watch on Youtube: Bruce Springsteen - "I'm on Fire" - Los Angeles, 1984-10-28](https://www.youtube.com/watch?v=xmtGhj50XaE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/10/The_Los_Angeles_Times_Sun__Oct_28__1984_-scaled.jpg)
+![](../../assets/2023/10/The_Los_Angeles_Times_Sun__Oct_28__1984_-scaled.jpg)
 
 **1992:** Bruce takes ill with a sore throat and postpones his scheduled show in St. Louis to December.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1992-10-28.png)
+![](../../assets/2020/10/1992-10-28.png)
 
 **1995:** Bruce makes a return engagement at Neil Young’s Bridge School Benefit in Mountain View, playing a solo set that features the live debuts of “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” and “[Sinaloa Cowboys](https://estreetshuffle.com/index.php/2022/01/04/roll-of-the-dice-sinaloa-cowboys/),” and joining Neil, Chrissie Hynde, Hootie & the Blowfish, Steven Tyler, Beck, and Emmylou Harris for a show-closing “[Rockin’ in the Free World](https://estreetshuffle.com/index.php/2019/04/16/matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/).”<br>
 
@@ -36,17 +36,17 @@
 
 [Watch Video Highlight](https://videopress.com/embed/65HiwFFg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/1995-10-28a.png)
+![](../../assets/2021/10/1995-10-28a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1995-10-28b.png)
+![](../../assets/2020/10/1995-10-28b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/46789999821_90b1261a05_o.jpg)
+![](../../assets/2019/10/46789999821_90b1261a05_o.jpg)
 
 **1996:** Bruce plays a solo acoustic show at the Arlene Schnitzer Concert Hall (formerly the Paramount Theater) in Portland, Oregon.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-10-28.mp3](https://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-10-28.mp3)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/10/The_Oregonian_1996_10_29_27-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/10/The_Oregonian_1996_10_29_29.jpg)
+![](../../assets/2024/10/The_Oregonian_1996_10_29_27-scaled.jpg) ![](../../assets/2024/10/The_Oregonian_1996_10_29_29.jpg)
 
 **1999:** Bruce and the E Street Band play their last of three Reunion Tour shows at the Oakland Arena, where “Sinaloa Cowboys” makes its tour and full-band debut and Southside Johnny guest-stars on “[Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)”<br>
 
@@ -60,11 +60,11 @@
 
 [Watch on Youtube: Bruce Springsteen performs 'No Surrender' for John Kerry in Ohio 2004](https://www.youtube.com/watch?v=KmQjqCyZD2g)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/2004-10-28.jpg)
+![](../../assets/2019/10/2004-10-28.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2004-10-28a.png)
+![](../../assets/2020/10/2004-10-28a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2004-10-28b.png)
+![](../../assets/2020/10/2004-10-28b.png)
 
 **2005:** Bruce’s solo acoustic show at the TD Banknorth Garden in Boston is filmed but remains in the vaults to this day. In 2008, “[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)” from this show will be released as a single and on various promotional EPs.<br>
 
@@ -72,9 +72,9 @@
 
 [Watch on Youtube: Bruce Springsteen - "You Can Look (But You Better Not Touch)" - Boston, 2005-10-28](https://www.youtube.com/watch?v=AvYK0CaeORU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2005-10-28a.png)
+![](../../assets/2020/10/2005-10-28a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/2005-10-28b.png)
+![](../../assets/2021/10/2005-10-28b.png)
 
 **2006:** Bruce and the Sessions Band play a show at Parken Stadium in Copenhagen.<br>
 

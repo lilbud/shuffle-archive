@@ -2,7 +2,7 @@
 
 **1968:** The Castiles headline two shows at the Off Broad Street Coffee House in Red Bank, New Jersey. Jeannie Clark opens for the band; she will later join Dr. Zoom and the Sonic Boom as a Zoomette.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1968-0717.jpg)
+![](../../assets/2018/07/1968-0717.jpg)
 
 **1969:** Child plays their third of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.<br>
 
@@ -10,11 +10,11 @@
 
 [Watch on Youtube: Bruce Springsteen (Steel Mill) - 1970-07-17 Sunshine In, Asbury Park, NJ](https://www.youtube.com/watch?v=40fj8jiZGsM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1970-07-17.png)
+![](../../assets/2020/07/1970-07-17.png)
 
 **1974:** Bruce and the E Street Band play two shows at Le Garage in Spray Beach, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/garage717.jpg)
+![](../../assets/2019/07/garage717.jpg)
 
 **1979:** Bruce and the E Street Band work on “[Cindy](https://estreetshuffle.com/index.php/2018/08/03/roll-of-the-dice-cindy/)” during a recording session at the Power Station in New York City.<br>
 
@@ -26,7 +26,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Chicago News coverage - July 17, 1984](https://www.youtube.com/watch?v=kkUCWM9MA5k)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-17.png)
+![](../../assets/2020/07/1984-07-17.png)
 
 **1988:** The Tunnel of Love Tour arrives in Munich, where “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” makes its tour premiere.<br>
 
@@ -40,9 +40,9 @@
 
 **2004:** Bruce, Patti, and Soozie join Joe Grushecky and the Houserockers on stage at The Stone Pony in Asbury Park.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/grusheck.jpg)
+![](../../assets/2019/07/grusheck.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2004-07-17.png)
+![](../../assets/2020/07/2004-07-17.png)
 
 **2008:** The Magic Tour’s Spanish leg continues with a show in Madrid, featuring a rare performance of “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/).”<br>
 
@@ -54,7 +54,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/9neskCQb)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2011-07-17.png)
+![](../../assets/2020/07/2011-07-17.png)
 
 **2012:** “Before we were so rudely interrupted…”Bruce picks up in Dublin where he left off–or rather, was cut off–at Hyde Park, bringing his own mock generator on stage, flipping the switch to “ON” and finishing “Twist and Shout” from the previous show. He then launches directly into “[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/),” a very appropriate tour premiere. Other tour premieres include “[I’m a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)” and “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).”<br>
 
@@ -62,7 +62,7 @@
 
 [Watch on Youtube: I Fought the Law - Springsteen - Dublin Ireland July 17 2012](https://www.youtube.com/watch?v=6R68gn0eE2E)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/07/The_Leader_Post_2012_07_20_15.jpg)
+![](../../assets/2024/07/The_Leader_Post_2012_07_20_15.jpg)
 
 **2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores (“[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” and “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)“) and will be released on the streaming service to much acclaim later in the year.<br>
 
@@ -70,4 +70,4 @@
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York city, In attendance tonight: Danny DeVito and Adam Duritz.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-17.jpg)
+![](../../assets/2022/07/2021-07-17.jpg)

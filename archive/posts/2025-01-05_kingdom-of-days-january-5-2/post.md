@@ -26,7 +26,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 **1982:** Bruce joins the Lord Gunner Group onstage at the Stone Pony for performances of "[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)" and "[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)."<br>
 
-![1994-0105-a](https://estreetshuffle.com/wp-content/uploads/2018/01/1994-0105-a-1.jpg)
+![1994-0105-a](../../assets/2018/01/1994-0105-a-1.jpg)
 
 ![](../../assets/2024/01/The_Courier_News_Sat__Jan_23__1982_.jpg)
 

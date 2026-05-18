@@ -2,9 +2,9 @@
 
 **1970:** Steel Mill spends Thanksgiving eve headlining at Newark State College.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/11/48062846116_b86302e4fe_o.jpg)
+![](../../assets/2019/11/48062846116_b86302e4fe_o.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1970-11-25.png)
+![](../../assets/2020/11/1970-11-25.png)
 
 **1972:** Bruce plays his first-ever show in Michigan, a free concert at the Detroit Auto Show, where the band’s amps get fried when they’re accidentally connected to a 220-volt power source.<br>
 
@@ -12,13 +12,13 @@
 
 [Watch on Youtube: Bruce Springsteen - 1973-11-25 Curry Hicks Cage, Amherst, MA](https://www.youtube.com/watch?v=cLyBcGG60zU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/11/Valley_Advocate_Amherst_1973_11_28_13-scaled.jpg)
+![](../../assets/2025/11/Valley_Advocate_Amherst_1973_11_28_13-scaled.jpg)
 
 **1974:** Bruce and local DJ Ed Sciaky drop by Philadelphia’s Sigma Sound Studios to meet David Bowie, who is [recording a cover](https://estreetshuffle.com/index.php/2018/01/10/cover-me-david-bowie-its-hard-to-be-a-saint-in-the-city/) of Bruce’s “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/).” They don’t get to hear it (it was unfinished), but later that night, Bruce catches Bowie in concert at the Spectrum. After the show ends, there’s enough time for Bruce and Ed to zip back to Center City to catch Billy Joel’s late show at the Academy of Music. Later still, after the show (technically the wee hours of the 26th), Bruce, Billy, and Ed grab some late-night grub at the Eagle II diner. As it turns out, Barry Manilow was in town and had the same idea, so he joins Bruce, Billy, and the Sciakys (Ed’s wife is along for the ride) as well.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/11/41349078612_20417e3391_o.jpg)
+![](../../assets/2018/11/41349078612_20417e3391_o.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/11/billybruce.jpg)
+![](../../assets/2018/11/billybruce.jpg)
 
 **1978:** Bruce and the E Street Band play a Darkness show at Kiel Opera House in St. Louis.<br>
 
@@ -30,13 +30,13 @@
 
 [Watch on Youtube: Bruce Springsteen - "Johnny Bye Bye" - Dallas, 1984-11-25](https://www.youtube.com/watch?v=3fPhuWZO1Js)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1984-11-25.png)
+![](../../assets/2020/11/1984-11-25.png)
 
 **1996:** Bruce plays his second of three very special shows at the Paramount Theater in Asbury Park. Each show is special–a homecoming of sorts, with guest stars and tour premieres galore. On this, Night Two, Bruce is joined at various times throughout the night by Patti, Soozie, and Danny, and original E Street drummer Vini Lopez. Bruce opens with two old-school tour premieres–“[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” and “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/).” Also getting their first airing this tour: “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/),” “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/),” and “[Spirit in the Night.](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)”<br>
 
 [Watch on Youtube: Bruce performs "For You" from Asbury Park in 1996](https://www.youtube.com/watch?v=Ig9CTPe6udI)
 
-**![](https://estreetshuffle.com/wp-content/uploads/2020/11/1996-11-25.png)**<br>
+**![](../../assets/2020/11/1996-11-25.png)**<br>
 
 **2007:** Bruce kicks off the first European leg of the Magic Tour in Madrid, without Danny Federici for the first time. Charlie Giordano sits in for Danny, who is battling late-stage melanoma. Although no one knows it now, Charlie will be on stage at every E Street Band show ever after.<br>
 
@@ -52,7 +52,7 @@
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: tennis legend Billie Jean King.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/11/37764862675_771e02110b_o.jpg)
+![](../../assets/2019/11/37764862675_771e02110b_o.jpg)
 
 **2019:** *Sunrise* debuts Steve Hargrave’s interview with Bruce (recorded last month) on Channel 7 in Australia.<br>
 

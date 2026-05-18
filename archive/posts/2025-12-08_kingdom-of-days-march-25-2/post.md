@@ -1,6 +1,6 @@
 **1976:** The Chicken Scratch Tour kicks off with a show at the Township Auditorium in Columbia, South Carolina–Bruce’s first time performing in the state.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/03/The_Columbia_Record_1976_03_26_page_6.jpg)
+![](../../assets/2024/03/The_Columbia_Record_1976_03_26_page_6.jpg)
 
 **1977:** The Lawsuit Tour comes to a close with a final show at Boston’s Music Hall, featuring the last “Don’t Look Back” for 22 years, the last “(Your Love Keeps Lifting Me) Higher and Higher” for 32 years, and the last “Action in the Streets” for 34 years.<br>
 

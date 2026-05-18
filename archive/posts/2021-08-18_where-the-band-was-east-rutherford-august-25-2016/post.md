@@ -1,6 +1,6 @@
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/metlife2-a_LI.jpg)
+![](../../assets/2018/08/metlife2-a_LI.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/metlife2-b.png)
+![](../../assets/2018/08/metlife2-b.png)
 
 I feel like I should remember more of this show than I do.
 

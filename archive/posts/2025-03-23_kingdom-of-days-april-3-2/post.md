@@ -14,17 +14,17 @@
 
 **1981:** Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
+![](../../assets/2018/03/1981-0318.jpg)
 
 **1985:** Bruce and the E Street Band play their first of two *Born in the U.S.A.* shows in Melbourne, Australia. Bruce performs “[Johnny Bye-Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)” for the final time to date.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9ND97yT2)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Age_Thu__Apr_4__1985_.jpg)
+![](../../assets/2024/04/The_Age_Thu__Apr_4__1985_.jpg)
 
 **1988:** *The Asbury Park Press* spotlights Los Angeles outposts for Springsteen fans.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/1988-04-03-1.jpg)
+![](../../assets/2021/04/1988-04-03-1.jpg)
 
 **1993:** Bruce brings his World Tour 1993 to Dortmund, Germany, where he debuts his cover of “[Many Rivers to Cross](https://estreetshuffle.com/index.php/2018/07/28/cover-me-many-rivers-to-cross/)” and Jon Bon Jovi and Richie Sambora join him on stage for “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/).”<br>
 
@@ -38,19 +38,19 @@
 
 [Watch Video Highlight](https://videopress.com/embed/lUa1zb5B)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Columbian_Tue__Apr_4__2000_-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Columbian_Tue__Apr_4__2000_-1.jpg)
+![](../../assets/2024/04/The_Columbian_Tue__Apr_4__2000_-scaled.jpg) ![](../../assets/2024/04/The_Columbian_Tue__Apr_4__2000_-1.jpg)
 
 **2001:** *Live in New York City* is released, documenting the E Street Band’s Reunion Tour. The album goes on sale shortly after midnight, and Bruce makes a surprise visit to Jack’s Music in Red Bank to kick off the festivities and sign autographs for the first buyers.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2001-04-03a.jpg)
+![](../../assets/2020/04/2001-04-03a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2001-04-03b-scaled.jpg)
+![](../../assets/2021/04/2001-04-03b-scaled.jpg)
 
 **2009:** In Glendale, Night Two on the Working on a Dream Tour brings six set list change-ups (including “[Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/),” “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/),” and “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)“), rare for this early in the tour.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - THE WRESTLER - GLENDALE 2009](https://www.youtube.com/watch?v=emnJ4gJGdM0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/04/El_Paso_Times_2009_04_07_21-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/04/El_Paso_Times_2009_04_07_22.jpg)
+![](../../assets/2025/04/El_Paso_Times_2009_04_07_21-scaled.jpg) ![](../../assets/2025/04/El_Paso_Times_2009_04_07_22.jpg)
 
 **2012:** The Wrecking Ball Tour stops at the Izod Center in East Rutherford for the first of two nights. The highlight: the tour premiere of “So Young and In Love.”<br>
 
@@ -62,7 +62,7 @@
 
 [Watch on Youtube: Land of Hope and Dreams - Springsteen - Meadowlands April 3, 2012](https://www.youtube.com/watch?v=ySez8aX8Pe0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2012-04-03.jpg)
+![](../../assets/2020/04/2012-04-03.jpg)
 
 **2014:** Bruce and the E Street Band rehearse for the U.S. leg of the High Hopes Tour at Sir Studios in New York City.<br>
 
@@ -74,7 +74,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Dancing In The Dark (Multi Cam) - Oklahoma City w/Pro Audio](https://www.youtube.com/watch?v=mQzGg5pRTxQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2016-04-03.jpg)
+![](../../assets/2020/04/2016-04-03.jpg)
 
 **2023:** Another tour premiere for New York fans: Bruce surprises with “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” at Barclays Center in Brooklyn.<br>
 

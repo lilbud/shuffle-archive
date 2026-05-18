@@ -18,11 +18,11 @@ Listen to Bruce recall his memory of this show 36 years later:
 
 [Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/playlist?list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1978-06-02a.jpg)
+![](../../assets/2021/06/1978-06-02a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-06-02b.jpg)
+![](../../assets/2020/05/1978-06-02b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Darkness-Review-Billboard-Jun-24-1978_0001-scaled.jpg)
+![](../../assets/2021/06/Bruce-Darkness-Review-Billboard-Jun-24-1978_0001-scaled.jpg)
 
 That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis during the Darkness Tour, and the band tour premieres “[Sea Cruise](https://estreetshuffle.com/index.php/2018/04/08/cover-me-sea-cruise/)” for the occasion.
 
@@ -34,7 +34,7 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 [Watch on Youtube: Bruce Springsteen London 02/06/1981 Full Concert](https://www.youtube.com/watch?v=ibBf1Xvalvg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-02.jpg)
+![](../../assets/2022/06/1981-06-02.jpg)
 
 **1983:** Recording continues for what will become *Born in the U.S.A.* at The Hit Factory in New York City.<br>
 
@@ -42,17 +42,17 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 [Watch Video Highlight](https://videopress.com/embed/Z5HLzrqT)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1989-06-02.jpg)
+![](../../assets/2020/05/1989-06-02.jpg)
 
 **1999:** Bruce and the E Street Band bring the Reunion Tour to Paris for the first of two nights. Elliott Murphy makes a guest appearance on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uFeEsKEc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Fort_Worth_Star_Telegram_Thu__Jun_3__1999_-scaled.jpg)
+![](../../assets/2024/06/Fort_Worth_Star_Telegram_Thu__Jun_3__1999_-scaled.jpg)
 
 **2004:** Bruce politely but pointedly declines an invitation to be interviewed by the Los Angeles Times on the occasion of the 50th anniversary of the Fender Stratocaster.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/01/bruce-springsteen-letter-p1-large.gif)
+![](../../assets/2022/01/bruce-springsteen-letter-p1-large.gif)
 
 **2005:** Bruce plays a solo acoustic show in Madrid.<br>
 

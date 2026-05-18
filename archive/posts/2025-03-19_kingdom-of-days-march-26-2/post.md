@@ -2,19 +2,19 @@
 
 **1976:** At the Fox Theater in Atlanta, Bruce premieres an early version of “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/).”<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1976-03-26.png)
+![](../../assets/2021/03/1976-03-26.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1976-0326.jpg)
+![](../../assets/2018/03/1976-0326.jpg)
 
 **1988:** “[Ain’t Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)” makes its live debut during Bruce’s Tunnel of Love Express show at the Rupp Arena in Lexington.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2KwzHwiH)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-03-26.png)
+![](../../assets/2021/03/1988-03-26.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-03-26a.jpg)
+![](../../assets/2020/03/1988-03-26a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-03-26b.jpg)
+![](../../assets/2020/03/1988-03-26b.jpg)
 
 **1992:** *CBS This Morning* previews Bruce’s upcoming albums, *Human Touch* and *Lucky Town*.<br>
 
@@ -30,9 +30,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/4qMPO9xF)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/2012-03-26.png)
+![](../../assets/2021/03/2012-03-26.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/2012-03-26.jpg)
+![](../../assets/2020/03/2012-03-26.jpg)
 
 **2013:** Bruce and the E Street Band play their second of three nights at Melbourne’s Rod Laver Arena.<br>
 

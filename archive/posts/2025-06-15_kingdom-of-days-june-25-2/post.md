@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Bruce Springsteen: I Fought The Law - Audio](https://www.youtube.com/watch?v=SH6H1GcvuPs)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/The_Daily_Herald_1978_06_29_21.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/06/The_Daily_Herald_1978_06_28_43.jpg)
+![](../../assets/2024/06/The_Daily_Herald_1978_06_29_21.jpg) ![](../../assets/2024/06/The_Daily_Herald_1978_06_28_43.jpg)
 
 **1984:** Bruce and the E Street Band rehearse one last time before kicking off the Born in the U.S.A. Tour. Following her successful audition the day before, Bruce invites Patti Scialfa to join the band effective immediately. She accepts on the spot.<br>
 
@@ -26,9 +26,9 @@
 
 [Watch on Youtube: Bruce Springsteen London 25/06/1988 Full Concert](https://www.youtube.com/watch?v=bvWITRQO8oY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1988-06-25.jpg)
+![](../../assets/2020/06/1988-06-25.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1988-0625.jpg)
+![](../../assets/2021/06/1988-0625.jpg)
 
 **1992:** Bruce’s World Tour 1992 arrives in Frankfurt for the first of two nights. Watch CNN coverage of the show below.<br>
 
@@ -40,7 +40,7 @@
 
 [Watch on Youtube: "Project X" on Letterman, June 25, 1993](https://www.youtube.com/watch?v=R9hqLDOPNg8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1993-06-25.jpg)
+![](../../assets/2020/06/1993-06-25.jpg)
 
 **2003:** The European leg of the Rising Tour hits the home stretch with this show in Vienna, featuring a full-band “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).”<br>
 
@@ -62,7 +62,7 @@
 
 [Watch on Youtube: Man on the flying trapeze](https://www.youtube.com/watch?v=voXHqkN2k9Q)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/2006-06-25.jpg)
+![](../../assets/2021/06/2006-06-25.jpg)
 
 **2008:** When the Magic Tour comes to Milan, Bruce opens with “[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/),” closes with the tour premiere of “Twist and Shout,” and treats fans to the first European performance of “[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/).”<br>
 

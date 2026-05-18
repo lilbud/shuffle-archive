@@ -1,22 +1,22 @@
 **1971:** Ten days after Steel Mill plays their final show, Bruce is already in the market for talent for a new band. This help wanted ad runs in the *Asbury Park Press* today.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1971_02_02_Page_29-scaled.jpg)
+![](../../assets/2025/02/Asbury_Park_Press_1971_02_02_Page_29-scaled.jpg)
 
 **1973:** Bruce and the as yet unnamed E Street Band play their third of six nights at Max’s Kansas City in New York. (photo credit: Chuck Pulin)<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/1973-0202.jpg)
+![](../../assets/2018/01/1973-0202.jpg)
 
 **1974:** Bruce and the band headline at Springfield College, where a snowstorm keeps all but about 30 people from attending. When the power goes out during the show, Bruce switches to solo piano.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/1974-0202.jpg)
+![](../../assets/2018/01/1974-0202.jpg)
 
 **1981:** The River Tour (original version) moves on to Dane County Memorial Coliseum in Madison, Wisconsin.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Aj2vCNPN)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/1981-02-02.jpg)
+![](../../assets/2020/01/1981-02-02.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/1981-0202.jpg)
+![](../../assets/2018/01/1981-0202.jpg)
 
 **1987:** *Live 1975-85* is certified 3x Platinum by the Recording Industry Association of America.<br>
 
@@ -26,7 +26,7 @@
 
 **1992:** Bruce and Patti are in New Orleans filming the video for “[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/).” That evening, they drop by the Maple Leaf Bar, where the Iguanas are playing. Introduced by a pseudonym, Bruce joins the band for “[Ain’t That a Shame,](https://estreetshuffle.com/index.php/2018/03/08/meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/)” “[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/)” and “Betty Jean.”<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/02/The_Toronto_Star_1992_02_27_43-scaled.jpg)
+![](../../assets/2025/02/The_Toronto_Star_1992_02_27_43-scaled.jpg)
 
 **2016:** The River Tour (2016 edition) makes a single stop in Canada, at the Air Center in Toronto.<br>
 
@@ -50,7 +50,7 @@
 
 [Watch on Youtube: 2017-02-02 - Bruce Springsteen - Melbourne, AAMI Park - Long Walk Home](https://www.youtube.com/watch?v=Juk0Y_9lrCY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/02/2017-02-02.png)
+![](../../assets/2021/02/2017-02-02.png)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

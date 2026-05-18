@@ -2,7 +2,7 @@
 
 [Watch on Youtube: It's Pronounced Jordan: That time Bruce Springsteen didn't hang out on Auburn's campus](https://www.youtube.com/watch?v=mG2oL2ONmvc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1976-05-07.jpg)
+![](../../assets/2020/05/1976-05-07.jpg)
 
 **1980:** At a mixing station for *The River* at Clover Studios in Los Angeles, Bruce and team complete the mix for “I Wanna Marry You.”<br>
 
@@ -46,7 +46,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/owthSofs)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2000-05-07.jpg)
+![](../../assets/2020/04/2000-05-07.jpg)
 
 **2005:** At his solo acoustic show in Denver, Bruce plays the tour debut of “The Promise.”<br>
 
@@ -62,9 +62,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/AUI2bQ57)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2008-05-07a.jpg)
+![](../../assets/2021/05/2008-05-07a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2008-05-07b.jpg)
+![](../../assets/2020/04/2008-05-07b.jpg)
 
 **2009:** Bruce plays the tour premiere of “Louie Louie” at the Air Canada Center in Toronto on the Working on a Dream Tour.<br>
 
@@ -74,7 +74,7 @@
 
 [Watch on Youtube: E Street Shuffle - Toronto, May 7, 2009 - Bruce Springsteen](https://www.youtube.com/watch?v=3LRO9aIZi38)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2009-05-07.jpg)
+![](../../assets/2020/04/2009-05-07.jpg)
 
 **2013:** At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce and the band play “Brilliant Disguise” for the first time on the tour and open the encores with a rare “Queen of the Supermarket.”<br>
 
@@ -92,7 +92,7 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - "The Promised Land" Live At USC Shoah Foundation Gala 5/7/2014](https://www.youtube.com/watch?v=sRHdTW95P_A)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2014-05-07.jpg)
+![](../../assets/2021/05/2014-05-07.jpg)
 
 **2023:** Bruce and the E Street Band play their second of three shows at RDS Arena in Dublin.<br>
 

@@ -1,20 +1,20 @@
 **1957:** E Street Band violinist Soozie Tyrell is born in Pisa, Italy.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/soozie.jpg)
+![](../../assets/2018/04/soozie.jpg)
 
 **1969:** Child plays an outdoor set at West End Park in Long Branch, New Jersey. (Note: Brucebase has this show assigned to Monday, May 5th. However, contemporaneous press coverage confirms that the date was actually Sunday, May 4th.)<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/Asbury_Park_Press_Mon__May_5__1969_-1-scaled.jpg)
+![](../../assets/2024/05/Asbury_Park_Press_Mon__May_5__1969_-1-scaled.jpg)
 
 **1974:** Bruce and the E Street Band headline Montclair State University’s Spring Carnival, opening with “New York City Serenade.”<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1974-0504.jpg)
+![](../../assets/2018/04/1974-0504.jpg)
 
 **1975:** At a *Born to Run* recording session at the Record Plant in New York City, Bruce works on “Lonely Night in the Park” and “She’s the One.”<br>
 
 **1976:** Bruce plays his first-ever show in Mississippi, at the Coliseum in Jackson.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/1976-05-04.jpg)
+![](../../assets/2020/04/1976-05-04.jpg)
 
 **1982:** Bruce and the E Street Band record “Murder Incorporated” at the Power Station in New York City.<br>
 
@@ -36,9 +36,9 @@
 
 [Watch on Youtube: HOF2008 Sinatra Bruce Springsteen](https://www.youtube.com/watch?v=4hAAehP6UxM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2008-05-04a.jpg)
+![](../../assets/2020/04/2008-05-04a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2008-05-04b.jpg)
+![](../../assets/2021/05/2008-05-04b.jpg)
 
 **2009:** Bruce brings the Working on a Dream Tour to the Nassau Coliseum in Uniondale, New York, where he plays the tour premieres of “Expressway to Your Heart” (by request) and “Rendezvous.” This show is available as part of Bruce’s official archive series.<br>
 
@@ -80,6 +80,6 @@
 
 Upon returning to Dublin later in the day, Bruce pays a visit to the late Shane MacGowan, former lead singer of The Pogues.
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/05/FvN_BMvXsBARCOF.jpg)
+![](../../assets/2025/05/FvN_BMvXsBARCOF.jpg)
 
 **2024:** Bruce and the E Street Band rehears for their European tour at Principality Stadium in Cardiff.<br>

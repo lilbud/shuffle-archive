@@ -6,7 +6,7 @@ On our second of three nights, we happened upon an absolutely spectacular amaro 
 
 The bar’s inventory was jaw-dropping: with over five hundred varieties of wonderfully bitter herbaceous quaffs on hand (including several vintage bottles older than I am), I couldn’t begin to figure out where to start, so I placed myself in the hands of our knowledgeable bartender, who proceeded to ply us with nine different concoctions from several decades to try.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/12/amaro2.jpg)
+![](../../assets/2019/12/amaro2.jpg)
 
 About a half-hour in to our amazing tasting experience, I was feeling pretty good. We’d found a warm, quiet bar to escape the cold, rainy evening; I had my wife by my side; we had a friendly and attentive bartender before us who was excited to share his considerable knowledge; a wonderful meal awaited us; and I was feeling pleasantly toasty from the amaro.
 

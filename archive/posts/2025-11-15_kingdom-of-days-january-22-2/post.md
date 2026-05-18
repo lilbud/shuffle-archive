@@ -1,6 +1,6 @@
 **1949:** “Mad Dog” Vini Lopez, original E Street Band drummer, is born in Neptune Township, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/vini.jpg)
+![](../../assets/2018/01/vini.jpg)
 
 **1970:** Bruce and Steel Mill open for the Elvin Bishop Band at The Matrix in San Francisco.<br>
 
@@ -12,15 +12,15 @@
 
 [Watch on Youtube: Steel Mill - Live at the Upstage - 1971-01-22](https://www.youtube.com/watch?v=ko8iLPOFVdw)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/1971-01-22.jpg)
+![](../../assets/2020/01/1971-01-22.jpg)
 
 **1972:** Bruce and the Sundance Blues Band open for Ruby Falls and the Rock City Band at The Captain’s Garter in Neptune, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/1972-0122.jpg)
+![](../../assets/2018/01/1972-0122.jpg)
 
 **1977:** Springsteen guests with Pegasus at The Jail in Hillsdale, New Jersey for “[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)” and “Rosalita (Come Out Tonight).”<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/1977-122.jpg)
+![](../../assets/2018/01/1977-122.jpg)
 
 **1994:** Bruce wins the Best Original Song Golden Globe for “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/).”<br>
 
@@ -42,7 +42,7 @@ That evening, Bruce plays a solo acoustic show at the Saenger Performing Arts Ce
 
 [Watch on Youtube: We Shall Overcome Bruce Springsteen Hope For Haiti January 22 2010](https://www.youtube.com/watch?v=HtC_NIBXrH4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/2010-01-22.png)
+![](../../assets/2021/01/2010-01-22.png)
 
 **2014:** Bruce releases his official video for “[Just Like Fire Would](https://estreetshuffle.com/index.php/2020/05/24/cover-me-just-like-fire-would/).”<br>
 
@@ -52,7 +52,7 @@ That evening, Bruce plays a solo acoustic show at the Saenger Performing Arts Ce
 
 [Watch on Youtube: Bruce Springsteen performs at USET Rockin' Rio Gala](https://www.youtube.com/watch?v=e6n2jeN_x7E)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_2016_01_29_Page_J3.jpg)
+![](../../assets/2025/01/Asbury_Park_Press_2016_01_29_Page_J3.jpg)
 
 **2017:** Bruce and the E Street Band kick off their Australian Summer tour in Perth. This is the first show after Donald Trump’s inauguration, and Bruce makes reference to it right off the bat, both at an afternoon press conference and at the top of the show. This first show of 2017 feels like a continuation of the 2016 “autobiography tour,” but this will prove to be the last such set list. An encore highlight: an ultra-rare acoustic “[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/).”<br>
 
@@ -66,8 +66,8 @@ That evening, Bruce plays a solo acoustic show at the Saenger Performing Arts Ce
 
 [Watch on Youtube: Bruce Springsteen - Blood Brothers (live in Perth 2017)](https://www.youtube.com/watch?v=HI6SXU78NFE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/2017-01-22.png)
+![](../../assets/2021/01/2017-01-22.png)
 
 **2023:** Bruce poses for photographer Danny Clinch at the site of the former Turf Club in Asbury Park. (Photo credit: Tom Parr)<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/01/497928210_10236827227797455_7121247931772363553_n.jpg)
+![](../../assets/2025/01/497928210_10236827227797455_7121247931772363553_n.jpg)

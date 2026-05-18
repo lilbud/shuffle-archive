@@ -12,11 +12,11 @@
 
 **1981:** Bruce postpones a show in Edinburgh to recover from the previous leg of the River Tour.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
+![](../../assets/2018/03/1981-0318.jpg)
 
 **1988:** Detroit radio station WRIF-FM airs a bootleg of last month’s Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can’t envision a day when bootlegs are commonly played on the radio.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/03/1988-03-30.jpg)
+![](../../assets/2022/03/1988-03-30.jpg)
 
 **1989:** Bruce and Julianne Phillips finalize their divorce.<br>
 
@@ -24,9 +24,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/QSdKEveK)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30a.png)
+![](../../assets/2021/03/1993-03-30a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30b.png)
+![](../../assets/2021/03/1993-03-30b.png)
 
 **1996:** Bruce’s scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year’s Oscars ceremony.<br>
 

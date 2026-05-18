@@ -2,17 +2,17 @@
 
 **1973:** Bruce and the (not yet named) E Street Band play a gig at Oliver’s in Boston, their fifth of seven straight nights.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316.jpg)
+![](../../assets/2018/03/1973-0316.jpg)
 
 **1974:** Bruce and the band play their second of two nights at Armadillo World Headquarters in Austin.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/47802963802_7161fc584d_o.jpg)
+![](../../assets/2020/03/47802963802_7161fc584d_o.jpg)
 
 **1988:** The Tunnel of Love Express Tour moves on to Chicagoland for the first of two nights at the Rosemont Horizon.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/N9EzSYt4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-03-16.jpg)
+![](../../assets/2020/03/1988-03-16.jpg)
 
 **1996:** Bruce plays a solo acoustic show at Falkoner Salen in Copenhagen.<br>
 
@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Bruce Springsteen ~ Xcel Center ~ St Paul 3-16-08 ~ Magic](https://www.youtube.com/watch?v=nNvJ_sZfNwQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/03/2008-03-16.jpg)
+![](../../assets/2022/03/2008-03-16.jpg)
 
 **2013:** Night Two in Brisbane opens with the live debut of “[High Hopes](https://estreetshuffle.com/index.php/2021/08/25/cover-me-high-hopes/).”<br>
 
@@ -56,4 +56,4 @@
 
 [Watch on Youtube: Bruce Springsteen Philadelphia 3/16/23 clips from behind the stage, great view of the crowd and pit](https://www.youtube.com/watch?v=vpM5M6nBrtk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/03/Philadelphia_Inquirer_Sat__Mar_18__2023_-scaled.jpg)
+![](../../assets/2024/03/Philadelphia_Inquirer_Sat__Mar_18__2023_-scaled.jpg)

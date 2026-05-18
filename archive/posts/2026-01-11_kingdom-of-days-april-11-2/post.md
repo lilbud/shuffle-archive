@@ -2,15 +2,15 @@
 
 **1970:** Steel Mill holds an invite-only rehearsal show for the local press.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1973-0411.jpg)
+![](../../assets/2018/04/1973-0411.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1970-0411.jpg)
+![](../../assets/2018/04/1970-0411.jpg)
 
 **1971:** The Green Mermaid coffee house underneath The Upstage in Asbury Park plays host to the “Bruce Springsteen Acoustyc Jam.”<br>
 
 **1973:** Bruce plays his first-ever show in Georgia, opening for The Beach Boys at the Omni Coliseum in Atlanta. Bruce has undoubtedly grown used to people misspelling his name by now, but this poster is probably a new variant.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/48062448203_aacecf6b79_o.jpg)
+![](../../assets/2020/03/48062448203_aacecf6b79_o.jpg)
 
 **1974:** Bruce plays two shows at Charlie’s Place in Cambridge, Massachusetts–his third of four nights at that venue.<br>
 
@@ -58,7 +58,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2003-04-11.jpg)
+![](../../assets/2020/04/2003-04-11.jpg)
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.<br>
 

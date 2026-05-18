@@ -2,11 +2,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/YKDm9FGq)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Charlotte_News_1985_01_16_8.jpg)
+![](../../assets/2025/01/The_Charlotte_News_1985_01_16_8.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1985-01-15b.png)
+![](../../assets/2020/12/1985-01-15b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1985-01-15c.png)
+![](../../assets/2020/12/1985-01-15c.png)
 
 **1988:** The video for “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” premieres on *Friday Night Videos*.<br>
 
@@ -20,8 +20,8 @@
 
 [Watch Video Highlight](https://videopress.com/embed/sZqestDr)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/2011-01-15a.png)
+![](../../assets/2020/12/2011-01-15a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/2011-01-15b.png)
+![](../../assets/2020/12/2011-01-15b.png)
 
 **2016:** Bruce and the E Street Band rehearse in Pittsburgh for the start of the River Tour (2016 version). They rehearse two Bowie songs as a tribute, “Suffragette City” and “Changes,” but they will end up playing a different song altogether when the tour opens the following night.<br>

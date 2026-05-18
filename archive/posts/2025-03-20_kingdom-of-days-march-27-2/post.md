@@ -2,19 +2,19 @@
 
 **1970:** Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1970-0327.jpg)
+![](../../assets/2018/03/1970-0327.jpg)
 
 **1971:** Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional materials but changed to Dr. Zoom and the Sonic Boom by the night of the shows) in order to land a gig opening for the Allman Brothers at Asbury Park’s Sunshine In. These two shows feature an on-stage Monopoly game and a baton twirler during the band’s set. (Lore has it that all Dr. Zoom shows featured these distractions, but this date is the only documented instance of it.)<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1971-0327.jpg)
+![](../../assets/2018/03/1971-0327.jpg)
 
 **1976:** Bruce and Steve drop by Atlanta’s WQXI-FM for an interview with DJ Cat Simon.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1976-0327.jpg)
+![](../../assets/2018/03/1976-0327.jpg)
 
 **1981:** Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
+![](../../assets/2018/03/1981-0318.jpg)
 
 **1983:** Bruce checks out The Bangles’ performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.<br>
 
@@ -26,7 +26,7 @@
 
 **1996:** Bruce’s scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year’s Oscar ceremony.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/03/19960322_Press_01_Reschedule.jpg)
+![](../../assets/2025/03/19960322_Press_01_Reschedule.jpg)
 
 **2013:** The final night in Melbourne on the Wrecking Ball Tour features the tour premiere of “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/).”<br>
 

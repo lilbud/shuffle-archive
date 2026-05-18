@@ -8,7 +8,7 @@ The day of the show was one of the most inhospitable ones I can remember–just 
 
 The Foundation tickets came with an awesome pre-show highlight, though–one that I’ll probably remember longer than the show itself: we got to meet Steve himself and take a quick photo with him!
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/11313078_10208555440662040_8041608604007081818_o.jpg)
+![](../../assets/2018/03/11313078_10208555440662040_8041608604007081818_o.jpg)
 
 Show-wise, the main set River performance was the highlight as usual for this early leg of the tour, but the second set was no slouch: for a while, I almost thought he was going to perform the entire [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) album, too, as 4 of the first 5 post-River songs were selections or outtakes from that album. In fact, of the 35 songs played, only 3 originated post-1980, making it an unusually intense, old-school night.
 

@@ -1,6 +1,6 @@
 **1973:** Bruce’s scheduled gig opening for Paul Butterfield in Phoenix is cancelled due to poor ticket sales.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/02/1973-03-09.png)
+![](../../assets/2021/02/1973-03-09.png)
 
 **1974:** In the afternoon, Bruce stops by KLOL-FM for the second day in a row, this time with the band. They play an extended on-air set that includes “The Fever,” a local radio favorite.<br>
 
@@ -12,7 +12,7 @@ That night, the boys play two shows at Liberty Hall.
 
 **1975:** Violinist Suki Lahav makes her last appearance with Bruce and the E Street Band when the Wild & Innocent Tour wraps up at DAR Constitution Hall in Washington, DC.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/1975-03-09.jpg)
+![](../../assets/2020/03/1975-03-09.jpg)
 
 **1983:** Bruce records “Johnny Bye Bye” at his home studio in Los Angeles. It won’t be released for over forty years.<br>
 
@@ -30,7 +30,7 @@ That night, the boys play two shows at Liberty Hall.
 
 [Watch on Youtube: Bruce Springsteen - Human Touch (Official HD Video)](https://www.youtube.com/watch?v=85cNRQo1m3A)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1992-03-09.png)
+![](../../assets/2021/03/1992-03-09.png)
 
 **2000:** The Reunion Tour’s Florida swing continues with a show at the National Car Rental Center in Sunrise.<br>
 
@@ -40,11 +40,11 @@ That night, the boys play two shows at Liberty Hall.
 
 [Watch Video Highlight](https://videopress.com/embed/OIp6vgk0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09a.jpg)
+![](../../assets/2020/03/2000-03-09a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09b.jpg)
+![](../../assets/2020/03/2000-03-09b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09c.jpg)
+![](../../assets/2020/03/2000-03-09c.jpg)
 
 **2003:** Bruce grants an interview to *60 Minutes Australia* at his home in New Jersey.<br>
 
@@ -68,9 +68,9 @@ That night, the boys play two shows at Liberty Hall.
 
 [Watch on Youtube: Bruce Springsteen plays intimate venue](https://www.youtube.com/watch?v=iyIfdt9O50g)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/2012-03-09a.jpg)
+![](../../assets/2020/03/2012-03-09a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/2012-03-09b.jpg)
+![](../../assets/2021/03/2012-03-09b.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is not present tonight, so Bruce plays “Long Time Comin'” and “The Ghost of Tom Joad” in place of “Tougher Than the Rest” and “Brilliant Disguise.”<br>
 

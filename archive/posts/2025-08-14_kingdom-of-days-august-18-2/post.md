@@ -6,7 +6,7 @@
 
 [Watch on Youtube: Bruce Springsteen: 1. Summertime Blues - Live in Philadelphia (August 18th, 1978)](https://www.youtube.com/watch?v=dKSxtbFRC6A)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1978-08-18.png)
+![](../../assets/2020/08/1978-08-18.png)
 
 **1985:** Bruce and the band kick off a four-night stand at Giants Stadium (they will return for two more later in the summer). This is Bruce’s first stadium concert in his home state, and the media coverage is intense. Check out the news footage and the PBS featurette below.<br>
 
@@ -18,21 +18,21 @@
 
 [Watch on Youtube: Bruce Springsteen - PBS Profile - 8/18/85](https://www.youtube.com/watch?v=P5hwmtfpgEM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/1985-08-18a.png)
+![](../../assets/2021/08/1985-08-18a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-18b.png)
+![](../../assets/2020/08/1985-08-18b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-18c.png)
+![](../../assets/2020/08/1985-08-18c.png)
 
 **1992:** Bruce and his new touring band play their second night at The Palace of Auburn Hills on World Tour 1992, tour premiering a cover of “[Ramblin’ Gamblin’ Man](https://estreetshuffle.com/index.php/2020/04/14/cover-me-ramblin-gamblin-man/),” a one-off for the tour. David Weiss of Was (Not Was) is at the show tonight, but he doesn’t perform.<br>
 
 [Watch on Youtube: Bruce Springsteen - Ramblin' Gamblin' Man - 1992-08-18, Auburn Hills](https://www.youtube.com/watch?v=BFFi5wbLcTg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-08-18a.png)
+![](../../assets/2020/08/1992-08-18a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-08-18b.png)
+![](../../assets/2020/08/1992-08-18b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-08-18c.png)
+![](../../assets/2020/08/1992-08-18c.png)
 
 **2001:** Bruce makes a surprise afternoon appearance at the annual Clearwater Festival in Asbury Park, playing six songs (including the first ever acoustic performance of “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)“). The video footage below is unintentionally hilarious at times: first, a local news reporter tries multiple times to do a “guess who that is over there” intro, but an oblivious Bruce fails to cooperate; later, a group performance of “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)” is, let’s say, ragtag. And that poor ASL interpreter–how hard must it be to sign *that* song?<br>
 
@@ -40,17 +40,17 @@
 
 Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on stage for four songs, including “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” and “[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)…”
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/2001-0818a.jpg)
+![](../../assets/2018/08/2001-0818a.jpg)
 
 …and because that *still* wasn’t enough for one day, he stuck around to join John Eddie on stage for “[Suspicious Minds](https://estreetshuffle.com/index.php/2019/03/09/matr-bruce-springsteen-john-eddie-and-friends-suspicious-minds/).”
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/2001-0818b.jpg)
+![](../../assets/2018/08/2001-0818b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/2001-08-18a.png)
+![](../../assets/2021/08/2001-08-18a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2001-08-18b.png)
+![](../../assets/2020/08/2001-08-18b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2001-08-18c.png)
+![](../../assets/2020/08/2001-08-18c.png)
 
 **2002:** After four identical shows, Bruce finally changes up the Rising Tour setlist (barely) at his stop at the Thomas & Mack Center in Las Vegas, adding a tour one-off of “[Viva Las Vegas](https://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/)” to the encores. In attendance tonight: Leonardo DiCaprio, Robert Downey Jr., Juliette Lewis, Christina Applegate, Lara Flynn Boyle, Cindy Crawford, Chris Kattan, Rose McGowan, Fred Durst, and more.<br>
 
@@ -58,7 +58,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 [Watch on Youtube: Las Vegas 18/08/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zCBQ5Ubc2UseuhTWCpTHdra)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/08/The_Province_2002_08_21_27.jpg)
+![](../../assets/2024/08/The_Province_2002_08_21_27.jpg)
 
 **2008:** Bruce and the E Street Band take the Magic Tour into its final week with a show at the Coliseum in Richmond. Bruce opens the encores with the long lost “[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)” (played for the first time in 28 years), followed by the tour premiere of “Quarter to Three.”<br>
 
@@ -66,7 +66,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 [Watch on Youtube: Bruce Springsteen - Born To Run - (8-18-08)](https://www.youtube.com/watch?v=3NNS7DrhHv0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/08/Richmond_Times_Dispatch_2008_08_19_B1.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/08/Richmond_Times_Dispatch_2008_08_19_B3.jpg)
+![](../../assets/2025/08/Richmond_Times_Dispatch_2008_08_19_B1.jpg) ![](../../assets/2025/08/Richmond_Times_Dispatch_2008_08_19_B3.jpg)
 
 **2012:** Bruce wraps up a three-night Boston stadium stand with a show at Gillette Stadium in Foxborough. Bruce tour debuts “[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)” (played in the Seeger Sessions swing arrangement) as well as the first performance of “[Drift Away](https://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)” in 28 years.<br>
 

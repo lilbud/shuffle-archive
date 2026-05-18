@@ -1,6 +1,6 @@
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/2016-02-04.jpg)
+![](../../assets/2020/01/2016-02-04.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/1973-02-04.jpg)
+![](../../assets/2020/01/1973-02-04.jpg)
 
 **1972:** The Bruce Springsteen Band opens a nine-show stand at The Back Door in Richmond, where the band will play for much of the month. Listen to their set below.<br>
 
@@ -10,13 +10,13 @@
 
 **1981:** Bruce and the band play Southern Illinois University in Carbondale along the original River Tour.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/1981-02-04.jpg)
+![](../../assets/2020/01/1981-02-04.jpg)
 
 **1991:** Bruce and Patti attend the opening night of Sting’s stand at the Wiltern Theater in Los Angeles. Entertainment Tonight catches a brief glimpse of the pair (not yet married) during their segment covering the show.<br>
 
 [Watch on Youtube: Entertainment Tonight - 1991-02-05 - Sting profile with Bruce and Patti cameo](https://www.youtube.com/watch?v=wGnu-V5Yeeo)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/02/1991-02-04.png)
+![](../../assets/2021/02/1991-02-04.png)
 
 **1997:** Bruce plays his first ever Australian solo acoustic show at the QPAC Concert Hall in Brisbane.<br>
 
@@ -24,7 +24,7 @@
 
 **2009:** *Working on a Dream* debuts at #1 on the Billboard album chart, bumping defending champion Taylor Swift.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/02/Star_Phoenix_2009_02_05_22-scaled.jpg)
+![](../../assets/2025/02/Star_Phoenix_2009_02_05_22-scaled.jpg)
 
 **2016:** The River Tour (2016 version) stops at TD Garden in Boston, where “[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)” makes its tour debut and Peter Wolf joins for the closing “[Shout](https://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/).”<br>
 

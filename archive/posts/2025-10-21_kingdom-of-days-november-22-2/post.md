@@ -2,15 +2,15 @@
 
 **1950:** Future singer/guitarist/songwriter/producer/arranger/actor/DJ/best-selling author, member of the E Street Band, co-founder of the Asbury Jukes, and leader of the Disciples of Soul–Steven Van Zandt is born today in Winthrop, Massachusetts.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/11/svz.jpg)
+![](../../assets/2018/11/svz.jpg)
 
 **1968:** Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/11/1968-11-22.gif)
+![](../../assets/2018/11/1968-11-22.gif)
 
 **1969:** Still transitioning from Child to Steel Mill, Bruce and the band open for Iron Butterfly at Randolph-Macon College.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/11/1969-11-21.jpg)
+![](../../assets/2019/11/1969-11-21.jpg)
 
 **1974:** Bruce and the E Street Band headline at West Chester College.<br>
 
@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "Point Blank" - Red Bank, 1995-11-22](https://www.youtube.com/watch?v=2xYzEjSci5Q)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1995-11-22.png)
+![](../../assets/2020/11/1995-11-22.png)
 
 **2002:** The anticipation for Bruce’s upcoming show in Tampa is building, stoked by the local news. Tonight, they air a special look at Bruce’s local fandom.<br>
 
@@ -60,7 +60,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/vy8EpCQb)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/11/The_Buffalo_News_Mon__Nov_23__2009_.jpg)
+![](../../assets/2023/11/The_Buffalo_News_Mon__Nov_23__2009_.jpg)
 
 **2016:** President Barack Obama presents Bruce with the Presidential Medal of Freedom, the nation’s highest civilian honor.<br>
 
@@ -71,9 +71,9 @@ Before the ceremony, Bruce joins the assembled honorees in the Mannequin Challen
 >
 > — The Ellen Show (@TheEllenShow) [November 22, 2016](https://twitter.com/TheEllenShow/status/801127734952853504?ref_src=twsrc%5Etfw)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2016-11-22a.png)
+![](../../assets/2020/11/2016-11-22a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2016-11-22b.png)
+![](../../assets/2020/11/2016-11-22b.png)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

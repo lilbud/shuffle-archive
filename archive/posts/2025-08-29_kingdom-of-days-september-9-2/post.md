@@ -18,21 +18,21 @@
 
 [Watch on Youtube: September 9th, 1978 - South Bend, IN](https://www.youtube.com/playlist?list=PLsxNBNx2akeU-CBriNeY0gCYICDijG95i)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1978-09-09.jpg)
+![](../../assets/2020/08/1978-09-09.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1978-09-09.jpg)
+![](../../assets/2019/08/1978-09-09.jpg)
 
 **1985:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami’s Orange Bowl Stadium for the first of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/f3uQhVqy)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-09-09a.jpg)
+![](../../assets/2020/08/1985-09-09a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-09-09b.jpg)
+![](../../assets/2020/08/1985-09-09b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-09-09c.jpg)
+![](../../assets/2020/08/1985-09-09c.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1985-0908.jpg)
+![](../../assets/2021/09/1985-0908.jpg)
 
 **1992:** “[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)” is nominated for Best Male Video at the MTV Video Music Awards but loses to Eric Clapton’s “Tears in Heaven.”<br>
 
@@ -44,9 +44,9 @@
 
 **2005:** *Glory Days: A Bruce Springsteen Symposium* kicks off at New Jersey’s Monmouth University, drawing scholars and fans to discuss the life and work of Springsteen. More than 150 papers are presented, and special guests and musical events celebrate the occasion.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/2005-09-09a.jpg)
+![](../../assets/2021/09/2005-09-09a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/2005-09-09b.jpg)
+![](../../assets/2021/09/2005-09-09b.jpg)
 
 **2016:** Night Two in Philadelphia on the “Autobiography Tour” can’t quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from [*Greetings from Asbury Park, N.J.*](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1973-0105-album.jpg?w=500&ssl=1), and “From Small Things (Big Things One Day Come)” and “[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)” make rare appearances. The amazing two-night stand is capped off by a show-closing “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” complete with fireworks. But for my money, the highlight of the show is one of the best-ever versions of “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/).” For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/09/09/where-the-band-was-philadelphia-september-9-2016/)<br>
 

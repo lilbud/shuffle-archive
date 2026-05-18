@@ -4,23 +4,23 @@
 
 [Watch on Youtube: Springsteen - Chuck Berry Memory](https://www.youtube.com/watch?v=ZdWu4peTI3Y)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/Bruce-with-Chuck-signed-3-rotated.jpg)
+![](../../assets/2021/04/Bruce-with-Chuck-signed-3-rotated.jpg)
 
 **1974:** Bruce and the E Street Band play an intimate (less than 300 attendees) outdoor show at Swarthmore College.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/1974-0428.jpg)
+![](../../assets/2021/04/1974-0428.jpg)
 
 **1976:** Bruce plays the Grand Ole Opry House in Nashville.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/1976-04-28b.jpg)
+![](../../assets/2020/04/1976-04-28b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1976-0428.jpg)
+![](../../assets/2018/04/1976-0428.jpg)
 
 **1981:** Flo and Eddie guest-star on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” when the River Tour arrives in Rotterdam.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/JJqRnR4k)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1981-0428.jpg)
+![](../../assets/2018/04/1981-0428.jpg)
 
 **1982:** At the Power Station in New York City, Bruce works on several songs for what would eventually become *Born in the U.S.A.*<br>
 
@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Bruce Springsteen Cadillac Ranch Live In Lyon 28/04/1999](https://www.youtube.com/watch?v=DVw_WIjDy58)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/04/Omaha_World_Herald_Fri__May_7__1999_-scaled.jpg)
+![](../../assets/2024/04/Omaha_World_Herald_Fri__May_7__1999_-scaled.jpg)
 
 **2003:** Bruce rehearses at the Count Basie Theater for Bobby Bandiera’s Hope Concert benefit the following day.<br>
 
@@ -50,11 +50,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/jNBEdQ4h)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2005-04-28a.jpg)
+![](../../assets/2020/04/2005-04-28a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2005-04-28b.jpg)
+![](../../assets/2020/04/2005-04-28b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2005-04-28c.jpg)
+![](../../assets/2021/04/2005-04-28c.jpg)
 
 **2008:** Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres of “[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)” and “[Don’t Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/),” before segueing to “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/),” “[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/),” and “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/).” Opening packs don’t get much better than that. Also tour premiering tonight: “[Mary’s Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25606/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-4-28-2008-Greensboro-Coliseum-Greensboro-NC.html).<br>
 
@@ -66,9 +66,9 @@
 
 [Watch on Youtube: The Rising (Live at Greensboro Coliseum, Greensboro, NC - 4/28/2008)](https://www.youtube.com/watch?v=rL2LaSHV8vQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2008-04-28a.jpg)
+![](../../assets/2021/04/2008-04-28a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2008-04-28b-scaled.jpg)
+![](../../assets/2021/04/2008-04-28b-scaled.jpg)
 
 **2009:** Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of “[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/),” “[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/),” “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” and “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/).” For more highlights from this show, see my [Where the Band Was report](https://estreetshuffle.com/index.php/2018/04/28/where-the-band-was-philadelphia-april-28-2009/) from this date.<br>
 
@@ -76,9 +76,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bSuR98jW88c)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2009-04-28a.jpg)
+![](../../assets/2021/04/2009-04-28a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/04/2009-04-28b-rotated.jpg)
+![](../../assets/2022/04/2009-04-28b-rotated.jpg)
 
 **2013:** Bruce and the E Street Band rehearse for the next leg of the Wrecking Ball Tour at Nordisk Film Studios in Oslo.<br>
 
@@ -102,4 +102,4 @@
 
 [Watch on Youtube: Bruce Springsteen - Glory Days (Official Audio) with Michelle Obama, Barcelona 2023-04-28](https://www.youtube.com/watch?v=cuFSiZx6SZw)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/04/La_Prensa_Sat__Apr_29__2023_-scaled.jpg)
+![](../../assets/2024/04/La_Prensa_Sat__Apr_29__2023_-scaled.jpg)

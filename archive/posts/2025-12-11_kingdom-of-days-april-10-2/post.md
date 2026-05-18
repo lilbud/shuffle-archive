@@ -2,17 +2,17 @@
 
 **1971:** The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays host to the “Bruce Springsteen Acoustyc Jam.”<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1971-0410.jpg)
+![](../../assets/2018/03/1971-0410.jpg)
 
 **1974:** Bruce Springsteen meets future manager Jon Landau when Landau spots Bruce reading his review of *The Wild, The Innocent & The E Street Shuffle* during the break between two shows at Charlie’s Place in Cambridge, Massachusetts.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1974-0412.jpg)
+![](../../assets/2018/04/1974-0412.jpg)
 
 **1976:** As a favor to John Hammond, Bruce performs at Choate Rosemary Hall in Wallingford, Connecticut.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-10 Paul Mellon Arts Center, Wallingford, CT](https://www.youtube.com/watch?v=RpYN1v_VZGc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1976-0410.jpg)
+![](../../assets/2018/03/1976-0410.jpg)
 
 **1979:** Bruce and the E Street Band work on “The Ties that Bind” at the Power Station in New York City.<br>
 
@@ -28,7 +28,7 @@
 
 [Watch on Youtube: Bruce Springsteen YOYOGI TOKYO 1985 4 10](https://www.youtube.com/watch?v=B2cUQ7QRUtc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1985-0410.jpg)
+![](../../assets/2018/03/1985-0410.jpg)
 
 **1996:** Bruce begins an Italian mini-tour with a solo acoustic show at the Auditorium Santa Cecilia in Rome. Before the show, Bruce meets one of his favorite composers, Ennio Morricone, for the first time.<br>
 
@@ -36,9 +36,9 @@
 
 **2001:** Bruce’s 1998 U.K. legal victory against Masquerade Music is upheld by the Court of Appeal. Masquerade had imported and released an album of unreleased Springsteen songs without the artist’s permission.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/04/bootleg_btf.jpg)
+![](../../assets/2019/04/bootleg_btf.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2001-04-10.jpg)
+![](../../assets/2021/04/2001-04-10.jpg)
 
 **2005:** Bruce plays a benefit show with local musicians (including Bobby Bandiera and Ed Manion) for Rumson Country Day School, where his kids went to school. Southside Johnny and Patti Scialfa join the band on stage at times, too. Check out the fantastic recording below.<br>
 

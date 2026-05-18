@@ -4,7 +4,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/YgclROfQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg)
+![](../../assets/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg) ![](../../assets/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg)
 
 **1992:** Bruce and his new touring band rehearse for their upcoming tour on a Hollywood soundstage.<br>
 
@@ -16,19 +16,19 @@
 
 [Watch on Youtube: Dublin 20/05/1993](https://www.youtube.com/playlist?list=PLJTyL9twk3zDzppKusEmmORcXq2EtkfRa)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Star_Tue__May_25__1993_.jpg)
+![](../../assets/2024/05/The_Star_Tue__May_25__1993_.jpg)
 
 **1995:** Bruce and Patti attend Don Henley’s wedding. Several musicians are in attendance and perform, including Bruce on “[634-5789 (Soulsville, U.S.A.)](https://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)”<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1995-0520.jpg)
+![](../../assets/2018/05/1995-0520.jpg)
 
 **2005:** The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheum Theater in Boston.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/dnyKmXPH)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20a.jpg)
+![](../../assets/2020/05/2005-05-20a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20b.jpg)
+![](../../assets/2020/05/2005-05-20b.jpg)
 
 **2006:** “[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)” makes its Seeger Sessions Tour debut at the Oslo Spektrum.<br>
 

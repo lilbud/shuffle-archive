@@ -1,14 +1,14 @@
 **1974:** Bruce and the band open for NRBQ at Richards in Atlanta. The club accidentally promotes him as “Bruce Silversteen.”<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/02/1997-02-07-resize.jpg)
+![](../../assets/2022/02/1997-02-07-resize.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/02/1974-0207.jpg)
+![](../../assets/2021/02/1974-0207.jpg)
 
 **1975:** Bruce and the E Street Band play their second of two nights at Widener College.<br>
 
 [Watch on Youtube: Bruce Springsteen - Widener College - 1975-02-07](https://www.youtube.com/watch?v=YKgTGmtQEps)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/1975-0207.jpg)
+![](../../assets/2018/01/1975-0207.jpg)
 
 **1977:** At the Palace Theater in Albany, it’s opening night of the 1977 “Lawsuit” Tour that will keep the band busy on the road while they are legally prevented from recording. This show is available for purchase as part of Bruce’s official archive series. Opening with a work-in-progress “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” and featuring the live debut of “[Action in the Streets](https://estreetshuffle.com/index.php/2022/06/27/roll-of-the-dice-action-in-the-streets/)” in the encores, this is a show worth having.<br>
 
@@ -28,21 +28,21 @@
 
 [Watch Video Highlight](https://videopress.com/embed/E1mkvS5d)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/02/The_Daily_Illini_Tue__Feb_10__1981_.jpg)
+![](../../assets/2024/02/The_Daily_Illini_Tue__Feb_10__1981_.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/02/The_Daily_Illini_Tue__Feb_10__1981_-1.jpg)
+![](../../assets/2024/02/The_Daily_Illini_Tue__Feb_10__1981_-1.jpg)
 
 **1996:** Bruce’s expired American Express card is sold for $4,500 in New York City. Bruce had gifted it to a restaurant waiter in Los Angeles.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/1998-02-07a.jpg)
+![](../../assets/2020/01/1998-02-07a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1998_02_08_Page_24a.jpg)
+![](../../assets/2025/02/Asbury_Park_Press_1998_02_08_Page_24a.jpg)
 
 **1997:** Bruce’s solo acoustic tour moves on to Sydney for the first of five nights at the Capitol Theater.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/xKJksdPP)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/02/1996-02-07.png)
+![](../../assets/2021/02/1996-02-07.png)
 
 **1998:** During a reading event for Black History Month, Bruce recites “We Wear the Mask,” a poem by Paul Lawrence Dunbar at the Count Basie Learning Center in Red Bank, New Jersey.<br>
 > We wear the mask that grins and lies,

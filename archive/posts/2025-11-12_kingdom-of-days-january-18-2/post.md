@@ -18,9 +18,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/BK00O8PP)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/1985-01-18a.png)
+![](../../assets/2021/01/1985-01-18a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/greensboro85.jpg)
+![](../../assets/2020/01/greensboro85.jpg)
 
 **1986:** On *American Top 40,* host Casey Kasem introduces “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” with the story of the first show Bruce and Clarence ever played together.<br>
 
@@ -36,9 +36,9 @@
 
 [Watch on Youtube: Tina Turner - "River Deep - Mountain High" | 1989 Induction](https://www.youtube.com/watch?v=Wu9RsJnf_c8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/1989-01-18.png)
+![](../../assets/2021/01/1989-01-18.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/1985-01-18b.png)
+![](../../assets/2021/01/1985-01-18b.png)
 
 **1992:** At A&M Studios in Los Angeles, Bruce records “[Happy](https://estreetshuffle.com/index.php/2019/07/28/roll-of-the-dice-happy/),” the final song in his *Lucky Town* sessions. It will stay in the vault until 1998, when it will be released on *Tracks*.<br>
 
@@ -62,9 +62,9 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN: Light of Day and Thunder Road finale from Light of Day 2014](https://www.youtube.com/watch?v=sLeNRCWnjfc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/2014-01-18a.png)
+![](../../assets/2021/01/2014-01-18a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_2014_01_20_Page_A8-scaled.jpg)
+![](../../assets/2025/01/Asbury_Park_Press_2014_01_20_Page_A8-scaled.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
@@ -80,7 +80,7 @@
 
 [Watch on Youtube: ''Thunder Road'' - Bruce Springsteen - Paramount Theatre - Asbury Park, NJ - January 18th, 2020](https://www.youtube.com/watch?v=OKK4YCG6yIY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_2020_01_24_J3.jpg)
+![](../../assets/2025/01/Asbury_Park_Press_2020_01_24_J3.jpg)
 
 **2023:** At The Vogel in Red Bank, Bruce rehearses with the E Street Horns and Choir in preparation for their upcoming world tour, focusing heavily on songs from *Only the Strong Survive* and including a rare cover of “Sweet Soul Music,” which will not receive a tour outing.<br>
 
@@ -94,4 +94,4 @@
 
 [Watch on Youtube: Joe Grushecky ft. Bruce Springsteen - Live | Never Be Enough Time - Count Basie, Red Bank NJ 1/18/25](https://www.youtube.com/watch?v=5wGwzlMRa3I)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/stlouis96.jpg)
+![](../../assets/2020/01/stlouis96.jpg)

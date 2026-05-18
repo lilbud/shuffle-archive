@@ -1,8 +1,8 @@
 **1974:** Bruce and the not quite E Street Band play a poorly advertised (and therefore poorly attended) show at the New Jersey State Theater in New Brunswick. In attendance tonight: Penn Jillette.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/1974-04-19.jpg)
+![](../../assets/2021/04/1974-04-19.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1974-0419.jpg)
+![](../../assets/2018/04/1974-0419.jpg)
 
 **1975:** Bruce works on “Thunder Road” in the studio at the Record Plant in New York City.<br>
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen - FOLLOW THAT DREAM 1981 (audio)](https://www.youtube.com/watch?v=isH0CoR8feg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/1981-04-18-1.jpg)
+![](../../assets/2021/04/1981-04-18-1.jpg)
 
 **1985:** Bruce’s tour of Japan moves from Tokyo to Kyoto for a night at Furitsu Taikukan.<br>
 
@@ -66,13 +66,13 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Out In The Street (Live in Montreal)](https://www.youtube.com/watch?v=1LRT003HCIc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2003-04-19.jpg)
+![](../../assets/2021/04/2003-04-19.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2003-04-19b-rotated.jpg)
+![](../../assets/2021/04/2003-04-19b-rotated.jpg)
 
 **2008:** Bruce reschedules a scheduled show in Orlando due to the passing of Danny Federici.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Miami_Herald_Fri__Apr_18__2008_-scaled.jpg)
+![](../../assets/2024/04/The_Miami_Herald_Fri__Apr_18__2008_-scaled.jpg)
 
 **2014:** Record Store Day is a busy one: Bruce releases a new EP, *American Beauty*, performs the title track at soundcheck in Charlotte, and films it for release a few days later. That night, Bruce stuns the audience by opening with only the second-ever performance of “Iceman” and a cover-filled set that included “Louie Louie,” “Mustang Sally,” and “Brown-Eyed Girl.”<br>
 
@@ -84,7 +84,7 @@
 
 [Watch on Youtube: Bruce Springsteen- "The Wall" (Charlotte, NC 04/19/14)](https://www.youtube.com/watch?v=j3m0BXVKPu0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2014-04-19-scaled.jpg)
+![](../../assets/2021/04/2014-04-19-scaled.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

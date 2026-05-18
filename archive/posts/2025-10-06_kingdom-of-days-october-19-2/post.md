@@ -2,13 +2,13 @@
 
 **1968:** Earth plays a show at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1968-10-19.png)
+![](../../assets/2020/10/1968-10-19.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1968-1019.jpg)
+![](../../assets/2018/09/1968-1019.jpg)
 
 **1973:** Bruce and the E Street Band play their fifth of five nights at Oliver’s in Boston in lieu of a scheduled but cancelled show at the University of Bridgeport.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/1973-1018.jpg)
+![](../../assets/2018/10/1973-1018.jpg)
 
 **1974:** Bruce and the E Street Band play a show at Union College, in the school’s Memorial Chapel Concert Hall.<br>
 
@@ -22,9 +22,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/VXCyjDsw)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/46359615744_ecfea82ca1_o.jpg)
+![](../../assets/2019/10/46359615744_ecfea82ca1_o.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-19.png)
+![](../../assets/2020/10/1984-10-19.png)
 
 **1995:** The *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)* October Assault moves on to Philadelphia, where Bruce again joins Joe Grushecky and The Houserockers at their show at the Electric Factory. After the show, local WMMR-FM DJ Ed Sciaky (a *longtime* fan and supporter of Bruce) stops backstage to interview Joe and Bruce.<br>
 
@@ -32,17 +32,17 @@
 
 [Watch on Youtube: Bruce Springsteen & Joe Grushecky interview with Ed Sciaky, 1995-10-19](https://www.youtube.com/watch?v=qNPawvRUHmU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1995-10-19a.png)
+![](../../assets/2020/10/1995-10-19a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/1995-10-19b.png)
+![](../../assets/2021/10/1995-10-19b.png)
 
 **1996:** Bruce plays his first and only show in New Mexico, a solo acoustic Ghost of Tom Joad Tour stop at the Kiva Auditorium in Albuquerque.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/S30vkti6)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1996-10-19a.png)
+![](../../assets/2020/10/1996-10-19a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1996-10-19b.png)
+![](../../assets/2020/10/1996-10-19b.png)
 
 **2001:** Bruce joins a stellar line-up of talent (including Joan Jett, Joe Ely, Bon Jovi, Phoebe Snow, Max Weinberg, Patti Scialfa, Michelle Moore, and musical director Garry Tallent) for the second of two Alliance of Neighbors benefit concerts for the victims of the recent 9/11 attacks.<br>
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen & Joan Jett](https://www.youtube.com/watch?v=rZRznZ50JU0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/2001-10-19.png)
+![](../../assets/2021/10/2001-10-19.png)
 
 **2004:** *Enjoy Every Sandwich: The Songs of Warren Zevon* is released. Bruce contributes a track to the tribute album, his live 2003 performance of “[My Ride’s Here](https://estreetshuffle.com/index.php/2022/03/24/cover-me-my-rides-here/).”<br>
 
@@ -90,7 +90,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/JEC3KYI6)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/2009-10-19.png)
+![](../../assets/2021/10/2009-10-19.png)
 
 **2012:** Bruce kicks off the final North American leg of the Wrecking Ball Tour with a show at Scotiabank Place in Ottawa, where “[Queen of the Supermarket](https://estreetshuffle.com/index.php/2018/10/04/roll-of-the-dice-queen-of-the-supermarket/)” receives only its second-ever performance, and its first in a solo acoustic arrangement.<br>
 
@@ -100,7 +100,7 @@
 
 [Watch on Youtube: Bruce Springsteen and the Bradley Boys singing Waiting on a Sunny Day - Ottawa 10/19/12](https://www.youtube.com/watch?v=onp3gqXYfz8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2012-10-19.png)
+![](../../assets/2020/10/2012-10-19.png)
 
 **2016:** At his hotel in London, Bruce sits down for interviews with local journalists as part of his promotional book push, including an appearance on *The Late, Late Show*.<br>
 

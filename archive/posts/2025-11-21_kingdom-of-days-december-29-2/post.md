@@ -2,17 +2,17 @@
 
 **1972:** ~~Rick~~ Bruce plays in Ohio for the first time, when he and the band open for Sha Na Na in Dayton.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/12/1972-12-29.jpg)
+![](../../assets/2019/12/1972-12-29.jpg)
 
 **1973:** Bruce and his unnamed band play two shows on their third of four nights at The Main Point in Bryn Mawr, Pennsylvania.<br>
 
 **1974:** Bruce makes a guest appearance with Southside Johnny and Steve Van Zandt’s Blackberry Booze Band at The Stone Pony in Asbury Park.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/12/1974-12-29.jpg)
+![](../../assets/2019/12/1974-12-29.jpg)
 
 **1975:** On his night off during his three-night stand in Philadelphia, Bruce takes in the J. Geils Band show at the Spectrum from the press box (along with actress Faye Dunaway).<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1975-12-29.png)
+![](../../assets/2020/12/1975-12-29.png)
 
 **1977:** Bruce and the E Street Band record for *Darkness on the Edge of Town* at The Record Plant in New York City.<br>
 

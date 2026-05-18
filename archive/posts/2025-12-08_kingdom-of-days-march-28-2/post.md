@@ -1,12 +1,12 @@
 **1970:** Steel Mill plays a second night at the Hullabaloo in Richmond.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1970-0328.jpg)
+![](../../assets/2018/03/1970-0328.jpg)
 
 **1976:** Bruce and the E Street Band play a gig at Duke University, where “Raise Your Hand” makes its proper live debut.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-03-28 Cameron Indoor Stadium, Durham, NC](https://www.youtube.com/watch?v=5oWCb3rgJHA)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1976-03-28.jpg)
+![](../../assets/2021/03/1976-03-28.jpg)
 
 **1979:** Three Mile Island nuclear power plant partially melts down in Pennsylvania. The incident inspires Bruce to write “Roulette.”<br>
 
@@ -30,11 +30,11 @@
 
 [Watch on Youtube: Bruce Springsteen: Inside Tunnel of Love on VH1 1988](https://www.youtube.com/watch?v=Ms1q_1m69ng)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-03-28b.jpg)
+![](../../assets/2021/03/1988-03-28b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-03-28c.jpg)
+![](../../assets/2021/03/1988-03-28c.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/03/1988-03-28a.jpg)
+![](../../assets/2022/03/1988-03-28a.jpg)
 
 **2003:** Bruce and the E Street Band play their first-ever show in New Zealand at the Western Springs Stadium in Auckland, where he tour premieres “Who’ll Stop the Rain.”<br>
 
@@ -44,7 +44,7 @@
 
 [Watch on Youtube: Bruce Springsteen - For You - Portland - March 28, 2008](https://www.youtube.com/watch?v=l9TWdEzs04g)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg)
+![](../../assets/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg) ![](../../assets/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg)
 
 **2012:** At the first of two nights at the Wells Fargo Center in Philadelphia, “Seaside Bar Song” makes a very rare appearance.<br>
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Seaside Bar Song (2012-03-28, Philadelphia)](https://www.youtube.com/watch?v=Pi-92tTOCUM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/03/2012-03-28-scaled.jpg)
+![](../../assets/2022/03/2012-03-28-scaled.jpg)
 
 **2016:** At Madison Square Garden in NYC, Bruce breaks out the tour premiere of “Meeting Across the River” with its classic segue into “Jungleland” in the post-album set.<br>
 
@@ -66,7 +66,7 @@
 
 **2018:** *Springsteen on Broadway* reaches a milestone–the 100th show–in its theatrical run at the Walter Kerr Theater in New York City. Michael Bloomberg is in attendance tonight.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/03/bloomberg.jpg)
+![](../../assets/2019/03/bloomberg.jpg)
 
 **2024:** Bruce and the E Street Band return to San Francisco after more than two decades away, opening the show with “Something in the Night” for the first time in 47 years.<br>
 

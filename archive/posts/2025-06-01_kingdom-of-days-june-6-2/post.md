@@ -6,7 +6,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "Rosalita" Philadelphia, June 6 1973](https://www.youtube.com/watch?v=OXM3uVx2qY8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1973-06-06.jpg)
+![](../../assets/2020/05/1973-06-06.jpg)
 
 **1977:** Bruce and the E Street Band hold recording sessions for *Darkness on the Edge of Town* at Atlantic Studios in New York City. Listen to the early cut of the title track recorded on this date below.<br>
 
@@ -14,7 +14,7 @@
 
 **1978:** Finishing the soundcheck for their evening show early, the band spends their free time at The Red Garter, a local strip club in Indianapolis, where Clarence befriends three strippers and invites them to the show. They take him up on his offer, surprising the band by walking out on stage during the encores and stripping during “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/).”<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-06-06.jpg)
+![](../../assets/2020/05/1978-06-06.jpg)
 
 **1982:** Bruce joins Cats on a Smooth Surface during their gig at The Stone Pony in Asbury Park.<br>
 
@@ -28,7 +28,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/X0n4ro1l)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1984-06-06.jpg)
+![](../../assets/2020/05/1984-06-06.jpg)
 
 **2005:** At his solo acoustic show in Rome, Bruce tour premieres “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/).”<br>
 
@@ -46,6 +46,6 @@
 
 [Watch on Youtube: Bruce Springsteen - Bring 'Em Home (Live Tour Video)](https://www.youtube.com/watch?v=Mv4vW1FGnCQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Oakland_Tribune_Thu__Jun_8__2006_-scaled.jpg)
+![](../../assets/2024/06/Oakland_Tribune_Thu__Jun_8__2006_-scaled.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>

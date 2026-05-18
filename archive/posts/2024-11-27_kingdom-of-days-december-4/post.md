@@ -2,17 +2,17 @@
 
 **1948:** Bruce’s good friend, frequent co-performer, and one-time bandmate Southside Johnny Lyon is born in Neptune, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/11/southside.jpg)
+![](../../assets/2019/11/southside.jpg)
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1971-12-04.png)
+![](../../assets/2020/11/1971-12-04.png)
 
 **1980:** At their River Tour stop at the Buffalo Memorial Auditorium, Bruce and the E Street Band tour premiere “[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)” and officially usher in the holiday season with their first “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” of the tour. Check out rare video footage of a couple of songs.<br>
 
 [Watch on Youtube: Bruce Springsteen - Buffalo 1980 Muchmusic footage](https://www.youtube.com/watch?v=PGnzoL3by14)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/11/40492702103_734e8a51f0_o.jpg)
+![](../../assets/2019/11/40492702103_734e8a51f0_o.jpg)
 
 **1990:** Bruce records “[My Lover Man](https://estreetshuffle.com/index.php/2018/10/24/roll-of-the-dice-my-lover-man/)” at Soundworks West in Los Angeles.<br>
 
@@ -20,7 +20,7 @@
 
 **1999:** The Diasco family gets an unexpected Christmas bonus: in June, they’d bid on and won a private Bon Jovi performance at their home in an auction benefiting the Doug Flutie Autism Foundation; when the band shows up to honor their obligation, they bring along some friends: Bruce, Patti, and Southside Johnny. Bruce joins Bon Jovi for six songs.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1999-12-04.png)
+![](../../assets/2020/11/1999-12-04.png)
 
 **2001:** Bruce, The Max Weinberg 7 and a host of friends play their second of five holiday shows at Asbury Park’s Convention Hall in support of local charities. All of last night’s guests are present, plus The Miami Horns, who kick things off with “Deck the Halls,” followed by “[Wild Billy’s Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)” played by just Bruce and Garry (on tuba).<br>
 
@@ -30,7 +30,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/fMgCtazQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2002-12-04.png)
+![](../../assets/2020/11/2002-12-04.png)
 
 **2007:** The Magic Tour heads north to Scandinavia, starting with a show at the Oslo Spektrum.<br>
 
@@ -50,13 +50,13 @@
 
 [Watch on Youtube: Jungleland - Bruce Springsteen & E-Street Band - Anaheim, CA - 12/4/12](https://www.youtube.com/watch?v=NL4Sh6T0y1g)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2012-12-04a.png)
+![](../../assets/2020/11/2012-12-04a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2012-12-04b.png)
+![](../../assets/2020/11/2012-12-04b.png)
 
 **2015:** Just in time for the holidays, Bruce releases *The Ties That Bind: The River Collection,* featuring a remastered version of his classic album, and bonus discs of outtakes and a never-before-released live concert video. Also on this date: Bruce announces a new tour to support the boxed set, kicking off in January.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/12/The-River-box-package-shot-2-700x467.jpg)
+![](../../assets/2018/12/The-River-box-package-shot-2-700x467.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

@@ -2,31 +2,31 @@
 
 **1964:** Cindy Mizelle, backing vocalist on “[Shackled and Drawn,](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)” “[High Hopes](https://estreetshuffle.com/index.php/2021/08/25/cover-me-high-hopes/),” “American Skin (41 Shots),” “[Just Like Fire Would](https://estreetshuffle.com/index.php/2020/05/24/cover-me-just-like-fire-would/),” and “[Heaven’s Wall](https://estreetshuffle.com/index.php/2020/02/02/roll-of-the-dice-heavens-wall/)” — and of course, throughout the entire Seeger Sessions, Working on a Dream, Wrecking Ball, and High Hopes tours — is born in Englewood, New Jersey.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/cindy.jpg)
+![](../../assets/2018/07/cindy.jpg)
 
 **1970:** Bruce catches a gig by and jams with Funky Dusty and The Soul Broom (a side project of Steve, Garry, Southside, and Bobby Williams) at The Upstage in Asbury Park.<br>
 
 **1973:** Bruce and his band perform at the annual CBS Sales Convention at the Fairmont Hotel in San Francisco. Bruce is asked and scheduled to play for fifteen minutes, but he plays for 40 minutes instead, overstaying his welcome and failing to impress following the special effects-laden mini-set by Edgar Winter’s White Trash.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1973-0727.jpg)
+![](../../assets/2018/07/1973-0727.jpg)
 
 **1974:** Bruce and the E Street Band play two shows at the Celebrity Theater in Phoenix, netting them their biggest payday to date by far.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1974-07-27.png)
+![](../../assets/2020/07/1974-07-27.png)
 
 **1976:** Incensed at manager Mike Appel’s injunction preventing him from recording new material, Bruce sues Appel for fraud, breach of trust, and undue influence. Their legal battle is only just beginning.<br>
 
 **1981:** Bruce is sick, causing his scheduled River Tour show in Cincinnati to be postponed.<br>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1981-07-26.png)
+![](../../assets/2020/07/1981-07-26.png)
 
 **1984:** The Born in the U.S.A. Tour returns to the U.S., starting with a show at the Saratoga Performing Arts Center on a very rainy night. Listen in on the soundcheck of “[Who’ll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)” below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/GhQSDpeE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-27.png)
+![](../../assets/2020/07/1984-07-27.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1984-0727.jpg)
+![](../../assets/2018/07/1984-0727.jpg)
 
 **1988:** Bruce’s Tunnel of Love show in Oslo features the return of “Thunder Road,” not yet played on this tour. The opening songs are professionally shot and broadcast.<br>
 
@@ -38,13 +38,13 @@
 
 [Watch on Youtube: Bruce Springsteen & The Fabulous Greaseband](https://www.youtube.com/watch?v=a0fwM4ce1_A)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1989-0727.jpg)
+![](../../assets/2018/07/1989-0727.jpg)
 
 **1999:** On Night Six of fifteen in the opening Meadowlands stand of the Reunion Tour’s U.S. leg, “[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)” makes its long-awaited return, absent from the set list for almost 15 years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VtdgqsqG)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1999-07-27.png)
+![](../../assets/2020/07/1999-07-27.png)
 
 **2003:** Night Seven of ten at Giants Stadium on the Rising Tour has an unusual opening number: “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/).” Check out the rare IEM recording of “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)” below.<br>
 
@@ -64,9 +64,9 @@
 
 [Watch on Youtube: Giants Stadium New Jersey 27/07/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zBRPYPYZJamzTxkxn8AOVX8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/2008-07-27a.png)
+![](../../assets/2021/07/2008-07-27a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2008-07-27b.png)
+![](../../assets/2020/07/2008-07-27b.png)
 
 **2012:** Bruce and the band play their first of two spectacular shows in Gothenburg, featuring tour premieres of “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” and “[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/).”<br>
 
