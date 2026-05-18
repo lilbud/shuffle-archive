@@ -13,7 +13,6 @@ Cover Me:
     Being one big book works better. Could do themes, but those would run out quickly.
     Also include Meeting Across The River (Colabs with artists on their songs)
 
-
 Roll of the Dice:
     Few ideas, though all are similar in that they'll be one big book:
 
@@ -26,7 +25,7 @@ Roll of the Dice:
         Could even break up into chapter by decade?
 
     Songs listed alphabetically
-    
+  
 Spare Parts:
     Will contain the "Spare Parts" category, as well as "Hearts of Stone" and "Uncategorized".
 
@@ -53,7 +52,6 @@ New categories only for the purposes of the corresponding books. Will be checked
 - Images: can be embedded, resized if needed.
 - Include an introduction explaining a bit about the site and these books.
 
-
 # Complete Book List:
 
 ## Kingdom of Days
@@ -72,51 +70,51 @@ New categories only for the purposes of the corresponding books. Will be checked
 
 ## Roll of the Dice:
 - Roll of the Dice: Bruce's Originals
-    - Early Years
-    - Greetings
-    - WIESS
-    - BTR
-    - Darkness (Include Promise?)
-    - River (Include TTTB?)
-    - Nebraska
-    - Tracks 2: Garage 83
-    - BITUSA
-    - 75/85
-    - Tunnel
-    - HT
-    - LT
-    - Tracks 2: SOPS
-    - Plugged
-    - Greatest Hits
-    - Blood Brothers
-    - Joad
-    - Tracks 2: Nashville
-    - Tracks
-    - The Rising
-    - Essential Bonus Disc
-    - Devils
-    - Sessions
-    - Magic
-    - WOAD
-    - The Promise
-    - Wrecking Ball
-    - HH/American Beauty
-    - Tracks 2: Perfect World
-    - Ties That Bind
-    - Western Stars
-    - Letter
-    - OTSS
-    - Singles/B Sides
-    - Misc.
+  - Early Years
+  - Greetings
+  - WIESS
+  - BTR
+  - Darkness (Include Promise?)
+  - River (Include TTTB?)
+  - Nebraska
+  - Tracks 2: Garage 83
+  - BITUSA
+  - 75/85
+  - Tunnel
+  - HT
+  - LT
+  - Tracks 2: SOPS
+  - Plugged
+  - Greatest Hits
+  - Blood Brothers
+  - Joad
+  - Tracks 2: Nashville
+  - Tracks
+  - The Rising
+  - Essential Bonus Disc
+  - Devils
+  - Sessions
+  - Magic
+  - WOAD
+  - The Promise
+  - Wrecking Ball
+  - HH/American Beauty
+  - Tracks 2: Perfect World
+  - Ties That Bind
+  - Western Stars
+  - Letter
+  - OTSS
+  - Singles/B Sides
+  - Misc.
 
 ## Cover Me... (Other Artists Covering Bruce)
 - One big book, ordered alphabetically by song
 - Format with the "chapters" being songs, then list artists in order
 - Some posts collect a few covers, cut and include those with their respective songs
-    - "David Bowie Covers": Saint in the City, Growin Up
-        - Saint has it's own separate post, Growin doesn't
-    - "Manfred Mann Covers": Blinded, For You, Spirit
-        - Only For You has it's own, Spirit had one but was overwritten
+  - "David Bowie Covers": Saint in the City, Growin Up
+    - Saint has it's own separate post, Growin doesn't
+  - "Manfred Mann Covers": Blinded, For You, Spirit
+    - Only For You has it's own, Spirit had one but was overwritten
 
 ## ...Cover You (Bruce Covering Other Artists)
     - One big book, ordered alphabetically

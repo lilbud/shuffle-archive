@@ -12,7 +12,7 @@ This is an assortment of notes and observations about the Wordpress API on estre
 
 `slug` should be used for filename, optionally appended with the date in timestamp form.
 
-`content > rendered`: the actual content of the post stored in HTML. Some fixes are needed before it will convert cleanly to Markdown or other formats. 
+`content > rendered`: the actual content of the post stored in HTML. Some fixes are needed before it will convert cleanly to Markdown or other formats.
 
 `excerpt > rendered` is the same as content, also in HTML. This may or may not be an abbreviated version of content.
 
@@ -61,13 +61,6 @@ These all lead to different API endpoints.
 # Comments
 Comments can be found at `https://estreetshuffle.com/index.php/wp-json/wp/v2/comments`, optionally adding the `?post=[ID]` param to get comments for a specific post. Comments were disabled sitewide when the shutdown was announced.
 
-
-
-
-
-
-
-
 # Wayback Machine
 Since this seems to be the "officially endorsed" method. A rundown of what has been saved.
 
@@ -78,4 +71,4 @@ WM has the following archived:
 - Long Links: (https://estreetshuffle.com/index.php/...): 9,337
 - API (https://estreetshuffle.com/index.php/wp-json/wp/v2/posts/): 1304
 
-Short and long links are the only ones relevant for viewing the sites pages. 
+Short and long links are the only ones relevant for viewing the sites pages.

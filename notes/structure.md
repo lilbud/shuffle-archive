@@ -7,6 +7,7 @@ Thought more and more about a proper "structure", ideally one folder per post, a
 Only the latest "true" version of each post will be included in this structure. Many posts are being overwritten, replacing the content and title while keeping ID and URL. Usually the "published" date is updated as well, which makes telling them apart easy. Some might have same slug/title and date, will deal with these on a case by case basis.
 
 Planned structure:
+
 ```
 Assets/
     images

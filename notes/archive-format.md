@@ -11,6 +11,7 @@ As of now, I am considering the following:
 This will simply be a dump of the database I've compiled with all of the posts & related info. The least user friendly option, but might prove useful down the line. Using this, the posts could be exported and displayed in any number of ways. Rather than being restricted with simply markdown files.
 
 # Post Archive
+
 ```
 posts/
     date_post-slug/
@@ -39,21 +40,20 @@ It won't be as user friendly, but it'll be somewhat organized. Will definitely b
 
 The markdown might also include some of the metadata as frontmatter, which is intended for static site generators like Jekyll and Hugo.
 
-
 # eBook/PDF Formats
 This will be the most suitable format for >95% of people interested in this archive as a reference. Ken has repeatedly stated that there are no plans for eBooks due to complications with the publisher.
 
 Using Calibre, the posts will be exported as epub and also PDF. Posts and images will be embedded in the files, meaning 1 file = 1 post.
 
-Since there were well over 2,000 posts on the website, having that many individual ebooks will quickly get ridiculous. The plan is to compile books together by category/theme, not that much different from how Ken is doing with the "bookshelf collection". 
+Since there were well over 2,000 posts on the website, having that many individual ebooks will quickly get ridiculous. The plan is to compile books together by category/theme, not that much different from how Ken is doing with the "bookshelf collection".
 
 The bookshelf collection is doing the following:
 - Kingdom of Days (this day in Bruce history): One book per month
 - Cover Me (songs Bruce has covered): Books compiled by theme:
-    - "Encore!": covers that have appeared in the encore
-    - "One Time Only!": covers that have (to date) only appeared once
+  - "Encore!": covers that have appeared in the encore
+  - "One Time Only!": covers that have (to date) only appeared once
 - Roll of the Dice (Bruce originals): Compiled by album, outtakes included.
 - Assorted Others:
-    - "Springsteen Christmas": his Christmas covers
+  - "Springsteen Christmas": his Christmas covers
 
 Splitting the books into themes are nice, and somewhat necessary due to the sheer amount of writing on the site. Sure, a book with every "on this day" event could be in a single book, it would also be several thousand pages and cost that much in USD. This project is digital, and will be totally free. So page limits/cost is not a concern. That being said, several books at a few hundred "pages" is easier both on me as well as anyone interested in reading the books.
