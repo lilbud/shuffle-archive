@@ -14,7 +14,7 @@
 
 **1978:** Bruce opens Night Two in Pittsburgh on the Darkness Tour with a world premiere: the as-yet-unreleased and still work-in-progress “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/).”
 
-[Watch Video Highlight](https://videopress.com/embed/qET8tGlm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qET8tGlm)
 
 **1980:** Christmas may be over, but you’d never know it in Uniondale. Bruce opens his three-night, year-closing stand at the Nassau Coliseum by playing “[Merry Christmas Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)” for the very first time. And that’s not the only world premiere at this show–toward the end of the first set, Bruce debuts his cover of “[This Land is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/).” In the second set, Flo and Eddie guest star on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).” “Because the Night” and “Hungry Heart” from this show will be officially released six years from now on *Live 1975-85.* This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,27914/bruce-springsteen-and-the-e-street-band-nassau-coliseum-uniondale-ny-12-28-1980-mp3-flac-or-online-music-streaming.html).
 
@@ -26,7 +26,7 @@
 
 **1983:** Bruce makes a surprise appearance at La Bamba’s Holiday Hurrah benefit show for the Monmouth County chapter of Big Brothers.
 
-[Watch Video Highlight](https://videopress.com/embed/roAY4OcD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/roAY4OcD)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/12/1983-1228.jpg)
 

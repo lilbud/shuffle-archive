@@ -20,7 +20,7 @@
 
 After the show, Bruce sits down for an interview with local TV reporter J. J. Jackson. When the interview airs two days later, it will be his first-ever television appearance.
 
-[Watch Video Highlight](https://videopress.com/embed/AGs1wjb4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AGs1wjb4)
 
 [Watch on Youtube: July 5th, 1978 - Inglewood, CA](https://www.youtube.com/playlist?list=PLsxNBNx2akeXLxXErlUAz5L0HrcE8Ahab)
 
@@ -32,11 +32,11 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/07/1981-0705.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/g1ylNep8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/g1ylNep8)
 
 **1984:** The Born in the U.S.A. Tour moves on to its second stop: the Riverfront Coliseum in Cincinnati, for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/C92hW6tT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/C92hW6tT)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-07-05a.jpg)
 
@@ -44,13 +44,13 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 **2008:** Bruce and the E Street Band play a stunner of a show–their second in Gothenburg on the Magic Tour–with their first full-band “[Drive All Night"](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)  in 27 years as the centerpiece (check out the sound check below), and a rare “[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)” and “[Janey, Don’t You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” in the set as well.
 
-[Watch Video Highlight](https://videopress.com/embed/Mty4EdEG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Mty4EdEG)
 
-[Watch Video Highlight](https://videopress.com/embed/e0VliUYN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e0VliUYN)
 
 [Watch on Youtube: Drive All Night Bruce Springsteen 5th July 2008 Gothenburg](https://www.youtube.com/watch?v=LIIzwf4hFjI)
 
-[Watch Video Highlight](https://videopress.com/embed/fPWIgIg3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fPWIgIg3)
 
 [Watch on Youtube: Bruce Springsteen Night Gothenburg 05/07/2008](https://www.youtube.com/watch?v=15TaIa02qc0)
 

@@ -4,7 +4,7 @@
 
 [Watch on Youtube: Bruce Springsteen - PARTY LIGHTS 1975 (audio)](https://www.youtube.com/watch?v=_CqYpjOqG80)
 
-[Watch Video Highlight](https://videopress.com/embed/5W7VNLGN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5W7VNLGN)
 
 [Watch on Youtube: Bruce Springsteen Boston 2/12/1975 Full Concert](https://www.youtube.com/watch?v=pKVxQTpGlAQ)
 
@@ -20,7 +20,7 @@
 
 **1980:** Bruce and the E Street Band bring the original River Tour to the Rochester Community War Memorial.
 
-[Watch Video Highlight](https://videopress.com/embed/86gvEoej?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/86gvEoej)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1980-12-02a.png)
 
@@ -56,7 +56,7 @@
 
 [Watch on Youtube: Bruce Springsteen - GLORY DAYS + BORN TO RUN 2002 - live](https://www.youtube.com/watch?v=H1mWL7ktCnY)
 
-[Watch Video Highlight](https://videopress.com/embed/nzPrurlG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nzPrurlG)
 
 [Watch on Youtube: Bruce Springsteen - COUNTIN' ON A MIRACLE 2002 - live](https://www.youtube.com/watch?v=zhe1e28eaEQ)
 

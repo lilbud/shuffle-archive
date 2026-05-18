@@ -12,7 +12,7 @@ Twelve years after its release, Earle finally got a chance to perform “Guitar 
 
 Earle invited Bruce to join his band on stage for the encore set, and Bruce ended up staying through six songs, all on guitar and occasional backing vocals. Of course, one of those songs had to be “Guitar Town,” and you can hear him here on guitar.
 
-[Watch Video Highlight](https://videopress.com/embed/YDKFaaxq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YDKFaaxq)
 
 That was the only time Bruce has ever performed “Guitar Town.” For more one-time-only Earle/Springsteen performances, check out the other songs they played that night [here](https://estreetshuffle.com/?s=steve+earle).
 

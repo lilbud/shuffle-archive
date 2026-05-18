@@ -14,7 +14,7 @@
 
 **1978:** On the final night (of three) at Madison Square Garden on the Darkness Tour, Bruce brings his mom on stage during the final encore of "Quarter to Three."
 
-[Watch Video Highlight](https://videopress.com/embed/d0dss9zd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/d0dss9zd)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLgBjbWHUxw7O2p30BtjkAesd1VCYcsu5O)
 
@@ -26,13 +26,13 @@
 
 **1981:** At Night Three of six River Tour shows at the L.A. Sports Arena, Bruce and the E Street Band play a tour one-off cover of "Rave On."
 
-[Watch Video Highlight](https://videopress.com/embed/SgmxFmy4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SgmxFmy4)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=S6jU4NVTnq8)
 
 **1982:** Bruce joins Mama Tried on stage at the Brighton Bar in Long Branch, New Jersey for "Twist and Shout."
 
-[Watch Video Highlight](https://videopress.com/embed/ocVaRYCq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ocVaRYCq)
 
 **1999:** On an off-day during their five-show Reunion stand in Boston, the Springsteen family takes a side trip to Pioneer Village in Salem.
 

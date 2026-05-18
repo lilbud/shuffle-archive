@@ -34,7 +34,7 @@
 
 **1981**: Bruce and the E Street Band play “[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)” for the first time in Europe at their second of six nights at London’s Wembley Arena on the original River Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/2fTYb9QT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2fTYb9QT)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1981-0530.jpg)
 
@@ -46,23 +46,23 @@
 
 **1999:** Bruce opens the second Reunion show in Berlin with “[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/).”
 
-[Watch Video Highlight](https://videopress.com/embed/6Fi5ZNeC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6Fi5ZNeC)
 
 **2005:** Bruce plays a solo acoustic show at Forest National in Brussels, where “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)” makes its Devils & Dust Tour premiere.
 
-[Watch Video Highlight](https://videopress.com/embed/5Hww6fJl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5Hww6fJl)
 
-[Watch Video Highlight](https://videopress.com/embed/V5MBveV6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/V5MBveV6)
 
-[Watch Video Highlight](https://videopress.com/embed/bnAgjpm5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bnAgjpm5)
 
-[Watch Video Highlight](https://videopress.com/embed/hhPxE131?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hhPxE131)
 
-[Watch Video Highlight](https://videopress.com/embed/QwuQ1j79?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QwuQ1j79)
 
 **2006:** The Seeger Sessions Tour arrives at the Germain Amphitheater in Columbus, where Bruce premieres The Band’s “[Rag Mama Rag](https://estreetshuffle.com/index.php/2019/04/30/cover-me-rag-mama-rag/).”
 
-[Watch Video Highlight](https://videopress.com/embed/gaPDyMMr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gaPDyMMr)
 
 [Watch on Youtube: Bruce Springsteen - "Rag Mama Rag" - Columbus, May 30 2006](https://www.youtube.com/watch?v=iH1zAoS99gE)
 

@@ -6,7 +6,7 @@
 
 **1995:** After more than five years apart, Bruce reconvenes the E Street Band to promote his *Greatest Hits* album. The band gathers at Tramps nightclub in New York City and rehearses for their gig that evening, where they will debut and record a live performance video for “[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/).” Many fan favorites also make their return on this night, including the first-ever full-band performance of “This Hard Land.”
 
-[Watch Video Highlight](https://videopress.com/embed/o98o5YmB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/o98o5YmB)
 
 [Watch on Youtube: Thunder Road Bruce Springsteen The E Street Band Reunion 2-21-1995 Tramps Nightclub NY](https://www.youtube.com/watch?v=aZpKw4XQHOY)
 
@@ -18,11 +18,11 @@
 
 **1996:** Bruce brings his solo acoustic tour to Paris for the first of two shows at Le Zenith de Paris.
 
-[Watch Video Highlight](https://videopress.com/embed/yVJU9zQW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yVJU9zQW)
 
 **2016:** The 2016 version of the River Tour stops at KFC Yum! Center in Louisville, where “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” makes its tour debut. Bruce and Patti also record a tribute greeting for James Burrows, which airs on television that evening.
 
-[Watch Video Highlight](https://videopress.com/embed/oa55aClm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oa55aClm)
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Meet Me In The City - Louisville - 2-21-2016](https://www.youtube.com/watch?v=mS1yuLp_k_w)
 

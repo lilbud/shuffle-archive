@@ -20,7 +20,7 @@
 
 **1988:** Bruce and the E Street Band play their second of two nights at the Tacoma Dome on the Tunnel of Love Express Tour. The soundcheck–captured on tape–features a fascinating set of covers, including “Big Boss Man,” “Crying in the Rain,” and “Cathy’s Clown.” Take a listen below.
 
-[Watch Video Highlight](https://videopress.com/embed/pP8UaWz0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pP8UaWz0)
 
 [Watch on Youtube: Tacoma 06/05/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zCklFtd1yJuyrTD01Z7XiFd)
 
@@ -42,13 +42,13 @@
 
 **1997:** Bruce kicks off the final leg of his marathon solo acoustic tour with his first-ever show in Austria, the first of two nights in Vienna. This show features the European debut of “Freehold.”
 
-[Watch Video Highlight](https://videopress.com/embed/RE7Q1cpQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RE7Q1cpQ)
 
 **2003:** The second European leg of the Rising Tour kicks off with the first of two shows at Stadion Feyenoord in Rotterdam. Bruce opens the show with an acoustic “Born in the U.S.A.” and plays a solo piano “Incident on 57th Street,” his first performance of that song in The Netherlands.
 
-[Watch Video Highlight](https://videopress.com/embed/wZqqSp2L?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wZqqSp2L)
 
-[Watch Video Highlight](https://videopress.com/embed/VYQIHVOG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VYQIHVOG)
 
 **2010:** Bruce makes an appearance at Fairleigh Dickinson University in Madison, New Jersey, joining John Wesley Harding and poet Robert Pinsky for an unusual evening of poetry reading and acoustic performance.
 
@@ -74,7 +74,7 @@
 
 **2018:** Bruce inducts Steve Van Zandt into the New Jersey Hall of Fame. Following Little Steven’s acceptance speech, Bruce joins his friend and the Disciples of Soul for a performance of “I Don’t Want to Go Home.”
 
-[Watch Video Highlight](https://videopress.com/embed/0zCQnGAf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0zCQnGAf)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2018-05-05.jpg)
 

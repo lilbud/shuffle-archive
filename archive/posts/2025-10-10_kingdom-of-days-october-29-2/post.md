@@ -36,7 +36,7 @@
 
 **1996:** Bruce wraps up the west coast leg of his solo acoustic tour at the Paramount Theater in Seattle.
 
-[Watch Video Highlight](https://videopress.com/embed/Sbn9vscb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Sbn9vscb)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1996-10-29a.png)
 

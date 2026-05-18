@@ -8,7 +8,7 @@
 
 **1976:** Bruce and the boys play a Lawsuit Tour show at Rutgers University in New Brunswick.
 
-[Watch Video Highlight](https://videopress.com/embed/OAaqtbDj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OAaqtbDj)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1976-10-12.jpg)
 
@@ -24,7 +24,7 @@
 
 **2005:** Bruce tour premieres “Thunder Road” (in its only tour performance) and “[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)” (on autoharp), at his solo acoustic show in Minneapolis.
 
-[Watch Video Highlight](https://videopress.com/embed/OSxHcFEA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OSxHcFEA)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/10/Star_Tribune_2005_10_23_F2-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/10/Star_Tribune_2005_10_13_B5.jpg)
 
@@ -50,7 +50,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/WYIMReN2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WYIMReN2)
 
 **2019:** Bruce spends the weekend at the Ham Yard Hotel in London. speaking to print and broadcast journalists about his *Western Stars* film, most of which will be printed and aired over the weeks to come.
 

@@ -12,7 +12,7 @@
 
 **1984:** Bruce appears in and on the latest issue of *People Magazine*.
 
-[Watch Video Highlight](https://videopress.com/embed/uvGjkjlm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uvGjkjlm)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/People1.jpg)
 
@@ -26,7 +26,7 @@
 
 **1992:** Bruce’s World Tour 1992 visits Tinley Park, Illinois for the second of two nights, and CNN airs a segment on the end of the summer concert season.
 
-[Watch Video Highlight](https://videopress.com/embed/JFEIp4vi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JFEIp4vi)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-09-03a.jpg)
 

@@ -26,7 +26,7 @@ The late show was recorded, too–but only the first two songs have surfaced. Bu
 
 **1997:** Bruce plays his final of four solo acoustic shows in Tokyo. He won’t perform in Japan again (at least to date).
 
-[Watch Video Highlight](https://videopress.com/embed/kHAishzR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kHAishzR)
 
 **1998:** *Come Together,* a special benefit concert for the Sergeant Patrick King Memorial Fund, gathers Bruce, Jon Bon Jovi, Little Steven, Southside Johnny, Max Weinberg, Bobby Bandiera and others at the Count Basie Theater in Red Bank, New Jersey. King was a police officer from Long Branch who was killed two months prior while on duty.
 

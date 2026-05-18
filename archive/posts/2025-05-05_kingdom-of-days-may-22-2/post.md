@@ -8,7 +8,7 @@
 
 **1988**: Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of “[Lonely Teardrops](https://estreetshuffle.com/index.php/2021/01/22/cover-me-lonely-teardrops/)” as the final encore.
 
-[Watch Video Highlight](https://videopress.com/embed/NfdXRn6j?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NfdXRn6j)
 
 [Watch on Youtube: Bruce Springsteen - LONELY TEARDROPS 1988 (audio)](https://www.youtube.com/watch?v=Ds9KR6GIIn0)
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road from a balcony](https://www.youtube.com/watch?v=KsQcmfghM70)
 
-[Watch Video Highlight](https://videopress.com/embed/kQppxAQT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kQppxAQT)
 
 **2000:** The E Street Band plays “[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)” for the very first time and tour premieres “[Gloria](https://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/)” at the second of two Reunion shows in Anaheim. This show is available as part of Bruce’s official archive series–get it here.
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Bruce Springsteen - You're missing - Germany 2003](https://www.youtube.com/watch?v=3dchRxgo_aE)
 
-[Watch Video Highlight](https://videopress.com/embed/OVXE0yul?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OVXE0yul)
 
 **2008:** The second European leg of the Magic Tour kicks off with the first of three shows at RDS Arena in Dublin.
 

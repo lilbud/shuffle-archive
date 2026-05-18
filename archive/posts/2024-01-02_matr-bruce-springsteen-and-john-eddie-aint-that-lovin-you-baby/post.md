@@ -12,7 +12,7 @@ Bruce first covered “Ain’t That Lovin’ You Baby” in the summer of 1983, 
 
 We’ve got a recording of that performance, but unfortunately it’s very distant and muddy.
 
-[Watch Video Highlight](https://videopress.com/embed/bo6JGR2R?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bo6JGR2R)
 
 Luckily, though, it seems that was only a warm-up performance, because five days later, Bruce played it again, this time with John Eddie at the Brighton Bar in Long Branch.
 

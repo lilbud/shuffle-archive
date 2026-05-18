@@ -16,7 +16,7 @@
 
 **1988:** Night Two at the Capital Center in Largo, Maryland, along the Tunnel of Love Express Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/v5RXcyFL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/v5RXcyFL)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-04-05.jpg)
 
@@ -26,7 +26,7 @@
 
 …and then later that night, they play a private gig at Sony Music Studios in New York City. Highlights include the debuts of “I’m Turning Into Elvis,” “Blood Brothers,” and the first full-band “This Hard Land.”
 
-[Watch Video Highlight](https://videopress.com/embed/VFJF5tXA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VFJF5tXA)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1995-04-05.jpg)
 
@@ -42,7 +42,7 @@
 
 **2008:** Another radio station contest to pick a song for the set list–this time “Fire” is the winner for this Magic Tour stop at HP Pavilion in San Jose. “Out in the Street” and “Bobby Jean” make their tour debut tonight as well.
 
-[Watch Video Highlight](https://videopress.com/embed/4ds7LEvR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4ds7LEvR)
 
 **2009:** Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare “I’m a Rocker” and “Sherry Darling.”
 

@@ -12,7 +12,7 @@
 
 **1981:** The original River Tour stops for a night at the Scandinavium in Gothenburg, Sweden. This is Bruce’s first show in Sweden since 1975, so local fans are treated to their first performances of “Darkness on the Edge of Town,” “The Promised Land” and other *Darkness* tracks along with cuts from *The River*.
 
-[Watch Video Highlight](https://videopress.com/embed/UaOmLbOj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UaOmLbOj)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1981-0503.jpg)
 
@@ -40,29 +40,29 @@
 
 **2005:** At the second night at the Pantages Theater in Hollywood, fans hear the tour premieres of “My Beautiful Reward” (in a beautiful new pump organ arrangement), “Empty Sky,” “The River,” “Tougher Than the Rest,” “All the Way Home,” and “The Line.” Nils makes a guest appearance on “Waitin’ on a Sunny Day.”
 
-[Watch Video Highlight](https://videopress.com/embed/4EoHPdBo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4EoHPdBo)
 
-[Watch Video Highlight](https://videopress.com/embed/xf0AgEfe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xf0AgEfe)
 
 **2009:** Bruce performs at the Clearwater Concert at Madison Square Garden, honoring Pete Seeger’s 90th birthday.
 
 [Watch on Youtube: Bruce's Introduction At Pete Seeger's 90th Birthday Concert](https://www.youtube.com/watch?v=B4i8ziSHkNA)
 
-[Watch Video Highlight](https://videopress.com/embed/VDL84VIC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VDL84VIC)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2009-05-03.jpg)
 
 **2013:** At the first of three Wrecking Ball shows at Friends Arena in Solna, Sweden, Bruce plays the full *Born to Run* album start to finish–the first time he has done this outside of the United States. In the encores, Bruce opens with an acoustic performance of “Mountain of Love,” and Elliott Murphy joins Bruce and the band for “Glory Days.”
 
-[Watch Video Highlight](https://videopress.com/embed/SaSEYKdE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SaSEYKdE)
 
-[Watch Video Highlight](https://videopress.com/embed/NiJfyusR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NiJfyusR)
 
-[Watch Video Highlight](https://videopress.com/embed/T6ViRv5h?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/T6ViRv5h)
 
-[Watch Video Highlight](https://videopress.com/embed/wQCCstNg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wQCCstNg)
 
-[Watch Video Highlight](https://videopress.com/embed/9ilCSqQc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9ilCSqQc)
 
 **2014:** Bruce makes a return visit (his third) to the New Orleans Jazz Festival for an afternoon show. Rickie Lee Jones joins Bruce for seven songs, and John Fogerty for two of his own (“Green River” and “Proud Mary”). Tour debuting tonight: “How Can a Poor Man Stand Such Times and Live” and “When the Saints Go Marching In.”
 

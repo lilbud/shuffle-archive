@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tqc9Vjhota4)
 
-[Watch Video Highlight](https://videopress.com/embed/ivRkIzGk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ivRkIzGk)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

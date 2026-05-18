@@ -8,7 +8,7 @@
 
 **1988:** MTV premieres a new documentary, *Inside the Tunnel of Love*.
 
-[Watch Video Highlight](https://videopress.com/embed/pXf5J7uB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pXf5J7uB)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-30.jpg)
 
@@ -40,11 +40,11 @@
 
 **2005:** Nils Lofgren makes a guest appearance on a gorgeous “This Hard Land” at Bruce’s solo acoustic show in Glendale, where Bruce plays “Book of Dreams” for the first time in thirteen years and debuts “All I’m Thinkin’ About.”
 
-[Watch Video Highlight](https://videopress.com/embed/Io7Odebr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Io7Odebr)
 
-[Watch Video Highlight](https://videopress.com/embed/iXCqUPGO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iXCqUPGO)
 
-[Watch Video Highlight](https://videopress.com/embed/MsLsmces?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MsLsmces)
 
 **2006:** In the aftermath of Hurricane Katrina, Bruce and the Sessions Band kick off their tour with an emotional, legendary show at New Orleans Jazz Fest. This show is available as part of Bruce’s official archive series.
 

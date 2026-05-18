@@ -18,7 +18,7 @@
 
 **1978:** The Darkness Tour arrives at the University of Notre Dame, where Bruce plays “[Double Shot (of My Baby’s Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)” and his first known performance of “[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/).”
 
-[Watch Video Highlight](https://videopress.com/embed/4EmmyA9O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4EmmyA9O)
 
 [Watch on Youtube: September 9th, 1978 - South Bend, IN](https://www.youtube.com/playlist?list=PLsxNBNx2akeU-CBriNeY0gCYICDijG95i)
 
@@ -28,7 +28,7 @@
 
 **1985:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami’s Orange Bowl Stadium for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/f3uQhVqy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/f3uQhVqy)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-09-09a.jpg)
 
@@ -44,7 +44,7 @@
 
 **1999:** Bruce and the reunited E Street Band play their second of two shows at The Palace of Auburn Hills, opening with a Motown special snippet of “[Dancing in the Street](https://estreetshuffle.com/index.php/2020/09/12/cover-me-dancing-in-the-street/)” before launching into “[Don’t Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/).”
 
-[Watch Video Highlight](https://videopress.com/embed/UijHwg1p?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UijHwg1p)
 
 **2005:** *Glory Days: A Bruce Springsteen Symposium* kicks off at New Jersey’s Monmouth University, drawing scholars and fans to discuss the life and work of Springsteen. More than 150 papers are presented, and special guests and musical events celebrate the occasion.
 

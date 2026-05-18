@@ -50,13 +50,13 @@
 
 **1996:** Bruce plays his second of two solo acoustic shows at the Sunrise Musical Theater in Florida.
 
-[Watch Video Highlight](https://videopress.com/embed/7uVp4aK0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7uVp4aK0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1996-12-03.png)
 
 **2001:** Bruce hosts the first of five benefit holiday concerts supporting local charities at Convention Hall in Asbury Park. The Max Weinberg 7 serves as the house band, and they’re joined by special guests Patti Scialfa, Soozie Tyrell, Lisa Lowell, Garland Jeffreys, Southside Johnny, Nils Lofgren, and Bobby Bandiera. The setlist is filled with both holiday classics and lost Springsteen treasures: “[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)” returns after a 27-year absence, as does “[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/),” gone for even longer. Bruce pays tribute to the recently departed George Harrison, Patti previews new material, and… really, the show features too many highlights to list them all. Just do yourself a favor and listen to the show.
 
-[Watch Video Highlight](https://videopress.com/embed/AEsu394K?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AEsu394K)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/2001-12-03a.png)
 

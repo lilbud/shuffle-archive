@@ -2,13 +2,13 @@
 
 **1981:** The Canadian leg of the River tour ends at the Ottawa Civic Center.
 
-[Watch Video Highlight](https://videopress.com/embed/JYL0Qbie?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JYL0Qbie)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Ottawa_Citizen_1981_01_26_45.jpg)
 
 **1985:** Night Two at the Providence Civic Center on the *Born in the U.S.A.* Tour is captured on video.
 
-[Watch Video Highlight](https://videopress.com/embed/F2ZyvspL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/F2ZyvspL)
 
 [Watch on Youtube: Providence 24/01/1985](https://www.youtube.com/playlist?list=PLJTyL9twk3zAoqIK5IWBdce4WxieIGNxt)
 

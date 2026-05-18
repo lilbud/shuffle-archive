@@ -22,7 +22,7 @@ Bruce plays two more shows that night at Paul’s Mall.
 
 **2018:** *Springsteen on Broadway* resumes after the holiday break. Patti makes her return to the show after being absent for several shows in December due to illness, and the set list accordingly returns to its original state.
 
-[Watch Video Highlight](https://videopress.com/embed/tKQhFvX2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tKQhFvX2)
 
 **2023:** Bruce convenes rehearsals for the E Street Band’s upcoming world tour at The Vogel in Red Bank, NJ. First-hand reports from obsessive fans (including this blogger) lurking outside the theater confirm the first known performance of “[Janey Needs a Shooter](https://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/),” which unfortunately will not be played on the tour. (Photo credit: Robyn Sherer)
 

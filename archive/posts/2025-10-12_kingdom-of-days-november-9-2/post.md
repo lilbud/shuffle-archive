@@ -28,7 +28,7 @@
 
 **1992:** Bruce brings World Tour 1992 to the Nassau Coliseum in Uniondale for a two-night stand highlighted by guest appearances. Tonight is Night One, and Steve Van Zandt joins for an encore of “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/).”
 
-[Watch Video Highlight](https://videopress.com/embed/ba1yui05?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ba1yui05)
 
 [Watch on Youtube: Bruce Springsteen & Steve Van Zandt - "Glory Days" - Uniondale, 1992-11-09](https://www.youtube.com/watch?v=xotKfW9e9TQ)
 

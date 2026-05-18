@@ -8,7 +8,7 @@
 
 That night, the boys play two shows at Liberty Hall.
 
-[Watch Video Highlight](https://videopress.com/embed/VC633j2B?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VC633j2B)
 
 **1975:** Violinist Suki Lahav makes her last appearance with Bruce and the E Street Band when the Wild & Innocent Tour wraps up at DAR Constitution Hall in Washington, DC.
 
@@ -26,7 +26,7 @@ That night, the boys play two shows at Liberty Hall.
 
 **1988:** Bruce and the E Street Band play the second of two nights at the Spectrum in Philadelphia, where “Raise Your Hand” closes the show in its first appearance in seven years.
 
-[Watch Video Highlight](https://videopress.com/embed/JEl15R0m?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JEl15R0m)
 
 **1992:** MTV debuts Bruce’s new video for “Human Touch” at 9pm Eastern Time, and then plays it every hour on the hour through 4pm the following day.
 
@@ -36,11 +36,11 @@ That night, the boys play two shows at Liberty Hall.
 
 **2000:** The Reunion Tour’s Florida swing continues with a show at the National Car Rental Center in Sunrise.
 
-[Watch Video Highlight](https://videopress.com/embed/dWAWaSej?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dWAWaSej)
 
-[Watch Video Highlight](https://videopress.com/embed/hoNIyp2z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hoNIyp2z)
 
-[Watch Video Highlight](https://videopress.com/embed/OIp6vgk0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OIp6vgk0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/2000-03-09a.jpg)
 

@@ -20,16 +20,16 @@
 
 **1992:** Night Eight of eleven at the opening American stand of World Tour 1992 in East Rutherford brings three tour premieres (including “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” as the opener, “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/),” and “Because the Night”) and an ultra-rare “[Pony Boy](https://estreetshuffle.com/index.php/2019/03/01/roll-of-the-dice-cover-me-pony-boy/).”
 
-[Watch Video Highlight](https://videopress.com/embed/TGLh27pu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TGLh27pu)
 
 **1999:** There are still five more nights to go in the opening U.S. stand of the Reunion Tour, but Night Ten will be hard to top: Bruce opens the show with the tour premiere of “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” (“[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)” gets a tour premiere as well), and “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)” is played for the first time ever.
 
 [Watch on Youtube: Bruce Springsteen - For You @ East Rutherford 1999-08-04](https://www.youtube.com/watch?v=jzSBtKAjMYw)
 
-[Watch Video Highlight](https://videopress.com/embed/jX93hZxu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jX93hZxu)
 
-[Watch Video Highlight](https://videopress.com/embed/VMlfy5Zr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VMlfy5Zr)
 
-[Watch Video Highlight](https://videopress.com/embed/KHrzvhG7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KHrzvhG7)
 
-[Watch Video Highlight](https://videopress.com/embed/xJRZFtfc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xJRZFtfc)

@@ -14,13 +14,13 @@
 
 **1978:** Bruce and the E Street Band kick off a three-night stand at the Palladium in New York City, opening the show with “[Darkness on the Edge of Town,](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” dedicated to Muhammad Ali, whose title fight with Leon Spinks is that night. Also notable at this show: The last “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” until the Reunion Tour and the tour premiere of “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/).”
 
-[Watch Video Highlight](https://videopress.com/embed/2fEPHBr6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2fEPHBr6)
 
 **1983:** Bruce and the E Street Band hold a recording session for *Born in the U.S.A.* at The Hit Factory in New York City.
 
 **1984:** At Night Four (of six) at the Philadelphia Spectrum, Bruce tour premieres “[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)” and plays “[I’m Bad, I’m Nationwide](https://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/)” for the very first time.
 
-[Watch Video Highlight](https://videopress.com/embed/bCxOau0m?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bCxOau0m)
 
 **1987:** The night before Danny Federici’s wedding, Bruce and the band celebrate Danny at the Taylor Farms Tea Room in Janesville, Wisconsin.
 
@@ -28,7 +28,7 @@
 
 **1988:** The Human Rights Now! Tour kicks off a week-long North American leg with a show at the Maple Leaf Gardens in Toronto, where k.d. lang makes a guest appearance and “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” makes its tour premiere.
 
-[Watch Video Highlight](https://videopress.com/embed/JUExiFZ0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JUExiFZ0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1988-09-15.jpg)
 
@@ -38,7 +38,7 @@
 
 **1999:** Bruce and the E Street Band play their second of six Reunion Tour shows in Philadelphia.
 
-[Watch Video Highlight](https://videopress.com/embed/DF5badip?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DF5badip)
 
 **2004:** Patti plays a solo show at the Paramount Theater in Asbury Park, and Bruce backs her on guitar and vocals.
 

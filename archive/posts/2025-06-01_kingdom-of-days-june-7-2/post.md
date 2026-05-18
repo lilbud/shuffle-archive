@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Drive all night (Birmingham 1981)](https://www.youtube.com/watch?v=SWQc_xELokY)
 
-[Watch Video Highlight](https://videopress.com/embed/CfWATe2k?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CfWATe2k)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Birmingham_Evening_Mail_Mon__Jun_8__1981_.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Sandwell_Evening_Mail_Mon__Jun_8__1981_-scaled.jpg)
 
@@ -38,9 +38,9 @@
 
 **2005:** Bruce plays a solo acoustic show at the Datch Forum in Milan, Italy, where he plays the tour premieres of “[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)” and “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/).”
 
-[Watch Video Highlight](https://videopress.com/embed/9YTQEWlJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9YTQEWlJ)
 
-[Watch Video Highlight](https://videopress.com/embed/IT2k7cHu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IT2k7cHu)
 
 [Watch on Youtube: Bruce Springsteen - The River (Live Milan 07 June 2005)](https://www.youtube.com/watch?v=17A12QFVytc)
 

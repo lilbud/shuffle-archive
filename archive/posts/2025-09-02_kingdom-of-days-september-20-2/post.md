@@ -6,7 +6,7 @@
 
 **1969:** Child plays their second of two nights at the Free University in Richmond. Listen to this show–the earliest known Child recording–below.
 
-[Watch Video Highlight](https://videopress.com/embed/oMbk0dT7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oMbk0dT7)
 
 **1974:** Bruce and the new E Street Band play a sold-out show at Philadelphia’s Tower Theater.
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Go Away (Come Close) - Capitol Theatre, Passaic, NJ (September 20, 1978)](https://www.youtube.com/watch?v=Sj6CyZFOwkw)
 
-[Watch Video Highlight](https://videopress.com/embed/PTgkEwYj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PTgkEwYj)
 
 [Watch on Youtube: Bruce Springsteen - Jungleland - Passaic - 9/20/78](https://www.youtube.com/watch?v=l7EAGg8zdrE)
 
@@ -40,7 +40,7 @@
 
 **1993:** Patti Scialfa appears on *The Late Show with David Letterman,* promoting her recent *Rumble Doll* album and performing “Lucky Girl.”
 
-[Watch Video Highlight](https://videopress.com/embed/3ZCFGfGj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3ZCFGfGj)
 
 **1994:** Bruce and Paul Rodgers join John Fogerty on stage at the House of Blues in West Hollywood for “[In the Midnight Hour.](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)”
 
@@ -48,13 +48,13 @@
 
 **1999:** Bruce and the reunited E Street Band play their third of six nights in Philadelphia on the Reunion Tour, where Bruce improvises a new verse for “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).”
 
-[Watch Video Highlight](https://videopress.com/embed/cbcMa6fr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cbcMa6fr)
 
 [Watch on Youtube: 1/3 Bruce Springsteen Live Philadelphia 20/09/1999](https://www.youtube.com/watch?v=qZAGW7nUGXM)
 
  
 
-[Watch Video Highlight](https://videopress.com/embed/CBhRcW0u?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CBhRcW0u)
 
 **2002:** Bruce films the official video for “[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)” in Asbury Park with director Mark Pellington, performing the lead vocals live on every take–*for sixteen hours*.
 

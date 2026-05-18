@@ -28,7 +28,7 @@ That evening, Bruce and the E Street Band bring the Darkness Tour to Northwester
 
 **1992:** Bruce takes ill and is forced to cancel his scheduled concert in Lexington only six hours before showtime. Meanwhile, Bruce’s former band plays without him (but with Darlene Love, Ronnie Spector, Mitch Ryder, and others) in Red Bank at a benefit to fight hunger.
 
-[Watch Video Highlight](https://videopress.com/embed/UeoKin9X?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UeoKin9X)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1992-11-21.png)
 
@@ -42,7 +42,7 @@ That evening, Bruce and the E Street Band bring the Darkness Tour to Northwester
 
 That afternoon, Bruce rehearses for his upcoming solo acoustic tour at the Count Basie Theater in Red Bank, where he will open the tour the following day. He takes a break from rehearsing, though, to grant an interview to Bob Costas.
 
-[Watch Video Highlight](https://videopress.com/embed/ugKq8E0i?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ugKq8E0i)
 
 That same evening, Bruce plays a rehearsal show for his upcoming solo acoustic world tour at the New Jersey State Theater in New Brunswick, where most of the album’s tracks get their live debuts.
 
@@ -56,7 +56,7 @@ That same evening, Bruce plays a rehearsal show for his upcoming solo acoustic w
 
 [Watch on Youtube: November 21, 1996 - Bruce Springsteen at Murat Theatre in Indy](https://www.youtube.com/watch?v=YXHvxdrSl2U)
 
-[Watch Video Highlight](https://videopress.com/embed/Neyt7NXM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Neyt7NXM)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1996-11-21.png)
 

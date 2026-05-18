@@ -20,7 +20,7 @@
 
 **1992:** Bruce and his new touring band play their first of two nights at Mountain View’s Shoreline Amphitheater.
 
-[Watch Video Highlight](https://videopress.com/embed/gPmGIaLQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gPmGIaLQ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/10/1992-10-21a.png)
 
@@ -62,7 +62,7 @@
 
 **2005:** Bruce plays a solo acoustic show at the Dunkin’ Donuts Center in Providence, where he plays “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” on acoustic guitar for the first time on the tour.
 
-[Watch Video Highlight](https://videopress.com/embed/mdvpoUqG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mdvpoUqG)
 
 **2006:** Bruce and the Sessions Band continue their Spanish tour with a show in Valencia, debuting their cover of “[Love of the Common People](https://estreetshuffle.com/index.php/2020/10/21/cover-me-love-of-the-common-people/).”
 
@@ -74,7 +74,7 @@
 
 **2007:** Bruce and the E Street Band bring the Magic Tour to Chicago’s United Center for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/AnsrBEUd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AnsrBEUd)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2007-10-21a.png)
 
@@ -96,7 +96,7 @@
 
 **2017:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/nE6WL0gS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nE6WL0gS)
 
 **2019:** Bruce appears on *Jimmy Kimmel Live!* as part of his promotional tour for *Western Stars*.
 

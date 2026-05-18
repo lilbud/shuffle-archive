@@ -6,7 +6,7 @@
 
 **1978:** Bruce and the E Street Band make a Darkness Tour stop at the Veterans Memorial Auditorium in Columbus.
 
-[Watch Video Highlight](https://videopress.com/embed/axwbJFmG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/axwbJFmG)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1978-0905.jpg)
 
@@ -22,7 +22,7 @@
 
 **1984:** Bruce and the E Street Band play their second of two nights at The Centrum in Worcester, Massachusetts.
 
-[Watch Video Highlight](https://videopress.com/embed/OcpzKL31?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OcpzKL31)
 
 **1986:** At the MTV Video Music Awards, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” loses in the Best Male Video category to Robert Palmer’s “Addicted to Love” and in the Best Overall Performance in a Video category to David Bowie and Mick Jagger’s “[Dancing in the Street](https://estreetshuffle.com/index.php/2020/09/12/cover-me-dancing-in-the-street/).”
 
@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Bruce Springsteen , SOUND CHECK, Chimes of Freedom, September 5th 1988, Paris](https://www.youtube.com/watch?v=bFjRYh5zi4Y)
 
-[Watch Video Highlight](https://videopress.com/embed/91bdyRbd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/91bdyRbd)
 
 [Watch on Youtube: Human Rights now! Europe1988 1](https://www.youtube.com/watch?v=VvG4cv96YiI)
 

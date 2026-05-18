@@ -14,13 +14,13 @@
 
 **1977:** Bruce and the E Street Band play Towson State University on the Lawsuit Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/SsdSEZB7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SsdSEZB7)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1977-0313.jpg)
 
 **1988**: The Tunnel of Love Express Tour moves on to the Coliseum in Richfield, Ohio, where Kid Leo provides a unique introduction.
 
-[Watch Video Highlight](https://videopress.com/embed/qnlgh7uK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qnlgh7uK)
 
 [Watch on Youtube: Bruce Springsteen Love Me Tender Live In Cleveland March 1988](https://www.youtube.com/watch?v=4QcKYlVoBTc)
 
@@ -30,13 +30,13 @@
 
 **1996:** Bruce begins a mini-tour of Scandinavia with a solo acoustic show in Stockholm.
 
-[Watch Video Highlight](https://videopress.com/embed/Fng7zE6y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Fng7zE6y)
 
 **2000:** Bruce and the E Street Band play the aptly named Reunion Arena in Dallas.
 
-[Watch Video Highlight](https://videopress.com/embed/eMM9d2g9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eMM9d2g9)
 
-[Watch Video Highlight](https://videopress.com/embed/JiijcG3N?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JiijcG3N)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/2000-03-13-rotated.jpg)
 

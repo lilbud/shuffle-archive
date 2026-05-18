@@ -6,7 +6,7 @@
 
 **1977:** After performing “[Tenth Avenue Freeze-Out,](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” Bruce and the E Street Band take a mid-show intermission for the first time, as the Lawsuit Tour continues its Canadian leg with a show at Toronto’s Maple Leaf Gardens.
 
-[Watch Video Highlight](https://videopress.com/embed/A8Zbtavl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/A8Zbtavl)
 
 [Watch on Youtube: Bruce Springsteen - 2-13-77 Toronto Concert](https://www.youtube.com/watch?v=HG6s_r170oE)
 
@@ -14,7 +14,7 @@
 
 **1981:** Bruce and the band play Mississippi State University along the River Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/ClPPlc19?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ClPPlc19)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/02/1981-02-13.jpg)
 

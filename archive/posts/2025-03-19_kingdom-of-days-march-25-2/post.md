@@ -26,7 +26,7 @@ That evening, Bruce catches The Ramones playing at The Fast Lane in Asbury Park.
 
 **2003:** The Australian leg of The Rising Tour moves on to Brisbane, where “Jungleland” makes its tour debut.
 
-[Watch Video Highlight](https://videopress.com/embed/KievsdMg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KievsdMg)
 
 **2023:** Bruce and the E Street Band bring their World Tour to the Greensboro Coliseum.
 

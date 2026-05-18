@@ -10,7 +10,7 @@
 
 **1977:** Bruce and the band play their third show in three nights, this time at Broome County Veterans Memorial Arena in Binghamton, New York.
 
-[Watch Video Highlight](https://videopress.com/embed/R0xeoh7J?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/R0xeoh7J)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/1977-03-15-1.jpg)
 

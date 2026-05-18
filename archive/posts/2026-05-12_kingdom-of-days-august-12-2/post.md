@@ -18,7 +18,7 @@
 
 **1981:** Bruce and the E Street Band play their second of two nights at Detroit's Joe Louis Arena on the original River Tour. Mitch Ryder makes a guest appearance during the encores on (what else?) "Detroit Medley."
 
-[Watch Video Highlight](https://videopress.com/embed/O8YUTq5R?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/O8YUTq5R)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zA1TFgf6jVO6s3jMFbLoHkt)
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tp5QXKa6DIU)
 
-[Watch Video Highlight](https://videopress.com/embed/kGzGDIv0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kGzGDIv0)
 
 ![](../../assets/2020/07/1999-08-12.png)
 
@@ -50,8 +50,8 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bFys3yQTPIc)
 
-[Watch Video Highlight](https://videopress.com/embed/pNq9JhnV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pNq9JhnV)
 
-[Watch Video Highlight](https://videopress.com/embed/hUQAannx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hUQAannx)
 
 ![](../../assets/2024/08/Newsday_2002_08_15_78.jpg)

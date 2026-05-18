@@ -32,13 +32,13 @@
 
 **1981:** Bruce and the E Street Band play their third of six shows at London’s Wembley Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/bBlBT9ah?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bBlBT9ah)
 
 **1983:** Bruce and the E Street Band work on “[Drop on Down and Cover Me](https://estreetshuffle.com/index.php/2019/12/18/roll-of-the-dice-drop-on-down-and-cover-me/)” at The Hit Factory in New York City.
 
 **1984:** Bruce sits in with John Eddie and the Front Street Runners at the Stone Pony, performing four cover songs with the band. Earlier in the day, Max Weinberg releases his book *The Big Beat: Conversations with Rock’s Great Drummers.*
 
-[Watch Video Highlight](https://videopress.com/embed/P7I4JtrM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/P7I4JtrM)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/1984-06-01.jpg)
 
@@ -56,7 +56,7 @@
 
 **1992:** With hiring complete, Bruce convenes the entire touring 1992-1993 band for the first time for a rehearsal at Hollywood Center Studios Soundstage.
 
-[Watch Video Highlight](https://videopress.com/embed/x7xbmPSW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/x7xbmPSW)
 
 [Watch on Youtube: Bruce Springsteen "Guide to Summer" June '92](https://www.youtube.com/watch?v=V8GA_hlYbzg)
 
@@ -64,13 +64,13 @@
 
 [Watch on Youtube: Bruce Springsteen - Born to be wild (Oslo, 1th June '93) PRO-SHOT](https://www.youtube.com/watch?v=O37NpEiLRmI)
 
-[Watch Video Highlight](https://videopress.com/embed/vgR4UE3w?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vgR4UE3w)
 
 [Watch on Youtube: Oslo 01/06/1993](https://www.youtube.com/playlist?list=PLJTyL9twk3zA7n6rFtaN9VcU8cUesEnG8)
 
 **2005:** Bruce brings his solo acoustic tour to Spain, starting with a single night in Barcelona.
 
-[Watch Video Highlight](https://videopress.com/embed/4p0FNGab?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4p0FNGab)
 
 **2016:** When the River Tour stops in Glasgow, Bruce opens the show with “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/),” and tour premieres “American Skin (41 Shots)” and “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”
 

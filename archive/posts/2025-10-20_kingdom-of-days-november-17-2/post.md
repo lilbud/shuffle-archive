@@ -26,7 +26,7 @@
 
 **1987:** Bruce and director Meiert Avis film the video for “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” in and around Asbury Park. You’ve seen the final result, no doubt, but have you seen this original rough cut? It features a lot more footage of Bruce.
 
-[Watch Video Highlight](https://videopress.com/embed/laIqiHGm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/laIqiHGm)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1987-11-17.png)
 
@@ -58,7 +58,7 @@
 
 **1999:** “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” makes an appearance by request when Bruce and the E Street Band play a Reunion show at the Value City Arena in Columbus.
 
-[Watch Video Highlight](https://videopress.com/embed/7kNy3MXA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7kNy3MXA)
 
 [Watch on Youtube: Columbus 17/11/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zAL6AFDb27ZUgd7TmAByK-F)
 

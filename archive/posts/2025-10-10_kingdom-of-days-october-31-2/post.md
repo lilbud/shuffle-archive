@@ -8,7 +8,7 @@
 
 **1973:** Bruce and the band headline two shows on their last of three nights at The Main Point, in Bryn Mawr, Pennsylvania.
 
-[Watch Video Highlight](https://videopress.com/embed/EV8aeqkx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EV8aeqkx)
 
 [Watch on Youtube: The E Street Shuffle,Bruce Springsteen w/Albee Tellone,The Main Point,10-31-1973](https://www.youtube.com/watch?v=xF78hFYM1Ng)
 
@@ -40,7 +40,7 @@
 
 **1987:** Forbes Magazine lists Bruce as the third highest-earning American entertainer at $56 million. That night, Bruce and the E Street Band (minus Nils and Clarence) play at McLoone’s Rum Runner in Sea Bright, where they play “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/),” “[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)” and an acoustic “Born to Run” for the very first time.
 
-[Watch Video Highlight](https://videopress.com/embed/bSuRxEka?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bSuRxEka)
 
 [Watch on Youtube: Bruce Springsteen - Fortunate Son (1987-10-31)](https://www.youtube.com/watch?v=CL-qWBgaIkw)
 
@@ -74,7 +74,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/NfMZVin7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NfMZVin7)
 
 **2022:** Bruce joins Howard Stern for a long, insightful interview at SiriusXM Studio in New York City. The interview is broadcast live and is filmed for future video release.
 

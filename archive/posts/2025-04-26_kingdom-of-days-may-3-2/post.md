@@ -14,7 +14,7 @@
 
 **1981:** The original River Tour stops for a night at the Scandinavium in Gothenburg, Sweden. This is Bruce’s first show in Sweden since 1975, so local fans are treated to their first performances of “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/),” “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” and other [*Darkness*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)tracks along with cuts from *The River*.
 
-[Watch Video Highlight](https://videopress.com/embed/UaOmLbOj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UaOmLbOj)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1981-0503.jpg)
 
@@ -46,29 +46,29 @@
 
 **2005:** At the second night at the Pantages Theater in Hollywood, fans hear the tour premieres of “My Beautiful Reward” (in a beautiful new pump organ arrangement), “[Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/),” “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/),” “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/),” “[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/),” and “[The Line.](https://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/)” Nils makes a guest appearance on “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/).”
 
-[Watch Video Highlight](https://videopress.com/embed/4EoHPdBo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4EoHPdBo)
 
-[Watch Video Highlight](https://videopress.com/embed/xf0AgEfe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xf0AgEfe)
 
 **2009:** Bruce performs at the Clearwater Concert at Madison Square Garden, honoring Pete Seeger’s 90th birthday.
 
 [Watch on Youtube: Bruce's Introduction At Pete Seeger's 90th Birthday Concert](https://www.youtube.com/watch?v=B4i8ziSHkNA)
 
-[Watch Video Highlight](https://videopress.com/embed/VDL84VIC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VDL84VIC)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2009-05-03.jpg)
 
 **2013:** At the first of three Wrecking Ball shows at Friends Arena in Solna, Sweden, Bruce plays the full *Born to Run* album start to finish–the first time he has done this outside of the United States. In the encores, Bruce opens with an acoustic performance of “[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/),” and Elliott Murphy joins Bruce and the band for “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/).”
 
-[Watch Video Highlight](https://videopress.com/embed/SaSEYKdE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SaSEYKdE)
 
-[Watch Video Highlight](https://videopress.com/embed/NiJfyusR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NiJfyusR)
 
-[Watch Video Highlight](https://videopress.com/embed/T6ViRv5h?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/T6ViRv5h)
 
-[Watch Video Highlight](https://videopress.com/embed/wQCCstNg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wQCCstNg)
 
-[Watch Video Highlight](https://videopress.com/embed/9ilCSqQc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9ilCSqQc)
 
 **2014:** Bruce makes a return visit (his third) to the New Orleans Jazz Festival for an afternoon show. Rickie Lee Jones joins Bruce for seven songs, and John Fogerty for two of his own (“[Green River](https://estreetshuffle.com/index.php/2021/10/27/matr-bruce-springsteen-and-john-fogerty-green-river/)” and “Proud Mary”). Tour debuting tonight: “[How Can a Poor Man Stand Such Times and Live](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/)” and “[When the Saints Go Marching In](https://estreetshuffle.com/index.php/2021/03/28/cover-me-when-the-saints-go-marching-in/).”
 

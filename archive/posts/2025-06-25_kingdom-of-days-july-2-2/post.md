@@ -32,7 +32,7 @@
 
 **1984:** The last of three nights in St. Paul (and the opening stand of the Born in the U.S.A. Tour) features the live debuts of “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” and “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/),” along with the last full-band arrangement of “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” for fifteen years.
 
-[Watch Video Highlight](https://videopress.com/embed/PWy5WzaZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PWy5WzaZ)
 
 **1986:** On the CBS television network, *West 57th* airs a segment profiling Clarence.
 
@@ -42,9 +42,9 @@
 
 [Watch on Youtube: Rapport 1988-07-02 - Bruce Springsteen konsert på Stockholm Stadion.](https://www.youtube.com/watch?v=wBU8DiGV6j0)
 
-[Watch Video Highlight](https://videopress.com/embed/iUUErpTo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iUUErpTo)
 
-[Watch Video Highlight](https://videopress.com/embed/T5bpoXqm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/T5bpoXqm)
 
 **1989:** Bruce joins Gary U.S. Bonds at The Cafe Bar in Long Branch for six songs: “[This Little Girl,](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)” “[Angelyne](https://estreetshuffle.com/index.php/2019/02/04/cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/),” “[Bony Moronie](https://youtu.be/3QvN4MwV3wk),” “[Your Love](https://estreetshuffle.com/index.php/2018/07/27/cover-me-gary-u-s-bonds-your-love/),” “[Dedication,](https://estreetshuffle.com/index.php/2018/06/17/cover-me-roll-of-the-dice-gary-u-s-bonds-dedication/)” and “[New Orleans](https://estreetshuffle.com/index.php/2019/07/31/cover-me-new-orleans/).”
 
@@ -52,7 +52,7 @@
 
 **1999:** Bruce films a cameo performance in the movie *High Fidelity* at Disney Soundstage Studios in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/e9i42Z2L?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e9i42Z2L)
 
 **2009:** The Working on a Dream Tour arrives in Germany. In Munich, Bruce plays back-to-back tour premieres of “This Hard Land” and “[Oh, Pretty Woman](https://estreetshuffle.com/index.php/2019/08/25/matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/).”
 

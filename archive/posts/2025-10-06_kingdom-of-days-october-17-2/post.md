@@ -28,7 +28,7 @@
 
 **1976:** Bruce and the boys play their first of two Lawsuit Tour shows at Georgetown University.
 
-[Watch Video Highlight](https://videopress.com/embed/y9o1VLNX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/y9o1VLNX)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/10/1976-1017.jpg)
 
@@ -46,13 +46,13 @@
 
 **1980:** Bruce and the E Street Band play a show–the first of two on the River Tour–at the Kiel Opera House in St. Louis.
 
-[Watch Video Highlight](https://videopress.com/embed/bxlCMxZT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bxlCMxZT)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1980-10-17.png)
 
 **1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. Tour shows at the Tacoma Dome. Bruce starts to come down with flu symptoms earlier in the day, and by the time the show ends, he is full-blown sick.
 
-[Watch Video Highlight](https://videopress.com/embed/VH3WetqL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VH3WetqL)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17d.png)
 
@@ -62,7 +62,7 @@
 
 **1992:** World Tour 1992 continues its Canadian leg with a show at the Olympic Saddledome in Calgary, Bruce’s first-ever show in Alberta.
 
-[Watch Video Highlight](https://videopress.com/embed/6SNwRz24?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6SNwRz24)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1992-10-17.png)
 
@@ -84,11 +84,11 @@
 
 **1996:** Bruce plays the second of two solo acoustic Ghost of Tom Joad Tour shows at Denver’s Paramount Theater.
 
-[Watch Video Highlight](https://videopress.com/embed/0padY2o4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0padY2o4)
 
 **1999:** Bruce and the reunited E Street Band kick off a four-night stand in Los Angeles with the very first concert to be held at the new Staples Center.
 
-[Watch Video Highlight](https://videopress.com/embed/vZj3KOnV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vZj3KOnV)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-10-17a.png)
 
@@ -100,13 +100,13 @@
 
 **2005:** Bruce straps on an electric guitar for a change, when he takes a short break from his solo acoustic tour to join U2 on stage (along with Patti) for “[People Get Ready](https://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)” at the Wachovia Center in Philadelphia.
 
-[Watch Video Highlight](https://videopress.com/embed/Ds6Exsh4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ds6Exsh4)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2005-10-17.png)
 
 **2007:** The young Magic Tour moves on to Madison Square Garden for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/U5CleNrI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/U5CleNrI)
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Adam Raised A Cain](https://www.youtube.com/watch?v=HWertakKIDE)
 

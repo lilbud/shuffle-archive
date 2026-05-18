@@ -38,15 +38,15 @@
 
 **1996:** Patti and Soozie make several guest appearances throughout Bruce’s solo acoustic show at Ryman Auditorium in Nashville. In attendance tonight: Emmylou Harris, Mary Chapin Carpenter, and Amy Grant.
 
-[Watch Video Highlight](https://videopress.com/embed/uosEtWY7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uosEtWY7)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1996-12-12.png)
 
 **2006:** Bruce closes the show at Bobby Bandiera’s All-Star Holiday Concert at the Count Basie Theater in Red Bank, joining Bobby’s band, Southside Johnny and the Asbury Jukes, Jon Bon Jovi, The Grinch, and some muppets for some holiday fun.
 
-[Watch Video Highlight](https://videopress.com/embed/4ERUSA81?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4ERUSA81)
 
-[Watch Video Highlight](https://videopress.com/embed/Cu0TqnCR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Cu0TqnCR)
 
 [https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3?_=4)
 
@@ -86,8 +86,8 @@
 
 **2020:** Still in the midst of the pandemic, Bruce and most of the E Street Band (minus Garry and Soozie, plus Jack Daley sitting in on bass) perform “[Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)” and “[I’ll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)” on *Saturday Night Live*.
 
-[Watch Video Highlight](https://videopress.com/embed/2OZScE6v?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2OZScE6v)
 
-[Watch Video Highlight](https://videopress.com/embed/Ia5NayNl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ia5NayNl)
 
 **2023:** Bruce’s scheduled show in San Francisco (already postponed once this year) is moved again to the following March due to his peptic ulcer disease.

@@ -22,7 +22,7 @@ How do you top two guest performances like those? Well, when the opportunity pre
 
 In 2014, U2 was scheduled to give a free performance in Times Square to observe World AIDS Day, but two weeks before the gig, Bono broke his arm in a motorcycle accident. Unwilling to cancel the performance, Bono called in a few favors, and U2 took the stage as scheduled, but with temporary frontmen: Bruce and Chris Martin each took a turn at the microphone, and one of Bruce’s numbers was… well, by now you know.
 
-[Watch Video Highlight](https://videopress.com/embed/aSL5ziVQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/aSL5ziVQ)
 
 The love-fest continued most recently in 2015, when Bruce made a surprise appearance at U2’s Madison Square Garden gig. Bono surely embarrassed Bruce, citing how much of an influence he was on the band, and how much he appreciated Bruce’s guest frontman turn above. When Bruce took the stage to thunderous applause, what else could they sing together but “I Still Haven’t Found What I’m Looking For.”
 

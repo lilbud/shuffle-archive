@@ -4,7 +4,7 @@ It was only their second show since Danny’s funeral, and the set list was stil
 
 After a heartfelt introduction (it was that kind of night), Bruce and Roger played a consoling “Turn! Turn! Turn!” that would eventually be officially released on the *Magic Tour Highlights* EP. But that wasn’t the only number the two men played that night–they followed “[Turn! Turn! Turn!](https://estreetshuffle.com/index.php/2021/06/09/matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/)” with The Byrds’ other number one hit, “Mr. Tambourine Man.”
 
-[Watch Video Highlight](https://videopress.com/embed/Ifqqc6cS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ifqqc6cS)
 
 Although this was the first time Bruce and Roger performed the song together in public, they’d actually performed it once before, almost two decades earlier in a most private setting: at Tom Petty’s birthday party in 1990.
 

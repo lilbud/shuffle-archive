@@ -8,7 +8,7 @@ So when Bruce Springsteen joined Steve Earle on stage in early 1998 for a remark
 
 Here’s that one-time-only performance, from February 6, 1998 at Tradewinds in Sea Bright, New Jersey. Earle takes the lead vocal (it was his show, after all), but if you listen carefully you can easily hear Bruce in the background.
 
-[Watch Video Highlight](https://videopress.com/embed/tlz0mqs1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tlz0mqs1)
 
 It’s too bad Bruce didn’t take more of a foreground role on this one; “Dead Flowers” cries out for a true Springsteen cover sometime down the road.
 

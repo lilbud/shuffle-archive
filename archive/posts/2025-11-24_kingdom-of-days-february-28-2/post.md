@@ -10,13 +10,13 @@
 
 **1977:** The Lawsuit Tour is in full swing with a stop at the Fox Theater in St. Louis.
 
-[Watch Video Highlight](https://videopress.com/embed/yaloJxcB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yaloJxcB)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/46881393554_83cda3fa2c_o.jpg)
 
 **1981:** Bruce and the band bring the River Tour to the Coliseum in Greensboro, North Carolina–his first time performing for what will prove to be one of Bruce’s most fervent and appreciative audiences.
 
-[Watch Video Highlight](https://videopress.com/embed/Tcamyiqp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Tcamyiqp)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/02/Johnson_City_Press_Chronicle_Sat__Mar_7__1981_.jpg)
 
@@ -32,7 +32,7 @@
 
 **1988:** The opening stand of the Tunnel of Love Express Tour continues with the second of three shows at the Centrum in Worcester. Bruce is still a little rusty: he forgets the opening line to “Born to Run” (played acoustically on this tour) and has to restart it.
 
-[Watch Video Highlight](https://videopress.com/embed/VXq5DyXB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VXq5DyXB)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/1988-02-28a.jpg)
 
@@ -50,13 +50,13 @@
 
 **1996:** Bruce’s solo acoustic tour moves on to the Apollo Theater in Manchester, England.
 
-[Watch Video Highlight](https://videopress.com/embed/fpaePJsI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fpaePJsI)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/02/Manchester_Evening_News_Thu__Feb_29__1996_-scaled.jpg)
 
 **2000:** The Reunion Tour resumes with a show at Penn State University, featuring the U.S. debut of “[Lion’s Den](https://estreetshuffle.com/index.php/2019/06/21/roll-of-the-dice-lions-den/)” in honor of the Nittany Lions.
 
-[Watch Video Highlight](https://videopress.com/embed/YNMmA6Ua?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YNMmA6Ua)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/2000-02-28.png)
 

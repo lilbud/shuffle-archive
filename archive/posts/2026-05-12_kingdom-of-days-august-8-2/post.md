@@ -12,7 +12,7 @@
 
 **1975:** "Backstreets" is played for the first time ever, as the Born to Run Tour begins to pick up steam in Akron, Ohio. "Then She Kissed Me" also makes its tour premiere tonight.
 
-[Watch Video Highlight](https://videopress.com/embed/D1aamrTq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/D1aamrTq)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=S9bQHNVtfvA)
 
@@ -20,15 +20,15 @@
 
 **1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for seven songs, including a work-in-progress (and never released) "On the Prowl" and covers of "Ready Teddy," "Come On, Let's Go," and "Come On Over to My Place."
 
-[Watch Video Highlight](https://videopress.com/embed/GZQFnl9z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GZQFnl9z)
 
 **1984:** Bruce and the E Street Band play their third of ten nights at the Brendan Byrne Arena in East Rutherford on the Born in the U.S.A. Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/qUtloRcX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qUtloRcX)
 
 **2003:** Bruce and the E Street Band play their first of three Rising Tour nights at Lincoln Financial Field in Philadelphia, where fans enjoy the first full-band "Lost in the Flood" of the tour.
 
-[Watch Video Highlight](https://videopress.com/embed/RC0F6oBf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RC0F6oBf)
 
 ![](../../assets/2021/08/2003-08-08b.png)
 

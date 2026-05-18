@@ -24,7 +24,7 @@
 
 **1996:** The television news show *60 Minutes* profiles Bruce and his solo acoustic tour.
 
-[Watch Video Highlight](https://videopress.com/embed/lH6SiNVz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lH6SiNVz)
 
 **2006:** Bruce assembles the Seeger Sessions band for a final recording session, capturing “[Eyes on the Prize](https://estreetshuffle.com/index.php/2021/11/01/cover-me-eyes-on-the-prize/),” “[Jacob’s Ladder](https://estreetshuffle.com/index.php/2019/04/18/rotd-cover-me-jacobs-ladder/),” “[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/),” “[How Can I Keep From Singing](https://estreetshuffle.com/index.php/2019/11/21/cover-me-how-can-i-keep-from-singing/)” “[Bring ’em Home](https://estreetshuffle.com/index.php/2021/06/23/rotd-cover-me-bring-em-home/)” and “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/).” Of these, only “American Land” remains unreleased from this session. (Bruce re-recorded it for *Wrecking Ball*.)
 

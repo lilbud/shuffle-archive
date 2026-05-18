@@ -10,7 +10,7 @@
 
 **1988:** MTV premieres a new documentary, *Inside the Tunnel of Love*.
 
-[Watch Video Highlight](https://videopress.com/embed/pXf5J7uB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pXf5J7uB)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-30.jpg)
 
@@ -44,11 +44,11 @@
 
 **2005:** Nils Lofgren makes a guest appearance on a gorgeous “This Hard Land” at Bruce’s solo acoustic show in Glendale, where Bruce plays “[Book of Dreams](https://estreetshuffle.com/index.php/2019/06/04/roll-of-the-dice-book-of-dreams/)” for the first time in thirteen years and debuts “[All I’m Thinkin’ About](https://estreetshuffle.com/index.php/2020/11/05/roll-of-the-dice-all-im-thinkin-about/).”
 
-[Watch Video Highlight](https://videopress.com/embed/Io7Odebr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Io7Odebr)
 
-[Watch Video Highlight](https://videopress.com/embed/iXCqUPGO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iXCqUPGO)
 
-[Watch Video Highlight](https://videopress.com/embed/MsLsmces?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MsLsmces)
 
 **2006:** In the aftermath of Hurricane Katrina, Bruce and the Sessions Band kick off their tour with an emotional, legendary show at New Orleans Jazz Fest. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,18553/Bruce-Springsteen-mp3-flac-download-4-30-2006-New-Orleans-Jazz-and-Heritage-Festival-New-Orleans-LA.html), and watch the entire show below.
 

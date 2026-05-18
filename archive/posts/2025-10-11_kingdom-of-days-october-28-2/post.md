@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Bruce Springsteen I don't want anymore of this army life](https://www.youtube.com/watch?v=6td5acwFcLQ)
 
-[Watch Video Highlight](https://videopress.com/embed/65HiwFFg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/65HiwFFg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/10/1995-10-28a.png)
 

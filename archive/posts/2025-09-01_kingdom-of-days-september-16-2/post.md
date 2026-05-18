@@ -16,7 +16,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1975-0916.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/dMx2UT8a?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dMx2UT8a)
 
 **1977:** Bruce completes work on “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” at The Record Plant in New York City.
 
@@ -24,9 +24,9 @@
 
 **1978:** Bruce and the E Street Band continue their three-night Darkness Tour stand at the Palladium in New York City. This show features the first full-band “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/),” a work-in-progress “[Point Blank,](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” and the tour debut of “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” — a pretty great combination for those lucky enough to be there. After the show, the band sits down for an interview with local WNEW DJ Vin Scelsa, which will be broadcast three days later.
 
-[Watch Video Highlight](https://videopress.com/embed/BOOL6NGx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BOOL6NGx)
 
-[Watch Video Highlight](https://videopress.com/embed/LICaQCZT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LICaQCZT)
 
 [Watch on Youtube: Vin Scelsa interview Bruce Springsteen and the E Street Band, 1978-09-16](https://www.youtube.com/watch?v=oBRF3I7HSIw)
 

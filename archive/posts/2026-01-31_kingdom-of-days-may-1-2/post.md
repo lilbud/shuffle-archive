@@ -24,13 +24,13 @@
 
 [Watch on Youtube: Bruce Springsteen in Portugal 1st May 1993 (interview) modified](https://www.youtube.com/watch?v=b7vi4nsmzrI)
 
-[Watch Video Highlight](https://videopress.com/embed/vZr2rUPX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vZr2rUPX)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Journal_and_Courier_Mon__May_3__1993_-scaled.jpg)
 
 **1996:** Bruce brings his solo acoustic tour to the Palais des Beaux-Arts in Brussels.
 
-[Watch Video Highlight](https://videopress.com/embed/uBIn2DK3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uBIn2DK3)
 
 **1999:** Bruce and the reunited E Street Band play their first of two shows at the Manchester Evening News Arena in England.
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: 2018 Tony Award Nominations Announcement](https://www.youtube.com/watch?v=Ol_H1beGUV4)
 
-[Watch Video Highlight](https://videopress.com/embed/LdION72y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LdION72y)
 
 **2020:** Dion releases a video single for his remake of “Hymn to Him,” featuring backing vocals by Patti Scialfa and Bruce on guitar.
 

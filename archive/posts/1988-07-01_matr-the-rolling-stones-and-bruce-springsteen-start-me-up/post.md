@@ -4,7 +4,7 @@ That fourth class of inductees was an amazing one: The Rolling Stones, The Tempt
 
 Late in the evening, Bill Graham sparked an impromptu jam session with an incredible array of talent crowding the hotel ballroom’s small stage. Bruce was among them–watch closely and you’ll see a couple of close-ups of him on guitar in this rarely seen video of Mick Jagger fronting the amazing (if a bit unwieldy) band on The Rolling Stones’ smash hit, “Start Me Up.”
 
-[Watch Video Highlight](https://videopress.com/embed/5x56vvt3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5x56vvt3)
 
 My favorite part about that video? It’s just as delightfully awkward as The Rolling Stones’ original 1981 video, right down to the way-too-close-at-times camera operator.
 

@@ -10,7 +10,7 @@
 
 **1978:** Bruce and the E Street Band play Red Rocks for the first time at this Darkness Tour stop. This show also notches two additional firsts: Bruce’s first-ever show in Colorado and his first-ever cover of “[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/).”
 
-[Watch Video Highlight](https://videopress.com/embed/602P8E1i?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/602P8E1i)
 
 **1979:** Bruce and the E Street Band work on “Stolen Car” at The Power Station in New York City.
 
@@ -22,27 +22,27 @@
 
 **1992:** World Tour 1992 moves on from Stockholm to Milan, with this first of two nights at Forum di Assago.
 
-[Watch Video Highlight](https://videopress.com/embed/Sx92iRWL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Sx92iRWL)
 
 **1999:** Bruce and the reunited E Street Band play their second of two nights in Arnhem, The Netherlands, where they tour premiere “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/).”
 
-[Watch Video Highlight](https://videopress.com/embed/uOIqfM0v?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uOIqfM0v)
 
 **2000:** Night Four of ten at Madison Square Garden, as the Reunion Tour’s last stand continues. Highlights include the last “New York City Serenade” of the tour, “[Take ’em as They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/),” and a Soozie Tyrell guest appearance for “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/).” In attendance tonight: Michael J. Fox and Tracey Pollan.
 
-[Watch Video Highlight](https://videopress.com/embed/sdgFdg9s?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/sdgFdg9s)
 
-[Watch Video Highlight](https://videopress.com/embed/4HMtjj7k?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4HMtjj7k)
 
-[Watch Video Highlight](https://videopress.com/embed/C4KwGzw3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/C4KwGzw3)
 
-[Watch Video Highlight](https://videopress.com/embed/w2CqZvlc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/w2CqZvlc)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Daily_News_Thu__Jun_22__2000_-1-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Daily_News_Thu__Jun_22__2000_-scaled.jpg)
 
 **2004:** CBS *Sunday Morning* airs a terrific profile of and interview with Patti Scialfa as part of her promotional tour for *23rd Street Lullaby*.
 
-[Watch Video Highlight](https://videopress.com/embed/Hi4z7lS4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Hi4z7lS4)
 
 **2005:** Elliott Murphy makes a guest appearance on “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)” when Bruce tour premieres it (along with “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)“) at his solo acoustic show in Paris.
 

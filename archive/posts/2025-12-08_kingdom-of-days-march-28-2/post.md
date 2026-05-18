@@ -14,7 +14,7 @@
 
 **1985:** At their fifth and final night in Sydney on the Born in the U.S.A. Tour, Bruce and the E Street Band play “Wreck on the Highway.” It will be a full twenty-five years before anyone hears the E Street Band perform it again.
 
-[Watch Video Highlight](https://videopress.com/embed/Wk0wuyNr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Wk0wuyNr)
 
 **1988:** A rather significant show from the Tunnel of Love Express Tour in Detroit–the live recording of “Be True” that appears on *Chimes of Freedom* hails from this date. Also, *Inside the Tunnel of Love*, an MTV special, will air late this year, featuring footage from this night. The entire show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24299/bruce-springsteen-the-e-street-band-joe-louis-arena-detroit-mi-03-28-1988-mp3-flac-or-online-music-streaming.html). Backstage before the show, Bruce meets Gino Washington, the original recording artist for “Gino is a Coward,” for the first time. (Bruce has been covering Gino’s song in a transformed version called “I’m a Coward” nightly.)
 
@@ -48,9 +48,9 @@
 
 **2012:** At the first of two nights at the Wells Fargo Center in Philadelphia, “Seaside Bar Song” makes a very rare appearance.
 
-[Watch Video Highlight](https://videopress.com/embed/xaRe5dtt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xaRe5dtt)
 
-[Watch Video Highlight](https://videopress.com/embed/yWlgWPb5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yWlgWPb5)
 
 [Watch on Youtube: Bruce Springsteen - Seaside Bar Song (2012-03-28, Philadelphia)](https://www.youtube.com/watch?v=Pi-92tTOCUM)
 

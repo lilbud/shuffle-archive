@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Jackson Cage](https://www.youtube.com/watch?v=R6mW7rhr37c)
 
-[Watch Video Highlight](https://videopress.com/embed/AToQ8tHh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AToQ8tHh)
 
 [Watch on Youtube: Bruce Springsteen Further on up the road München 2003](https://www.youtube.com/watch?v=D2GwqWnz8Dk)
 
@@ -40,9 +40,9 @@ Also on this date in 2003: the BBC premieres a three-part series narrated by Joh
 
 **2006:** The Seeger Sessions Tour stops at the Wells Fargo Arena in Des Moines, Iowa.
 
-[Watch Video Highlight](https://videopress.com/embed/DrAHXxgk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DrAHXxgk)
 
-[Watch Video Highlight](https://videopress.com/embed/opayhzP9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/opayhzP9)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2006-06-10.jpg)
 
@@ -66,7 +66,7 @@ Also on this date in 2003: the BBC premieres a three-part series narrated by Joh
 
 **2018:** Bruce receives a special Tony Award from Billy Joel for *Springsteen on Broadway*. He performs “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” at the televised ceremonies (introduced by Robert De Niro), along with an abridged version of its introduction from the show.
 
-[Watch Video Highlight](https://videopress.com/embed/VuOKNznQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VuOKNznQ)
 
 **2021:** Bruce phones in to E Street Radio and talks about the upcoming return of *Springsteen on Broadway*.
 

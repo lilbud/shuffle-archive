@@ -18,7 +18,7 @@ Bruce’s cover with The Shots owes more to Clapton’s arrangement than Bland�
 
 It certainly sounds like it, and I can make out the title phrase a couple of times, but the recording is so distant and muffled that I can’t make out any of the other lyrics clearly.
 
-[Watch Video Highlight](https://videopress.com/embed/KXWUSmka?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KXWUSmka)
 
 It certainly sounds to me like Bruce is ad libbing quite a bit (as is his wont), so it’s too bad we don’t have a clear recording to appreciate.
 

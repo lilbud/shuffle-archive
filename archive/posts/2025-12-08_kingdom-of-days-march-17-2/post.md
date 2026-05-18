@@ -16,11 +16,11 @@
 
 **1988:** Bruce and the E Street Band play their second of two nights at the Rosemont Horizon near Chicago, where they tour premiere “Darkness on the Edge of Town” and “Backstreets.”
 
-[Watch Video Highlight](https://videopress.com/embed/iEJOIMJg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iEJOIMJg)
 
 **1996:** On a night off from his solo tour, Bruce joins Joe Ely on stage at The Mean Fiddler in Dublin for three songs during the main set; he returns for two more in the encore. Listen to both appearances below.
 
-[Watch Video Highlight](https://videopress.com/embed/rys9ZuBP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rys9ZuBP)
 
 [Watch on Youtube: Joe Ely and Bruce Springsteen - Dublin - 1996-03-17 (encore)](https://www.youtube.com/watch?v=m6cZU3iSdzY)
 
@@ -48,7 +48,7 @@
 
 **2016:** At Night Two (of three) at the Los Angeles Sports Arena, Bruce tour premieres “Death to My Hometown” and “American Land” for St. Patrick’s Day.
 
-[Watch Video Highlight](https://videopress.com/embed/vlByZSBh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vlByZSBh)
 
 [Watch on Youtube: Bruce Springsteen - 2016-03-17 - Los Angeles - Backstreets - Multicam](https://www.youtube.com/watch?v=SjhzlnVOKp8)
 
@@ -58,4 +58,4 @@
 
 **2024**: In Phoenix for tour rehearsals with the E Street Band, Bruce takes a break to record a message for fans coming to town for the show.
 
-[Watch Video Highlight](https://videopress.com/embed/nfEDvruw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nfEDvruw)

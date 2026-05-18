@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Bruce Springsteen Pretty Flamingo (1978 12 31) Audio](https://www.youtube.com/watch?v=Wz4QJfL944g)
 
-[Watch Video Highlight](https://videopress.com/embed/UfXSIcOd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UfXSIcOd)
 
 [Watch on Youtube: Richfield 31/12/1978](https://www.youtube.com/playlist?list=PLJTyL9twk3zCxLikrP0wQCnX0bD04oaAt)
 

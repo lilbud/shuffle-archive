@@ -42,27 +42,27 @@
 
 **1997:** On Night Two in Vienna during Bruce’s first-ever tour stop in Austria, Patti makes a guest appearance in the encores, joining Bruce on “Two Hearts.”
 
-[Watch Video Highlight](https://videopress.com/embed/vUOwcBfv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vUOwcBfv)
 
 **2000:** Bruce brings the Reunion Tour to Hartford for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/owthSofs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/owthSofs)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2000-05-07.jpg)
 
 **2005:** At his solo acoustic show in Denver, Bruce plays the tour debut of “The Promise.”
 
-[Watch Video Highlight](https://videopress.com/embed/NWEGes7W?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NWEGes7W)
 
 **2006:** The Seeger Sessions Tour picks up steam in Manchester with the live premiere of “[How Can I Keep From Singing](https://estreetshuffle.com/index.php/2019/11/21/cover-me-how-can-i-keep-from-singing/)” and the tour debut of the “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)/[Mystery Train](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)” mash-up.
 
-[Watch Video Highlight](https://videopress.com/embed/iHzc5aGI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iHzc5aGI)
 
 **2008:** Bruce and the E Street Band (with guests The Mighty Max Horns) play a benefit show at and for the Count Basie Theater in Red Bank, New Jersey. For the very first time, Bruce plays an album in sequence–two, in fact: *Darkness on the Edge of Town* and *Born to Run*.
 
-[Watch Video Highlight](https://videopress.com/embed/Zz6MlGoC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Zz6MlGoC)
 
-[Watch Video Highlight](https://videopress.com/embed/AUI2bQ57?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AUI2bQ57)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/2008-05-07a.jpg)
 
@@ -70,7 +70,7 @@
 
 **2009:** Bruce plays the tour premiere of “Louie Louie” at the Air Canada Center in Toronto on the Working on a Dream Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/BEpViGto?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BEpViGto)
 
 [Watch on Youtube: Louie Louie - Bruce Springsteen Toronto 05-07-09](https://www.youtube.com/watch?v=dHFAS5CcUVY)
 

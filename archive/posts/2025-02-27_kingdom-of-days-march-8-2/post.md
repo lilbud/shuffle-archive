@@ -8,7 +8,7 @@ That evening, Bruce and the (still unnamed) E Street Band play two shows at Libe
 
 **1975:** The first of two nights at DAR Constitution Hall in Washington, DC.
 
-[Watch Video Highlight](https://videopress.com/embed/4B0zuMOh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4B0zuMOh)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1975-0308.jpg)
 
@@ -18,7 +18,7 @@ That evening, Bruce and the (still unnamed) E Street Band play two shows at Libe
 
 **1988:** The Tunnel of Love Express Tour stops in Philadelphia for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/kJVz376X?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kJVz376X)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-03-08a.jpg)
 

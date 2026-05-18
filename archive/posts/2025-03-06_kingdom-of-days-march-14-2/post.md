@@ -2,7 +2,7 @@
 
 **1972:** The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factory in Highlands, New Jersey. Tinker West records the sessions, and his tapes will prove to be the highest quality recording of The Bruce Springsteen Band and a fascinating document of that period. Standout tracks include “[When You Dance](https://estreetshuffle.com/index.php/2018/08/12/roll-of-the-dice-when-you-dance/),” “[Look Toward the Land,](https://estreetshuffle.com/index.php/2018/12/10/roll-of-the-dice-look-towards-the-land/)” “[Funk Song,](https://estreetshuffle.com/index.php/2018/05/02/roll-of-the-dice-funk-song/)” and an absolutely stunning must-hear cover of “[It’s All Over Now, Baby Blue.](https://estreetshuffle.com/index.php/2019/01/12/cover-me-its-all-over-now-baby-blue/)” Take a listen:
 
-[Watch Video Highlight](https://videopress.com/embed/gDKpMFQm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gDKpMFQm)
 
 **1973:** Bruce and the band play their third of seven nights at Oliver’s in Boston.
 
@@ -32,19 +32,19 @@
 
 **1988:** Night Two in Richfield for the Tunnel of Love Express Tour, where Bruce is moved to add a mid-song story to “[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/).”
 
-[Watch Video Highlight](https://videopress.com/embed/0mmIy6i6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0mmIy6i6)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-03-14.jpg)
 
 **1996:** Bruce plays a solo acoustic show at the Spektrum in Oslo.
 
-[Watch Video Highlight](https://videopress.com/embed/dKDhatIc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dKDhatIc)
 
 **2000:** At Alltel Arena in Little Rock, Bruce plays “[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)” for the first time in 26 years.
 
-[Watch Video Highlight](https://videopress.com/embed/9FPrwILR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9FPrwILR)
 
-[Watch Video Highlight](https://videopress.com/embed/9SQOEqsQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9SQOEqsQ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/2000-03-14.jpg)
 

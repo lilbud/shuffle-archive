@@ -44,9 +44,9 @@
 
 **2009:** Night Two of the final four shows at the Philadelphia Spectrum opens with a rare “[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)” and features the only performance to date of “[What Love Can Do](https://estreetshuffle.com/index.php/2018/11/25/roll-of-the-dice-what-love-can-do/)” along with a full album performance of *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*. This show is available to stream or purchase [here](https://www.nugs.net/live-download-of-bruce-springsteen-wachovia-spectrum-philadelphia-pa-10-14-2009-mp3-flac-or-online-music-streaming/35337.html).
 
-[Watch Video Highlight](https://videopress.com/embed/srxdgVQe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/srxdgVQe)
 
-[Watch Video Highlight](https://videopress.com/embed/z4qotit7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/z4qotit7)
 
 [Watch on Youtube: What Love Can Do (Live at Wachovia Spectrum, Philadelphia, PA - 10/14/2009)](https://www.youtube.com/watch?v=WVVFNDyM2as)
 

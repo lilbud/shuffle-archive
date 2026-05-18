@@ -46,7 +46,7 @@
 
 **2003:** Another great show on Night Two in Hartford, with Bruce opening his Rising Show with the first-ever E Street Band performance of “[Souls of the Departed](https://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/),” the tour premiere of “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/),” and a solo piano “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).”
 
-[Watch Video Highlight](https://videopress.com/embed/I9toXviI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/I9toXviI)
 
 [Watch on Youtube: Bruce Springsteen Living Proof Hartford 18/09/2003](https://www.youtube.com/watch?v=kWmiEcnQgqE)
 

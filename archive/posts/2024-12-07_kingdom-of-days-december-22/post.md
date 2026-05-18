@@ -18,7 +18,7 @@
 
 **1977:** Bruce calls into WHFS-FM in Bethesda to record a Christmas message for his fans and the station’s listeners.
 
-[Watch Video Highlight](https://videopress.com/embed/WyvLEBBw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WyvLEBBw)
 
 **1984:** As “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” moves up the charts, *American Top 40* host Casey Kasem lauds Bruce’s work ethic.
 

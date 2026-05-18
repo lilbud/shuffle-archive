@@ -1,6 +1,6 @@
 When Bruce’s mom complained that he always sang about his father but never about her, Bruce replied by covering “A Woman’s Got the Power” by the great Philly band The A’s during a Meadowlands appearance early on the *Born in the U.S.A.* Tour. (This was before Bruce wrote “[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/).”)
 
-[Watch Video Highlight](https://videopress.com/embed/t5cDigsh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/t5cDigsh)
 
 On-stage, Bruce credited the song to Clarence Clemons and the Red Bank Rockers, and brought RBR vocalist J.T. Bowen on stage to sing it with him. And yes, Clarence and the Red Bank Rockers did release their own version a year prior in 1983.
 

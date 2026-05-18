@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Bruce Springsteen I Wanna Be With You Stockholm 24/06/1999](https://www.youtube.com/watch?v=vIBrhlatcuA)
 
-[Watch Video Highlight](https://videopress.com/embed/w2v4c6sh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/w2v4c6sh)
 
 **2006:** The Seeger Sessions Tour starts its last American stand at the PNC Bank Arts Center in Holmdel, New Jersey.
 

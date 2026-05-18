@@ -6,7 +6,7 @@
 
 **1997:** During his fourth of five nights at Sydney’s Capitol Theater, Bruce plays “[Freehold](https://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/)” outside of Freehold for the first time.
 
-[Watch Video Highlight](https://videopress.com/embed/sg2KPvkP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/sg2KPvkP)
 
 **2002:** Bruce joins Philadelphia band Marah in the studio to play lead guitar and provide background vocals on “[Float Away](https://estreetshuffle.com/index.php/2020/08/11/matr-marah-and-bruce-springsteen-float-away/).”
 

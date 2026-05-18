@@ -46,9 +46,9 @@
 
 **2009:** Bruce brings the Working on a Dream Tour to the Nassau Coliseum in Uniondale, New York, where he plays the tour premieres of “Expressway to Your Heart” (by request) and “Rendezvous.” This show is available as part of Bruce’s official archive series.
 
-[Watch Video Highlight](https://videopress.com/embed/g6oM2O3x?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/g6oM2O3x)
 
-[Watch Video Highlight](https://videopress.com/embed/PBcnDGH2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PBcnDGH2)
 
 [Watch on Youtube: Johnny 99 (Live at Nassau Coliseum, Uniondale, NY - 5/4/2009)](https://www.youtube.com/watch?v=PJFF1Dd759s)
 
@@ -60,15 +60,15 @@
 
 **2013:** Bruce followed up an amazing Night One in Solna, Sweden, with an even hotter Night Two, opening with “My Love Will Not Let You Down,” “Leap of Faith,” “I’m a Rocker, “and “Better Days,” before finally dipping into the *Wrecking Ball* album. As he did the prior night, Bruce plays another full album–this time *Darkness on the Edge of Town*.
 
-[Watch Video Highlight](https://videopress.com/embed/e8uA40R8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e8uA40R8)
 
-[Watch Video Highlight](https://videopress.com/embed/xnjI7AHO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xnjI7AHO)
 
-[Watch Video Highlight](https://videopress.com/embed/txzSEx2C?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/txzSEx2C)
 
-[Watch Video Highlight](https://videopress.com/embed/VMfFmfiC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VMfFmfiC)
 
-[Watch Video Highlight](https://videopress.com/embed/lay25WsO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lay25WsO)
 
 [Watch on Youtube: Bruce Springsteen Stockholm 04/05/2013 Full Concert](https://www.youtube.com/watch?v=k0OalnfuIws)
 
@@ -80,7 +80,7 @@
 
 **2023:** In the area early for his upcoming shows in Dublin, Bruce stops by The Burrow pub in Rathangan, County Kildare, his Irish ancestral home. Over a pint, he leads the locals through a verse of “My Hometown.”
 
-[Watch Video Highlight](https://videopress.com/embed/ZleZu0Ri?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZleZu0Ri)
 
 Upon returning to Dublin later in the day, Bruce pays a visit to the late Shane MacGowan, former lead singer of The Pogues.
 

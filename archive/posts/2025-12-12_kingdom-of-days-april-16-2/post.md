@@ -14,9 +14,9 @@
 
 **1981:** The River Tour continues its European leg with a show in Munich, where “The Ties That Bind” receives its first European performance. Guest blogger Dan French was at this show; read part two of his epic E Street adventure [here](https://estreetshuffle.com/index.php/2021/04/16/where-the-band-was-munich-april-16-1981-dans-story/).
 
-[Watch Video Highlight](https://videopress.com/embed/r86O6U5P?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/r86O6U5P)
 
-[Watch Video Highlight](https://videopress.com/embed/IahVMWyt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IahVMWyt)
 
 **1982:** Bruce joins Clarence Clemons and the Red Bank Rockers for “Tenth Avenue Freeze-Out” at Big Man’s West.
 
@@ -24,15 +24,15 @@
 
 **1985:** The final night of five in Tokyo on the Born in the U.S.A. Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/IW12P88W?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IW12P88W)
 
 **1993:** At Night Two in Sheffield, Bruce honors a request and plays a one-off (for the tour) acoustic “Point Blank.” It’s a lovely, unique arrangement and very worth a listen.
 
-[Watch Video Highlight](https://videopress.com/embed/uFt2pexl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uFt2pexl)
 
 **1996:** Bruce plays the first of two shows at Royal Albert Hall in London and premieres the dubious classic, “Pilgrim in the Temple of Love.” This show was rescheduled from its original scheduled date in March.
 
-[Watch Video Highlight](https://videopress.com/embed/xlOP1Ixx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xlOP1Ixx)
 
 **2008:** Bruce endorses Senator Barack Obama for president of the United States in an endorsement on his web site. Later, at Sloan-Kettering Hospital in New York City, Bruce and the E Street Band gather at the bedside of ailing bandmate Danny Federici to say their final goodbyes and sing together one last time.
 
@@ -48,9 +48,9 @@
 
 **2012:** Albany’s Wrecking Ball show includes a rare, solo acoustic “Janey, Don’t You Lose Heart,” played by request, and the tour premieres of “Downbound Train” and “Darlington County.” Watch the entire show below.
 
-[Watch Video Highlight](https://videopress.com/embed/QeL22Nwg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QeL22Nwg)
 
-[Watch Video Highlight](https://videopress.com/embed/c0DmZePn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/c0DmZePn)
 
 **2013:** Bruce, Patti, and Little Steven attend opening night of *The Rascals: Once Upon a Dream* on Broadway.
 

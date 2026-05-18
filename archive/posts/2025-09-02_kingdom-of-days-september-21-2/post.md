@@ -44,7 +44,7 @@
 
 **1984:** Bruce and the band play their first of two Born in the U.S.A. shows at Pittsburgh’s Civic Arena, where Bruce throws a little shade on President Reagan’s endorsement of his music from a few days prior. Earlier in the day, *Born in the U.S.A.* becomes the first-ever compact disc to be pressed in the United States.
 
-[Watch Video Highlight](https://videopress.com/embed/4C0NYp0F?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4C0NYp0F)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/09/1984-09-21c.jpg)
 
@@ -54,7 +54,7 @@
 
 **1988:** The Human Rights Now! Tour hits the American west coast with a show at the Los Angeles Memorial Coliseum. Joan Baez makes a guest appearance, Bruce plays “Jungleland” for the last time until the Reunion Tour, and Bono joins the company for an encore of “[Chimes of Freedom](https://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/).”
 
-[Watch Video Highlight](https://videopress.com/embed/nfk1Ytnj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nfk1Ytnj)
 
 [Watch on Youtube: Bruce Springsteen - Los Angeles Amnesty Tour coverage 1988-09-22](https://www.youtube.com/watch?v=Si9TJW4WQu0)
 

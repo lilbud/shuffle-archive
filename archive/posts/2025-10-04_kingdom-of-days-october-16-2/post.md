@@ -22,7 +22,7 @@
 
 **1976:** Bruce and the boys bring the Lawsuit Tour to The College of William and Mary in Williamsburg, Virginia.
 
-[Watch Video Highlight](https://videopress.com/embed/aIjzhS4K?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/aIjzhS4K)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1976-10-16.png)
 

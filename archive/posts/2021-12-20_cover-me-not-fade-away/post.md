@@ -12,7 +12,7 @@ Holly’s version of “Not Fade Away” was the B-side to “[Oh Boy!](https://
 
 Bruce was probably familiar with both versions of the song, but it was The Stones’ recording that captured his imagination from the moment he first saw the photo sleeve for the single. In the clip below, Bruce reminisces about that moment with Little Steven.
 
-[Watch Video Highlight](https://videopress.com/embed/mrJznSmJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mrJznSmJ)
 
 Bruce has covered and teased snippets of “Not Fade Away” since very early in his career–as far back as his Bruce Springsteen Band days. Here’s the first known recording of Bruce performing “Not Fade Away” (clearly influenced by The Stones’ version) in the autumn of 1971. It’s not the best recording, but hoo boy… that guitar solo!
 
@@ -28,15 +28,15 @@ Still, the very fact that almost every rock and roll musician worth their salt c
 
 For example, here’s Bruce’s first post-Darkness Tour performance (and my personal favorite)–from the spring of 1989, featuring an epic guitar face-off with Nils Lofgren and Max Weinberg on drums at The Stone Pony.
 
-[Watch Video Highlight](https://videopress.com/embed/bMxAs9iY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bMxAs9iY)
 
 The nineties brought a handful of “Not Fade Away” Springsteen team-ups, some with local bands, like this 1995 appearance with New Jersey-based Solar Circus at Cheers in Long Branch.
 
-[Watch Video Highlight](https://videopress.com/embed/xqHkFrHA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xqHkFrHA)
 
 …and some with more well-known artists, like Bruce’s 1997 appearance with The Wallflowers at Tradewinds in Sea Bright.
 
-[Watch Video Highlight](https://videopress.com/embed/qKc6RrCR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qKc6RrCR)
 
 In the 21st century, “Not Fade Away” has kept a pretty low profile in Bruce’s set lists, but it makes a cameo now and then (typically only as a tease, though, reprising its classic role as a lead-in for “She’s the One”).
 

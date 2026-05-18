@@ -14,7 +14,7 @@
 
 **1981:** Those poor ticket holders for Bruce’s second River Tour show in Manchester, England: The original concert was postponed from March 24th when Bruce took ill, and on this night, Bruce is sick again. He performs an abbreviated set (five songs fewer than the night before) at the Apollo Theatre, the shortest show of the European leg.
 
-[Watch Video Highlight](https://videopress.com/embed/oAGgq6zb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oAGgq6zb)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1981-0514.jpg)
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen ~ Backstreets ~ 5/14/09](https://www.youtube.com/watch?v=TDE_1WmFqo0)
 
-[Watch Video Highlight](https://videopress.com/embed/1rgn9jg5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1rgn9jg5)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/2009-05-14.jpg)
 

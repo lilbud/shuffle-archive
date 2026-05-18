@@ -14,7 +14,7 @@
 
 **1976:** Bruce and the E Street Band bring their Lawsuit Tour to the Paramount Theater in Oakland.
 
-[Watch Video Highlight](https://videopress.com/embed/ZHK0AYUU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZHK0AYUU)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1976-10-02.jpg)
 
@@ -34,7 +34,7 @@
 
 **1992:** World Tour 1992 moves on to the America West Arena in Phoenix for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/Ba5xlxSS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ba5xlxSS)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1992-10-02a.jpg)
 
@@ -42,7 +42,7 @@
 
 **1996:** Bruce plays a solo acoustic show at the Riverside Theater in Milwaukee, 21 years to the day of the infamous Bomb Scare Show (see above). Following the show, Bruce zips over to the Bradley Center, where he joins Melissa Etheridge on stage for a duet on “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/).”
 
-[Watch Video Highlight](https://videopress.com/embed/1La8VWX2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1La8VWX2)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/10/1996-1002.jpg)
 
@@ -50,11 +50,11 @@
 
 [Watch on Youtube: REM (and Bruce Springsteen), Cleveland, 2004-10-02](https://www.youtube.com/watch?v=sZcju8_8LpA)
 
-[Watch Video Highlight](https://videopress.com/embed/wHMlW3e9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wHMlW3e9)
 
-[Watch Video Highlight](https://videopress.com/embed/ZFfTcrSv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZFfTcrSv)
 
-[Watch Video Highlight](https://videopress.com/embed/ISTytCik?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ISTytCik)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/10/The_Plain_Dealer_2004_10_03_13.jpg)
 
@@ -80,10 +80,10 @@
 
 **2009:** On Night Two (of five) at Giants Stadium, Bruce plays the entire [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) album and still finds time to tour premiere “[Jailhouse Rock](https://estreetshuffle.com/index.php/2019/10/12/matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/)” and “[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” and give “[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)” its second-ever appearance. Curt Ramm is present once again (as he will be for the remainder of the tour), and he, Ed Manion, Art Baron, and Larry Eagle form an almost-Sessions Band reunion during the “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)” encore.
 
-[Watch Video Highlight](https://videopress.com/embed/Z7igU6U2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Z7igU6U2)
 
-[Watch Video Highlight](https://videopress.com/embed/Wqc8dty3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Wqc8dty3)
 
-[Watch Video Highlight](https://videopress.com/embed/Wixpk3N7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Wixpk3N7)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.

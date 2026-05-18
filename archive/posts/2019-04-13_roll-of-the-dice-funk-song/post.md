@@ -14,7 +14,7 @@ Other than that rehearsal take, there’s no record of Bruce and the band actual
 
 So why the “sort of” qualification? Because even though the 1972 and 1975 versions share the same title, the same instrumental-ness, and the same “right on!” vocals, they are clearly different songs. But since they both share the attributes above, and since they are both essential historical curiosities at this point, I present them here together. Enjoy the 1975 E Street Band version (which IMHO is the superior version) of “Funk Song.”
 
-[Watch Video Highlight](https://videopress.com/embed/68XoKMjo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/68XoKMjo)
 
 **Funk Song
 Recorded:** N/A

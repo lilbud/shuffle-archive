@@ -48,7 +48,7 @@
 
 **1988:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for “[Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)” and “[Around and Around.](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)” (Photo credit: Debra Rothenberg)
 
-[Watch Video Highlight](https://videopress.com/embed/38uvJMi5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/38uvJMi5)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1988-08-21.png)
 
@@ -60,7 +60,7 @@
 
 **1992:** Bruce and his 1992-93 touring band bring World Tour 1992 to the Richfield Coliseum for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/aiv7ziZl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/aiv7ziZl)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-08-21a.png)
 
@@ -70,7 +70,7 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - IF I SHOULD FALL BEHIND - FleetCenter, Boston MA August 21, 1999](https://www.youtube.com/watch?v=DU1Af39FXks)
 
-[Watch Video Highlight](https://videopress.com/embed/tmIPLdJI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tmIPLdJI)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/08/1999-0821.jpg)
 

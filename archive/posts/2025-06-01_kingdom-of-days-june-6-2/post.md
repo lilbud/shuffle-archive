@@ -24,9 +24,9 @@
 
 **1984:** Bruce shoots a video for “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” with director Jeff Stein. It does not go well. Watch the abandoned video along with Bruce’s rehearsal footage below.
 
-[Watch Video Highlight](https://videopress.com/embed/eRUVm7qp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eRUVm7qp)
 
-[Watch Video Highlight](https://videopress.com/embed/X0n4ro1l?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/X0n4ro1l)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/1984-06-06.jpg)
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Bruce Springsteen-All the way home Roma 2005](https://www.youtube.com/watch?v=OUlJkFeQgvk)
 
-[Watch Video Highlight](https://videopress.com/embed/RCN0XBJE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RCN0XBJE)
 
 [Watch on Youtube: Rome 06/06/2005](https://www.youtube.com/playlist?list=PLJTyL9twk3zDWMIwV0bAuTa5JwEY-txNz)
 

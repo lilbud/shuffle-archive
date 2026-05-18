@@ -8,7 +8,7 @@
 
 **1981:** Bruce and the E Street Band perform in Scotland for the very first time when they play their first of two River Tour shows at the Edinburgh Playhouse.
 
-[Watch Video Highlight](https://videopress.com/embed/1KZwfls7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1KZwfls7)
 
 **1982:** Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at Big Man’s West (for “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)“) and later with Cats on a Smooth Surface at The Stone Pony.
 
@@ -36,15 +36,15 @@
 
 **1993:** Bruce’s World Tour continues its German leg with a show in Munich. Watch the complete first set below.
 
-[Watch Video Highlight](https://videopress.com/embed/484BpLnV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/484BpLnV)
 
 **1997:** Bruce’s solo acoustic tour of France continues at the Berlioz Opera House in Montpellier, where the set list features a rare performance of “[For You.](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)”
 
-[Watch Video Highlight](https://videopress.com/embed/PTD9NGHp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PTD9NGHp)
 
 **1999:** The Reunion Tour’s U.K. swing continues with a show at the NEC Arena in Birmingham, where Edwin Starr makes a guest appearance on a tour one-off of “[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/).”
 
-[Watch Video Highlight](https://videopress.com/embed/Bg41FE4q?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Bg41FE4q)
 
 [Watch on Youtube: Birmingham 16/05/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zDaP69n0rjV3tat9WUwhb9O)
 
@@ -52,13 +52,13 @@
 
 **2006:** The Seeger Sessions Tour makes a stop at the Heineken Music Hall in Amsterdam.
 
-[Watch Video Highlight](https://videopress.com/embed/0nkKkMgu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0nkKkMgu)
 
 [Watch on Youtube: Bruce Springsteen & the Seeger Sessions Band live in Amsterdam (May 16 2006)](https://www.youtube.com/watch?v=sgnrdP8xJmA)
 
 [Watch on Youtube: John Henry](https://www.youtube.com/watch?v=zkRHS9fvjPM)
 
-[Watch Video Highlight](https://videopress.com/embed/u8zYMXyO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/u8zYMXyO)
 
 **2013:** “[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” makes for an unusual opener in Herning, Denmark. This show also features the tour premiere of “[I Wish I Were Blind](https://estreetshuffle.com/index.php/2021/10/17/roll-of-the-dice-i-wish-i-were-blind/).”
 

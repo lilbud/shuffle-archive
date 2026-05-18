@@ -4,11 +4,11 @@
 
 **1975:** Bruce and the boys play a show at Chrysler Hall in Norfolk. Listen to a gorgeous cover of "Up on the Roof" from this show, only ever played during this two-week stretch of the Born to Run Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/eknLq04x?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eknLq04x)
 
 **1976:** Bruce and the band play their second of six nights at the Monmouth Arts Center in Red Bank. Mike Appel and Laurel Canyon attempt to impound Bruce's earnings from this concert stand as part of their ongoing and escalating legal battle, but a judge denies the restraining order request.
 
-[Watch Video Highlight](https://videopress.com/embed/2Tw8kvl4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2Tw8kvl4)
 
 ![](../../assets/2020/07/1976-08-02.png)
 
@@ -26,7 +26,7 @@
 
 **1983:** Bruce joins Jackson Browne on stage at Jackson's Madison Square Garden gig, where they play "Stay," "Running on Empty," and "Sweet Little Sixteen" together. Jackson dedicates "For a Rocker" and "Lawyers in Love" to Bruce as well. (Photo credit: Dari)
 
-[Watch Video Highlight](https://videopress.com/embed/yuChnbxK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yuChnbxK)
 
 ![](../../assets/2020/07/1983-08-02.png)
 
@@ -60,9 +60,9 @@
 
 **1999:** At Night Nine of fifteen on the opening U.S. stand of the Reunion Tour, fans at the Meadowlands are treated to the return of "Something in the Night," last played more than two decades prior, and the U.S. premiere of "Take ‘Em as They Come," which opens the show. During "Tenth Avenue Freeze-Out" Bruce tells his "River of Life" story for the first time.
 
-[Watch Video Highlight](https://videopress.com/embed/Wv8iQ1BU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Wv8iQ1BU)
 
-[Watch Video Highlight](https://videopress.com/embed/kOXzMnNN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kOXzMnNN)
 
 ![](../../assets/2020/07/1999-08-02.png)
 
@@ -78,7 +78,7 @@
 
 **2003:** Bruce and the E Street Band play their second of two nights at Gillette Stadium in Foxboro.
 
-[Watch Video Highlight](https://videopress.com/embed/d6XZXBmU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/d6XZXBmU)
 
 **2007:** Three days ago, Bruce's dear friend and personal assistant Terry Magovern passed away. In his grief, Bruce writes a new song–"Terry's Song"–and performs it this day at Terry's memorial service in Red Bank.
 

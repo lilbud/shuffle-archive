@@ -36,13 +36,13 @@
 
 **1978:** The Darkness Tour descends on the Hampton Roads Coliseum in Hampton, Virginia, where Bruce opens with his live debut cover of "High School Confidential."
 
-[Watch Video Highlight](https://videopress.com/embed/yodpb4X6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yodpb4X6)
 
 ![](../../assets/2020/07/1978-08-14.png)
 
 **1983:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park. (Photo credit: Dari)
 
-[Watch Video Highlight](https://videopress.com/embed/fpPKsCCn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fpPKsCCn)
 
 ![](../../assets/2018/08/1983-0814.jpg)
 
@@ -52,13 +52,13 @@
 
 The show itself is a scorcher–literally, with the temperature topping 100 degrees–and it's captured on video for bootleg posterity.
 
-[Watch Video Highlight](https://videopress.com/embed/yyrK9G4Q?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yyrK9G4Q)
 
-[Watch Video Highlight](https://videopress.com/embed/WwNd66f8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WwNd66f8)
 
-[Watch Video Highlight](https://videopress.com/embed/SjfBzOAm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SjfBzOAm)
 
-[Watch Video Highlight](https://videopress.com/embed/AgypE4CD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AgypE4CD)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zByePnIHPj0gzfR8gjaiLYi)
 
@@ -82,7 +82,7 @@ You'd be forgiven for thinking nothing else happened in the news today–here's 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=os7f3vSxQrY)
 
-[Watch Video Highlight](https://videopress.com/embed/1XXRtozr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1XXRtozr)
 
 **1995:** Bruce joins Ronnie Mack and the Barndance Band on stage at Jack's Sugar Shack in Hollywood.
 
@@ -90,7 +90,7 @@ You'd be forgiven for thinking nothing else happened in the news today–here's 
 
 **2002:** The Rising Tour stops in Cleveland for a show at Gund Arena, where the set list remains unchanged from the previous two shows.
 
-[Watch Video Highlight](https://videopress.com/embed/CBudoNB4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CBudoNB4)
 
 ![](../../assets/2020/08/2002-08-14.png)
 

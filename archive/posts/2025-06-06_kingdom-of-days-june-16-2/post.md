@@ -12,7 +12,7 @@
 
 **1978:** [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)is certified gold by the Recording Industry Association of America. That evening, Bruce and the E Street Band bring the Darkness Tour to Memorial Hall in Kansas City.
 
-[Watch Video Highlight](https://videopress.com/embed/MGKx3kdr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MGKx3kdr)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1978-06-16.jpg)
 
@@ -22,7 +22,7 @@
 
 **1988**: Bruce and the E Street Band play their second of two nights at Stadio Flaminio in Rome. “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” makes its tour debut, as the Tunnel of Love Tour set lists begin morphing away from the album.
 
-[Watch Video Highlight](https://videopress.com/embed/Ec4vKeYf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ec4vKeYf)
 
 [Watch on Youtube: Bruce Springsteen Rome 16/06/1988 Full Concert](https://www.youtube.com/watch?v=44AasCX75Z0)
 
@@ -38,9 +38,9 @@
 
 **2004:** Patti Scialfa makes a guest appearance on *Late Night With Conan O’Brien* in support of her new album, *23rd Street Lullaby*. Watch the rehearsals and full performance below.
 
-[Watch Video Highlight](https://videopress.com/embed/D7F2dU9X?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/D7F2dU9X)
 
-[Watch Video Highlight](https://videopress.com/embed/8DUOtFWl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8DUOtFWl)
 
 **2005:** The Devils & Dust Tour finishes its German leg with a show at Philipshalle in Dusseldorf. Bruce tour premieres “[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/),” “[I Wish I Were Blind,](https://estreetshuffle.com/index.php/2021/10/17/roll-of-the-dice-i-wish-i-were-blind/)” and “[Mary’s Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/).”
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruse Springsteen - We Shall Over Come](https://www.youtube.com/watch?v=rbxru9dl0sc)
 
-[Watch Video Highlight](https://videopress.com/embed/BuKjUSBn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BuKjUSBn)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/2006-06-16.jpg)
 

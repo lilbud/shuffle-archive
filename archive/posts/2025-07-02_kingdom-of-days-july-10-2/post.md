@@ -22,7 +22,7 @@
 
 **1988:** Bruce and the E Street Band play their second of two Tunnel of Love shows at Bramall Lane in Sheffield.
 
-[Watch Video Highlight](https://videopress.com/embed/EZbUAKue?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EZbUAKue)
 
 [Watch on Youtube: Sheffield 10/07/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zATGqy6HjddIRTztJhrdWsH)
 

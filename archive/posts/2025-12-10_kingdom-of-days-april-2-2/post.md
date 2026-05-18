@@ -12,9 +12,9 @@
 
 **1988:** Bruce and the E Street Band play their second of two Tunnel of Love Express shows at Nassau Coliseum in Uniondale, New York.
 
-[Watch Video Highlight](https://videopress.com/embed/HHgVWkOa?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HHgVWkOa)
 
-[Watch Video Highlight](https://videopress.com/embed/4VNnCD69?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4VNnCD69)
 
 [Watch on Youtube: Bruce Springsteen | Love Me Tender | April 2, 1988](https://www.youtube.com/watch?v=9wopuObCeV0)
 

@@ -62,4 +62,4 @@
 
 **2015:** Bruce and the E Street Band rehearse for their upcoming *Saturday Night Live* appearance at Studio 8H in Rockefeller Center. Later, Bruce goes to Studio 6B in the same building to be interviewed by Jimmy Fallon for *The Tonight Show*.
 
-[Watch Video Highlight](https://videopress.com/embed/coWXpOgP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/coWXpOgP)

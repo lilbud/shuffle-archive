@@ -14,7 +14,7 @@
 
 **1981:** In Lexington, Bruce and the E Street Band bring the River Tour to the Rupp Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/83D0WG3d?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/83D0WG3d)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1981-03-04.jpg)
 
@@ -32,19 +32,19 @@
 
 **2000:** The Reunion Tour begins its Florida leg at Orlando Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/X8MwF6hm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/X8MwF6hm)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/2000-03-04.jpg)
 
 **2003:** In Jacksonville along the Rising Tour, the band covers “[Let’s Go, Let’s Go, Let’s Go](https://estreetshuffle.com/index.php/2018/09/26/matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/)” in memory of Hank Ballard, who died the week prior. This show also features the tour debut (and only the second E Street Band performance) of “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/).” Watch the full show below.
 
-[Watch Video Highlight](https://videopress.com/embed/xKFbULno?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xKFbULno)
 
-[Watch Video Highlight](https://videopress.com/embed/WR5ivZWf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WR5ivZWf)
 
-[Watch Video Highlight](https://videopress.com/embed/NCLvRlBT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NCLvRlBT)
 
-[Watch Video Highlight](https://videopress.com/embed/uuKmcUv0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uuKmcUv0)
 
 [Watch on Youtube: Bruce Springsteen - BETTER DAYS 2003 (audio)](https://www.youtube.com/watch?v=BAhxHcxGOC0)
 

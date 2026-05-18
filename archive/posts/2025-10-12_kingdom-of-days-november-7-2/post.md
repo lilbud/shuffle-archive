@@ -64,7 +64,7 @@
 
 **2020:** Bruce appears in the introduction video at Jon Landau’s induction into the Rock and Roll Hall of Fame.
 
-[Watch Video Highlight](https://videopress.com/embed/0OS8Z512?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0OS8Z512)
 
 **2022:** Bruce makes his customary appearance at Stand Up For Heroes at David Geffen Hall in New York City. His four-song set features the public debut of “[House of a Thousand Guitars](https://estreetshuffle.com/index.php/2021/04/23/roll-of-the-dice-house-of-a-thousand-guitars/).”
 

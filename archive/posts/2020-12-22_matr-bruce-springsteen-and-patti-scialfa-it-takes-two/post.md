@@ -22,7 +22,7 @@ Unfortunately, four of those five times either weren’t captured or don’t cir
 
 On the evening of December 19, 2004, Bruce staged two holiday benefit shows at Harry’s Roadhouse in Asbury Park, backed by Bobby Bandiera and his band. Patti joined for the late show, and together Bruce and Patti shared a rare spotlight as true partners in a loose (Bruce sounds like he’s at least a couple of tequillas into the evening), joyful performance of “It Takes Two.”
 
-[Watch Video Highlight](https://videopress.com/embed/c9grjILs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/c9grjILs)
 
 **It Takes Two
 First performed:** April 13, 2002 (Asbury Park, NJ)

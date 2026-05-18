@@ -22,9 +22,9 @@
 
 **1978:** Bruce and the band play one of their most legendary shows, opening a three-night homecoming stand at the Capitol Theater in Passaic with an epic show that is broadcast live from Boston to Baltimore. Better yet, the entire show is professionally shot and preserved–watch and marvel at the band at their peak. (And then get the entire show’s audio [here](https://live.brucespringsteen.net/live-music/0,22963/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-19-1978-Capitol-Theatre-Passaic-NJ.html)–it’s available as part of Bruce’s official archive series.)
 
-[Watch Video Highlight](https://videopress.com/embed/b8RqdzL9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/b8RqdzL9)
 
-[Watch Video Highlight](https://videopress.com/embed/unrpW2it?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/unrpW2it)
 
 [Watch on Youtube: Racing in the Street (Live at Capitol Theatre, Passaic, NJ - 9/19/1978)](https://www.youtube.com/watch?v=nLlqA4vik0E)
 
@@ -48,7 +48,7 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 **1985:** Bruce and the E Street Band play their second of two Born in the U.S.A. shows at the Oakland-Alameda County Coliseum, but this show is a little rougher: listen to Bruce forget the lyrics to “Highway Patrolman.”
 
-[Watch Video Highlight](https://videopress.com/embed/jVL2qSEB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jVL2qSEB)
 
 [Watch on Youtube: BRUCE SPRINGSTEEN & THE E STREET BAND SEPTEMBER 19 1985 OAKLAND CA ON THE BORN IN THE USA TOUR](https://www.youtube.com/watch?v=EmsI94tQgvQ)
 
@@ -58,7 +58,7 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 [Watch on Youtube: Springsteen - Amnesty-Philadelphia - 9/20/88](https://www.youtube.com/watch?v=Yg2FAUT6GY4)
 
-[Watch Video Highlight](https://videopress.com/embed/PXkEsOr2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PXkEsOr2)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1988-09-19a.jpg)
 
@@ -80,7 +80,7 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 [Watch on Youtube: Bruce Springsteen, Growin' Up / For You, MetLife Stadium, 09/19/12](https://www.youtube.com/watch?v=uU4HFVGbvrY)
 
-[Watch Video Highlight](https://videopress.com/embed/iOFiAn0v?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iOFiAn0v)
 
 [Watch on Youtube: Bruce Springsteen - The Ties That Bind Live 9/19/12 MetLife NJ Meadowlands Awesome Hd Show](https://www.youtube.com/watch?v=wTP2IEGGH4k)
 

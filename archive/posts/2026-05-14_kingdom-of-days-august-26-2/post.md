@@ -30,19 +30,19 @@
 
 **1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of "My Hometown," "Jersey Girl," and "Born in the U.S.A." Afterwards, he zips over to The Columns in Avon, where he performs "[L](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)u[cille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)" and "Stand By Me" with The Cherubs.
 
-[Watch Video Highlight](https://videopress.com/embed/2cGZrAWC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2cGZrAWC)
 
 ![](../../assets/2020/08/1987-08-26.png)
 
 **1992:** Bruce and his new touring band play their second of two shows at the Capital Center in Largo, MD.
 
-[Watch Video Highlight](https://videopress.com/embed/ybBaEpl0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ybBaEpl0)
 
-[Watch Video Highlight](https://videopress.com/embed/CPuhrHP1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CPuhrHP1)
 
-[Watch Video Highlight](https://videopress.com/embed/ZIhIXIQS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZIhIXIQS)
 
-[Watch Video Highlight](https://videopress.com/embed/kLNxb1f4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kLNxb1f4)
 
 **1994:** Bruce joins Stand and Deliver and Max Weinberg on stage at the Classics Cafe in Westwood, New Jersey, for a cover-filled mini-set.
 
@@ -54,11 +54,11 @@
 
 **1999:** Bruce and the reunited E Street Band play their fourth of five shows at Boston's Fleet Center. Anyone know what was going on during "If I Should Fall Behind?"
 
-[Watch Video Highlight](https://videopress.com/embed/weH542fm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/weH542fm)
 
-[Watch Video Highlight](https://videopress.com/embed/H1x4tBPy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/H1x4tBPy)
 
-[Watch Video Highlight](https://videopress.com/embed/fVhkKmGJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fVhkKmGJ)
 
 **2012:** Bruce plays his first ever show in New Brunswick (the Canadian province, not the New Jersey college town), when the Wrecking Ball Tour makes a stop at the Magnetic Hill Music Festival in Moncton. The Trews, Tom Cochrane, and Peter Elkas make a guest appearance for the show-closing "Twist and Shout."
 

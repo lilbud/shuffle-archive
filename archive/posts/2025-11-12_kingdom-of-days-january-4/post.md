@@ -8,7 +8,7 @@
 
 **1985:** The Born in the U.S.A. Tour resumes with the first of two shows at the Hampton Roads Coliseum in Hampton, Virginia.
 
-[Watch Video Highlight](https://videopress.com/embed/ifgI0KWR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ifgI0KWR)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/1985-01-04.png)
 

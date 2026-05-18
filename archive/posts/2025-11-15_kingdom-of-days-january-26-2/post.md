@@ -12,7 +12,7 @@
 
 **1981:** On the River Tour, the E Street Band makes a stop at the University of Notre Dame. In the second set, Bruce pulls out back-to-back tour premieres: “[Double Shot (of My Baby’s Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)” (after teaching the lyrics to the band during intermission) and “[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/).”
 
-[Watch Video Highlight](https://videopress.com/embed/1N1myPz6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1N1myPz6)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/01/1981-01-26.jpg)
 
@@ -20,13 +20,13 @@
 
 **1985:** During intermission at the Carrier Dome in Syracuse, the United Steelworkers of America recognize and honor Bruce’s contributions to food banks along the *Born in the U.S.A.* Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/85FTtPOe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/85FTtPOe)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/01/1985-01-26a.jpg)
 
 **1996:** Bruce plays solo at the Bronco Bowl in Dallas, debuting “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)” for the first time on the Ghost of Tom Joad Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/NFPZTvFe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NFPZTvFe)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/1996-01-26.png)
 

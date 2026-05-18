@@ -8,7 +8,7 @@ So when Billy and Bruce joined forces during the last days of the 2008 American 
 
 It turned out to be a great choice–the song is perfectly suited for Bruce’s range and style, and their performance sounds natural and easy, like they’d always been performing it that way.
 
-[Watch Video Highlight](https://videopress.com/embed/Bi9K50MY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Bi9K50MY)
 
 Still, despite four stage-sharing occasions since, that 2008 performance remains the only time that Bruce has ever performed “A Matter of Trust” to this day.
 

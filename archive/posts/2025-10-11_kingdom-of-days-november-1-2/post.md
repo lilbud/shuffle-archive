@@ -14,7 +14,7 @@
 
 **1975:** Bruce and the boys bring the Born to Run Tour to the University of California at Santa Barbara.
 
-[Watch Video Highlight](https://videopress.com/embed/7LA0rFNW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7LA0rFNW)
 
 **1978:** The final leg of the Darkness Tour kicks off at Princeton University, where rambunctious fans cause damage to the host gymnasium and an early version of “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” receives its world premiere. Check out that first performance, plus the show’s soundcheck below.
 
@@ -22,13 +22,13 @@
 
 [Watch on Youtube: Prove it all night live 1978 - Princeton University - RARE VERSION](https://www.youtube.com/watch?v=9gwdqU99jP0)
 
-[Watch Video Highlight](https://videopress.com/embed/UialDtrj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UialDtrj)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/11/The_Central_New_Jersey_Home_News_1978_11_12_52-scaled.jpg)
 
 **1980:** Bruce officially lands his first Number One album when *The River* reaches the top of the album charts in the U.S. “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/),” the album’s first single, is #5 on the pop chart. That evening, Bruce and the band play their third of four shows at the Los Angeles Memorial Sports Arena, where they play “[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)” for the very first time. “[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)” is tour premiered, as is an encore of “[Sweet Little Sixteen](https://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/),” which the band plays with Jackson Browne. “[The Price You Pay](https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)” gets a new third verse as well.
 
-[Watch Video Highlight](https://videopress.com/embed/JQgFuHY7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JQgFuHY7)
 
 [Watch on Youtube: Bruce Springsteen - LA Sports Arena 11/1/80](https://www.youtube.com/watch?v=YCObGm0etTQ)
 
@@ -38,7 +38,7 @@
 
 **2003:** Bruce makes his fourth straight annual appearance at Light of Day IV at The Stone Pony, joining Garland Jeffreys for two songs and Joe Grushecky and the Houserockers for most of their set. Michael J. Fox joins in the fun on “[Light of Day](https://estreetshuffle.com/index.php/2018/12/06/roll-of-the-dice-light-of-day/).”
 
-[Watch Video Highlight](https://videopress.com/embed/JL3UesHO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JL3UesHO)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2003-11-01.png)
 

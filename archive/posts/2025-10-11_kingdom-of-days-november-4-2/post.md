@@ -46,7 +46,7 @@ At the recording session itself, Bruce works on “[Independence Day](https://es
 
 **2002:** The Rising Tour moves on to Houston, where Bruce plays a rare solo piano “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/).”
 
-[Watch Video Highlight](https://videopress.com/embed/wRtLFvfs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wRtLFvfs)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/11/The_Houston_Chronicle_2002_11_05_24.jpg)
 

@@ -54,7 +54,7 @@ Bruce plays three more songs (including “[If I Was the Priest](https://estreet
 
 **1996:** Bruce’s solo acoustic tour stops in Switzerland for a single show at Kongresshaus in Zurich. In honor of his Swiss hosts, Bruce performs “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” with extra yodeling.
 
-[Watch Video Highlight](https://videopress.com/embed/eqMkI4fK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eqMkI4fK)
 
 **1999:** On Night Two in Manchester on the Reunion Tour, Bruce plays “[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)” in England for the first time.
 
@@ -78,9 +78,9 @@ Bruce plays three more songs (including “[If I Was the Priest](https://estreet
 
 **2005:** At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Bruce tour premieres “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” “[If I Should Fall Behind,](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” “[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/),” and “[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/)” (in only its second performance ever).
 
-[Watch Video Highlight](https://videopress.com/embed/628Kn0VK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/628Kn0VK)
 
-[Watch Video Highlight](https://videopress.com/embed/K0obKMqu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/K0obKMqu)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Sun_Herald_Thu__May_5__2005_.jpg)
 
@@ -88,7 +88,7 @@ Bruce plays three more songs (including “[If I Was the Priest](https://estreet
 
 **2008:** Bruce wraps up the second U.S. leg of the Magic Tour with a show at BankAtlantic center in Sunrise, Florida, where he plays the tour premiere of “[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/).”
 
-[Watch Video Highlight](https://videopress.com/embed/zNJ22b8k?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zNJ22b8k)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/2008-05-02.jpg)
 

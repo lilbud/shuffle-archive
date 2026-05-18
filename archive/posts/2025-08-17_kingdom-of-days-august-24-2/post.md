@@ -26,7 +26,7 @@
 
 **1988:** Bruce makes a surprise appearance at Sting’s show at Madison Square Garden, dueting on “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” and “Message in a Bottle.” The two will shortly kick off a tour together in support of Amnesty International.
 
-[Watch Video Highlight](https://videopress.com/embed/NdZIIyTZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NdZIIyTZ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1988-08-24.png)
 
@@ -36,9 +36,9 @@
 
 **2002:** The Rising Tour’s barnstorming leg continues with a show at The Forum in Inglewood, California.
 
-[Watch Video Highlight](https://videopress.com/embed/zHuEISJq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zHuEISJq)
 
-[Watch Video Highlight](https://videopress.com/embed/ETN3jmzo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ETN3jmzo)
 
 [Watch on Youtube: Inglewood 24/08/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zBZFKBVhmGttZWHy11qCyk9)
 

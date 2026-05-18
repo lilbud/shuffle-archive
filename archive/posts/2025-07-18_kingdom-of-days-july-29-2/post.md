@@ -36,7 +36,7 @@
 
 **1981:** Southside Johnny guest-stars on “[I Don’t Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)” when Bruce and the E Street Band bring the River Tour to Richfield for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/NOq3rVa8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NOq3rVa8)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/07/1981-0729.jpg)
 
@@ -48,7 +48,7 @@
 
 **1999:** At Night Seven of the opening fifteen-night stand of the U.S. Reunion Tour in the Meadowlands, Bruce opens with the first “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” in 18 years and tour debuts (officially) a corny and charming “[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)” for Patti’s birthday. Bobby Bandiera makes an encore guest appearance on “[Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)”
 
-[Watch Video Highlight](https://videopress.com/embed/DMYBEQCE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DMYBEQCE)
 
 [Watch on Youtube: East Rutherford 29/07/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zBj_Sk6Ezsy7cxeo2jnkjqY)
 

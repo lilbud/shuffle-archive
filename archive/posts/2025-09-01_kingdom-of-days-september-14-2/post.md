@@ -48,7 +48,7 @@
 
 **2003:** At his Rising show in Chapel Hill, Bruce finally starts acknowledging his TOL/HT/LT era, tour premiering “[Brilliant Disguise,](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[Living Proof](https://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/),” the latter of which is its first E Street Band performance. The trend will continue throughout the rest of the tour, perhaps not coincidentally while *The Essential Bruce Springsteen* compilation is in production.
 
-[Watch Video Highlight](https://videopress.com/embed/QUWjxN0h?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QUWjxN0h)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/09/2003-09-14a.jpg)
 

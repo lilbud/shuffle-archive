@@ -34,7 +34,7 @@
 
 **2001:** In advance of the broadcast debut of *Live in New York City*, Bob Costas interviews Bruce for… HBO Sports? Watch Bob and Bruce talk baseball below.
 
-[Watch Video Highlight](https://videopress.com/embed/eMw2oVwM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eMw2oVwM)
 
 **2004:** Jon Bon Jovi, co-owner of the Philadelphia Soul arena football team, invites some friends to take in his team’s game against Colorado in his suite at the Wachovia Center. The broadcast team covering the team catches and refers to Bruce and Jon on camera several times, but Southside Johnny gets no love, and Al Gore gets… whatever.
 
@@ -50,7 +50,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/fMAiffph?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fMAiffph)
 
 **2023:** President Biden awards Bruce with the National Medal of Arts in the East Room of the White House.
 

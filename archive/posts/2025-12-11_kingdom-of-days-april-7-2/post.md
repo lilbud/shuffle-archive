@@ -26,21 +26,21 @@ Earlier that same day, Bruce and Dave Sancious drop by WMMR-FM in Philadelphia t
 
 **1981:** The European leg of The River Tour finally kicks off with Bruce’s first-ever show in Germany–at Congress Centrum in Hamburg, where Bruce covers “Rockin’ All Over the World” for the first time.
 
-[Watch Video Highlight](https://videopress.com/embed/0J18Oql6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0J18Oql6)
 
 **1993:** Bruce’s World Tour 1993 stops in Zurich for the first of two shows.
 
-[Watch Video Highlight](https://videopress.com/embed/US34fizl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/US34fizl)
 
-[Watch Video Highlight](https://videopress.com/embed/J7gKKYBn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/J7gKKYBn)
 
 **1995:** An interview with Australian journalist Molly Meldrum goes off the rails: scheduled as a fifteen-minute conversation at Sony Studios in New York as part of the promotional plan for *Greatest Hits*, Meldrum pushes forward tenaciously for a full ninety minutes, pressing Bruce for insights on his catalog with the deep knowledge and command of minutiae that only an obsessive fan could draw from. The result is fascinating–an essential listen for any serious Bruce fan.
 
-[Watch Video Highlight](https://videopress.com/embed/IBm32YRu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IBm32YRu)
 
 …and that interview isn’t the only one Bruce does today. I don’t know if it’s before or after, but Bruce also sits down with MTV’s Kurt Loder for an interview that will air the following month on MTV’s Week in Rock. (You can tell from the same shirt he’s wearing in the video below.)
 
-[Watch Video Highlight](https://videopress.com/embed/ibrpkquF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ibrpkquF)
 
 **2001:** *Live in New York City* debuts on HBO.
 

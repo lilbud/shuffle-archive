@@ -10,7 +10,7 @@
 
 **1988:** The Tunnel of Love Express Tour moves on to Chicagoland for the first of two nights at the Rosemont Horizon.
 
-[Watch Video Highlight](https://videopress.com/embed/N9EzSYt4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/N9EzSYt4)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-03-16.jpg)
 

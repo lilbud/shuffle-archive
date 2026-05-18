@@ -32,11 +32,11 @@
 
 **1984:** Bruce and the boys wrap up their four-night stand at the Capital Center in Largo, Maryland.
 
-[Watch Video Highlight](https://videopress.com/embed/lUINKgNF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lUINKgNF)
 
 **1992:** Night Two at The Philadelphia Spectrum on World Tour 1992 features the last “[All or Nothin’ at All](https://estreetshuffle.com/index.php/2018/01/30/roll-of-the-dice-all-or-nothing-at-all/)” for seventeen years and a “Follow That Dream” show closer.
 
-[Watch Video Highlight](https://videopress.com/embed/C5ZvQSju?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/C5ZvQSju)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-08-29.png)
 
@@ -46,9 +46,9 @@
 
 **2002:** On a rainy night, Bruce and the E Street Band kick off the MTV Video Music Awards, performing “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)” outside Hayden Planetarium in New York City for the cameras followed by a private 75-minute concert in the rain.
 
-[Watch Video Highlight](https://videopress.com/embed/DJSBoofS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DJSBoofS)
 
-[Watch Video Highlight](https://videopress.com/embed/GLcWAlPv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GLcWAlPv)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-29.png)
 

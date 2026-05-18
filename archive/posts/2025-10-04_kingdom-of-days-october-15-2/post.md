@@ -20,7 +20,7 @@
 
 **1988:** The Human Rights Now! Tour comes to a close with a worldwide radio broadcast from the finale in Buenos Aires. This last show features some special guest appearances: David Sancious joins his old band for “[Glory Days,](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” “[Raise Your Hand,](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” and “Twist and Shout”–the latter two featuring Branford Marsalis as well. HBO will air portions of the show in a documentary later in the year, and a DVD/Blu-ray collection will be released many years later.
 
-[Watch Video Highlight](https://videopress.com/embed/6Vqm2t6a?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6Vqm2t6a)
 
 [Watch on Youtube: Human Rights Now! 1988](https://www.youtube.com/watch?v=N3I1HLbqIkE)
 
@@ -34,7 +34,7 @@
 
 **1992:** Bruce and his new touring band take World Tour 1992 north to Canada for three shows, starting with a night at the Pacific Coliseum in Vancouver.
 
-[Watch Video Highlight](https://videopress.com/embed/jYfeO5ry?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jYfeO5ry)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1992-10-15.png)
 

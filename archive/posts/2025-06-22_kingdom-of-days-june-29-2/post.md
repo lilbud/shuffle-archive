@@ -18,7 +18,7 @@
 
 **1978:** Bruce and the E Street Band make a Darkness Tour stop at San Jose’s Center for the Performing Arts.
 
-[Watch Video Highlight](https://videopress.com/embed/e0eKZI7h?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e0eKZI7h)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/1978-0629.jpg)
 
@@ -32,7 +32,7 @@ Watch footage from the video premiere below, and then listen to a never-before-c
 
 [Watch on Youtube: Bruce Springsteen - "Dancing in the Dark" video premiere on MTV](https://www.youtube.com/watch?v=MKXlK0fmnTg)
 
-[Watch Video Highlight](https://videopress.com/embed/NV0vpTz3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NV0vpTz3)
 
 [Watch on Youtube: Bruce Springsteen - Dancing In the Dark (Official Video)](https://www.youtube.com/watch?v=129kuDCQtHs)
 
@@ -50,11 +50,11 @@ In the setlist, a couple of notable moments: Bruce covers “[Street Fighting Ma
 
 **1985:** The Born in the U.S.A. Tour arrives in Paris for the first of two nights at Parc de la Courneuve. The show was captured in stunning (for the time) video and audio quality.
 
-[Watch Video Highlight](https://videopress.com/embed/kmI7T1QT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kmI7T1QT)
 
-[Watch Video Highlight](https://videopress.com/embed/SgbjgGCB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SgbjgGCB)
 
-[Watch Video Highlight](https://videopress.com/embed/74jBxyo8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/74jBxyo8)
 
 [Watch on Youtube: Paris (6/29/1985)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1CoG7ABoOG_ENRC4fVWaMDj)
 
@@ -62,11 +62,11 @@ In the setlist, a couple of notable moments: Bruce covers “[Street Fighting Ma
 
 Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/),” Bruce’s latest single, climbs the charts and is profiled on *American Top 40*.
 
-[Watch Video Highlight](https://videopress.com/embed/bjCt8eEl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bjCt8eEl)
 
 **1988:** Night Two in Rotterdam on the Tunnel of Love Tour features the first performances of “[Chimes of Freedom](https://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)” and “[Paradise by the ‘C’](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)” in a decade.
 
-[Watch Video Highlight](https://videopress.com/embed/ewosTtgL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ewosTtgL)
 
 [Watch on Youtube: Bruce Springsteen Rotterdam 29/06/1988 Full Concert](https://www.youtube.com/watch?v=s3oWgq4VYCQ)
 
@@ -80,7 +80,7 @@ Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to Paris for the first of two nights at Palais Omnisports de Paris-Bercy, where Bruce reveals that “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” and “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” share a common character.
 
-[Watch Video Highlight](https://videopress.com/embed/3NLub5G0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3NLub5G0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/The_Jersey_Journal_1992_07_01_24-scaled.jpg)
 
@@ -120,7 +120,7 @@ Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-
 
 **2016:** The River Tour (2016 edition) *almost* returns to its original form in Oslo, with at least 13 songs from the album making the setlist.
 
-[Watch Video Highlight](https://videopress.com/embed/5RghO2RM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5RghO2RM)
 
 [Watch on Youtube: Bruce Springsteen - I'm a Rocker (Oslo 2016/06/29)](https://www.youtube.com/watch?v=cH73sVMiH4A)
 

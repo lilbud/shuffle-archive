@@ -22,7 +22,7 @@
 
 **1993:** Bruce and his new touring band rehearse in Glasgow before kicking off World Tour 1993. Listen in on the rehearsal session below.
 
-[Watch Video Highlight](https://videopress.com/embed/QSdKEveK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QSdKEveK)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30a.png)
 
@@ -32,7 +32,7 @@
 
 **2000:** The Reunion Tour comes to the Pepsi Center in Denver for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/wXh0vJHg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wXh0vJHg)
 
 **2008:** In town a day early for their show in Vancouver, Bruce and Max take their sons to see Foo Fighters and Against Me at the Pacific Coliseum.
 
@@ -50,4 +50,4 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/fLwEconT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fLwEconT)

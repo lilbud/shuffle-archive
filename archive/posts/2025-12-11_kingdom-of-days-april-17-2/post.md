@@ -10,17 +10,17 @@
 
 **1977:** Bruce joins Southside Johnny and the Asbury Jukes at The Stone Pony for four songs.
 
-[Watch Video Highlight](https://videopress.com/embed/ztiTtNxb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ztiTtNxb)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1977-0417.jpg)
 
 **1988:** Bruce’s Tunnel of Love Express show at the St. Louis Arena is captured by a fan on film. Watch the full show here:
 
-[Watch Video Highlight](https://videopress.com/embed/L1ps9QQt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/L1ps9QQt)
 
-[Watch Video Highlight](https://videopress.com/embed/QauqQWqO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QauqQWqO)
 
-[Watch Video Highlight](https://videopress.com/embed/1nnfAY8D?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1nnfAY8D)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-17a.jpg)
 
@@ -28,7 +28,7 @@
 
 **1996:** Bruce plays a second solo acoustic show at Royal Albert Hall in London, where “The Wish” is played for the first time in the U.K. This show was rescheduled from its original date in March.
 
-[Watch Video Highlight](https://videopress.com/embed/ueRkPB8b?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ueRkPB8b)
 
 **1999:** The Reunion Tour arrives in Italy, starting with a single show in Bologna. The set list features a rare outing for “Brilliant Disguise” and an unusual opening arrangement for “She’s the One.”
 

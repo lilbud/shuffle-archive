@@ -24,7 +24,7 @@
 
 **2006:** Bruce wins the Best Solo Rock Vocal Performance Grammy award for “[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)” and performs the song live at the awards ceremony.
 
-[Watch Video Highlight](https://videopress.com/embed/MO78meba?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MO78meba)
 
 “Devils & Dust” was also nominated for Song of the Year, Best Rock song, and Best Long Form Music Video, but it does not win those categories. *Devils & Dust* (the album) is nominated for but does not win the Best Contemporary Folk Album award. Bruce returns to the stage for the finale to perform Wilson Pickett’s “[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/).”
 
@@ -40,9 +40,9 @@
 
 [Watch on Youtube: Bruce Springsteen MusiCares Person Of The Year speech](https://www.youtube.com/watch?v=7jxS86fRNSQ)
 
-[Watch Video Highlight](https://videopress.com/embed/mJcUCMse?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mJcUCMse)
 
-[Watch Video Highlight](https://videopress.com/embed/TRSGY4rQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TRSGY4rQ)
 
 [Watch on Youtube: GRAMMY Live - MusiCares Tribute To Bruce Springsteen](https://www.youtube.com/watch?v=J467YgHAph4)
 

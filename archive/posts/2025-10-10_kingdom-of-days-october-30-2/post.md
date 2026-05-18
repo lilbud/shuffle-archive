@@ -46,7 +46,7 @@ Also today, Bruce donates a complete signed collection of his albums to The Rain
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to Iowa State University in Ames.
 
-[Watch Video Highlight](https://videopress.com/embed/9XFkbcPs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9XFkbcPs)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/10/1992-10-30a.png)
 
@@ -94,7 +94,7 @@ Also today, Bruce donates a complete signed collection of his albums to The Rain
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/10/2018-10-30a.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/PAyeM8Lt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PAyeM8Lt)
 
 **2019:** Fifth-grader Camryn Sherer interviews Bruce for her school newspaper and scores a genuine scoop when she asks him to share something no one knows about him.
 
@@ -102,4 +102,4 @@ Also today, Bruce donates a complete signed collection of his albums to The Rain
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/10/2019-10-30b-1.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/PT93WuXK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PT93WuXK)

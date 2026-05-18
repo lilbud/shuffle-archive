@@ -24,7 +24,7 @@
 
 **1981:** Bruce and the E Street Band play their second of two nights at Detroit’s Joe Louis Arena on the original River Tour. Mitch Ryder makes a guest appearance during the encores on (what else?) “[Detroit Medley.](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)”
 
-[Watch Video Highlight](https://videopress.com/embed/O8YUTq5R?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/O8YUTq5R)
 
 [Watch on Youtube: Detroit 12/08/1981](https://www.youtube.com/playlist?list=PLJTyL9twk3zA1TFgf6jVO6s3jMFbLoHkt)
 
@@ -48,7 +48,7 @@
 
 [Watch on Youtube: Bruce Springsteen with JBJ And Richie Hungry Heart](https://www.youtube.com/watch?v=tp5QXKa6DIU)
 
-[Watch Video Highlight](https://videopress.com/embed/kGzGDIv0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kGzGDIv0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1999-08-12.png)
 
@@ -56,7 +56,7 @@
 
 [Watch on Youtube: Bruce Springsteen Madison Square Garden New York 12/08/2002 Full Concert](https://www.youtube.com/watch?v=bFys3yQTPIc)
 
-[Watch Video Highlight](https://videopress.com/embed/pNq9JhnV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pNq9JhnV)
 
 [Bruce Springsteen - Countin' on a miracle](https://geo.dailymotion.com/player.html?video=x2netx&)
 

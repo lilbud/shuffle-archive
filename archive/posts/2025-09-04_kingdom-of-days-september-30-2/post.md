@@ -86,7 +86,7 @@
 
 **2002:** The Rising Tour stops at the Xcel Energy Center in St. Paul, where Bruce tour premieres “[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)” and plays “[Nothing Man](https://estreetshuffle.com/index.php/2020/08/29/roll-of-the-dice-nothing-man/)” for the very first time.
 
-[Watch Video Highlight](https://videopress.com/embed/MzX3Rod6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MzX3Rod6)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/2002-09-30.jpg)
 

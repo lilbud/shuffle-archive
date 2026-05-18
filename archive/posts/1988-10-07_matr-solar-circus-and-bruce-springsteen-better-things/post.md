@@ -24,7 +24,7 @@ We do have the band’s live performance with Bruce that night, though–and eve
 
 And even if it wasn’t: you’d know Bruce was on stage just from the taper/bouncer chatter unfortunately captured in the foreground. A hat tip to the persistent taper who managed to come away with a pretty great recording regardless!
 
-[Watch Video Highlight](https://videopress.com/embed/Ub94o55O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ub94o55O)
 
 If you’re looking for more definitive evidence of Bruce’s on-stage contribution, check out this video clip from that performance. Only the last three-and-a-half minutes or so were captured, but there’s a pretty great “Mustang Sally” at the end of it (with Bruce’s vocals) as a bonus.
 

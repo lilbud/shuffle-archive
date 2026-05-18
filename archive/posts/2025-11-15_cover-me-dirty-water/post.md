@@ -14,7 +14,7 @@ By the 21st century, however, “Dirty Water” had been lovingly embraced by sp
 
 Which is exactly where Bruce next played it: at the FleetCenter (formerly the Boston Garden) with hometown hero Peter Wolf joining Bruce and the E Street Band on stage for a special final encore on the Rising Tour in 2002.
 
-[Watch Video Highlight](https://videopress.com/embed/aJw4ucuO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/aJw4ucuO)
 
 But it wasn’t just the local hockey fans who adopted “Dirty Water” as their anthem–Red Sox fans laid claim to it too, and pretty soon “Dirty Water” was being played after home team victories at Fenway Park. So when Bruce made his debut appearance at the ballpark in 2003, both “Dirty Water” and Peter Wolf were on hand once again for the occasion.
 

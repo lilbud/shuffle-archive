@@ -38,7 +38,7 @@
 
 **1999:** Bruce and the E Street Band wrap up the European leg of their Reunion Tour at Valle Hovin Stadion in Oslo.
 
-[Watch Video Highlight](https://videopress.com/embed/do8EXp88?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/do8EXp88)
 
 **2000:** The Reunion Tour has the finish line in sight now–this is Night Eight of ten at the last stand at Madison Square Garden. This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26182/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-27-2000-Madison-Square-Garden-New-York-NY.html).
 
@@ -86,7 +86,7 @@ Bruce opens his own set with his first and only performance of “[Coma Girl,](h
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/XBcyMolZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XBcyMolZ)
 
 **2024:** Bruce and the E Street Band tour debut “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” when World Tour ’24 comes to Nijmegen in The Netherlands. Stream or buy this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-goffertpark-nijmegen-netherlands-06-27-2024-mp3-flac-or-online-music-streaming/35854.html).
 

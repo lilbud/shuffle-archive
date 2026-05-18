@@ -14,7 +14,7 @@
 
 **1982:** Bruce makes a guest appearance with Sonny Kenn and the Wild Ideas at Big Man’s West in Red Bank.
 
-[Watch Video Highlight](https://videopress.com/embed/lzcXNflW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lzcXNflW)
 
 **1984:** “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)” is released as the second single off of the red-hot *Born in the U.S.A.* album. It will peak at #7 on the charts.
 
@@ -22,13 +22,13 @@
 
 That evening, Bruce tour premieres “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” at Night Two in Detroit on the Born in the U.S.A. Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/1IZ822FI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1IZ822FI)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-31.png)
 
 **1987:** Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/),” “La Bamba,” and “Twist and Shout.”
 
-[Watch Video Highlight](https://videopress.com/embed/91vNP1rr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/91vNP1rr)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1987-07-31a.png)
 
@@ -42,7 +42,7 @@ That evening, Bruce tour premieres “[Growin’ Up](https://estreetshuffle.com/
 
 **2001:** Bruce makes a surprise guest appearance at the Count Basie Theater in Red Bank, joining Bruce Hornsby for the final encore of “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/).”
 
-[Watch Video Highlight](https://videopress.com/embed/EQ77Afpd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EQ77Afpd)
 
 **2005:** Bruce plays a stunning acoustic show in Columbus, playing “[Lift Me Up](https://estreetshuffle.com/index.php/2018/05/20/roll-of-the-dice-lift-me-up/)” for the first time ever, and tour premiering “[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)” and “[Back in Your Arms.](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)” This show is available as part of Bruce’s official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,13061/Bruce-Springsteen-mp3-flac-download-7-31-2005-Schottenstein-Center-Columbus-OH.html)), and it’s a wonderful listen.
 

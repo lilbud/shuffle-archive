@@ -20,7 +20,7 @@
 
 **1978:** The Darkness Tour moves on to Boutwell Memorial Auditorium in Birmingham. (Photo credit: William E. Allen)
 
-[Watch Video Highlight](https://videopress.com/embed/PNdFeC4l?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PNdFeC4l)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/09/Birmingham_Post_Herald_1978_09_30_19-scaled.jpg)
 
@@ -30,7 +30,7 @@
 
 **1985:** Bruce and the E Street Band play their second of four shows at the final stand of the Born in the U.S.A. Tour in Los Angeles. In attendance tonight: The cast of television’s *Growing Pains*.
 
-[Watch Video Highlight](https://videopress.com/embed/Tu2dlnHp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Tu2dlnHp)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/09/1985-09-29.jpg)
 
@@ -66,7 +66,7 @@
 
 **2002:** Bruce tour premieres “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” when the Rising Tour stops at the Fargodome in North Dakota.
 
-[Watch Video Highlight](https://videopress.com/embed/VydrrUiL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VydrrUiL)
 
 **2004:** Bruce, the E Street Band, and John Fogerty rehearse at Asbury Park’s Convention Hall for their upcoming Vote for Change Tour.
 

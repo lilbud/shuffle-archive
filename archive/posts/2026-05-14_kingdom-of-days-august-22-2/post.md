@@ -10,7 +10,7 @@
 
 **1976:** The original Miami Horns (also known as the Asbury Jukes horn section) make their final appearance with Bruce and the E Street Band at their show at the Springfield Civic Center.
 
-[Watch Video Highlight](https://videopress.com/embed/Byyk5H71?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Byyk5H71)
 
 **1978:** At Night Two of a three-night Darkness Tour stand at Madison Square Garden, Bruce brings his sixteen-year-old kid sister Pam on stage during the final encore.
 
@@ -42,13 +42,13 @@
 
 **1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm's All-Stars for "Up on Cripple Creek" and "L[ucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)."
 
-[Watch Video Highlight](https://videopress.com/embed/gxirqWhO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gxirqWhO)
 
 ![](../../assets/2024/08/Press_of_Atlantic_City_1987_08_28_64-scaled.jpg)
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to the Richfield Coliseum for the second of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/bFZgm7vd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bFZgm7vd)
 
 **1999:** Bruce and the E Street Band play their second of five Reunion shows at Boston's Fleet Center.
 

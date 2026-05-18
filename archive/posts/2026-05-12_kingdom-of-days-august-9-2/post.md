@@ -40,13 +40,13 @@
 
 **1984:** At Night Four of Ten at the Meadowlands during the Born in the U.S.A. Tour, J. T. Bowen guest-stars for a one-time-only (until 2011) cover of "A Woman's Got the Power," played for Bruce's mom, who is in the audience along with his father.
 
-[Watch Video Highlight](https://videopress.com/embed/t5cDigsh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/t5cDigsh)
 
 **1985:** The Born in the U.S.A. stadium tour lands at Soldier Field in Chicago, and the show is captured in stellar quality.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=l-IRmIGFCnc)
 
-[Watch Video Highlight](https://videopress.com/embed/MKWi66OU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MKWi66OU)
 
 ![](../../assets/2021/08/1985-08-09a.png)
 
@@ -54,7 +54,7 @@
 
 **1987:** Bruce and the E Street Band play a mostly-covers set at The Stone Pony in Asbury Park for the second week running.
 
-[Watch Video Highlight](https://videopress.com/embed/MVKuXisC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MVKuXisC)
 
 **1989:** *Born in the U.S.A.* is certified 11x multi-platinum by the Recording Industry Association of America.
 
@@ -72,11 +72,11 @@
 
 **1999:** Night Thirteen of fifteen at the Meadowlands sees the Reunion Tour premiere and one-off performance of "Frankie," not heard from in 23 years. During "Spirit in the Night," Bruce opens the show with "Darkness on the Edge of Town" (the second and last time to date that song has ever opened a show) and invites lifelong friend (and recent conga convert) Steve Eitelberg to join him on stage, making good on an alcohol-fueled promise.
 
-[Watch Video Highlight](https://videopress.com/embed/R5VjRrxz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/R5VjRrxz)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zJN-z0HPSFk)
 
-[Watch Video Highlight](https://videopress.com/embed/tPOid8Zg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tPOid8Zg)
 
 ![](../../assets/2021/08/1999-08-09a.png)
 
@@ -84,7 +84,7 @@
 
 **2003:** Bruce and the band play their second of three nights at Philadelphia's Lincoln Financial Field on the Rising Tour's stadium leg.
 
-[Watch Video Highlight](https://videopress.com/embed/X1CpfvCE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/X1CpfvCE)
 
 **2005:** *Devils & Dust* is certified gold by the Recording Industry Association of America.
 

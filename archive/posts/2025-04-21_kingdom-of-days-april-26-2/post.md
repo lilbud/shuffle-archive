@@ -18,7 +18,7 @@
 
 **1981:** Bruce plays his first-ever show in Belgium (and the first ever “Stolen Car” in Europe) when the River Tour arrives in Brussels.
 
-[Watch Video Highlight](https://videopress.com/embed/UyXUhTpJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UyXUhTpJ)
 
 **1982:** Bruce in the studio at the Power Station in New York, recording for what will become *Born in the U.S.A.*
 
@@ -32,13 +32,13 @@
 
 **1999:** Bruce and the E Street Band bring the Reunion Tour to Zurich.
 
-[Watch Video Highlight](https://videopress.com/embed/5QWqHj9x?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5QWqHj9x)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/Richmond_Times_Dispatch_Wed__Apr_28__1999_.jpg)
 
 **2000:** At Night Two at the Mellon Arena in Pittsburgh, Bruce and the E Street Band perform a rare “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/),” and Joe Grushecky guest-stars on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).”
 
-[Watch Video Highlight](https://videopress.com/embed/zjtTvBOg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zjtTvBOg)
 
 **2005:** Bruce releases *Devils & Dust,* his thirteenth studio album. (The album was released in Europe a day earlier.)
 
@@ -52,15 +52,15 @@
 
 **2006:** Bruce and the Sessions Band play their final rehearsal show at Asbury Park’s Convention Hall, opening and closing with debuts of “[Long Black Veil](https://estreetshuffle.com/index.php/2020/02/05/cover-me-long-black-veil/)” and “[The Daring Young Man on the Flying Trapeze](https://estreetshuffle.com/index.php/2020/08/17/cover-me-the-daring-young-man-on-the-flying-trapeze/)” respectively.
 
-[Watch Video Highlight](https://videopress.com/embed/KUutZZqM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KUutZZqM)
 
-[Watch Video Highlight](https://videopress.com/embed/ALCqbDLc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ALCqbDLc)
 
-[Watch Video Highlight](https://videopress.com/embed/DJlY4vR9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DJlY4vR9)
 
-[Watch Video Highlight](https://videopress.com/embed/PRFZ4rAF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PRFZ4rAF)
 
-[Watch Video Highlight](https://videopress.com/embed/ALvXy4hE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ALvXy4hE)
 
 **2009:** The Working on a Dream Tour stops in Atlanta for a show at the Philips Arena. “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/),” “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/),” and “[96 Tears](https://estreetshuffle.com/index.php/2020/02/15/matr-bruce-springsteen-and-garland-jeffreys-96-tears/)” make their tour debuts.
 

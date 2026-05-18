@@ -12,7 +12,7 @@
 
 **1981:** Bruce plays his first-ever show in Norway, when the River Tour comes to Drammen.
 
-[Watch Video Highlight](https://videopress.com/embed/fZwe49y9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fZwe49y9)
 
 **1982:** At The Power Station studio in New York City, Bruce and the E Street Band record “Glory Days,” “My Love Will Not Let You Down,” “A Good Man Is Hard to Find (Pittsburgh)” and the still unreleased “Stop the War.”
 
@@ -24,11 +24,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/rolling-stone-cover-volume-525-5-5-1988-bruce-springsteen.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/HsrTnjy0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HsrTnjy0)
 
-[Watch Video Highlight](https://videopress.com/embed/Y8IhKbo6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Y8IhKbo6)
 
-[Watch Video Highlight](https://videopress.com/embed/htl1ckUK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/htl1ckUK)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/1988-05-05-save.jpg)
 
@@ -70,7 +70,7 @@
 
 **2006:** The first European leg of the Seeger Sessions Tour kicks off at the Point Theater in Dublin with the tour debuts of “Adam Raised a Cain” and “Erie Canal.”
 
-[Watch Video Highlight](https://videopress.com/embed/kPchYwxD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kPchYwxD)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Independent_Sat__May_6__2006_.jpg)
 
@@ -82,7 +82,7 @@
 
 **2019:** Bruce appears at the opening night of Netflix’s third annual FYSEE event, playing two songs and joining director Martin Scorsese for a Q&A session.
 
-[Watch Video Highlight](https://videopress.com/embed/V78DhEJp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/V78DhEJp)
 
 [Dailymotion Video Player](https://www.dailymotion.com/embed/video/x77q6yr)
 

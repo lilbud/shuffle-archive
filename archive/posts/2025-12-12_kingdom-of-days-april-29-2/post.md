@@ -28,7 +28,7 @@
 
 Later in the show, Bruce performs “Racing in the Street,” but something moves him to do something unusual during the song’s majestic coda.
 
-[Watch Video Highlight](https://videopress.com/embed/wpKaZCbf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wpKaZCbf)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_New_Standard_Tue__May_5__1981_.jpg)
 
@@ -38,9 +38,9 @@ Later in the show, Bruce performs “Racing in the Street,” but something move
 
 **2003:** At the Count Basie Theater in Red Bank, Bruce performs at *The Hope Concert*, a benefit for Bobby Bandiera’s son. Backed by Bobby’s band, Bruce is joined by Southside Johnny, Jon Bon Jovi, Gary U.S. Bonds, and The Max Weinberg 7. The show is full of great performances and team-ups, including Bruce joining Southside Johnny on “The Fever” and Gary U.S. Bonds on “This Little Girl.”
 
-[Watch Video Highlight](https://videopress.com/embed/mg0oCgf7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mg0oCgf7)
 
-[Watch Video Highlight](https://videopress.com/embed/Ga6Verkm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ga6Verkm)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2003-04-29a.jpg)
 
@@ -50,13 +50,13 @@ Later in the show, Bruce performs “Racing in the Street,” but something move
 
 **2009:** Night Two at the Spectrum in Philadelphia brought with it the tour premieres of “London Calling,” “Red Headed Woman,” “Thundercrack,” “Streets of Philadelphia,” and an epic, show-closing “Kitty’s Back.”
 
-[Watch Video Highlight](https://videopress.com/embed/PrRDgKjw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PrRDgKjw)
 
-[Watch Video Highlight](https://videopress.com/embed/PAT6I6NT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PAT6I6NT)
 
-[Watch Video Highlight](https://videopress.com/embed/x7PFpbRt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/x7PFpbRt)
 
-[Watch Video Highlight](https://videopress.com/embed/1ospUpnN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1ospUpnN)
 
 [Watch on Youtube: Bruce Springsteen - London Calling (April 29, 2009 Philadelphia)](https://www.youtube.com/watch?v=FRKaQL9_sog)
 

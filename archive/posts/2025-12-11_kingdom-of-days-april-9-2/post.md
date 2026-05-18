@@ -6,7 +6,7 @@
 
 **1974:** Bruce and most of the E Street Band (Boom Carter is not in attendance) drop by WBCN-FM in Boston before playing two shows at Charlie’s Place in Cambridge. The radio broadcast is well worth a listen–check out the acoustic arrangement of “Rosalita (Come Out Tonight)” and the first documented performance of the alternative third verse for “4th of July, Asbury Park (Sandy).”
 
-[Watch Video Highlight](https://videopress.com/embed/u6HITmag?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/u6HITmag)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/33978719418_90457a3bf7_o.jpg)
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: An Evening with Bruce Springsteen and the Colgate Social Committee 1976-1986](https://www.youtube.com/watch?v=7YUeYbdMnnk)
 
-[Watch Video Highlight](https://videopress.com/embed/75QkE4yD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/75QkE4yD)
 
 **1979:** Bruce and the E Street Band record tracks for *The River* at the Power Station in New York City.
 
@@ -22,7 +22,7 @@
 
 **1981:** As the European leg of The River Tour gains steam, Bruce begins opening the show with “Factory” in West Berlin–the first time Bruce has ever played this song in Europe.
 
-[Watch Video Highlight](https://videopress.com/embed/6J9ty986?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6J9ty986)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0409.jpg)
 
@@ -60,13 +60,13 @@
 
 **2000:** Kansas City gets an outstanding set list for their Reunion show: Bruce opens with “Take ‘Em as They Come” and plays “Downbound Train” and “Racing in the Street” later in the set.
 
-[Watch Video Highlight](https://videopress.com/embed/TwY6egiH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TwY6egiH)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2000-04-10-scaled.jpg)
 
 **2003:** The Rising Tour returns to North America as Bruce and the band play Arco Arena in Sacramento. During the soundcheck, Bruce plays a new song for the first time: “Devils & Dust.”
 
-[Watch Video Highlight](https://videopress.com/embed/ZiX2cHWZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZiX2cHWZ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/04/2003-04-09a.jpg)
 
@@ -74,9 +74,9 @@
 
 **2012:** Night Two at Madison Square Garden for the Wrecking Ball Tour. The set list features the tour premieres of “Spirit in the Night” and “Backstreets,” and the show breaks the three-hour mark.
 
-[Watch Video Highlight](https://videopress.com/embed/OuA08kLJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OuA08kLJ)
 
-[Watch Video Highlight](https://videopress.com/embed/ZFKqPKyJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZFKqPKyJ)
 
 **2018:** The Hear the World Foundation announces that Bruce will serve as an ambassador to raise awareness for the non-profit organization’s campaign to prevent hearing loss.
 

@@ -2,11 +2,11 @@ Even by Bruce’s standards, it was a late start: Rumor had it that Bruce had ta
 
 Whatever the reason for the hour-plus delay, when the show finally started with Bruce and Clarence’s benediction, it rocketed out of the gate. From the moment I first heard it, “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)” would forever be my favorite opener for a Springsteen concert, and although the setlist may not have held any premieres or surprises, I hadn’t yet discovered the on-line community sites with setlist discussions, so everything was fresh and new to me.
 
-[Watch Video Highlight](https://videopress.com/embed/KyuwuVe8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KyuwuVe8)
 
 This was my first (and only) Reunion show, and the show that re-hooked me on Bruce’s music. The new arrangements of “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/),” “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/),” “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” and “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” reinvented those songs for me, the outtakes (“My Love,” “[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)“) were instant classics, and “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)” became my new and forever-after anthem.
 
-[Watch Video Highlight](https://videopress.com/embed/P8RSioXo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/P8RSioXo)
 
 I decided pretty late in the game to go see this show. I thought my appreciation of Bruce’s music was pretty much over; I hadn’t seen a show since 1988. Only after reading a magazine article waxing poetic about the power of these Reunion shows did I decide to give it a look. I wish I’d kept that magazine, because it gave me the gift of rediscovery and introduction to a community, and in this era of information overflow and spoilers, that’s a tough experience to recapture.
 

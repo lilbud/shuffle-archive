@@ -12,7 +12,7 @@
 
 That night, the Born in the U.S.A. Tour stops in Louisville at Freedom Hall.
 
-[Watch Video Highlight](https://videopress.com/embed/MzSZ6D7E?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MzSZ6D7E)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/1985-01-10b.png)
 

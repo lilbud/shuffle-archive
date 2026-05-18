@@ -14,7 +14,7 @@
 
 **1975:** There’s a *before* and an *after* with Bruce’s career, and both pivot around Bruce’s legendary residency at New York’s Bottom Line. This is the last *before* show at the Allen Theater in Cleveland. Bruce closes the show with a solo piano tour premiere of “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)” — a quiet end to this phase of Bruce’s career.
 
-[Watch Video Highlight](https://videopress.com/embed/8b5JAfx4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8b5JAfx4)
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Cleveland, OH 1975-08-10](https://www.youtube.com/watch?v=9vRWqczh7U4)
 
@@ -26,7 +26,7 @@
 
 **1978:** Bruce and the E Street Band take the Darkness Tour to the Community War Memorial in Rochester. Listen to the boys open the second set with “[Sweet Little Sixteen](https://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)” below.
 
-[Watch Video Highlight](https://videopress.com/embed/PLGJLODI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PLGJLODI)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1978-08-10.png)
 
@@ -34,7 +34,7 @@
 
 **1992:** Bruce wraps up the eleven-night World Tour 1992 stand at the Meadowlands in style, opening with an acoustic “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” (with only Roy as accompaniment) and the only tour performance of “Rosalita (Come Out Tonight).” Steve Van Zandt joins the band for “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” and “[Darlington County.](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)”
 
-[Watch Video Highlight](https://videopress.com/embed/cFhy9Txg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cFhy9Txg)
 
 [Watch on Youtube: Rosalita Bruce Springsteen 8/10/1992](https://www.youtube.com/watch?v=q9aFxSs6nFE)
 
@@ -62,7 +62,7 @@ Entertainment Tonight airs a segment covering the end of the marathon run of sho
 
 **2002:** Night Two on the Rising Tour is pretty similar to opening night. At the MCI Center in Washington, DC, Bruce drops “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” and replaces it with the tour premiere of “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/).”
 
-[Watch Video Highlight](https://videopress.com/embed/Atz3RHXN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Atz3RHXN)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-10.png)
 

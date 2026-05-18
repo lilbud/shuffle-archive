@@ -22,7 +22,7 @@
 
 **1981:** Bruce and the E Street Band play Iowa State University on The River Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/UVgOmD6M?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UVgOmD6M)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Des_Moines_Register_1981_01_30_Page_7.jpg)
 
@@ -34,7 +34,7 @@
 
 **1997:** Bruce plays the second night of four in Tokyo on his solo acoustic tour.
 
-[Watch Video Highlight](https://videopress.com/embed/4XW8xsgT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4XW8xsgT)
 
 **1998:** At the Paramount Theater in Asbury Park, Bruce rehearses for an upcoming benefit concert for slain police office Patrick King.
 

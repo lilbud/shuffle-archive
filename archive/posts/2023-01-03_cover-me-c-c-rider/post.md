@@ -1,6 +1,6 @@
 Now *this* is The Bruce Springsteen Band. Remember that heavy recording of “[Do It With a Feeling](https://estreetshuffle.com/index.php/2021/08/28/roll-of-the-dice-do-it-with-a-feeling/)” we listened to yesterday? Compare that with this gorgeous stereo recording of the blues standard “C.C. Rider.”
 
-[Watch Video Highlight](https://videopress.com/embed/hrH99RUi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hrH99RUi)
 
 Hard to believe that’s the same band, isn’t it? That’s the difference a choice of material makes. The Bruce Springsteen Band was born to swing and built for the blues, and it doesn’t get much bluesier than “C.C. Rider.”
 

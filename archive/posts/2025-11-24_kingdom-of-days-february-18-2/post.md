@@ -24,7 +24,7 @@
 
 **1996:** Bruce wraps up the German leg of his European solo acoustic tour with a show in Dusseldorf.
 
-[Watch Video Highlight](https://videopress.com/embed/qsGD2AcQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qsGD2AcQ)
 
 **2016:** The River (2016) Tour moves on to Philips Arena in Atlanta.
 

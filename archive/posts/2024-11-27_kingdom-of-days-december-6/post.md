@@ -6,7 +6,7 @@
 
 **1973:** Bruce and the E Street Band play three sets at Childe Harold in Washington DC–their first of three nights. The last set is broadcast by WGTB-FM at Georgetown University.
 
-[Watch Video Highlight](https://videopress.com/embed/gpLNM4eW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gpLNM4eW)
 
 **1974:** Bruce and the boys play a show at the New Jersey State Theater in New Brunswick.
 
@@ -56,7 +56,7 @@ Also on this date, Bruce appears on the cover of *Rolling Stone*.
 
 **1996:** Bruce performs a solo acoustic show at the Birmingham-Jefferson Civic Center Concert Hall in Alabama, where he plays “[Sell It and They Will Come](https://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/)” for the last time to date.
 
-[Watch Video Highlight](https://videopress.com/embed/vhkplizF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vhkplizF)
 
 [Watch on Youtube: Birmingham 29/02/1996](https://www.youtube.com/playlist?list=PLJTyL9twk3zDwD2kjnWXOgedmvtxr8aLV)
 

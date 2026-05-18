@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8jvarthD60U)
 
-[Watch Video Highlight](https://videopress.com/embed/MtTTMnWz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MtTTMnWz)
 
 Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad's Place.
 
@@ -40,7 +40,7 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad's
 
 **1992:** World Tour 1992 moves on to the Washington DC area, with the first of two shows at the Capital Center in Largo. Bruce plays "Dancing in the Dark" for the last time on the tour. It will surface once more next year, and then not again until the Reunion Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/BgCpUOF3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BgCpUOF3)
 
 ![](../../assets/2020/08/1992-08-25a.png)
 
@@ -56,7 +56,7 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad's
 
 **2002:** The Rising Tour continues its western swing with a show at the America West Arena in Phoenix.
 
-[Watch Video Highlight](https://videopress.com/embed/XnVrtmDw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XnVrtmDw)
 
 ![](../../assets/2020/08/2002-08-25a.png)
 
@@ -68,7 +68,7 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad's
 
 **2009:** Jay Weinberg flies solo on drums for the entire Working on a Dream show in Saratoga Springs, but it's the soundcheck that's most interesting about this show: check out a rare "Spare Parts" and Little Steven on lead vocals for "Prove It All Night" and "Hungry Heart."
 
-[Watch Video Highlight](https://videopress.com/embed/AmZyGrtP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AmZyGrtP)
 
 ![](../../assets/2021/08/2009-08-25.jpg)
 

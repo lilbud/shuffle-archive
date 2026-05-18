@@ -10,9 +10,9 @@
 
 **1993:** At the second of two shows in Zurich, Bruce plays “Dancing in the Dark” for the first and only time this year and tour debuts “Rockin’ All Over the World.”
 
-[Watch Video Highlight](https://videopress.com/embed/D126GX2S?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/D126GX2S)
 
-[Watch Video Highlight](https://videopress.com/embed/tvOHIouc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tvOHIouc)
 
 [Watch on Youtube: Sample Bruce Springsteen Zürich 1993 04 08 complete show](https://www.youtube.com/watch?v=I-FAIxCEA98)
 
@@ -22,7 +22,7 @@
 
 **2000:** The Reunion Tour returns to the American Midwest for a show at Kiel Center in St. Louis.
 
-[Watch Video Highlight](https://videopress.com/embed/Yl8UjR7w?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Yl8UjR7w)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2000-04-08a.jpg)
 

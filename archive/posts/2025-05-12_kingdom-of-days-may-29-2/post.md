@@ -14,7 +14,7 @@
 
 **1978:** The still-young Darkness Tour reaches Boston for the first of three nights. This show features the first segue of “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” into “Thunder Road,” which will remain a staple of the set for the remainder of the tour. The J. Geils Band is in attendance tonight, and Peter Wolf hangs out with Bruce and the band after the show.
 
-[Watch Video Highlight](https://videopress.com/embed/XXl8vEEQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XXl8vEEQ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-05-29.jpg)
 
@@ -36,7 +36,7 @@
 
 **1982:** Bruce and Southside Johnny join Beaver Brown on stage at Big Man’s West in Red Bank.
 
-[Watch Video Highlight](https://videopress.com/embed/oqbaupOb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oqbaupOb)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/1982-05-29.jpg)
 
@@ -60,11 +60,11 @@
 
 **1999:** Bruce and the E Street Band deliver a typical Night One show at the first of two Reunion shows in Berlin.
 
-[Watch Video Highlight](https://videopress.com/embed/3HRnAU3V?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3HRnAU3V)
 
 **2000:** When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” for the first time in 19 years.
 
-[Watch Video Highlight](https://videopress.com/embed/7evt8l2F?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7evt8l2F)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29a.jpg)
 

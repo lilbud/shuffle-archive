@@ -24,7 +24,7 @@
 
 **1988:** At Night Two at Villa Park in Birmingham, England, on the Tunnel of Love Tour, Edwin Starr drops by to perform “[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)” with the band.
 
-[Watch Video Highlight](https://videopress.com/embed/BFpYsmqK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BFpYsmqK)
 
 [Watch on Youtube: Bruce Springsteen Birmingham 22/6/1988](https://www.youtube.com/watch?v=IWi4gO40EH0)
 
@@ -32,7 +32,7 @@
 
 **2000:** The Reunion Tour’s last stand reaches its halfway point on Night Five at Madison Square Garden. Surprises continue starting with the opener: the premiere of “Another Thin Line.” Late in the set, lucky fans get the tour premiere of “[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)” as well, plus a guest appearance by Soozie Tyrell on a beautiful arrangement of “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/).”
 
-[Watch Video Highlight](https://videopress.com/embed/qRFjgNwt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qRFjgNwt)
 
 [Watch on Youtube: Bruce Springsteen - Madison Square Garden 2000 (Part 1)](https://www.youtube.com/watch?v=0oSrbygepJ8)
 
@@ -48,7 +48,7 @@
 
 [Watch on Youtube: Bruce Springsteen - American Land (Live tour Video)](https://www.youtube.com/watch?v=tpeisHYbKdE)
 
-[Watch Video Highlight](https://videopress.com/embed/WbnXwnwr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WbnXwnwr)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/2006-06-22.jpg)
 

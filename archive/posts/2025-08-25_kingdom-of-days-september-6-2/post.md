@@ -6,7 +6,7 @@
 
 **1975:** Boz Scaggs guest-stars on “Twist and Shout” when Bruce plays his first-ever show in Louisiana at the New Orleans Theater of the Performing Arts. (Photo credit: Barbara Pyle)
 
-[Watch Video Highlight](https://videopress.com/embed/dpbG8acj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dpbG8acj)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/09/1975-09-06.jpg)
 
@@ -14,13 +14,13 @@
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to the Uptown Theater in Chicago.
 
-[Watch Video Highlight](https://videopress.com/embed/jZur7VMb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jZur7VMb)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/08/1978-09-06.jpg)
 
 **1985:** The Born in the U.S.A. Tour stadium leg continues with a show at the Hoosier Dome in Indianapolis.
 
-[Watch Video Highlight](https://videopress.com/embed/ZuUFl7Ls?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZuUFl7Ls)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-09-06a.jpg)
 

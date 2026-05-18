@@ -10,7 +10,7 @@
 
 **1997:** Bruce kicks off an acoustic mini-tour of France with a show at the Auditorium Maurice Ravel in Lyon.
 
-[Watch Video Highlight](https://videopress.com/embed/izQmoLoJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/izQmoLoJ)
 
 **2003:** The Rising Tour moves on to Gijon. Watch local TV coverage of the show, including the first minute of the opening “The Promised Land,” below.
 
@@ -38,9 +38,9 @@
 
 **2012:** The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las Palmas in the Canary Islands. Bruce plays four tour premieres on this night: “Born in the U.S.A.,” “Two Hearts,” “Working on the Highway,” and “The River.”
 
-[Watch Video Highlight](https://videopress.com/embed/yoA0eBRu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yoA0eBRu)
 
-[Watch Video Highlight](https://videopress.com/embed/lEm4mpv9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lEm4mpv9)
 
 [Watch on Youtube: Bruce Springsteen - Born In The USA (2012-05-15 Las Palmas)](https://www.youtube.com/watch?v=wBBxBR0g2iE)
 

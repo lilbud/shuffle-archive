@@ -12,7 +12,7 @@
 
 **1978:** Night Two of the Darkness Tour (at Albany’s Palace Theater) is similar to Night One, but “The Promise” is now performed solo on the piano, as it will be until the next full-band performance 32 years later.
 
-[Watch Video Highlight](https://videopress.com/embed/ezuQGRsq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ezuQGRsq)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Bennington_Banner_Fri__May_26__1978_-scaled.jpg)
 

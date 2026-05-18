@@ -14,7 +14,7 @@
 
 **1985:** Bruce and the E Street Band play their first of two *Born in the U.S.A.* shows in Melbourne, Australia. Bruce performs “Johnny Bye-Bye” for the final time to date.
 
-[Watch Video Highlight](https://videopress.com/embed/9ND97yT2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9ND97yT2)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Age_Thu__Apr_4__1985_.jpg)
 
@@ -24,15 +24,15 @@
 
 **1993:** Bruce brings his World Tour 1993 to Dortmund, Germany, where he debuts his cover of “Many Rivers to Cross” and Jon Bon Jovi and Richie Sambora join him on stage for “Glory Days.”
 
-[Watch Video Highlight](https://videopress.com/embed/fUeXizaZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fUeXizaZ)
 
 **2000:** The Reunion Tour hits the Pacific Northwest, starting with a single show at Portland’s Rose Garden that features the tour premiere of “Dead Man Walkin’.”
 
-[Watch Video Highlight](https://videopress.com/embed/QMqRCigT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QMqRCigT)
 
-[Watch Video Highlight](https://videopress.com/embed/qnkwPZT4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qnkwPZT4)
 
-[Watch Video Highlight](https://videopress.com/embed/lUa1zb5B?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lUa1zb5B)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Columbian_Tue__Apr_4__2000_-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Columbian_Tue__Apr_4__2000_-1.jpg)
 

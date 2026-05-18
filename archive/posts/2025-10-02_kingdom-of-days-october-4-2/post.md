@@ -24,7 +24,7 @@
 
 **1980:** The River Tour gets rolling on Night Two, moving on to Cincinnati’s Riverfront Coliseum, where “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” and “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” make their tour debut, along with “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/).”
 
-[Watch Video Highlight](https://videopress.com/embed/WUK4QUvA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WUK4QUvA)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1980-10-04a.jpg)
 
@@ -34,7 +34,7 @@
 
 **2002:** Bruce speaks and performs acoustically at the dedication ceremony for a Boston bridge named after an activist friend of Bruce’s, Lenny Zakim.
 
-[Watch Video Highlight](https://videopress.com/embed/0Qzz0jXM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0Qzz0jXM)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/2002-10-04a.jpg)
 
@@ -42,7 +42,7 @@
 
 That night, Bruce plays the Fleet Center, dedicating “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” to Zakim and closing the show with “[Dirty Water,](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)” joined by Peter Wolf.
 
-[Watch Video Highlight](https://videopress.com/embed/nYd5pwJC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nYd5pwJC)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/2002-10-04c.jpg)
 
@@ -52,7 +52,7 @@ That night, Bruce plays the Fleet Center, dedicating “[My Hometown](https://es
 
 [Watch on Youtube: Bruce Springsteen Highway 61 Revisited New York 04/10/2003](https://www.youtube.com/watch?v=sooYpK4s9HI)
 
-[Watch Video Highlight](https://videopress.com/embed/LcWFqpQB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LcWFqpQB)
 
 [Watch on Youtube: New York 04/10/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zDGReH4uBsQlMqHrgMDe05t)
 
@@ -60,9 +60,9 @@ That night, Bruce plays the Fleet Center, dedicating “[My Hometown](https://es
 
 **2005:** Bruce kicks off the final leg of his solo acoustic Devils & Dust Tour with a Red Cross benefit show at Asbury Park’s Paramount Theater. Bruce opens the show with the tour debut of “[Idiot’s Delight](https://estreetshuffle.com/index.php/2021/03/12/rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/),” a Grushecky/Springsteen original, and tour premieres “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” (played on ukulele and for the first time in nine years), “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/),” and a stunning new arrangement for “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/).”
 
-[Watch Video Highlight](https://videopress.com/embed/VQcKUaZE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VQcKUaZE)
 
-[Watch Video Highlight](https://videopress.com/embed/t9q10p9z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/t9q10p9z)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2005-10-04.jpg)
 

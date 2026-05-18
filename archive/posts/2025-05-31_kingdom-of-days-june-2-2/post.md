@@ -26,11 +26,11 @@ Listen to Bruce recall his memory of this show 36 years later:
 
 That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis during the Darkness Tour, and the band tour premieres “[Sea Cruise](https://estreetshuffle.com/index.php/2018/04/08/cover-me-sea-cruise/)” for the occasion.
 
-[Watch Video Highlight](https://videopress.com/embed/BynSK9FG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BynSK9FG)
 
 **1981:** At Night Four at London’s Wembley Arena, Link Wray guest-stars on “[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/).” In attendance at tonight’s show: Joe Jackson, Kim Carnes, Elvis Costello, Paul Cook of The Sex Pistols, all of The Pretenders except for Chrissie Hynde, all of the Ants except for Adam, and unnamed members of U2, The Psychedelic Furs, The Fabulous Thunderbirds, and The Members.
 
-[Watch Video Highlight](https://videopress.com/embed/ITvqaqNw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ITvqaqNw)
 
 [Watch on Youtube: Bruce Springsteen London 02/06/1981 Full Concert](https://www.youtube.com/watch?v=ibBf1Xvalvg)
 
@@ -40,13 +40,13 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 **1989:** Bruce, Roy, Patti, and the Miami Horns join Max Weinberg’s band Killer Joe on stage at The Stone Pony for four songs.
 
-[Watch Video Highlight](https://videopress.com/embed/Z5HLzrqT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Z5HLzrqT)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/1989-06-02.jpg)
 
 **1999:** Bruce and the E Street Band bring the Reunion Tour to Paris for the first of two nights. Elliott Murphy makes a guest appearance on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).”
 
-[Watch Video Highlight](https://videopress.com/embed/uFeEsKEc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uFeEsKEc)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Fort_Worth_Star_Telegram_Thu__Jun_3__1999_-scaled.jpg)
 
@@ -56,17 +56,17 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 **2005:** Bruce plays a solo acoustic show in Madrid.
 
-[Watch Video Highlight](https://videopress.com/embed/HAYMQ1R9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HAYMQ1R9)
 
 **2009:** The Working on a Dream Tour starts its Scandinavian swing with a show at Ratinan Stadion in Tampere, Finland. It may be June, but that doesn’t stop Bruce from playing “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” as a request, along with a wonderful cover of “[The Dark End of the Street](https://estreetshuffle.com/index.php/2019/07/22/cover-me-the-dark-end-of-the-street/).”
 
 [Watch Video Highlight](https://videopress.com/embed/76xBJLMt?hd=0&cover=1)
 
-[Watch Video Highlight](https://videopress.com/embed/5wnxi5ha?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5wnxi5ha)
 
-[Watch Video Highlight](https://videopress.com/embed/qdxQG7Bg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qdxQG7Bg)
 
-[Watch Video Highlight](https://videopress.com/embed/iLz3cZeB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iLz3cZeB)
 
 **2012:** The Wrecking Ball Tour makes a brief stop in Spain for a show at San Sebastian, opening with the tour premiere of “[Who’ll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/).”
 

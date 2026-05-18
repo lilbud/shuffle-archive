@@ -2,7 +2,7 @@
 
 **1981:** The River Tour continues its almost month-long U.K. leg with a show at waterlogged New Bingley Hall in Stafford.
 
-[Watch Video Highlight](https://videopress.com/embed/YgclROfQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YgclROfQ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg)
 
@@ -24,7 +24,7 @@
 
 **2005:** The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheum Theater in Boston.
 
-[Watch Video Highlight](https://videopress.com/embed/dnyKmXPH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dnyKmXPH)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20a.jpg)
 
@@ -32,7 +32,7 @@
 
 **2006:** “[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)” makes its Seeger Sessions Tour debut at the Oslo Spektrum.
 
-[Watch Video Highlight](https://videopress.com/embed/zHfMSVF6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zHfMSVF6)
 
 **2020:** Sirius XM debuts the fourth installment of Bruce’s *From My Home to Yours* series.
 

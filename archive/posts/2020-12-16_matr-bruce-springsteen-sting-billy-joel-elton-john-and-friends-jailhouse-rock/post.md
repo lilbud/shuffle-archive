@@ -26,7 +26,7 @@ The second time (and final time to date) was four years later on the Wrecking Ba
 
 Still, it’s hard to beat the exuberance of that 1995 all-star performance. I’ll leave you with the audio from that night–the sound isn’t nearly as good as in the video at the top, but it’s complete and clear enough to hear how much fun it was for both the audience and the performers.
 
-[Watch Video Highlight](https://videopress.com/embed/Dzaly57k?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Dzaly57k)
 
 **Jailhouse Rock
 First performed:** May 19, 1977 (Asbury Park, NJ)

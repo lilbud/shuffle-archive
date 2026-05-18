@@ -12,7 +12,7 @@
 
 **1981:** The River Tour finishes its Florida leg at the Hollywood Sportatorium. According to the local reviewer, the crowd is not on its best behavior.
 
-[Watch Video Highlight](https://videopress.com/embed/noKMOp30?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/noKMOp30)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1981-02-20a.png)
 
@@ -32,11 +32,11 @@
 
 **1996:** Bruce opens the San Remo Music Festival with an acoustic performance of “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” on Italian TV.
 
-[Watch Video Highlight](https://videopress.com/embed/WaIiOtaN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WaIiOtaN)
 
 **2003:** Bruce plays the second of two acoustic shows in Somerville, Massachusetts, a benefit for *Doubletake Magazine*.
 
-[Watch Video Highlight](https://videopress.com/embed/Ho9TQzo4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ho9TQzo4)
 
 **2007:** Bruce’s instrumental cover of “[Once Upon a Time in the West](https://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/),” is released on the tribute album *We All Love Ennio Morricone.* The gorgeous track will go on to win a Grammy Award.
 

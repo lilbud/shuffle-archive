@@ -32,7 +32,7 @@
 
 **1988:** The Tunnel of Love Express stops in Houston for the first of two shows at The Summit.
 
-[Watch Video Highlight](https://videopress.com/embed/qpGF3ADJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qpGF3ADJ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-12b.jpg)
 
@@ -58,7 +58,7 @@
 
 **2000:** Bruce and the E Street Band play a Reunion Tour show for a low-energy crowd in Nashville. Bruce would still recall it seven years later to friend-of-the-blog Bryan Meng as the “worst crowd of the entire tour.” (Nashville would redeem itself on the Magic Tour.)
 
-[Watch Video Highlight](https://videopress.com/embed/B9bIX3FU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/B9bIX3FU)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2000-04-12.jpg)
 

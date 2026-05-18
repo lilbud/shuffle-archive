@@ -20,7 +20,7 @@
 
 **1982:** Bruce joins Joe Grushecky and the Iron City Houserockers on stage for the first time when Joe plays Big Man’s West in Red Bank.
 
-[Watch Video Highlight](https://videopress.com/embed/vfcrn5r7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vfcrn5r7)
 
 **1984:** On Night Two at the Rosemont Horizon near Chicago, Bruce tour premieres “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” and “Because the Night.” Watch news coverage and footage below.
 
@@ -30,13 +30,13 @@
 
 **1988:** The Tunnel of Love Tour arrives in Munich, where “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” makes its tour premiere.
 
-[Watch Video Highlight](https://videopress.com/embed/Hg1d3CbK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Hg1d3CbK)
 
-[Watch Video Highlight](https://videopress.com/embed/xZriKscC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xZriKscC)
 
 **2003:** Night Two (of ten!) at the legendary Giants Stadium stand of the Rising Tour is a standard one, but shake-ups are on their way.
 
-[Watch Video Highlight](https://videopress.com/embed/woWaq6U5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/woWaq6U5)
 
 **2004:** Bruce, Patti, and Soozie join Joe Grushecky and the Houserockers on stage at The Stone Pony in Asbury Park.
 
@@ -52,7 +52,7 @@
 
 **2011:** Bruce makes a guest appearance at J.T. Bowen and The Sensational Soul Cruisers’ tribute to Clarence Clemons at The Wonder Bar in Asbury Park. The setlist highlights: long-awaited returns of “[Action in the Streets](https://estreetshuffle.com/index.php/2022/06/27/roll-of-the-dice-action-in-the-streets/)” (the first in 34 years) and “[Savin’ Up](https://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/)” (the first in 24 years).
 
-[Watch Video Highlight](https://videopress.com/embed/9neskCQb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9neskCQb)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/2011-07-17.png)
 

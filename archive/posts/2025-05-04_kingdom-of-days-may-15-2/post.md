@@ -12,7 +12,7 @@
 
 **1997:** Bruce kicks off an acoustic mini-tour of France with a show at the Auditorium Maurice Ravel in Lyon.
 
-[Watch Video Highlight](https://videopress.com/embed/izQmoLoJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/izQmoLoJ)
 
 **2003:** The Rising Tour moves on to Gijon. Watch local TV coverage of the show, including the first minute of the opening “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/),” below.
 
@@ -40,9 +40,9 @@
 
 **2012:** The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las Palmas in the Canary Islands. Bruce plays four tour premieres on this night: “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/),” “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/),” “[Working on the Highway,](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” and “[The River.](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)”
 
-[Watch Video Highlight](https://videopress.com/embed/yoA0eBRu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yoA0eBRu)
 
-[Watch Video Highlight](https://videopress.com/embed/lEm4mpv9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lEm4mpv9)
 
 [Watch on Youtube: Bruce Springsteen - Born In The USA (2012-05-15 Las Palmas)](https://www.youtube.com/watch?v=wBBxBR0g2iE)
 

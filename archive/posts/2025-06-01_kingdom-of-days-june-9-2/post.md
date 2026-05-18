@@ -10,7 +10,7 @@
 
 **1978:** The Darkness Tour stops at the Mecca Arena in Milwaukee.
 
-[Watch Video Highlight](https://videopress.com/embed/J4gzbUgC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/J4gzbUgC)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/06/mecca.jpg)
 

@@ -6,7 +6,7 @@
 
 **1976:** Bruce and the band wrap up a week of California shows with a stop at the Santa Barbara County Bowl.
 
-[Watch Video Highlight](https://videopress.com/embed/dqSWWba3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dqSWWba3)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/10/Simi_Valley_Star_1976_10_10_2.jpg)
 
@@ -34,11 +34,11 @@
 
 **2002:** Bruce and the E Street Band perform “[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)” and “[You’re Missing](https://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/)” on *Saturday Night Live* in New York City. The afternoon rehearsals are caught on tape–watch and see what happens when Bruce realizes he started the rehearsal without noticing that Patti wasn’t there yet.
 
-[Watch Video Highlight](https://videopress.com/embed/chXvrMZv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/chXvrMZv)
 
 [Watch on Youtube: Bruce Springsteen - You're Missing & My Hometown - Solo Piano - Live from Rehearsal 2002-10-05](https://www.youtube.com/watch?v=8Xahio_EAKs)
 
-[Watch Video Highlight](https://videopress.com/embed/kXtX77yt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kXtX77yt)
 
 **2004:** Neil Young guest stars at Bruce’s Vote for Change show in St. Paul, joining Bruce for “[Souls of the Departed](https://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/),” “[All Along the Watchtower](https://estreetshuffle.com/index.php/2020/08/13/matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/),” and “[Rockin’ in the Free World](https://estreetshuffle.com/index.php/2019/04/16/matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/).”
 
@@ -86,7 +86,7 @@
 
 **2017:** Bruce makes a small tweak in *Springsteen on Broadway*, swapping out “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” for “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)” as previews continue. In attendance tonight: Jessica Springsteen
 
-[Watch Video Highlight](https://videopress.com/embed/jjFcAf1z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jjFcAf1z)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce plays his “B” setlist that includes “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)” and “This Hard Land” in place of his two duets with Patti. In attendance tonight: John Mayer.
 

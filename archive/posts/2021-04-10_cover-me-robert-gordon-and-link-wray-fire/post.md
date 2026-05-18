@@ -2,7 +2,7 @@ Robert Gordon and Link Wray were the first to record and release Bruce Springste
 
 This recording from a BBC studio session very well be the definitive take on the song–just listen to Link Wray go to town on it.
 
-[Watch Video Highlight](https://videopress.com/embed/gTYrUMsj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gTYrUMsj)
 
 Bonus: Here’s the original 1978 recording (with Bruce Springsteen on piano) for comparison.
 

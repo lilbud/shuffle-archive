@@ -32,7 +32,7 @@
 
 Listen in on the soundcheck…
 
-[Watch Video Highlight](https://videopress.com/embed/ty4DZGd4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ty4DZGd4)
 
 ..while the media covers the anticipation for and reaction to tonight’s tour opener:
 
@@ -42,7 +42,7 @@ Listen in on the soundcheck…
 
 [Watch on Youtube: KYW-3 Report on Bruce Springsteen & the E Street Band in Worcester, MA, 2/25/1988](https://www.youtube.com/watch?v=OkS_rAX-9K8)
 
-[Watch Video Highlight](https://videopress.com/embed/s6aaBOyo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/s6aaBOyo)
 
 [Watch on Youtube: Bruce Springsteen - WALK LIKE A MAN 1988 (audio)](https://www.youtube.com/watch?v=OajP-LaDv1U)
 
@@ -58,7 +58,7 @@ Listen in on the soundcheck…
 
 **1996:** Bruce plays a solo acoustic show in Rotterdam.
 
-[Watch Video Highlight](https://videopress.com/embed/Mn7BVXOQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Mn7BVXOQ)
 
 **1998:** Nominated for the Best Male Rock Vocal Performance Grammy for “Thunder Road,” Bruce loses to Bob Dylan’s “Cold Irons Bound.”
 

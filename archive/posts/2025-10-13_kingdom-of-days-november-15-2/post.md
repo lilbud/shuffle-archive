@@ -34,7 +34,7 @@
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to the Hartford Civic Center for a night.
 
-[Watch Video Highlight](https://videopress.com/embed/hKxSkFQ1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hKxSkFQ1)
 
 [Watch on Youtube: Bruce Springsteen - If I Should Fall Behind (Live 1992-11-15)](https://www.youtube.com/watch?v=UQ3Yq3Uxc7M)
 
@@ -108,4 +108,4 @@ Meanwhile, for those of us not at the show, The Ben Stiller show gets educationa
 
 **2022:** On the second night of his *Tonight Show* takeover, Bruce premieres “[Turn Back the Hands of Time](https://estreetshuffle.com/index.php/2024/07/04/cover-me-turn-back-the-hands-of-time/).”
 
-[Watch Video Highlight](https://videopress.com/embed/wXTPNGBp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wXTPNGBp)

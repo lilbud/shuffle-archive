@@ -18,11 +18,11 @@
 
 **1981:** Bruce and the E Street Band wrap up their three-night stand at the Capital Center in Largo, Maryland.
 
-[Watch Video Highlight](https://videopress.com/embed/0KQVFFpL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0KQVFFpL)
 
 **1982:** Bruce joins Beaver Brown on stage at Big Man's West in Red Bank, where he debuts a work-in-progress, "Downbound Train" in the middle of "Lucille." (Skip to the 21 minute-mark below to hear it.)
 
-[Watch Video Highlight](https://videopress.com/embed/9dFjGaHk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9dFjGaHk)
 
 ![](../../assets/2021/08/1982-08-07-scaled.jpg)
 
@@ -32,7 +32,7 @@
 
 **1985:** The stadium leg of the Born in the U.S.A. Tour picks up steam at Cleveland Municipal Stadium, where Bruce tour debuts "This Land is Your Land."
 
-[Watch Video Highlight](https://videopress.com/embed/Vu6tENsx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Vu6tENsx)
 
 ![](../../assets/2020/07/1985-08-07.png)
 
@@ -44,19 +44,19 @@
 
 **1992:** At the penultimate show of World Tour 1992's eleven-night stand at the Meadowlands, Bruce and Roy play a tour one-off, an intimate "For You." "Racing in the Street" is also a tour one-off, and Southside Johnny guest-stars on "All the Way Home."
 
-[Watch Video Highlight](https://videopress.com/embed/MZxl9BXf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MZxl9BXf)
 
-[Watch Video Highlight](https://videopress.com/embed/iGI2fvg3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iGI2fvg3)
 
-[Watch Video Highlight](https://videopress.com/embed/Xl1kGK8C?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Xl1kGK8C)
 
 **1999:** Bruce stuns fans at the Meadowlands when he opens Night Twelve (of fifteen) with the first "Don't Look Back" in 22 years. Bruce also plays "Janey, Don't You Lose Heart" for only the third time ever.
 
-[Watch Video Highlight](https://videopress.com/embed/MBTGYj28?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MBTGYj28)
 
 **2002:** The Rising Tour officially kicks off and Soozie Tyrell makes her official E Street Band debut at the Continental Airlines Arena in East Rutherford, with essentially the same set as the rehearsal show in the same venue. Early shows on the "barnstorming" leg would be atypically rigid, with little variation from night to night.
 
-[Watch Video Highlight](https://videopress.com/embed/r4z4wiX6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/r4z4wiX6)
 
 ![](../../assets/2020/07/2002-08-07b.png)
 

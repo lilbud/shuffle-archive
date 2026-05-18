@@ -20,7 +20,7 @@
 
 **1982:** Bruce joins Nils Lofgren (who is not yet a member of the E Street Band) on stage at the Royal Manor North in North Brunswick, New Jersey, for covers of “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” and “[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/).” This is the earliest known performance of Bruce and Nils together.
 
-[Watch Video Highlight](https://videopress.com/embed/VjV3L0Je?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VjV3L0Je)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/1982-01-12a.png)
 

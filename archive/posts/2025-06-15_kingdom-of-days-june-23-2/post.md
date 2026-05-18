@@ -36,7 +36,7 @@
 
 **2000:** Night Six of Ten at Madison Square Garden features a rare “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/),” as the Reunion Tour’s last stand continues.
 
-[Watch Video Highlight](https://videopress.com/embed/uLYj1uhJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uLYj1uhJ)
 
 [Watch on Youtube: Point Blank (Live at Madison Square Garden, New York, NY - June 2000)](https://www.youtube.com/watch?v=YtojCQYXLIQ)
 
@@ -44,7 +44,7 @@
 
 **2005:** Bruce plays “[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)” for the first time in 24 years at his Devils & Dust show in Gothenburg.
 
-[Watch Video Highlight](https://videopress.com/embed/9KTxtENW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9KTxtENW)
 
 [Watch on Youtube: Bruce Springsteen - State trooper Gothenburg, Sweden, June 23, 2005.](https://www.youtube.com/watch?v=jolZKmU3SbM)
 

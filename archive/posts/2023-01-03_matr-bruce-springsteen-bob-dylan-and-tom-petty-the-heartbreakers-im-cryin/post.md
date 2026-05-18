@@ -16,7 +16,7 @@ And very early in that run of shows, the stars aligned: On March 1, 1990, Tom Pe
 
 Tom brought Bruce and Bob on stage during the encores for two songs, the latter of which was “I’m Crying.” Judging from the clip below, Bruce was more than happy to oblige.
 
-[Watch Video Highlight](https://videopress.com/embed/4Sw2cr76?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4Sw2cr76)
 
 That remarkable performance was the only time Bruce has ever performed “I’m Crying” to date, but that’s not the only reason this recording is special.
 

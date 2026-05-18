@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Tenth Avenue Freeze-Out - New Haven CT 3/18/77](https://www.youtube.com/watch?v=VvLq3FWKFqg)
 
-[Watch Video Highlight](https://videopress.com/embed/gcTFjzCM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gcTFjzCM)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1977-03-18.jpg)
 
@@ -48,7 +48,7 @@ News coverage from the day:
 
 **2009:** Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park’s Convention Hall. Eavesdrop below to hear them work out several songs, including Jimmy Cliff’s “Sufferin’ in the Land,” which won’t make it to the final setlist.
 
-[Watch Video Highlight](https://videopress.com/embed/lxNzRjRj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lxNzRjRj)
 
 **2011:** Bruce joins Dropkick Murphys on stage at the House of Blues in Boston for “Peg O’ My Heart,” “Badlands,” and “I’m Shipping Up to Boston.”
 

@@ -32,7 +32,7 @@
 
 **1981:** Bruce plays his first-ever show in Switzerland as the European leg of the River Tour continues in Zurich.
 
-[Watch Video Highlight](https://videopress.com/embed/HAbov62e?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HAbov62e)
 
 **1982:** Bruce joins John Eddie and the Front Street Runners on stage for four songs (including Bruce’s first ever performance of “[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)“) at Big Man’s West in Red Bank, and then he zips over to The Stone Pony to catch Cats on a Smooth Surface.
 
@@ -40,19 +40,19 @@
 
 **1985:** The second of five nights at Tokyo’s Yoyogi National Gymnasium.
 
-[Watch Video Highlight](https://videopress.com/embed/lObwyjXe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lObwyjXe)
 
 **1993:** Jimmy Cliff makes a guest-appearance on “[Time Will Tell](https://estreetshuffle.com/index.php/2018/09/09/meeting-across-the-river-bruce-springsteen-and-jimmy-cliff-time-will-tell/)” at Bruce’s show in Verona, Italy.
 
 [Watch on Youtube: Bruce Springsteen and Jimmy Cliff - "Time Will Tell" - Verona, 1993-04-11](https://www.youtube.com/watch?v=jxeRBjMH_ns)
 
-[Watch Video Highlight](https://videopress.com/embed/mdhbT105?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mdhbT105)
 
-[Watch Video Highlight](https://videopress.com/embed/gQSr3tM3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gQSr3tM3)
 
 **1996:** The Italian leg of Bruce’s solo acoustic tour continues with a show at Teatro Smeraldo in Milan.
 
-[Watch Video Highlight](https://videopress.com/embed/kDYATuDY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kDYATuDY)
 
 **1999:** Night Two of the Reunion Tour, a second show in Barcelona, features the first “[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)” in nineteen years and the first E Street Band performance of “[Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/).”
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen Barcelona 11/04/1999 Full Concert Video](https://www.youtube.com/watch?v=sgZ11MLrIyg)
 
-[Watch Video Highlight](https://videopress.com/embed/oRQNaUDr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oRQNaUDr)
 
 **2003:** Sick with a cold, Bruce nevertheless turns in a great performance in Vancouver, BC. Before the show, those of us waiting outside in the pit line could hear the band soundcheck an early version of “[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/).” Listen below. For more highlights, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/04/11/where-the-band-was-vancouver-april-11-2003/) for this show.
 

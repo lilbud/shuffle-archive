@@ -20,7 +20,7 @@
 
 **1992:** Bruce and his new touring band play a show at Sacramento’s Arco Arena on World Tour 1992.
 
-[Watch Video Highlight](https://videopress.com/embed/wNaquumN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wNaquumN)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1992-10-06a.jpg)
 
@@ -32,7 +32,7 @@
 
 **2002:** As the first American leg of the Rising Tour starts to wind down, Bruce starts pulling out the stops. At the First Union Center in Philadelphia, Bruce tour premieres “[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/),” “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/),” and as the show-closer, the first E Street Band performance of “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)” in 24 years. In attendance tonight: actors Tim Robbins, Susan Sarandon, MackKenzie Phillips, and Adrian Zmed, plus musician Ryan Adams.
 
-[Watch Video Highlight](https://videopress.com/embed/ElTp7Vvc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ElTp7Vvc)
 
 [Watch on Youtube: Does This Bus Stop At 82nd Street? Bruce Springsteen 10/6/2002 (Philly)](https://www.youtube.com/watch?v=wic_mm_K9EQ)
 
@@ -46,7 +46,7 @@
 
 **2005:** Bruce must have his father on his mind, as he plays “[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/),” “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)” and the tour premiere of “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” back-to-back at this solo acoustic show in Rochester.
 
-[Watch Video Highlight](https://videopress.com/embed/JgQkSLq4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JgQkSLq4)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/10/2005-10-06.jpg)
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Cadillac Ranch](https://www.youtube.com/watch?v=no0fJTRuBbg)
 
-[Watch Video Highlight](https://videopress.com/embed/KbnAzPjC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KbnAzPjC)
 
 **2008:** Bruce travels to Ypsilanti, Michigan to join presidential candidate Barack Obama at a campaign rally.
 

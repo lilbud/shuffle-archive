@@ -8,7 +8,7 @@
 
 **1983:** Bruce guest stars with John Eddie at the Brighton Bar in Long Branch, New Jersey, for a mini-set of covers, including “[Blue Suede Shoes](https://estreetshuffle.com/index.php/2020/10/19/matr-bruce-springsteen-and-john-eddie-blue-suede-shoes/)” and “[Ain’t That Lovin’ You Baby](https://estreetshuffle.com/index.php/2020/12/15/matr-bruce-springsteen-and-john-eddie-aint-that-lovin-you-baby/).”
 
-[Watch Video Highlight](https://videopress.com/embed/rAT8zq3b?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rAT8zq3b)
 
 **1984:** The penultimate night of Bruce’s ten-night Born in the U.S.A. Tour stand at East Rutherford’s Brendan Byrne Arena brings the U.S. debut of “[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)” and the return of the Miami Horns for “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/),” “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” and “Twist and Shout.” “[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)” is recorded and released on the *Live 1975-85* box set. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,29593/bruce-springsteen-the-e-street-brendan-byrne-arena-east-rutherford-nj-08-19-1984-mp3-flac-or-online-music-streaming.html).
 

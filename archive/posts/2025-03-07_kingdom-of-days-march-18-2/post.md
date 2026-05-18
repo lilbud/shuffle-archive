@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Tenth Avenue Freeze-Out - New Haven CT 3/18/77](https://www.youtube.com/watch?v=VvLq3FWKFqg)
 
-[Watch Video Highlight](https://videopress.com/embed/gcTFjzCM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gcTFjzCM)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1977-03-18.jpg)
 
@@ -50,7 +50,7 @@ News coverage from the day:
 
 **2009:** Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park’s Convention Hall. Eavesdrop below to hear them work out several songs, including Jimmy Cliff’s “[Sufferin’ in the Land,](https://estreetshuffle.com/index.php/2020/09/14/cover-me-sufferin-in-the-land/)” which won’t make it to the final setlist.
 
-[Watch Video Highlight](https://videopress.com/embed/lxNzRjRj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lxNzRjRj)
 
 **2011:** Bruce joins Dropkick Murphys on stage at the House of Blues in Boston for “[Peg O’ My Heart](https://estreetshuffle.com/index.php/2020/02/03/matr-dropkick-murphys-and-bruce-springsteen-peg-o-my-heart/),” “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/),” and “[I’m Shipping Up to Boston](https://estreetshuffle.com/index.php/2018/12/16/matr-dropkick-murphys-and-bruce-springsteen-im-shipping-up-to-boston/).”
 

@@ -2,7 +2,7 @@ Firing up the waaaaaayback machine today and travelling to Newark State College 
 
 It’s a great recording for its age, and you can even hear Steve introduce the song, and Bruce and Garry banter after it.
 
-[Watch Video Highlight](https://videopress.com/embed/tLZCEiNE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tLZCEiNE)
 
 Bruce’s version is decidedly fiercer than Dylan’s 1965 original:
 

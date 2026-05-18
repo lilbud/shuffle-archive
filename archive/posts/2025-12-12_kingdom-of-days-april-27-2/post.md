@@ -24,19 +24,19 @@
 
 [Watch on Youtube: Bruce Springsteen - Born to Run (Acoustic)](https://www.youtube.com/watch?v=dONEgrsYoOk)
 
-[Watch Video Highlight](https://videopress.com/embed/r8cmoMkh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/r8cmoMkh)
 
 **1996:** At the second of two shows at Royal Albert Hall, Bruce opens with “Pony Boy” for the first and only time, before segueing seamlessly (if awkwardly) into “The Ghost of Tom Joad.” Played twice before in New Jersey four years prior, “Pony Boy” hasn’t been heard from since.
 
-[Watch Video Highlight](https://videopress.com/embed/Ty8xxuZl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ty8xxuZl)
 
 **2008:** At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bobcats Arena enjoy the tour premieres of “Souls of the Departed” (the show opener) and “Wild Billy’s Circus Story,”
 
 [Watch on Youtube: Souls of The Departed - Bruce Sprinsgteen](https://www.youtube.com/watch?v=nHlzZofJQwQ)
 
-[Watch Video Highlight](https://videopress.com/embed/YELHaaky?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YELHaaky)
 
-[Watch Video Highlight](https://videopress.com/embed/zqt0avd3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zqt0avd3)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2008-04-27.jpg)
 

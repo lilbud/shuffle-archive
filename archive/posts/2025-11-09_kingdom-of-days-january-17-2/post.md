@@ -8,7 +8,7 @@
 
 **1990**: At the Rock and Roll Hall of Fame induction ceremony at New York’s Waldorf-Astoria Hotel, Bruce joins the all-star jam, trading lead vocals with John Fogerty on “[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/).”
 
-[Watch Video Highlight](https://videopress.com/embed/xqFLtRiw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xqFLtRiw)
 
 [Watch on Youtube: The Who perform at Rock and Roll Hall of Fame and Museum inductions 1990](https://www.youtube.com/watch?v=rSb63bh1WVU)
 
@@ -16,7 +16,7 @@
 
 **1996:** Bruce plays the second of two acoustic shows at the Cleveland Music Hall.
 
-[Watch Video Highlight](https://videopress.com/embed/CkoS0nnL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CkoS0nnL)
 
 **2009:** Bruce rehearses at the Lincoln Memorial for his upcoming performance at Barack Obama’s presidential inauguration.
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road - Light of Day 01-17-2015](https://www.youtube.com/watch?v=wzpf-Y8M7tU)
 
-[Watch Video Highlight](https://videopress.com/embed/aiLMllsi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/aiLMllsi)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Herald_News_2015_01_19_B1-scaled.jpg)
 

@@ -34,13 +34,13 @@
 
 **1999:** Patti is still out of action due to a perforated eardrum when the Reunion Tour stops at Buffalo’s Marine Midland Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/rkODLqMs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rkODLqMs)
 
-[Watch Video Highlight](https://videopress.com/embed/tBDgL3RX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tBDgL3RX)
 
-[Watch Video Highlight](https://videopress.com/embed/kOQBEDhQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kOQBEDhQ)
 
-[Watch Video Highlight](https://videopress.com/embed/imoYRMGl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/imoYRMGl)
 
 **2002:** Bruce tour debuts “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/),” and Emmylou Harris makes a guest appearance on “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” when Bruce and the E Street Band bring the Rising Tour to Birmingham, Alabama.
 
@@ -54,9 +54,9 @@
 
 **2005:** Bruce plays an *almost* solo acoustic show at Hard Rock Live in Hollywood, Florida… almost solo, because he’s joined by two notable guests: Steve Van Zandt and Clarence Clemons. The mini-reunion only lasts for three songs, but it’s delightful–particularly a magical “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/).” Oh, and not for nothing: “[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)” makes its tour debut as well.
 
-[Watch Video Highlight](https://videopress.com/embed/CxFVIfsT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CxFVIfsT)
 
-[Watch Video Highlight](https://videopress.com/embed/TVBMqdlY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TVBMqdlY)
 
 [Watch on Youtube: Drive All Night Bruce Springsteen, Little Steven, and "BIG MAN" Clarence Clemons 11/19/2005 FL](https://www.youtube.com/watch?v=nj0W84Y624c)
 

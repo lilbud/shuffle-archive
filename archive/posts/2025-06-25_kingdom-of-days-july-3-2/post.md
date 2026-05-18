@@ -10,13 +10,13 @@
 
 **1981:** Night Two of six at the Brendan Byrne Arena’s opening stand in East Rutherford features the tour premiere of “[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)” and a guest appearance by Gary U.S. Bonds on “[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)” and “[This Little Girl](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/).”
 
-[Watch Video Highlight](https://videopress.com/embed/cTInek5e?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cTInek5e)
 
 [Watch on Youtube: Bruce Springsteen Badlands New Jersey 03/07/1981](https://www.youtube.com/watch?v=3T9Hdvi5YsA)
 
 **1985:** Bruce plays “[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)” for the first time ever at the first of three shows at Wembley Stadium in London, and Steve Van Zandt briefly reunites with the band during the encore for “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/),” “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/),” and “Twist and Shout.”
 
-[Watch Video Highlight](https://videopress.com/embed/8rio31IG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8rio31IG)
 
 [Watch on Youtube: Bruce Springsteen London 3/7/1985 Full Concert](https://www.youtube.com/watch?v=ghqJVDaasKM)
 
@@ -44,11 +44,11 @@
 
 [Watch on Youtube: Bruce Springsteen en barcelona 92 la monumental y fans](https://www.youtube.com/watch?v=EA_faGbmdoY)
 
-[Watch Video Highlight](https://videopress.com/embed/oYaKtVCC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oYaKtVCC)
 
-[Watch Video Highlight](https://videopress.com/embed/9vNTFBBS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9vNTFBBS)
 
-[Watch Video Highlight](https://videopress.com/embed/2PyrKknl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2PyrKknl)
 
 **2009:** In Frankfurt, Bruce and the E Street Band pull out the Working on a Dream tour premieres of “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” and “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/).”
 

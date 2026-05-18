@@ -18,11 +18,11 @@
 
 **1996:** Bruce plays the second of two shows at Detroit’s Fox Theater.
 
-[Watch Video Highlight](https://videopress.com/embed/w4Rg1WKW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/w4Rg1WKW)
 
 **2002:** On the occasion of Clarence’s 60th birthday, Bruce joins Clarence on stage at B.B. King’s nightclub in Mashantucket, Connecticut. They play four songs together, including “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” with B.B. King.
 
-[Watch Video Highlight](https://videopress.com/embed/jbc3T593?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jbc3T593)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/Hartford_Courant_2002_01_15_27-scaled.jpg)
 
@@ -36,4 +36,4 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Watch highlights from this performance below.
 
-[Watch Video Highlight](https://videopress.com/embed/nbBHOi0W?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nbBHOi0W)

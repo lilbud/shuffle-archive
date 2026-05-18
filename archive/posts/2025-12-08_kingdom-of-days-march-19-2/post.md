@@ -32,7 +32,7 @@
 
 **1999:** A second public warm-up show for Bruce Springsteen and the E Street Band, their last in the U.S. before the Reunion Tour kicks off. “Give the Girl a Kiss” makes its live debut, and “The Promise” is played for the first time in 21 years.
 
-[Watch Video Highlight](https://videopress.com/embed/yPtVKHzK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yPtVKHzK)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19a.jpg)
 
@@ -42,9 +42,9 @@
 
 **2000:** Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/KtVROHSG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KtVROHSG)
 
-[Watch Video Highlight](https://videopress.com/embed/eLzC9Wo8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eLzC9Wo8)
 
 **2005:** With the Seeger Sessions Band in his home studio, Bruce records “Old Dan Tucker,” “Mrs. McGrath,” “Erie Canal,” “O Mary Don’t You Weep,” “John Henry,” “Shenandoah,” “Froggie Went A-courtin'” and “Pay Me My Money Down.”
 
@@ -52,7 +52,7 @@
 
 **2009:** Jon Stewart interviews Bruce on The Daily Show, where Bruce performs an acoustic version of “Working on a Dream.” Later that evening, Bruce and the E Street Band (with Jay Weinberg filling in for his dad) rehearse at Asbury Park Convention Hall.
 
-[Watch Video Highlight](https://videopress.com/embed/5Dsw0eAI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5Dsw0eAI)
 
 **2012:** Night Two of the Wrecking Ball Tour, at the Greensboro Coliseum.
 

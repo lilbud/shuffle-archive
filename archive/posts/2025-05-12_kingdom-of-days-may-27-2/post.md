@@ -2,11 +2,11 @@
 
 **1976:** Bruce and the E Street Band play for the U.S. Military Academy at West Point.
 
-[Watch Video Highlight](https://videopress.com/embed/10bHWUP3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/10bHWUP3)
 
 **1978:** At Night Two in Philadelphia on the Darkness Tour, the core of the set finally gels, as fans hear the first consecutive plays of “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/),” “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/),” “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/),” “Thunder Road,” and “Jungleland.” This core five-pack will last throughout the rest of the tour.
 
-[Watch Video Highlight](https://videopress.com/embed/LvrfSAAA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LvrfSAAA)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-05-26.jpg)
 
@@ -18,7 +18,7 @@
 
 **1981:** At the Brighton Center on the River Tour, Bruce and the E Street Band perform “[The Price You Pay](https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)” for the last time for 28 years.
 
-[Watch Video Highlight](https://videopress.com/embed/sOEKNAFK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/sOEKNAFK)
 
 **1983:** Bruce and the E Street Band record at The Hit Factory in New York City for *Born in the U.S.A.*, although none of the tracks from today’s session will make the album.
 
@@ -30,7 +30,7 @@
 
 **1999:** Bruce and the E Street Band make a Reunion Tour stop at the Flanders Expo in Ghent, where Elliott Murphy guest-stars on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” and “Born to Run.”
 
-[Watch Video Highlight](https://videopress.com/embed/n9SXCX1I?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/n9SXCX1I)
 
 **2000:** Bruce plays his first-ever show in Las Vegas when the Reunion Tour stops at the MGM Grand Garden Arena. Bruce opens and closes with the premiere of “[Viva Las Vegas](https://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/),” and he tour premieres “[Can’t Help Falling in Love](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/)” for the occasion as well.
 
@@ -64,9 +64,9 @@
 
 **2006:** The American leg of the Seeger Sessions Tour begins with a show at the Tweeter Center in Mansfield, Massachusetts. Peter Wolf guest-stars on a “[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)” / “[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)” medley.
 
-[Watch Video Highlight](https://videopress.com/embed/AEGvmSmm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AEGvmSmm)
 
-[Watch Video Highlight](https://videopress.com/embed/T0A7mJ4O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/T0A7mJ4O)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2006-05-27.jpg)
 

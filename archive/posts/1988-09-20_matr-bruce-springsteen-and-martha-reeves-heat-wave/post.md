@@ -16,7 +16,7 @@ So it was probably only a matter of time before Bruce covered this Motown classi
 
 Bruce didn’t break out a full version of the song until 2003, but that first performance was a special one: Late on the Rising Tour, Bruce invited original recording artist Martha Reeves to join him on stage. In the presence of a Motown legend, Bruce stepped to the background and joined the band in backing Reeves while she sang one of her greatest hits.
 
-[Watch Video Highlight](https://videopress.com/embed/ODmDrQbM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ODmDrQbM)
 
 Fans who wanted to hear what Bruce’s treatment of “Heat Wave” would sound like had to wait more than another decade. On a scorcher of a day in Adelaide, Australia during the High Hopes Tour, Bruce acknowledged the weather by opening the show that night with the first true Bruce Springsteen and the E Street Band performance of “Heat Wave.”
 

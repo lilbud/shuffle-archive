@@ -1,6 +1,6 @@
 **1970:** Steel Mill plays a show at Monmouth College in West Long Branch, New Jersey. Listen to the amazing thirty-minute epic “Garden State Parkway Blues” below.
 
-[Watch Video Highlight](https://videopress.com/embed/K8rRLDke?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/K8rRLDke)
 
 [Watch on Youtube: Bruce Springsteen and Steel Mill: Resurrection 1970 04 24, Monmouth College](https://www.youtube.com/watch?v=5rLBHrDI8PA)
 
@@ -12,7 +12,7 @@
 
 **1973:** At The Main Point in Bryn Mawr, Bruce plays his first live-in-concert radio broadcast on Philadelphia’s WMMR-FM (the first of two shows this night). Listen to the show below, featuring the earliest known recording of “Santa Ana” and the last known recording of “Wild Billy’s Circus Story” before its lyrics were finalized.
 
-[Watch Video Highlight](https://videopress.com/embed/hSdQlz6M?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hSdQlz6M)
 
 [Watch on Youtube: Bruce Springsteen Main Point New York 24/04/1973 Full Concert](https://www.youtube.com/watch?v=vYfjqklI16E)
 
@@ -30,13 +30,13 @@
 
 **1981:** The River Tour moves on to Lyon, France, with a show at the Palais des Sports.
 
-[Watch Video Highlight](https://videopress.com/embed/hIzWoPyE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hIzWoPyE)
 
 **1983:** Bruce sits in with Cats on a Smooth Surface at their gig at The Stone Pony in Asbury Park.
 
 **1993:** Bruce and his 1992-1993 touring band play their second of two shows at Flanders Expo in Ghent, where “Viva Las Vegas” makes its tour premiere.
 
-[Watch Video Highlight](https://videopress.com/embed/f6uwPyOC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/f6uwPyOC)
 
 **1995:** *Greatest Hits* is certified double platinum by the Recording Industry Association of America.
 
@@ -44,9 +44,9 @@
 
 **1996:** Changing venues from his previous show at Royal Albert Hall, Bruce stays in London to perform the first of two solo acoustic shows at Brixton Academy. Tonight’s set features the tour premieres of “Atlantic City,” “Red Headed Woman,” and “Seeds.”
 
-[Watch Video Highlight](https://videopress.com/embed/fK8AddmO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fK8AddmO)
 
-[Watch Video Highlight](https://videopress.com/embed/bjd4mLz9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bjd4mLz9)
 
 [Watch on Youtube: Bruce Springsteen - State Trooper (live Brixton Night - lyrics)](https://www.youtube.com/watch?v=JElnWbkmc8M)
 
@@ -54,15 +54,15 @@
 
 **1999:** Vienna fans witness the only performance of “Dollhouse” to date at a Reunion show at Wiener Stadthalle.
 
-[Watch Video Highlight](https://videopress.com/embed/xVc2UNfN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xVc2UNfN)
 
 [Watch on Youtube: Bruce Springsteen Vienna 24/04/1999 Full Concert](https://www.youtube.com/watch?v=8QnOyrqe6w8)
 
 **2006:** Bruce and the Sessions Band play their second public warm-up show at Asbury Park’s Convention Hall. The waltz arrangement of “If I Should Fall Behind” debuts at this show, as does a new mash-up of “Cadillac Ranch” and “Mystery Train.”
 
-[Watch Video Highlight](https://videopress.com/embed/RnG13val?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RnG13val)
 
-[Watch Video Highlight](https://videopress.com/embed/Eis8SKkb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Eis8SKkb)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2006-04-24.jpg)
 
@@ -70,13 +70,13 @@
 
 [Watch on Youtube: Bruce Springsteen - Wild Thing - Live from Hartford - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=PY9AiWv6wGw)
 
-[Watch Video Highlight](https://videopress.com/embed/fGZxzcnT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fGZxzcnT)
 
-[Watch Video Highlight](https://videopress.com/embed/iMNHmp8A?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iMNHmp8A)
 
-[Watch Video Highlight](https://videopress.com/embed/3i10Paz2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3i10Paz2)
 
-[Watch Video Highlight](https://videopress.com/embed/mRceKQyO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mRceKQyO)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2009-04-24-rotated.jpg)
 

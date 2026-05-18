@@ -8,7 +8,7 @@ We got the latter when Bruce joined Steve Earle on stage during the encore set a
 
 Here’s that one-time only performance, from February 6, 1998. Bruce is on guitar the whole time, and you’ll hear his vocals kick in at around the halfway point.
 
-[Watch Video Highlight](https://videopress.com/embed/tRGCYnzg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tRGCYnzg)
 
 **I Ain’t Ever Satisfied
 First performed:** February 6, 1998 (Sea Bright, NJ)

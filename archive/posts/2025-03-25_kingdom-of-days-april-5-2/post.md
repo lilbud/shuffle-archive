@@ -20,7 +20,7 @@
 
 **1988:** Night Two at the Capital Center in Largo, Maryland, along the Tunnel of Love Express Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/v5RXcyFL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/v5RXcyFL)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-04-05.jpg)
 
@@ -30,7 +30,7 @@
 
 …and then later that night, they play a private gig at Sony Music Studios in New York City. Highlights include the debuts of “[I’m Turning Into Elvis](https://estreetshuffle.com/index.php/2020/03/05/roll-of-the-dice-im-turning-into-elvis/),” “[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/),” and the first full-band “This Hard Land.”
 
-[Watch Video Highlight](https://videopress.com/embed/VFJF5tXA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VFJF5tXA)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1995-04-05.jpg)
 
@@ -46,7 +46,7 @@
 
 **2008:** Another radio station contest to pick a song for the set list–this time “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” is the winner for this Magic Tour stop at HP Pavilion in San Jose. “[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)” and “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” make their tour debut tonight as well.
 
-[Watch Video Highlight](https://videopress.com/embed/4ds7LEvR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4ds7LEvR)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-1-scaled.jpg)
 

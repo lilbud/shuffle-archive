@@ -16,7 +16,7 @@
 
 **1985**: The first of two nights at the Greensboro Coliseum on the Born in the U.S.A. Tour features guest-stars Gary U.S. Bonds and Robbin Thompson on “Twist and Shout” during the encore.
 
-[Watch Video Highlight](https://videopress.com/embed/BK00O8PP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BK00O8PP)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/1985-01-18a.png)
 
@@ -30,9 +30,9 @@
 
 **1989**: Bruce joins the Rolling Stones, the Temptations, Tina Turner, Stevie Wonder, Pete Townshend, and more on stage for the all-star jam at the fourth annual Rock and Roll Hall of Fame induction ceremony. Bruce takes lead vocals on Roy Orbison’s “[Crying](https://estreetshuffle.com/index.php/2022/05/06/cover-me-crying/)” and plays guitar throughout the rest of the jam.
 
-[Watch Video Highlight](https://videopress.com/embed/F1pnPZMx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/F1pnPZMx)
 
-[Watch Video Highlight](https://videopress.com/embed/vyv2jpWy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vyv2jpWy)
 
 [Watch on Youtube: "(I Can't Get No) Satisfaction" All-Star Jam at the 1989 Inductions](https://www.youtube.com/watch?v=vWO-MBMk3h8)
 
@@ -48,7 +48,7 @@
 
 **1996:** Bruce brings his solo acoustic tour to the Fox Theater in St. Louis.
 
-[Watch Video Highlight](https://videopress.com/embed/hqPvtH4u?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hqPvtH4u)
 
 **2009**: Bruce performs “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)” and “[This Land Is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)” at the We Are One concert in honor of Barack Obama’s inauguration as the 44th President of the United States of America.
 

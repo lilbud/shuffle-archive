@@ -10,7 +10,7 @@
 
 **1997:** Night Three (of four) in Tokyo on Bruce’s first solo acoustic tour.
 
-[Watch Video Highlight](https://videopress.com/embed/gjTxDcPj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gjTxDcPj)
 
 **1998:** Bruce rehearses for a benefit concert in Red Bank for a New Jersey police officer murdered two months earlier.
 
@@ -32,7 +32,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/skrkDRF5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/skrkDRF5)
 
 **2021:** Bruce chats with Clive Davis at Clive’s virtual pre-Grammy party.
 

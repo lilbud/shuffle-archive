@@ -18,11 +18,11 @@
 
 **1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park. At the end of their set, the band sings “Happy Birthday” to the newly 33-year-old Bruce.
 
-[Watch Video Highlight](https://videopress.com/embed/29gtxmdA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/29gtxmdA)
 
 **1984:** Bruce and the E Street Band play “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” for the last time for eight years at their second of two Born in the U.S.A. shows at Buffalo Memorial Auditorium.
 
-[Watch Video Highlight](https://videopress.com/embed/D5KXaY9y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/D5KXaY9y)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1984-0925.jpg)
 
@@ -36,7 +36,7 @@
 
 **1992:** Bruce and his new touring band play their second of three World Tour 1992 shows at the L.A. Sports Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/nWtbJdch?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nWtbJdch)
 
 **1996:** Bruce surprises the audience at his solo acoustic show in Akron by giving the usual opener “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” a rest and instead playing a cover of Woody Guthrie’s “[Tom Joad](https://estreetshuffle.com/index.php/2021/05/24/cover-me-tom-joad/).” Mid-set, Bruce plays “[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)” for the first time in over a decade. This show is available as part of Bruce’s official archive series–buy or stream it [here](https://www.nugs.net/live-download-of-bruce-springsteen-e.-j.-thomas-performing-arts-hall-akron-oh-09-25-1996-mp3-flac-or-online-music-streaming/36090.html?cgid=ARTIST-991#utm_source=springsteen&utm_medium=merchposter&utm_campaign=springsteen&utm_content=springsteen&start=1).
 

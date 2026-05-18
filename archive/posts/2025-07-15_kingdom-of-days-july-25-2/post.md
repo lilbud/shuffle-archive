@@ -18,7 +18,7 @@
 
 [Watch on Youtube: She's the One](https://www.youtube.com/watch?v=blbFaatKszE)
 
-[Watch Video Highlight](https://videopress.com/embed/DfPGWB6J?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DfPGWB6J)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1975-07-25.png)
 

@@ -6,13 +6,13 @@
 
 **1976:** Bruce and the E Street Band play their fourth of six nights at the Monmouth Arts Center in Red Bank.
 
-[Watch Video Highlight](https://videopress.com/embed/P8BHqSd0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/P8BHqSd0)
 
 **1977:** Bruce holds a recording session for his fourth album at Atlantic Studios in New York City, where he and the band work on “[The Way,](https://estreetshuffle.com/index.php/2021/08/06/roll-of-the-dice-the-way/)” “[Talk to Me,](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)” and “After Dinner”–none of which will make the album.
 
 **1978:** Bruce and the boys bring the Darkness Tour to Louisville for a night. Bruce loses his place early on during “Rosalita (Come Out Tonight)” and the band vamps until Bruce remembers where he was.
 
-[Watch Video Highlight](https://videopress.com/embed/2zQ6Z7Uq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2zQ6Z7Uq)
 
 [Watch on Youtube: Bruce Springsteen Prove It All Night Live At Louisville 05 Aout 1978](https://www.youtube.com/watch?v=q8rw9izpMaY)
 
@@ -24,7 +24,7 @@ After the show, Bruce sits down for an interview with Australian journalist Davi
 
 **1981:** Night Two at the Capital Center in Largo on the original River Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/pK3XrIXK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pK3XrIXK)
 
 **1984:** Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand at the Meadowlands. This show features the tour premiere of “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” and is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,12491/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-5-1984-Brendan-Byrne-Arena-East-Rutherford-NJ.html). Watch the pro-shot opening of the show below.
 

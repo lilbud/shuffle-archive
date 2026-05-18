@@ -12,7 +12,7 @@ But in the late 1950s, Seeger sensed that a war-weary America needed a bit more 
 
 In the interview below, Seeger tells Alec Wilkinson how he approached writing the song.
 
-[Watch Video Highlight](https://videopress.com/embed/gykVzi7A?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gykVzi7A)
 
 Pete’s own version sat in the vault for a while, though. The first recording of “To Everything There Is a Season” (as it was originally called) to reach listeners’ ears was by an American folk group called The Limeliters in 1962.
 
@@ -34,7 +34,7 @@ The Byrds recorded their version of “Turn! Turn! Turn!” (now completely drop
 
 The Byrds’ version became so popular, in fact, that Seeger himself adopted their version instead of his own.
 
-[Watch Video Highlight](https://videopress.com/embed/jBUiDaAI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jBUiDaAI)
 
 Pete was a bit modest in that interview; both arrangements became classics in their respective genres. And in the 21st century, Bruce Springsteen paid tribute to each of them.
 

@@ -22,7 +22,7 @@
 
 **1988:** Bruce makes a surprise appearance at Sting's show at Madison Square Garden, dueting on "The River" and "Message in a Bottle." The two will shortly kick off a tour together in support of Amnesty International.
 
-[Watch Video Highlight](https://videopress.com/embed/NdZIIyTZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NdZIIyTZ)
 
 ![](../../assets/2020/08/1988-08-24.png)
 
@@ -32,9 +32,9 @@
 
 **2002:** The Rising Tour's barnstorming leg continues with a show at The Forum in Inglewood, California.
 
-[Watch Video Highlight](https://videopress.com/embed/zHuEISJq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zHuEISJq)
 
-[Watch Video Highlight](https://videopress.com/embed/ETN3jmzo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ETN3jmzo)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBZFKBVhmGttZWHy11qCyk9)
 

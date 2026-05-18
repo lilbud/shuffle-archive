@@ -34,7 +34,7 @@
 
 **2002:** Bruce makes his by now expected appearance at the third annual Light of Day benefit at Tradewinds in Sea Bright, once again joining Joe Grushecky and The Houserockers for an hour of their set. Garland Jeffreys and Bob Benjamin join in the fun, as does Gary U.S. Bonds, who plays a set of his own later that night. Around midnight, Bruce returned to the stage with Bonds to play “[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)” and “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/).”
 
-[Watch Video Highlight](https://videopress.com/embed/Y0ntYYJs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Y0ntYYJs)
 
 [https://estreetshuffle.com/wp-content/uploads/2023/11/2002-11-02-Bonds__Merged.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2023/11/2002-11-02-Bonds__Merged.mp3?_=2)
 

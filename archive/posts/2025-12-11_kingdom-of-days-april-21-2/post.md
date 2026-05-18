@@ -30,7 +30,7 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication,* produced 
 
 **2000:** Bruce and the E Street Band bring the Reunion Tour to Charlotte for a single show at the Coliseum.
 
-[Watch Video Highlight](https://videopress.com/embed/pRzGj32m?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pRzGj32m)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2000-04-21a.jpg)
 
@@ -54,7 +54,7 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication,* produced 
 
 [Watch on Youtube: Bruce Springsteen - I'm Bad, I'm Nationwide (Live April 21, 2009 Boston, Massachusetts)](https://www.youtube.com/watch?v=ONBtIdJnY-g)
 
-[Watch Video Highlight](https://videopress.com/embed/9QP5a0NO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9QP5a0NO)
 
 [Watch on Youtube: Boston 21/04/2009](https://www.youtube.com/playlist?list=PLJTyL9twk3zBhyMJIQBVcmK8KqXpQ8Ouf)
 

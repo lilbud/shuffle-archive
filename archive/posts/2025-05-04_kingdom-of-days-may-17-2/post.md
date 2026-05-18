@@ -6,13 +6,13 @@
 
 **1993:** Bruce wraps up the German leg of his World Tour with a show in Mannheim, closing with the tour premiere of “[It’s All Right](https://estreetshuffle.com/index.php/2018/07/19/cover-me-its-all-right/).”
 
-[Watch Video Highlight](https://videopress.com/embed/kIYpIL7d?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kIYpIL7d)
 
 **2003:** “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” makes its Rising Tour premiere in Barcelona.
 
 [Watch on Youtube: Bruce Springsteen & The E street Band The Ties that Bind BCN](https://www.youtube.com/watch?v=6Vyn76to6es)
 
-[Watch Video Highlight](https://videopress.com/embed/MzV0j9ou?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MzV0j9ou)
 
 [Watch on Youtube: Bruce Springsteen - 03.05.17 Barcelona - Hungry Heart.mpg](https://www.youtube.com/watch?v=DD6d5ZLATVo)
 
@@ -20,7 +20,7 @@
 
 **2005:** Bruce shocks fans at the Tower Theater in Philadelphia when he performs “[Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)” for the very first time, on piano. “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)” makes its tour premiere, and during the soundcheck, Bruce covers Dominic Behan’s “[The Patriot Game](https://estreetshuffle.com/index.php/2021/04/08/cover-me-the-patriot-game/)” on pump organ. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,27134/Bruce-Springsteen-mp3-flac-download-5-17-2005-Tower-Theater-Upper-Darby-PA.html).
 
-[Watch Video Highlight](https://videopress.com/embed/TaSM0npr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TaSM0npr)
 
 [Watch on Youtube: Iceman (Live at Tower Theater, Upper Darby, PA - 5/17/2005)](https://www.youtube.com/watch?v=7Bn28oZ069w)
 
@@ -36,7 +36,7 @@
 
 **2006:** Wolfgang Niedecken joins Bruce and the Sessions Band for “[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)” in Frankfurt.
 
-[Watch Video Highlight](https://videopress.com/embed/obMMPfb9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/obMMPfb9)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Columbian_Sat__May_20__2006_-scaled.jpg)
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Prove It All Night (Intro 78), Barcelona, May 17, 2012](https://www.youtube.com/watch?v=VH44kx24XIQ)
 
-[Watch Video Highlight](https://videopress.com/embed/5VtEw0OZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5VtEw0OZ)
 
 At the soundcheck, the band rehearses a song that remains unknown–anyone know what it is?
 
@@ -60,9 +60,9 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 **2014:** The first night of a jaw-dropping two-night closing stand for the High Hopes Tour in an unusual venue: the Mohegan Sun Casino in Uncasville, Connecticut. The set list features an embarrassment of riches from the opening “[Racing in the Street ’78](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” to the tour premiere of “[The Price You Pay](https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)” and “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)” to the closing “Thunder Road.” Little Steven makes his unannounced and triumphant return to the band for these last two shows. For many more highlights from this incredible show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/05/17/where-the-band-was-uncasville-may-17-2014/) from this night.
 
-[Watch Video Highlight](https://videopress.com/embed/yI8lgGav?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yI8lgGav)
 
-[Watch Video Highlight](https://videopress.com/embed/HOqCfFpF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HOqCfFpF)
 
 [Watch on Youtube: Stayin' Alive - Springsteen - Mohegan Sun Arena, CT - May 17, 2014](https://www.youtube.com/watch?v=As2eg3sJiw4)
 

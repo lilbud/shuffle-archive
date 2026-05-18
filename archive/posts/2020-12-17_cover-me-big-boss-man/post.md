@@ -10,7 +10,7 @@ So of course Bruce covered it too, right?
 
 Well, sort of. He’s never “officially” performed it in concert, but if you were lucky enough to be lurking in the Tacoma Dome during the soundcheck for Bruce’s Tunnel of Love Express show on May 6, 1988 (and someone certainly was, because we’ve got the recording), you’d have heard the E Street Band giving “Big Boss Man” their only known recorded run-through.
 
-[Watch Video Highlight](https://videopress.com/embed/LPwXUlvH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LPwXUlvH)
 
 How in the world The Boss resisted a rock and roll classic that seems tailor-made for him all these years is a question I can’t answer. But at least we have this “unofficial” performance.
 

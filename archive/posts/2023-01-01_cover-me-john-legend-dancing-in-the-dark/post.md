@@ -4,7 +4,7 @@ But my favorite performance was during “Springsteen Week” in 2012 on the *Th
 
 Check it out:
 
-[Watch Video Highlight](https://videopress.com/embed/3QbJHFVh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3QbJHFVh)
 
 Bonus: here’s another performance–solo this time–from London in 2013:
 

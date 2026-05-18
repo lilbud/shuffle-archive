@@ -16,9 +16,9 @@
 
 **1980:** Bruce makes his first appearance at the Rosemont Horizon, where the crowd sings “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” to him for the very first time, and “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” gets a unique and funny introduction.
 
-[Watch Video Highlight](https://videopress.com/embed/orWUOCsG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/orWUOCsG)
 
-[Watch Video Highlight](https://videopress.com/embed/PAwgHoD0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PAwgHoD0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/10/46735508144_21f270c05a_o.jpg)
 

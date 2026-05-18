@@ -35,11 +35,11 @@ def video_fixes(soup: bs4) -> bs4:
                 video_id = src.split("list=")[-1]
                 link_url = f"https://www.youtube.com/playlist?list={video_id}"
             else:
-                link_url = src
+                link_url = src.split("?")[0]
 
         # VideoPress
         elif "videopress.com" in src:
-            link_url = src
+            link_url = src.split("?")[0]
             if title == "VideoPress Video Player":
                 title = "Watch Video Highlight"
 

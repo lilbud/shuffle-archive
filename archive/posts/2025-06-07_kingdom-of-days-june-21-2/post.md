@@ -20,7 +20,7 @@
 
 **1984:** Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at Clair Brothers Audio in Lititz, Pennsylvania. That evening, the boys (the entire band except for Danny) drop by The Village in Lancaster and play a 35-minute set. You can listen to that entire set below in amazing quality–but be forewarned: you’ll never hear the E Street Band sound eighties-er than they do here.
 
-[Watch Video Highlight](https://videopress.com/embed/2VRaI53f?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2VRaI53f)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-06-21a.jpg)
 
@@ -42,9 +42,9 @@ Wondering how that show came to happen? Watch the interview below.
 
 [Watch on Youtube: Bruce Springsteen - Because the night - Milano 21.06.1985](https://www.youtube.com/watch?v=XkQhpEdDfHU)
 
-[Watch Video Highlight](https://videopress.com/embed/kfEuI4ZX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kfEuI4ZX)
 
-[Watch Video Highlight](https://videopress.com/embed/yTH4dGLJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yTH4dGLJ)
 
 [Watch on Youtube: Bruce Springsteen - Can't help falling in love - Milano 21.06.1985](https://www.youtube.com/watch?v=5rDGHm_JSFo)
 
@@ -68,13 +68,13 @@ Wondering how that show came to happen? Watch the interview below.
 
 **2003:** Nils celebrates his birthday on-stage with the E Street Band in Gothenburg, where the crowd serenades him with a Swedish birthday song at the end of “[Mary’s Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/).”
 
-[Watch Video Highlight](https://videopress.com/embed/2aeAI8cl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2aeAI8cl)
 
 [Watch on Youtube: Bruce Springsteen. Ullevi, Göteborg. 21st Of June 2003. Full concert (Audio Only)](https://www.youtube.com/watch?v=BjhQHD8t1gk)
 
 **2004:** Promoting her new album, *23rd Street Lullaby*, Patti Scialfa plays a mini-concert on *The Early Show*, including the title track, “[You Can’t Go Back](https://estreetshuffle.com/index.php/2021/10/16/matr-patti-scialfa-and-bruce-springsteen-you-cant-go-back/),” and “[Rose](https://estreetshuffle.com/index.php/2018/03/21/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-rose/).”
 
-[Watch Video Highlight](https://videopress.com/embed/jnPT7zjR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jnPT7zjR)
 
 **2008:** Bruce and the E Street Band bring the Magic Tour to Hamburg, where they play “[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)” for the first time in 28 years.
 

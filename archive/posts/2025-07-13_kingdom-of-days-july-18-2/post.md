@@ -28,7 +28,7 @@
 
 **1978:** The Darkness Tour continues its southern swing with a show at the Municipal Auditorium in Jackson, Mississippi.
 
-[Watch Video Highlight](https://videopress.com/embed/cBZLC6qs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cBZLC6qs)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/07/1978-07-18.png)
 
@@ -40,11 +40,11 @@
 
 **1981:** Bruce and the band play their fourth of five nights at The Spectrum in Philadelphia on the River Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/XehyRDDQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XehyRDDQ)
 
 **1984:** Bruce wraps up a three-night Born in the U.S.A. stand at the Rosemont Horizon with his live debut of “[Do You Love Me?](https://estreetshuffle.com/index.php/2021/12/01/cover-me-do-you-love-me/)”
 
-[Watch Video Highlight](https://videopress.com/embed/kHVTjhMH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kHVTjhMH)
 
 **1999:** Night Two on the U.S. leg of the Reunion Tour in East Rutherford brings out rare performances of “[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)” (the show opener), “[Loose Ends,](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” “[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/),” and “[Freehold](https://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,31193/Bruce-Springsteen-mp3-flac-download-7-18-1999-Continental-Airlines-Arena-East-Rutherford-NJ.html).
 
@@ -66,7 +66,7 @@
 
 **2003:** It’s a rainy Night Three of ten at the Giants Stadium stand of the Rising Tour, and Bruce opens with an audibled “[Who’ll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/).” Garland Jeffreys guests during the encores for “[96 Tears](https://estreetshuffle.com/index.php/2020/02/15/matr-bruce-springsteen-and-garland-jeffreys-96-tears/).”
 
-[Watch Video Highlight](https://videopress.com/embed/NPLvxg3D?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NPLvxg3D)
 
 **2005:** Bruce busts open his Devils & Dust setlist in Buffalo with six tour premieres, including “[4th of July, Asbury Park (Sandy),](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” a solo piano “Leap of Faith,” “[You’re Missing](https://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/),” “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/),” “[When You’re Alone](https://estreetshuffle.com/index.php/2020/11/15/roll-of-the-dice-when-youre-alone/),” and a show-opening new acoustic arrangement of “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” on guitar and harmonica.
 

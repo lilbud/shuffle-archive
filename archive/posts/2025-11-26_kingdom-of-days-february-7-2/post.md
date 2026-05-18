@@ -26,7 +26,7 @@
 
 **1981:** The River Tour (original version) stops at the University of Illinois in Champaign.
 
-[Watch Video Highlight](https://videopress.com/embed/E1mkvS5d?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/E1mkvS5d)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/02/The_Daily_Illini_Tue__Feb_10__1981_.jpg)
 
@@ -40,7 +40,7 @@
 
 **1997:** Bruce’s solo acoustic tour moves on to Sydney for the first of five nights at the Capitol Theater.
 
-[Watch Video Highlight](https://videopress.com/embed/xKJksdPP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xKJksdPP)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1996-02-07.png)
 

@@ -10,7 +10,7 @@
 
 **1981:** The River Tour arrives in Chicago for the first of three nights at the Rosemont Horizon.
 
-[Watch Video Highlight](https://videopress.com/embed/G9I9gL8f?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/G9I9gL8f)
 
 [Watch on Youtube: Bruce Springsteen - Jole Blon](https://www.youtube.com/watch?v=VhRhyFda0zA)
 
@@ -24,9 +24,9 @@
 
 After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio special. It won’t be broadcast until December, but you can listen to it below. (The interview is interspersed between and within songs, so be careful if you skip ahead.)
 
-[Watch Video Highlight](https://videopress.com/embed/TnYc9num?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TnYc9num)
 
-[Watch Video Highlight](https://videopress.com/embed/ihqPmtmL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ihqPmtmL)
 
 **1988:** The Human Rights Now! Tour continues its global trek, arriving in Italy for one show in Turin.
 
@@ -50,7 +50,7 @@ After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio spec
 
 **1999:** Bruce and the reunited E Street Band play their first of two shows at The Palace of Auburn Hills.
 
-[Watch Video Highlight](https://videopress.com/embed/DjhQvXvh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DjhQvXvh)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1999-09-08.jpg)
 

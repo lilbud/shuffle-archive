@@ -48,7 +48,7 @@
 
 **2003:** The Rising Tour stadium leg returns to Giants Stadium, where Bruce and the E Street Band tour premiere “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” and Bobby Bandiera makes a guest appearance on “From Small Things (Big Things One Day Come).”
 
-[Watch Video Highlight](https://videopress.com/embed/dY427w6M?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dY427w6M)
 
 **2007:** Bruce releases the lead single for his upcoming *Magic* album, “[Radio Nowhere,](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)” and announces a tour in support of the album.
 

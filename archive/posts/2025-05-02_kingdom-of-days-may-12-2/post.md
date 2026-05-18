@@ -22,7 +22,7 @@
 
 **1987:** The BBC premieres a new documentary on Bruce, entitled *Glory Days*. It’s well worth a watch–check it out below.
 
-[Watch Video Highlight](https://videopress.com/embed/6s57razJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6s57razJ)
 
 Also today, Little Steven releases his third solo album, *Freedom–No Compromise*. Bruce contributes vocals to one track, “[Native American](https://estreetshuffle.com/index.php/2019/10/25/matr-little-steven-and-bruce-springsteen-native-american/).”
 
@@ -36,7 +36,7 @@ Also today, Little Steven releases his third solo album, *Freedom–No Compromis
 
 [Watch on Youtube: Bruce Springsteen v Praze](https://www.youtube.com/watch?v=Yl1jZh9yCkU)
 
-[Watch Video Highlight](https://videopress.com/embed/xuNzuoki?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xuNzuoki)
 
 [Watch on Youtube: Prague 12/05/1997](https://www.youtube.com/playlist?list=PLJTyL9twk3zC36AplaadJ9eWS7-rQOSpb)
 
@@ -46,13 +46,13 @@ Also today, Little Steven releases his third solo album, *Freedom–No Compromis
 
 **2003:** The Rising Tour makes a stop in Brussels, and Bruce pulls out the tour premiere of “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” for the occasion. The show opener is special as well: an beautiful acoustic version of “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/).”
 
-[Watch Video Highlight](https://videopress.com/embed/zFmXQFNE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zFmXQFNE)
 
 [Watch on Youtube: Bruce Springsteen 4th Of July Asbury Park (Sandy) Brussels 12/05/2003](https://www.youtube.com/watch?v=3UyaIHDMex0)
 
 **2006:** Bruce and the Sessions Band deliver one of the best shows of the early Seeger Sessions Tour in Milan. Check out highlights below, including the tour premiere of “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)” and a beautiful “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/).”
 
-[Watch Video Highlight](https://videopress.com/embed/Z15AQne0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Z15AQne0)
 
 [Watch on Youtube: Bruce Springsteen - Ramrod](https://www.youtube.com/watch?v=fn2BWMpm5_I)
 

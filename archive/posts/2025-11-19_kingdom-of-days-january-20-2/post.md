@@ -4,7 +4,7 @@
 
 [Watch on Youtube: 101 - Bruce Springsteen - 4th Of July,Asbury Park ( Sandy ) - Toronto`1981 - SSE](https://www.youtube.com/watch?v=kSDO0obnEGU)
 
-[Watch Video Highlight](https://videopress.com/embed/CMB9DGt1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CMB9DGt1)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/Edmonton_Journal_1981_01_22_34-scaled.jpg)
 

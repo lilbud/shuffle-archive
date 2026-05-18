@@ -6,7 +6,7 @@
 
 **1984:** At their second of two nights at the Oakland Coliseum on the Born in the U.S.A. Tour, Bruce and the band tour premiere “Stolen Car” and play their very first performance of “[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/).” Bruce brings his sister Pam on stage for “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).”
 
-[Watch Video Highlight](https://videopress.com/embed/NN0O68Cw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NN0O68Cw)
 
 [Watch on Youtube: Oakland 22/10/1984](https://www.youtube.com/playlist?list=PLJTyL9twk3zB33eyP6HMctOXaEcrYQa9_)
 
@@ -34,9 +34,9 @@
 
 **2006:** When the Seeger Sessions Tour comes to Granada, Bruce opens the encores with a tour debut, an acoustic “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/).”
 
-[Watch Video Highlight](https://videopress.com/embed/buHbTTAH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/buHbTTAH)
 
-[Watch Video Highlight](https://videopress.com/embed/R0FIdYUv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/R0FIdYUv)
 
 [Watch on Youtube: Bruce Springsteen - Live In Granada 2006 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=ch7OXyP_JFw)
 
@@ -66,7 +66,7 @@ Finally, Apple TV+ releases the *Letter to You* documentary film, featuring Bruc
 
 And in the last hour before Release Day, Apple Music’s Zane Lowe interviews Bruce and moderates questions from fans in a *New Music Daily* special event.
 
-[Watch Video Highlight](https://videopress.com/embed/MGsbgB6v?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MGsbgB6v)
 
 **2024:** Bruce and the E Street Band rehearse at Sirius XM Studio in New York City for their appearance on *The Howard Stern Show* the following day.
 

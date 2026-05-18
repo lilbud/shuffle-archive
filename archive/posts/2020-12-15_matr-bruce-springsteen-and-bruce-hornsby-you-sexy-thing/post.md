@@ -8,7 +8,7 @@ On the evenings of December 7 and 8 during Bruce’s 2001 holiday show stand in 
 
 Take a listen to one of my favorite under-the-radar covers:
 
-[Watch Video Highlight](https://videopress.com/embed/pgrQg0c6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pgrQg0c6)
 
 Bruce teased fans with “You Sexy Thing” snippets more than a dozen times in the decade that followed, but these two special nights remain the only two times Bruce has ever played it in full.
 

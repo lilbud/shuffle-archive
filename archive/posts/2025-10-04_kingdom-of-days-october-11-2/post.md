@@ -36,7 +36,7 @@ That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Cent
 
 **1980:** At Night Two at Chicago’s Uptown Theater on the River Tour, Bruce tour premieres “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)” and “[Good Rockin’ Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/),” and “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” features a new introduction (actually an older unreleased song) called “[Here She Comes Walkin’](https://estreetshuffle.com/index.php/2020/09/24/roll-of-the-dice-here-she-comes-walkin/).” Bruce will resurrect this introduction more than 35 years later on the River Tour’s sequel.
 
-[Watch Video Highlight](https://videopress.com/embed/rrBFWpm2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rrBFWpm2)
 
 **1998:** Bruce celebrates his birthday belatedly with a private party at his house. The Gotham Playboys–several members of whom will form the core of the Seeger Sessions Band–are the entertainment for the evening, and Steve, Max, Jon Bon Jovi, and Sheryl Crow are among the guests.
 
@@ -52,7 +52,7 @@ That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Cent
 
 **2017:** One final tweak during the last preview performance of *Springsteen on Broadway:* “[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” and “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)” return to their original sequence.
 
-[Watch Video Highlight](https://videopress.com/embed/8HmDEFpr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8HmDEFpr)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

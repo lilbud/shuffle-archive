@@ -16,7 +16,7 @@
 
 **1980:** The River Tour moves on to Detroit’s Cobo Arena, where Bruce and the boys close with a tour one-off of “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)” (following the first “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” with “I Hear a Train” in it). After the show, Bruce is interviewed for the January 1981 issue of *Creem Magazine.*
 
-[Watch Video Highlight](https://videopress.com/embed/nldSXriz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nldSXriz)
 
 [Watch on Youtube: Detroit 09/10/1980](https://www.youtube.com/playlist?list=PLJTyL9twk3zAY05QslAQUnlshn4EyaLM8)
 
@@ -36,9 +36,9 @@
 
 **2005:** Bruce opens his solo acoustic show at the Nassau Coliseum with a rare “Stolen Car.”
 
-[Watch Video Highlight](https://videopress.com/embed/7Uotb7nK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7Uotb7nK)
 
-[Watch Video Highlight](https://videopress.com/embed/Yg4xtYkI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Yg4xtYkI)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/10/2005-10-09-scaled.jpg)
 
@@ -60,4 +60,4 @@
 
 **2023:** After a two-year hiatus, *From My Home to Yours* returns for an encore episode on Sirius XM with Episode 30, with some special guests from Bruce’s high school days along for the ride.
 
-[Watch Video Highlight](https://videopress.com/embed/ndFv6eD3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ndFv6eD3)

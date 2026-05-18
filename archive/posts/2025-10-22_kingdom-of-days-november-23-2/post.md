@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Bruce Springsteen Amsterdam 23/11/1975 Full Concert](https://www.youtube.com/watch?v=VpBcWKgFvSs)
 
-[Watch Video Highlight](https://videopress.com/embed/kr7d6my0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kr7d6my0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/11/The_Guardian_1975_12_05_10.jpg)
 

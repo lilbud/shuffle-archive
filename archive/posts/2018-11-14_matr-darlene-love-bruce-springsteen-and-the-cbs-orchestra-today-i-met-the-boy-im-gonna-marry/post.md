@@ -4,7 +4,7 @@ In 2011, Darlene Love was inducted into the Rock and Roll Hall of Fame. Bruce jo
 
 Only parts of the song were broadcast, but it documented the only time Bruce is known to have played this song. Watch it here, intercut with excerpts of Darlene’s acceptance speech, acknowledging Bruce and Steve:
 
-[Watch Video Highlight](https://videopress.com/embed/6fI9NRMy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6fI9NRMy)
 
 See my post on "[Zip a Dee Doo Dah](https://estreetshuffle.com/index.php/2018/08/28/meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/)" for another great performance from this show.
 

@@ -2,7 +2,7 @@ Bruce’s team-ups are always fun, but this one’s an absolute delight.
 
 It’s no secret that Sam Moore is one of Bruce’s longest and strongest influences. Bruce has spoken at length about it on many occasions, including in this clip from Elvis Costello’s too short-lived *Spectacle* series.
 
-[Watch Video Highlight](https://videopress.com/embed/ucFmhKLJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ucFmhKLJ)
 
 What’s surprising, though, is how long it took for Bruce and Sam to share a stage together, especially after Sam appeared on three of Bruce’s studio tracks (“Man’s Job,” “Real World,” and “Soul Driver”) in the early nineties.
 
@@ -24,7 +24,7 @@ When Bruce and Sam tackled “I Thank You” together, Bruce quickly and graciou
 
 In the wonderful clip below, keep your eye on Bruce during the close-ups–the mix of wonder, joy, excitement, and humility in performing with one of his idols is all right there on his face.
 
-[Watch Video Highlight](https://videopress.com/embed/9mXCbgla?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9mXCbgla)
 
 (The clip didn’t cut off before the end–they just segued at that point into “Soul Man.”)
 

@@ -2,7 +2,7 @@
 
 **1964:** Bruce watches the debut of The Dave Clark Five on *The Ed Sullivan Show*. Below, Bruce, Steve, and Max describe the influence they had on the E Street Band’s shows.
 
-[Watch Video Highlight](https://videopress.com/embed/XcpLG252?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XcpLG252)
 
 **1969:** Child opens for Nicky Addeo at Pandemonium in Wanamassa, New Jersey.
 
@@ -12,7 +12,7 @@
 
 Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicago at the Richmond Coliseum, where the set list features an ultra-rare “[Secret to the Blues](https://estreetshuffle.com/index.php/2024/09/14/roll-of-the-dice-secret-to-the-blues/).” The local music reviewer is more impressed with the opening act than than the headliner.
 
-[Watch Video Highlight](https://videopress.com/embed/FxQZ7p9W?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/FxQZ7p9W)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Richmond_Times_Dispatch_Fri__Jun_1__1973_-scaled.jpg)
 
@@ -20,7 +20,7 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 **1978:** Bruce wraps his three-night Darkness Tour stand at Boston’s Music Hall with the tour premiere of “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/).”
 
-[Watch Video Highlight](https://videopress.com/embed/xqYnzHkh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xqYnzHkh)
 
 [Watch on Youtube: Boston 31/05/1978](https://www.youtube.com/playlist?list=PLJTyL9twk3zDfRI7JVRMsPUjYC8GkmrSl)
 
@@ -42,17 +42,17 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 **2003:** Bruce treats Irish fans to a rare “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)” when the Rising tour stops at RDS Arena in Dublin.
 
-[Watch Video Highlight](https://videopress.com/embed/89y0xSqG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/89y0xSqG)
 
 [Watch on Youtube: Bruce Springsteen Dublin 31/05/2003 Full Concert](https://www.youtube.com/watch?v=duv8guPDvlE)
 
 **2006:** At his Seeger show in Noblesville, Indiana, Bruce opens with the premiere of a new arrangement of “[Atlantic City,](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” and debuts “[Froggie Went A-Courtin’](https://estreetshuffle.com/index.php/2021/01/26/roll-of-the-dice-cover-me-froggie-went-a-courtin/)” by request for a seven-year-old boy.
 
-[Watch Video Highlight](https://videopress.com/embed/rfWZdex5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rfWZdex5)
 
-[Watch Video Highlight](https://videopress.com/embed/2Wp4z8iO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2Wp4z8iO)
 
-[Watch Video Highlight](https://videopress.com/embed/DIWG2BtK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DIWG2BtK)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2006-05-31.jpg)
 
@@ -68,10 +68,10 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 [Watch on Youtube: THE PROMISE LAND - Bruce Springsteen - Padova 2013 - Pre show](https://www.youtube.com/watch?v=jSXx366ZD5Q)
 
-[Watch Video Highlight](https://videopress.com/embed/8gpvLEdK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8gpvLEdK)
 
 [Watch on Youtube: springsteen padova 2013 meeting across the river](https://www.youtube.com/watch?v=2TdZ3Muc-8c)
 
-[Watch Video Highlight](https://videopress.com/embed/liL4iFOd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/liL4iFOd)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.

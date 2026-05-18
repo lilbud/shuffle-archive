@@ -36,7 +36,7 @@
 
 **1985:** The third of five nights at Tokyo’s Yoyogi National Gymnasium, where Bruce plays “[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)” for the last time on the tour. Other than the two Christic shows in 1990, the song won’t be heard again for more than a decade.
 
-[Watch Video Highlight](https://videopress.com/embed/jH8MQOe7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jH8MQOe7)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/Daily_Record_Tue__Apr_16__1985_-scaled.jpg)
 
@@ -48,11 +48,11 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s curr
 
 **1988:** Bruce and the band play their second of two shows at The Summit in Houston.
 
-[Watch Video Highlight](https://videopress.com/embed/OkkTPjEr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OkkTPjEr)
 
 **1993:** Bruce’s World Tour 1993 moves on to Lyon for a single show at Halle Tony Garnier.
 
-[Watch Video Highlight](https://videopress.com/embed/DWvX1khT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DWvX1khT)
 
 **1996:** The Italian leg of Bruce’s solo acoustic tour concludes with a show at Teatro Carlo Felice in Genoa.
 
@@ -60,7 +60,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s curr
 
 **1999:** *18 Tracks* is released, and the Reunion Tour moves on to Germany, starting with a single show in Munich.
 
-[Watch Video Highlight](https://videopress.com/embed/2gsmRPKN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2gsmRPKN)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/1999-04-13.jpg)
 
@@ -68,7 +68,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s curr
 
 **2003:** The Canadian leg of the Rising Tour continues with a show at Pengrowth Saddledome in Calgary.
 
-[Watch Video Highlight](https://videopress.com/embed/aylHqzwW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/aylHqzwW)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2003-04-13.jpg)
 

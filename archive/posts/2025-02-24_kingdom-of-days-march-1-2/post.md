@@ -32,13 +32,13 @@ Note: This is a strange date in history: Bruce rarely cancels shows, but on this
 
 **1995:** Bruce performs “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” and wins Grammys for Best Rock Song, Best Male Rock Vocal Performance, Song of the Year, and Best Song Written Specifically for a Motion Picture or for Television. The only nomination for which he doesn’t take home the award is for Record of the Year. Check out the footage of the awards, post-ceremony interviews and more below.
 
-[Watch Video Highlight](https://videopress.com/embed/HclHJdZx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HclHJdZx)
 
 [Watch on Youtube: Bruce Springsteen wins awards for "Streets of Philadelphia"](https://www.youtube.com/watch?v=5_cloJH4slM)
 
 [Watch on Youtube: Bruce Springsteen "Streets of Philadelphia" Grammy Interview](https://www.youtube.com/watch?v=W5OExj0BakE)
 
-[Watch Video Highlight](https://videopress.com/embed/KNpyCgB4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KNpyCgB4)
 
 [Watch on Youtube: 1995: BRUCE SPRINGSTEEN & wife PATTI leave Grammy party](https://www.youtube.com/watch?v=g8k45X2-0Wg)
 
@@ -56,7 +56,7 @@ Note: This is a strange date in history: Bruce rarely cancels shows, but on this
 
 [Watch on Youtube: Ride The Night Away - Jimmy Barnes and Little Steven - Mt Smart Stadium, Auckland 1-3-2014](https://www.youtube.com/watch?v=n7PagtsHHbs)
 
-[Watch Video Highlight](https://videopress.com/embed/eYWAhM3R?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eYWAhM3R)
 
 [Watch on Youtube: Royals (Live at Mount Smart Stadium, Auckland, NZ - 03/01/14 - Official Audio)](https://www.youtube.com/watch?v=OBIAKHw5y4Q)
 

@@ -16,7 +16,7 @@
 
 **1981:** Bruce and the E Street Band bring the original River Tour to the San Diego Sports Arena, where the boys play “[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)” for the last time for 21 years.
 
-[Watch Video Highlight](https://videopress.com/embed/X9DB6SRG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/X9DB6SRG)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/09/Camarillo_Star_1981_09_06_22.jpg)
 
@@ -38,7 +38,7 @@
 
 **1992:** Bruce’s World Tour 1992 arrives at the World Music Theater in Tinley Park, Illinois for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/KSH6dQTI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KSH6dQTI)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-09-02.jpg)
 
@@ -70,9 +70,9 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berry�
 
 **2012:** Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres “[Green Onions](https://estreetshuffle.com/index.php/2019/05/17/cover-me-green-onions/)” during sign collection, as well as “[Good Rockin’ Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/),” “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/),” and Philly special “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/).”
 
-[Watch Video Highlight](https://videopress.com/embed/VD2CbhUu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VD2CbhUu)
 
-[Watch Video Highlight](https://videopress.com/embed/ezSSSYIR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ezSSSYIR)
 
 [Watch on Youtube: Good Rockin Tonight - Citizens Bank Park - Sept 2, 2012 - Bruce Springsteen](https://www.youtube.com/watch?v=aKqGDgXMFjM)
 

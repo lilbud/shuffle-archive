@@ -10,7 +10,7 @@
 
 **1983:** For a brief but glorious run, Big Man’s West was a center of gravity for the Jersey Shore Music scene. Owned by Clarence Clemons and managed by Bruce’s personal assistant Terry Magovern, the Springsteen connections were strong. Bruce played the small nightclub at least eighteen times during its eighteen-month life, along with Southside Johnny, John Eddie, Joan Jett, Bonnie Raitt, and others. On this final night in 1983, Bruce, Clarence, Max and Garry join Lance Larson on stage for covers of “Rockin’ All Over the World” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).” Big Man’s West closes immediately after, but the E Street Band will use the empty space to rehearse for the *Born in the U.S.A.* Tour the following year.
 
-[Watch Video Highlight](https://videopress.com/embed/75Oa5mv6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/75Oa5mv6)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/01/1983-0108.jpg)
 
@@ -22,7 +22,7 @@
 
 **1985**: Bruce plays the second of two nights at the Market Square Arena in Indianapolis. This night would have been Elvis’ 50th birthday, and in his memory Bruce plays his first U.S. performance of “[Can’t Help Falling in Love](https://estreetshuffle.com/index.php/2021/05/06/cover-me-cant-help-falling-in-love/).”
 
-[Watch Video Highlight](https://videopress.com/embed/YH9F3RWM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YH9F3RWM)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Indianapolis_Star_1985_01_11_Page_22-scaled.jpg)
 
@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Bruce Springsteen - News coverage from concert in Toronto, 1996-01-08](https://www.youtube.com/watch?v=Yt1DXqtpIoM)
 
-[Watch Video Highlight](https://videopress.com/embed/6tRX2hAF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6tRX2hAF)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Toronto_Star_1996_01_09_60.jpg)
 

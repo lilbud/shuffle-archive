@@ -30,7 +30,7 @@
 
 **1985:** Bruce shakes up the set list for Night Two in Miami on the Born in the U.S.A. Tour–no tour premieres, but several songs make their return after a month of unchanging sets.
 
-[Watch Video Highlight](https://videopress.com/embed/Yx72G4DQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Yx72G4DQ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1985-09-10.jpg)
 
@@ -52,7 +52,7 @@
 
 **1993:** Gene Siskel and Roger Ebert appear on the new *Late Show with David Letterman.* Dave shows a clip of Gene and Bruce chatting backstage after a previous show, and Gene reveals what they discussed in their movie-focused conversation. Check out the clip below:
 
-[Watch Video Highlight](https://videopress.com/embed/ntJl0t6p?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ntJl0t6p)
 
 **2003:** One final Canadian show on the Rising Tour at the Skydome in Toronto, where Bruce pays tribute to Warren Zevon (who died three days prior) by opening with his only performance to date of “[My Ride’s Here](https://estreetshuffle.com/index.php/2022/03/24/cover-me-my-rides-here/).”
 

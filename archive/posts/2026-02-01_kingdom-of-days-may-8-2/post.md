@@ -20,7 +20,7 @@
 
 **1982:** Bruce guests with Beaver Brown at The Fast Lane in Asbury Park for “Jole Blon,” “Jersey Girl,” “Lucille,” and “Around and Around.”
 
-[Watch Video Highlight](https://videopress.com/embed/FYSJTZ6R?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/FYSJTZ6R)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1982-0508.jpg)
 

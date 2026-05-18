@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Bruce Springsteen -SOMETHING IN THE NIGHT 1976 (audio)](https://www.youtube.com/watch?v=hsJjFUCRk7k)
 
-[Watch Video Highlight](https://videopress.com/embed/uRqygABS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uRqygABS)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1976-09-26.jpg)
 
@@ -40,7 +40,7 @@
 
 **1984:** Bruce makes a guest appearance with Southside Johnny and The Asbury Jukes at Morristown Community Theater. (Photo courtesy of Bob Ferrel and Terry Camp)
 
-[Watch Video Highlight](https://videopress.com/embed/BLB6tDyx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BLB6tDyx)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1984-0926.jpg)
 

@@ -30,7 +30,7 @@
 
 Later in the show, Bruce performs “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/),” but something moves him to do something unusual during the song’s majestic coda.
 
-[Watch Video Highlight](https://videopress.com/embed/wpKaZCbf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wpKaZCbf)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_New_Standard_Tue__May_5__1981_.jpg)
 
@@ -40,9 +40,9 @@ Later in the show, Bruce performs “[Racing in the Street](https://estreetshuff
 
 **2003:** At the Count Basie Theater in Red Bank, Bruce performs at *The Hope Concert*, a benefit for Bobby Bandiera’s son. Backed by Bobby’s band, Bruce is joined by Southside Johnny, Jon Bon Jovi, Gary U.S. Bonds, and The Max Weinberg 7. The show is full of great performances and team-ups, including Bruce joining Southside Johnny on “[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)” and Gary U.S. Bonds on “[This Little Girl.](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)”
 
-[Watch Video Highlight](https://videopress.com/embed/mg0oCgf7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mg0oCgf7)
 
-[Watch Video Highlight](https://videopress.com/embed/Ga6Verkm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ga6Verkm)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2003-04-29a.jpg)
 
@@ -52,13 +52,13 @@ Later in the show, Bruce performs “[Racing in the Street](https://estreetshuff
 
 **2009:** Night Two at the Spectrum in Philadelphia brought with it the tour premieres of “[London Calling](https://estreetshuffle.com/index.php/2018/04/09/matr-bruce-springsteen-elvis-costello-steve-van-zandt-dave-grohl-london-calling/),” “[Red Headed Woman,](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” “[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/),” “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/),” and an epic, show-closing “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/).” For more highlights from this incredible show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/04/29/where-the-band-was-philadelphia-april-29-2009/) from this date.
 
-[Watch Video Highlight](https://videopress.com/embed/PrRDgKjw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PrRDgKjw)
 
-[Watch Video Highlight](https://videopress.com/embed/PAT6I6NT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PAT6I6NT)
 
-[Watch Video Highlight](https://videopress.com/embed/x7PFpbRt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/x7PFpbRt)
 
-[Watch Video Highlight](https://videopress.com/embed/1ospUpnN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1ospUpnN)
 
 [Watch on Youtube: Bruce Springsteen - London Calling (April 29, 2009 Philadelphia)](https://www.youtube.com/watch?v=FRKaQL9_sog)
 

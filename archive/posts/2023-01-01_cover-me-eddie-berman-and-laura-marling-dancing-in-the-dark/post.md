@@ -12,7 +12,7 @@ About a half-hour in to our amazing tasting experience, I was feeling pretty goo
 
 And then I suddenly noticed what was playing on the bar’s stereo, and the evening became perfect.
 
-[Watch Video Highlight](https://videopress.com/embed/cBy6nX1x?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cBy6nX1x)
 
 As you can hear in the video above, there was a lovely acoustic cover of “Dancing in the Dark” playing, and it was one I’d never heard before.
 

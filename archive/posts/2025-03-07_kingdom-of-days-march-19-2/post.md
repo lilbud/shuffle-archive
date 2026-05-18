@@ -32,7 +32,7 @@
 
 **1999:** A second public warm-up show for Bruce Springsteen and the E Street Band, their last in the U.S. before the Reunion Tour kicks off. “[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)” makes its live debut, and “The Promise” is played for the first time in 21 years.
 
-[Watch Video Highlight](https://videopress.com/embed/yPtVKHzK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yPtVKHzK)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19a.jpg)
 
@@ -42,9 +42,9 @@
 
 **2000:** Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/KtVROHSG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KtVROHSG)
 
-[Watch Video Highlight](https://videopress.com/embed/eLzC9Wo8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eLzC9Wo8)
 
 **2005:** With the Seeger Sessions Band in his home studio, Bruce records “[Old Dan Tucker](https://estreetshuffle.com/index.php/2020/11/24/cover-me-old-dan-tucker/),” “[Mrs. McGrath](https://estreetshuffle.com/index.php/2019/05/26/cover-me-rotd-mrs-mcgrath/),” “[Erie Canal](https://estreetshuffle.com/index.php/2019/11/02/cover-me-erie-canal/),” “[O Mary Don’t You Weep,](https://estreetshuffle.com/index.php/2022/07/15/cover-me-o-mary-dont-you-weep/)” “[John Henry](https://estreetshuffle.com/index.php/2021/06/01/cover-me-rotd-john-henry/),” “[Shenandoah](https://estreetshuffle.com/index.php/2022/03/22/cover-me-shenandoah/),” “[Froggie Went A-courtin](https://estreetshuffle.com/index.php/2021/01/26/roll-of-the-dice-cover-me-froggie-went-a-courtin/)‘” and “[Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/).”
 
@@ -52,7 +52,7 @@
 
 **2009:** Jon Stewart interviews Bruce on The Daily Show, where Bruce performs an acoustic version of “[Working on a Dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/).” Later that evening, Bruce and the E Street Band (with Jay Weinberg filling in for his dad) rehearse at Asbury Park Convention Hall.
 
-[Watch Video Highlight](https://videopress.com/embed/5Dsw0eAI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5Dsw0eAI)
 
 **2012:** Night Two of the Wrecking Ball Tour, at the Greensboro Coliseum. For show highlights, see my [*Where the Band Was* report for this show.](https://estreetshuffle.com/index.php/2018/03/19/where-the-band-was-greensboro-march-19-2012/)
 

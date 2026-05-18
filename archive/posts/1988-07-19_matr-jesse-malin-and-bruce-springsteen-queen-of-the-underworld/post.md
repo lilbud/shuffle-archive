@@ -14,7 +14,7 @@ Perhaps it was one of those comparisons that got Bruce’s attention. Whatever i
 
 We listened to one of those two songs, “Wendy,” a couple of years ago. But it was “Queen of the Underworld” that marked Jesse and Bruce’s first on-stage collaboration, with a terrific performance that featured Jesse on lead vocals and Bruce on backing vocals and a prominent guitar solo.
 
-[Watch Video Highlight](https://videopress.com/embed/tINU0O8J?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tINU0O8J)
 
 Jesse would go on to perform with Bruce eight more times over the sixteen years that followed, and they collaborated in the studio as well, on “Broken Radio.” But while they would never play it again after those first shows in 2003, it was “Queen of the Underworld” that introduced and made Jesse Malin a welcome member of E Street Nation.
 

@@ -6,7 +6,7 @@
 
 **1972:** The Bruce Springsteen Band plays show number eight of nine at The Back Door in Richmond.
 
-[Watch Video Highlight](https://videopress.com/embed/rk5jflxT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rk5jflxT)
 
 **1973:** Bruce plays his first west coast show since signing his record deal at The Troubadour in West Hollywood, opening for Pan. When his guitar amp dies a couple of songs in, Bruce finishes the rest of his set on piano.
 
@@ -14,13 +14,13 @@
 
 **1977:** Bruce and the E Street Band play the Indiana Convention Center in Indianapolis.
 
-[Watch Video Highlight](https://videopress.com/embed/rnSgE4Xn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rnSgE4Xn)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/02/1977-0226.jpg)
 
 **1981:** The River Tour moves on to the Nashville Municipal Auditorium.
 
-[Watch Video Highlight](https://videopress.com/embed/bWl65Snm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bWl65Snm)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1981-02-26.jpg)
 
@@ -42,9 +42,9 @@
 
 **1996:** Bruce’s solo acoustic tour moves on to Amsterdam. The acoustic/percussive arrangement of “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” makes its debut and will close the show for the rest of the tour. This show also features the tour debut of “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/).”
 
-[Watch Video Highlight](https://videopress.com/embed/t4RYAYvv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/t4RYAYvv)
 
-[Watch Video Highlight](https://videopress.com/embed/2hTLOHmW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2hTLOHmW)
 
 [Watch on Youtube: Bruce Springsteen Live at the Carré Theater, Amsterdam - 1996 (audience audio recording)](https://www.youtube.com/watch?v=MhgM87h9_ek)
 
@@ -54,7 +54,7 @@
 
 **1999:** Bruce stops by *Late Night With Conan O’Brien* to collect Max for the upcoming Reunion Tour and performs a fun “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” with The Max Weinberg 7.
 
-[Watch Video Highlight](https://videopress.com/embed/pISaTcTb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pISaTcTb)
 
 **2008:** Bruce and the band rehearse for the next leg of the Magic Tour at Convention Hall in Asbury Park.
 

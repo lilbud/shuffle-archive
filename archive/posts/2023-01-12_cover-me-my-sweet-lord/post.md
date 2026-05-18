@@ -8,7 +8,7 @@ Bruce’s one-time-only cover featured a gentle acoustic arrangement with backin
 
 Bruce concluded with a fond “Lord bless you, George!” before launching into a more traditional holiday set. To date, this was the only time Bruce is known to have performed “My Sweet Lord” in concert.
 
-[Watch Video Highlight](https://videopress.com/embed/hniSZMBx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hniSZMBx)
 
 **My Sweet Lord
 First performed:** December 3, 2001 (Asbury Park, NJ)

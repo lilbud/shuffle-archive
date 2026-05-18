@@ -46,7 +46,7 @@
 
 **1988:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for "Stand By Me" and "Around and Around." (Photo credit: Debra Rothenberg)
 
-[Watch Video Highlight](https://videopress.com/embed/38uvJMi5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/38uvJMi5)
 
 ![](../../assets/2020/08/1988-08-21.png)
 
@@ -58,7 +58,7 @@
 
 **1992:** Bruce and his 1992-93 touring band bring World Tour 1992 to the Richfield Coliseum for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/aiv7ziZl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/aiv7ziZl)
 
 ![](../../assets/2020/08/1992-08-21a.png)
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DU1Af39FXks)
 
-[Watch Video Highlight](https://videopress.com/embed/tmIPLdJI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tmIPLdJI)
 
 ![](../../assets/2018/08/1999-0821.jpg)
 

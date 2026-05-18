@@ -10,15 +10,15 @@ Still, while Bruce has performed the song on stage several times over the years,
 
 Bruce’s first run at the song was way back in 1982, during one of his “open secret” Stone Pony gigs with Cats on a Smooth Surface.
 
-[Watch Video Highlight](https://videopress.com/embed/y2WUEbRW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/y2WUEbRW)
 
 The next time Bruce played “The Wanderer,” it was with such a stellar assemblage of talent that the camera doesn’t even register his presence. (He’s there, though, off to the far left, providing backing to the original artist himself and an all-star Hall of Fame jam band in January 1989.
 
-[Watch Video Highlight](https://videopress.com/embed/fIJa2LOv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fIJa2LOv)
 
 In the mid-nineties, Bruce played the song with Dion once again, but this time both men were guests of Joe Grushecky during Joe’s local appearances (one in Long Branch in 1994, the other in New York City the following year).
 
-[Watch Video Highlight](https://videopress.com/embed/2pX9wsJ2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2pX9wsJ2)
 
 It took a request sign to finally get Bruce to play the song with the E Street Band–almost ten years ago in Des Moines, Iowa. It took them a minute to work it out, but once they did… let’s just say it was worth the wait.
 

@@ -20,7 +20,7 @@
 
 **1985:** Night Four of five at the Sydney Entertainment Center on the Born in the U.S.A. Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/RxOJwN5n?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RxOJwN5n)
 
 **1996:** Bruce’s scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year’s Oscar ceremony.
 

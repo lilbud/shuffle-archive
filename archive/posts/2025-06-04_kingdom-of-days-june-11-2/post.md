@@ -4,11 +4,11 @@
 
 [Watch on Youtube: Bruce Springsteen Live in Turin 1988](https://www.youtube.com/watch?v=Q9KzCea1pas)
 
-[Watch Video Highlight](https://videopress.com/embed/gYCoDgq3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gYCoDgq3)
 
-[Watch Video Highlight](https://videopress.com/embed/t0FP0YBc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/t0FP0YBc)
 
-[Watch Video Highlight](https://videopress.com/embed/biYvkhDi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/biYvkhDi)
 
 [Watch on Youtube: Bruce Springsteen Torino 11/6/1988 Full Concert](https://www.youtube.com/watch?v=adIkoqMKc1o)
 

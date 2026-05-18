@@ -12,7 +12,7 @@ No, “Funky Broadway” is obscure because even though Bruce has covered it thr
 
 Bruce’s earliest cover of “Funky Broadway” was way back in his Steel Mill Days. We don’t have a full recording of it, but there’s a surviving snippet of it.
 
-[Watch Video Highlight](https://videopress.com/embed/VAESTykw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VAESTykw)
 
 The most recent time was in 1994, when Bruce turned up unannounced at The Stone Pony’s 20th anniversary party with Southside Johnny and The Asbury Jukes.
 

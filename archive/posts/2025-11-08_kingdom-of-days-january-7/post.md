@@ -2,7 +2,7 @@
 
 **1985**: Bruce and the E Street Band play the first of two shows at the Market Square Arena in Indianapolis.
 
-[Watch Video Highlight](https://videopress.com/embed/u6P0Qra6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/u6P0Qra6)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Indianapolis_Star_1985_01_08_Page_14.jpg)
 
@@ -12,13 +12,13 @@
 
 **1996:** Bruce plays an acoustic set at Salle Wilfrid-Pelletier in Montreal.
 
-[Watch Video Highlight](https://videopress.com/embed/BajA8CC1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BajA8CC1)
 
-[Watch Video Highlight](https://videopress.com/embed/pEU1H6gx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pEU1H6gx)
 
-[Watch Video Highlight](https://videopress.com/embed/LEvBa7FU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LEvBa7FU)
 
-[Watch Video Highlight](https://videopress.com/embed/NDBz2bh5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NDBz2bh5)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/1996-01-07.png)
 

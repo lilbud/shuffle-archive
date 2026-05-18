@@ -8,15 +8,15 @@ On a cold day in late November, my friend Tjeerd and I took a ride across the bo
 
 “[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)” is my favorite song from *[Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/),* and it was the song I looked forward to the most at each show. I was shocked and delighted when Bruce opened the show with it that night–and it worked perfectly as an opener. Check out the video below; the band took the stage in darkness, and Bruce led the crowd in an extended chant, building energy and anticipation through the initial chorus. The arena exploded when the band joined and the lights came on.
 
-[Watch Video Highlight](https://videopress.com/embed/tSIP2IPy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tSIP2IPy)
 
 “[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)” followed (a traditional member of the opening pack), but Bruce threw another curve when he followed that with “[Hungry Heart,](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” played slightly earlier in the set than usual, and setting the tone for a light-hearted, celebratory evening.
 
-[Watch Video Highlight](https://videopress.com/embed/tKxNYA4j?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tKxNYA4j)
 
 Next came one of the intact cores of the Wrecking Ball Tour: the successive sequence of “[We Take Care of Our Own,](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)” “[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/),” and “[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/).” I’m a big fan of the [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)album, and I was delighted that this far into the tour, Bruce was still spotlighting so much new material.
 
-[Watch Video Highlight](https://videopress.com/embed/eq7JohEx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eq7JohEx)
 
 The emotional release of “My City of Ruins” was next, and Bruce’s mid-song speech tonight was particularly poignant. It was still very much the aftermath of Hurricane Sandy, and the song carried even more resonance than usual for Bruce. Even Bruce’s regular “ghosts” speech felt more emotional that night, and Bruce often seemed lost in reflection. See for yourself:
 
@@ -32,13 +32,13 @@ Sign collection time! Bruce collected some great ones tonight. My favorite read 
 
 A rare “[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)” followed (my first!), with the Red Headed Woman sign shimmying comically against Max’s drums during every chorus. Nils’ “Because the Night” showcase came next, fierce and furious as always. As it usually does, “Because the Night” segued into “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/),” with a healthy serving of “[Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)” during the intro.
 
-[Watch Video Highlight](https://videopress.com/embed/i8kDYSAe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/i8kDYSAe)
 
 If there was a low point of the evening, it came next. “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)” is one of the few Springsteen songs that I absolutely hate, and even though it’s a rarity, I seem to have a knack for being in the room when he plays it. Like this night.
 
 The second half of the *Born in the U.S.A.* double-header was better, although if I recall correctly, Nils forgot to join Bruce mid-arena during “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)” and literally had to run from the stage to catch up to Bruce once he remembered.
 
-[Watch Video Highlight](https://videopress.com/embed/hB0p0pet?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hB0p0pet)
 
 After “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)” came the main set’s final curve ball: a rare non-sign-collection outing for “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/).” A minor scare here: Bruce fell during the song at the 2-minute mark, and a couple of surprised fans suddenly found Bruce in their laps.
 
@@ -50,10 +50,10 @@ Traditional main set closers followed, lifting the evening to satisfying crescen
 
 The encore set was outstanding, starting with a pair of genuine surprises–not because the songs were rare, but because their placement was: By request, Bruce led off with a gorgeous “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/),” followed by a welcome return for “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)” — both in rare encore appearances.
 
-[Watch Video Highlight](https://videopress.com/embed/F2Y7ISRz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/F2Y7ISRz)
 
 Next, lights up for “Born to Run” and “[Dancing in the Dark.](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” And then–finally–Santa (who made an appearance himself), followed by a show-closing “[Tenth Avenue Freeze-Out.](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)”
 
-[Watch Video Highlight](https://videopress.com/embed/8ng5tnEo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8ng5tnEo)
 
 After the summer Fenway shows, this was my favorite show of the nine I saw that year, and I honestly can’t tell you why. There was nothing exceptionally remarkable about it, but the combination of the holiday season, the band’s comfort with the new material so late in the tour, and Bruce’s overall looseness that evening added up to a terrifically fun evening.

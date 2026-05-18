@@ -28,11 +28,11 @@ Bruce is keeping busy on stage, because he’s unable to record. Billboard publi
 
 **1982:** Bruce makes a guest appearance with Beaver Brown at Big Man’s West in Red Bank.
 
-[Watch Video Highlight](https://videopress.com/embed/xxwmH9gZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xxwmH9gZ)
 
 **1984:** Bruce and the E Street Band play their first of two nights at The Centrum in Worcester, Massachusetts.
 
-[Watch Video Highlight](https://videopress.com/embed/RvNDhcgd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RvNDhcgd)
 
 Today is also the deadline for MTV’s “On the Road with Bruce Springsteen” contest, where fans can win an opportunity to join Bruce on tour for a week. Check out the commercial and imagine what it would have been like to win this contest:
 
@@ -40,7 +40,7 @@ Today is also the deadline for MTV’s “On the Road with Bruce Springsteen” 
 
 …and then check out the experience the winner actually had. MTV and Bruce more than lived up to their promise!
 
-[Watch Video Highlight](https://videopress.com/embed/bXyEbWsI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bXyEbWsI)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/09/The_Republican_1984_09_05_20-scaled.jpg)
 
@@ -50,7 +50,7 @@ Today is also the deadline for MTV’s “On the Road with Bruce Springsteen” 
 
 **1985:** The Born in the U.S.A. Tour enters its final month with a show at the Pontiac Silverdome.
 
-[Watch Video Highlight](https://videopress.com/embed/hH4Goe8j?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hH4Goe8j)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1985-09-04a.jpg)
 
@@ -62,7 +62,7 @@ Today is also the deadline for MTV’s “On the Road with Bruce Springsteen” 
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Brilliant Disguise.(Live) Paris Sep 4 1988](https://www.youtube.com/watch?v=u4C05fBc4PQ)
 
-[Watch Video Highlight](https://videopress.com/embed/ERsioDJ7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ERsioDJ7)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/09/The_Modesto_Bee_1988_09_05_2.jpg)
 
@@ -82,7 +82,7 @@ Today is also the deadline for MTV’s “On the Road with Bruce Springsteen” 
 
 **2014:** Bruce guest stars on the finale of *Lilyhammer* on Netflix.
 
-[Watch Video Highlight](https://videopress.com/embed/vJr4PWnD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vJr4PWnD)
 
 [Watch on Youtube: Bruce Springsteen to Make Acting Debut in Netflix's Lilyhammer](https://www.youtube.com/watch?v=HoXlDETxC7Y)
 

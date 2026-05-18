@@ -32,7 +32,7 @@
 
 **1985:** Bruce spends his 36th birthday on stage at Denver’s Mile High Stadium. The night is unseasonably cold, with temperatures dropping into the 30s. The result is a relatively quiet crowd–they’re clapping with gloves on!
 
-[Watch Video Highlight](https://videopress.com/embed/Bpja26tF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Bpja26tF)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1985-09-23a.jpg)
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN and The E STREET BAND - Human Rights Now, Oakland, CA. September 23, 1988](https://www.youtube.com/watch?v=pZ-8l_MjUlU)
 
-[Watch Video Highlight](https://videopress.com/embed/ObIM11p3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ObIM11p3)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/09/1988-09-23a.jpg)
 

@@ -4,7 +4,7 @@
 
 **1972:** The Bruce Springsteen Band opens a nine-show stand at The Back Door in Richmond, where the band will play for much of the month. Listen to their set below.
 
-[Watch Video Highlight](https://videopress.com/embed/x5Fk6fi8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/x5Fk6fi8)
 
 **1973:** Bruce and the as-yet-unnamed E Street Band play their fifth of six nights at Max’s Kansas City in New York, both opening and closing for headliner Biff Rose.
 
@@ -20,7 +20,7 @@
 
 **1997:** Bruce plays his first ever Australian solo acoustic show at the QPAC Concert Hall in Brisbane.
 
-[Watch Video Highlight](https://videopress.com/embed/vJwTbTcJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vJwTbTcJ)
 
 **2009:** *Working on a Dream* debuts at #1 on the Billboard album chart, bumping defending champion Taylor Swift.
 

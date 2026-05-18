@@ -22,11 +22,11 @@ Meanwhile in Freehold, New Jersey, controversy reigns at a town council meeting 
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/01/The_Daily_Register_Tue__Jan_15__1985_.jpg) **1988:** Bruce and the E Street Band rehearse for the upcoming Tunnel of Love Express Tour at the Expo Theater in Fort Monmouth, New Jersey. Eavesdrop on the complete rehearsal session, which includes Bruce’s only known live performance of “[Protection](https://estreetshuffle.com/index.php/2021/12/26/rotd-cover-me-donna-summer-protection/)” as well as “[Valentine’s Day,](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)” which despite being rehearsed would not debut in concert for another 17 years.
 
-[Watch Video Highlight](https://videopress.com/embed/yc8XvjeY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yc8XvjeY)
 
 **1996:** Bruce ends the first leg of his solo acoustic tour at the Fox Theater in Atlanta.
 
-[Watch Video Highlight](https://videopress.com/embed/CUsgJdnd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CUsgJdnd)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Atlanta_Journal_1996_01_29_36.jpg)
 

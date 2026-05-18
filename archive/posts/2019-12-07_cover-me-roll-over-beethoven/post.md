@@ -2,7 +2,7 @@ Talk about elusive: we know of at least four documented occasions on which Bruce
 
 Here’s that performance from St. Louis:
 
-[Watch Video Highlight](https://videopress.com/embed/PcETZb1m?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PcETZb1m)
 
 It’s a bit surprising that Bruce didn’t give us more opportunities to catch “Roll Over Beethoven” in concert. We know he’s a big fan of Chuck Berry after all, and besides: how could a young rock musician resist an anthem that loudly proclaimed the arrival and power of rock and roll? (He couldn’t–two of his first four performances of the song took place long before Bruce garnered national attention.)
 

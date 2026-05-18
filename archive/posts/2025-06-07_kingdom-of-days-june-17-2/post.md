@@ -44,11 +44,11 @@
 
 **2003:** Night Two in Helsinki on the Rising Tour. “[You’re Missing](https://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/)” drops out of the set list for the first time, replaced by “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/),” as the tour set list begins its customary loosening toward its final months.
 
-[Watch Video Highlight](https://videopress.com/embed/9SQx7riV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9SQx7riV)
 
 **2004:** Promoting her new album, *23rd Street Lullaby*, Patti Scialfa makes a guest appearance and performance on *The View*.
 
-[Watch Video Highlight](https://videopress.com/embed/5vc82MI0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5vc82MI0)
 
 **2006:** Bruce and the Sessions Band make a tour stop at the DTE Energy Music Theater in Clarkston, Michigan. The performance of “[Bring ‘Em Home](https://estreetshuffle.com/index.php/2021/06/23/rotd-cover-me-bring-em-home/)” on the *American Land* edition of [*We Shall Overcome*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) was recorded at this show, as was the official video for “[Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/).”
 

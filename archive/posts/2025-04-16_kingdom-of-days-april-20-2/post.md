@@ -22,17 +22,17 @@
 
 **1988:** The Tunnel of Love Express Tour moves on to Denver for a show a the McNichols Sports Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/29cLHNnJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/29cLHNnJ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/1988-04-20.jpg)
 
 **1993:** The second of two nights in Rotterdam for Bruce’s World Tour 1993.
 
-[Watch Video Highlight](https://videopress.com/embed/VX775UJx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VX775UJx)
 
 **1996:** Bruce plays a solo acoustic show in Antwerp, rescheduled from March.
 
-[Watch Video Highlight](https://videopress.com/embed/bNxmQ6UM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bNxmQ6UM)
 
 **1999:** Another live debut for Milan at Night Two in the Fila Forum: Bruce opens with the first-ever performance of “[I Wanna Be With You.](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)” This is only the second Night Two of the tour, and Bruce breaks the set list open with the first performances of “[Atlantic City,](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/),” “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/),” “[Cadillac Ranch,](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” and “This Hard Land” of the Reunion era.
 
@@ -52,13 +52,13 @@
 
 **2006:** The first public warm-up show for the Seeger Sessions Tour features the premiere of “[How Can a Poor Man Stand Such Times and Live](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/),” “[When the Saints Go Marching In](https://estreetshuffle.com/index.php/2021/03/28/cover-me-when-the-saints-go-marching-in/)” and the album tracks.
 
-[Watch Video Highlight](https://videopress.com/embed/rGqntUpa?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rGqntUpa)
 
-[Watch Video Highlight](https://videopress.com/embed/8v7l8WLQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8v7l8WLQ)
 
-[Watch Video Highlight](https://videopress.com/embed/giA2Tm3Z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/giA2Tm3Z)
 
-[Watch Video Highlight](https://videopress.com/embed/NW38i8Um?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NW38i8Um)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2006-04-20a.jpg)
 

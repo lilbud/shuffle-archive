@@ -14,7 +14,7 @@
 
 **1981:** Bruce plays his first-ever show in Norway, when the River Tour comes to Drammen.
 
-[Watch Video Highlight](https://videopress.com/embed/fZwe49y9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fZwe49y9)
 
 **1982:** At The Power Station studio in New York City, Bruce and the E Street Band record “[Glory Days,](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/),” “[A Good Man Is Hard to Find (Pittsburgh)](https://estreetshuffle.com/index.php/2021/04/30/roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/)” and the still unreleased “Stop the War.”
 
@@ -26,11 +26,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/rolling-stone-cover-volume-525-5-5-1988-bruce-springsteen.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/HsrTnjy0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HsrTnjy0)
 
-[Watch Video Highlight](https://videopress.com/embed/Y8IhKbo6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Y8IhKbo6)
 
-[Watch Video Highlight](https://videopress.com/embed/htl1ckUK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/htl1ckUK)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/1988-05-05-save.jpg)
 
@@ -68,7 +68,7 @@
 
 **2006:** The first European leg of the Seeger Sessions Tour kicks off at the Point Theater in Dublin with the tour debuts of “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)” and “[Erie Canal](https://estreetshuffle.com/index.php/2019/11/02/cover-me-erie-canal/).”
 
-[Watch Video Highlight](https://videopress.com/embed/kPchYwxD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kPchYwxD)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Independent_Sat__May_6__2006_.jpg)
 

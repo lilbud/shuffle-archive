@@ -34,9 +34,9 @@
 
 **1995:** Bruce once again joins Joe Grushecky and The Houserockers at their show at Nick’s Fat City in Pittsburgh. The show is broadcast live on the radio, and much of the show will be officially released 26 years later on the 25th anniversary edition of [*American Babylon.*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) (Get it [here!](https://orcd.co/JoeGrusheckyAmericanBabylon25))
 
-[Watch Video Highlight](https://videopress.com/embed/EnDIW6ai?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EnDIW6ai)
 
-[Watch Video Highlight](https://videopress.com/embed/RJyFmgn1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RJyFmgn1)
 
 [Watch on Youtube: Bruce Springsteen Intro (Live)](https://www.youtube.com/watch?v=wDuFVXuJFsI)
 

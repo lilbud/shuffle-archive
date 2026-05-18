@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen The River London 18/05/1999](https://www.youtube.com/watch?v=eDYz8You6Qo)
 
-[Watch Video Highlight](https://videopress.com/embed/wgaIRIkq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wgaIRIkq)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Evening_Standard_Wed__May_19__1999_.jpg)
 
@@ -38,33 +38,33 @@
 
 **2009:** Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: “[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/),” “Hava Nagila”(!) and “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/).”
 
-[Watch Video Highlight](https://videopress.com/embed/qDmdrtO6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qDmdrtO6)
 
-[Watch Video Highlight](https://videopress.com/embed/CexhgoM4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CexhgoM4)
 
-[Watch Video Highlight](https://videopress.com/embed/paL7LA3b?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/paL7LA3b)
 
-[Watch Video Highlight](https://videopress.com/embed/lsmpqM4z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lsmpqM4z)
 
-[Watch Video Highlight](https://videopress.com/embed/DNlp3Ty6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DNlp3Ty6)
 
 **2012:** Night Two in Barcelona for the Wrecking Ball Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/mMn9arfr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mMn9arfr)
 
-[Watch Video Highlight](https://videopress.com/embed/JthC4NzD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JthC4NzD)
 
-[Watch Video Highlight](https://videopress.com/embed/KJN1mXn5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KJN1mXn5)
 
-[Watch Video Highlight](https://videopress.com/embed/gAw0taKr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gAw0taKr)
 
-[Watch Video Highlight](https://videopress.com/embed/V2qhXSoW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/V2qhXSoW)
 
 **2014:** The High Hopes Tour wraps with a second show at the Mohegan Sun Casino in Uncasville, Connecticut, where Bruce pulls out six tour premieres *in the first seven songs*. For more highlights from this show, see my [*Where the Band Was* report from this night.](https://estreetshuffle.com/index.php/2018/05/18/where-the-band-was-uncasville-may-18-2014/)
 
 [Watch on Youtube: Leap of Faith - Bruce Springsteen & The E Street Band (5/18/14)](https://www.youtube.com/watch?v=ThhW6P23gn4)
 
-[Watch Video Highlight](https://videopress.com/embed/2z1JZ7gw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2z1JZ7gw)
 
 [Watch on Youtube: Uncasville 18/05/2014](https://www.youtube.com/playlist?list=PLJTyL9twk3zDcaFCLVTGt5NOWzCCd0YRQ)
 

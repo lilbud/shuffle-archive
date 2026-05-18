@@ -12,13 +12,13 @@
 
 **1985:** What was originally scheduled to be the closing night of six shows at Giants Stadium (the August 30 show was rained out and postponed until September 1, making it the new closer) is still pretty special: Little Steven rejoins the E Street Band for the encores, which end with the live debut of "Stand On It."
 
-[Watch Video Highlight](https://videopress.com/embed/Wly4xjwi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Wly4xjwi)
 
 ![](../../assets/2020/08/1985-08-31.jpg)
 
 **1999:** Bruce and the reunited E Street Band kick off a three-show stand at the MCI Center in Washington, DC.
 
-[Watch Video Highlight](https://videopress.com/embed/OxY9LMWc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OxY9LMWc)
 
 ![](../../assets/2021/08/1999-08-31a.png)
 
@@ -30,11 +30,11 @@
 
 <https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3>
 
-[Watch Video Highlight](https://videopress.com/embed/7Ahqp4On?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7Ahqp4On)
 
-[Watch Video Highlight](https://videopress.com/embed/ZmiCslvD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZmiCslvD)
 
-[Watch Video Highlight](https://videopress.com/embed/U5Su88rd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/U5Su88rd)
 
 ![](../../assets/2020/08/2003-08-31a.png)
 

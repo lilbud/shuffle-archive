@@ -14,7 +14,7 @@
 
 **1978:** The Darkness on the Edge of Town Tour begins at Shea’s Buffalo Theater in Buffalo, New York. Besides the obvious album track premieres, this show also marks the first performances of “[Paradise by the ‘C’](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)” and “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/),” as well as the first “Sad Eyes” version of “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” and the only full-band performance of “The Promise” until 2010. Listen in on the pre-show soundcheck, live debut of “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” and more below.
 
-[Watch Video Highlight](https://videopress.com/embed/IL3IeSg9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IL3IeSg9)
 
 [Watch on Youtube: Bruce Springsteen Live Concert - Buffalo Darkness Starts Here 5/23/78](https://www.youtube.com/watch?v=uK3_QRYf9FU)
 
@@ -48,7 +48,7 @@
 
 **1999:** Bruce and the E Street Band play their final show of a four-night Reunion stand at Earls Court in London.
 
-[Watch Video Highlight](https://videopress.com/embed/tfHxIasd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tfHxIasd)
 
 **2008:** Night 2 of 3 at RDS Arena in Dublin on the final European leg of the Magic Tour.
 
@@ -58,15 +58,15 @@
 
 **2009:** The final show of the first American leg of the Working on a Dream Tour in East Rutherford features the tour premieres of “S[omething in the Night,](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” and “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/).”
 
-[Watch Video Highlight](https://videopress.com/embed/94aBB87m?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/94aBB87m)
 
-[Watch Video Highlight](https://videopress.com/embed/1RzGyEPo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1RzGyEPo)
 
-[Watch Video Highlight](https://videopress.com/embed/VmPqXxmW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VmPqXxmW)
 
-[Watch Video Highlight](https://videopress.com/embed/tUH8szlY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tUH8szlY)
 
-[Watch Video Highlight](https://videopress.com/embed/cEYUIH2l?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cEYUIH2l)
 
 **2013:** The Wrecking Ball Tour stops in Naples for a show at the Piazza del Plebiscito, where the band opens with “O Sole Mio.” During the sign request collection, a fan actually requests “[Crazy Rocker](https://estreetshuffle.com/index.php/2019/03/10/roll-of-the-dice-crazy-rocker/),” and it’s hard to tell if Bruce remembered that’s an actual song he’d (partially, at least) written. (He plays “Rosalita (Come Out Tonight)” instead.)
 

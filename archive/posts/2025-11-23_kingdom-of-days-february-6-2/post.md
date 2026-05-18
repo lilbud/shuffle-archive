@@ -2,9 +2,9 @@
 
 **1975:** Hot on the heels of their historic radio broadcast the previous evening, Bruce and the E Street Band play their first of two nights at Widener College in Chester, Pennsylvania. Due to poor venue acoustics, Mike Appel has the gymnasium outfitted with acoustic paneling to help improve the sound. There’s only one problem: the paneling is highly flammable, a fact Appel learns only hours before the show. The show is delayed by 90 minutes (while the paneling is moved out of reach of the audience) as a result. Amazingly, much of the show is captured on video by two fans. What you see below is one of the earliest known videos of the E Street Band, and the only video footage of the band with Suki Lahav.
 
-[Watch Video Highlight](https://videopress.com/embed/vbWwUyu9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vbWwUyu9)
 
-[Watch Video Highlight](https://videopress.com/embed/r9hNd4bc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/r9hNd4bc)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/01/1975-0206.jpg)
 

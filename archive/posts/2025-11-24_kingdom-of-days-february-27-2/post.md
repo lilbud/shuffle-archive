@@ -40,9 +40,9 @@
 
 **2012:** Bruce and the E Street Band (plus Curt Ramm) make a guest appearance on *Late Night with Jimmy Fallon,* where they play “[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)” and “[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/).”
 
-[Watch Video Highlight](https://videopress.com/embed/CTNZOLZP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CTNZOLZP)
 
-[Watch Video Highlight](https://videopress.com/embed/YypCW8h2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YypCW8h2)
 
 **2016:** At the Blue Cross Arena in Rochester, “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” returns in the encore, where it will remain throughout the tour. This show also features a rare “[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)” from the River outtakes and the tour premieres of “[I’m Goin’ Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)” and “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/).”
 

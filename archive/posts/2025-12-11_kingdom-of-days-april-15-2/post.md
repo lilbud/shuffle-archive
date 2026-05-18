@@ -22,11 +22,11 @@
 
 **1985:** The fourth of five nights at Tokyo’s Yoyogi National Gymnasium.
 
-[Watch Video Highlight](https://videopress.com/embed/u02wbf7O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/u02wbf7O)
 
 **1988:** The Tunnel of Love Express finishes its Texas leg with a show at the University of Texas in Austin.
 
-[Watch Video Highlight](https://videopress.com/embed/GU2F61f3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GU2F61f3)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-15a.jpg)
 
@@ -36,7 +36,7 @@
 
 **1993:** The first of two shows at Sheffield Arena in England.
 
-[Watch Video Highlight](https://videopress.com/embed/HTAFhS2M?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HTAFhS2M)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/Manchester_Evening_News_Fri__Apr_16__1993_.jpg)
 
@@ -50,15 +50,15 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 **1999:** Bruce and the E Street Band bring the Reunion Tour to Cologne, where Wolfgang Niedecken guest-stars in the encores on the tour premiere of “Hungry Heart.” “Brilliant Disguise” and “Working on the Highway” also make their tour debuts tonight.
 
-[Watch Video Highlight](https://videopress.com/embed/Su1bUwiO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Su1bUwiO)
 
-[Watch Video Highlight](https://videopress.com/embed/S3GNSRxO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/S3GNSRxO)
 
-[Watch Video Highlight](https://videopress.com/embed/T5qgXOUh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/T5qgXOUh)
 
 **2000:** Bruce and the E Street Band play a Reunion gig at Freedom Hall in Louisville. The set features a rare “Back in Your Arms.”
 
-[Watch Video Highlight](https://videopress.com/embed/yXOohZUy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yXOohZUy)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2000-04-15.jpg)
 

@@ -16,7 +16,7 @@
 
 **1981:** Flo and Eddie guest-star on “Hungry Heart” when the River Tour arrives in Rotterdam.
 
-[Watch Video Highlight](https://videopress.com/embed/JJqRnR4k?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JJqRnR4k)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1981-0428.jpg)
 
@@ -46,9 +46,9 @@
 
 **2005:** On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays “Two Faces” for the first time in 17 years, and Jimmy LaFave guest-stars on “Oklahoma Hills.” Also new to the set list tonight: “Galveston Bay” and “My Hometown.”
 
-[Watch Video Highlight](https://videopress.com/embed/ZDEYaKNZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZDEYaKNZ)
 
-[Watch Video Highlight](https://videopress.com/embed/jNBEdQ4h?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jNBEdQ4h)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2005-04-28a.jpg)
 

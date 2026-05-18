@@ -24,13 +24,13 @@
 
 **1978:** The Darkness Tour stops for a night in Springfield.
 
-[Watch Video Highlight](https://videopress.com/embed/uRJrVPG4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uRJrVPG4)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1978-0913.jpg)
 
 **1981:** The River Tour enters its last stand with the first of two nights at Cincinnati’s Riverfront Coliseum.
 
-[Watch Video Highlight](https://videopress.com/embed/AfYeFiTk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AfYeFiTk)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1981-09-13a.jpg)
 
@@ -42,15 +42,15 @@
 
 **1985:** At the MTV Video Music Awards, “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)” wins the award for Best Male Video, and “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” wins the award for Best Stage Performance in a Video (but loses to Philip Bailey and Phil Collins’ “Easy Lover” in the Best Overall Performance in a Video category). Little Steven and John Sayles are on hand to accept the award on Bruce’s behalf (ironically, since Little Steven is no longer in the E Street Band).
 
-[Watch Video Highlight](https://videopress.com/embed/12KMj7U1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/12KMj7U1)
 
-[Watch Video Highlight](https://videopress.com/embed/hYRH5uew?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hYRH5uew)
 
 Why isn’t Bruce there to accept his award? Because he’s on stage with the E Street Band at the Cotton Bowl in Dallas, where “Travelin” Band” makes its tour premiere as the show closer, and Bruce forgets the words to “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/).”
 
-[Watch Video Highlight](https://videopress.com/embed/TNM9ebpw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TNM9ebpw)
 
-[Watch Video Highlight](https://videopress.com/embed/ytsThwA3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ytsThwA3)
 
 [Watch on Youtube: Bruce Springsteen - Born In The USA 1985 Dallas newsclip](https://www.youtube.com/watch?v=84pqurcet3w)
 
@@ -74,7 +74,7 @@ Why isn’t Bruce there to accept his award? Because he’s on stage with the E 
 
 **1999:** Bruce and the reunited E Street Band kick off a six-night stand at Philadelphia’s First Union Center.
 
-[Watch Video Highlight](https://videopress.com/embed/Ts6lVoai?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ts6lVoai)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1999-09-13a.jpg)
 
@@ -86,9 +86,9 @@ Why isn’t Bruce there to accept his award? Because he’s on stage with the E 
 
 **2003:** The Rising Tour is in its last month, and the set lists are getting looser. Bruce opens his show at FedEx Field in Landover, Maryland, with his first ever performance of “[I Walk the Line](https://estreetshuffle.com/index.php/2020/06/16/cover-me-i-walk-the-line/)” in memory of the recently departed Johnny Cash. Bruce also tour premieres “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)” (played for the first time in 18 years) and “[Paradise](https://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/)” (not played since the rehearsal shows over a year earlier).
 
-[Watch Video Highlight](https://videopress.com/embed/fh6CkRqH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fh6CkRqH)
 
-[Watch Video Highlight](https://videopress.com/embed/uqyL0Qw1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uqyL0Qw1)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/09/The_Kansas_City_Star_2003_09_18_48-scaled.jpg)
 

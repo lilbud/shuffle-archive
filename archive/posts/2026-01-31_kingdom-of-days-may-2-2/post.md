@@ -54,7 +54,7 @@ Bruce plays three more songs (including “If I Was the Priest”), and then Ham
 
 **1996:** Bruce’s solo acoustic tour stops in Switzerland for a single show at Kongresshaus in Zurich. In honor of his Swiss hosts, Bruce performs “Red Headed Woman” with extra yodeling.
 
-[Watch Video Highlight](https://videopress.com/embed/eqMkI4fK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eqMkI4fK)
 
 **1999:** On Night Two in Manchester on the Reunion Tour, Bruce plays “Rendezvous” in England for the first time.
 
@@ -78,9 +78,9 @@ Bruce plays three more songs (including “If I Was the Priest”), and then Ham
 
 **2005:** At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Bruce tour premieres “Incident on 57th Street,” “If I Should Fall Behind,” “Johnny 99,” and “Cautious Man” (in only its second performance ever).
 
-[Watch Video Highlight](https://videopress.com/embed/628Kn0VK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/628Kn0VK)
 
-[Watch Video Highlight](https://videopress.com/embed/K0obKMqu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/K0obKMqu)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Sun_Herald_Thu__May_5__2005_.jpg)
 
@@ -88,7 +88,7 @@ Bruce plays three more songs (including “If I Was the Priest”), and then Ham
 
 **2008:** Bruce wraps up the second U.S. leg of the Magic Tour with a show at BankAtlantic center in Sunrise, Florida, where he plays the tour premiere of “I Wanna Be With You.”
 
-[Watch Video Highlight](https://videopress.com/embed/zNJ22b8k?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zNJ22b8k)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/2008-05-02.jpg)
 

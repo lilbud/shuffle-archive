@@ -10,7 +10,7 @@ Take a listen to both performances below, and for more Bruce and Patti from this
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NVv9bjYr6eo)
 
-[Watch Video Highlight](https://videopress.com/embed/xcYOkknQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xcYOkknQ)
 
 **You Can Dig It**
 **First performed:** November 26, 1976 (New York City, NY)

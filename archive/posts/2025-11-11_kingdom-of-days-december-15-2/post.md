@@ -2,7 +2,7 @@
 
 **1973:** Bruce and the E Street Band play a gig at Nassau Community College in Garden City, New York. The show is filmed, and snippets of it have been aired at special events and in documentaries.
 
-[Watch Video Highlight](https://videopress.com/embed/0GMcGpH8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0GMcGpH8)
 
 **1977:** Bruce and the E Street Band work on “Adam Raised a Cain” at a recording session at The Record Plant in New York City.
 
@@ -30,7 +30,7 @@
 
 **1995:** Bruce plays his first of two solo acoustic shows at the Orpheum Theater in Boston, where he plays every song from [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) for the last time to date.
 
-[Watch Video Highlight](https://videopress.com/embed/8xw9PMw0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8xw9PMw0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/12/1995-1215.jpg)
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Merry Christmas Baby - Bruce Springsteen (live at the Meadowlands Arena, East Rutherford 2001)](https://www.youtube.com/watch?v=idLXa1qQmNc)
 
-[Watch Video Highlight](https://videopress.com/embed/fJB1UM0k?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fJB1UM0k)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/12/Asbury_Park_Press_2001_12_21_Page_102-scaled.jpg)
 
@@ -56,7 +56,7 @@
 
 [Watch on Youtube: Lady Gaga, Bruce Springsteen and the Black Keys rehearse with the Rolling Stones](https://www.youtube.com/watch?v=1MDytQVZb34)
 
-[Watch Video Highlight](https://videopress.com/embed/isyosNGt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/isyosNGt)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/2012-12-15.png)
 
@@ -72,4 +72,4 @@
 
 **2020:** Bruce appears on a television special entitled *Play On: Celebrating the Power of Music to Make Change,* speaking in support of WhyHunger.
 
-[Watch Video Highlight](https://videopress.com/embed/GHZohMSF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GHZohMSF)

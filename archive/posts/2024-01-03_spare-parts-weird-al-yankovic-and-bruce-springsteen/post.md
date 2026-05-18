@@ -10,7 +10,7 @@ In the clip below, Al poses a series of questions I’ve never seen any other in
 
 Bruce and Al are such good friends that Bruce invited Al to the set a couple of years later for the filming of the video for “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/).” Of course, with Yankovic on the scene, hilarity was bound to ensue. In the rarely seen alternate and unreleased cut of Bruce’s famously somber video, we see the artist doing his best to keep a straight face while his buddy does his best to make him laugh. (It also includes what is to my knowledge their one and only musical performance together.)
 
-[Watch Video Highlight](https://videopress.com/embed/5ITpyjxy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5ITpyjxy)
 
 Bruce and Al may be besties, but that doesn’t mean they aren’t also rivals. When Bruce’s *Human Touch* and *Lucky Town* albums failed to hold their spots on the album charts, Springsteen enviously but good-naturedly name-checked his friend from the stage in his 1992 rehearsal show and radio broadcast.
 

@@ -12,7 +12,7 @@
 
 **1984:** In honor of Buddy Holly’s birthday, Bruce tour premieres “[Rave On](https://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)” as an encore at his Born in the U.S.A. show in Hartford. They won’t ever play it again (at least to date).
 
-[Watch Video Highlight](https://videopress.com/embed/tkC2vmHI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tkC2vmHI)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1984-09-07.jpg)
 
@@ -22,7 +22,7 @@
 
 **2003:** Night Two at Fenway Park on the Rising Tour features the tour premiere of “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/),” a reprise opener of “[Diddy Wah Diddy](https://estreetshuffle.com/index.php/2021/06/11/cover-me-diddy-wah-diddy/)” and a Peter Wolf guest appearance on the show-closing “[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/).”
 
-[Watch Video Highlight](https://videopress.com/embed/pgo0OErR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pgo0OErR)
 
 [Watch on Youtube: Bruce Springsteen Fenway Park Boston 07/09/2003 Full Concert](https://www.youtube.com/watch?v=KOQYe1Dbi8k)
 

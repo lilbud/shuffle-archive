@@ -14,7 +14,7 @@
 
 **1980:** Bruce and the E Street Band bring the River Tour to Chicago for the first of two nights at the Uptown Theater, where they tour premiere a show-closing “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/).”
 
-[Watch Video Highlight](https://videopress.com/embed/OALtiJWP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OALtiJWP)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1980-10-10.jpg)
 

@@ -16,13 +16,13 @@
 
 **1985:** The French leg of the Born in the U.S.A. Tour continues with a show in Saint-Etienne, where Bruce plays “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” for the very first time in Europe.
 
-[Watch Video Highlight](https://videopress.com/embed/oaIjWOlU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oaIjWOlU)
 
 **1988:** The Tunnel of Love Tour stops in London for one show at Wembley Stadium, where Bruce plays “[Love Me Tender](https://estreetshuffle.com/index.php/2019/03/02/cover-me-love-me-tender/)” for the last time to date. Meanwhile, rumors continue to swirl around Bruce and Patti.
 
-[Watch Video Highlight](https://videopress.com/embed/GQWCsmkf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GQWCsmkf)
 
-[Watch Video Highlight](https://videopress.com/embed/LMzK4o2Z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LMzK4o2Z)
 
 [Watch on Youtube: Bruce Springsteen London 25/06/1988 Full Concert](https://www.youtube.com/watch?v=bvWITRQO8oY)
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Bruce Springsteen - CNN Coverage of June 25, 1992 Frankfurt show](https://www.youtube.com/watch?v=93wIOnN-U-s)
 
-[Watch Video Highlight](https://videopress.com/embed/BVjxn8FM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BVjxn8FM)
 
 **1993:** David Letterman films his final episode on NBC before moving to CBS and turning his NBC show over to Conan O’Brien. To mark the occasion, Bruce drops by as a surprise guest and performs “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/),” momentarily taking over leadership of the house band. Watch the band have the time of their lives below.
 
@@ -44,7 +44,7 @@
 
 **2003:** The European leg of the Rising Tour hits the home stretch with this show in Vienna, featuring a full-band “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).”
 
-[Watch Video Highlight](https://videopress.com/embed/fpJ31k53?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fpJ31k53)
 
 **2005:** Four tour premieres when the Devils & Dust Tour stops in Stockholm, including “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/),” “[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/),” “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/),” and the first “[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)” in 17 years. This show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24925/bruce-springsteen-hovet-stockholm-se-06-25-2005-mp3-flac-or-online-music-streaming.html).
 

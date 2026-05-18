@@ -26,7 +26,7 @@
 
 **1981:** The original River Tour stops in Mobile, Alabama.
 
-[Watch Video Highlight](https://videopress.com/embed/lJzCY3iA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lJzCY3iA)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/02/Birmingham_Post_Herald_Fri__Feb_13__1981_.jpg)
 
@@ -40,7 +40,7 @@ After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and
 
 **1997:** Bruce’s marathon solo acoustic tour continues with a fifth and final show at the Capital Theater in Sydney, Australia.
 
-[Watch Video Highlight](https://videopress.com/embed/pbK3YKjI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pbK3YKjI)
 
 **1999:** Bruce records audio and video for “[Give My Love to Rose](https://estreetshuffle.com/index.php/2020/10/29/cover-me-give-my-love-to-rose/)” for a Johnny Cash tribute special. It will be broadcast in April.
 
@@ -50,9 +50,9 @@ After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and
 
 [Watch on Youtube: Bruce Springsteen, Paul McCartney behind the scenes at 2012 Grammys](https://www.youtube.com/watch?v=LVaV9d7U4YE)
 
-[Watch Video Highlight](https://videopress.com/embed/ud31M5qB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ud31M5qB)
 
-[Watch Video Highlight](https://videopress.com/embed/0ABz94N6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0ABz94N6)
 
 **2014:** Night Two in Adelaide is a scorcher… literally. It was a hot day, and it prompts Bruce to open with a cover of “[Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/).” This show also features the first and only (to date) performance of “[Hunter of Invisible Game](https://estreetshuffle.com/index.php/2022/01/18/roll-of-the-dice-hunter-of-invisible-game/).”
 

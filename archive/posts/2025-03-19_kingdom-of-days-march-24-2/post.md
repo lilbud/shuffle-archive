@@ -28,7 +28,7 @@
 
 **1985:** Night Three of five in Sydney on the Born in the U.S.A. Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/BtcDRPOX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BtcDRPOX)
 
 **1995:** Bruce joins The Blasters on stage at the House of Blues in West Hollywood, backing the band on guitar for two numbers. (Photo credit: J. Coke)
 

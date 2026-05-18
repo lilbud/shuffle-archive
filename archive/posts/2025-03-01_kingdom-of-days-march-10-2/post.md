@@ -24,7 +24,7 @@
 
 **1977:** An early version of “[Don’t Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)” makes its debut at the Sports Arena in Toledo.
 
-[Watch Video Highlight](https://videopress.com/embed/ofg8Vn4K?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ofg8Vn4K)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1977-0310.jpg)
 
@@ -44,13 +44,13 @@
 
 **2000:** Bruce and the reunited E Street Band close out the Florida leg of their Reunion Tour with a second show in Sunrise.
 
-[Watch Video Highlight](https://videopress.com/embed/yFmTGIYP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yFmTGIYP)
 
 **2003:** The Rising Tour moves north to the Dunkin’ Donuts Center in Providence.
 
-[Watch Video Highlight](https://videopress.com/embed/QP9eBlhw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QP9eBlhw)
 
-[Watch Video Highlight](https://videopress.com/embed/CH2ys76b?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CH2ys76b)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/03/The_Boston_Globe_Fri__Mar_14__2003_-scaled.jpg)
 
@@ -60,7 +60,7 @@
 
 **2008:** A rare “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” highlights the Magic Tour’s stop at the Nassau Coliseum in Uniondale.
 
-[Watch Video Highlight](https://videopress.com/embed/1cprDhO1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1cprDhO1)
 
 [Watch on Youtube: Bruce Springsteen - Incident on 57th Street - Nassau - March 10, 2008](https://www.youtube.com/watch?v=XyVsqp2ty4c)
 

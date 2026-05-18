@@ -46,21 +46,21 @@
 
 **1993:** Bruce’s World Tour 1993 arrives in Stockholm, where the show is filmed for a never-released television event.
 
-[Watch Video Highlight](https://videopress.com/embed/zl73V5tn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zl73V5tn)
 
 **1995:** It’s John Fogerty’s 50th birthday, and Bruce Springsteen entertains at a party in John’s living room (on or around this date). The set list features a one-off performance of what appears to be a previously unknown Springsteen composition called “[Detail Man](https://estreetshuffle.com/index.php/2022/05/18/roll-of-the-dice-im-your-detail-man/).” It hasn’t been released as of this writing, but that may be about to change.
 
-[Watch Video Highlight](https://videopress.com/embed/NBTpKUzm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NBTpKUzm)
 
 **2005:** Bruce plays the second of two solo acoustic shows at Royal Albert Hall in London.
 
-[Watch Video Highlight](https://videopress.com/embed/dds6C1YK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dds6C1YK)
 
 [Watch on Youtube: Bruce Springsteen Two Faces London 28/05/2005](https://www.youtube.com/watch?v=Twj9KBEciUg)
 
 **2006:** Roy Bittan makes a guest appearance with Bruce and the Sessions Band at their show in Bristow, Virginia.
 
-[Watch Video Highlight](https://videopress.com/embed/ZpDA4YHn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZpDA4YHn)
 
 **2008:** The Magic Tour stops at Old Trafford in Manchester.
 

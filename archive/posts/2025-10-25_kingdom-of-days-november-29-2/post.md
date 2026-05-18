@@ -22,7 +22,7 @@
 
 **1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. shows at The Summit in Houston, where “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” gets its last outing for fifteen years.
 
-[Watch Video Highlight](https://videopress.com/embed/7IdXR5EB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7IdXR5EB)
 
 **1986:** Bruce debuts the video for his new single, “[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/),” from his *Live 1975-85* box set.
 

@@ -14,7 +14,7 @@
 
 **1981:** Bruce plays his first-ever show in France on this first of two nights at the Palais des Sports de Saint-Ouen in Paris. Another first: Bruce debuts his cover of “Can’t Help Falling in Love” at this show.
 
-[Watch Video Highlight](https://videopress.com/embed/wNB0ZUQS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wNB0ZUQS)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/1981-04-18-1.jpg)
 
@@ -24,7 +24,7 @@
 
 **2000:** At their Reunion show in Houston, fans witness the E Street Band premiere of “Better Days.”
 
-[Watch Video Highlight](https://videopress.com/embed/MuIILEbI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MuIILEbI)
 
 **2003:** At the Corel Centre in Ottawa on the Rising Tour, Bruce plays “I’m on Fire” for the only time on the tour. In the encores, Clarence collides with Bruce during “Ramrod,” falls on top of him, knocks them both to the ground, and they somehow manage to continue playing the entire time!
 

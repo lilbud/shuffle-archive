@@ -10,11 +10,11 @@
 
 **1974:** Bruce and the band headline at the Geneva Theater in Geneva, New York. Listen to the incredible “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” (it includes a rap similar to the outtake version and the infamous “police siren” effect during the final instrumental), the 24-minute(!) “New York City Serenade,” and the work-in-progress “Jungleland.”
 
-[Watch Video Highlight](https://videopress.com/embed/cpuzdxrd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cpuzdxrd)
 
-[Watch Video Highlight](https://videopress.com/embed/Rwtk472a?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Rwtk472a)
 
-[Watch Video Highlight](https://videopress.com/embed/55qI3VDU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/55qI3VDU)
 
 [Watch on Youtube: Bruce Springsteen - 1974-12-07 Geneva Theatre, Geneva, NY](https://www.youtube.com/watch?v=bV6KNjGFr3c)
 
@@ -40,7 +40,7 @@
 
 **1984:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to the Leon County Civic Center in Tallahassee.
 
-[Watch Video Highlight](https://videopress.com/embed/fA98MpTq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fA98MpTq)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/1984-12-07.png)
 
@@ -78,7 +78,7 @@
 
 <https://estreetshuffle.com/wp-content/uploads/2022/12/1998-12-07-Reunion.mp3>
 
-[Watch Video Highlight](https://videopress.com/embed/9Afvrv6O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9Afvrv6O)
 
 **2001:** Bruce, The Max Weinberg 7 and a host of friends play their fourth of five holiday shows at Asbury Park’s Convention Hall in support of local charities. All of the week’s usual suspects are present: Patti, Soozie, Nils, Southside, Lisa Lowell, The Miami Horns, Bobby Bandiera–and tonight, Bruce Hornsby joins as well.
 

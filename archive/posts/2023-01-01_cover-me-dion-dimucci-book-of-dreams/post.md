@@ -6,7 +6,7 @@ Dion first covered Bruce in 1992 in a [doo-wop version](https://estreetshuffle.c
 
 In a 2000 NPR interview, Dion explained why “Book of Dreams” was so special to him:
 
-[Watch Video Highlight](https://videopress.com/embed/romJbOOm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/romJbOOm)
 
 Let’s take a listen to Dion’s lovely version of “Book of Dreams.” It’s both faithful to the album version yet distinctly Dion. I have to imagine Bruce strongly approves.
 

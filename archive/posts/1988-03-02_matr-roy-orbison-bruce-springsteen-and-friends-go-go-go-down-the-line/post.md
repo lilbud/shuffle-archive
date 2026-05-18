@@ -2,7 +2,7 @@
 
 Bruce was a week past his 38th birthday when this clip was recorded, but that smile (especially at the 3:20 mark) is the smile of an awestruck kid.
 
-[Watch Video Highlight](https://videopress.com/embed/ZJNY72Yw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZJNY72Yw)
 
 “Go Go Go (Down the Line)” was actually Orbison’s very first self-penned song. released as the rockabilly B-side to “Ooby Dooby” in 1956. It wasn’t a hit at the time, but it attracted notable cover artists like The Hollies, The Drifters, Jerry Lee Lewis, and Johnny Cash over the years.
 

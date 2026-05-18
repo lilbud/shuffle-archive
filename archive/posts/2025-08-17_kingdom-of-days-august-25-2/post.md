@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Old Grey Whistle Test 1978 Interview - 1978-08-25](https://www.youtube.com/watch?v=8jvarthD60U)
 
-[Watch Video Highlight](https://videopress.com/embed/MtTTMnWz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MtTTMnWz)
 
 Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad’s Place.
 
@@ -44,7 +44,7 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad�
 
 **1992:** World Tour 1992 moves on to the Washington DC area, with the first of two shows at the Capital Center in Largo. Bruce plays “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” for the last time on the tour. It will surface once more next year, and then not again until the Reunion Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/BgCpUOF3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BgCpUOF3)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-08-25a.png)
 
@@ -60,7 +60,7 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad�
 
 **2002:** The Rising Tour continues its western swing with a show at the America West Arena in Phoenix.
 
-[Watch Video Highlight](https://videopress.com/embed/XnVrtmDw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XnVrtmDw)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-25a.png)
 
@@ -72,7 +72,7 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad�
 
 **2009:** Jay Weinberg flies solo on drums for the entire Working on a Dream show in Saratoga Springs, but it’s the soundcheck that’s most interesting about this show: check out a rare “[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)” and Little Steven on lead vocals for “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” and “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).”
 
-[Watch Video Highlight](https://videopress.com/embed/AmZyGrtP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AmZyGrtP)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/08/2009-08-25.jpg)
 

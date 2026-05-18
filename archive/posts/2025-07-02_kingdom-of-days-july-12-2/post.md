@@ -20,7 +20,7 @@
 
 **1978:** Bruce and the boys bring the Darkness Tour to Dallas, where poor ticket sales force the show to be moved from the 10,000-seat Convention Center Arena to the 1,700-seat Convention Center Theater instead. Because fans have to exchange their tickets on the way in, it takes a long time to admit everyone, and you can hear Bruce ask fans for their patience before the show starts below.
 
-[Watch Video Highlight](https://videopress.com/embed/nfXyYNHm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nfXyYNHm)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1978-07-12.jpg)
 

@@ -8,7 +8,7 @@ Still, despite its sometimes awkward lyrical simplicity (there must have been an
 
 Bruce worked up a fast–almost manic at times–encore arrangement for it that sounds very similar to his arrangement for “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)” (with which “Wear My Ring Around Your Neck” was sometimes paired).
 
-[Watch Video Highlight](https://videopress.com/embed/5Rg90Wc5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5Rg90Wc5)
 
 Bruce debuted his cover of “Wear My Ring Around Your Neck” late on the Wild and Innocent Tour and played it several times throughout late 1974 and 1975.
 

@@ -12,13 +12,13 @@
 
 **1977:** Bruce and the E Street Band play the Milwaukee Auditorium, where an especially powerful “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” features Bruce’s show-stopping “wishing that God would send some angels and blow this whole town right into the sea” for the first time.
 
-[Watch Video Highlight](https://videopress.com/embed/KV1LTetk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KV1LTetk)
 
 [Watch on Youtube: Milwaukee 22/02/1977](https://www.youtube.com/playlist?list=PLJTyL9twk3zCnerwc6mpNeuvl5X7xEXd3)
 
 **1981:** Bruce and the band play the Carolina Coliseum in Columbia, South Carolina.
 
-[Watch Video Highlight](https://videopress.com/embed/SL4ZQMbz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SL4ZQMbz)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/1981-02-22.jpg)
 
@@ -32,7 +32,7 @@
 
 **1996:** Bruce plays his second of two solo acoustic shows in Paris.
 
-[Watch Video Highlight](https://videopress.com/embed/CN6bfARH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CN6bfARH)
 
 **2002:** *Live in New York City* (video version) is certified triple platinum by the Recording Industry Association of America.
 

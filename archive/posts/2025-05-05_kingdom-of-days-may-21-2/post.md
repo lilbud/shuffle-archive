@@ -8,7 +8,7 @@
 
 **1974:** Bruce cuts the first version of “Born to Run” in the studio (instrumental only).
 
-[Watch Video Highlight](https://videopress.com/embed/IGNGHlDK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IGNGHlDK)
 
 **1977:** Bruce takes in a show by local band Pegasus (but does not perform) at The Jail in Hillsdale, New Jersey.
 
@@ -22,7 +22,7 @@
 
 **1997**: The marathon Ghost of Tom Joad Tour enters its last week with a show at Teatro Verdi in Florence.
 
-[Watch Video Highlight](https://videopress.com/embed/Fr7NZ7c2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Fr7NZ7c2)
 
 [Watch on Youtube: Bruce Springsteen - THE RIVER 1997 - live](https://www.youtube.com/watch?v=K7U2VN19AYo)
 
@@ -40,13 +40,13 @@
 
 [Watch on Youtube: Bruce Springsteen - London 1999-05-21 soundcheck including Racing In The Street](https://www.youtube.com/watch?v=0raE2AKOFtA)
 
-[Watch Video Highlight](https://videopress.com/embed/mc2OEYvB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mc2OEYvB)
 
 [Watch on Youtube: Meeting Across The River Bruce Springsteen 5/21/1999 London](https://www.youtube.com/watch?v=D6EvkMt7NKE)
 
 **2000:** Still chugging along, the Reunion Tour stops in Anaheim for the first of two shows.
 
-[Watch Video Highlight](https://videopress.com/embed/iW3kCI3S?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iW3kCI3S)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2000-05-21a.jpg)
 
@@ -56,7 +56,7 @@
 
 **2006:** Stockholm gets its first Seeger Sessions show, and the BBC airs a Johnnie Walker interview with Bruce.
 
-[Watch Video Highlight](https://videopress.com/embed/OXjjzQI1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OXjjzQI1)
 
 [Watch on Youtube: Bruce Springsteen interviewed by Johnnie Walker](https://www.youtube.com/watch?v=T8RlhwsRDAA)
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road - Izod Center, East Rutherford, NJ - 05-21-2009](https://www.youtube.com/watch?v=nHXjrvYwPWI)
 
-[Watch Video Highlight](https://videopress.com/embed/WnLyKn0T?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/WnLyKn0T)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2009-05-21a.jpg)
 

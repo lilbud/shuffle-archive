@@ -10,7 +10,7 @@ Or to be more accurate, they played it three times, once nightly during Bruce’
 
 Here’s a wonderful clip from the second night, with Garland and Bruce backed by The Max Weinberg 7.
 
-[Watch Video Highlight](https://videopress.com/embed/4WU9SDS9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4WU9SDS9)
 
 Bruce and Garland certainly lifted the show, and you can clearly sense their mutual esteem and affection.
 

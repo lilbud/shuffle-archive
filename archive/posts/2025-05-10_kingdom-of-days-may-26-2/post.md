@@ -22,7 +22,7 @@
 
 **1984:** Bruce’s world premiere performance of “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” occurs under very strange circumstances: Bruce happens to be at Xanadu in Asbury Park where the band Bystander is playing. The band had managed to obtain a promo copy of Bruce’s new single, learned the song, and planned to debut it on this night. When they learn that Bruce is in the house, they invite him to join them, but Bruce declines. The band extends the intro, hoping Bruce will relent–and he does, grabbing the mic at the last second and performing the live debut of his greatest hit.
 
-[Watch Video Highlight](https://videopress.com/embed/0BTfSZSi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0BTfSZSi)
 
 **1988:** Bruce joins John Mellencamp on stage for “[Like a Rolling Stone](https://estreetshuffle.com/index.php/2019/06/09/cover-me-like-a-rolling-stone/)” at the Irvine Meadows Amphitheater in Irvine, California.
 
@@ -44,7 +44,7 @@
 
 **2003:** At the first of two Rising shows at the Crystal Palace in London, Bruce tour premieres “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)” (into “Jungleland,” of course).
 
-[Watch Video Highlight](https://videopress.com/embed/I7tpxG4Z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/I7tpxG4Z)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Independent_Tue__May_27__2003_.jpg)
 

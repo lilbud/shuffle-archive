@@ -6,7 +6,7 @@
 
 **1977:** Ronnie Spector and Flo and Eddie make guest appearances with Bruce and the E Street Band at the Richfield Coliseum. Together, they perform “[Baby, I Love You](https://estreetshuffle.com/index.php/2018/09/02/meeting-across-the-river-bruce-springsteen-and-ronnie-spector-baby-i-love-you/),” “[Walking in the Rain](https://estreetshuffle.com/index.php/2022/01/13/matr-ronnie-spector-and-the-e-street-band-walking-in-the-rain/),” “[Be My Baby](https://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/),” and “[Say Goodbye to Hollywood](https://estreetshuffle.com/index.php/2019/08/27/matr-ronnie-spector-and-the-e-street-band-say-goodbye-to-hollywood/)” (the last of which was recently recorded in the studio with the E Street Band).
 
-[Watch Video Highlight](https://videopress.com/embed/KSeYskRd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KSeYskRd)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/1977-02-17.jpg)
 
@@ -26,6 +26,6 @@
 
 **1997:** Bruce wraps up his Australian solo acoustic tour with a third show in Melbourne (and has dinner at tiny restaurant France Soir).
 
-[Watch Video Highlight](https://videopress.com/embed/8Pdte2JL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8Pdte2JL)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1997-02-17.png)

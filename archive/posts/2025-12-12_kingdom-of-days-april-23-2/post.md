@@ -46,7 +46,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 **1999:** The Reunion Tour makes a stop at Donau Arena in Regensburg, Germany.
 
-[Watch Video Highlight](https://videopress.com/embed/AnphOexP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AnphOexP)
 
 **2005:** Bruce’s episode of *VH1 Storytellers* premieres on VH1.
 

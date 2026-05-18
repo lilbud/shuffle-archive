@@ -22,7 +22,7 @@
 
 **1977:** Twelve-year old Eddie Vedder sees Bruce Springsteen and the E Street Band play Chicago’s Auditorium Theater.
 
-[Watch Video Highlight](https://videopress.com/embed/s9oiucKA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/s9oiucKA)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/02/1977-0223.jpg)
 
@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Hundreds Wait in Line for Bruce Springsteen concert Tickets in Atlanta (January 30, 1981)](https://www.youtube.com/watch?v=adlTiwV7I0Y)
 
-[Watch Video Highlight](https://videopress.com/embed/IuMkI1iN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IuMkI1iN)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1981-02-23a.jpg)
 

@@ -2,7 +2,7 @@ Waaaaaay back in September 1967, The Castiles covered Eric Burdon and The Animal
 
 Bruce and the band gave a pretty faithful interpretation–even copying the “Dragnet” novelty introduction. The sound quality isn’t great, but the performance is fun–listen below and then compare to the original.
 
-[Watch Video Highlight](https://videopress.com/embed/mynOYldh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mynOYldh)
 
 [Watch on Youtube: The animals- San Francisco nights ( lyrics)](https://www.youtube.com/watch?v=8hv0M5etXFA)
 

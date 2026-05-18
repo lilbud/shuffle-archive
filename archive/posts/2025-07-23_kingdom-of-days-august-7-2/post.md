@@ -22,11 +22,11 @@
 
 **1981:** Bruce and the E Street Band wrap up their three-night stand at the Capital Center in Largo, Maryland.
 
-[Watch Video Highlight](https://videopress.com/embed/0KQVFFpL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0KQVFFpL)
 
 **1982:** Bruce joins Beaver Brown on stage at Big Man’s West in Red Bank, where he debuts a work-in-progress, “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” in the middle of “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).” (Skip to the 21 minute-mark below to hear it.)
 
-[Watch Video Highlight](https://videopress.com/embed/9dFjGaHk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9dFjGaHk)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/08/1982-08-07-scaled.jpg)
 
@@ -36,7 +36,7 @@
 
 **1985:** The stadium leg of the Born in the U.S.A. Tour picks up steam at Cleveland Municipal Stadium, where Bruce tour debuts “[This Land is Your Land.](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)”
 
-[Watch Video Highlight](https://videopress.com/embed/Vu6tENsx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Vu6tENsx)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1985-08-07.png)
 
@@ -48,19 +48,19 @@
 
 **1992:** At the penultimate show of World Tour 1992’s eleven-night stand at the Meadowlands, Bruce and Roy play a tour one-off, an intimate “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/).” “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” is also a tour one-off, and Southside Johnny guest-stars on “[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/).”
 
-[Watch Video Highlight](https://videopress.com/embed/MZxl9BXf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MZxl9BXf)
 
-[Watch Video Highlight](https://videopress.com/embed/iGI2fvg3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iGI2fvg3)
 
-[Watch Video Highlight](https://videopress.com/embed/Xl1kGK8C?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Xl1kGK8C)
 
 **1999:** Bruce stuns fans at the Meadowlands when he opens Night Twelve (of fifteen) with the first “[Don’t Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)” in 22 years. Bruce also plays “[Janey, Don’t You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” for only the third time ever.
 
-[Watch Video Highlight](https://videopress.com/embed/MBTGYj28?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MBTGYj28)
 
 **2002:** The Rising Tour officially kicks off and Soozie Tyrell makes her official E Street Band debut at the Continental Airlines Arena in East Rutherford, with essentially the same set as the rehearsal show in the same venue. Early shows on the “barnstorming” leg would be atypically rigid, with little variation from night to night.
 
-[Watch Video Highlight](https://videopress.com/embed/r4z4wiX6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/r4z4wiX6)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/2002-08-07b.png)
 

@@ -26,13 +26,13 @@
 
 **1981:** The River Tour moves on to the Hampton Roads Coliseum in Hampton, Virginia.
 
-[Watch Video Highlight](https://videopress.com/embed/1tSamoBy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1tSamoBy)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1981-03-02.jpg)
 
 **1986:** A rare “E Street Sneak Attack” as the entire band (minus Roy) plays a set at The Stone Pony, where standard songs are given new life with extended jams and solos.
 
-[Watch Video Highlight](https://videopress.com/embed/cfkCcj42?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cfkCcj42)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1986-03-02.jpg)
 
@@ -44,9 +44,9 @@
 
 **1996:** Bruce plays a solo acoustic show at City Hall in Newcastle, England.
 
-[Watch Video Highlight](https://videopress.com/embed/ZMVCQBKw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZMVCQBKw)
 
-[Watch Video Highlight](https://videopress.com/embed/YXSuSBPK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YXSuSBPK)
 
 [Watch on Youtube: Bruce Springsteen - SELL IT AND THEY WILL COME 1996 (live)](https://www.youtube.com/watch?v=_gFzjfrLx6Q)
 
@@ -54,7 +54,7 @@
 
 **1998:** Bruce joins Joe Grushecky and the Houserockers for a set at Nick’s Fat City in Pittsburgh.
 
-[Watch Video Highlight](https://videopress.com/embed/4T7qarfJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4T7qarfJ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1998-03-02.jpg)
 
@@ -78,11 +78,11 @@
 
 **2012:** Bruce is a guest on *Late Night with Jimmy Fallon*, where he pokes fun of himself by dressing as his *Born in the U.S.A.*-era self for a parody of “[Sexy and I Know It](https://estreetshuffle.com/index.php/2018/03/24/matr-bruce-springsteen-and-jimmy-fallon-sexy-and-i-know-it/).” Later Bruce and the band (plus Tom Morello) premiere “[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)” and “[Jack of All Trades](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)” and play a rare “[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/).” Watch Bruce’s performance and interview below.
 
-[Watch Video Highlight](https://videopress.com/embed/9ki7nHat?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9ki7nHat)
 
-[Watch Video Highlight](https://videopress.com/embed/HbJUzeGe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HbJUzeGe)
 
-[Watch Video Highlight](https://videopress.com/embed/I43auK8y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/I43auK8y)
 
 **2014:** Night two in Auckland, New Zealand again features an acoustic cover of “[Royals](https://estreetshuffle.com/index.php/2020/04/25/cover-me-royals/)” to open, along with another full album performance–this time *Born to Run*.
 

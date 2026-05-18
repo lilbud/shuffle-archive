@@ -12,7 +12,7 @@
 
 **1981:** The River Tour (original version) moves on to Dane County Memorial Coliseum in Madison, Wisconsin.
 
-[Watch Video Highlight](https://videopress.com/embed/Aj2vCNPN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Aj2vCNPN)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/01/1981-02-02.jpg)
 

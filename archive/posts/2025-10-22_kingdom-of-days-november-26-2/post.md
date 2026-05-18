@@ -22,11 +22,11 @@
 
 **1984:** Bruce plays a *Born in the U.S.A.* show in Dallas, but the set list has almost as many songs from *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/),* including the tour premiere of “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/).”
 
-[Watch Video Highlight](https://videopress.com/embed/2OMU9eZF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2OMU9eZF)
 
 **1988:** Bruce joins Southside Johnny and The Asbury Jukes on stage at The Stone in San Francisco for four songs, including Bruce’s first-ever performance of “[Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/).” His second performance won’t happen for a quarter-century.
 
-[Watch Video Highlight](https://videopress.com/embed/NgqTctQr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NgqTctQr)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1988-11-26-1.png)
 
@@ -70,7 +70,7 @@
 
 **2012:** After a week off for Thanksgiving, the Wrecking Ball Tour resumes in Vancouver. The set list features no premieres, but a couple of songs appear in surprising positions: Bruce opens with “[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/),” and “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” makes an unusual encore appearance. For more highlights from this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/11/26/where-the-band-was-vancouver-november-26-2012/).
 
-[Watch Video Highlight](https://videopress.com/embed/tSIP2IPy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tSIP2IPy)
 
 [Watch Video Highlight](https://videopress.com/embed/tKxNYA4j?hd=0&cover=1)
 

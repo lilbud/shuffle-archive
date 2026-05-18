@@ -12,7 +12,7 @@
 
 **1981**: Bruce and band take the River Tour to the Civic Center in Lakeland, Florida.
 
-[Watch Video Highlight](https://videopress.com/embed/XYZd28NA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XYZd28NA)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1981-02-15b.png)
 
@@ -34,11 +34,11 @@
 
 **1996:** Bruce plays his third solo acoustic show in Germany, this time in Munich.
 
-[Watch Video Highlight](https://videopress.com/embed/3d7UJujn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3d7UJujn)
 
 **1997:** Moving on to Melbourne, Bruce performs solo at the Palais Theatre, where he plays “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” for the first time in Australia.
 
-[Watch Video Highlight](https://videopress.com/embed/qmr0Nwtj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qmr0Nwtj)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1997-02-15.png)
 

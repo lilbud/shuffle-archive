@@ -12,7 +12,7 @@ Why? Maybe it had something to with the location: the Municipal Auditorium in Ne
 
 Even if it was a local pander, it was still an inspired choice. Check out the audio below to hear the band nail the cover and segue seamlessly into “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/).”
 
-[Watch Video Highlight](https://videopress.com/embed/4qUW1K7w?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4qUW1K7w)
 
 Bruce went on to cover “New Orleans” four more times over the years, all at small clubs. It’s been thirty years since the last time he played it, but a well-placed sign on the next tour could change that in a heartbeat.
 

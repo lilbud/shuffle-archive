@@ -6,11 +6,11 @@
 
 **1975:** Bruce and the boys play a show at Chrysler Hall in Norfolk. Listen to a gorgeous cover of “[Up on the Roof](https://estreetshuffle.com/index.php/2018/12/15/cover-me-up-on-the-roof/)” from this show, only ever played during this two-week stretch of the Born to Run Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/eknLq04x?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eknLq04x)
 
 **1976:** Bruce and the band play their second of six nights at the Monmouth Arts Center in Red Bank. Mike Appel and Laurel Canyon attempt to impound Bruce’s earnings from this concert stand as part of their ongoing and escalating legal battle, but a judge denies the restraining order request.
 
-[Watch Video Highlight](https://videopress.com/embed/2Tw8kvl4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2Tw8kvl4)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1976-08-02.png)
 
@@ -28,7 +28,7 @@
 
 **1983:** Bruce joins Jackson Browne on stage at Jackson’s Madison Square Garden gig, where they play “[Stay,](https://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)” “[Running on Empty,](https://estreetshuffle.com/index.php/2021/03/24/matr-jackson-browne-and-bruce-springsteen-running-on-empty/)” and “[Sweet Little Sixteen](https://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)” together. Jackson dedicates “For a Rocker” and “Lawyers in Love” to Bruce as well. (Photo credit: Dari)
 
-[Watch Video Highlight](https://videopress.com/embed/yuChnbxK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yuChnbxK)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1983-08-02.png)
 
@@ -62,9 +62,9 @@
 
 **1999:** At Night Nine of fifteen on the opening U.S. stand of the Reunion Tour, fans at the Meadowlands are treated to the return of “[Something in the Night,](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” last played more than two decades prior, and the U.S. premiere of “[Take ‘Em as They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/),” which opens the show. During “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” Bruce tells his “River of Life” story for the first time.
 
-[Watch Video Highlight](https://videopress.com/embed/Wv8iQ1BU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Wv8iQ1BU)
 
-[Watch Video Highlight](https://videopress.com/embed/kOXzMnNN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kOXzMnNN)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1999-08-02.png)
 
@@ -80,7 +80,7 @@
 
 **2003:** Bruce and the E Street Band play their second of two nights at Gillette Stadium in Foxboro.
 
-[Watch Video Highlight](https://videopress.com/embed/d6XZXBmU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/d6XZXBmU)
 
 **2007:** Three days ago, Bruce’s dear friend and personal assistant Terry Magovern passed away. In his grief, Bruce writes a new song–“[Terry’s Song](https://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)“–and performs it this day at Terry’s memorial service in Red Bank.
 

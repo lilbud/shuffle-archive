@@ -18,16 +18,16 @@
 
 **1992:** Night Eight of eleven at the opening American stand of World Tour 1992 in East Rutherford brings three tour premieres (including "Red Headed Woman" as the opener, "Growin' Up," and "Because the Night") and an ultra-rare "Pony Boy."
 
-[Watch Video Highlight](https://videopress.com/embed/TGLh27pu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TGLh27pu)
 
 **1999:** There are still five more nights to go in the opening U.S. stand of the Reunion Tour, but Night Ten will be hard to top: Bruce opens the show with the tour premiere of "No Surrender" ("For You" gets a tour premiere as well), and "Back in Your Arms" is played for the first time ever.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jzSBtKAjMYw)
 
-[Watch Video Highlight](https://videopress.com/embed/jX93hZxu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jX93hZxu)
 
-[Watch Video Highlight](https://videopress.com/embed/VMlfy5Zr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VMlfy5Zr)
 
-[Watch Video Highlight](https://videopress.com/embed/KHrzvhG7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KHrzvhG7)
 
-[Watch Video Highlight](https://videopress.com/embed/xJRZFtfc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xJRZFtfc)

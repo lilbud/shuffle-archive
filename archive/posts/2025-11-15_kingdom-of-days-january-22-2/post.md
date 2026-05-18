@@ -32,7 +32,7 @@
 
 That evening, Bruce plays a solo acoustic show at the Saenger Performing Arts Center in New Orleans.
 
-[Watch Video Highlight](https://videopress.com/embed/7yl9qLlX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7yl9qLlX)
 
 **1998**: Bruce, Danny, Jim Hanson, Marty Rifkin, and Gary Mallaber perform “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” and “[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)” for a Rolling Stone 30th anniversary special. It won’t be aired until May, though.
 

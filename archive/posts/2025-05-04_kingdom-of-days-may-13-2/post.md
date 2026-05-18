@@ -10,13 +10,13 @@
 
 **1977:** When Southside Johnny takes ill and can’t perform, Steve Van Zandt transforms his Red Bank show into The Asbury Park All-Star Revue, featuring the Jukes, Bruce and the E Street Band, and Ronnie Spector. Steve performs lead vocals for most of the show, with Bruce on guitar and backing vocals, but Bruce steps up to the mic when the super-band plays his own songs. The Revue plays two shows on this night, and you can hear them both below.
 
-[Watch Video Highlight](https://videopress.com/embed/jjQ9zdbR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jjQ9zdbR)
 
-[Watch Video Highlight](https://videopress.com/embed/aCzHx7js?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/aCzHx7js)
 
 **1981:** At the Apollo Theater in Manchester, England, Bruce plays “[Johnny Bye-Bye](https://estreetshuffle.com/index.php/2022/07/13/roll-of-the-dice-johnny-bye-bye/)” for the very first time and dedicates “[This Land Is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)” to Bob Marley, who died two days ago.
 
-[Watch Video Highlight](https://videopress.com/embed/h9MVaf2z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/h9MVaf2z)
 
 **1982:** Bruce records “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)” at The Power Station in New York City.
 
@@ -30,7 +30,7 @@
 
 **1988:** Bruce and the band bring the Tunnel of Love Express Tour to the Market Square Arena in Indianapolis.
 
-[Watch Video Highlight](https://videopress.com/embed/3DPjpWjs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3DPjpWjs)
 
 [Watch on Youtube: Bruce Springsteen - ACROSS THE BORDERLINE 1988 (audio)](https://www.youtube.com/watch?v=LN_gm14o6Y8)
 
@@ -64,11 +64,11 @@
 
 **2014:** Bruce plays a sizzling show in Albany, opening with a cover of INXS’s “[Don’t Change](https://estreetshuffle.com/index.php/2021/03/26/cover-me-dont-change/).” Tour premieres and rarities abound, including “[Treat Her Right,](https://estreetshuffle.com/index.php/2019/10/04/cover-me-treat-her-right/)” “[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/),” “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/),” “[Seaside Bar Song,](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)” and “[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/).” Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,11390/Bruce-Springsteen-mp3-flac-download-5-13-2014-Times-Union-Center-Albany-NY.html).
 
-[Watch Video Highlight](https://videopress.com/embed/QYCbkR5K?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QYCbkR5K)
 
-[Watch Video Highlight](https://videopress.com/embed/lPN68kaa?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lPN68kaa)
 
-[Watch Video Highlight](https://videopress.com/embed/FIIbnVU2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/FIIbnVU2)
 
 [Watch on Youtube: This is Your Sword (Live at the Times Union Center, Albany, NY - 05/13/14 - Official Au...](https://www.youtube.com/watch?v=4nvSx53NRXs)
 
@@ -76,9 +76,9 @@
 
 **2021:** Bruce receives the Woody Guthrie Prize from Nora Guthrie at his farm in Colts Neck, in a live-streamed event for members of the Woody Guthrie Center. Following his acceptance, Bruce performs a rarity-filled four-song acoustic set, featuring covers of “[Tom Joad](https://estreetshuffle.com/index.php/2021/05/24/cover-me-tom-joad/)” and “[Plane Wreck at Los Gatos (Deportee)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)” and a gorgeous “[Across the Border.](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)”
 
-[Watch Video Highlight](https://videopress.com/embed/byP6Gb2q?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/byP6Gb2q)
 
-[Watch Video Highlight](https://videopress.com/embed/JO5ZjZPS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JO5ZjZPS)
 
 [Watch on Youtube: Bruce Springsteen to accept the 2021 Woody Guthrie Prize](https://www.youtube.com/watch?v=Gh7cms5DUvY)
 

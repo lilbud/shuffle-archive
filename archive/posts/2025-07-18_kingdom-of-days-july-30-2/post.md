@@ -10,7 +10,7 @@
 
 **1981:** Southside Johnny guest-stars on “[I Don’t Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)” when Bruce and the E Street Band bring the River Tour to Richfield, Ohio for the second of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/RwhE4R38?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RwhE4R38)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1981-07-30.png)
 
@@ -20,7 +20,7 @@
 
 **1984:** At the first of two nights in Detroit on the Born in the U.S.A. Tour, Bruce tour premieres “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” in a new arrangement. In attendance tonight: *Funky Winkerbean* cartoonist Tom Batiuk.
 
-[Watch Video Highlight](https://videopress.com/embed/1Tbv8N9O?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1Tbv8N9O)
 
 [Watch on Youtube: Bruce Springsteen Born in the USA Concert - 7/30/84](https://www.youtube.com/watch?v=dLdutnQxZUI)
 
@@ -32,13 +32,13 @@
 
 **1987:** Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey, playing reggae versions of “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” and “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/),” along with covers of “[One Love](https://estreetshuffle.com/index.php/2019/11/28/matr-bruce-springsteen-and-jah-love-one-love-people-get-ready/)” and “[People Get Ready.](https://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)”
 
-[Watch Video Highlight](https://videopress.com/embed/r1cTI473?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/r1cTI473)
 
 [Watch on Youtube: Bruce Springsteen - My hometown (reggae version)](https://www.youtube.com/watch?v=xVV5FTnI4FM)
 
 **1988:** The Tunnel of Love Tour nears its end with this final German show in Bremen, where “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” makes its tour debut.
 
-[Watch Video Highlight](https://videopress.com/embed/mpsQeIHo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mpsQeIHo)
 
 **1992:** At Night Five of eleven at World Tour 1992’s opening stand in the Meadowlands, Bruce performs “[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)” for the first time, and “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” comes out as well, accompanied by only Bruce and Roy.
 
@@ -60,7 +60,7 @@ That night, Bruce and the band play a public warm-up show, where “[Paradise](h
 
 [Watch on Youtube: Bruce Springsteen - Paradise (Live 2002, Audio)](https://www.youtube.com/watch?v=5Oh6eapJuPI)
 
-[Watch Video Highlight](https://videopress.com/embed/u6r6AnpC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/u6r6AnpC)
 
 Finally, ABC’s *Nightline* airs Bruce’s performance of “[Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/)” recorded a few days earlier.
 

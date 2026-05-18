@@ -12,7 +12,7 @@ The next night, Bruce made one of his open secret “surprise” appearances at 
 
 Unfortunately, the Sunday night performance wasn’t captured on tape, but we do have Saturday night’s world debut. Here’s that performance–Sonny Kenn, The Wild Ideas, and Bruce Springsteen delivering a rocking cover of Little Richard’s “Rip It Up.”
 
-[Watch Video Highlight](https://videopress.com/embed/X3VFWcJg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/X3VFWcJg)
 
 **Rip It Up
 First performed:** July 31, 1982 (Red Bank, NJ)

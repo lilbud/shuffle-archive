@@ -12,9 +12,9 @@
 
 **1981:** The River Tour continues its European leg with a show in Munich, where “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” receives its first European performance. Guest blogger Dan French was at this show; read part two of his epic E Street adventure [here](https://estreetshuffle.com/index.php/2021/04/16/where-the-band-was-munich-april-16-1981-dans-story/).
 
-[Watch Video Highlight](https://videopress.com/embed/r86O6U5P?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/r86O6U5P)
 
-[Watch Video Highlight](https://videopress.com/embed/IahVMWyt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IahVMWyt)
 
 **1982:** Bruce joins Clarence Clemons and the Red Bank Rockers for “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” at Big Man’s West.
 
@@ -22,15 +22,15 @@
 
 **1985:** The final night of five in Tokyo on the Born in the U.S.A. Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/IW12P88W?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IW12P88W)
 
 **1993:** At Night Two in Sheffield, Bruce honors a request and plays a one-off (for the tour) acoustic “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/).” It’s a lovely, unique arrangement and very worth a listen.
 
-[Watch Video Highlight](https://videopress.com/embed/uFt2pexl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uFt2pexl)
 
 **1996:** Bruce plays the first of two shows at Royal Albert Hall in London and premieres the dubious classic, “[Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/).” This show was rescheduled from its original scheduled date in March.
 
-[Watch Video Highlight](https://videopress.com/embed/xlOP1Ixx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xlOP1Ixx)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/1996-04-16a-1.jpg)
 
@@ -50,9 +50,9 @@
 
 **2012:** Albany’s Wrecking Ball show includes a rare, solo acoustic “[Janey, Don’t You Lose Heart,](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” played by request, and the tour premieres of “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” and “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/).” Watch the entire show below.
 
-[Watch Video Highlight](https://videopress.com/embed/QeL22Nwg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QeL22Nwg)
 
-[Watch Video Highlight](https://videopress.com/embed/c0DmZePn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/c0DmZePn)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G1-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3.jpg)
 

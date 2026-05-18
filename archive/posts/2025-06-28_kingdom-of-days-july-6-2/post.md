@@ -22,7 +22,7 @@
 
 **1984:** Night Two in Cincinnati on the Born in the U.S.A. Tour. Listen in on the soundcheck below, including a never-played “The Good, The Bad, and The Ugly.”
 
-[Watch Video Highlight](https://videopress.com/embed/mB3khd4m?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mB3khd4m)
 
 **1985:** Bruce and the E Street Band close out their Wembley Stadium stand with their third of three nights in London. Steve Van Zandt makes his third consecutive encore appearance. Also in attendance tonight: Phil Collins, Mark Knopfler, Roger Taylor, and John Entwhistle.
 
@@ -40,7 +40,7 @@
 
 **1992:** Bruce and his new touring band kick off a five-night stand at Wembley Arena in London, the last stand of the European leg of World Tour 1992. The setlist features a rare “[With Every Wish.](https://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/)”
 
-[Watch Video Highlight](https://videopress.com/embed/AzSUcXXM?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AzSUcXXM)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/07/1992-0706.jpg)
 

@@ -64,15 +64,15 @@
 
 [Watch on Youtube: Johnny 99 - Bruce Springsteen - LOD5 - Stone Pony - Asbury Park NJ - 11/06/2004](https://www.youtube.com/watch?v=XG592Qj5izg)
 
-[Watch Video Highlight](https://videopress.com/embed/B7UmGbQX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/B7UmGbQX)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2004-11-06.png)
 
 **2006:** The Seeger Sessions Tour arrives in Cologne, where Wolfgang Niedecken joins in the customary guest-star slot on “[Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/).”
 
-[Watch Video Highlight](https://videopress.com/embed/cBIpRIw1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cBIpRIw1)
 
-[Watch Video Highlight](https://videopress.com/embed/Qd16f1BA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Qd16f1BA)
 
 [Watch on Youtube: Bruce Springsteen "Meet Me Tonight - The Köln Sessions" DVD 06. Nov. 2006](https://www.youtube.com/watch?v=bGER6ZMGRo8)
 

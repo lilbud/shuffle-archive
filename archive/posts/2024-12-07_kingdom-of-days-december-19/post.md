@@ -34,7 +34,7 @@
 
 **2004:** This year’s holiday shows are at Harry’s Roadhouse in Asbury Park, and although there are a pair of shows, they’re both on the same night. Bobby Bandiera provides the backing band for both shows; Southside Johnny guest stars for the early show (joining Bruce for “[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)“) and Max, Patti, and Willie Nile join Bruce for the late show. Both setlists are a mix of seasonal and eclectic, and both deserve a listen this time each year.
 
-[Watch Video Highlight](https://videopress.com/embed/Q3QRdapp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Q3QRdapp)
 
 [Watch on Youtube: Bruce Springsteen - Stand On It (2004-12-19)](https://www.youtube.com/watch?v=xq68Mt4B3Bo)
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Bruce Springsteen - The Ties That Bind (Live on SNL)](https://www.youtube.com/watch?v=KHMIIKK8oMM)
 
-[Watch Video Highlight](https://videopress.com/embed/wgMv5f36?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wgMv5f36)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Meryl Streep and Jamie Foxx.
 

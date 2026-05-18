@@ -80,7 +80,7 @@
 
 **2015:** Bruce performs “American Skin (41 Shots)” with John Legend, Tom Morello, Max, and Roy at *Shining a Light: A Concert for Progress on Race in America* at the Shrine Auditorium in Los Angeles.
 
-[Watch Video Highlight](https://videopress.com/embed/5JaaLIhW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5JaaLIhW)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/2015-11-18a.png)
 

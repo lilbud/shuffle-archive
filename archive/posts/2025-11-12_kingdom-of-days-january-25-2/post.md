@@ -8,7 +8,7 @@
 
 [Watch on Youtube: Kitty's Back (Live at The Mosque, Richmond, VA - 1/25/1974)](https://www.youtube.com/watch?v=_UbG-Y6uxJ0)
 
-[Watch Video Highlight](https://videopress.com/embed/bfJtT69Y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bfJtT69Y)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/01/1974-0125.jpg)
 
@@ -20,7 +20,7 @@
 
 **1996:** Bruce plays the Music Hall in Austin, Texas, with Joe Ely joining for a final encore of “[Blowin’ Down This Road](https://estreetshuffle.com/index.php/2020/05/27/matr-bruce-springsteen-and-friends-blowin-down-this-road/).” After the show, Bruce and Joe catch Willie Nelson’s show nearby.
 
-[Watch Video Highlight](https://videopress.com/embed/AQrtYsl5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AQrtYsl5)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/01/1996-01-26.jpg)
 
@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Bruce Springsteen and The Wrestler](https://www.youtube.com/watch?v=KOfk8C-0tjo)
 
-[Watch Video Highlight](https://videopress.com/embed/3gqevJ3E?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3gqevJ3E)
 
 **2014:** Bruce and the E Street Band continue rehearsing in Cape Town for their upcoming *High Hopes* tour.
 

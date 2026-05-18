@@ -16,7 +16,7 @@
 
 **1988:** Night Three (of five) for the Tunnel of Love Express Tour at the L.A. Sports Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/77lAhHBZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/77lAhHBZ)
 
 **1989:** At Micky Rourke’s Rubber Club in Los Angeles, Bruce joins a local band on stage for “Stand By Me.”
 
@@ -26,13 +26,13 @@
 
 [Watch on Youtube: Bruce Springsteen No Surrender 1996 (Acoustic with Bruce and Crowd)](https://www.youtube.com/watch?v=3vI9BTN8l8E)
 
-[Watch Video Highlight](https://videopress.com/embed/4cjlbQWl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4cjlbQWl)
 
 **2000:** The first of two Reunion shows at Mellon Arena in Pittsburgh features the first E Street Band performance of “Human Touch” and a Joe Grushecky guest appearance on “Idiot’s Delight.”
 
-[Watch Video Highlight](https://videopress.com/embed/txuqoZGk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/txuqoZGk)
 
-[Watch Video Highlight](https://videopress.com/embed/ZCVQXnYW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZCVQXnYW)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2000-04-25a.jpg)
 
@@ -42,9 +42,9 @@
 
 **2005:** Bruce kicks off his solo acoustic tour with a show at the Fox Theater in Detroit.
 
-[Watch Video Highlight](https://videopress.com/embed/bZmO5Gza?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bZmO5Gza)
 
-[Watch Video Highlight](https://videopress.com/embed/DZZkyhyC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DZZkyhyC)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2005-04-25a.jpg)
 
@@ -56,13 +56,13 @@
 
 [Watch on Youtube: Bruce Springsteen 4-25-06 GMA Concert Series](https://www.youtube.com/watch?v=aicCuu5YWHQ)
 
-[Watch Video Highlight](https://videopress.com/embed/g0YVno40?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/g0YVno40)
 
-[Watch Video Highlight](https://videopress.com/embed/0RYCqo7d?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0RYCqo7d)
 
 That evening, a more awake Bruce and the Sessions Band play a third public warm-up show for their upcoming tour. Notable in the set list: Bruce’s first-ever performance and tour one-off of “Turn! Turn! Turn (To Everything There is a Season).”
 
-[Watch Video Highlight](https://videopress.com/embed/yTqnj3vq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yTqnj3vq)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2006-04-25a.jpg)
 
@@ -72,7 +72,7 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 **2008:** The Magic Tour moves to Atlanta for a show at Philips Arena, where “Blinded by the Light” makes its tour premiere.
 
-[Watch Video Highlight](https://videopress.com/embed/CcJp0LLz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CcJp0LLz)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2008-04-25a.jpg)
 

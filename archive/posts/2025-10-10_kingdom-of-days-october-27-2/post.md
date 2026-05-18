@@ -22,7 +22,7 @@
 
 **1980:** Bruce and the E Street Band bring the River Tour to the Oakland Coliseum for the first of two shows.
 
-[Watch Video Highlight](https://videopress.com/embed/1uStosGT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1uStosGT)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/10/1980-10-27.png)
 
@@ -44,11 +44,11 @@
 
 **1998:** Bruce grants an interview for BBC’s *A Secret History* documentary and performs a couple of songs for the show at The Saint in Asbury Park. The documentary will air in December to promote the upcoming *Tracks* collection.
 
-[Watch Video Highlight](https://videopress.com/embed/3Q8W4UOi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3Q8W4UOi)
 
-[Watch Video Highlight](https://videopress.com/embed/Z4Q1LXj7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Z4Q1LXj7)
 
-[Watch Video Highlight](https://videopress.com/embed/wyUyn5aj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wyUyn5aj)
 
 **2002:** Bruce and the E Street Band wrap the first European leg of the Rising Tour at Wembley Arena in London.
 

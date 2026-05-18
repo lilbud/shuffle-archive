@@ -64,13 +64,13 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=I7J8UZ_Z23s)
 
-[Watch Video Highlight](https://videopress.com/embed/MjILokkm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MjILokkm)
 
 **2010:** Bruce releases *The Promise: The Darkness on the Edge of Town Story* box set, featuring a new double-album of previously unreleased songs. That evening, he makes a guest appearance on *Late Night with Jimmy Fallon,* masquerading as “1975 Bruce” to perform “[Whip My Hair](https://estreetshuffle.com/index.php/2019/09/05/matr-bruce-springsteen-and-jimmy-fallon-whip-my-hair/)” with Fallon (who is masquerading as Neil Young). Once rid of the disguise, Bruce performs “Because the Night” (with Patti Smith’s lyrics) and “[Save My Love](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/),” accompanied by Steve, Roy, and The Roots.
 
 [Watch on Youtube: The Promise](https://www.youtube.com/playlist?list=OLAK5uy_mCQxEZoH6hfjwIUf-N0BouhY-AR5jONxc)
 
-[Watch Video Highlight](https://videopress.com/embed/nyF7ql3o?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/nyF7ql3o)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2010-11-16a.png)
 
@@ -94,7 +94,7 @@
 
 **2022:** On the third night of his *Tonight Show* “takeover,” Bruce performs “Nightshift” (recorded during his studio appearance two days prior.
 
-[Watch Video Highlight](https://videopress.com/embed/7UxhpP9T?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/7UxhpP9T)
 
 **2023:** Bruce’s scheduled show in Ottawa is postponed by almost a year due to his peptic ulcer disease.
 

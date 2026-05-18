@@ -30,7 +30,7 @@
 
 **1988:** The Human Rights Now! Tour stops at Montreal’s Olympic Stadium, where Bruce makes a guest-appearance during Sting’s set, duetting on “[Every Breath You Take](https://estreetshuffle.com/index.php/2019/04/07/matr-sting-and-bruce-springsteen-every-breath-you-take/),” Bruce’s first performance of that song.
 
-[Watch Video Highlight](https://videopress.com/embed/XS7nF1a4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XS7nF1a4)
 
 [Watch on Youtube: Human Rights now! North America1988](https://www.youtube.com/watch?v=1uR3dMy0YlM)
 

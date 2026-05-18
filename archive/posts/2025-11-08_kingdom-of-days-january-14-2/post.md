@@ -8,7 +8,7 @@
 
 **1984**: Bruce joins John Eddie for six songs at the Patrix in New Brunswick, New Jersey.
 
-[Watch Video Highlight](https://videopress.com/embed/ATjdzWXO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ATjdzWXO)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/1984-01-14a.png)
 

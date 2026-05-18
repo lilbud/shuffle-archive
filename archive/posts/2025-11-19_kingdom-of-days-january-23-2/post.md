@@ -24,13 +24,13 @@
 
 **1985:** Night One in Providence on the *Born in the U.S.A.* Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/3Mt9MRp3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3Mt9MRp3)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/1985-01-23.jpg)
 
 **1996:** Bruce performs solo at the Jesse H. Jones Hall for the Performing Arts in Houston.
 
-[Watch Video Highlight](https://videopress.com/embed/ldxTa26C?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ldxTa26C)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/01/1996-01-23b.jpg)
 

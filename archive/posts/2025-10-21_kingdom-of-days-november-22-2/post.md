@@ -56,13 +56,13 @@
 
 **2009:** Four years later to the day, Bruce is wrapping up another tour, as the Working on a Dream Tour comes to a close in Buffalo. This show closes a much bigger chapter in Bruce’s life, though–it marks the last time Clarence Clemons will grace the E Street stage for a public concert. Almost as if he knows it, Bruce plans a very special show, playing *[Greetings from Asbury Park](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)* start to finish for the first and only time ever. Two tracks from that album are tour premieres–“[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)” and “[The Angel](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/),” the latter of which features lovely viola support from Joyce Hammann. The special moments keep coming: “Restless Nights” is played for the very first time ever (by request from Steve), “[Hang Up My Rock and Roll Shoes](https://estreetshuffle.com/index.php/2018/05/13/cover-me-hang-up-my-rock-and-roll-shoes/)” is played by request (another tour debut), and since the holidays are approaching, Bruce plays *both* “[Merry Christmas Baby](https://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)” and “Santa Claus is Comin’ to Town.” The encores open with a final tour premiere–an acoustic, sentimental “[I’ll Work For Your Love](https://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/),” very obviously a heartfelt message from Bruce to his fans. Willie Nile joins the band for “[Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/),” and a final rousing rendition of “Rockin’ All Over the World” closes this chapter in E Street history. The show is available as an official archive series download (get it [here](https://live.brucespringsteen.net/live-music/0,15506/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-22-2009-HSBC-Arena-Buffalo-NY.html)) and is essential for every Springsteen fan. For more highlights from this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/11/22/where-the-band-was-buffalo-november-22-2009/).
 
-[Watch Video Highlight](https://videopress.com/embed/MRRnp34T?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MRRnp34T)
 
-[Watch Video Highlight](https://videopress.com/embed/keQmvh77?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/keQmvh77)
 
-[Watch Video Highlight](https://videopress.com/embed/3WSR4CKk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3WSR4CKk)
 
-[Watch Video Highlight](https://videopress.com/embed/vy8EpCQb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vy8EpCQb)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2023/11/The_Buffalo_News_Mon__Nov_23__2009_.jpg)
 

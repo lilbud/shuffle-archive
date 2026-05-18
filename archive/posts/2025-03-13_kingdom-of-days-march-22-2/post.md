@@ -26,7 +26,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Tunnel of Love (Live in Atlanta) (March 22, 1988)](https://www.youtube.com/watch?v=d2qzoBK8fmE)
 
-[Watch Video Highlight](https://videopress.com/embed/ZErDKCJC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZErDKCJC)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-03-22a.jpg)
 
@@ -34,13 +34,13 @@
 
 **2003:** Night One in Sydney on the Rising Tour is plagued by power failures–four times in the first hour of the show. But the show goes on, and to thank fans for their patience, Bruce plays “Rosalita (Come Out Tonight)” — its first E Street stage appearance since mid-1999.
 
-[Watch Video Highlight](https://videopress.com/embed/lGOMYAlV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lGOMYAlV)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/03/2003-03-22.jpg)
 
 **2008:** “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” and “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” makes their tour premieres at Bruce’s Magic show at the U.S. Bank Arena in Cincinnati.
 
-[Watch Video Highlight](https://videopress.com/embed/q392pFh8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/q392pFh8)
 
 [Watch on Youtube: bruce springsteen cincinnati 3/22/2008](https://www.youtube.com/watch?v=P1Htomf1zu8)
 

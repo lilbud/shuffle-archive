@@ -4,7 +4,7 @@ Because there’s just no way I could have predicted:
 
 * opening with the debut of the outtake (“’78” version) of “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/).” (Sort of, anyway–after so many years of performing the released version, he had a really hard time sticking to the outtake arrangement and basically ended up with a hybrid.)
 
-[Watch Video Highlight](https://videopress.com/embed/HZEm5bpm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HZEm5bpm)
 
 * a mid-set 1970s encore throwback of “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” and “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/).”
 
@@ -12,7 +12,7 @@ Because there’s just no way I could have predicted:
 
 * Covers of “[Clampdown](https://estreetshuffle.com/index.php/2021/09/10/cover-me-clampdown/)” by The Clash and “[Stayin’ Alive](https://estreetshuffle.com/index.php/2020/09/01/cover-me-stayin-alive/)” by The Bee Gees (both of which rocked).
 
-[Watch Video Highlight](https://videopress.com/embed/ZOm3wK2I?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZOm3wK2I)
 
 [Watch on Youtube: Stayin' Alive - Springsteen - Mohegan Sun Arena, CT - May 17, 2014](https://www.youtube.com/watch?v=As2eg3sJiw4)
 
@@ -22,7 +22,7 @@ Because there’s just no way I could have predicted:
 
 * the welcome return of prodigals like “American Skin (41 Shots),” “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/),” and Steve Van Zandt, who flew home from Norway for the tour-closing stand.
 
-[Watch Video Highlight](https://videopress.com/embed/SVpwOLpQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SVpwOLpQ)
 
 * *four* acoustic songs in the encore (“[I’ll Work for Your Love](https://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/),” “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/),” “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/),” and “Thunder Road”)–I’m not sure that’s ever happened before or since on an E Street Band tour.
 

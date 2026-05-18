@@ -22,7 +22,7 @@
 
 **1985:** The second of two nights at the Greensboro Coliseum on the *Born in the U.S.A.* tour.
 
-[Watch Video Highlight](https://videopress.com/embed/13wdDEGB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/13wdDEGB)
 
 **1986:** Bruce and most of the E Street Band play a benefit show for the Freehold 3M plant workers at the Stone Pony in Asbury Park. The event and local impact is covered by TV news media.
 
@@ -52,9 +52,9 @@
 
 <https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3>
 
-[Watch Video Highlight](https://videopress.com/embed/8RnJsHus?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8RnJsHus)
 
-[Watch Video Highlight](https://videopress.com/embed/5SVrUcUl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5SVrUcUl)
 
 [Watch on Youtube: Bruce Springsteen - Take It Easy](https://www.youtube.com/watch?v=U0i7CFQHEtI)
 
@@ -66,7 +66,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/UcfupLwc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/UcfupLwc)
 
 **2024:** Bruce and Patti chair the Paris 2024 Olympic “Victory in Versailles” benefit gala in support of the U.S. Equestrian team. Bruce performs three songs during the evening.
 

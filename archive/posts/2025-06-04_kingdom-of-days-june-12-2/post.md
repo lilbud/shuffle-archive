@@ -24,21 +24,21 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/06/1982-06-12.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/oVFluiql?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oVFluiql)
 
 **1985:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to The Netherlands for the first of two nights in Rotterdam.
 
 [Watch on Youtube: Rotterdam 12/06/1985](https://www.youtube.com/playlist?list=PLJTyL9twk3zD5tRNjiSRzrMpOiML4kWxO)
 
-[Watch Video Highlight](https://videopress.com/embed/xrilOnRb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xrilOnRb)
 
 **1988:** Night Two in Turin on the Tunnel of Love Tour is cancelled due to low ticket sales(!)
 
 **2000:** The Reunion Tour’s legendary ten-night final stand kicks off at Madison Square Garden with the world premiere of “[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/).” Despite the controversy that preceded the show and the mixed audience reaction tonight, Bruce plays “American Skin (41 Shots)” at this and each remaining show. You can hear just how strong the audience reaction was below.
 
-[Watch Video Highlight](https://videopress.com/embed/1stOL4ZJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1stOL4ZJ)
 
-[Watch Video Highlight](https://videopress.com/embed/HOWgJ2Ki?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HOWgJ2Ki)
 
 [Watch on Youtube: Dancing In The Dark (country) Bruce Springsteen (2000)](https://www.youtube.com/watch?v=M_XKihvL2ZU)
 

@@ -66,7 +66,7 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 **1999:** Bruce and the reunited E Street Band play their second of three shows at the Oakland Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/3YHZqkbJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/3YHZqkbJ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/10/Record_Searchlight_1999_10_28_38-scaled.jpg)
 

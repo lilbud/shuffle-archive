@@ -12,7 +12,7 @@
 
 **1975:** There's a *before* and an *after* with Bruce's career, and both pivot around Bruce's legendary residency at New York's Bottom Line. This is the last *before* show at the Allen Theater in Cleveland. Bruce closes the show with a solo piano tour premiere of "For You" — a quiet end to this phase of Bruce's career.
 
-[Watch Video Highlight](https://videopress.com/embed/8b5JAfx4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8b5JAfx4)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9vRWqczh7U4)
 
@@ -24,7 +24,7 @@
 
 **1978:** Bruce and the E Street Band take the Darkness Tour to the Community War Memorial in Rochester. Listen to the boys open the second set with "Sweet Little Sixteen" below.
 
-[Watch Video Highlight](https://videopress.com/embed/PLGJLODI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PLGJLODI)
 
 ![](../../assets/2020/07/1978-08-10.png)
 
@@ -32,7 +32,7 @@
 
 **1992:** Bruce wraps up the eleven-night World Tour 1992 stand at the Meadowlands in style, opening with an acoustic "Sherry Darling" (with only Roy as accompaniment) and the only tour performance of "Rosalita (Come Out Tonight)." Steve Van Zandt joins the band for "Glory Days" and "Darlington County."
 
-[Watch Video Highlight](https://videopress.com/embed/cFhy9Txg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cFhy9Txg)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=q9aFxSs6nFE)
 
@@ -58,7 +58,7 @@ Entertainment Tonight airs a segment covering the end of the marathon run of sho
 
 **2002:** Night Two on the Rising Tour is pretty similar to opening night. At the MCI Center in Washington, DC, Bruce drops "Two Hearts" and replaces it with the tour premiere of "Bobby Jean."
 
-[Watch Video Highlight](https://videopress.com/embed/Atz3RHXN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Atz3RHXN)
 
 ![](../../assets/2020/08/2002-08-10.png)
 

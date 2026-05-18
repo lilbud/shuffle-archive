@@ -26,7 +26,7 @@ He did perform it once in an arena, however–but it was on U2’s stage, not hi
 
 On October 17, 2005, at the Wachovia Center in Philadelphia, Bruce nonchalantly walked out onto U2’s stage without introduction (judging from the crowd’s reaction, none was needed), and he joined Bono and the band for a rousing rendition encore of “People Get Ready” (even if Bono did change the lyrics pretty significantly in Bruce’s honor). Bruce did his best to stay true to the song, but Bono would have none of it. At around the six-minute mark, Patti Scialfa joined the boys on stage to bring the song home, but by that point the performance was so loose that they didn’t quite know how to wrap, so Bruce did the honors himself.
 
-[Watch Video Highlight](https://videopress.com/embed/Ds6Exsh4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ds6Exsh4)
 
 **People Get Ready
 First performed:** January 16, 1991 (New York City, NY)

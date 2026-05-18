@@ -6,7 +6,7 @@
 
 **1985:**The second of two shows at the Coliseum in Charlotte, North Carolina. Watch one hour of the show in great video quality (given the age of the footage and the equipment) below.
 
-[Watch Video Highlight](https://videopress.com/embed/6A3wRNSs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6A3wRNSs)
 
 **1991**: At the sixth Rock and Roll Hall of Fame induction ceremony, Bruce performs “[People Get Ready](https://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)” with Jackson Browne, Don Henley, and Chaka Khan before joining the all-star closing jam on “[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)” and “[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/).”
 
@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Cleveland news story - 1996-01-16](https://www.youtube.com/watch?v=2E-56z8JzcI)
 
-[Watch Video Highlight](https://videopress.com/embed/wN7yH2Kd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wN7yH2Kd)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Plain_Dealer_1996_01_17_17.jpg)
 
@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Darkness on the Edge of Town - Springsteen with Joe Grushecky & the Houserockers - Jan 16 2010](https://www.youtube.com/watch?v=qg8mVcJOzQQ)
 
-[Watch Video Highlight](https://videopress.com/embed/OEHPIUrz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OEHPIUrz)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/01/2010-01-16.jpg)
 

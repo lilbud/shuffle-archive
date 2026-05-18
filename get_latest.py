@@ -67,7 +67,7 @@ def get_latest_posts() -> None:
                 with save_path.open("w", encoding="utf-8") as f:
                     json.dump(post, f)
 
-            save_to_archive(post)
+                save_to_archive(post)
 
 
 if __name__ == "__main__":

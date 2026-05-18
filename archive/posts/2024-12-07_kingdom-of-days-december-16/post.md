@@ -26,7 +26,7 @@
 
 **1992:** Joe Grushecky joins Bruce and his new touring band for “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)‘ and “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” when World Tour 1992 stops at Pittsburgh’s Civic Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/DzFye1yV?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DzFye1yV)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/1992-12-16.png)
 
@@ -44,13 +44,13 @@
 
 **2002:** Bruce and the E Street Band bring the Rising Tour to the Value City Arena in Columbus, where Bruce plays a gorgeous solo piano “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” and a “Glory Days”/”[Hang on Sloopy](https://estreetshuffle.com/index.php/2020/04/07/cover-me-hang-on-sloopy/)” mash-up.
 
-[Watch Video Highlight](https://videopress.com/embed/Kr7eHWGX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Kr7eHWGX)
 
-[Watch Video Highlight](https://videopress.com/embed/44CBegiw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/44CBegiw)
 
 **2008:** Bruce releases “[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/),” the third single from his upcoming album, *Working on a Dream.*
 
-[Watch Video Highlight](https://videopress.com/embed/mOPjCZv9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mOPjCZv9)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: actress Laura Dern.
 

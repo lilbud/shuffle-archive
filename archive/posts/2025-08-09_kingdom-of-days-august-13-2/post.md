@@ -26,7 +26,7 @@ As for the journalists and critics in attendance, most are won over… but not a
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to the Boston area for the first of two shows at the Centrum in Worcester.
 
-[Watch Video Highlight](https://videopress.com/embed/ZTTosGqD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZTTosGqD)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1992-08-13a.png)
 
@@ -34,7 +34,7 @@ As for the journalists and critics in attendance, most are won over… but not a
 
 **2003:** The Rising Tour’s stadium leg moves on to U.S. Cellular Field in Chicago, where Bruce opens with “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)” and plays a rare “[Where the Bands Are.](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)”
 
-[Watch Video Highlight](https://videopress.com/embed/iuSfc17q?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iuSfc17q)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/2003-08-13.png)
 

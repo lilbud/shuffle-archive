@@ -22,7 +22,7 @@
 
 **2000:** The Reunion Tour continues its Florida leg with a show at Tampa’s Ice Palace.
 
-[Watch Video Highlight](https://videopress.com/embed/QGXzMswB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QGXzMswB)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/2000-03-06a.jpg)
 
@@ -68,6 +68,6 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Actress Reese Witherspoon is in attendance tonight, and this is her first time seeing Bruce perform live. She’s unprepared for the emotional power of his performance; watch her describe the experience to late-night talk show host Stephen Colbert the following night.
 
-[Watch Video Highlight](https://videopress.com/embed/DmFWvPio?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DmFWvPio)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/02/38896677900_893b5b0ba8_o.jpg)

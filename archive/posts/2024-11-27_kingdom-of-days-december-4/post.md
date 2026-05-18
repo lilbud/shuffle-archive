@@ -24,11 +24,11 @@
 
 **2001:** Bruce, The Max Weinberg 7 and a host of friends play their second of five holiday shows at Asbury Park’s Convention Hall in support of local charities. All of last night’s guests are present, plus The Miami Horns, who kick things off with “Deck the Halls,” followed by “[Wild Billy’s Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)” played by just Bruce and Garry (on tuba).
 
-[Watch Video Highlight](https://videopress.com/embed/K55rhq4Y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/K55rhq4Y)
 
 **2002:** The Rising Tour stops at Mellon Arena in Pittsburgh, where Joe Grushecky joins Bruce for the tour premiere of “[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)” and stays through “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” and “Born to Run.” Bruce also tour premieres “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)” and the show-closing “Santa Claus is Comin’ to Town.”
 
-[Watch Video Highlight](https://videopress.com/embed/fMgCtazQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fMgCtazQ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/2002-12-04.png)
 

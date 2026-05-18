@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Bruce Springsteen takes a pit-stop](https://www.youtube.com/watch?v=CC2hnnUR9VM)
 
-[Watch Video Highlight](https://videopress.com/embed/kc4U9SJP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/kc4U9SJP)
 
 **1995:** Bruce’s solo acoustic performance at Philadelphia’s Tower Theater is recorded. Much of it will be broadcast on the Columbia Records Radio Hour the following week.
 
@@ -58,27 +58,27 @@
 
 **2001:** Bruce, The Max Weinberg 7 and a host of friends play their fifth and final holiday show at Asbury Park’s Convention Hall in support of local charities. All of last night’s guests are present (including Bruce Hornsby), but now Elvis Costello joins the ensemble as well.
 
-[Watch Video Highlight](https://videopress.com/embed/jrfYsRuK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jrfYsRuK)
 
 **2002:** Bruce and the E Street Band bring the Rising Tour to the Charlotte Coliseum, where the set list features a rare outing for “[Where the Bands Are](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/).”
 
-[Watch Video Highlight](https://videopress.com/embed/YYmGDuYj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YYmGDuYj)
 
 [Watch on Youtube: Bruce Springsteen - Santa Claus Is Comin' To Town - Charlotte, NC (2002)](https://www.youtube.com/watch?v=oUi0Gr3y2uY)
 
-[Watch Video Highlight](https://videopress.com/embed/cS3pgwTL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cS3pgwTL)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/2002-12-08.png)
 
 **2003:** Bruce, the Max Weinberg 7, and a host of friends hold their third of a three-pack of holiday shows at Asbury Park’s Convention Hall to benefit local charities. The stage is once again filled with a host of stellar musicians including Jesse Malin, Sam Moore, Willie Nile, and much of the E Street Band.
 
-[Watch Video Highlight](https://videopress.com/embed/AIyBV1Xu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/AIyBV1Xu)
 
-[Watch Video Highlight](https://videopress.com/embed/R4R19Exe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/R4R19Exe)
 
 **2007:** Bruce tour premieres “The River” when the Magic Tour stops for a night in Copenhagen.
 
-[Watch Video Highlight](https://videopress.com/embed/l0nE1YSr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/l0nE1YSr)
 
 [Watch on Youtube: Bruce Springsteen - The River, Copenhagen 8th december 2007](https://www.youtube.com/watch?v=BFmivpSBvBo)
 

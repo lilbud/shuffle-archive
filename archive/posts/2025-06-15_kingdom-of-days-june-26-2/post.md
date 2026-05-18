@@ -18,15 +18,15 @@
 
 **1982:** Bruce joins Billy Chinnock on stage at Big Man’s West for “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”
 
-[Watch Video Highlight](https://videopress.com/embed/Y4S1mwaJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Y4S1mwaJ)
 
 **1992:** “[The Long Goodbye](https://estreetshuffle.com/index.php/2021/12/05/roll-of-the-dice-the-long-goodbye/)” makes its world debut at Night Two in Frankfurt, along with the tour premieres of “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” and “Follow That Dream.”
 
 [Watch on Youtube: The Long Goodbye Bruce Springsteen June 26,1992 Frankfurt, GER](https://www.youtube.com/watch?v=AuLvzIM27aE)
 
-[Watch Video Highlight](https://videopress.com/embed/thLKBdSi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/thLKBdSi)
 
-[Watch Video Highlight](https://videopress.com/embed/2oyjkUD9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2oyjkUD9)
 
 [Watch on Youtube: Bruce Springsteen, Light of Day, Frankfurt, June 26, 1992](https://www.youtube.com/watch?v=dgzLPRuvtLQ)
 

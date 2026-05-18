@@ -42,7 +42,7 @@
 
 **2005:** Bruce plays a benefit show with local musicians (including Bobby Bandiera and Ed Manion) for Rumson Country Day School, where his kids went to school. Southside Johnny and Patti Scialfa join the band on stage at times, too. Check out the fantastic recording below.
 
-[Watch Video Highlight](https://videopress.com/embed/9hgdYBzC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9hgdYBzC)
 
 **2009:** The Working on a Dream Tour comes to Denver, along with four tour premieres including “Racing in the Street,” “Tougher Than the Rest,” “The E Street Shuffle,” and “The Ties That Bind.”
 
@@ -50,7 +50,7 @@
 
 **2014:** Bruce inducts the E Street Band (past and present) into the Rock and Roll Hall of Fame at the Barclays Center in New York City. Following the speeches, the band plays three songs, with both Max and Vini on drums and with David Sancious on organ. Watch the proceedings below.
 
-[Watch Video Highlight](https://videopress.com/embed/Ge92Sp5C?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ge92Sp5C)
 
 [Watch on Youtube: Rock Hall-Bruce Springsteen & The E Street Band-The River](https://www.youtube.com/watch?v=m4B1sig2t-s)
 

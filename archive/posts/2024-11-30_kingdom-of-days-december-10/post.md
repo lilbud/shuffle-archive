@@ -16,9 +16,9 @@
 
 **1996:** Bruce plays a solo acoustic show at the Music Hall in Cincinnati.
 
-[Watch Video Highlight](https://videopress.com/embed/OK0kPTiA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/OK0kPTiA)
 
-[Watch Video Highlight](https://videopress.com/embed/Xt4u8PrD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Xt4u8PrD)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1996-12-10.png)
 
@@ -72,7 +72,7 @@ While he’s in the neighborhood, Bruce zips over to Studio 6A, where he chats w
 
 Finally, that evening Bruce appears on a television special to announce *Time Magazine’s* Person of the Year*.*
 
-[Watch Video Highlight](https://videopress.com/embed/vuRi9mPE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vuRi9mPE)
 
 **2023:** Bruce’s scheduled show in San Francisco is postponed to the following March due to his peptic ulcer disease.
 

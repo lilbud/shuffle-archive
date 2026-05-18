@@ -40,7 +40,7 @@
 
 **1984:** Bruce and the E Street Band kick off a seven-night Born in the U.S.A. Tour stand at the Los Angeles Memorial Sports Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/qBRQ024Q?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qBRQ024Q)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-25a.png)
 

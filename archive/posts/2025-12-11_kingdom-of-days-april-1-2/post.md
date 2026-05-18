@@ -14,9 +14,9 @@
 
 **1988:** Bruce and the band play the first of two shows at Nassau Coliseum, where a sneaky fan films the show from behind the stage.
 
-[Watch Video Highlight](https://videopress.com/embed/ncuIPX6s?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ncuIPX6s)
 
-[Watch Video Highlight](https://videopress.com/embed/jX12LT4N?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jX12LT4N)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/1988-04-01.jpg)
 
@@ -34,7 +34,7 @@
 
 Meanwhile, Bruce joins Little Steven at the Underground Garage for part one of a three-part show. A fantastic listen, well worth the time investment.
 
-[Watch Video Highlight](https://videopress.com/embed/ygt8x9Zu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ygt8x9Zu)
 
 **2012:** At the Verizon Center in Washington, DC, Bruce and the E Street Band play “The Promise” in a full-band arrangement for only the third time ever. “Adam Raised a Cain” and “Out in the Street” make their tour premieres tonight as well.
 

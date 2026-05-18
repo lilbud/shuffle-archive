@@ -18,11 +18,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1978-0912.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/SLGR7g0C?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SLGR7g0C)
 
 **1984:** Bruce and the band play their second of six shows at the Philadelphia Spectrum on the Born in the U.S.A. Tour, tour premiering “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/).”
 
-[Watch Video Highlight](https://videopress.com/embed/cs34IgKs?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/cs34IgKs)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1984-0912.jpg)
 

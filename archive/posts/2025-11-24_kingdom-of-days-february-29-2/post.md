@@ -1,6 +1,6 @@
 **1988:** Bruce and the E Street Band wrap up their three-night opening stand for the Tunnel of Love Express Tour at the Centrum in Worcester, Massachusetts, where Bruce plays “[Love Me Tender](https://estreetshuffle.com/index.php/2019/03/02/cover-me-love-me-tender/)” for the very first time.
 
-[Watch Video Highlight](https://videopress.com/embed/n84nCVDi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/n84nCVDi)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/1988-02-29.jpg)
 

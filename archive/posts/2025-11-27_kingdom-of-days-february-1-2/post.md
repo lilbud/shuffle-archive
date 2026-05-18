@@ -6,7 +6,7 @@
 
 **1981:** The original River Tour stops at the St. Paul Civic Center Arena. As a fan explains to a reviewer: It’s not all Twang! Twang! Boing!
 
-[Watch Video Highlight](https://videopress.com/embed/dovVptok?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dovVptok)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/2009-02-01.png)
 
@@ -16,11 +16,11 @@
 
 **2009**: Step back from the guacamole dip, put the chicken fingers *down*, and turn your television ALL the way up: Bruce Springsteen and the E Street Band play the Super Bowl XLIII Half-Time Show! This is the full-band premiere of “[Working on a Dream.](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)” Watch Bruce’s journal, interview, and full performance below.
 
-[Watch Video Highlight](https://videopress.com/embed/zPb2WwKt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/zPb2WwKt)
 
 [Watch on Youtube: Bruce Springsteen talking about Super Bowl!](https://www.youtube.com/watch?v=rTN2yKBs-rI)
 
-[Watch Video Highlight](https://videopress.com/embed/RGrMy8uL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RGrMy8uL)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/02/The_Journal_News_2023_02_05_C4.jpg)
 

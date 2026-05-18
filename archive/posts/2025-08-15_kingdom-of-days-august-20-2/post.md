@@ -42,7 +42,7 @@
 
 **1994:** Bruce makes a guest appearance with Joe Grushecky and the Houserockers (the first of what will become a long series across many years) at Marz American Style in Long Branch, New Jersey, playing an eclectic set with the band that includes Bruce originals, Joe originals, and classic covers. John Eddie and Dion DiMucci join for the encores. Listen to the entire fun set below, and for more highlights, see today’s [*Where the Band Was* report](https://estreetshuffle.com/index.php/2019/08/20/where-the-band-was-long-branch-august-20-1994/) from guest blogger Terry Camp.
 
-[Watch Video Highlight](https://videopress.com/embed/u8yCOevT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/u8yCOevT)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1994-08-20a.png)
 
@@ -52,7 +52,7 @@
 
 **2002:** In Portland, Oregon, Bruce starts to loosen up the main set of the Rising Tour, tour premiering both “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” and “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/).”
 
-[Watch Video Highlight](https://videopress.com/embed/POy7Bo4x?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/POy7Bo4x)
 
 [Watch on Youtube: Bruce Springsteen : Mary's Place (with a snippet of Bobby 'Blue' Bland 's TURN ON YOUR LOVE LIGHT)](https://www.youtube.com/watch?v=2IHntRdm9B8)
 

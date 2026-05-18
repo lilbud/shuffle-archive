@@ -32,7 +32,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 **1985**: Bruce and the E Street Band play their second of two Born in the U.S.A. shows at the Hampton Roads Coliseum in Virginia.
 
-[Watch Video Highlight](https://videopress.com/embed/uLsPLzGo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uLsPLzGo)
 
 [https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3?_=3)
 

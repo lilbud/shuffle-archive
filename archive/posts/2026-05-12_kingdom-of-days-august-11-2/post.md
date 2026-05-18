@@ -8,17 +8,17 @@
 
 **1981:** Bruce and the E Street Band bring the River Tour to Detroit's Joe Louis Arena for the first of two nights.
 
-[Watch Video Highlight](https://videopress.com/embed/j4p8FdMJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/j4p8FdMJ)
 
 ![](../../assets/2020/07/1981-08-11.png)
 
 **1984:** At Night Five (of ten) at the Brendan Byrne Arena in East Rutherford, John Entwistle guest-stars on the show-closing "Twist and Shout."
 
-[Watch Video Highlight](https://videopress.com/embed/D7LMS4B8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/D7LMS4B8)
 
 **1985:** At Pittsburgh's Three Rivers Stadium, Nils and Roy miss their signal to take the stage, so Bruce starts the show and plays "Born in the U.S.A." without them. Bruce will do a pre-show headcount ever after.
 
-[Watch Video Highlight](https://videopress.com/embed/LBLlimMh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LBLlimMh)
 
 ![](../../assets/2021/08/1985-08-11a.jpg)
 
@@ -38,11 +38,11 @@
 
 **1999:** It's the penultimate show of Bruce and the E Street Band's fifteen-night Reunion Tour stand at East Rutherford's Continental Airlines Arena, and the show rockets out of the gate with the first performance of "Night" in fifteen years. Later in the show: the first "New York City Serenade" in 24 years, and the show-closing tour premiere of "4th of July, Asbury Park (Sandy)."
 
-[Watch Video Highlight](https://videopress.com/embed/a9oVxoDc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/a9oVxoDc)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=O5iFPH6aig0)
 
-[Watch Video Highlight](https://videopress.com/embed/bAJmbbez?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bAJmbbez)
 
 **2003:** Bruce and the E Street Band wrap up their three-show Rising stand at Philadelphia's Lincoln Financial Field in peak form, opening with "From Small Things (Big Things One Day Come)," and tour premiering "I'm Goin' Down" and "Pretty Flamingo" (the latter of which hadn't been played in 25 years). Throw in a rare "Incident on 57th Street" "Be True," and a show-closing "I'm a Rocker," and you've got the makings of a killer setlist. And then there's that "Ramrod" under a full moon…
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RieYi5kFOeE)
 
-[Watch Video Highlight](https://videopress.com/embed/BhBwRNao?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/BhBwRNao)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ItDtlDPy-nE)
 

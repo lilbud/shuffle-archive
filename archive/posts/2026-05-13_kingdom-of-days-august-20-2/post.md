@@ -40,7 +40,7 @@
 
 **1994:** Bruce makes a guest appearance with Joe Grushecky and the Houserockers (the first of what will become a long series across many years) at Marz American Style in Long Branch, New Jersey, playing an eclectic set with the band that includes Bruce originals, Joe originals, and classic covers. John Eddie and Dion DiMucci join for the encores. Listen to the entire fun set below.
 
-[Watch Video Highlight](https://videopress.com/embed/u8yCOevT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/u8yCOevT)
 
 ![](../../assets/2020/08/1994-08-20a.png)
 
@@ -50,7 +50,7 @@
 
 **2002:** In Portland, Oregon, Bruce starts to loosen up the main set of the Rising Tour, tour premiering both "Atlantic City" and "Backstreets."
 
-[Watch Video Highlight](https://videopress.com/embed/POy7Bo4x?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/POy7Bo4x)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2IHntRdm9B8)
 

@@ -16,7 +16,7 @@
 
 **1992:** Bruce and his new touring band bring World Tour 1992 to the Detroit area for their first of two shows at The Palace of Auburn Hills. Watch the soundcheck, pre-show interview, and concert footage below.
 
-[Watch Video Highlight](https://videopress.com/embed/XxssRVjw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XxssRVjw)
 
 [Watch on Youtube: Bruce Springsteen - Red Headed Woman](https://www.youtube.com/watch?v=cVLXiCqsTpY)
 
@@ -30,7 +30,7 @@
 
 **2003:** Bruce and the E Street Band play their second of only two Rising Tour stadium shows on the west coast, this one at Dodger Stadium in Los Angeles.
 
-[Watch Video Highlight](https://videopress.com/embed/ijPr8cpo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ijPr8cpo)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/2003-08-17a.png)
 

@@ -12,7 +12,7 @@
 
 **1975:** Bruce and the boys bring the Born to Run Tour to the Mosque Theater in Richmond.
 
-[Watch Video Highlight](https://videopress.com/embed/eMvYyWzB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/eMvYyWzB)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/08/Richmond_Times_Dispatch_1975_08_02_6-scaled.jpg)
 
@@ -56,7 +56,7 @@
 
 **1999:** It’s Night Eight of fifteen on the opening American stand of the Reunion Tour, and this show brings the tour premiere of “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)” and the one and only performance to date of “[Trouble River](https://estreetshuffle.com/index.php/2019/03/05/roll-of-the-dice-trouble-river/).”
 
-[Watch Video Highlight](https://videopress.com/embed/QYAgcBKx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/QYAgcBKx)
 
 [Watch on Youtube: Trouble River Bruce Springsteen 1999 NJ](https://www.youtube.com/watch?v=-TYKWXeXf9A)
 
@@ -72,7 +72,7 @@
 
 **2003:** At the first of two shows at Gillette Stadium in Foxboro, Bruce opens the encores with a cover of “[Mystery Train](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)” in memory of Sam Phillips, who passed away two days prior.
 
-[Watch Video Highlight](https://videopress.com/embed/a0fJ1kW8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/a0fJ1kW8)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/2003-08-01a.png)
 
@@ -84,7 +84,7 @@
 
 [Watch on Youtube: Walk Like A Man (solo piano) Bruce Springsteen 8/1/2005 Cincinnati, OH](https://www.youtube.com/watch?v=LwNPvRvFhKg)
 
-[Watch Video Highlight](https://videopress.com/embed/KnsFTin1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KnsFTin1)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/08/2005-08-01.png)
 

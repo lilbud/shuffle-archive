@@ -2,7 +2,7 @@
 
 Bruce has covered it sixteen times over the years, unsurprisingly since he once proclaimed that “any bar band worth its salt has got to know this one.” Here’s what I think is their best take, from Tacoma in 1984.
 
-[Watch Video Highlight](https://videopress.com/embed/Fh9LVVK3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Fh9LVVK3)
 
 Bonus footage: check out this high-quality video from the original artists.
 

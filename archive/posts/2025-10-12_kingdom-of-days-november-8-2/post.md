@@ -86,7 +86,7 @@
 
 **2012:** Bruce supports the 6th annual Stand Up for Heroes benefit for the Bob Woodruff Foundation at New York’s Beacon Theater, performing a four-song acoustic set and exercising his comedy chops. Watch his entire set below.
 
-[Watch Video Highlight](https://videopress.com/embed/fixgKvan?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fixgKvan)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/11/The_Record_2012_11_09_A2.jpg)
 

@@ -12,7 +12,7 @@
 
 **1976:** Night Two at the Municipal Auditorium Theater in Mobile, Alabama on the Chicken Scratch Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/1U5KUucD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1U5KUucD)
 
 **1978:** Less than a month before the release of *Darkness on the Edge of Town*, Bruce is at the Record Plant in New York city, working on mixing and overdubs.
 
@@ -36,11 +36,11 @@
 
 **1997:** Night Two for Bruce in Warsaw during his first visit to Poland features the final performance to date of “[There Will Never Be Any Other for Me But You](https://estreetshuffle.com/index.php/2019/08/23/roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/).”
 
-[Watch Video Highlight](https://videopress.com/embed/I8Terzq8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/I8Terzq8)
 
 **2003:** The Rising tour moves on to Ludwigshafen, Germany, where Bruce opens the show with an acoustic “This Hard Land.”
 
-[Watch Video Highlight](https://videopress.com/embed/CWBvkuN4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CWBvkuN4)
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band Ludwigshafen 2003 Worlds Apart](https://www.youtube.com/watch?v=-uokhJWDSw8)
 
@@ -66,10 +66,10 @@
 
 [Watch on Youtube: Bruce Springsteen & The Seeger Band live in Paris (10/05/2006): Pay Me My Money Down](https://www.youtube.com/watch?v=uWvDD6Fy48Y)
 
-[Watch Video Highlight](https://videopress.com/embed/JHwPAK0b?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JHwPAK0b)
 
-[Watch Video Highlight](https://videopress.com/embed/laV0TcCl?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/laV0TcCl)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[Watch Video Highlight](https://videopress.com/embed/uGGWtaZo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uGGWtaZo)

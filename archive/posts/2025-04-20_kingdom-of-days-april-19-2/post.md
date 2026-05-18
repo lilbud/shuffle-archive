@@ -20,7 +20,7 @@
 
 **1985:** Bruce’s tour of Japan moves from Tokyo to Kyoto for a night at Furitsu Taikukan.
 
-[Watch Video Highlight](https://videopress.com/embed/TVhMNdU8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TVhMNdU8)
 
 **1988:** [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) is certified 3x multi-platinum by the Recording Industry Association of America.
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: Spare Parts (Live at ICC SAAL 1, Berlin, Germany - April 1996)](https://www.youtube.com/watch?v=hlEKiRlJSdc)
 
-[Watch Video Highlight](https://videopress.com/embed/djUWDP3c?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/djUWDP3c)
 
 **1999:** At the first of two Reunion shows at the Fila Forum in Milan, fans witness the live debut of “[Where the Bands Are](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/).” “Jungleland” makes its tour debut as well.
 

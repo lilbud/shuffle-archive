@@ -18,7 +18,7 @@ The band went on to nail it, though, and over the course of the tour it became a
 
 From its penultimate performance in Verona on October 5, 2006, here’s one of the best outings for “Rag Mama Rag” by Bruce Springsteen and the Sessions Band.
 
-[Watch Video Highlight](https://videopress.com/embed/Ojm2IHfL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Ojm2IHfL)
 
 **Rag Mama Rag
 First performed:** May 30, 2006 (Columbus, OH)

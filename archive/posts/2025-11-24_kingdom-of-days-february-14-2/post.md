@@ -8,7 +8,7 @@
 
 **1973:** Bruce and the band open for Dan Hicks and His Hot Licks at Virginia Commonwealth University in Richmond. The show features the earliest known performance of “Rosalita (Come Out Tonight).” The recording is muddy but quite listenable, and it’s worth a listen if only for the fascinating early lyrics, the mid-song “There I was” story, the mid-song James Brown vamp, and the complete mid-song cover of The Beach Boys’ “Fun Fun Fun.” Yes, this was all during that single, first performance of “Rosalita.” Rosie comes out at 27:41 below–take a listen.
 
-[Watch Video Highlight](https://videopress.com/embed/sCffbs7D?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/sCffbs7D)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/02/1973-02-14a.jpg)
 
@@ -20,7 +20,7 @@
 
 **1996:** Bruce continues the first leg of his European acoustic tour with a show in Dresden, where he closes the show with “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” for the first time.
 
-[Watch Video Highlight](https://videopress.com/embed/4PFVEda7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4PFVEda7)
 
 **2017:** Bruce plays a love-themed show in Brisbane for Valentine’s Day, with “[Janey, Don’t You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/),” “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/),” “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/),” and “[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)” among the tour premieres. “Back in Your Arms” in particular is a little rough, though…
 

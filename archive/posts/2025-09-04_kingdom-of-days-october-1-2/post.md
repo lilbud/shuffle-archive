@@ -26,7 +26,7 @@
 
 **1985:** The television series *Growing Pains* (starring Alan Thicke, an ardent Springsteen fan) airs an episode centered around the Born in the U.S.A. Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/ArcLpCVN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ArcLpCVN)
 
 **1991:** Southside Johnny releases his *Better Days* album, featuring a Springsteen original (“[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)“) and Bruce’s vocals (along with Southside and Steve Van Zandt) on “It’s Been a Long Time.”
 
@@ -34,7 +34,7 @@
 
 **1996:** Bruce takes his solo acoustic tour to the Braden Auditorium in Normal, Illinois.
 
-[Watch Video Highlight](https://videopress.com/embed/LCKzTo7T?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LCKzTo7T)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1996-10-01.jpg)
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: R.E.M. 2004/10/01 - Vote For Change Tour, Wachovia Center, Philadelphia, PA (w/Bruce Springsteen)](https://www.youtube.com/watch?v=50tR73_yNVM)
 
-[Watch Video Highlight](https://videopress.com/embed/dHep8GzG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dHep8GzG)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/2004-10-01a.jpg)
 
@@ -68,7 +68,7 @@
 
 **2006:** Bruce and the Sessions Band kick off the final leg of the Seeger Sessions Tour with an autumn tour of Italy, starting in Bologna with a show at PalaMalaguti, where “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” makes its tour debut in a beautiful new arrangement, and Bruce plays “[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)” for the very first time. “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)” returns as the show closer, where it will remain for the rest of the tour.
 
-[Watch Video Highlight](https://videopress.com/embed/O7hJWw9Y?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/O7hJWw9Y)
 
 [Watch on Youtube: Bruce Springsteen & The Sessions Band Open All Night Bologna](https://www.youtube.com/watch?v=BvdT1GmSVac)
 

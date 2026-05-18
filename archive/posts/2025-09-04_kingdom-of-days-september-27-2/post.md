@@ -2,7 +2,7 @@
 
 **1975:** Bruce and the “East Side Band” play their first-ever show in Missouri when the Born to Run Tour stops at the Ambassador Theater in St. Louis. The set list features a 27-minute(!) “[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/).”
 
-[Watch Video Highlight](https://videopress.com/embed/mmpgyjjC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mmpgyjjC)
 
 [Watch on Youtube: Bruce Springsteen - 1975-09-26 Hancher Auditorium, Iowa City, IA](https://www.youtube.com/watch?v=H9BsJXUt0EQ)
 
@@ -44,7 +44,7 @@
 
 **1988:** The Human Rights Now! Tour lands in Asia, starting with a show at the Tokyo Dome, where Bruce tour debuts “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/).”
 
-[Watch Video Highlight](https://videopress.com/embed/D15WeCor?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/D15WeCor)
 
 [Watch on Youtube: Bruce Springsteen - My Hometown - at Tokyo Dome Japan 1988.09.27](https://www.youtube.com/watch?v=yUzCioGlkPs)
 
@@ -54,7 +54,7 @@
 
 **1999:** Night One in Chicago on the Reunion Tour features a standard Night One set list, but there are still two nights to go in this stand at the United Center.
 
-[Watch Video Highlight](https://videopress.com/embed/DJ0ByzWd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DJ0ByzWd)
 
 [Watch on Youtube: Bruce Springsteen Where the Bands are Chicago 28/09/1999](https://www.youtube.com/watch?v=D-H46fhjwks)
 
@@ -64,7 +64,7 @@
 
 **2002:** Milwaukee gets tour one-offs of “[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)” and a show-closing “[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)” (complete with “Are you loose?”) and a “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” tour premiere when the Rising Tour stops at the Bradley Center for a night.
 
-[Watch Video Highlight](https://videopress.com/embed/jFG933Sz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jFG933Sz)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/2002-09-27a.jpg)
 
@@ -74,7 +74,7 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN | MILWAUKEE 2003 | FULL CONCERT](https://www.youtube.com/watch?v=WdlwIJmm6ro)
 
-[Watch Video Highlight](https://videopress.com/embed/M2lwaV9r?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/M2lwaV9r)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/09/2003-09-27.jpg)
 
@@ -102,4 +102,4 @@
 
 **2021:** Bruce interviews Little Steven for a streaming event the following day, promoting Van Zandt’s new book, *Unrequited Infatuations.*
 
-[Watch Video Highlight](https://videopress.com/embed/8IIHJ0f1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8IIHJ0f1)

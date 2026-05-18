@@ -32,7 +32,7 @@ Bruce’s appearance was heavy on classic rock and roll covers, including a few 
 
 Bruce is clearly enjoying himself in that recording, so again we wonder: why haven’t we seen him perform it on the E Street stage? Maybe it’s because the last time he tried cozying up to Patti with it on stage… well, let’s just say he didn’t get the reaction he was hoping for.
 
-[Watch Video Highlight](https://videopress.com/embed/pxiim0oC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/pxiim0oC)
 
 He never attempted it on stage again.
 

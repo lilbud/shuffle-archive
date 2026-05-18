@@ -1,6 +1,6 @@
 Bruce has long credited Sam Moore as a major influence, and if you’ve ever seen Sam perform live, it’s easy to see why and how. But let’s let Bruce explain it in his own words to Elvis Costello:
 
-[Watch Video Highlight](https://videopress.com/embed/2K7gfajm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2K7gfajm)
 
 Sam Moore and Dave Prater had a string of hits on the Stax label in the late sixties. Their instantly recognizable “Hold On, I’m Comin'” became their first single to reach the top of the U.S. R&B chart upon its release in 1966 (it peaked at 21 on the Hot 100).
 
@@ -14,7 +14,7 @@ Although Sam contributed his backing vocals in the studio to Bruce’s “Soul D
 
 This time with the proper backing of the horn-powered Max Weinberg 7 and the Alliance Singers, the 68-year old Moore was in fine form with his bandleader’s instincts still intact, and Bruce and Steve clearly relished the opportunity to perform with him.
 
-[Watch Video Highlight](https://videopress.com/embed/vzHr4Pqi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vzHr4Pqi)
 
 Sam’s appearances were such a highlight that when Bruce headlined the Rock and Roll Hall of Fame 25th Anniversary Concerts six years later, Sam (now 74) was one of the legendary artists Bruce asked to join him on stage.
 

@@ -6,11 +6,11 @@
 
 **1980:** At Night Two in Richfield on the River Tour, Bruce and the E Street Band play “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)” for the very first time.
 
-[Watch Video Highlight](https://videopress.com/embed/43CW31ld?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/43CW31ld)
 
 **1984:** Bruce makes a guest appearance with Cats on a Smooth Surface at The Stone Pony in Asbury Park for a cover-filled set, including “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/),” “[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/),” and more.
 
-[Watch Video Highlight](https://videopress.com/embed/Od5POU9j?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Od5POU9j)
 
 **1988:** Bruce plays in Africa for the very first time at the Human Rights Now! show at Zimbabwe’s National Sports Stadium in Harare, before a largely white South African audience. Watch Bruce’s recollection of the show below.
 

@@ -40,7 +40,7 @@
 
 **1995:** Bruce plays a solo acoustic show at Constitution Hall in Washington, DC–twenty years after he last played there.
 
-[Watch Video Highlight](https://videopress.com/embed/8Dwup8kA?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8Dwup8kA)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/1995-12-05.png)
 
@@ -70,7 +70,7 @@
 
 **2003:** After taking a year off (due to the Rising Tour) Bruce resumes his annual Asbury Park holiday show tradition, holding the first of three benefit concerts at Convention Hall in support of local charities. The Max Weinberg 7 once again serves as the house band, and this year guests include the Victorious Gospel Choir, Bobby Bandiera, Soozie Tyrell, Patti Scialfa, Jesse Malin, Garland Jeffreys, Steve Van Zandt, Southside Johnny, Sam Moore, the Alliance Singers, Lisa Lowell, and Nils Lofgren. Lots of gems in the setlist, including the world premiere of “[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/).”
 
-[Watch Video Highlight](https://videopress.com/embed/Xz5q8X5g?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Xz5q8X5g)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/2003-12-05a.png)
 

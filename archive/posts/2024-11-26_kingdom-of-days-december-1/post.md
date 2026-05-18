@@ -8,7 +8,7 @@
 
 **1978:** The Darkness Tour enters into its final month with a show at the University of Oklahoma in Norman. If you’re a fan of the tour arrangement of “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/),” this is your show–the epic intro is the longest ever.
 
-[Watch Video Highlight](https://videopress.com/embed/GtxsiOUU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GtxsiOUU)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1978-12-01.jpg)
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Darlington County live in Arnhem 2007](https://www.youtube.com/watch?v=pZGgitwO068)
 
-[Watch Video Highlight](https://videopress.com/embed/Tks8hr21?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Tks8hr21)
 
 [Watch on Youtube: Bruce Springsteen Arnhem 1/12/2007 Full Concert](https://www.youtube.com/watch?v=NWYKZHbDLzc)
 

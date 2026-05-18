@@ -6,7 +6,7 @@
 
 **1975:** Bruce and the E Street Band make a Born to Run Tour stop at Seton Hall University, where they play “[Party Lights](https://estreetshuffle.com/index.php/2022/06/01/cover-me-party-lights/)” for the last time to date.
 
-[Watch Video Highlight](https://videopress.com/embed/32Ky6u31?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/32Ky6u31)
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In South Orange, NJ 1975-12-11 (Joe Kivak Master)](https://www.youtube.com/watch?v=KT8lMzs559M)
 
@@ -26,7 +26,7 @@
 
 **1984:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, where they add “My Old Kentucky Home” to “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” for the occasion.
 
-[Watch Video Highlight](https://videopress.com/embed/80rWaa1S?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/80rWaa1S)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1984-12-11a.png)
 

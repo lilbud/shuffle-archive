@@ -18,7 +18,7 @@
 
 **1997:** Bruce plays his third of five solo acoustic nights at Sydney’s Capitol Theater.
 
-[Watch Video Highlight](https://videopress.com/embed/MEFuhDtd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MEFuhDtd)
 
 **2008:** Bruce scores three Grammy Awards: two for “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)” (Best Solo Rock Vocal Performance and Best Rock Song) and one for “[Once Upon a Time in the West](https://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/)” (Best Rock Instrumental Performance). Bruce’s current album, *Magic*, is also nominated for Best Rock Album but does not win.
 

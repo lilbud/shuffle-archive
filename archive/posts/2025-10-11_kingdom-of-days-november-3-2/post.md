@@ -18,7 +18,7 @@
 
 **1976:** It’s Night Five of six at the Palladium in New York City on the Lawsuit Tour; tonight’s show is notable for the debut of “Mona” as the intro to “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)” and the last known “[A Fine Fine Girl](https://estreetshuffle.com/index.php/2019/01/28/cover-me-a-fine-fine-boy/)” for 33 years.
 
-[Watch Video Highlight](https://videopress.com/embed/tYm0RPgx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/tYm0RPgx)
 
 **1980:** Bruce and the band play their final night of a four-night stand at the Los Angeles Memorial Sports Arena, where the 1978 version of “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” makes its final appearance for 32 years. Flo and Eddie guest star on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/),” and Jackson Browne joins the band for a final encore of “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/).”
 
@@ -42,7 +42,7 @@
 
 **2000:** Bruce returns to The Stone Pony for the first time in five years, joining Joe Grushecky and The Houserockers on stage at Bob Benjamin’s first official Light of Day benefit for the Parkinson’s Disease Foundation. Listen to the entire show below. (Bruce joins after the first two songs.)
 
-[Watch Video Highlight](https://videopress.com/embed/fpVU6S3u?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fpVU6S3u)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2000-11-03a.png)
 
@@ -50,7 +50,7 @@
 
 **2001:** Bruce makes an encore appearance at Light of Day 2001 at Tradewinds in Sea Bright, joining Joe Grushecky three songs into his set. Listen to their performance below, featuring Bruce’s first performance of “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” in 15 years.
 
-[Watch Video Highlight](https://videopress.com/embed/MNUjFpDS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/MNUjFpDS)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2001-11-03.png)
 
@@ -88,9 +88,9 @@
 
 [Watch on Youtube: Bruce Springsteen with The Composure - "Dancing In The Dark"](https://www.youtube.com/watch?v=5ShAXSeBQFc)
 
-[Watch Video Highlight](https://videopress.com/embed/CkjUjE3k?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/CkjUjE3k)
 
-[Watch Video Highlight](https://videopress.com/embed/6oxCgyZ2?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6oxCgyZ2)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/11/2011-11-03.png)
 

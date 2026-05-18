@@ -8,7 +8,7 @@ So what a treat it was when Billy and Bruce closed their main set with it at the
 
 This was more than just Bruce backing Billy on guitar. The two rock legends traded lead vocals, and even when Bruce is in the background, we can hear him clearly throughout. And as a bonus, we get the closest thing we have to a Bruce Springsteen cover of The Beatles’ “A Hard Day’s Night” via a mid-song interlude.
 
-[Watch Video Highlight](https://videopress.com/embed/O1F4I4Si?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/O1F4I4Si)
 
 That concert featured a treasure chest of one-time-only Springsteen performances of Billy Joel Classics (see “[Movin’ Out (Anthony’s Song)](https://estreetshuffle.com/index.php/2020/04/27/matr-billy-joel-and-bruce-springsteen-movin-out-anthonys-song/)” and “[A Matter of Trust](https://estreetshuffle.com/index.php/2020/03/17/matr-billy-joel-and-bruce-springsteen-a-matter-of-trust/)” for two of them), but this one’s my favorite.
 

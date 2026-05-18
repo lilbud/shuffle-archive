@@ -36,9 +36,9 @@
 
 [Watch on Youtube: Kitty's Back - Springsteen - Philadelphia March 29, 2012](https://www.youtube.com/watch?v=mfA0GQkHIUw)
 
-[Watch Video Highlight](https://videopress.com/embed/gej0C60o?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gej0C60o)
 
-[Watch Video Highlight](https://videopress.com/embed/optZZp65?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/optZZp65)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/RollingStone11.jpg)
 

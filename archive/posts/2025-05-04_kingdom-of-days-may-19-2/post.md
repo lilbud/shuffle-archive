@@ -28,7 +28,7 @@
 
 **1984:** Bruce joins Clarence Clemons and The Red Bank Rockers on stage for four songs at The Stone Pony.
 
-[Watch Video Highlight](https://videopress.com/embed/8PYuzTA6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8PYuzTA6)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1984-0519.jpg)
 
@@ -52,17 +52,17 @@
 
 **1997:** Bruce plays a solo acoustic show in Toulon, France.
 
-[Watch Video Highlight](https://videopress.com/embed/U0SMqWyc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/U0SMqWyc)
 
 **1999:** Night Two of four at Earls Court in London for the Reunion Tour.
 
-[Watch Video Highlight](https://videopress.com/embed/L763UO8r?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/L763UO8r)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Evening_Standard_Fri__May_21__1999_-scaled.jpg)
 
 **2003:** Elliott Murphy guest-stars on “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)” and “Born to Run” when the Rising Tour makes a stop at the Estadio de la Comunidad in Madrid.
 
-[Watch Video Highlight](https://videopress.com/embed/SCAXgeKO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/SCAXgeKO)
 
 [Watch on Youtube: Bruce Springsteen La Peineta madrid 2003 lamandragora](https://www.youtube.com/watch?v=NSQGuU01YCc)
 
@@ -72,7 +72,7 @@
 
 [Watch on Youtube: Bruce Springsteen - LONG TIME COMING 2005](https://www.youtube.com/watch?v=U2PKBQ5yHoM)
 
-[Watch Video Highlight](https://videopress.com/embed/X33FlTuR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/X33FlTuR)
 
 [Watch on Youtube: Bruce Springsteen - The Wish (live 2005)](https://www.youtube.com/watch?v=5qhY0mkV_4k)
 

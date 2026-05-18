@@ -2,7 +2,7 @@
 
 **1985:** Bruce and the E Street Band wrap the first leg of the *Born in the U.S.A.* Tour at the Carrier Dome in Syracuse. The show is captured by a fan on video, and you can watch it here.
 
-[Watch Video Highlight](https://videopress.com/embed/oIAPRV7U?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/oIAPRV7U)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Ithaca_Journal_1985_01_28_Page_1.jpg)
 

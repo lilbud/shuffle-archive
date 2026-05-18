@@ -18,7 +18,7 @@
 
 **1981:** Flo and Eddie guest-star on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” when the River Tour arrives in Rotterdam.
 
-[Watch Video Highlight](https://videopress.com/embed/JJqRnR4k?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JJqRnR4k)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1981-0428.jpg)
 
@@ -46,9 +46,9 @@
 
 **2005:** On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays “[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)” for the first time in 17 years, and Jimmy LaFave guest-stars on “[Oklahoma Hills.](https://estreetshuffle.com/index.php/2021/05/17/matr-bruce-springsteen-arlo-guthrie-joe-ely-and-jimmy-lafave-oklahoma-hills/)” Also new to the set list tonight: “[Galveston Bay](https://estreetshuffle.com/index.php/2020/06/22/roll-of-the-dice-galveston-bay/)” and “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).”
 
-[Watch Video Highlight](https://videopress.com/embed/ZDEYaKNZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZDEYaKNZ)
 
-[Watch Video Highlight](https://videopress.com/embed/jNBEdQ4h?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jNBEdQ4h)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2005-04-28a.jpg)
 

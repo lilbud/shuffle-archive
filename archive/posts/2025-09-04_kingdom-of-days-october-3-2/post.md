@@ -30,9 +30,9 @@
 
 **1982:** Bruce plays “[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)” for the very first time, not solo or with the E Street Band, but with Cats on a Smooth Surface at The Stone Pony.
 
-[Watch Video Highlight](https://videopress.com/embed/qjfJIaLw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qjfJIaLw)
 
-[Watch Video Highlight](https://videopress.com/embed/jCaBEqvf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/jCaBEqvf)
 
 [Watch on Youtube: BRUCE SPRINGSTEEN : ROCK BABY ROCK ( with the cats on a smooth surface )](https://www.youtube.com/watch?v=vJg4g-kUrbs)
 
@@ -46,11 +46,11 @@
 
 **1992:** Bruce and his new touring band play their second of two World Tour 1992 nights at Phoenix’s America West Arena.
 
-[Watch Video Highlight](https://videopress.com/embed/0dyy3mhN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0dyy3mhN)
 
 **1996:** Bruce plays a solo acoustic show at the Northrop Auditorium in Minneapolis.
 
-[Watch Video Highlight](https://videopress.com/embed/lhef9P4J?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/lhef9P4J)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1996-10-03a.jpg)
 
@@ -58,17 +58,17 @@
 
 **2003:** A stunning penultimate show for the Rising Tour at Shea Stadium from start to finish: Bruce opens with the tour premiere of “[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/),” plays another double-header of tour premieres mid-set (“[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)” and “Another Thin Line”), along with rare outings for “[Janey, Don’t You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” and “New York City Serenade” (another tour premiere). Willie Nile and Gary U.S. Bonds guest-star during the encores, and Al Franken makes a guest appearance during the main set.
 
-[Watch Video Highlight](https://videopress.com/embed/J1syuhbU?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/J1syuhbU)
 
-[Watch Video Highlight](https://videopress.com/embed/ngToxKU8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ngToxKU8)
 
-[Watch Video Highlight](https://videopress.com/embed/vXF3ixBS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/vXF3ixBS)
 
 [Watch on Youtube: New York City Serenade Bruce Springsteen 10/3/2003 NYC](https://www.youtube.com/watch?v=l8eEFuw_SMU)
 
 **2004:** The Vote for Change Tour moves on to the next swing state–Michigan–with a show at Cobo Arena. “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” and “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” replace “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” in the set, and “Travelin’ Band” makes its debut in the encores. The Dixie Chicks are in town for their VfC show, too, and they make it over to the Cobo in time to join Bruce and the assembled artists for the final encore. For more highlights from this show, see my [Where the Band Was report](https://estreetshuffle.com/index.php/2018/10/03/where-the-band-was-detroit-october-3-2004/).
 
-[Watch Video Highlight](https://videopress.com/embed/1wwST4YS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1wwST4YS)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/2004-10-03a.jpg)
 

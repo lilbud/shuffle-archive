@@ -16,11 +16,11 @@
 
 **1975:** Bruce and the E Street Band wrap up their four-night/six-show stand at the Roxy Theater in West Hollywood.
 
-[Watch Video Highlight](https://videopress.com/embed/5HvNdNG9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5HvNdNG9)
 
 **1984:** The Recording Industry Association of America certifies *Born in the U.S.A.* triple platinum. By evening, Bruce has recovered enough from his flu to perform his rescheduled Born in the U.S.A. show in Tacoma. “Rosalita (Come Out Tonight)” goes missing from the setlist for the first time in a decade.
 
-[Watch Video Highlight](https://videopress.com/embed/VXCyjDsw?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VXCyjDsw)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/10/46359615744_ecfea82ca1_o.jpg)
 
@@ -28,7 +28,7 @@
 
 **1995:** The *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)* October Assault moves on to Philadelphia, where Bruce again joins Joe Grushecky and The Houserockers at their show at the Electric Factory. After the show, local WMMR-FM DJ Ed Sciaky (a *longtime* fan and supporter of Bruce) stops backstage to interview Joe and Bruce.
 
-[Watch Video Highlight](https://videopress.com/embed/w1GwRcTv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/w1GwRcTv)
 
 [Watch on Youtube: Bruce Springsteen & Joe Grushecky interview with Ed Sciaky, 1995-10-19](https://www.youtube.com/watch?v=qNPawvRUHmU)
 
@@ -38,7 +38,7 @@
 
 **1996:** Bruce plays his first and only show in New Mexico, a solo acoustic Ghost of Tom Joad Tour stop at the Kiva Auditorium in Albuquerque.
 
-[Watch Video Highlight](https://videopress.com/embed/S30vkti6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/S30vkti6)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1996-10-19a.png)
 
@@ -84,11 +84,11 @@
 
 **2009:** Bruce performs his penultimate show at the Philadelphia Spectrum, the third of four nights in this final stand. Bruce opens with a shocker–“[When You Walk in the Room](https://estreetshuffle.com/?p=21789),” played here for the first time in 33 years. The setlist also features the first full-band “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” in 27 years and the on-stage debut of “Philly Elvis” (a.k.a Nick Ferraro) for the tour premiere of “[All Shook Up](https://estreetshuffle.com/index.php/2019/08/03/matr-bruce-springsteen-and-the-philly-elvis-all-shook-up/).” Oh and not for nothing, the show also includes a full album performance of *Born to Run*. For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/10/19/where-the-band-was-philadelphia-october-19-2009/)
 
-[Watch Video Highlight](https://videopress.com/embed/RSUrvwNj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RSUrvwNj)
 
-[Watch Video Highlight](https://videopress.com/embed/PiZY93Jk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PiZY93Jk)
 
-[Watch Video Highlight](https://videopress.com/embed/JEC3KYI6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/JEC3KYI6)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/10/2009-10-19.png)
 

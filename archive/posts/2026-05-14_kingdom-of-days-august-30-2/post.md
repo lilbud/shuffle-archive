@@ -28,7 +28,7 @@ Later that night–so late that it's technically the following day, August 31–
 
 **2002:** The Rising Tour moves on to the Savvis Center in St. Louis. The set list is slowly opening up as "Downbound Train" makes its tour premiere early in the show.
 
-[Watch Video Highlight](https://videopress.com/embed/sA1EzJjX?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/sA1EzJjX)
 
 ![](../../assets/2020/08/2002-08-30.png)
 

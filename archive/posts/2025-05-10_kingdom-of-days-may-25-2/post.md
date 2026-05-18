@@ -18,7 +18,7 @@
 
 [Watch on Youtube: This Hard Land - Roma 1993 (SUB ITA)](https://www.youtube.com/watch?v=f_deiYzeqHI)
 
-[Watch Video Highlight](https://videopress.com/embed/bTplbK9e?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/bTplbK9e)
 
 [Watch on Youtube: Bruce Springsteen - Rome, Italy - May 25, 1993 [audio]](https://www.youtube.com/watch?v=AJ3uhDbZhXQ)
 
@@ -26,13 +26,13 @@
 
 [Watch on Youtube: Extrait archives M6 Video Bank // Bruce Springsteen (Plus vite que la musique - 1997)](https://www.youtube.com/watch?v=pSfuW0PzEr4)
 
-[Watch Video Highlight](https://videopress.com/embed/fOZ2sDFN?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fOZ2sDFN)
 
 **1999:** The Reunion Tour stops at RDS Arena in Dublin, where the E Street Band plays “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” for the very first time.
 
-[Watch Video Highlight](https://videopress.com/embed/EofiezBc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/EofiezBc)
 
-[Watch Video Highlight](https://videopress.com/embed/GSa8jPSf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GSa8jPSf)
 
 [Watch on Youtube: Bruce Springsteen Dublin 25/5/1999 Full Concert](https://www.youtube.com/watch?v=Dm9g9tKWngA)
 

@@ -16,13 +16,13 @@
 
 **1999:** The opening stand of the Reunion Tour’s U.S. leg continues with Night Three at the Continental Airlines Arena in East Rutherford.
 
-[Watch Video Highlight](https://videopress.com/embed/DhJGQnGP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DhJGQnGP)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1999-07-20.png)
 
 **2005:** Bruce brings his solo acoustic tour to Bridgeport, Connecticut, where he tour premieres “[All That Heaven Will Allow](https://estreetshuffle.com/index.php/2022/08/05/roll-of-the-dice-all-that-heaven-will-allow/)” and “[Nothing Man,](https://estreetshuffle.com/index.php/2020/08/29/roll-of-the-dice-nothing-man/)” both on electric piano.
 
-[Watch Video Highlight](https://videopress.com/embed/wpRIRm41?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/wpRIRm41)
 
 [Watch on Youtube: Nothing Man, Solo Piano Version - Bruce Springsteen](https://www.youtube.com/watch?v=L9XCvwdwCVk)
 
@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band Barcelona 20th July 2008 Tougher Than The Rest](https://www.youtube.com/watch?v=SzMNhfqCOJ8)
 
-[Watch Video Highlight](https://videopress.com/embed/sWVYJ29B?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/sWVYJ29B)
 
 **2011:** Bruce takes Evan to see U2 at the New Meadowlands Stadium, where Bono pays tribute to Clarence and outros from “Moment of Surrender” into “Jungleland.”
 

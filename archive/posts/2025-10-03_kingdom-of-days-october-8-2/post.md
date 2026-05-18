@@ -68,6 +68,6 @@ That evening, Bruce joins Little Steven and the Disciples of Soul at The Ritz in
 
 **2011:** Ben Stiller reprises his impeccable Bruce Springsteen impression when he guest-hosts *Saturday Night Live* and pitches a box set that in all honesty many fans would probably buy. (I know I would.)
 
-[Watch Video Highlight](https://videopress.com/embed/osGXxOxb?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/osGXxOxb)
 
  

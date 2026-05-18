@@ -18,7 +18,7 @@
 
 **1985:** Bruce and the E Street Band play their second of six nights at the Sydney Entertainment Center, as Rosie returns to the set list for the first time this year.
 
-[Watch Video Highlight](https://videopress.com/embed/4R9wQY6l?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4R9wQY6l)
 
 **1988:** The second of two nights at The Omni in Atlanta along the Tunnel of Love Express Tour. The set list is largely unremarkable, but the soundcheck is astounding, full of rare covers like “Crazy Love,” “A Change Is Gonna Come,” “Just Like a Woman” and more–and luckily we have a recording of it (thanks to friend of the blog Chris Nierling).
 

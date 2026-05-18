@@ -16,7 +16,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/01/1981-02-05.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/qge220wF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qge220wF)
 
 **1985:** On ABC-TV’s news series *20/20*, Hugh Downs profiles Bruce. Watch the full segment below.
 
@@ -34,7 +34,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/02/1981-02-05-resized-scaled.jpg)
 
-[Watch Video Highlight](https://videopress.com/embed/iioMYzsu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/iioMYzsu)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1975-02-05.png)
 

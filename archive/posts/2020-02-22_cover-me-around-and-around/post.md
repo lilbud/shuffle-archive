@@ -14,7 +14,7 @@ Bruce and the E Street Band covered “Around and Around” for the first time a
 
 He’d cover it again in 2002 on the Rising Tour, as another one-off performance in Albany, this time a show-closing encore:
 
-[Watch Video Highlight](https://videopress.com/embed/L882atVd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/L882atVd)
 
 Those may have been the only two “official” E Street Band performances, but in between Bruce covered “Around and Around” dozens of times at The Stone Pony, Big Man’s West, McLoone’s Rum Runner, and other small clubs, almost always in surprise, unadvertised appearances.
 

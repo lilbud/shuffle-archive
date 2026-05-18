@@ -28,7 +28,7 @@
 
 **1988:** The Tunnel of Love Express heads to Bloomington, Minnesota for the first of two nights. Eavesdrop on the soundcheck below, featuring Nils singing lead on a cover of “He Can’t Love You.”
 
-[Watch Video Highlight](https://videopress.com/embed/gz3jjnQH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/gz3jjnQH)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/1988-05-09a.jpg)
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Lucky Town (9-5-1992, Rehearsal)](https://www.youtube.com/watch?v=kisUZm1yMpQ)
 
-[Watch Video Highlight](https://videopress.com/embed/0cAKvrCK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/0cAKvrCK)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/1992-05-09.jpg)
 
@@ -56,11 +56,11 @@
 
 [Watch on Youtube: Bruce Springsteen - Televizní noviny 1997](https://www.youtube.com/watch?v=eMbKtLHR_9A)
 
-[Watch Video Highlight](https://videopress.com/embed/5MQ16PaR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5MQ16PaR)
 
 **2006:** Bruce and the Sessions Band play a televised show at St. Luke’s Church in London. Watch the performance in great quality below, especially Bruce’s hilarious mistake on “Jacob’s Ladder” at minute 36.
 
-[Watch Video Highlight](https://videopress.com/embed/2j9sa8J0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/2j9sa8J0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/Evening_Standard_Fri__May_12__2006_-scaled.jpg)
 

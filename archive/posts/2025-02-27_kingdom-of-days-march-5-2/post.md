@@ -4,7 +4,7 @@
 
 **1977:** Bruce continues his Florida swing with a gig at Jai Alai Fronton in Orlando.
 
-[Watch Video Highlight](https://videopress.com/embed/4joZ40eY?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/4joZ40eY)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/1977-03-05b.jpg)
 
@@ -12,7 +12,7 @@
 
 **1981:** At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the first leg of the River Tour and play “[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)” for the last time until 2005.
 
-[Watch Video Highlight](https://videopress.com/embed/DteacuKH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DteacuKH)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/1981-03-05a.jpg)
 

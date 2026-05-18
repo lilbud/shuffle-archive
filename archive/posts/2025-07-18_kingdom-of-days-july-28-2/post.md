@@ -16,13 +16,13 @@
 
 **1975:** A rainy night plagues Bruce’s performance at the Carter Barron Amphitheater in Washington DC’s Rock Creek Park. Heavy rain delays the start of the show by two hours, and lingering moisture disrupts Bruce’s guitar throughout the show, causing additional mid-show delays. Still, the performance is great, and the crowd is hot. Listen to the rare instrumental “[Funk Song](https://estreetshuffle.com/index.php/2018/05/02/roll-of-the-dice-funk-song/)” below.
 
-[Watch Video Highlight](https://videopress.com/embed/PjwQpbMI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/PjwQpbMI)
 
 [Watch on Youtube: Bruce Springsteen Live Concert - 7/28/75 Washington, DC](https://www.youtube.com/watch?v=1SF6X8x3aEw)
 
 **1978:** Bruce’s cover of “[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)” makes its debut in his Darkness Tour show in Miami.
 
-[Watch Video Highlight](https://videopress.com/embed/9mruPo23?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9mruPo23)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/07/1978-07-28b.png)
 
@@ -38,13 +38,13 @@
 
 **1992:** Night Four of eleven in East Rutherford on World Tour 1992 sees the tour premieres of “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” and “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/).”
 
-[Watch Video Highlight](https://videopress.com/embed/8RRTltYG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/8RRTltYG)
 
 **2005:** Bruce brings his solo Devils and Dust Tour to Pittsburgh, where local boy Joe Grushecky makes his customary guest appearance, dueting with Bruce on “[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)” in the encores. This show also features the tour premiere of “[One Step Up.](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)”
 
-[Watch Video Highlight](https://videopress.com/embed/LAEopDEc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/LAEopDEc)
 
-[Watch Video Highlight](https://videopress.com/embed/m5anLWg5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/m5anLWg5)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/2005-07-28.png)
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Held Up Without A Gun (2008-07-28)](https://www.youtube.com/watch?v=51olFvYDrR4)
 
-[Watch Video Highlight](https://videopress.com/embed/1GhSWzqo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/1GhSWzqo)
 
 **2009:** The Working on a Dream Tour moves across Spain to Seville, where “[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)” is tour premiered by request. Jay Weinberg sits in for Max during the encores.
 

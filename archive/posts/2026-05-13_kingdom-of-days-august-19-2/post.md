@@ -6,7 +6,7 @@
 
 **1983:** Bruce guest stars with John Eddie at the Brighton Bar in Long Branch, New Jersey, for a mini-set of covers, including "Blue Suede Shoes" and "Ain't That Lovin' You Baby."
 
-[Watch Video Highlight](https://videopress.com/embed/rAT8zq3b?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/rAT8zq3b)
 
 **1984:** The penultimate night of Bruce's ten-night Born in the U.S.A. Tour stand at East Rutherford's Brendan Byrne Arena brings the U.S. debut of "My Father's House" and the return of the Miami Horns for "Tenth Avenue Freeze-Out," "Detroit Medley" and "Twist and Shout." "Reason to Believe" is recorded and released on the *Live 1975-85* box set. This show is available as part of Bruce's official archive series.
 

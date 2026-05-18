@@ -20,7 +20,7 @@
 
 **1988:** Joe Grushecky guest-stars for a final encore of “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” as the Tunnel of Love Express Tour hits the Civic Arena in Pittsburgh.
 
-[Watch Video Highlight](https://videopress.com/embed/TD3n5kg4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/TD3n5kg4)
 
 [Watch on Youtube: Pittsburgh 20/03/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zD7MZ_zC-wkYmD5Zh3bGN6p)
 
@@ -38,7 +38,7 @@
 
 **1996:** Bruce brings his solo acoustic tour to the Point Theater in Dublin.
 
-[Watch Video Highlight](https://videopress.com/embed/GAhWMl2F?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/GAhWMl2F)
 
 [Watch on Youtube: Bruce Springsteen - Brothers Under The Bridge/Born In The U.S A. (Live 1996-03-20)](https://www.youtube.com/watch?v=CCuH9OAvgHw)
 
@@ -48,7 +48,7 @@
 
 **2003:** On the eve of the Iraq War, Bruce opens the Australia leg of The Rising Tour with an acoustic “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” at the Telstra Dome in Melbourne. “[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)” also receives a rare outing.
 
-[Watch Video Highlight](https://videopress.com/embed/uZuuks3s?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uZuuks3s)
 
 **2006:** Bruce rehearses with The Sessions Band at the Paramount Theater in Asbury Park.
 

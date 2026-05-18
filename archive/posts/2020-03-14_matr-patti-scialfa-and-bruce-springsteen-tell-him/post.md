@@ -10,7 +10,7 @@ But even though they’re known to have performed it a dozen times together in t
 
 In fact the only performance of those dozen that was open to the public was their holiday show at Harry’s Roadhouse in Asbury Park on December 19, 2004. At the late show that night, Bruce and Patti finally performed the song that changed their lives in public. Take a listen below–you’ll hear Patti on lead vocals, Bruce on backing vocals.
 
-[Watch Video Highlight](https://videopress.com/embed/biU0S8St?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/biU0S8St)
 
 As for the original version of “Tell Him,” Bruce was technically correct in crediting The Exciters–they took the song all the way to #4 on the Billboard Hot 100 in early 1963.
 
