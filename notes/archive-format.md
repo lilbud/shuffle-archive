@@ -3,6 +3,7 @@
 The format of the final archive is undecided.
 
 As of now, I am considering the following:
+
 - archive of posts converted to markdown, following the structure shown here by [Alex Seifert](https://blog.alexseifert.com/2024/05/30/a-script-for-exporting-wordpress-to-markdown/). One post per folder
 - Postgres DB dump
 - eBooks in PDF/epub format. These will likely be compilations of posts rather than one each.
@@ -48,6 +49,7 @@ Using Calibre, the posts will be exported as epub and also PDF. Posts and images
 Since there were well over 2,000 posts on the website, having that many individual ebooks will quickly get ridiculous. The plan is to compile books together by category/theme, not that much different from how Ken is doing with the "bookshelf collection".
 
 The bookshelf collection is doing the following:
+
 - Kingdom of Days (this day in Bruce history): One book per month
 - Cover Me (songs Bruce has covered): Books compiled by theme:
   - "Encore!": covers that have appeared in the encore
