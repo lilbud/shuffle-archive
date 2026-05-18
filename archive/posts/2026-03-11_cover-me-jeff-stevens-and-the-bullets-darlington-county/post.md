@@ -12,7 +12,7 @@ Oh, and Bruce Springsteen wasn't the recording artist.
 
 Jeff Stevens and the Bullets recorded "Darlington County" as their debut single and took it to #69 on the U.S. Country chart.
 
-[https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3>
 

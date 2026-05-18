@@ -42,7 +42,7 @@
 
 **2019:** Bruce breaks news when he calls in to E Street Radio: a new film is on the way, a concert film based on *Western Stars*, directed by Thom Zimny. When it's released later in the year, Bruce will take a co-director credit.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/07/2019-07-10-Bruce-on-E-St-Radio.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2025/07/2019-07-10-Bruce-on-E-St-Radio.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2025/07/2019-07-10-Bruce-on-E-St-Radio.mp3](https://estreetshuffle.com/wp-content/uploads/2025/07/2019-07-10-Bruce-on-E-St-Radio.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/07/2019-07-10-Bruce-on-E-St-Radio.mp3>
 

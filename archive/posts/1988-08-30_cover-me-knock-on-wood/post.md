@@ -16,7 +16,7 @@ It remains Floyd’s biggest hit to this day, and a decade after he rode the cha
 
 It was the evening of April 29, 1976 (the same night Bruce and Steve broke into Graceland), and Bruce and the band were playing the Ellis Auditorium in Memphis. During the encore, Bruce invited “the man that wrote the book” to the stage and took a supporting role while Floyd fronted the E Street Band for “Knock on Wood” (with a wink and a nod to “Yum Yum Yum (I Want Some).”
 
-[https://estreetshuffle.com/wp-content/uploads/2021/04/Knock-on-Wood-1976-04-29.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/04/Knock-on-Wood-1976-04-29.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/04/Knock-on-Wood-1976-04-29.mp3](https://estreetshuffle.com/wp-content/uploads/2021/04/Knock-on-Wood-1976-04-29.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/04/Knock-on-Wood-1976-04-29.mp3>
 

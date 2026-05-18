@@ -4,7 +4,7 @@ Sometimes you need to step back from something to get the perspective required t
 
 That was true for Bruce Springsteen, who admitted to not fully appreciating The Grateful Dead when he was first introduced to them. It was also true for the late Jerry Garcia; the Grateful Dead frontman had this to say about Bruce in a 1979 interview with the legendary Studs Terkel:
 
-[https://estreetshuffle.com/wp-content/uploads/2022/04/Garcia__Merged.mp3?_=14](https://estreetshuffle.com/wp-content/uploads/2022/04/Garcia__Merged.mp3?_=14)
+[https://estreetshuffle.com/wp-content/uploads/2022/04/Garcia__Merged.mp34](https://estreetshuffle.com/wp-content/uploads/2022/04/Garcia__Merged.mp34)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/04/Garcia__Merged.mp3>
 

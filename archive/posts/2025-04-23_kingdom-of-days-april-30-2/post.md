@@ -24,7 +24,7 @@
 
 **1996:** Bruce brings his solo acoustic tour to Strasbourg, France.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3?_=9)
+[https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3>
 

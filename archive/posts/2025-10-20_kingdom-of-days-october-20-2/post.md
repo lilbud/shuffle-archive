@@ -88,7 +88,7 @@
 
 **2020:** E Street Radio airs Episode 2 of *Letter to You Radio*, featuring conversations between Bruce, Eddie Vedder, and Dave Grohl.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp3?_=14](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp3?_=14)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp34](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp34)
 
 **2021:** At the Javits Center in New York City, Bruce supports The Robin Hood Foundation with an acoustic set of "[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)," "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)," and "Thunder Road."<br>
 

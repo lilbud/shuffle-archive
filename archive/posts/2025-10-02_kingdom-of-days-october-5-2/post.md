@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen, Beaver Brown, and Vini Lopez - "Rosalita" - The Fast Lane - 1979-10-05](https://www.youtube.com/watch?v=BXxFBtfjChk)
 
-[https://estreetshuffle.com/wp-content/uploads/2023/10/1979-10-05-Twist-and-Shout.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2023/10/1979-10-05-Twist-and-Shout.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2023/10/1979-10-05-Twist-and-Shout.mp3](https://estreetshuffle.com/wp-content/uploads/2023/10/1979-10-05-Twist-and-Shout.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/10/1979-10-05-Twist-and-Shout.mp3>
 

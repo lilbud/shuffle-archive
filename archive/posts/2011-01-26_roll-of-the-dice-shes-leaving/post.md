@@ -51,7 +51,7 @@ In this solo form, "She's Leaving" is a quiet elegy for an ending relationship. 
 
 Here is The Bruce Springsteen Band performing "She's Leaving" at the legendary Student Prince in Asbury Park on December 3, 1971:
 
-[https://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3?_=9)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3>
 

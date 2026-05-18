@@ -78,7 +78,7 @@
 
 **2022:** Bruce joins Howard Stern for a long, insightful interview at SiriusXM Studio in New York City. The interview is broadcast live and is filmed for future video release.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2023/10/Howard-Stern-10.31.22-Back-In-Studio-Bruce-Springsteen-Visits.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2023/10/Howard-Stern-10.31.22-Back-In-Studio-Bruce-Springsteen-Visits.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2023/10/Howard-Stern-10.31.22-Back-In-Studio-Bruce-Springsteen-Visits.mp3](https://estreetshuffle.com/wp-content/uploads/2023/10/Howard-Stern-10.31.22-Back-In-Studio-Bruce-Springsteen-Visits.mp3)
 
 **2024:** Bruce and the E Street Band kick off the Canadian leg of World Tour '24 in Montreal with a live premiere appropriate for a Halloween show: a cover of the 1984 hit single, "Ghostbusters."<br>
 

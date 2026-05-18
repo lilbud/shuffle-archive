@@ -14,7 +14,7 @@ Thompson's soulful vocals are filled with empathy. When Johnny's mother implores
 
 After the performance, Thompson explained why Bruce's song resonated with him so strongly.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3)
 
 I wasted no time ordering every Chocolate Genius CD I could find. You shouldn't either, if you enjoyed that performance above. Start with *GodMusic, Black Music*, and *Black Yankee Rock* (but good luck–they're tough to locate both in print and online), and you'll discover three incredible albums of genre-defying music.
 

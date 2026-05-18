@@ -14,10 +14,8 @@ Bruce and Al are such good friends that Bruce invited Al to the set a couple of 
 
 Bruce and Al may be besties, but that doesn’t mean they aren’t also rivals. When Bruce’s *Human Touch* and *Lucky Town* albums failed to hold their spots on the album charts, Springsteen enviously but good-naturedly name-checked his friend from the stage in his 1992 rehearsal show and radio broadcast.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/206-Glory-Days1.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/05/206-Glory-Days1.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/206-Glory-Days1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/206-Glory-Days1.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/206-Glory-Days1.mp3>
 
 It’s been years since Bruce and Al have been seen in public together, but a friendship like theirs was built to stand the test of time. Both artists are still remarkably prolific and relevant, and both are still active stage performers. It’s only a matter of time before we’re treated to their next collaboration.
-
- 

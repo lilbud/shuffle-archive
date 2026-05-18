@@ -38,7 +38,7 @@ For one thing, Bruce wasn't even on the bill. For another, given that he'd be in
 
 Apparently, however, Bruce had confidence to spare. He turned up in Highlands to support his former manager and colleagues. Late in the set, Odin guitarist Tom Cohen invited him to join the band on stage. If the crowd of locals noticed or recognized Springsteen as he took the stage, they certainly didn't show it.
 
-[https://estreetshuffle.com/wp-content/uploads/2023/12/Bruce-Invite1.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2023/12/Bruce-Invite1.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2023/12/Bruce-Invite1.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/Bruce-Invite1.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/12/Bruce-Invite1.mp3>
 
@@ -70,7 +70,7 @@ But oh my gosh, what a gorgeous recording: over fourteen minutes of crystal clea
 
 Again, this recording has not circulated until now. So do yourself a favor, clear your schedule for fifteen minutes, and take a listen to this piece of history.
 
-[https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3>
 
@@ -150,7 +150,7 @@ The band takes it down for the final minute, and if we listen closely we can hea
 
 Amusingly, Bruce knows barely any of the words, so he substitutes with some song lyrics he'd recorded for his upcoming album but had as yet not sang in public. I shared that performance for the first time [last year](https://estreetshuffle.com/index.php/2023/09/09/kingdom-of-days-september-9-2/), but here it is in context, segueing directly out of "Water Station."
 
-[https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3](https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3>
 

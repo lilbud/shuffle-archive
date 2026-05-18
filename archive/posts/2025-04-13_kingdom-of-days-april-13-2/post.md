@@ -42,7 +42,7 @@
 
 Also today: *American Top 40* guest host Chuck Britton introduces Bruce's current hit "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" with a story about his fascination with Elvis Presley.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3)
 
 **1988:** Bruce and the band play their second of two shows at The Summit in Houston.<br>
 
@@ -78,7 +78,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce's curren
 
 **2008:** At the Magic Tour stop at the American Airlines Center in Dallas, "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" makes its tour premiere, and Jon Bon Jovi makes a guest appearance for "Glory Days."<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3](https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3)
 
 ![](../../assets/2021/04/2008-04-13.jpg)
 

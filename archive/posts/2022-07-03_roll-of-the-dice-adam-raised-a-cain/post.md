@@ -60,7 +60,7 @@ To figure out someone's true name, you must completely understand them. With thi
 > *She knows you didn't come back to join their little game*<br>
 > *You remember the faces, you remember the names*<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/Bruce-Springsteen-02-Adam-Raised-A-Cain.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/05/Bruce-Springsteen-02-Adam-Raised-A-Cain.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/Bruce-Springsteen-02-Adam-Raised-A-Cain.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/Bruce-Springsteen-02-Adam-Raised-A-Cain.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/Bruce-Springsteen-02-Adam-Raised-A-Cain.mp3>
 

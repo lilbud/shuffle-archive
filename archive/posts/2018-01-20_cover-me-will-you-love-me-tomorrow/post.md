@@ -4,7 +4,7 @@ We're taking the way-way-WAY-back machine today:
 
 Dr. Zoom and the Sonic Boom!
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/06-Will-You-Still-Love-Me-Tomorrow-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/01/06-Will-You-Still-Love-Me-Tomorrow-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/06-Will-You-Still-Love-Me-Tomorrow-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/06-Will-You-Still-Love-Me-Tomorrow-online-audio-converter.com_.mp3)
 
 Bruce's shortest-lived band, Dr. Zoom and the Sonic Boom lasted all of two gigs, but it's not hard to hear glimmers of the future E Street Band: Bruce, Stevie, Garry, Vini, and David Sancious are already present, and while the Big Man hadn't yet made the scene, there are saxophones (two) in the house.
 

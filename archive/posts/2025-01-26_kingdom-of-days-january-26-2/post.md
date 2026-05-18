@@ -32,7 +32,7 @@
 
 **2009:** Bruce makes a guest DJ appearance on E Street Radio, spinning some of his favorite songs.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/01/02-DJ-Bruce-on-SiriusXM-01-2009-episode-2.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2025/01/02-DJ-Bruce-on-SiriusXM-01-2009-episode-2.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2025/01/02-DJ-Bruce-on-SiriusXM-01-2009-episode-2.mp3](https://estreetshuffle.com/wp-content/uploads/2025/01/02-DJ-Bruce-on-SiriusXM-01-2009-episode-2.mp3)
 
 **2014:** The *High Hopes* Tour kicks off in Cape Town South Africa, with the live debut of "[Free Nelson Mandela](https://estreetshuffle.com/index.php/2018/07/10/cover-me-free-nelson-mandela/)" and the concert premieres of "[Heaven's Wall.](https://estreetshuffle.com/index.php/2020/02/02/roll-of-the-dice-heavens-wall/)" Tom Morello joins the E Street Band for this show and will remain a touring band member throughout the entire tour. (Photo credit: Jo Lopez)<br>
 

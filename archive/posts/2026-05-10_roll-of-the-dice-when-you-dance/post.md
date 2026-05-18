@@ -44,7 +44,7 @@ Southside's version has more polished lyrics and a brassier arrangement, but for
 
 There are a few Bruce Springsteen Band performances of "When You Dance" circulating, but if you want to hear Bruce play it with the E Street Band, you'll have to turn to the Asbury Park All-Star Revue shows from 1977, where Bruce, Steve, the E Street Band, and the Jukes all teamed up to cover for an ailing Southside Johnny. These shows feature the only known performances of "When You Dance" in the E Street Band era.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3>
 

@@ -12,7 +12,7 @@
 
 **1981:** On *American Top 40*, host Casey Kasem introduces “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” with the story of Bruce’s trip to Mexico with his father.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1981-01-19.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1981-01-19.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1981-01-19.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1981-01-19.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1981-01-19.mp3>
 
@@ -36,7 +36,7 @@
 
 **2009:** NPR begins streaming Bruce’s upcoming album, *Working on a Dream,* for free for one week prior to its release. Meanwhile, Bruce tries his hand at being a DJ on E Street Radio, playing some of his favorite contemporary releases for listeners.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3](https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3>
 
@@ -48,7 +48,7 @@
 
 **2016:** The River Tour moves on to Chicago. In memory of Glenn Frey, who died the day before, Bruce performs an acoustic “[Take It Easy](https://wp.me/p9w3Lk-3y)” in the encore. This is only night two of the tour, and Bruce is a little rusty. Listen to him forget how to start “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/).” Twice.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3>
 

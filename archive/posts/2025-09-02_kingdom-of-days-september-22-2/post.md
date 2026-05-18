@@ -40,7 +40,7 @@
 
 Earlier in the day *American Top 40* host Casey Kasem recaps the wedding of Steve and Maureen Van Zandt.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-22.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-22.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-22.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-22.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-22.mp3>
 

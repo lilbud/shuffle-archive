@@ -84,7 +84,7 @@ But no matter what the form, "Ramrod" is an opportunity for Bruce to cut loose, 
 
 **Bonus:** Widely considered to be a River-era song due to its inclusion on that album, "Ramrod" actually made its debut during the Darkness Tour two years earlier. Here's that debut performance, the opening song from Bruce's show in Pittsburgh on December 28, 1978.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/09/1978-12-28-Ramrod.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/09/1978-12-28-Ramrod.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2022/09/1978-12-28-Ramrod.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/1978-12-28-Ramrod.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/09/1978-12-28-Ramrod.mp3>
 

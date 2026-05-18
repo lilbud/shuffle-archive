@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Bruce Springsteen Live Concert - The Roxy 10/17/75](https://www.youtube.com/watch?v=Lg01I4qSQf4)
 
-[https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3?_=16](https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3?_=16)
+[https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp36](https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp36)
 
 ![](../../assets/2019/10/47753636752_5d704a5bfc_o.jpg)
 

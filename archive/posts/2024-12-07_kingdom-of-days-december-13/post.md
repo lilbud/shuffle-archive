@@ -94,7 +94,7 @@ Also today: the release of *The People Speak*, a documentary featuring a contrib
 
 **2018:** *Springsteen on Broadway* continues its final week of shows at the Walter Kerr Theater in New York City. At the theater, French media star Antoine de Caunes interviews Bruce.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3>
 

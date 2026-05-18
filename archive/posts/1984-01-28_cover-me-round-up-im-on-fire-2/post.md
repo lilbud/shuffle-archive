@@ -30,7 +30,7 @@ Well, I couldn't, of course. My conversation with Efraim is only one segment of 
 
 If you've got 110 minutes or so, take a listen to Efrain and David discovering and analyzing both Bruce's and Tori's versions of "I'm on Fire," along with my comparative thoughts.
 
-[https://estreetshuffle.com/wp-content/uploads/2026/03/0335_BFP_Era_Tracks_-_Im_On_Fire_KLICKAUD.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2026/03/0335_BFP_Era_Tracks_-_Im_On_Fire_KLICKAUD.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2026/03/0335_BFP_Era_Tracks_-_Im_On_Fire_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2026/03/0335_BFP_Era_Tracks_-_Im_On_Fire_KLICKAUD.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2026/03/0335_BFP_Era_Tracks_-_Im_On_Fire_KLICKAUD.mp3>
 

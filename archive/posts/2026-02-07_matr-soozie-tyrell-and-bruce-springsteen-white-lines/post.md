@@ -12,7 +12,7 @@ Bruce's lead guitar is present throughout but never so prominent in the mix that
 
 For more background on *White Lines* and Soozie herself, take a listen to this rare radio interview with her from 2003.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3>
 

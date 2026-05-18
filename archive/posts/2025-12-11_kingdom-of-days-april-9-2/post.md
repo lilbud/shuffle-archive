@@ -28,13 +28,13 @@
 
 **1982:** Bruce joins Beaver Brown for “Twist and Shout” at Big Man’s West in Red Bank.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/04/Twist-Shout-1982-04-09.mp3?_=16](https://estreetshuffle.com/wp-content/uploads/2022/04/Twist-Shout-1982-04-09.mp3?_=16)
+[https://estreetshuffle.com/wp-content/uploads/2022/04/Twist-Shout-1982-04-09.mp36](https://estreetshuffle.com/wp-content/uploads/2022/04/Twist-Shout-1982-04-09.mp36)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/04/Twist-Shout-1982-04-09.mp3>
 
 **1988:** While introducing Bruce’s current hit on the charts (“One Step Up”), *American Top 40* host Casey Kasem reveals how *Us Magazine’s* derision of Bruce’s physique prompted him to bulk up.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp3?_=17](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp3?_=17)
+[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp37](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp37)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-09.mp3>
 

@@ -108,7 +108,7 @@ It's almost pointless to try to document the lyrics, because they were different
 
 For an example of just how much of an improv piece "I Remember" was, compare it to this (unfortunately) incomplete recording from just three months earlier. The structure and story are clearly the same, but by the time we reach the 4:30 mark, Bruce is in completely different but just as impassioned lyrical territory.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/05-I-Remember.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2022/05/05-I-Remember.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/05-I-Remember.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/05-I-Remember.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/05-I-Remember.mp3>
 

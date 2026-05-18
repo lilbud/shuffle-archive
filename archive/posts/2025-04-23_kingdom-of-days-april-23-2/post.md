@@ -40,7 +40,7 @@
 
 Also today, *American Top 40* host Casey Kasem introduces Bruce's current chart-climbing single "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)" with a story about how music helped Bruce survive high school.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp3?_=12](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp3?_=12)
+[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp32](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp32)
 
 **1992:** Bruce rehearses with his new band for their upcoming tour.<br>
 

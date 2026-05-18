@@ -104,7 +104,7 @@ There's a next stop ahead of us.
 
 The song all but disappeared for a quarter-century after the Wild & Innocent Tour, surfacing briefly for a one-off appearance at a 1990 acoustic show and a few outings on the Ghost of Tom Joad Tour. The 1996 performances are notable for the accompaniment: Danny on accordion, and Soozie Tyrell on violin, making for a unique arrangement. Here's one of those performances from Asbury Park on November 24, 1996.
 
-[https://estreetshuffle.com/wp-content/uploads/2019/03/111-Wild-Billys-Circus-Story.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/03/111-Wild-Billys-Circus-Story.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2019/03/111-Wild-Billys-Circus-Story.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/111-Wild-Billys-Circus-Story.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/03/111-Wild-Billys-Circus-Story.mp3>
 

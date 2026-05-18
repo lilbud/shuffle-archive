@@ -56,7 +56,7 @@
 
 **2003:** Sick with a cold, Bruce nevertheless turns in a great performance in Vancouver, BC. Before the show, those of us waiting outside in the pit line could hear the band soundcheck an early version of “Devils & Dust.” Listen below.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3>
 

@@ -12,7 +12,7 @@ Still, the power trio never managed to share a stage… except for that one nigh
 
 And then, that one time only, Prince, Bruce Springsteen (on guitar) and Madonna (on tambourine) performed together on Prince's "Baby, I'm a Star." Listen to that nineteen-minute(!) performance below–you'll hear Bruce take a lengthy guitar solo around the seven-minute mark.
 
-[https://estreetshuffle.com/wp-content/uploads/2020/08/LA_Forum_Baby_Im_A_Star_feat_Madonna_Bruce_Springsteen_KLICKAUD.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2020/08/LA_Forum_Baby_Im_A_Star_feat_Madonna_Bruce_Springsteen_KLICKAUD.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2020/08/LA_Forum_Baby_Im_A_Star_feat_Madonna_Bruce_Springsteen_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2020/08/LA_Forum_Baby_Im_A_Star_feat_Madonna_Bruce_Springsteen_KLICKAUD.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/08/LA_Forum_Baby_Im_A_Star_feat_Madonna_Bruce_Springsteen_KLICKAUD.mp3>
 

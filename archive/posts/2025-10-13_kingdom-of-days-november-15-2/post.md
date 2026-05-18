@@ -86,7 +86,7 @@ Meanwhile, for those of us not at the show, The Ben Stiller show gets educationa
 
 **2010:** Bruce appears on Sirius XM radio for a Q&A with fans to celebrate the release of *The Promise: The Darkness on the Edge of Town Story.*<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2024/11/Bruce-Darkness-on-the-Edge-of-Your-Town-Promise-QA-Session-Sirius-E-Street-Radio-2.mp3?_=12](https://estreetshuffle.com/wp-content/uploads/2024/11/Bruce-Darkness-on-the-Edge-of-Your-Town-Promise-QA-Session-Sirius-E-Street-Radio-2.mp3?_=12)
+[https://estreetshuffle.com/wp-content/uploads/2024/11/Bruce-Darkness-on-the-Edge-of-Your-Town-Promise-QA-Session-Sirius-E-Street-Radio-2.mp32](https://estreetshuffle.com/wp-content/uploads/2024/11/Bruce-Darkness-on-the-Edge-of-Your-Town-Promise-QA-Session-Sirius-E-Street-Radio-2.mp32)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/11/Bruce-Darkness-on-the-Edge-of-Your-Town-Promise-QA-Session-Sirius-E-Street-Radio-2.mp3>
 

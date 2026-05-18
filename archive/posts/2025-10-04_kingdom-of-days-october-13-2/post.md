@@ -134,7 +134,7 @@
 
 **2021:** Without fanfare, Bruce concludes his long-running *From My Home to Yours* radio show with Episode 29, “Let’s Talk About Sex.”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/10/2021-10-13-Bruce-E-Street-Radio-DJ-set-29.mp3?_=17](https://estreetshuffle.com/wp-content/uploads/2022/10/2021-10-13-Bruce-E-Street-Radio-DJ-set-29.mp3?_=17)
+[https://estreetshuffle.com/wp-content/uploads/2022/10/2021-10-13-Bruce-E-Street-Radio-DJ-set-29.mp37](https://estreetshuffle.com/wp-content/uploads/2022/10/2021-10-13-Bruce-E-Street-Radio-DJ-set-29.mp37)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/10/2021-10-13-Bruce-E-Street-Radio-DJ-set-29.mp3>
 

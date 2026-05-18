@@ -74,6 +74,6 @@
 
 **2020:** Bruce officially becomes a radio DJ when he premieres his new Sirius XM series, *From My Home to Yours*.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-08-Bruce-E-Street-Radio-DJ-set-1-1.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-08-Bruce-E-Street-Radio-DJ-set-1-1.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-08-Bruce-E-Street-Radio-DJ-set-1-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-08-Bruce-E-Street-Radio-DJ-set-1-1.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-08-Bruce-E-Street-Radio-DJ-set-1-1.mp3>

@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Southside Johnny & Asbury Jukes debut album release party: Stone Pony Asbury Park 1976](https://www.youtube.com/watch?v=AyS5BOOhbEw)
 
-[https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3](https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/05/1976-05-30-01-Havin-A-Party.mp3>
 

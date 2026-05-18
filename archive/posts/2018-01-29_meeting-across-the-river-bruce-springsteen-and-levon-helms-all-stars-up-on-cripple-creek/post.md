@@ -2,7 +2,7 @@ On August 22, 1987, Bruce made a guest appearance with Levon Helm's All -Stars a
 
 Take a listen:
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/01-Up-On-Cripple-Creek-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/01/01-Up-On-Cripple-Creek-online-audio-converter.com_.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/01-Up-On-Cripple-Creek-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/01-Up-On-Cripple-Creek-online-audio-converter.com_.mp3)
 
 [Watch Video Highlight](https://videopress.com/embed/8mnXClx5)
 

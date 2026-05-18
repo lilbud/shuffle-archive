@@ -30,7 +30,7 @@
 
 Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit single "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" with the story behind Springsteen's new and improved physique.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/09/1984-09-01-AT40.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2022/09/1984-09-01-AT40.mp3?_=9)
+[https://estreetshuffle.com/wp-content/uploads/2022/09/1984-09-01-AT40.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/1984-09-01-AT40.mp3)
 
 **1985:** Bruce wraps up a six-show Giants Stadium stand on the Born in the U.S.A. Tour with the final "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" of the tour.<br>
 
@@ -42,11 +42,11 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 **1988:** Bruce and the E Street Band hold their last rehearsal before the kick-off of the Amnesty International – Human Rights Now Tourat Wembley Stadium in London. Of particular note: the band starts their warm-up by covering Sting's "King of Pain," which Bruce has never performed live.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/09/Amnesty-Rehearsal.mp3?_=10](https://estreetshuffle.com/wp-content/uploads/2025/09/Amnesty-Rehearsal.mp3?_=10)
+[https://estreetshuffle.com/wp-content/uploads/2025/09/Amnesty-Rehearsal.mp30](https://estreetshuffle.com/wp-content/uploads/2025/09/Amnesty-Rehearsal.mp30)
 
 **1999:** Bruce and the reunited E Street Band play their second of three shows at the MCI Center in Washington, DC.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/09/Track_01__Merged.mp3?_=11](https://estreetshuffle.com/wp-content/uploads/2025/09/Track_01__Merged.mp3?_=11)
+[https://estreetshuffle.com/wp-content/uploads/2025/09/Track_01__Merged.mp31](https://estreetshuffle.com/wp-content/uploads/2025/09/Track_01__Merged.mp31)
 
 **2001:** Bruce joins Clarence Clemons and the Temple of Soul on stage at The Stone Pony in Asbury Park. Their performance of "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)" will be released three years later on Clarence's *Live in Asbury Park Vol. II* album.<br>
 
@@ -76,7 +76,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 **2021:** Bruce releases Episode 27 ("Going to the Chapel") of *From My Home to Yours* on E Street Radio.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-01-Bruce-E-Street-Radio-DJ-set-27.mp3?_=12](https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-01-Bruce-E-Street-Radio-DJ-set-27.mp3?_=12)
+[https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-01-Bruce-E-Street-Radio-DJ-set-27.mp32](https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-01-Bruce-E-Street-Radio-DJ-set-27.mp32)
 
 That evening, *Springsteen on Broadway* continues its final week of shows at the St. James Theater in New York City.
 

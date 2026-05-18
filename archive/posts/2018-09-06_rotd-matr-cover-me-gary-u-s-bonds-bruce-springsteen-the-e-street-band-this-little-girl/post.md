@@ -75,7 +75,7 @@ So yeah, it's maybe a little embarrassing that I thought Bonds was singing about
 
 Whenever Bruce *did* play it on stage, it was because Bonds was right there next to him. Here's the earliest recording of the two of them performing "This Little Girl" live, from The River Tour.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/09/204-This-Little-Girl-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/09/204-This-Little-Girl-online-audio-converter.com_.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/09/204-This-Little-Girl-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/09/204-This-Little-Girl-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/09/204-This-Little-Girl-online-audio-converter.com_.mp3>
 

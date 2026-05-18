@@ -2,7 +2,7 @@ In the summer of 1973, mere months after Bruce first recorded it himself, David 
 
 When it came time to sequence the final album, though, "Growin' Up" didn't make the cut. That's too bad, because Bowie's version is fantastic–true to the original's rebellious spirit, but with a very Bowie-esque arrangement and performance.
 
-[https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3](https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3)
 
 This wouldn't be the only time Bowie would record and then shelve a Springsteen song. He did the same thing the following year with "[It's Hard to Be a Saint in the City.](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)"
 

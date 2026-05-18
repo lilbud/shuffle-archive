@@ -98,7 +98,7 @@ Also today: the release of *The People Speak*, a documentary featuring a contrib
 
 **2018:** *Springsteen on Broadway* continues its final week of shows at the Walter Kerr Theater in New York City. At the theater, French media star Antoine de Caunes interviews Bruce.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3)
 
 **2021:** Bruce performs a rare post-pandemic electric set at Steve Earle's annual John Henry's Friends Benefit, including team-ups with Willie Nile on "Glory Days," "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)" with Steve Earle, and a finale ensemble on "[Teach Your Children](https://estreetshuffle.com/index.php/2018/04/14/matr-crosby-stills-nash-young-and-springsteen-teach-your-children/)."<br>
 

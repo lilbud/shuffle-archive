@@ -66,7 +66,7 @@
 
 [Spotify Embed: Relationships with Our Fathers & Masculinity](https://open.spotify.com/embed/episode/5QIX6MfXYK0moHmbukclX1?si=363094f042db43af&utm_source=oembed)
 
-[https://estreetshuffle.com/wp-content/uploads/2025/03/0059-20f9-4ae3-8917-0096a9ce1fe6.mp3?_=23](https://estreetshuffle.com/wp-content/uploads/2025/03/0059-20f9-4ae3-8917-0096a9ce1fe6.mp3?_=23)
+[https://estreetshuffle.com/wp-content/uploads/2025/03/0059-20f9-4ae3-8917-0096a9ce1fe6.mp3](https://estreetshuffle.com/wp-content/uploads/2025/03/0059-20f9-4ae3-8917-0096a9ce1fe6.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/03/0059-20f9-4ae3-8917-0096a9ce1fe6.mp3>
 

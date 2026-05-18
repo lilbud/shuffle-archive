@@ -54,7 +54,7 @@
 
 **2021:** Bruce releases episode 25 of *From My Home to Yours* on E Street Radio. This episode is entitled "Frat Party."<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3)
 
 **2023:** Bruce and the E Street Band play the same setlist for the third consecutive night when World Tour 2023 arrives in Hockenheim, Germany. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,31095/Bruce-Springsteen-mp3-flac-download-7-21-2023-Hockenheimring-Hockenheim-GERMANY.html).<br>
 

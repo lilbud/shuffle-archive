@@ -38,7 +38,7 @@
 
 Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s current hit “I’m on Fire” with a story about his fascination with Elvis Presley.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3?_=14](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3?_=14)
+[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp34](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp34)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3>
 
@@ -76,7 +76,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s curr
 
 **2008:** At the Magic Tour stop at the American Airlines Center in Dallas, “Independence Day” makes its tour premiere, and Jon Bon Jovi makes a guest appearance for “Glory Days.”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3?_=15](https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3?_=15)
+[https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp35](https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp35)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3>
 

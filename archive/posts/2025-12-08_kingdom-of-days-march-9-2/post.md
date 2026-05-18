@@ -20,7 +20,7 @@ That night, the boys play two shows at Liberty Hall.
 
 **1985:** On this week’s edition of *American Top 40,* host Casey Kasem regales listeners with tales of Bruce’s Monopoly prowess while introducing his latest chart-climber, “I’m on Fire.”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3?_=25](https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3?_=25)
+[https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3>
 

@@ -99,7 +99,7 @@ And that last time, at Hyde Park–they *nailed* it (even if Bruce truncated the
 
 **Bonus:** For years before the release of *Tracks*, a bootleg version of "Take 'em as They Come" circulated among collectors. It's pretty close to the released version, but the last verse is different–more poetic, but also more ambiguous. Take a listen:<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3>
 

@@ -18,13 +18,13 @@ Santelli and team selected Woody Guthrie as the series' inaugural honoree, worki
 
 They succeeded–and it couldn't have happened without Bruce Springsteen. Santelli knew that Bruce had to be the evening's headline performer, and he explained why in an episode of the [*CLE Rocks* podcast](https://open.spotify.com/episode/7JpVNb6Ct4eivlRelTuaOF?si=Rwu0BKQRQgKS68ueug8q5A).
 
-[https://estreetshuffle.com/wp-content/uploads/2022/12/santelli.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/12/santelli.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2022/12/santelli.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/santelli.mp3)
 
 Bruce agreed to do to the show, and when Santelli chose the Cleveland Orchestra's Severance Hall as the venue for the closing concert (a selection that raised eyebrows at a time when rock musicians and symphony halls didn't mix), Bruce donated more than his time and talent.
 
 Nora Guthrie explains:
 
-[https://estreetshuffle.com/wp-content/uploads/2022/12/NoraGuthrie.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/12/NoraGuthrie.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2022/12/NoraGuthrie.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/NoraGuthrie.mp3)
 
 With Springsteen and his Ghost of Tom Joad Tour crew on board, a host of Guthrie-inspired artists flocked to join the line-up. Ani DiFranco, Billy Bragg, Joe Ely, Arlo Guthrie, The Indigo Girls, and more all performed that night, along with Woody's friend, contemporary, and iconic influence all on his own, Pete Seeger. (The event marked the firs time Springsteen and Seeger shared a stage together.)
 

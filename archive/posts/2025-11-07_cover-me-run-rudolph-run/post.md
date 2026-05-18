@@ -16,7 +16,7 @@ Bruce first covered the song in 1994, at Tradewinds in Sea Bright, New Jersey, w
 
 When Bruce kicked off a holiday show tradition of his own in 2000, “Run Rudolph Run” was prominently featured in both shows, with Bruce trading off vocals with Jimmy Vivino, backed by the Max Weinberg 7.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/12/Bruce-Springsteen-06-Run-Run-Rudolph-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/12/Bruce-Springsteen-06-Run-Run-Rudolph-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/12/Bruce-Springsteen-06-Run-Run-Rudolph-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/12/Bruce-Springsteen-06-Run-Run-Rudolph-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/12/Bruce-Springsteen-06-Run-Run-Rudolph-online-audio-converter.com_.mp3>
 

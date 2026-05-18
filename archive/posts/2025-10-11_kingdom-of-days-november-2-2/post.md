@@ -36,7 +36,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/Y0ntYYJs)
 
-[https://estreetshuffle.com/wp-content/uploads/2023/11/2002-11-02-Bonds__Merged.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2023/11/2002-11-02-Bonds__Merged.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2023/11/2002-11-02-Bonds__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/11/2002-11-02-Bonds__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/11/2002-11-02-Bonds__Merged.mp3>
 

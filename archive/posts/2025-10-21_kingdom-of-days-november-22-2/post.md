@@ -16,11 +16,11 @@
 
 **1992:** On hiatus without a leader, the E Street Band backs Marshall Crenshaw and Joey Ramone for a long, by-request set broadcast live on WKRK in New York City.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2024/11/03-Dont-Let-Me-Down.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2024/11/03-Dont-Let-Me-Down.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2024/11/03-Dont-Let-Me-Down.mp3](https://estreetshuffle.com/wp-content/uploads/2024/11/03-Dont-Let-Me-Down.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/11/03-Dont-Let-Me-Down.mp3>
 
-[https://estreetshuffle.com/wp-content/uploads/2024/11/06-Go-Your-Own-Way.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2024/11/06-Go-Your-Own-Way.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2024/11/06-Go-Your-Own-Way.mp3](https://estreetshuffle.com/wp-content/uploads/2024/11/06-Go-Your-Own-Way.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/11/06-Go-Your-Own-Way.mp3>
 

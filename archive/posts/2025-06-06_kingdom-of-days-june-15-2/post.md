@@ -14,7 +14,7 @@
 
 **1981:** Bruce joins Gary U.S. Bonds on stage at Old Waldorf in San Francisco, performing “[This Little Girl](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)” for the first time ever along with his one and only performance of “[School Is Out](https://estreetshuffle.com/index.php/2018/09/29/meeting-across-the-river-gary-u-s-bonds-and-bruce-springsteen-school-is-out/).”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3>
 

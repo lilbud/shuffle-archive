@@ -16,6 +16,6 @@ On the night of [October 21, 1994](https://estreetshuffle.com/index.php/2018/10/
 
 The all-star encore set that followed has been pretty widely circulated among collectors, but the main set that preceded it is harder to come by, and it featured a great cover of "Rendezvous" (even if he didn't remember all the words). Take a listen:
 
-[https://estreetshuffle.com/wp-content/uploads/2019/04/Rendezvous-playben-1994-10-21-John-Eddie-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/04/Rendezvous-playben-1994-10-21-John-Eddie-online-audio-converter.com_.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2019/04/Rendezvous-playben-1994-10-21-John-Eddie-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/Rendezvous-playben-1994-10-21-John-Eddie-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/04/Rendezvous-playben-1994-10-21-John-Eddie-online-audio-converter.com_.mp3>

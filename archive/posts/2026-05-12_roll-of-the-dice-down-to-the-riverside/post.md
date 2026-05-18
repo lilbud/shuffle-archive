@@ -56,7 +56,7 @@ As for the lyrics, they speak for themselves. Other than the title phrase, there
 
 It's time. If you have headphones, put them on so you can best experience the clarity and warmth of this half-century-old recording. Let's take a listen to The Bruce Springsteen Band performing "Down to the Riverside."
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3>
 

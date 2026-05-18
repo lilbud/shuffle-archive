@@ -2,7 +2,7 @@ When Southside Johnny took ill in May '77 and couldn't perform his scheduled gig
 
 For most of the shows–including "Got to Get You Off My Mind," which the Revue played as the second song for each show, Steve performed lead vocals, with Bruce on guitar and backing vocals. The audio from these nights isn't great, but you can clearly hear Steve and Bruce's fun interplay below.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T02-Got-to-Get-You-Off-of-My-Mind.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T02-Got-to-Get-You-Off-of-My-Mind.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T02-Got-to-Get-You-Off-of-My-Mind.mp3](https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T02-Got-to-Get-You-Off-of-My-Mind.mp3)
 
 "Got to Get You Off My Mind" was a 1965 hit written and recorded by Solomon Burke, who Bruce has often cited as an influence.
 

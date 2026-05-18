@@ -62,7 +62,7 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 **2005:** At a second public rehearsal/benefit show (held in the afternoon) at Asbury Park's Paramount Theater for his upcoming solo tour, Bruce premieres "[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)" and surprises fans with the return of the Christic arrangement of "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)." The bullet mic makes its debut on "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)" and will remain a fixture on both this tour as well as the Magic Tour (albeit with very different arrangements).<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3?_=13](https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3?_=13)
+[https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp33](https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp33)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3>
 
@@ -88,7 +88,7 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 [Watch on Youtube: Bruce Springsteen - I Wanna Be sedated (Boston 2009)](https://www.youtube.com/watch?v=kCvJo1-Z3B8)
 
-[https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=14](https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=14)
+[https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp34](https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp34)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3>
 

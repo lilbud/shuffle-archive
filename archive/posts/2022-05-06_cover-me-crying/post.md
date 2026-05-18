@@ -38,7 +38,7 @@ The date was May 3, 1988, and the Tunnel of Love Express Tour had arrived in Mou
 
 "Crying" made regular sound check appearances for the next few nights, and when the heartache-themed tour arrived at Madison Square Garden later that month for a multi-night stand, "Crying" featured in the encore set for three consecutive nights.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/309-Crying-1988-05-16-Madison-Square-Garden-New-York-NY.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/05/309-Crying-1988-05-16-Madison-Square-Garden-New-York-NY.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/309-Crying-1988-05-16-Madison-Square-Garden-New-York-NY.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/309-Crying-1988-05-16-Madison-Square-Garden-New-York-NY.mp3)
 
 But all that was just one long warm-up for the next and last time that Bruce performed "Crying"–at the Rock and Roll Hall of Fame induction ceremony in January 1989.
 

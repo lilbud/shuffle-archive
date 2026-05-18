@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hrYx5FN2RiY)
 
-[https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3>
 

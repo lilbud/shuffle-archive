@@ -102,7 +102,7 @@ Meanwhile, "Glory Days," Bruce's latest single, climbs the charts and is profile
 
 **2008:** The Magic Tour heads north for a Scandinavian leg, starting with a show at Parken Stadium in Copenhagen.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3](https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3>
 

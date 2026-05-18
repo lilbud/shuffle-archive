@@ -36,7 +36,7 @@ Maybe it has something to do with the few times he *did* perform it, some 53 yea
 
 It was during Bruce's Steel Mill era, and the band was, shall we say, loose. (I'm guessing more than a few drinks had been consumed.) And while there are plenty of classic rock songs that would have been well-suited for a guitar-heavy Steel Mill jam treatment, "Turn On Your Love Light" isn't one of them.
 
-[https://estreetshuffle.com/wp-content/uploads/2024/06/Turn-On-Your-Love-Light.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2024/06/Turn-On-Your-Love-Light.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2024/06/Turn-On-Your-Love-Light.mp3](https://estreetshuffle.com/wp-content/uploads/2024/06/Turn-On-Your-Love-Light.mp3)
 
 Yikes. I could understand shying away from a song after a performance like that.
 

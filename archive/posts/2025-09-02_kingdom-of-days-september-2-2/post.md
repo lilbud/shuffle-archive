@@ -26,7 +26,7 @@
 
 **1988:** The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebrating the Universal Declaration of Human Rights and raising awareness for Amnesty International. The tour is an all-star endeavor headlined by Bruce, Sting, Peter Gabriel, Tracy Chapman and Youssu N'Dour with local artists from each country along the itinerary. The show kicks off with an all-headliner performance of "[Get Up, Stand Up,](https://estreetshuffle.com/index.php/2020/11/13/matr-bruce-springsteen-tracy-chapman-sting-peter-gabriel-and-youssou-ndour-get-up-stand-up/)" and Bruce closes the show with an abbreviated fifteen-song "greatest hits" set capped off by an all-artist "[Chimes of Freedom](https://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)" and "Get Up, Stand Up" reprise.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3)
 
 [Watch on Youtube: Bruce Springsteen - Amnesty Tour, Wembley 1988-09-03](https://www.youtube.com/watch?v=Y58hMb-kR4c)
 
@@ -82,7 +82,7 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berry'
 
 **2020:** Bruce releases a Labor Day-themed episode (#11 for those keeping count) of *From My Home to Yours* on E Street Radio.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-02-Bruce-E-Street-Radio-DJ-set-11-1.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-02-Bruce-E-Street-Radio-DJ-set-11-1.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-02-Bruce-E-Street-Radio-DJ-set-11-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-02-Bruce-E-Street-Radio-DJ-set-11-1.mp3)
 
 **2021:** *Springsteen on Broadway* nears the end of its final week at the St. James Theater in New York City. In attendance tonight: Eddie Vedder and Jarod Clemons.<br>
 

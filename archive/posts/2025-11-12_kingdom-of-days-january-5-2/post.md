@@ -34,7 +34,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 [Watch Video Highlight](https://videopress.com/embed/uLsPLzGo)
 
-[https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3](https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3>
 

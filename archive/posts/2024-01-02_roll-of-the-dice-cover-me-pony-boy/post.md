@@ -65,7 +65,7 @@ When Evan was just two years old, Bruce sang "Pony Boy" to him from his concert 
 
 But when he was about to turn fifteen… well, I imagine he had a somewhat different response on this night in 2005:
 
-[https://estreetshuffle.com/wp-content/uploads/2019/03/05-Long-Time-Comin.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2019/03/05-Long-Time-Comin.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2019/03/05-Long-Time-Comin.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/05-Long-Time-Comin.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/03/05-Long-Time-Comin.mp3>
 

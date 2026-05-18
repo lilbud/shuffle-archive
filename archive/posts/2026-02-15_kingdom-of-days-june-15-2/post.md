@@ -12,7 +12,7 @@
 
 **1981:** Bruce joins Gary U.S. Bonds on stage at Old Waldorf in San Francisco, performing "This Little Girl" for the first time ever along with his one and only performance of "School Is Out."<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3>
 

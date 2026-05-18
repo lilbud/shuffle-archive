@@ -10,7 +10,7 @@ Its dire lyrics spoke for the times (and sadly still do), but its happy melody a
 
 Springsteen has been a Fogerty fan for as long as he's been playing music, first covering him in concert the very same week "Bad Moon Rising" was released. No audio exists from that show, but every one of Bruce's seven "Bad Moon Rising" performances circulates among collectors. His debut performance came at an under-the-radar Halloween show in 1987 with the E Street Band (operating undercover as The Terrorists of Love) at McLoone's Rum Runner in Sea Bright, New Jersey.
 
-[https://estreetshuffle.com/wp-content/uploads/2023/01/1987-10-31-Bad-Moon-Rising.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2023/01/1987-10-31-Bad-Moon-Rising.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2023/01/1987-10-31-Bad-Moon-Rising.mp3](https://estreetshuffle.com/wp-content/uploads/2023/01/1987-10-31-Bad-Moon-Rising.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/01/1987-10-31-Bad-Moon-Rising.mp3>
 
@@ -26,7 +26,7 @@ Fogerty made nightly appearances with Springsteen on the short-lived (and ill-fa
 
 The highest-quality recording of a Springsteen "Bad Moon Rising" performance is the most obscure of the bunch: a private benefit for his kids' school in April 2005 at The Stone Pony.
 
-[https://estreetshuffle.com/wp-content/uploads/2023/01/2005-04-10-T06-Bad-Moon-Rising.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2023/01/2005-04-10-T06-Bad-Moon-Rising.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2023/01/2005-04-10-T06-Bad-Moon-Rising.mp3](https://estreetshuffle.com/wp-content/uploads/2023/01/2005-04-10-T06-Bad-Moon-Rising.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/01/2005-04-10-T06-Bad-Moon-Rising.mp3>
 

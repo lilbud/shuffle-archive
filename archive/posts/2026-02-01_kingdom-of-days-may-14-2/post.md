@@ -28,7 +28,7 @@
 
 **1988:** On *American Top 40*, host Casey Kasem introduces Natalie Cole’s cover of “Pink Cadillac” with a medley of Springsteen covers that hit the Top 40.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1988-05-14.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1988-05-14.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1988-05-14.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1988-05-14.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1988-05-14.mp3>
 

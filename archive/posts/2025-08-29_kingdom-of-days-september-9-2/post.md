@@ -2,11 +2,11 @@
 
 **1972:** Bruce makes a guest appearance with Odin at the Highlands Art and Music Fair in Highlands, New Jersey, playing a loose four-song mini-set (including a composed-on-the-spot “[Water Station](https://estreetshuffle.com/index.php/2023/12/24/roll-of-the-dice-water-station/)“) through two power outages. The band closes with a cover of Big Joe Williams’ “Baby, Please Don’t Go”… sort of. Whether an intentional mashup or because he simply doesn’t know the words, Bruce instead sings the lyrics for “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/),” making this the first known recording of these words in public. Take a listen to this pristine, historic recording.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3>
 
-[https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3](https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3>
 

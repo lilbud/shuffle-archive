@@ -12,7 +12,7 @@ The Obama campaign played Wonder’s 1970 single at virtually every rally that e
 
 Bruce and Billy’s main set has been circulating broadly for a while now, but the encores are a bit harder to come by. So take a listen and enjoy the exuberant finale of the *Change Rocks!* benefit from October 16, 2008, featuring Legend and Arie on lead vocals, with support from Bruce on guitar and Billy on piano.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/11/Signed-Sealed-2008-10-16.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/11/Signed-Sealed-2008-10-16.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2021/11/Signed-Sealed-2008-10-16.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/Signed-Sealed-2008-10-16.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/11/Signed-Sealed-2008-10-16.mp3>
 

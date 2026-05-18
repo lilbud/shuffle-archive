@@ -10,7 +10,7 @@ The result: a song that rolls, rollicks and always feels one step away from a tr
 
 Which, by the way, is exactly what happened one of the first times Bruce and the Sessions Band attempted it, in Concord, California:
 
-[https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-024-Rag-Mama-Rag-2006-06-06-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-024-Rag-Mama-Rag-2006-06-06-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-024-Rag-Mama-Rag-2006-06-06-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-024-Rag-Mama-Rag-2006-06-06-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-024-Rag-Mama-Rag-2006-06-06-online-audio-converter.com_.mp3>
 

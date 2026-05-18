@@ -10,7 +10,7 @@ A couple of distant, muddy performances of Bruce's original song "Bless My Soul"
 
 Do yourself a favor and take nine minutes out of your day to enjoy the opening song from this fifty-year-old Bruce Springsteen Band show.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3>
 

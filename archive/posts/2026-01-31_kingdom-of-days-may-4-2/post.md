@@ -22,13 +22,13 @@
 
 **1985:** As “I’m on Fire” starts its decline on the charts, *American Top 40* host Casey Kasem shares the story of the night Bruce broke into Graceland.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3>
 
 **2000:** On Night Two at the Air Canada Center in Toronto, Bruce plays “Incident on 57th Street” for the first time ever in Canada.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3](https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3>
 

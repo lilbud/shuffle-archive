@@ -70,7 +70,7 @@
 
 **1998:** Bruce flies to Potsdam to be interviewed and perform on German radio, where for the first time Bruce drops a tantalizing hint that catches the attention of fans worldwide.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/12/1998-12-07-Reunion.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/12/1998-12-07-Reunion.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2022/12/1998-12-07-Reunion.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/1998-12-07-Reunion.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/12/1998-12-07-Reunion.mp3>
 

@@ -40,6 +40,6 @@
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/12/2017-12-20-Thunder__Merged.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/12/2017-12-20-Thunder__Merged.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2022/12/2017-12-20-Thunder__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/2017-12-20-Thunder__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/12/2017-12-20-Thunder__Merged.mp3>

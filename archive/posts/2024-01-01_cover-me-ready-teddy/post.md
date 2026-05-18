@@ -1,6 +1,6 @@
 From the Darkness on the Edge of Town tour’s November 16, 1978 show in Toronto: “Ready Teddy,” first recorded as a B-side by Little Richard in June 1956 and performed by Elvis Presley on *The Ed Sullivan Show* later that year.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3>
 

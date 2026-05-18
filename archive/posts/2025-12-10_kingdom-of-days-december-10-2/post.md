@@ -34,11 +34,11 @@
 
 [Watch on Youtube: Bruce Springsteen - No Surrender (Live Acoustic)](https://www.youtube.com/watch?v=22zygBMYYWo)
 
-[https://estreetshuffle.com/wp-content/uploads/2023/12/03-Borin-In-The-USA.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2023/12/03-Borin-In-The-USA.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2023/12/03-Borin-In-The-USA.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/03-Borin-In-The-USA.mp3)
 
 **2006:** Bruce and Patti attend rockabilly legend Wanda Jackson's concert at the Asbury Lanes in Asbury Park.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2023/12/2020-07-29-Bruce-E-Street-Radio-DJ-set-09.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2023/12/2020-07-29-Bruce-E-Street-Radio-DJ-set-09.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2023/12/2020-07-29-Bruce-E-Street-Radio-DJ-set-09.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/2020-07-29-Bruce-E-Street-Radio-DJ-set-09.mp3)
 
 ![](../../assets/2023/12/Asbury_Park_Press_Tue__Dec_12__2006_.jpg)
 

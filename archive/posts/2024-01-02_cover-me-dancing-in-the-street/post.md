@@ -10,7 +10,7 @@ But the original remains the standard, becoming one of Motown’s signature song
 
 Bruce first took a crack at “Dancing in the Street” at the tender age of 20, opening Steel Mill shows with it throughout 1970. Here’s the first instance of it to be captured on audio, from the band’s legendary show at a Richmond, Virginia parking deck.
 
-[https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3>
 
@@ -24,7 +24,7 @@ In the clips below (much clearer than the one above), you’ll hear Bruce and Ro
 
 [Watch on Youtube: Bruce Springsteen and Steel Mill: Dancing in the Street with Honky Tonk Women 1971 South Amboy, NJ](https://www.youtube.com/watch?v=ChmsOg816d0)
 
-[https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3>
 

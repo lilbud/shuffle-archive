@@ -14,7 +14,7 @@ It took a little longer than that, but Mellencamp finally released *Strictly a O
 
 Bruce's third album appearance went almost completely under the radar.
 
-[https://audio.pulsewebcontent.com/MP3/2022/01_jan/John_Mellencamp_On_Sessions_With_Bruce_Springsteen.mp3?_=10](https://audio.pulsewebcontent.com/MP3/2022/01_jan/John_Mellencamp_On_Sessions_With_Bruce_Springsteen.mp3?_=10)
+[https://audio.pulsewebcontent.com/MP3/2022/01_jan/John_Mellencamp_On_Sessions_With_Bruce_Springsteen.mp30](https://audio.pulsewebcontent.com/MP3/2022/01_jan/John_Mellencamp_On_Sessions_With_Bruce_Springsteen.mp30)
 
 <https://audio.pulsewebcontent.com/MP3/2022/01_jan/John_Mellencamp_On_Sessions_With_Bruce_Springsteen.mp3>
 
@@ -22,7 +22,7 @@ Bruce's third album appearance went almost completely under the radar.
 
 It wasn't the first time Mellencamp praised Bruce's melodic talents. While most fans and critics focus on his lyrics, Mellencamp had this to say to Howard Stern in 2018:
 
-[https://estreetshuffle.com/wp-content/uploads/2022/07/John_Mellencamp_On_Bruce_Springsteen1.mp3?_=11](https://estreetshuffle.com/wp-content/uploads/2022/07/John_Mellencamp_On_Bruce_Springsteen1.mp3?_=11)
+[https://estreetshuffle.com/wp-content/uploads/2022/07/John_Mellencamp_On_Bruce_Springsteen1.mp31](https://estreetshuffle.com/wp-content/uploads/2022/07/John_Mellencamp_On_Bruce_Springsteen1.mp31)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/07/John_Mellencamp_On_Bruce_Springsteen1.mp3>
 

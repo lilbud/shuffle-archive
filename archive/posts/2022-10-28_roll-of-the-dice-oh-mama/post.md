@@ -4,7 +4,7 @@ Take "Oh Mama," for instance. Bruce wrote and performed it during his Steel Mill
 
 Even by Steel Mill standards, though, "Oh Mama" was a bit of a mess.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/10/1971-01-23-T02-Oh-Mama-Why_.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2022/10/1971-01-23-T02-Oh-Mama-Why_.mp3?_=9)
+[https://estreetshuffle.com/wp-content/uploads/2022/10/1971-01-23-T02-Oh-Mama-Why_.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/1971-01-23-T02-Oh-Mama-Why_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/10/1971-01-23-T02-Oh-Mama-Why_.mp3>
 

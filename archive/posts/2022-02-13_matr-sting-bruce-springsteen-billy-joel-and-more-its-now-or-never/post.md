@@ -12,7 +12,7 @@ So when Sting staged an Elvis-themed benefit concert for the Rainforest Foundati
 
 There were plenty of artists on hand to take a swing at the verses; in the recording below, you'll hear Sting kick things off before quickly handing the baton to Bruce and then to Billy Joel. But for the opening "O Sole Mio," they turned to the late, great Jessye Norman, who turned in a breathtaking performance before joining the rest of the roster on the lighter, newer song.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/02/NowOrNever.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/02/NowOrNever.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/02/NowOrNever.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/NowOrNever.mp3)
 
 To this day, those two lines and shared choruses represent the only time Bruce has ever covered "It's Now or Never" in concert, but if all we're destined to get is an ensemble number, at least we got quite the ensemble.
 

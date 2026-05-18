@@ -2,7 +2,7 @@ In the summer of 1973, mere months after Bruce first recorded it himself, David 
 
 When it came time to sequence the final album, though, “Growin’ Up” didn’t make the cut. That’s too bad, because Bowie’s version is fantastic–true to the original’s rebellious spirit, but with a very Bowie-esque arrangement and performance.
 
-[https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3](https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3>
 

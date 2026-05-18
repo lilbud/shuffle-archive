@@ -100,7 +100,7 @@ And oh, the pathos: his wife (we've just learned that they were married–see ho
 
 (Update: after this article was originally posted, Mark Loughney clued me in to a very cool historical footnote. On August 7, 1982, Bruce performed at Big Man's West with Beaver Brown. In the middle of "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)," Bruce segued into a work-in-progress song he called "On the Prowl." But if you listen carefully to the lyrics of that new song, they sound awfully familiar.
 
-[https://estreetshuffle.com/wp-content/uploads/2019/01/16-Lucille_On-The-Prowl-online-audio-converter.com_.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2019/01/16-Lucille_On-The-Prowl-online-audio-converter.com_.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2019/01/16-Lucille_On-The-Prowl-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/01/16-Lucille_On-The-Prowl-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/01/16-Lucille_On-The-Prowl-online-audio-converter.com_.mp3>
 

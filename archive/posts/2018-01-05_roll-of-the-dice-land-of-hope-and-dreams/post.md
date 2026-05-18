@@ -32,7 +32,7 @@ He wrote the song prior to the 1999-2000 Reunion tour and debuted it at a rehear
 
 You can hear that first, original rehearsal performance below. "We're still learning it!" Bruce laughs over the extended intro, and the lyrics are still not quite final. ("You don't know where you're going, and the sky is turning black" is a fascinating artifact of how the song became more hopeful in its final form, and the reference to "midnight ramblers" makes the callback to "This Train" even more obvious.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/First-LOHAD-99.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2018/01/First-LOHAD-99.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/First-LOHAD-99.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/First-LOHAD-99.mp3)
 
 Bruce wrote the song at a watershed moment. He'd finished almost two years of acoustic touring to support his [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) album, and other than a *Greatest Hits* album and a few movie soundtrack contributions, he hadn't released or written any rock songs since the early nineties. He had started to wonder (he has written and said) whether rock songs were a part of his past rather than his present or future.
 
@@ -40,7 +40,7 @@ And then came LOHAD, meant as a rebirth song, a re-dedication song, a re-declara
 
 Sixteen months later, Bruce and the band performed the song to close out the Reunion tour; this performance appears on the official **Live in New York City** CD/DVD release:
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/bs000701d3_09_The_Land_of_Hope_and_Dreams.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2018/01/bs000701d3_09_The_Land_of_Hope_and_Dreams.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/bs000701d3_09_The_Land_of_Hope_and_Dreams.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/bs000701d3_09_The_Land_of_Hope_and_Dreams.mp3)
 
 LOHAD has been a staple ever since. Bruce performed it throughout the Rising Tour, wrote an acoustic arrangement for the Devils and Dust tour, and finally got around to recording it in the studio more than 12 years after it was written. It appears on the [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)album, and that track appears at the top of this article.
 
@@ -50,7 +50,7 @@ The studio version of LOHAD also contains Clarence Clemons' last (albeit posthum
 
 What happens next is one of those unpredictable magic Springsteen moments: without missing a single beat, Bruce throws his guitar to Kevin Buell, his guitar tech, and sings the bridge a capella. Kevin returns an intact, tuned guitar to Bruce at the very moment the bridge ends, and Bruce resumes playing as if that was the plan all along. The crowd, of course, goes nuts.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3)
 
 **Updated 11/17/2019:** I was fortunate to see Bruce play an acoustic version of "Land of Hope and Dreams" a couple of weeks ago at this year's Stand Up for Heroes Benefit. It was the most achingly beautiful version I've ever heard him play, and it needs to be shared. Watch it below, following its segue from "[Dancing in the Dark](https://estreetshuffle.com/index.php/2022/05/08/matr-joe-grushecky-and-bruce-springsteen-labor-of-love/)."<br>
 

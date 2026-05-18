@@ -12,7 +12,7 @@ Chuck Berry's original 1959 version was a bit more uptempo and energetic, but in
 
 "Little Queenie" was a hit for Berry, peaking at #80 on the Hot 100, and it became a favorite for Bruce, too–although it's a bona fide rarity (it only comes out once or twice a decade), he's covered it during every era of his career from his Bruce Springsteen Band days forward.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/12/01-LITTLE-QUEENIE-START-CUT.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2018/12/01-LITTLE-QUEENIE-START-CUT.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2018/12/01-LITTLE-QUEENIE-START-CUT.mp3](https://estreetshuffle.com/wp-content/uploads/2018/12/01-LITTLE-QUEENIE-START-CUT.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/12/01-LITTLE-QUEENIE-START-CUT.mp3>
 

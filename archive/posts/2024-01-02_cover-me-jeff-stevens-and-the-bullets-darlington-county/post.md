@@ -12,7 +12,7 @@ Oh, and Bruce Springsteen wasn't the recording artist.
 
 Jeff Stevens and the Bullets recorded "[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)" as their debut single and took it to #69 on the U.S. Country chart.
 
-[https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3>
 

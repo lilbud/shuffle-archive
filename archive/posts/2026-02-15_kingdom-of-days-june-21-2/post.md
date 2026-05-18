@@ -60,7 +60,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 **1992:** At Night Two in Milan, "Badlands" makes its tour premiere and for the very first time, the crowd sings the instrumental bridge before the final verse, establishing a worldwide "Badlands" tradition forevermore. (*Of course*, that starts in Milan!) "Downbound Train," "Tougher than the Rest" and "Born to Run" make their tour debuts as well, and a soundcheck of "Club Soul City" is surreptitiously recorded.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/06/CSC_Milano_1992_KLICKAUD.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2025/06/CSC_Milano_1992_KLICKAUD.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2025/06/CSC_Milano_1992_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2025/06/CSC_Milano_1992_KLICKAUD.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/06/CSC_Milano_1992_KLICKAUD.mp3>
 

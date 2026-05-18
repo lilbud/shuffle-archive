@@ -6,7 +6,7 @@ And then there were the songs reputedly (and self-reportedly) written along the 
 
 Here's Bruce describing the song's genesis just before he debuted it in Detroit in January 1996:
 
-[https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3>
 

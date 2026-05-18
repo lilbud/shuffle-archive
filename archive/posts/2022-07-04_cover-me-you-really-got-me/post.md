@@ -14,7 +14,7 @@ Fourteen years later, Van Halen introduced themselves by covering “You Really 
 
 Even so, Bruce wouldn’t cover “You Really Got Me” properly until 2009 (although he did sound check it in 1975 and join an all-star jam performance of it at the 1990 Rock and Roll Hall of Fame ceremony)–and even then it was only on a dare.
 
-[https://estreetshuffle.com/wp-content/uploads/2020/12/02-YOU-REALLY-GOT-ME.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2020/12/02-YOU-REALLY-GOT-ME.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2020/12/02-YOU-REALLY-GOT-ME.mp3](https://estreetshuffle.com/wp-content/uploads/2020/12/02-YOU-REALLY-GOT-ME.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/12/02-YOU-REALLY-GOT-ME.mp3>
 

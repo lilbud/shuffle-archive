@@ -8,7 +8,7 @@ Garland's version on that December night was even more tender and contemplative 
 
 So ignore the boorish fans and give a listen to the beautiful performance below–Garland is on lead vocals, but Bruce provides backing vocals and guitar.
 
-[https://estreetshuffle.com/wp-content/uploads/2019/04/09-NYC-Skyline-Garland-Jeffries.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2019/04/09-NYC-Skyline-Garland-Jeffries.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2019/04/09-NYC-Skyline-Garland-Jeffries.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/09-NYC-Skyline-Garland-Jeffries.mp3)
 
 **New York Skyline**<br>
 **First performed:** December 3, 2001 (Asbury Park, NJ)**Last performed:** December 8, 2001 (Asbury Park, NJ)<br>

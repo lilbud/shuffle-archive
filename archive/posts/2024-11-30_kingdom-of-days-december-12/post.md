@@ -48,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/Cu0TqnCR)
 
-[https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3>
 

@@ -6,7 +6,7 @@
 
 **1975:** Bruce records an early take of “[Linda Let Me Be the One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)” at the Record Plant in New York City.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3](https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3>
 

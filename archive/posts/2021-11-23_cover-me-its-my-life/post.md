@@ -8,7 +8,7 @@ And then out of nowhere, on the night of December 12, 1975, Bruce pulled "It's M
 
 I'm not entirely certain how much I trust Max's recollection, though. Listening to the muddy recording of that debut performance, while we can certainly hear the band's tentativeness and it was clearly an audible, it's hard for me to imagine that the arrangement itself was spontaneous.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/11/1975-12-12-108-Its-My-Life.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/11/1975-12-12-108-Its-My-Life.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2021/11/1975-12-12-108-Its-My-Life.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/1975-12-12-108-Its-My-Life.mp3)
 
 Because the arrangement they "fell into" that night bears scant resemblance to the original song.
 

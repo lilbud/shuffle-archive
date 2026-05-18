@@ -138,7 +138,7 @@ Bonus #1: "Frankie" came out a few times on Bruce's 2005 solo acoustic tour. I w
 
 Bonus #2: Here's another "Frankie" studio outtake, this one from the 1982 sessions. Very, very close to the released version, this one is notable for Clarence's absence in the coda. A curiosity, but by no means essential listening:
 
-[https://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3>
 

@@ -45,7 +45,7 @@ It would be more than 27 years before Bruce performed it again in concert, but w
 
 **Bonus:** Like much of Bruce's River-era material "Held Up Without a Gun" started out as an acoustic home demo. In this recording (slower than but just as brief as the final electric version), we can hear Bruce working on his lyrics. Although there are some notable detail differences, the verses are remarkably close to their final form.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/114-Held-Up-Without-A-Gun.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/10/114-Held-Up-Without-A-Gun.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/114-Held-Up-Without-A-Gun.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/114-Held-Up-Without-A-Gun.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/10/114-Held-Up-Without-A-Gun.mp3>
 

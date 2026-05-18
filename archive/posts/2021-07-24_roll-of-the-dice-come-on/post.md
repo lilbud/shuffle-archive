@@ -8,7 +8,7 @@ Some of Bruce's early work hinted at the brilliance to come. Others… well, oth
 
 Case in point: "Come On."
 
-[https://estreetshuffle.com/wp-content/uploads/2020/01/02-Come-On.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2020/01/02-Come-On.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2020/01/02-Come-On.mp3](https://estreetshuffle.com/wp-content/uploads/2020/01/02-Come-On.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/01/02-Come-On.mp3>
 

@@ -4,6 +4,6 @@ On September 25, 2009, Elvis Costello invited Bruce to join him for an episode o
 
 Elvis' cover (Bruce had yet to take the stage) was just as intense and impassioned as Bruce's own best performances of the song. Take a listen below and hear for yourself.
 
-[https://estreetshuffle.com/wp-content/uploads/2019/02/EC-20090925-Point-Blank-online-audio-converter.com_.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2019/02/EC-20090925-Point-Blank-online-audio-converter.com_.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/EC-20090925-Point-Blank-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/EC-20090925-Point-Blank-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/02/EC-20090925-Point-Blank-online-audio-converter.com_.mp3>

@@ -26,7 +26,7 @@
 
 **1984:** On *American Top 40*, host Casey Kasem shines a spotlight on Bruce’s marathon shows while introducing “[Cover Me.](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3>
 

@@ -20,7 +20,7 @@ Bruce Springsteen shared that distrust, and within a few days of the accident, h
 
 Bruce continued working on his song that week, and on April 3rd–just four days after the governor's alarming press conference and evacuation order/non-order–he assembled the E Street Band in the studio to take a crack at a still in progress but much more developed version.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/04/208-Roulette-1.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2022/04/208-Roulette-1.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2022/04/208-Roulette-1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/208-Roulette-1.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/04/208-Roulette-1.mp3>
 

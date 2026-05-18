@@ -86,7 +86,7 @@ It tells us that while our narrator may be confident in this moment, he'll need 
 
 Strangely enough, sandwiched into an encore that included "Born to Run," "[Fortunate Son](https://estreetshuffle.com/index.php/2019/11/09/matr-john-fogerty-and-bruce-springsteen-fortunate-son/)," "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)," and "Twist and Shout" was the unlikely world debut of "Two Faces."
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/1987-10-31-Two-Faces.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/05/1987-10-31-Two-Faces.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/1987-10-31-Two-Faces.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/1987-10-31-Two-Faces.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/1987-10-31-Two-Faces.mp3>
 

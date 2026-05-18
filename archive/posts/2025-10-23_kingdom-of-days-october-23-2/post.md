@@ -74,7 +74,7 @@
 
 The day brings a spray of publicity appearances from Bruce in support of the album. First, E Street Radio airs Episode 5 of *Letter to You Radio*, featuring a conversation between Bruce and Steve Van Zandt.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-23-LTY-Radio-5-Bruce-Steven-Van-Zandt.mp3?_=11](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-23-LTY-Radio-5-Bruce-Steven-Van-Zandt.mp3?_=11)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-23-LTY-Radio-5-Bruce-Steven-Van-Zandt.mp31](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-23-LTY-Radio-5-Bruce-Steven-Van-Zandt.mp31)
 
 Bruce also calls into the studio that same day, speaking with Jim Rotolo.
 

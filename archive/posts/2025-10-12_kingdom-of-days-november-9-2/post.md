@@ -22,7 +22,7 @@
 
 **1985:** On *American Top 40,* host Casey Kasem introduces “[I’m Goin’ Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)” with the story of how Bruce joined The Castiles.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-09.mp3?_=15](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-09.mp3?_=15)
+[https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-09.mp35](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-09.mp35)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-09.mp3>
 

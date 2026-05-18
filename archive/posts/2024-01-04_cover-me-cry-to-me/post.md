@@ -22,13 +22,13 @@ So when Bruce decided to work up an arrangement of "Cry to Me" for his 1975 soun
 
 In this first documented outing from July 1975, we hear a somewhat distant E Street Band slow burn their way through "Cry to Me" in a bluesy arrangement similar to The Stones, but slower and with more impassioned vocals like Harris delivers.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/10/03-CRY-TO-ME.mp3?_=10](https://estreetshuffle.com/wp-content/uploads/2022/10/03-CRY-TO-ME.mp3?_=10)
+[https://estreetshuffle.com/wp-content/uploads/2022/10/03-CRY-TO-ME.mp30](https://estreetshuffle.com/wp-content/uploads/2022/10/03-CRY-TO-ME.mp30)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/10/03-CRY-TO-ME.mp3>
 
 Five months later, before the famous C.W. Post College show that gave us our annual radio visit from "[Santa Claus Is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)," Bruce and the boys took another run through "Cry to Me," in a much clearer recording and more assured and powerful performance.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/10/1975-12-12-Soundcheck-07-CRY-TO-ME-1.mp3?_=11](https://estreetshuffle.com/wp-content/uploads/2022/10/1975-12-12-Soundcheck-07-CRY-TO-ME-1.mp3?_=11)
+[https://estreetshuffle.com/wp-content/uploads/2022/10/1975-12-12-Soundcheck-07-CRY-TO-ME-1.mp31](https://estreetshuffle.com/wp-content/uploads/2022/10/1975-12-12-Soundcheck-07-CRY-TO-ME-1.mp31)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/10/1975-12-12-Soundcheck-07-CRY-TO-ME-1.mp3>
 

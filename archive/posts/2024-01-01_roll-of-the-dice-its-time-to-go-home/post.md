@@ -4,7 +4,7 @@ On the first day of September 1971, The Bruce Springsteen Band (consisting of Br
 
 Buried in the middle of the set was this haunting song, performed virtually as a solo piano number (with Bruce playing, not Sancious, and the rest of the band lurking in the background showing great restraint).
 
-[https://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3](https://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3>
 

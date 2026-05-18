@@ -14,7 +14,7 @@ Joe and Bruce have played "Chain Smokin'" together several times over the years,
 
 Joe fortuitously had their hometown show at Nick's Fat City in Pittsburgh recorded, and he released it as a bonus disc with his DVD biography, *A Good Life: The Joe Grushecky Story.* Among their great performances that night was a smoldering version of "Chain Smokin'."
 
-[https://estreetshuffle.com/wp-content/uploads/2021/05/03-Chain-Smoking.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/05/03-Chain-Smoking.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/05/03-Chain-Smoking.mp3](https://estreetshuffle.com/wp-content/uploads/2021/05/03-Chain-Smoking.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/05/03-Chain-Smoking.mp3>
 

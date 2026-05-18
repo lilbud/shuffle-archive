@@ -16,7 +16,7 @@ He was the band's tambourine player and backing vocalist from October 1965 until
 
 Bob Alfano was the last member to join The Castiles. He followed the band's leader to his next group as well. Although he turned down an offer to play on his bandmate's first album, Alfano stayed active in the local music scene until his death in 2007.
 
-[https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3>
 
@@ -133,7 +133,7 @@ The first was shortly after the song's release in October 2020 when Bruce appear
 
 The second was just a couple of weeks ago during Bruce's interview with Howard Stern.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/11/Stern-LMS.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/11/Stern-LMS.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2022/11/Stern-LMS.mp3](https://estreetshuffle.com/wp-content/uploads/2022/11/Stern-LMS.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/11/Stern-LMS.mp3>
 

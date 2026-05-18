@@ -14,7 +14,7 @@ More than a half-century later, Bruce took inspiration from Guthrie's Steinbeck 
 
 Bruce played "The Ghost of Tom Joad" at almost every show on the tour (usually as the opener), but one night early in the third leg of the tour, he threw his audience a curve ball: without explanation, he opened the show with Guthrie's song instead of his own.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/05/101-Tom-Joad.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2021/05/101-Tom-Joad.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2021/05/101-Tom-Joad.mp3](https://estreetshuffle.com/wp-content/uploads/2021/05/101-Tom-Joad.mp3)
 
 Bruce gave no explanation for the set list shake-up, but it was almost certainly inspired by his upcoming appearance at a Woody Guthrie tribute concert four days later in Akron, where he again opened with "Tom Joad."
 

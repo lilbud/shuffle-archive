@@ -38,7 +38,7 @@ Now Joe has always been a teacher, and it's not easy for teachers to take time o
 
 It was worth the hassle. "Homestead" ended up as one of the strongest tracks on *American Babylon.* It's such a good song, in fact, that Bruce recorded his own version, which remains unreleased to this day.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/06/16-Homestead.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/06/16-Homestead.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2022/06/16-Homestead.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/16-Homestead.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/06/16-Homestead.mp3>
 

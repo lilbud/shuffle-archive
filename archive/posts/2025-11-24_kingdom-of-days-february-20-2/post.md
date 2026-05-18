@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Bruce Springsteen - MONEY 1982 (audio)](https://www.youtube.com/watch?v=6izI6xtDOf8)
 
-[https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3](https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/02/Track03.mp3>
 

@@ -56,7 +56,7 @@
 
 **2021:** Bruce releases the 28th installment of *From My Home to Yours* on E Street Radio. This episode is entitled "Money Money."<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3)
 
 **2024:** Bruce has played in Asbury Park many times over the years, but never to a crowd this big, as he closes out Sea Hear Now with a headlining set featuring several tour premieres and a setlist tailored for the occasion. Before his set, Bruce pops up on two separate stages, joining undercards Gaslight Anthem and Trey Anastasio Band in guest appearances.<br>
 

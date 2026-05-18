@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 20 - Jungleland (bonus track) (from "The punk meets the godfather")](https://www.youtube.com/watch?v=ZdUS8iqQiiM)
 
-[https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3](https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3>
 
@@ -44,7 +44,7 @@
 
 **1991:** Bruce joins Bobby Bandiera on stage for five songs at McLoone’s Rum Runner in Sea Bright, New Jersey.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/07/1991-07-12__Merged.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/07/1991-07-12__Merged.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2022/07/1991-07-12__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/1991-07-12__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/07/1991-07-12__Merged.mp3>
 

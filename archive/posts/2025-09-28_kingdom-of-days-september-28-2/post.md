@@ -28,7 +28,7 @@
 
 **1985:** On *American Top 40*, host Casey Kasem shares an anecdote from one of Bruce's bandmates from The Castiles.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-28.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-28.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-28.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/AT40-1985-09-28.mp3)
 
 **1986:** Bruce attends *Lady Beth*, a play by laid-off Freehold 3M plant workers at The Stone Pony, where he gives a short speech of support and encouragement.<br>
 

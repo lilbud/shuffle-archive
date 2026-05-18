@@ -20,7 +20,7 @@ A famous fan of both 1960s girl groups and The Fab Four, Bruce Springsteen was a
 
 Commonly attributed to Steel Mill, the recording below almost certainly dates later than that–most likely mid-to-late 1971. (David Sancious’ honky tonk piano is a Bruce Springsteen Band dead giveaway.)
 
-[https://estreetshuffle.com/wp-content/uploads/2022/04/09-Chains.mp3?_=10](https://estreetshuffle.com/wp-content/uploads/2022/04/09-Chains.mp3?_=10)
+[https://estreetshuffle.com/wp-content/uploads/2022/04/09-Chains.mp30](https://estreetshuffle.com/wp-content/uploads/2022/04/09-Chains.mp30)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/04/09-Chains.mp3>
 

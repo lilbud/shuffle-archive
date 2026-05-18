@@ -104,7 +104,7 @@
 
 **2020:** E Street Radio airs Episode 3 of *Letter to You Radio*, featuring a conversation between Bruce and Brandon Flowers. That evening, Bruce appears on *The Late Show with Stephen Colbert.*<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-21-LTY-Radio-3-Bruce-Brandon-Flowers.mp3?_=13](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-21-LTY-Radio-3-Bruce-Brandon-Flowers.mp3?_=13)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-21-LTY-Radio-3-Bruce-Brandon-Flowers.mp33](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-21-LTY-Radio-3-Bruce-Brandon-Flowers.mp33)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-21-LTY-Radio-3-Bruce-Brandon-Flowers.mp3>
 

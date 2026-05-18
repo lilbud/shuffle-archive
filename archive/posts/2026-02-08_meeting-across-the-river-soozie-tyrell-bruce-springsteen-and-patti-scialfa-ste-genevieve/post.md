@@ -6,7 +6,7 @@ One track in particular, though, has a strong Bruce connection: "Ste. Genevieve"
 
 In the interview below, Soozie explains how it all came about.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/09/20090115_specialmusic_tyrell.mp3>
 

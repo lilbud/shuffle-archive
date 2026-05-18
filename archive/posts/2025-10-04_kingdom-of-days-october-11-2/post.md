@@ -18,7 +18,7 @@
 
 **1975:** Bruce makes his first appearance on *American Top 40* with his charting single, “Born to Run.”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3>
 

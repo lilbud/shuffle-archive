@@ -43,7 +43,7 @@ There's no sermonizing or moral message in "Empty Sky." Bruce doesn't attempt to
 
 Of course, just because Bruce meant his song as an expression of grief rather than a desire for vengeance, that didn't preclude some fans from inferring the latter. Enough fans cheered at the "eye for an eye" line enough times that the artists was finally moved to address it during his 2003 concert in Atlantic City.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/09/Bruce-Springsteen-Empty-Sky-Atlantic-City-070320031.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/09/Bruce-Springsteen-Empty-Sky-Atlantic-City-070320031.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2022/09/Bruce-Springsteen-Empty-Sky-Atlantic-City-070320031.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/Bruce-Springsteen-Empty-Sky-Atlantic-City-070320031.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/09/Bruce-Springsteen-Empty-Sky-Atlantic-City-070320031.mp3>
 

@@ -2,7 +2,7 @@ You're about to hear the earliest live recording of Bruce Springsteen performing
 
 "Mr. Jones," played here by Bruce's original band The Castiles, is generally attributed to the band's organ player, the late Bob Alfano. However, shortly before his death, Alfano gave a radio interview in which he credited Bruce as his co-writer. If you have nine minutes to spare, listen to that interview below for some additional background.
 
-[https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3)
 
 I'll warn you that the recording is terrible. It's impossible to make out most of the lyrics, and the best I've been able to do is *mostly* decipher three consecutive lines (the final verse, in which the singer says goodbye, looks up into an orange cloud-filled sky and witnesses the strangest sight he's ever seen).
 

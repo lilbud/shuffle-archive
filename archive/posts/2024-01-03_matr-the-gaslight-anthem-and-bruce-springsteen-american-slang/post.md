@@ -4,7 +4,7 @@ I mean, I'm not even sure it's possible to find a story about the band or an int
 
 Bruce even admitted in an interview with Simon Mayo that if he was ever taken out of commission before a show, he'd draft Fallon to stand in for him.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-with-Simon-Mayo1.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-with-Simon-Mayo1.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-with-Simon-Mayo1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-with-Simon-Mayo1.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-with-Simon-Mayo1.mp3>
 

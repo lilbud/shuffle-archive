@@ -4,7 +4,7 @@ So obscure, in fact, that when the dice roll came up with this track, I had no i
 
 Surprise #2: my collection search actually yielded a hit. On a collection of ancient demos I may not have ever listened to… lo and behold, "Hollywood Kids."
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/Bruce-Springsteen-08-Hollywood-Kids-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/01/Bruce-Springsteen-08-Hollywood-Kids-online-audio-converter.com_.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/Bruce-Springsteen-08-Hollywood-Kids-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/Bruce-Springsteen-08-Hollywood-Kids-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/01/Bruce-Springsteen-08-Hollywood-Kids-online-audio-converter.com_.mp3>
 

@@ -44,11 +44,11 @@
 
 "America":
 
-[https://estreetshuffle.com/wp-content/uploads/2019/02/02-Americas.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2019/02/02-Americas.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/02-Americas.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/02-Americas.mp3)
 
 "Purple Rain":
 
-[https://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3)
 
 **1996:** Bruce performs "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" on French television. Here's the rehearsal and the actual performance:<br>
 

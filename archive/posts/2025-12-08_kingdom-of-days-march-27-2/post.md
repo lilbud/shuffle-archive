@@ -14,7 +14,7 @@
 
 **1983:** Bruce checks out The Bangles’ performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3?_=21](https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3?_=21)
+[https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/03/Susanna_Hoffs_on_how_Bruce_Springsteen_helped_The_Bangles_get_signed_KLICKAUD.mp3>
 

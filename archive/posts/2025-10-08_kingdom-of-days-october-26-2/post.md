@@ -88,7 +88,7 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 **2020:** Promotional appearances for [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/) continue: Bruce is today’s guest on *Conan O’Brien Needs a Friend*, *T**he Daily Show With Trevor Noah,* and *Triple M*.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3](https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3>
 

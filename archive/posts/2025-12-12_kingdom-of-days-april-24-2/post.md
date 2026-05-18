@@ -104,7 +104,7 @@
 
 **2020:** Bruce makes an encore appearance as an E Street Radio DJ when he premieres a second installment of *From My Home to Yours.*<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-24-Bruce-E-Street-Radio-DJ-set-2-1.mp3?_=12](https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-24-Bruce-E-Street-Radio-DJ-set-2-1.mp3?_=12)
+[https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-24-Bruce-E-Street-Radio-DJ-set-2-1.mp32](https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-24-Bruce-E-Street-Radio-DJ-set-2-1.mp32)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/04/2020-04-24-Bruce-E-Street-Radio-DJ-set-2-1.mp3>
 

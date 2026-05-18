@@ -2,7 +2,7 @@
 
 **1973:** Bruce and the E Street Band headline two shows at the Roxy Theater in Roxborough, the latter of which features the first known recording of Bruce covering “[634-5789 (Soulsville, U.S.A.](https://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)“)<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2024/11/02-Beechwood-4-5789.mp3?_=10](https://estreetshuffle.com/wp-content/uploads/2024/11/02-Beechwood-4-5789.mp3?_=10)
+[https://estreetshuffle.com/wp-content/uploads/2024/11/02-Beechwood-4-5789.mp30](https://estreetshuffle.com/wp-content/uploads/2024/11/02-Beechwood-4-5789.mp30)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/11/02-Beechwood-4-5789.mp3>
 

@@ -134,7 +134,7 @@
 
 **2021:** Without fanfare, Bruce concludes his long-running *From My Home to Yours* radio show with Episode 29, "Let's Talk About Sex."<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/10/2021-10-13-Bruce-E-Street-Radio-DJ-set-29.mp3?_=17](https://estreetshuffle.com/wp-content/uploads/2022/10/2021-10-13-Bruce-E-Street-Radio-DJ-set-29.mp3?_=17)
+[https://estreetshuffle.com/wp-content/uploads/2022/10/2021-10-13-Bruce-E-Street-Radio-DJ-set-29.mp37](https://estreetshuffle.com/wp-content/uploads/2022/10/2021-10-13-Bruce-E-Street-Radio-DJ-set-29.mp37)
 
 **2024:** Bruce performs "The Ghost of Tom Joad" and "Dancing in the Dark" at a benefit gala for the USC Shoah Foundation in New York City.<br>
 > [View this post on Instagram](https://www.instagram.com/reel/DBFhB_SPZyH/?utm_source=ig_embed&utm_campaign=loading)

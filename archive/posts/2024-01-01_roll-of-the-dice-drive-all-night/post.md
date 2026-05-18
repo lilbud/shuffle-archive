@@ -88,7 +88,7 @@ He'll drive all night.
 
 Interestingly, for long-time fans, "Drive All Night" began in concert: the first time Bruce sang the lyrics was in an introduction to "[Backstreets](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)" on New Years' Eve in 1977. That show is available on YouTube, but it omits the one-time-only introduction. Check it out below to hear the first-ever proto-"Drive All Night."
 
-[https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3>
 

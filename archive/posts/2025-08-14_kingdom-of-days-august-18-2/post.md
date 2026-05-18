@@ -10,11 +10,11 @@
 
 **1985:** Bruce and the band kick off a four-night stand at Giants Stadium (they will return for two more later in the summer). This is Bruce’s first stadium concert in his home state, and the media coverage is intense. Check out the news footage and the PBS featurette below.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/08/101-Born-in-the-USA.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/08/101-Born-in-the-USA.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/08/101-Born-in-the-USA.mp3](https://estreetshuffle.com/wp-content/uploads/2022/08/101-Born-in-the-USA.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/08/101-Born-in-the-USA.mp3>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/08/306-Jersey-Girl.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/08/306-Jersey-Girl.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2022/08/306-Jersey-Girl.mp3](https://estreetshuffle.com/wp-content/uploads/2022/08/306-Jersey-Girl.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/08/306-Jersey-Girl.mp3>
 
@@ -88,7 +88,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 **2021:** Bruce debuts Episode 26 of *From My Home to Yours,* entitled “My Hometown,” on E Street Radio. Later that evening, *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/08/2021-08-18-Bruce-E-Street-Radio-DJ-set-26.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/08/2021-08-18-Bruce-E-Street-Radio-DJ-set-26.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2022/08/2021-08-18-Bruce-E-Street-Radio-DJ-set-26.mp3](https://estreetshuffle.com/wp-content/uploads/2022/08/2021-08-18-Bruce-E-Street-Radio-DJ-set-26.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/08/2021-08-18-Bruce-E-Street-Radio-DJ-set-26.mp3>
 

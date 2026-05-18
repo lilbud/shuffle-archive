@@ -8,6 +8,6 @@ That moment came last year, in March of 2018–and when they chose a song, they 
 
 Here's the X Ambassadors' wonderful take on Bruce's "Stolen Car.'
 
-[https://estreetshuffle.com/wp-content/uploads/2019/05/X-Ambassadors-Spotify-Singles.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2019/05/X-Ambassadors-Spotify-Singles.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2019/05/X-Ambassadors-Spotify-Singles.mp3](https://estreetshuffle.com/wp-content/uploads/2019/05/X-Ambassadors-Spotify-Singles.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/05/X-Ambassadors-Spotify-Singles.mp3>

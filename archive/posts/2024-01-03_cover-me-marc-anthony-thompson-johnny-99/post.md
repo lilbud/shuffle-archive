@@ -14,7 +14,7 @@ Thompson's soulful vocals are filled with empathy. When Johnny's mother implores
 
 After the performance, Thompson explained why Bruce's song resonated with him so strongly.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/10/122-CG-Interview.mp3>
 

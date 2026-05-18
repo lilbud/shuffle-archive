@@ -2,7 +2,7 @@ Spotlight on Patti Scialfa today:
 
 Although Patti released "Rose" on her 2004 album *23rd Street Lullaby*, well-connected Bruce fans were already familiar with the song from the legendary Asbury Park all-start holiday concerts that Bruce hosted in 2000. Patti performed the song with Bruce backing her at both holiday shows that year:
 
-[https://estreetshuffle.com/wp-content/uploads/2018/03/Bruce-Springsteen-10-Rose-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/03/Bruce-Springsteen-10-Rose-online-audio-converter.com_.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/03/Bruce-Springsteen-10-Rose-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/03/Bruce-Springsteen-10-Rose-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/03/Bruce-Springsteen-10-Rose-online-audio-converter.com_.mp3>
 

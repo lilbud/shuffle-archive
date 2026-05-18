@@ -12,7 +12,7 @@ It's amazing to think he was only seventeen at the time.
 
 As for the Hendrix original, the funk and soul song was released on *Are You Experienced* in 1967, but it would be a few years before "Fire" was released as a single–which means Bruce had probably spent a fair bit of time listening to the complete album in the summer of 1967. It sure showed.
 
-[https://estreetshuffle.com/wp-content/uploads/2019/12/Jimi-Hendrix-Let-Me-Light-Your-Fire.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2019/12/Jimi-Hendrix-Let-Me-Light-Your-Fire.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2019/12/Jimi-Hendrix-Let-Me-Light-Your-Fire.mp3](https://estreetshuffle.com/wp-content/uploads/2019/12/Jimi-Hendrix-Let-Me-Light-Your-Fire.mp3)
 
 **Fire**<br>
 **First performed:** September 16, 1967 (Freehold, NJ)<br>

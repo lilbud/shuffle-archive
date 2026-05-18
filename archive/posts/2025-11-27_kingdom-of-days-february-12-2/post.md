@@ -14,7 +14,7 @@
 
 **1977:** The Lawsuit Tour continues with a show at the Ottawa Civic Center.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3>
 

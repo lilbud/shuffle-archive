@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Bruce Springsteen & Joe Grushecky, Chicago, 1995-10-24](https://www.youtube.com/watch?v=q9oSaZz_ieg)
 
-[https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3?_=9)
+[https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3>
 
@@ -56,7 +56,7 @@
 
 **2020:** Promotional activities for Bruce’s *Letter to You* album continue with appearances on Dermot O’Leary’s radio show and [RNZ’s *Music 101*.](https://www.rnz.co.nz/audio/player?audio_id=2018769750#)<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp3?_=10](https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp3?_=10)
+[https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp30](https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp30)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp3>
 

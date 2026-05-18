@@ -18,7 +18,7 @@
 
 **1975:** Bruce makes his first appearance on *American Top 40* with his charting single, "Born to Run."<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3)
 
 That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Center in Red Bank. David Sancious makes a guest appearance during the late show on "[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)," and the entire late show can be heard below. Both shows are filmed by Barry Rebo, and snippets will surface years later in official documentaries for *Born to Run* and *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*.
 

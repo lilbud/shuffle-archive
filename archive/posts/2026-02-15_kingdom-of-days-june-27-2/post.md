@@ -94,7 +94,7 @@ Bruce opens his own set with his first and only performance of "Coma Girl," in t
 
 **2025:** Bruce releases *Tracks II: The Lost Albums* and calls into E Street Radio from the road to celebrate. That evening, he and the E Street Band play a gig at Veltins-Arena in Gelsenkirchen, Germany.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/06/2025-06-27-E-Street-Radio-BS-JR-on-Tracks-II.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2025/06/2025-06-27-E-Street-Radio-BS-JR-on-Tracks-II.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2025/06/2025-06-27-E-Street-Radio-BS-JR-on-Tracks-II.mp3](https://estreetshuffle.com/wp-content/uploads/2025/06/2025-06-27-E-Street-Radio-BS-JR-on-Tracks-II.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/06/2025-06-27-E-Street-Radio-BS-JR-on-Tracks-II.mp3>
 

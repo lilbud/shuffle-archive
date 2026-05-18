@@ -70,7 +70,7 @@
 
 **2020:** Bruce releases Episode 6 (“Down to the River to Pray”) of his *From My Home to Yours* radio show on E Street Radio. This episode is a somber one: as the coronavirus pandemic rages and claims lives, Bruce pays his respects to the fallen.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-17-Bruce-E-Street-Radio-DJ-set-6.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-17-Bruce-E-Street-Radio-DJ-set-6.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-17-Bruce-E-Street-Radio-DJ-set-6.mp3](https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-17-Bruce-E-Street-Radio-DJ-set-6.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-17-Bruce-E-Street-Radio-DJ-set-6.mp3>
 

@@ -52,7 +52,7 @@ It was over twenty years ago, at one of the earliest Light of Day benefits–so 
 
 At the end of their set, Joe, Bruce, Garland, and Gary U.S. Bonds all took the stage for a raucous, loose encore jam of "The Twist," featuring Bruce on lead vocals.
 
-[https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3](https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3>
 

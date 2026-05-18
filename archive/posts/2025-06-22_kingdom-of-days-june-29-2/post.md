@@ -104,7 +104,7 @@ Meanwhile, “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-
 
 **2008:** The Magic Tour heads north for a Scandinavian leg, starting with a show at Parken Stadium in Copenhagen.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3](https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2024/06/101-Two-Hearts.mp3>
 

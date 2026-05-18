@@ -82,7 +82,7 @@
 
 [Watch on Youtube: Springsteen w/Marah LOD 2006](https://www.youtube.com/watch?v=sMNfK9VfNE0)
 
-[https://estreetshuffle.com/wp-content/uploads/2023/12/d1t06-Springsteen-Intro__Merged.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2023/12/d1t06-Springsteen-Intro__Merged.mp3?_=9)
+[https://estreetshuffle.com/wp-content/uploads/2023/12/d1t06-Springsteen-Intro__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2023/12/d1t06-Springsteen-Intro__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/12/d1t06-Springsteen-Intro__Merged.mp3>
 

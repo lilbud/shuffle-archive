@@ -34,7 +34,7 @@
 
 **2000:** *Born to Run* is certified 6x multi-platinum by the Recording Industry Association of America, and Canada gets its first Reunion show (and first-ever "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)") on the first of two nights at the Air Canada Center in Toronto.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3](https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3)
 
 ![](../../assets/2021/05/2000-05-03.jpg)
 

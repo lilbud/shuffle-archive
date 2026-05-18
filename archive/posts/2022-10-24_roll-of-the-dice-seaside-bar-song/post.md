@@ -68,7 +68,7 @@ That debut performance was from way back on the Greetings Tour, when Bruce and h
 
 When "Seaside Bar Song" finally did return, it was–appropriately–at the Jersey Shore. Bruce re-debuted it with the Max Weinberg 7 at his 2001 holiday shows, stunning the audience of hardcore fans with an obscure rarity no one could have expected that night.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/10/107-Seaside-Bar-Song.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/10/107-Seaside-Bar-Song.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/10/107-Seaside-Bar-Song.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/107-Seaside-Bar-Song.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/10/107-Seaside-Bar-Song.mp3>
 

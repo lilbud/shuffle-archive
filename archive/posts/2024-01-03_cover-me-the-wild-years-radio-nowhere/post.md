@@ -6,7 +6,7 @@ At the height of quarantine and pre-vaccine social distancing, it seemed like we
 
 Actress Ashley Johnson and writer-singer Brian W. Foster felt it, too. Foster had taken a shine to "Radio Nowhere" long before, covering it in his performances and posting an (out of tune) mic-check of it to his Tumblr in 2018.
 
-[https://a.tumblr.com/tumblr_pgcvdjuami1r0xd1ao1.mp3?_=2](https://a.tumblr.com/tumblr_pgcvdjuami1r0xd1ao1.mp3?_=2)
+[https://a.tumblr.com/tumblr_pgcvdjuami1r0xd1ao1.mp3](https://a.tumblr.com/tumblr_pgcvdjuami1r0xd1ao1.mp3)
 
 <https://a.tumblr.com/tumblr_pgcvdjuami1r0xd1ao1.mp3>
 

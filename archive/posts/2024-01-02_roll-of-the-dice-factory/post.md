@@ -58,7 +58,7 @@ Like I said: I love this song. I just don't like it.
 
 After the River Tour, however, "Factory" pretty much disappeared until the Reunion era. One performance in particular from the Reunion Tour is notable for the addition of strings, courtesy of guest-star Soozie Tyrell (she wouldn't join the band for another three years).
 
-[https://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3>
 

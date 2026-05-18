@@ -2,7 +2,7 @@
 
 After all, "Bad Day" evolved in true Springsteenian style, first appearing in the form of a couple of lyrics seemingly ad libbed by Michael Stipe "Drive All Night"-style in concert on August 25, 1985.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/05/REM_-_PSA_Bad_Day_-_JBs_Theater_Albany_NY_25_August_1985_KLICKAUD.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/05/REM_-_PSA_Bad_Day_-_JBs_Theater_Albany_NY_25_August_1985_KLICKAUD.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2021/05/REM_-_PSA_Bad_Day_-_JBs_Theater_Albany_NY_25_August_1985_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2021/05/REM_-_PSA_Bad_Day_-_JBs_Theater_Albany_NY_25_August_1985_KLICKAUD.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/05/REM_-_PSA_Bad_Day_-_JBs_Theater_Albany_NY_25_August_1985_KLICKAUD.mp3>
 

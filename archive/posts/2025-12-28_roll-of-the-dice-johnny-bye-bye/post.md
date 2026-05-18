@@ -16,7 +16,7 @@ But "Come On (Let's Go Tonight)" was more than just a prototypical "Factory." It
 
 Riding high on the success of *The River* and feeling low after near exhausting himself promoting it, Bruce must have been thinking about his musical idol, Elvis Presley, whose tragic death had inspired "Come On (Let's Go Tonight)," and how fame had become an isolating experience for him. Bruce dusted off his old outtake, wrote a new melody for it, gave his female lead a new dress, and recorded a home demo.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/07/20-Bye-Bye-Johnny.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/07/20-Bye-Bye-Johnny.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2022/07/20-Bye-Bye-Johnny.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/20-Bye-Bye-Johnny.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/07/20-Bye-Bye-Johnny.mp3>
 

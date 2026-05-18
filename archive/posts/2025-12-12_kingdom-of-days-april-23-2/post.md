@@ -34,7 +34,7 @@
 
 Also today, *American Top 40* host Casey Kasem introduces Bruce’s current chart-climbing single “One Step Up” with a story about how music helped Bruce survive high school.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp3?_=13](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp3?_=13)
+[https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp33](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp33)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1988-04-23.mp3>
 

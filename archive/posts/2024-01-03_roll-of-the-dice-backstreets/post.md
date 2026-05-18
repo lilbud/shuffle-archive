@@ -10,7 +10,7 @@ By 1974, Bruce had begun writing in a more romantic vein, and over the summer he
 
 Suki made her E Street Band stage debut at Avery Fisher Hall in New York City on October 4, 1974–the same night Bruce premiered a work-in-progress "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)."
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/d1-avery-fisher08.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/05/d1-avery-fisher08.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/d1-avery-fisher08.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/d1-avery-fisher08.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/d1-avery-fisher08.mp3>
 
@@ -30,7 +30,7 @@ But by March 1975, something seemed to have come to a head, and the Lahavs abrup
 
 In April, Bruce recorded the his first attempt at "Backstreets."
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/09-Backstreets.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/05/09-Backstreets.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/09-Backstreets.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/09-Backstreets.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/09-Backstreets.mp3>
 

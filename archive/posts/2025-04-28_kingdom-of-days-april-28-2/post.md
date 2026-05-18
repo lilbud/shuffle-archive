@@ -92,7 +92,7 @@
 
 **2021:** *From My Home to Yours* continues with Episode 21, "Waiting on a Friend" on E Street Radio.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3?_=10](https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3?_=10)
+[https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp30](https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp30)
 
 **2023:** Bruce and the E Street Band kick off the European leg of their 2023 World Tour in Barcelona with some special guests: former U.S. First Lady Michelle Obama and actress Kate Capshaw join Patti Scialfa on stage for backing vocals on "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)." The run of nightly tour premieres continue with "[Human Touch.](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)"<br>
 

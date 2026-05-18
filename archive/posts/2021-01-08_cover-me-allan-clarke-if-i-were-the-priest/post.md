@@ -12,7 +12,7 @@ Clarke released "If I Were the Priest" on his 1974 eponymous solo album. Initial
 
 Philadelphia DJ Ed Sciaky was one of those fans. Sciaky got his hands on a copy and surprised Bruce with it during an in-studio radio interview on November 3, 1974–much to 25-year-old Bruce's audible annoyance.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-031.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-031.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-031.mp3](https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-031.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-031.mp3>
 
@@ -24,7 +24,7 @@ The thing is, though: it's a *great* cover. Clarke not only captured the spirit 
 
 After listening to Clarke's version, Bruce complimented the harmonies but seemed eager to change the subject, which they quickly did.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-03.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-03.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-03.mp3](https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-03.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/01/Ed-Sciaky-Bruce-Springsteen-interview-from-1974-11-03.mp3>
 

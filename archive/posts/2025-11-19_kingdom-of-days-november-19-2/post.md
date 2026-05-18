@@ -104,7 +104,7 @@
 
 **2022:** Bruce appears on RTE Radio in Ireland to promote his new album, *Only the Strong Survive*.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2023/11/20221119_rteradio1-wkendonone-brucesprin_c22174632_22174650_232_.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2023/11/20221119_rteradio1-wkendonone-brucesprin_c22174632_22174650_232_.mp3?_=9)
+[https://estreetshuffle.com/wp-content/uploads/2023/11/20221119_rteradio1-wkendonone-brucesprin_c22174632_22174650_232_.mp3](https://estreetshuffle.com/wp-content/uploads/2023/11/20221119_rteradio1-wkendonone-brucesprin_c22174632_22174650_232_.mp3)
 
 **2024:** Bruce and the E Street Band play their penultimate show of the year at Rogers Place in Edmonton, Alberta, more than a year's postponement.<br>
 

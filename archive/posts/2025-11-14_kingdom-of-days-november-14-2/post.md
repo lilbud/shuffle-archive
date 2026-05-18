@@ -30,7 +30,7 @@
 
 **1987:** By way of introduction to Bruce's rising "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" single, *American Top 40* host Casey Kasem gives a dramatic re-enactment of a late night billboard defacement foray on the Darkness Tour.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1987-11-14.mp3?_=13](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1987-11-14.mp3?_=13)
+[https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1987-11-14.mp33](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1987-11-14.mp33)
 
 **1996:** Bruce plays a solo acoustic show at the Memorial Auditorium in Lowell, Massachusetts, when the Ghost of Tom Joad Tour comes to town.<br>
 
@@ -84,7 +84,7 @@
 
 [Watch on Youtube: Bruce Springsteen: Rock Legend Explains Why He's A Huge Taylor Swift Fan](https://www.youtube.com/watch?v=83uHNXF1YTk)
 
-[https://estreetshuffle.com/wp-content/uploads/2023/11/10946-14.11.2022-ITEMA_23195449-2022F13843S0318-22.mp3?_=14](https://estreetshuffle.com/wp-content/uploads/2023/11/10946-14.11.2022-ITEMA_23195449-2022F13843S0318-22.mp3?_=14)
+[https://estreetshuffle.com/wp-content/uploads/2023/11/10946-14.11.2022-ITEMA_23195449-2022F13843S0318-22.mp34](https://estreetshuffle.com/wp-content/uploads/2023/11/10946-14.11.2022-ITEMA_23195449-2022F13843S0318-22.mp34)
 
 [Watch on Youtube: Bruce Springsteen's new album of soul classics celebrates the songs that made him a musician](https://www.youtube.com/watch?v=FmJDVNa9K5M)
 

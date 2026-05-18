@@ -16,7 +16,7 @@ The riff from “Something About You” bears a strong resemblance to “[Pink C
 
 But it would take a few more years before Bruce would play the original on stage–and even then only during a rehearsal. One January day at the Expo Theater in Fort Monmouth, New Jersey, Bruce and the E Street Band took a break from practicing their new *Tunnel of Love* material and tackled the Four Tops classic instead.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/06/201-Something-About-You-Baby.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/06/201-Something-About-You-Baby.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2022/06/201-Something-About-You-Baby.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/201-Something-About-You-Baby.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/06/201-Something-About-You-Baby.mp3>
 

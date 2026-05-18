@@ -38,7 +38,7 @@ There's something distractingly curious about that first line: the "…Eddie spa
 
 And something was. In an earlier version of "Linda Let Me Be The One" (which reportedly was the version considered for release on *Born to Run* rather than the *Tracks* version), we hear the line as Bruce originally wrote it: "In a room full of contenders *shadow boxing*, Eddie spars."
 
-[https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3](https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3>
 

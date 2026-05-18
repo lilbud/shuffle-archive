@@ -6,7 +6,7 @@
 
 **1974:** Bruce and the band perform on a revolving stage at the Celebrity Theater in Phoenix. After the show, Bruce grants a fascinating interview to The Phoenix New Times and Arizona State University. You can listen to it below–it’s well worth it.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/03/1974-03-24_Phoenix_interview_KLICKAUD.mp3?_=22](https://estreetshuffle.com/wp-content/uploads/2025/03/1974-03-24_Phoenix_interview_KLICKAUD.mp3?_=22)
+[https://estreetshuffle.com/wp-content/uploads/2025/03/1974-03-24_Phoenix_interview_KLICKAUD.mp3](https://estreetshuffle.com/wp-content/uploads/2025/03/1974-03-24_Phoenix_interview_KLICKAUD.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/03/1974-03-24_Phoenix_interview_KLICKAUD.mp3>
 

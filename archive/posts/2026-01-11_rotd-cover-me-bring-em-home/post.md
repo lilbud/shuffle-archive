@@ -39,7 +39,7 @@ It's hard to call the resulting song a cover, but it's certainly not an original
 
 Bruce recorded his new version of "Bring ‘Em Home" in Oslo while on tour with the Sessions Band in 2006. While never officially released on disc, that studio version was very briefly available as an Internet download, and you can hear it below.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-Bring-Them-Home-Studio-online-audio-converter.com_.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-Bring-Them-Home-Studio-online-audio-converter.com_.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-Bring-Them-Home-Studio-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-Bring-Them-Home-Studio-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Springsteen-Bring-Them-Home-Studio-online-audio-converter.com_.mp3>
 

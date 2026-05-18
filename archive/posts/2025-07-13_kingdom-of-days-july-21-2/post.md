@@ -54,7 +54,7 @@
 
 **2021:** Bruce releases episode 25 of *From My Home to Yours* on E Street Radio. This episode is entitled “Frat Party.”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/07/2021-07-21-Bruce-E-Street-Radio-DJ-set-25.mp3>
 

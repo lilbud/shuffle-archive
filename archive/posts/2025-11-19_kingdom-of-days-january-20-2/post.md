@@ -46,7 +46,7 @@
 
 **2021:** Bruce’s *From My Home to Yours* radio show returns with its first new episode of the year, Volume 17: “Lawyers, Guns & Money.”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/01/2021-01-20-Bruce-E-Street-Radio-DJ-set-17-1.mp3>
 

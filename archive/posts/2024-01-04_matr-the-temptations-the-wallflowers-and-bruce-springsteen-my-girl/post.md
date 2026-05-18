@@ -26,7 +26,7 @@ To find anything resembling a true Springsteen public performance of “My Girl,
 
 Bruce’s appearance was heavy on classic rock and roll covers, including a few one-time-only performances like “[Brand New Cadillac](https://estreetshuffle.com/index.php/2019/02/07/matr-bruce-springsteen-and-the-wallflowers-brand-new-cadillac/),” “[Bring It On Home to Me](https://estreetshuffle.com/index.php/2019/07/23/matr-the-wallflowers-and-bruce-springsteen-bring-it-on-home-to-me/),” and “My Girl.” In the recording below, Springsteen starts out respectfully reserved (he was a guest, after all), but he soon finds himself unable to deny his inner crooner. Listen to the crowd’s reaction to the return of Bruce’s “rock voice” after two years of acoustic touring.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/10/1997-03-08-My-Girl.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2022/10/1997-03-08-My-Girl.mp3?_=9)
+[https://estreetshuffle.com/wp-content/uploads/2022/10/1997-03-08-My-Girl.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/1997-03-08-My-Girl.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/10/1997-03-08-My-Girl.mp3>
 

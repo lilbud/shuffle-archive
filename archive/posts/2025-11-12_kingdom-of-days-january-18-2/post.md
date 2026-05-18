@@ -24,7 +24,7 @@
 
 **1986:** On *American Top 40,* host Casey Kasem introduces “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” with the story of the first show Bruce and Clarence ever played together.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3>
 

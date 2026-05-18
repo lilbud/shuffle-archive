@@ -28,11 +28,11 @@ That's not entirely true. It's possible that he composed the main melody upon co
 
 And as for the electric guitar riff that opens both the track and the album (the only time an electric guitar appears anywhere on [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)), it's too close to the one that opens The Doobie Brothers' second album for coincidence. "Listen to the Music" debuted in July and was climbing the Hot 100 the very week Bruce recorded "Blinded" in September. Take a listen below and compare for yourself.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/12/Blinded-By-The-Light1.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/12/Blinded-By-The-Light1.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2022/12/Blinded-By-The-Light1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/Blinded-By-The-Light1.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/12/Blinded-By-The-Light1.mp3>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/12/Listen-to-the-Music.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/12/Listen-to-the-Music.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2022/12/Listen-to-the-Music.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/Listen-to-the-Music.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/12/Listen-to-the-Music.mp3>
 

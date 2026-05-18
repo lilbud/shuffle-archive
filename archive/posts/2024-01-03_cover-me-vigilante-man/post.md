@@ -49,7 +49,7 @@ It's a fearful song bordering on paranoia. The song's narrator keeps constant wa
 
 Years before Bruce recorded *The Ghost of Tom Joad*, he was taken enough with Guthrie's sequel (side-quel?) to record it with the E Street Band sometime between completing his *Tunnel of Love* album and embarking on the tour.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3>
 

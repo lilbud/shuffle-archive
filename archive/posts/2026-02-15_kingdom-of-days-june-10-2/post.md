@@ -34,7 +34,7 @@
 
 Also on this date in 2003: the BBC premieres a three-part series narrated by Johnnie Walker, profiling Bruce's life and career.
 
-[https://estreetshuffle.com/wp-content/uploads/2025/06/80ea-6831-42e4-b0b6-c8859be190cb.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2025/06/80ea-6831-42e4-b0b6-c8859be190cb.mp3?_=9)
+[https://estreetshuffle.com/wp-content/uploads/2025/06/80ea-6831-42e4-b0b6-c8859be190cb.mp3](https://estreetshuffle.com/wp-content/uploads/2025/06/80ea-6831-42e4-b0b6-c8859be190cb.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/06/80ea-6831-42e4-b0b6-c8859be190cb.mp3>
 

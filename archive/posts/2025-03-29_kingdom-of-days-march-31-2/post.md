@@ -76,7 +76,7 @@ If you aren’t in Denver tonight, you still have a chance to see The Boss: the 
 
 **2021:** E Street Radio premieres Episode 20 of Bruce’s *From My Home to Yours* radio show, entitled “Here Comes the Weekend.”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3](https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3>
 

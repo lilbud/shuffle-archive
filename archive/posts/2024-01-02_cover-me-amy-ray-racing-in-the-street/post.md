@@ -12,7 +12,7 @@ And watching this Amy Ray Band performance from last spring… there's no questi
 
 In a radio interview last year, Amy zeroed in on a particular line of "Racing in the Street" and placed Bruce's song in a new context:
 
-[https://estreetshuffle.com/wp-content/uploads/2020/01/amyray.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2020/01/amyray.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2020/01/amyray.mp3](https://estreetshuffle.com/wp-content/uploads/2020/01/amyray.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/01/amyray.mp3>
 

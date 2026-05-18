@@ -72,7 +72,7 @@
 
 **2020:** With no fanfare, Bruce premieres his own recording of “[Idiot’s Delight](https://estreetshuffle.com/index.php/2021/03/12/rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/),” (originally released by Joe Grushecky but co-written by both artists) on the fifth installment of his *From My Home to Yours* radio show on Sirius XM.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3](https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/06/2020-06-03-Bruce-E-Street-Radio-DJ-set-5.mp3>
 

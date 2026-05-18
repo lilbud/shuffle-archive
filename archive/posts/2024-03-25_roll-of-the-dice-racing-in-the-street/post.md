@@ -52,7 +52,7 @@ So the callbacks to the sixties represent the narrator's lost youth and innocenc
 
 And this is probably as a good a time as any to acknowledge what my automotive aficionado readers will otherwise doubtless comment on: a '69 Chevy with a 396 and fuelie heads is not a thing. They are incompatible, or so I'm told. (I know next to nothing about cars.) Bruce has known this since shortly after he recorded it, as he revealed in this 1978 radio interview.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/Bruce-Springsteen-Radio-Interview-KMET-FM-July-4-1978.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2021/10/Bruce-Springsteen-Radio-Interview-KMET-FM-July-4-1978.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/Bruce-Springsteen-Radio-Interview-KMET-FM-July-4-1978.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/Bruce-Springsteen-Radio-Interview-KMET-FM-July-4-1978.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/10/Bruce-Springsteen-Radio-Interview-KMET-FM-July-4-1978.mp3>
 
@@ -150,7 +150,7 @@ Interestingly, Bruce had to do a minor bit of surgery on his '77 studio outtake 
 
 If not, take a listen to the original raw outtake–I'm pretty certain you'll figure out which line Bruce had to replace when you hear it.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/racinginthestreet_unofficial2.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2021/10/racinginthestreet_unofficial2.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/racinginthestreet_unofficial2.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/racinginthestreet_unofficial2.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/10/racinginthestreet_unofficial2.mp3>
 

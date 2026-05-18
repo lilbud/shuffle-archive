@@ -6,7 +6,7 @@ If you're gonna rock in Boston, sooner or later you've got to play "Dirty Water.
 
 "Dirty Water" became a garage rock classic, a status it held by the time Bruce first covered it in 1984 in (where else?) Asbury Park at The Stone Pony with house band Cats on a Smooth Surface.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/03/02-Dirty-Water.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/03/02-Dirty-Water.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2022/03/02-Dirty-Water.mp3](https://estreetshuffle.com/wp-content/uploads/2022/03/02-Dirty-Water.mp3)
 
 By the 21st century, however, "Dirty Water" had been lovingly embraced by sports fans in the town The Standells paid questionable tribute to, and the song was frequently heard at Bruins hockey games in (finally!) Boston.
 

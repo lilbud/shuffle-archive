@@ -10,7 +10,7 @@ Turns out that Blige had already recorded a full cover of the song with the help
 
 If you haven't heard it before, trust me: you need to. It's magnificent, even more powerful than Bruce's original version:
 
-[https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3>
 

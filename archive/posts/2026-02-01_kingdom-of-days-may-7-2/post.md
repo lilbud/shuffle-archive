@@ -36,7 +36,7 @@
 
 **1996:** Bruce performs his second of two solo acoustic shows at Teatro Tivoli in Barcelona.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3](https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3>
 

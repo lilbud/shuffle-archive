@@ -18,13 +18,13 @@ Berry's stamp was all over Bruce Springsteen's Born to Run Tour too, with "Carol
 
 According to Bruce, he'd been playing "Carol" on stage in bars long before that night, since right about the time The Stones released their version. No record of him covering it that early survives, but there are certainly many surviving recordings from post-*Born to Run* bar gigs: no less than twenty known performances between 1977 and 1989, with artists like former Steel Mill bandmate Robbin Thompson….
 
-[https://estreetshuffle.com/wp-content/uploads/2022/02/1981-08-06-Washington-01.-Carol.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/02/1981-08-06-Washington-01.-Carol.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/02/1981-08-06-Washington-01.-Carol.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/1981-08-06-Washington-01.-Carol.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/02/1981-08-06-Washington-01.-Carol.mp3>
 
 …and future E Street bandmate Nils Lofgren.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/02/02-Bruce-Springsteen-with-Nils-Lofgren.-Carol.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/02/02-Bruce-Springsteen-with-Nils-Lofgren.-Carol.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2022/02/02-Bruce-Springsteen-with-Nils-Lofgren.-Carol.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/02-Bruce-Springsteen-with-Nils-Lofgren.-Carol.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/02/02-Bruce-Springsteen-with-Nils-Lofgren.-Carol.mp3>
 

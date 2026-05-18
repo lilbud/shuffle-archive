@@ -1,8 +1,8 @@
 **1972:** The Bruce Springsteen Band plays their seventh show this month at The Back Door in Richmond. This show features the only known circulating performance of "[Down to the Riverside](https://estreetshuffle.com/index.php/2021/10/15/roll-of-the-dice-down-to-the-riverside/)."<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3)
 
-[https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3)
 
 **1974:** Sick with the flu, Bruce somehow manages to perform at The Main Point in Bryn Mawr, Pennsylvania, but he is forced to sit for the entire performance. Even though he's sick, a photo from this evening will become the cover of *Tracks* 24 years later. (photo credits: Phil Ceccola)<br>
 

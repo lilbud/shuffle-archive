@@ -86,6 +86,6 @@ Over the days and weeks that follow, the incident will become legendary.
 
 **2021:** BBC Radio 2 airs Zoe Ball’s interview with Bruce, while in New York City *Springsteen on Broadway* continues its limited return engagement at The St. James Theater. In attendance tonight: Garry Tallent.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2023/07/The-Zoe-Ball-Breakfast-Show-Bruce-Springsteen-BBC-Sounds-Springsteen-Only.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2023/07/The-Zoe-Ball-Breakfast-Show-Bruce-Springsteen-BBC-Sounds-Springsteen-Only.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2023/07/The-Zoe-Ball-Breakfast-Show-Bruce-Springsteen-BBC-Sounds-Springsteen-Only.mp3](https://estreetshuffle.com/wp-content/uploads/2023/07/The-Zoe-Ball-Breakfast-Show-Bruce-Springsteen-BBC-Sounds-Springsteen-Only.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/07/The-Zoe-Ball-Breakfast-Show-Bruce-Springsteen-BBC-Sounds-Springsteen-Only.mp3>

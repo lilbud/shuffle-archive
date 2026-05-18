@@ -38,7 +38,7 @@ Later that night–so late that it’s technically the following day, August 31�
 
 [Watch on Youtube: Bruce Springsteen Janey Don't You Lose Heart Giants Stadium New Jersey 30/08/2003](https://www.youtube.com/watch?v=JWgi0SwOr0I)
 
-[https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3?_=14](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3?_=14)
+[https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp34](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp34)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3>
 

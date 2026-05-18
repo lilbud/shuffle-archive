@@ -16,7 +16,7 @@ Bruce was a huge fan of the Stax/Volt sound, but he was a student of Sam Moore. 
 
 By the time Bruce's recording career started in earnest, Sam and Dave were already on the decline, and the last time they came through Asbury Park, only a handful of appreciative fans came out to pay their respects. Bruce was among the small crowd at The Fast Lane that day, and he recalls being very affected by the unjustly small turnout.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/2021-09-01-Bruce-E-Street-Radio-DJ-set-271.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/05/2021-09-01-Bruce-E-Street-Radio-DJ-set-271.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/2021-09-01-Bruce-E-Street-Radio-DJ-set-271.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/2021-09-01-Bruce-E-Street-Radio-DJ-set-271.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/2021-09-01-Bruce-E-Street-Radio-DJ-set-271.mp3>
 

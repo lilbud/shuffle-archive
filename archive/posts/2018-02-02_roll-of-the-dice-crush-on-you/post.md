@@ -52,11 +52,11 @@ I'm torn over which one was more fun. This song *really* needed to be in the set
 
 Still haven't had enough "Crush on You?" Check out these outtakes–nothing revelatory here, but a glimpse at the band experimenting with different tempos, endings, and with-or-without sax solo.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/02/110-Crush-On-You-1.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/02/110-Crush-On-You-1.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/02/110-Crush-On-You-1.mp3](https://estreetshuffle.com/wp-content/uploads/2018/02/110-Crush-On-You-1.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/02/110-Crush-On-You-1.mp3>
 
-[https://estreetshuffle.com/wp-content/uploads/2018/02/111-Crush-On-You-2.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/02/111-Crush-On-You-2.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/02/111-Crush-On-You-2.mp3](https://estreetshuffle.com/wp-content/uploads/2018/02/111-Crush-On-You-2.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/02/111-Crush-On-You-2.mp3>
 

@@ -52,7 +52,7 @@ It was over twenty years ago, at one of the earliest Light of Day benefits–so 
 
 At the end of their set, Joe, Bruce, Garland, and Gary U.S. Bonds all took the stage for a raucous, loose encore jam of "The Twist," featuring Bruce on lead vocals.
 
-[https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3](https://estreetshuffle.com/wp-content/uploads/2023/02/2002-11-02-The-Twist.mp3)
 
 Toward the end of the song, Bonds took over. He segued the band into "Peppermint Twist," a 1961 song by Joey Dee and The Starliters (another New Jersey band) that not only rode Checker's coattails to the top of the Hot 100, it stomped on them, dethroning Checker from his second reign in the process.
 

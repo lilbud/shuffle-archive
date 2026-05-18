@@ -75,7 +75,7 @@ In the same promotional interview, Bruce says that was trying to say that "hey, 
 
 "Paradise" is rarely performed–Bruce has played it only 15 times ever. It made its live debut on July 30, 2002, at the first rehearsal show for the Rising Tour. Unsurprisingly, it was almost immediately dropped from the set, surfacing only once during the entire tour. The song is too quiet and demands too much focused attention for it to be well served by an arena and stadium tour. However, you can hear that first performance here, notable for Soozie Tyrell's gorgeous viola accompaniment.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3>
 

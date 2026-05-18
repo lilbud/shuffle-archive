@@ -12,7 +12,7 @@ And yet, if we can pretend that we've never listened to "Factory," "[Out in the 
 
 "Come On (Let's Go Tonight)" was one of the very first songs recorded for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/). In fact, a first cut was recorded on the very first day of recording sessions. Bruce worked on it throughout the early days of the summer of '77, and one of those early July recordings escaped into the wild as a bootleg.
 
-[https://estreetshuffle.com/wp-content/uploads/2020/12/113-Lets-Go-Tonight-v2.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2020/12/113-Lets-Go-Tonight-v2.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2020/12/113-Lets-Go-Tonight-v2.mp3](https://estreetshuffle.com/wp-content/uploads/2020/12/113-Lets-Go-Tonight-v2.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/12/113-Lets-Go-Tonight-v2.mp3>
 

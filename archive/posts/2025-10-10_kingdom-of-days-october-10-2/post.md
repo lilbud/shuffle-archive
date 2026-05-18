@@ -6,7 +6,7 @@
 
 **1976:** Bruce and the E Street Band play a Lawsuit Tour show at Miami University in Oxford, Ohio. Based on the student newspaper clipping below, it seems that Bruce's shows are not necessarily easy to book or facilitate due to Bruce's legal battle with Mike Appel. At one point, the school seemed unsure about whether this concert would happen.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3](https://estreetshuffle.com/wp-content/uploads/2024/10/08-Growin-Up.mp3)
 
 ![](../../assets/2018/10/1976-1010.jpg)
 
@@ -52,7 +52,7 @@
 
 **2017:** Previews continue for *Springsteen on Broadway* at the Walter Kerr Theater in New York City.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2024/10/101-Welcome.-I-Have-A-Magic-Trick-Bruce-Springsteen.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2024/10/101-Welcome.-I-Have-A-Magic-Trick-Bruce-Springsteen.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2024/10/101-Welcome.-I-Have-A-Magic-Trick-Bruce-Springsteen.mp3](https://estreetshuffle.com/wp-content/uploads/2024/10/101-Welcome.-I-Have-A-Magic-Trick-Bruce-Springsteen.mp3)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

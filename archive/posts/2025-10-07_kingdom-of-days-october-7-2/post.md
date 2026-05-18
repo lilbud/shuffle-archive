@@ -52,7 +52,7 @@
 
 **2020:** E Street Radio airs Volume 13 of Bruce's *From My Home to Yours* radio show, entitled "My Kingdom for a Car."<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-07-Bruce-E-Street-Radio-DJ-set-13-1.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-07-Bruce-E-Street-Radio-DJ-set-13-1.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-07-Bruce-E-Street-Radio-DJ-set-13-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-07-Bruce-E-Street-Radio-DJ-set-13-1.mp3)
 
 Later that day, Bruce records a promotional interview for [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)with Zane Lowe. The interview will be aired on Apple Music later this month.
 

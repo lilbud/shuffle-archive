@@ -68,7 +68,7 @@ Meanwhile, Bruce releases a new live EP entitled *Magic Tour Highlights*, featur
 
 **2020:** E Street Radio debuts "Summertime, Summertime," the eighth installment of Bruce's *From My Home to Yours* radio show.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-15-Bruce-ESR-DJ-set-8.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-15-Bruce-ESR-DJ-set-8.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-15-Bruce-ESR-DJ-set-8.mp3](https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-15-Bruce-ESR-DJ-set-8.mp3)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: Pamela Springsteen.<br>
 

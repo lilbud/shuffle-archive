@@ -2,13 +2,13 @@ It was one of the songs Bruce played when he auditioned for Mike Appel.
 
 It was one of the songs Bruce demoed with John Hammond the day after Appel introduced them.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/09/Cowboys-of-the-Sea-Hammond.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/09/Cowboys-of-the-Sea-Hammond.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/09/Cowboys-of-the-Sea-Hammond.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/Cowboys-of-the-Sea-Hammond.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/09/Cowboys-of-the-Sea-Hammond.mp3>
 
 Bruce recorded a solo acoustic version for *Greetings for Asbury Park, N.J.* (although it was obviously cut from the final album)…
 
-[https://estreetshuffle.com/wp-content/uploads/2021/09/Cowboys-of-the-Sea-Greetings.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/09/Cowboys-of-the-Sea-Greetings.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2021/09/Cowboys-of-the-Sea-Greetings.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/Cowboys-of-the-Sea-Greetings.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/09/Cowboys-of-the-Sea-Greetings.mp3>
 
@@ -18,7 +18,7 @@ Bruce recorded a solo acoustic version for *Greetings for Asbury Park, N.J.* (al
 
 Obviously, "Cowboys of the Sea" is an *Important Song*, so when the dice turned this one up, I made sure to give each and every version a deep listen.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/09/Bruce-Springsteen-41-Cowboys-Of-The-Sea-2-online-audio-converter.com_.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2021/09/Bruce-Springsteen-41-Cowboys-Of-The-Sea-2-online-audio-converter.com_.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2021/09/Bruce-Springsteen-41-Cowboys-Of-The-Sea-2-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/Bruce-Springsteen-41-Cowboys-Of-The-Sea-2-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/09/Bruce-Springsteen-41-Cowboys-Of-The-Sea-2-online-audio-converter.com_.mp3>
 

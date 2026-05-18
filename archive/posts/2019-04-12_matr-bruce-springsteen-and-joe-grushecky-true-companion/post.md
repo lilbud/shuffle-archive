@@ -8,7 +8,7 @@ Joe and Bruce turn in a fantastic performance, especially Bruce's blistering gui
 
 Curiously, even though it's the title track, "True Companion" is the only song omitted from the album's youtube playlist, but you can hear the original below.
 
-[https://estreetshuffle.com/wp-content/uploads/2019/04/04-True-Companion.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/04/04-True-Companion.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2019/04/04-True-Companion.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/04-True-Companion.mp3)
 
 **True Companion**<br>
 **First played:** December 2, 2004 (Pittsburgh, PA)<br>

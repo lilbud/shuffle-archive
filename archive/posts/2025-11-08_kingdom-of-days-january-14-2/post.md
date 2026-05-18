@@ -20,7 +20,7 @@
 
 **2006:** Bruce attends *The Nebraska Project*, a tribute event to the Springsteen album of the same name, at the World Financial Center Winter Garden in New York City. A series of performers cover the tracks from the album; Bruce then joins all the artists for an encore of “[Oklahoma Hills](https://estreetshuffle.com/index.php/2021/05/17/matr-bruce-springsteen-arlo-guthrie-joe-ely-and-jimmy-lafave-oklahoma-hills/)” and explains the true motivation behind the famous album.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/01/231-Bruce-Interview-online-audio-converter.com_.mp3>
 

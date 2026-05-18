@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 20 - Jungleland (bonus track) (from "The punk meets the godfather")](https://www.youtube.com/watch?v=ZdUS8iqQiiM)
 
-[https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3](https://estreetshuffle.com/wp-content/uploads/2023/07/02a-Kittys-Back.mp3)
 
 ![](../../assets/2024/07/Newsday_Nassau_Edition__1974_07_15_87-scaled.jpg)
 
@@ -42,7 +42,7 @@
 
 **1991:** Bruce joins Bobby Bandiera on stage for five songs at McLoone's Rum Runner in Sea Bright, New Jersey.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/07/1991-07-12__Merged.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/07/1991-07-12__Merged.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2022/07/1991-07-12__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/1991-07-12__Merged.mp3)
 
 **1992:** Night Four of five at Wembley Arena for Bruce's World Tour 1992. The setlist highlight: "[The Big Muddy](https://estreetshuffle.com/index.php/2019/01/29/roll-of-the-dice-the-big-muddy/)," played only twice in Europe.<br>
 

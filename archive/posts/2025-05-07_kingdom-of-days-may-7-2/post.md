@@ -38,7 +38,7 @@
 
 **1996:** Bruce performs his second of two solo acoustic shows at Teatro Tivoli in Barcelona.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3](https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3)
 
 **1997:** On Night Two in Vienna during Bruce's first-ever tour stop in Austria, Patti makes a guest appearance in the encores, joining Bruce on "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)."<br>
 

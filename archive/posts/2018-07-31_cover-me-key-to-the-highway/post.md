@@ -16,7 +16,7 @@ The Bruce Springsteen Band took a swing at it when they played The Student Princ
 
 Take a listen:
 
-[https://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3)
 
 **Key to the Highway**<br>
 **First performed:** October 23, 1971 (Richmond, VA)<br>

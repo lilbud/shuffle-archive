@@ -131,7 +131,7 @@ But that apparently wasn't the case, because when Bruce took the band into the s
 
 Interestingly, Bruce bluffed most of the lyrics beyond the familiar first verse, suggesting that he had already dismissed his earlier, harsher lyrics but hadn't yet written replacements. He continued to work on the lyrics in this arrangement, and in this next take we can hear the dream sequence starting to take shape.
 
-[https://estreetshuffle.com/wp-content/uploads/2020/12/120-Point-Blank-3-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2020/12/120-Point-Blank-3-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2020/12/120-Point-Blank-3-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2020/12/120-Point-Blank-3-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/12/120-Point-Blank-3-online-audio-converter.com_.mp3>
 

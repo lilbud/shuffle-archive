@@ -40,6 +40,6 @@
 
 **2021:** *Springsteen on Broadway* resumes its limited return engagement at the St. James Theater in New York City after a month-long break. During the hiatus, the pandemic has resurged and masks are a requirement among the audience again. Bruce also winks at the recent "Thunder Road" debate, definitively and repetitively singing "sways" to put the matter to rest.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3](https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3)
 
 ![](../../assets/2024/08/Daily_Record_2021_08_27_X7-scaled.jpg)

@@ -56,7 +56,7 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 **2005:** At a second public rehearsal/benefit show (held in the afternoon) at Asbury Park's Paramount Theater for his upcoming solo tour, Bruce premieres "Reno" and surprises fans with the return of the Christic arrangement of "Real World." The bullet mic makes its debut on "Reason to Believe" and will remain a fixture on both this tour as well as the Magic Tour (albeit with very different arrangements).<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3>
 
@@ -80,7 +80,7 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 [Watch on Youtube: Bruce Springsteen - I Wanna Be sedated (Boston 2009)](https://www.youtube.com/watch?v=kCvJo1-Z3B8)
 
-[https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3>
 

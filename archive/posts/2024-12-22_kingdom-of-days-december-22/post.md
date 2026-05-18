@@ -22,7 +22,7 @@
 
 **1984:** As "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" moves up the charts, *American Top 40* host Casey Kasem lauds Bruce's work ethic.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/12/AT40-1984-12-22.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2021/12/AT40-1984-12-22.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2021/12/AT40-1984-12-22.mp3](https://estreetshuffle.com/wp-content/uploads/2021/12/AT40-1984-12-22.mp3)
 
 **2002:** Bruce holds a private holiday party and performance at The Stone Pony in Asbury Park.<br>
 

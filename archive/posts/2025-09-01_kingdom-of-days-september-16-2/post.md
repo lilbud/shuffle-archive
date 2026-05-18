@@ -62,7 +62,7 @@
 
 **2004:** The Castiles get their first radio airplay when recordings of their 1967 performances at The Left Foot are played on NPR.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2019/09/20090106_atc_preglorydays.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/09/20090106_atc_preglorydays.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2019/09/20090106_atc_preglorydays.mp3](https://estreetshuffle.com/wp-content/uploads/2019/09/20090106_atc_preglorydays.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/09/20090106_atc_preglorydays.mp3>
 
@@ -82,7 +82,7 @@
 
 **2020:** Bruce bids farewell to the Summer of 2020 with “Summer’s End,” the twelfth installment of his *From My Home to Yours* radio show on E Street Radio.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-16-Bruce-E-Street-Radio-DJ-set-12.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-16-Bruce-E-Street-Radio-DJ-set-12.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-16-Bruce-E-Street-Radio-DJ-set-12.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-16-Bruce-E-Street-Radio-DJ-set-12.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/09/2020-09-16-Bruce-E-Street-Radio-DJ-set-12.mp3>
 

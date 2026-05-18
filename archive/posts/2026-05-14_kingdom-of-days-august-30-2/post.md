@@ -36,7 +36,7 @@ Later that night–so late that it's technically the following day, August 31–
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JWgi0SwOr0I)
 
-[https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-30-E-Rutherford-IEM-Trapped.mp3>
 

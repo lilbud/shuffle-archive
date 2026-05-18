@@ -10,7 +10,7 @@ Getting Bruce to appear on your track is a tall order under normal circumstances
 
 One day, Antonoff brought the track with him to Bruce's home studio, and… well, let's let him tell us what happened next in this clip from an NPR interview from last year.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/20210729_me_jack_antonoff_and_bruce_springsteen_head_home_to_jersey_on_bleachers_chinatown1.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/05/20210729_me_jack_antonoff_and_bruce_springsteen_head_home_to_jersey_on_bleachers_chinatown1.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/20210729_me_jack_antonoff_and_bruce_springsteen_head_home_to_jersey_on_bleachers_chinatown1.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/20210729_me_jack_antonoff_and_bruce_springsteen_head_home_to_jersey_on_bleachers_chinatown1.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/20210729_me_jack_antonoff_and_bruce_springsteen_head_home_to_jersey_on_bleachers_chinatown1.mp3>
 

@@ -2,19 +2,19 @@
 
 Bobby Alfano was the last member to join Bruce Springsteen’s first band, The Castiles, in September 1966. In a 2004 NPR interview, Alfano related how he fell into Bruce’s circle:
 
-[https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-Castiles.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-Castiles.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-Castiles.mp3](https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-Castiles.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-Castiles.mp3>
 
 By that point, The Castiles had already been playing together for over a year as a guitar-driven band, but Bruce decided they needed an organist. Not everyone was convinced, though…
 
-[https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-how-joined.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-how-joined.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-how-joined.mp3](https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-how-joined.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-how-joined.mp3>
 
 Once Bobby joined, he remained with The Castiles until they disbanded two years later, at which point he became the only Castile to join Bruce’s new band, Earth.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-disband.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-disband.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-disband.mp3](https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-disband.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-disband.mp3>
 
@@ -22,7 +22,7 @@ Bruce and Bobby both aspired to lifelong careers in music. Before long, though, 
 
 In 1972, when Bruce formed what would become the E Street Band to record his debut album, Alfano was the first organist he called. Bobby was about to get married, though, and he needed a reliable, steady job to support the family he was about to start. Regrettably, Alfano declined Bruce’s job offer, and Bruce continued his search.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/01/alfano-career.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2021/01/alfano-career.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2021/01/alfano-career.mp3](https://estreetshuffle.com/wp-content/uploads/2021/01/alfano-career.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/01/alfano-career.mp3>
 
@@ -32,7 +32,7 @@ In the early 1970s, Bruce focused on his career, zealously guarding it against a
 
 It was shortly after the release of *Born to Run* in the summer of 1975 that Bruce ran into Bobby on the Asbury Park Boardwalk. In that same NPR interview, Alfano shared his recollection of their reunion.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-reunion.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-reunion.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-reunion.mp3](https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-reunion.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/01/Alfano-reunion.mp3>
 

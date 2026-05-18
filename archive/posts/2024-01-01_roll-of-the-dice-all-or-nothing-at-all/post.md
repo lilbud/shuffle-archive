@@ -17,7 +17,7 @@ So yeah, the chorus says it all: the narrator wants his love to give him all of 
 
 (Bonus: If you like the released version above, check out the studio outtake below–it's almost a minute longer!)
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3>
 

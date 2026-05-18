@@ -24,7 +24,7 @@ Like Southside and Stevie twenty years earlier, Bruce added a modern horn sectio
 
 For years, fans have debated over which version is the superior one, and it inevitably comes down to a comparison of the lead vocals. Bruce's haunted, impassioned version stands up well next to Southside's. So similar are their versions, in fact, that one could mix the two seamlessly to create a faux duet–as one enterprising fan unofficially did. Take a listen below.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/09/01-Hearts-of-Stone.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/09/01-Hearts-of-Stone.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2022/09/01-Hearts-of-Stone.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/01-Hearts-of-Stone.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/09/01-Hearts-of-Stone.mp3>
 
@@ -81,7 +81,7 @@ Unfortunately, that debut performance kind of sucked.
 
 The blame can't be placed with Bruce, though: the fault lies with Southside, who so thoroughly and completely forgets the lyrics that it's painful to listen to. (I suppose we could blame Bruce for not coming to his buddy's rescue sooner.)
 
-[https://estreetshuffle.com/wp-content/uploads/2022/09/1988-11-26-Hearts-of-Stone.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2022/09/1988-11-26-Hearts-of-Stone.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2022/09/1988-11-26-Hearts-of-Stone.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/1988-11-26-Hearts-of-Stone.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/09/1988-11-26-Hearts-of-Stone.mp3>
 

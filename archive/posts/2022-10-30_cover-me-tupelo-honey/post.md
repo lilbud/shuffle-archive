@@ -1,6 +1,6 @@
 Van Morrison may have always had a few bones to pick with Bruce Springsteen, but Bruce only ever had homage to pay.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteens-Desert-Island-Discs-Dec-2016-Radio-Interview-Talks-about-his-Life-and-Music.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteens-Desert-Island-Discs-Dec-2016-Radio-Interview-Talks-about-his-Life-and-Music.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteens-Desert-Island-Discs-Dec-2016-Radio-Interview-Talks-about-his-Life-and-Music.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteens-Desert-Island-Discs-Dec-2016-Radio-Interview-Talks-about-his-Life-and-Music.mp3)
 
 Springsteen named Morrison's "Madame George" one of his desert island discs, and although he credits the song for inspiring "New York City Serenade," we can also hear an unmistakable imprint on "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)."
 
@@ -14,7 +14,7 @@ When Bruce took the E Street Band on tour in support of his *Tunnel of Love* alb
 
 [Watch on Youtube: Bruce Springsteen - CRAZY LOVE/ TUPELO HONEY 1988 (audio)](https://www.youtube.com/watch?v=0SQ-gElK3lE)
 
-[https://estreetshuffle.com/wp-content/uploads/2022/10/09-Tupelo-Honey.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/10/09-Tupelo-Honey.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2022/10/09-Tupelo-Honey.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/09-Tupelo-Honey.mp3)
 
 It probably would have been too delicate and tender to include in arena shows (let alone European stadiums), but in an empty hall, "Tupelo Honey" enchanted.
 

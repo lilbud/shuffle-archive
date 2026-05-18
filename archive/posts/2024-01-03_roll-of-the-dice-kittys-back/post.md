@@ -20,7 +20,7 @@ Those elements would turn up in Bruce's early work from time to time until he fi
 
 Bruce and the band recorded "Kitty's Back" in the summer of '73. A contemporaneous early performance of the song–almost certainly from a show just prior to or during those sessions–reveals an almost final but still clearly work-in-progress song, especially the final section where Bruce hadn't quite settled on the lyrics.
 
-[https://estreetshuffle.com/wp-content/uploads/2022/01/06-Kittys-Back-earliest-known-live-version-1973-2.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/01/06-Kittys-Back-earliest-known-live-version-1973-2.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/01/06-Kittys-Back-earliest-known-live-version-1973-2.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/06-Kittys-Back-earliest-known-live-version-1973-2.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/01/06-Kittys-Back-earliest-known-live-version-1973-2.mp3>
 

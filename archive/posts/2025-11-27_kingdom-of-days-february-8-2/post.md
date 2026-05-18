@@ -12,7 +12,7 @@
 
 **1997:** Bruce plays his second of five solo acoustic shows in Sydney.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3?_=8)
+[https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3>
 

@@ -12,7 +12,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "Needles and Pins" - Soundcheck in Geneva , 1975-07-22](https://www.youtube.com/watch?v=zaANhuBBSzc)
 
-[https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/07/02-YOU-REALLY-GOT-ME.mp3>
 

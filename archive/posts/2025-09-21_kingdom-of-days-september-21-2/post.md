@@ -90,9 +90,9 @@ Also today, *Bruce Springsteen & The E Street Band* is nominated for Emmy Awards
 
 **2004:** Patti's solo mini-tour continues at the Bowery Ballroom in New York City, where Bruce joins her on guitar and backing vocals for "[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)" and "[Love (Stand Up)](https://estreetshuffle.com/index.php/2021/02/14/matr-patti-scialfa-and-bruce-springsteen-love-stand-up/)."<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2020/09/02-As-Long-As-I-Can-Be-With-You.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2020/09/02-As-Long-As-I-Can-Be-With-You.mp3?_=9)
+[https://estreetshuffle.com/wp-content/uploads/2020/09/02-As-Long-As-I-Can-Be-With-You.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/02-As-Long-As-I-Can-Be-With-You.mp3)
 
-[https://estreetshuffle.com/wp-content/uploads/2020/09/01-Love-Stand-Up.mp3?_=10](https://estreetshuffle.com/wp-content/uploads/2020/09/01-Love-Stand-Up.mp3?_=10)
+[https://estreetshuffle.com/wp-content/uploads/2020/09/01-Love-Stand-Up.mp30](https://estreetshuffle.com/wp-content/uploads/2020/09/01-Love-Stand-Up.mp30)
 
 **2007:** Bruce and the E Street Band rehearse for their upcoming Magic Tour at Convention Hall in Asbury Park.<br>
 

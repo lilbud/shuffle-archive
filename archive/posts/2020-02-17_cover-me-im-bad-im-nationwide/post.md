@@ -12,7 +12,7 @@ He played it a few times with the house band, Cats on a Smooth Surface:
 
 He played it with John Eddie and The Frontstreet Runners:
 
-[https://estreetshuffle.com/wp-content/uploads/2018/06/John-Eddie-Bruce-track-1-online-audio-converter.com-1.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/06/John-Eddie-Bruce-track-1-online-audio-converter.com-1.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/06/John-Eddie-Bruce-track-1-online-audio-converter.com-1.mp3](https://estreetshuffle.com/wp-content/uploads/2018/06/John-Eddie-Bruce-track-1-online-audio-converter.com-1.mp3)
 
 And he played it with La Bamba and The Hubcaps:
 

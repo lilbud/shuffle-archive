@@ -1,10 +1,10 @@
 **1972:** The Bruce Springsteen Band plays their seventh show this month at The Back Door in Richmond. This show features the only known circulating performance of “[Down to the Riverside](https://estreetshuffle.com/index.php/2021/10/15/roll-of-the-dice-down-to-the-riverside/).”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/06/01-Bless-My-Soul.mp3>
 

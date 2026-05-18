@@ -20,7 +20,7 @@
 
 **1989:** Bruce makes a guest appearance with Jackson Browne at Bally's Atlantic City casino, playing "[Stay](https://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)," "[Running on Empty,](https://estreetshuffle.com/index.php/2021/03/24/matr-jackson-browne-and-bruce-springsteen-running-on-empty/)" and "[Sweet Little Sixteen](https://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)."<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/06/09-Track09.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/06/09-Track09.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2022/06/09-Track09.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/09-Track09.mp3)
 
 [Watch on Youtube: Jackson Browne and Bruce Springsteen - Sweet Little Sixteen (Live 1989)](https://www.youtube.com/watch?v=KZjA-f-jhIw)
 
@@ -72,7 +72,7 @@
 
 **2021:** Bruce releases the 24th installment of his E Street Radio show, *From My Home to Yours*, entitled "Night Time is the Right Time."<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-30-Bruce-E-Street-Radio-DJ-set-24.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-30-Bruce-E-Street-Radio-DJ-set-24.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-30-Bruce-E-Street-Radio-DJ-set-24.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-30-Bruce-E-Street-Radio-DJ-set-24.mp3)
 
 That evening, *Springsteen on Broadway* continues its return engagement at the St. James Theater in New York City, and Jon Stewart, Patti Hansen, and Michael Kors are in attendance.
 

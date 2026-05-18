@@ -56,7 +56,7 @@ Which is exactly how Bruce seems to have treated it: "When You Need Me" has neve
 
 **Update #1:** Astute reader Yoli Clavero noted that while Bruce hasn't performed "When You Need Me" in concert, he did rehearse it way back on March 30, 1993. Here's that recording below. Gracias, Yoli!<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3](https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3>
 

@@ -62,7 +62,7 @@
 
 **2020:** E Street Radio airs a special installment of Bruce’s radio show, *From My Home to Yours,* with guest-stars Little Steven and Southside Johnny. This seventh episode is entitled *4th of July, Asbury Park,* and together the three lifelong friends celebrate the rich history of the Asbury Park music scene.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-01-Bruce-E-Street-Radio-DJ-set-7.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-01-Bruce-E-Street-Radio-DJ-set-7.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-01-Bruce-E-Street-Radio-DJ-set-7.mp3](https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-01-Bruce-E-Street-Radio-DJ-set-7.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-01-Bruce-E-Street-Radio-DJ-set-7.mp3>
 

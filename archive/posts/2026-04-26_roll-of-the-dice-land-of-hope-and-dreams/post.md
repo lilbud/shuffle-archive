@@ -32,7 +32,7 @@ He wrote the song prior to the 1999-2000 Reunion tour and debuted it at a rehear
 
 You can hear that first, original rehearsal performance below. "We're still learning it!" Bruce laughs over the extended intro, and the lyrics are still not quite final. ("You don't know where you're going, and the sky is turning black" is a fascinating artifact of how the song became more hopeful in its final form, and the reference to "midnight ramblers" makes the callback to "This Train" even more obvious.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/First-LOHAD-99.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/01/First-LOHAD-99.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/First-LOHAD-99.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/First-LOHAD-99.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/01/First-LOHAD-99.mp3>
 
@@ -42,7 +42,7 @@ And then came "Land of Hope and Dreams", meant as a rebirth song, a re-dedicatio
 
 Sixteen months later, Bruce and the band performed the song to close out the Reunion tour; this performance appears on the official *Live in New York City* CD/DVD release:
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/bs000701d3_09_The_Land_of_Hope_and_Dreams.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/01/bs000701d3_09_The_Land_of_Hope_and_Dreams.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/bs000701d3_09_The_Land_of_Hope_and_Dreams.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/bs000701d3_09_The_Land_of_Hope_and_Dreams.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/01/bs000701d3_09_The_Land_of_Hope_and_Dreams.mp3>
 
@@ -54,7 +54,7 @@ My all-time favorite "Land of Hope and Dreams" performance is an acoustic one, a
 
 What happens next is one of those unpredictable magic Springsteen moments: without missing a single beat, Bruce throws his guitar to Kevin Buell, his guitar tech, and sings the bridge a capella. Kevin returns an intact, tuned guitar to Bruce at the very moment the bridge ends, and Bruce resumes playing as if that was the plan all along. The crowd, of course, goes nuts.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/01/d11t11.Land-of-Hope-and-Dreams-2005-05-11-Chicago-Midnight-Rider-Version.mp3>
 

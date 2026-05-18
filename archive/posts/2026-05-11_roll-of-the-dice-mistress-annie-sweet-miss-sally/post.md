@@ -8,13 +8,13 @@ No one really knows what the song was called, because no one's seen a setlist wi
 
 Take a listen and decide for yourself who Bruce is singing about. (Me, I hear a different name in each version, so I think perhaps Bruce just changed the song over the holidays.)
 
-[https://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3>
 
 Now compare with this 1971 recording:
 
-[https://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3>
 

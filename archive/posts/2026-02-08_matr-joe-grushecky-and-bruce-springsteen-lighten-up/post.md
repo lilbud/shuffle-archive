@@ -4,7 +4,7 @@ For a brief time in 1995, Bruce Springsteen joined Joe Grushecky and the Housero
 
 This audio clip is the final encore from the October 20, 1995 show at Nick's Fat City, "Lighten Up" from Joe's album, *End of the Century*. Bruce is on background vocals and guitar, but you can hear him clearly. The song starts about a minute in.
 
-[https://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3>
 

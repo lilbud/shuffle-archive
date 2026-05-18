@@ -56,7 +56,7 @@
 
 **2021:** Bruce releases the 28th installment of *From My Home to Yours* on E Street Radio. This episode is entitled “Money Money.”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3](https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-15-Bruce-E-Street-Radio-DJ-set-28.mp3>
 

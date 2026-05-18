@@ -1,6 +1,6 @@
 Bruce and Patti made my job easy today. They discussed "Talk to Me Like the Rain," Patti's gorgeous 1993 track from her debut *Rumble Doll* album, at length on Bruce's *From My Home to Yours* radio show last summer.
 
-[https://estreetshuffle.com/wp-content/uploads/2021/09/2020-07-29-Bruce-ESR-DJ-set-9.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/09/2020-07-29-Bruce-ESR-DJ-set-9.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/09/2020-07-29-Bruce-ESR-DJ-set-9.mp3](https://estreetshuffle.com/wp-content/uploads/2021/09/2020-07-29-Bruce-ESR-DJ-set-9.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/09/2020-07-29-Bruce-ESR-DJ-set-9.mp3>
 

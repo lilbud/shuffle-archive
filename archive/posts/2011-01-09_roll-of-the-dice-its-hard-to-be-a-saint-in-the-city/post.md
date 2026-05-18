@@ -93,7 +93,7 @@ In concert, "Saint in the City" was an E Street setlist mainstay through the Dar
 
 In electric form, it seemed to serve primarily as a showcase for Bruce's guitar-playing from the beginning. Here's the first recorded performance of the song, from July 31, 1973:
 
-[https://estreetshuffle.com/wp-content/uploads/2018/10/06-Its-Hard-To-Be-A-Saint-In-The-City-online-audio-converter.com_.mp3?_=6](https://estreetshuffle.com/wp-content/uploads/2018/10/06-Its-Hard-To-Be-A-Saint-In-The-City-online-audio-converter.com_.mp3?_=6)
+[https://estreetshuffle.com/wp-content/uploads/2018/10/06-Its-Hard-To-Be-A-Saint-In-The-City-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/10/06-Its-Hard-To-Be-A-Saint-In-The-City-online-audio-converter.com_.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/10/06-Its-Hard-To-Be-A-Saint-In-The-City-online-audio-converter.com_.mp3>
 

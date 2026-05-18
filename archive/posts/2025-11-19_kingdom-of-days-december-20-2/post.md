@@ -36,12 +36,12 @@
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/12/2017-12-20-Thunder__Merged.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/12/2017-12-20-Thunder__Merged.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2022/12/2017-12-20-Thunder__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/2017-12-20-Thunder__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/12/2017-12-20-Thunder__Merged.mp3>
 
 **2020:** Bruce phones E Street Radio DJ Jim Rotolo for a year-in-review discussion, during which Bruce surprises fans with the premiere of an E Street Band cover of Slim Dunlap’s “Girlfriend.”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2025/12/2024-12-20-Bruceon-E-St-Radio.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2025/12/2024-12-20-Bruceon-E-St-Radio.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2025/12/2024-12-20-Bruceon-E-St-Radio.mp3](https://estreetshuffle.com/wp-content/uploads/2025/12/2024-12-20-Bruceon-E-St-Radio.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/12/2024-12-20-Bruceon-E-St-Radio.mp3>

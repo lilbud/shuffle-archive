@@ -8,7 +8,7 @@
 
 Earlier that same day, Bruce and Dave Sancious drop by WMMR-FM in Philadelphia to play guest DJ with host David Dye.
 
-[https://estreetshuffle.com/wp-content/uploads/2023/04/Flashback_-Bruce-Springsteen-Guest-DJ-Spot-on-MMR-April-7-1974.mp3?_=19](https://estreetshuffle.com/wp-content/uploads/2023/04/Flashback_-Bruce-Springsteen-Guest-DJ-Spot-on-MMR-April-7-1974.mp3?_=19)
+[https://estreetshuffle.com/wp-content/uploads/2023/04/Flashback_-Bruce-Springsteen-Guest-DJ-Spot-on-MMR-April-7-1974.mp39](https://estreetshuffle.com/wp-content/uploads/2023/04/Flashback_-Bruce-Springsteen-Guest-DJ-Spot-on-MMR-April-7-1974.mp39)
 
 <https://estreetshuffle.com/wp-content/uploads/2023/04/Flashback_-Bruce-Springsteen-Guest-DJ-Spot-on-MMR-April-7-1974.mp3>
 

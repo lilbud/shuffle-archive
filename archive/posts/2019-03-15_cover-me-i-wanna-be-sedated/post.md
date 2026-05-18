@@ -10,7 +10,7 @@ Apparently Bruce does, because he didn't hesitate to grab the sign request for T
 
 After taking a moment or ten to work out the song with the band, they barrel-rolled through it, as loose and woolly as the song deserves. Take a listen:
 
-[https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3)
 
 (Oh, and a fun fact about that brilliant video at the top of the post: that's a very young Courtney Love playing the role of the bride.)
 

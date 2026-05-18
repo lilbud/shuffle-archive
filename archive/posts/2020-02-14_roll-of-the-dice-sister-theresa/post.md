@@ -18,7 +18,7 @@ As far as we know, the boys only played "Sister Theresa" twice–the debut perfo
 
 Here's that second, superior performance–although we can't precisely date it, this one is very much worth a listen.
 
-[https://estreetshuffle.com/wp-content/uploads/2020/02/08-Sister-Teresa.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2020/02/08-Sister-Teresa.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2020/02/08-Sister-Teresa.mp3](https://estreetshuffle.com/wp-content/uploads/2020/02/08-Sister-Teresa.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2020/02/08-Sister-Teresa.mp3>
 

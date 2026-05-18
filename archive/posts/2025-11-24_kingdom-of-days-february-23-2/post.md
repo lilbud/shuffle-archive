@@ -44,13 +44,13 @@
 
 “America”:
 
-[https://estreetshuffle.com/wp-content/uploads/2019/02/02-Americas.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2019/02/02-Americas.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/02-Americas.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/02-Americas.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/02/02-Americas.mp3>
 
 “Purple Rain”:
 
-[https://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3](https://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3>
 

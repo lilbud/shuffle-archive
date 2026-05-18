@@ -26,7 +26,7 @@
 
 **2003:** Bruce and the E Street Band close out their ten-night stand at Giants Stadium, opening with the very first live performance of "Cynthia." A few songs later, "Lucky Town" makes its only tour appearance, and a full-band "Jersey Girl" fittingly closes the show.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3>
 

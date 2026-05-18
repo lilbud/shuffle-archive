@@ -8,7 +8,7 @@ But while Bruce was writing and recording his most serious and mature music to d
 
 And then there was "I Wanna Be With You." First recorded in June 1977, the lyrics had the desperation of *Darkness* paired with a simple guitar riff that grabbed you from the first and an ambling E Street band that couldn't quite match the fervor of the song's protagonist. It too went into the vault, but you can hear that first never-released Darkness-era recording here:
 
-[https://estreetshuffle.com/wp-content/uploads/2018/01/06-Bruce-Springsteen-I-Wanna-Be-With-You-online-audio-converter.com_.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2018/01/06-Bruce-Springsteen-I-Wanna-Be-With-You-online-audio-converter.com_.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/06-Bruce-Springsteen-I-Wanna-Be-With-You-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/06-Bruce-Springsteen-I-Wanna-Be-With-You-online-audio-converter.com_.mp3)
 
 Bruce had always been fascinated with pop music. One of his favorite pop bands was The Raspberries (Bruce has often encouraged his fans to seek out their recordings, even decades later) and it's clear that "I Wanna Be With You" was at least in part an homage to them. In fact, the first song on The Raspberries' first album bears the same name and covers similar ground:
 

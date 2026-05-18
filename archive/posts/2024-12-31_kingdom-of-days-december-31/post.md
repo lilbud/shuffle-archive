@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Bruce Springsteen ♪ New Year's Eve countdown 12/31/77-Capitol Theatre](https://www.youtube.com/watch?v=36xjaG4ZBd4)
 
-[https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3)
 
 ![](../../assets/2020/12/1977-12-31.png)
 

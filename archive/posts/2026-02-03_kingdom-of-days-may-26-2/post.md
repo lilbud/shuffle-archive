@@ -12,7 +12,7 @@
 
 **1981:** Bruce plays the first of two shows in Brighton, England.<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3>
 
@@ -54,7 +54,7 @@
 
 **2021:** Bruce’s *From My Home to Yours* radio show continues on E Street Radio with Episode 22, “Radio Radio.”<br>
 
-[https://estreetshuffle.com/wp-content/uploads/2022/05/2021-05-26-Bruce-E-Street-Radio-DJ-set-22.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/05/2021-05-26-Bruce-E-Street-Radio-DJ-set-22.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2022/05/2021-05-26-Bruce-E-Street-Radio-DJ-set-22.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/2021-05-26-Bruce-E-Street-Radio-DJ-set-22.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/05/2021-05-26-Bruce-E-Street-Radio-DJ-set-22.mp3>
 

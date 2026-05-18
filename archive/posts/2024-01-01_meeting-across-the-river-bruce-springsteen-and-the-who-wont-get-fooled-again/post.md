@@ -2,7 +2,7 @@ On May 28, 2015, the MusiCares Foundation honored Pete Townshend at their annual
 
 Bruce has cited The Who as a major influence on several occasions, most notably in an entertaining and enlightening conversation with Steve Van Zandt on the Underground Garage in 2011:
 
-[https://estreetshuffle.com/wp-content/uploads/2018/03/01-Track-11.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/03/01-Track-11.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/03/01-Track-11.mp3](https://estreetshuffle.com/wp-content/uploads/2018/03/01-Track-11.mp3)
 
 <https://estreetshuffle.com/wp-content/uploads/2018/03/01-Track-11.mp3>
 
