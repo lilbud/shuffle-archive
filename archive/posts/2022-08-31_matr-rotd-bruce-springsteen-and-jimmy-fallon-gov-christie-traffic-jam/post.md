@@ -24,7 +24,7 @@ And not just any song. They rewrote "Born to Run" in light of recent events (I s
 
 > *In the day, we sweated out on the streets, stuck in traffic on the G.W.B.*<br>
 > *They shut down the toll booths of glory 'cause we didn't endorse Christie*<br>
-*Sprung from cages on Highway 9, we got three lanes closed, so Jersey get your ass in line*
+> *Sprung from cages on Highway 9, we got three lanes closed, so Jersey get your ass in line*
 > *Whoa, maybe this Bridgegate was just payback, it's a bitch slap*<br>
 > *To the state Democrats, we got to get out but we can't*<br>
 > *We're stuck in Governor Chris Christie's Fort Lee New Jersey traffic jam*<br>

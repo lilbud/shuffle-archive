@@ -33,7 +33,7 @@ Given the start-to-finish St. Theresa metaphor, I'm forced to wonder whether the
 Either way, the song works, I suppose, but it doesn't resonate with me as a particularly devotional: the lyrics compare Theresa's physical attributes only:
 
 > *the bones in your back like the Stations of the Cross…*
-*‘Round your hair the sun lifts a halo*
+> *‘Round your hair the sun lifts a halo*
 > *At your lips a crown of thorns…*
 > *The pages of Revelation lie open in your empty eyes of blue…*
 > *The rosary at your feet, my temple of bones…*

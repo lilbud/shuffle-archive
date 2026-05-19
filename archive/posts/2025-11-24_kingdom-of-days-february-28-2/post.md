@@ -2,7 +2,7 @@
 
 **1970:** Steel Mill plays their second of two shows at Richmond’s Free University. This is Vinnie Roslin’s final show; Steven Van Zandt will replace him within the month.<br>
 
-*![](../../assets/2021/02/1970-0228.jpg)*
+![](../../assets/2021/02/1970-0228.jpg)
 
 **1973:** Bruce and the as-yet-unnamed E Street Band play the only show out of two weeks of scheduled gigs opening for Paul Butterfield’s Better Days that is held as scheduled–the rest were cancelled for low ticket sales–and even this show is poorly attended.<br>
 

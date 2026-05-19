@@ -19,6 +19,10 @@ def extra_fixes(content: str) -> str:
         if not line.startswith("**") and ":**" in line:
             content = content.replace(line, f"**{line}")
 
+        # add blockquote marker to italic lines
+        if line.startswith("*") and line.endswith("*") and ":*" not in line:
+            content = content.replace(line, f"> {line}")
+
     return content
 
 

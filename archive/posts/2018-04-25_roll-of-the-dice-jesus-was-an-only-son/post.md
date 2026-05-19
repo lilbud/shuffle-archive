@@ -15,9 +15,9 @@ And then I understood. Viscerally. At the time "Jesus Was an Only Son" came out,
 Most of the lyrics trace the events and emotions of Jesus' last day and night, but for me, the key verse comes toward the end:
 
 > *Now there's a loss that can never be replaced*
-*A destination that can never be reached*
-*A light you'll never find in another's face*
-*A sea whose distance cannot be breached*
+> *A destination that can never be reached*
+> *A light you'll never find in another's face*
+> *A sea whose distance cannot be breached*
 
 That verse transcends its context. On its face, Bruce is writing about Mary about to forever lose her child to death. But those lines also resonate with the pride and heartache of a parent losing their child to adulthood, watching them of necessity pull away, distance themselves, and set off on their own journey. That verse played through my mind a lot during those years. They didn't provide comfort, but they reminded me to pay attention–to notice and savor and remember the rest of their childhood, so that their transition into adulthood would feel more like a gift than a loss.
 

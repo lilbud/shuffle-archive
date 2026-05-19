@@ -17,7 +17,7 @@ Editor's Note
 > *I am become a name;*<br>
 > *For always roaming with a hungry heart*<br>
 > *Much have I seen and known*<br>
-*— Tennyson, "Ulysses"*
+> *— Tennyson, "Ulysses"*
 
 > *Push off, and sitting well in order smite*<br>
 > *The sounding furrows; for my purpose holds*<br>

@@ -4,7 +4,7 @@
 
 ![](../../assets/2025/04/19690402_Advert_02.jpg)
 
-*![](../../assets/2024/04/Asbury_Park_Press_Fri__Apr_11__1969_-scaled.jpg)*
+![](../../assets/2024/04/Asbury_Park_Press_Fri__Apr_11__1969_-scaled.jpg)
 
 **1974:** Bruce and most of the E Street Band (Boom Carter is not in attendance) drop by WBCN-FM in Boston before playing two shows at Charlie’s Place in Cambridge. The radio broadcast is well worth a listen–check out the acoustic arrangement of “Rosalita (Come Out Tonight)” and the first documented performance of the alternative third verse for “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”<br>
 
