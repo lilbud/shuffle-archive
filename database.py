@@ -58,7 +58,7 @@ def insert_post() -> None:
                 media = None
             else:
                 cur.execute(
-                    """insert into media (id) values (%s) on conflict (id) do nothing""",
+                    """insert into featured_media (id) values (%s) on conflict (id) do nothing""",
                     (media,),
                 )
                 conn.commit()

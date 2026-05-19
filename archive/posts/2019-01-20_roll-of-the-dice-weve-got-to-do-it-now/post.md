@@ -39,7 +39,7 @@ But we'll probably never know, and it would rank pretty close to the bottom of t
 
 **We've Got to Do It Now**<br>
 **Never recorded**<br>
-Never released
+**Never released**
 **First performed:** November 27, 1970 (Asbury Park, NJ)<br>
 **Last performed:** November 27, 1970 (Asbury Park, NJ)<br>
 

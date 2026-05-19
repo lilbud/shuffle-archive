@@ -3,6 +3,7 @@ import re
 import shutil
 from pathlib import Path
 
+import pandas as pd
 import psycopg
 
 from database import load_db
@@ -189,10 +190,10 @@ def get_posts(
                 p.title,
                 p.excerpt,
                 'Ken' as author,
-                p.published::date || '-' || slugify (p.title) as filename,
+                p.published::date || '-' || p.slug as filename,
                 string_agg(distinct t.slug, ' ') as tag_list,
                 string_agg(distinct c.slug, ' ') FILTER (WHERE c.id < 3601) as category_list,
-                m.url as header_img,
+                regexp_replace(m.url, 'http://estreetshuffle.com/wp-content/uploads/', '../../assets/') as header_img,
                 p.post_id,
                 p.content,
                 p.url,
@@ -202,11 +203,7 @@ def get_posts(
                 left join categories c on c.id = pc.category_id
                 left join post_tags pt on pt.post_id = p.id
                 left join tags t on t.id = pt.tag_id
-                left join media m on m.id = p.featured_media
-            --WHERE p.id in (select id from ids)
-            --and p.published > '2018-01-01'
-            -- and p.published <= '2025-10-31'
-            --and pc.category_id = 3
+                left join featured_media m on m.id = p.featured_media
             group by
             2,3,12
         )
@@ -250,9 +247,9 @@ def main(cur: psycopg.Cursor, slug: int) -> None:
 
                 if post["tag_list"]:
                     f.write(f"tags: {post['tag_list']}\n")
-                
+
                 if post["category_list"]:
-                    f.write(f'categories: {post["category_list"]}\n')
+                    f.write(f"categories: {post['category_list']}\n")
 
                 if post["header_img"]:
                     f.write(f"header_img: {post['header_img']}\n")
@@ -265,13 +262,14 @@ def main(cur: psycopg.Cursor, slug: int) -> None:
 
 if __name__ == "__main__":
     with load_db() as conn, conn.cursor() as cur:
-        # replace_with_internal(cur)
-        count = 0
-        category = "3326"
+        df = pd.read_csv(
+            r"C:\Users\bvw20\Documents\Personal\Projects\Bruce Stuff\Websites\e-street-shuffle\shuffle-archive\notes\sheets\master-post-list.csv",
+        )
 
-        with Path(r"C:\Users\bvw20\Documents\Personal\Projects\Bruce Stuff\Websites\e-street-shuffle\shuffle-archive\notes\sheets\master-post-list.csv").open("r", encoding="utf-8") as f:
-            for line in f:
-                main(slug=line.split(",")[1], cur=cur)
-                count += 1
-    
-    print(f"Posts Saved for Category: {category} - {count}")
+        for row in df.itertuples():
+            main(slug=row.id, cur=cur)
+        # with Path(
+        #     r"C:\Users\bvw20\Documents\Personal\Projects\Bruce Stuff\Websites\e-street-shuffle\shuffle-archive\notes\sheets\master-post-list.csv",
+        # ).open("r", encoding="utf-8") as f:
+        #     for line in f:
+        #         main(slug=line.split(",")[0], cur=cur)

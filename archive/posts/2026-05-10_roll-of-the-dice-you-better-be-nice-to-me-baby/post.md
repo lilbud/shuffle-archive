@@ -74,8 +74,8 @@ Like much of The Bruce Springsteen Band's repertoire, "You Better Be Nice to Me,
 If you enjoyed this little road trip in the wayback machine, you'll be happy to know we've got at least one more return visit ahead of us later this summer. And if not, never fear–we'll be back in Bruce's officially released catalog in just a few days.
 
 **You Better Be Nice to Me, Baby**<br>
-Never recorded
-Never released
+**Never recorded**
+**Never released**
 **First performed:** September 1, 1971 (Long Branch, NJ)<br>
 **Last performed:** September 1, 1971 (Long Branch, NJ)<br>
 

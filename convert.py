@@ -9,7 +9,7 @@ from cleanup import initial_cleanup
 
 
 def extra_fixes(content: str) -> str:
-    """Apply a few fixes for missing bolded tags."""
+    """Apply a few fixes to resulting markdown."""
     for line in content.split("\n"):
         # missing ending bold tag
         if line.startswith("**") and not line.endswith("**") and ":**" not in line:
@@ -20,7 +20,12 @@ def extra_fixes(content: str) -> str:
             content = content.replace(line, f"**{line}")
 
         # add blockquote marker to italic lines
-        if line.startswith("*") and line.endswith("*") and ":*" not in line:
+        if (
+            line.startswith("*")
+            and line.endswith("*")
+            and ":*" not in line
+            and "![]" not in line
+        ):
             content = content.replace(line, f"> {line}")
 
     return content
