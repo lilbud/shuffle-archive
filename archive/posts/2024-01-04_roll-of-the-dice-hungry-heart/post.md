@@ -119,7 +119,7 @@ As October gave way to November, Bruce grew more comfortable with the song on st
 
 As it turned out, the essential element would come two weeks later, and it wouldn't come from the stage. By November 20th, "Hungry Heart" was already Bruce's best-selling single and the first to crack the Top 10. In concert, polite attention had evolved into eager anticipation. The audience reception escalated each night until finally his Chicago audience proved unable to wait for him to start singing.
 
-[Watch Video Highlight](https://videopress.com/embed/orWUOCsG?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/orWUOCsG)
 
 Paul Rappaport, former VP of Columbia Records, was there that night and shared his recollection in a 2016 blog post.
 
@@ -151,7 +151,7 @@ For as long as Bruce continues to tour, his audiences will keep singing that fir
 
 Believe it or not, though, the first time Bruce played an acoustic "Hungry Heart" in public by himself was only a year ago, at Stand Up for Heroes in November 2021. (Delicate ears might want to skip past the opening joke.)
 
-[Watch Video Highlight](https://videopress.com/embed/md0CXS3t?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/md0CXS3t)
 
 **Bonus #2:** If you listened to that 2005 clip above and wondered "Wolfgang who?" there's a reason why Bruce chose that song for that occasion.<br>
 

@@ -55,7 +55,7 @@ Other than the rare exceptional occasion, Bruce typically found his audiences re
 
 In the years since, "Empty Sky" has been essentially relegated to the history books (apart from a couple of cameos), too quiet for Bruce's rock setlists and too far removed from the original events for modern audiences to appreciate its nuance. On vinyl, though, it remains one of the central, essential tracks that gives *The Rising* its enduring power.
 
-[Watch Video Highlight](https://videopress.com/embed/1Uvx6IoY?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/1Uvx6IoY)
 
 **Empty Sky**<br>
 **Recorded** March-April, 2002<br>

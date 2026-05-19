@@ -112,7 +112,7 @@ You can be the judge of which band nailed it best. Here's a snippet from the ver
 
 Contrast that with the very first E Street Band performance of "Human Touch," from late in the Reunion Tour:
 
-[Watch Video Highlight](https://videopress.com/embed/ZCVQXnYW?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/ZCVQXnYW)
 
 Regardless of which way you lean, there's no denying: by the time the *High Hopes* Tour came around, the E Street Band had enough "Human Touch" performances under their belt for it to feel like the song had been meant for them all along.
 

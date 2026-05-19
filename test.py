@@ -44,14 +44,16 @@ from database import load_db
 #     with Path(f"ia_json/{data['id']}_{int(timestamp)}.json").open("w", encoding="utf-8") as f:
 #         json.dump(data, f)
 
-with load_db() as conn, conn.cursor() as cur:
-    folder = Path(r".\archive\posts\2024-01-02_cover-me-fire")
+# with load_db() as conn, conn.cursor() as cur:
+#     folder = Path(r".\archive\posts\2024-01-02_cover-me-fire")
 
-    data = Path(folder, "meta.json").read_text(encoding="utf-8")
+#     data = Path(folder, "meta.json").read_text(encoding="utf-8")
 
-    data = json.loads(data)
+#     data = json.loads(data)
 
-    content = initial_cleanup(data["content"]["rendered"])
-    content = html_to_markdown.convert(content)
+#     content = initial_cleanup(data["content"]["rendered"])
+#     content = html_to_markdown.convert(content)
 
-    Path(folder, "post.md").write_text(content, encoding="utf-8")
+#     Path(folder, "post.md").write_text(content, encoding="utf-8")
+
+print("https://videopress.com/embed/laIqiHGm?hd=0&cover=1".split("?")[0])

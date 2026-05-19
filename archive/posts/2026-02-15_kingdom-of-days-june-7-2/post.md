@@ -2,7 +2,7 @@
 
 **1972:** Recording sessions begin for Bruce's first album, *Greetings From Asbury Park, N.J.* Bruce records five solo tracks today: "Arabian Nights," "Cowboys of the Sea," "Growin' Up," "Lady and the Doctor," and "Street Queen." Only "Growin' Up" will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.<br>
 
-[Watch Video Highlight](https://videopress.com/embed/IvoYACpv?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/IvoYACpv)
 
 **1973:** Bruce and the E Street Band open for Chicago at the Onondaga County War Memorial Auditorium in Syracuse, New York. The local paper mis-identifies Bruce, and they aren't even close: somehow, they refer to him as "Bris Christy." Mr. Reschke didn't do so well with the song titles, either. See if you can figure out the songs Bruce actually played below.<br>
 

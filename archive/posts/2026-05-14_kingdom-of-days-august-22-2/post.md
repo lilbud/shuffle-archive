@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OvXIhNv4tKE)
 
-[Watch Video Highlight](https://videopress.com/embed/UrcFPCOo?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/UrcFPCOo)
 
 **1985:** At Night Four at Giants Stadium on the Born in the U.S.A. Tour, Little Steven makes a guest appearance during the encores. This show is available as part of Bruce's official archive series–get it [here](https://www.nugs.net/live-download-of-bruce-springsteen-giants-stadium-east-rutherford-nj-08-22-1985-mp3-flac-or-online-music-streaming/26772.html).<br>
 

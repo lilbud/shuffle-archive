@@ -46,7 +46,7 @@ There's no audio from the late show, and that's too bad: it features the last kn
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=z3u8-LpUISk)
 
-[Watch Video Highlight](https://videopress.com/embed/zkaKIjie?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/zkaKIjie)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=n8kIjzIZL5g)
 

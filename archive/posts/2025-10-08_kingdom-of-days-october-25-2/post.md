@@ -26,7 +26,7 @@
 
 **1980:** The River Tour heads south down the west coast, stopping for a night at Portland’s Memorial Coliseum, where Bruce and the band play “[On Top of Old Smoky](https://estreetshuffle.com/index.php/2019/08/24/cover-me-on-top-of-old-smoky/)” for the first and only time to date (in acknowledgement of the recent Mount St. Helens eruption).<br>
 
-[Watch Video Highlight](https://videopress.com/embed/tfj2O84c?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/tfj2O84c)
 
 [Watch on Youtube: Bruce Springsteen - DRIVE ALL NIGHT 1980 (audio)](https://www.youtube.com/watch?v=rxYcH2Y2Wo8)
 

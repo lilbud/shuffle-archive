@@ -10,7 +10,7 @@ John Legend has covered "Dancing in the Dar" many times in concert, including at
 
 But my favorite performance was during "Springsteen Week" in 2012 on the *The Tonight Show Starring Jimmy Fallon*. Legend made an appearance to play "Dancing in the Dark" with The Roots, and their team-up was atmospheric, jazzy and magical.
 
-[Watch Video Highlight](https://videopress.com/embed/3QbJHFVh?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/3QbJHFVh)
 
 Everyone knows Manfred Mann's cover of Bruce's "Blinded by the Light." True Springsteen fans know Manfred Mann's Earth Band also covered "For You" and "Spirit in the Night."
 

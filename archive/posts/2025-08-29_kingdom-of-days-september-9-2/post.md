@@ -48,7 +48,7 @@
 
 ![](../../assets/2021/09/2005-09-09b.jpg)
 
-**2016:** Night Two in Philadelphia on the “Autobiography Tour” can’t quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from [*Greetings from Asbury Park, N.J.*](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1973-0105-album.jpg?w=500&ssl=1), and “From Small Things (Big Things One Day Come)” and “[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)” make rare appearances. The amazing two-night stand is capped off by a show-closing “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” complete with fireworks. But for my money, the highlight of the show is one of the best-ever versions of “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/).” For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/09/09/where-the-band-was-philadelphia-september-9-2016/)<br>
+**2016:** Night Two in Philadelphia on the “Autobiography Tour” can’t quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from [*Greetings from Asbury Park, N.J.*](../../assets/2018/01/1973-0105-album.jpg)
 
 [Watch on Youtube: Out in the Street - Springsteen - Philadelphia Sept 9, 2016](https://www.youtube.com/watch?v=A98iOTcGFGA)
 

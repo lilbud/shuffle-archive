@@ -1,5 +1,7 @@
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
+![](../../assets/2024/04/Asbury_Park_Press_Fri__Apr_4__1969_-scaled.jpg)
+
 **1974:** Bruce and his band headline at Burlington County College in Pemberton, New Jersey.<br>
 
 **1976:** Kid Leo interviews Bruce on Cleveland's WMMS-FM radio.<br>
@@ -44,8 +46,6 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "Long Time Comin'" and "The Ghost of Tom Joad" in place of "Brilliant Disguise" and "Tougher Than the Rest." In attendance tonight: actress Gina Gershon.<br>
 
-![](../../assets/2024/04/Asbury_Park_Press_Fri__Apr_4__1969_-scaled.jpg)
-
-![](https://brucebase.wdfiles.com/local--resized-images/gallery%3A2018-04-06-walter-kerr-theatre-new-york-city-ny/20180406_GinaGershon_01.jpg/medium.jpg)
+![](../../assets/2025/03/20180406_GinaGershon_01.jpg)
 
 **2022:** Bruce celebrates Clive Davis' 90th birthday by recording a video salute and a performance of "Blinded by the Light."<br>

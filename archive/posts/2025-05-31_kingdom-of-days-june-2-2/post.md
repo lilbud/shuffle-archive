@@ -60,7 +60,7 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 
 **2009:** The Working on a Dream Tour starts its Scandinavian swing with a show at Ratinan Stadion in Tampere, Finland. It may be June, but that doesn’t stop Bruce from playing “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” as a request, along with a wonderful cover of “[The Dark End of the Street](https://estreetshuffle.com/index.php/2019/07/22/cover-me-the-dark-end-of-the-street/).”<br>
 
-[Watch Video Highlight](https://videopress.com/embed/76xBJLMt?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/76xBJLMt)
 
 [Watch Video Highlight](https://videopress.com/embed/5wnxi5ha)
 

@@ -4,7 +4,7 @@ The *New York Times* took that dare, and they weren't the only ones.
 
 At the 54th Annual Grammy Awards, Bruce Springsteen opened the show with the live debut of his new single.
 
-[Watch Video Highlight](https://videopress.com/embed/ud31M5qB?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/ud31M5qB)
 
 In his review of the event, the *New York Times* music critic wrote, "The show opened with Mr. Springsteen humorlessly churning through a new song, ‘We Take Care of Our Own,' which mistakes jingoism for empathy, "
 

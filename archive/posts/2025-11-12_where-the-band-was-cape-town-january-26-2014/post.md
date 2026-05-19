@@ -36,7 +36,7 @@ But Bruce must have had Pete Seeger on his mind the whole night, because intersp
 
 Bruce was also much looser at this show than at the opener. On Night 1, there were no requests, and the audience interactions were awkward (it was, after all, the first show for most in the audience). By Night 2, the audience was figuring out their participation parts, and Bruce spotted and granted a few requests signs.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/2014_01_29-cape-town.-sa-copy.webp)
+![](../../assets/2018/01/bs140129_01.jpg)
 
 Night 3 was a strange mix: on one hand, it was a throwback to the Wrecking Ball Tour, opening with “[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)” and featuring standards from that tour like “[Jack of All Trades,](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)” “[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)” “[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/),” and “[Rocky Ground](https://estreetshuffle.com/index.php/2023/03/20/roll-of-the-dice-rocky-ground/).” It’s almost as if Bruce felt bad that he skipped South Africa on that tour and wanted to give the locals a taste of what they missed.
 

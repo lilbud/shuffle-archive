@@ -26,7 +26,7 @@ And then, on March 19, 2005, Bruce assembled a group of musicians at his home to
 
 Note the Irish pronunciation of "McGraw" — that's a nuance that seems to have escaped Bruce when he recorded his version. He must have realized it before he played the song in Dublin, though–he corrected himself for that particular live performance:
 
-[Watch Video Highlight](https://videopress.com/embed/kPchYwxD?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/kPchYwxD)
 
 Bruce's new version is a powerful one: without altering the melody, he arranges it into a military march, making it impossible to miss the context.
 

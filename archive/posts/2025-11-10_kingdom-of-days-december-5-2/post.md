@@ -52,11 +52,11 @@
 
 **1998:** BBC produces and airs a documentary to coincide with the release of Tracks: *Bruce Springsteen: A Secret History.* It's very well done and highly recommended viewing–watch the full show below:<br>
 
-[Watch Video Highlight](https://videopress.com/embed/3Q8W4UOi?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/3Q8W4UOi)
 
-[Watch Video Highlight](https://videopress.com/embed/Z4Q1LXj7?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/Z4Q1LXj7)
 
-[Watch Video Highlight](https://videopress.com/embed/wyUyn5aj?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/wyUyn5aj)
 
 **2002:** Bruce and the E Street Band take the Rising Tour north to the Air Canada Center in Toronto.<br>
 

@@ -38,11 +38,11 @@ As for the journalists and critics in attendance, most are won over… but not a
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PxtqtXjKuSo)
 
-[Watch Video Highlight](https://videopress.com/embed/IaSVvsd3?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/IaSVvsd3)
 
-[Watch Video Highlight](https://videopress.com/embed/b1S6eFO9?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/b1S6eFO9)
 
-[Watch Video Highlight](https://videopress.com/embed/mcsdNdn1?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/mcsdNdn1)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qjnAIIAbok8)
 

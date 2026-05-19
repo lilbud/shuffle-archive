@@ -108,7 +108,7 @@ Bruce was not happy with the way that turned out, and even without the benefit o
 
 To add insult to injury, not only did the video escape into the bootleg wild, but so did video footage of Bruce and Clarence practicing their moves at home. Watch if you like, but be prepared to cringe.
 
-[Watch Video Highlight](https://videopress.com/embed/X0n4ro1l?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/X0n4ro1l)
 
 Bruce fired Stein and Pearl and hired up-and-coming director Brian DePalma instead, fresh off a run of popular and critically acclaimed films. Together, they came up with a new concept, a wish-fulfillment fantasy that every Springsteen fan could relate to.
 
@@ -130,7 +130,7 @@ Fans had good reason to practice those moves: from the very beginning, Bruce was
 
 In the meantime, while Bruce was filling arenas and stadiums, "Dancing in the Dark" was picking up awards. First, it won for Best Single at the American Music Awards in January 1985. Then he won a Grammy (his first ever) for Best Rock Vocal Performance, and the Best Stage Performance in a Video award at the VMAs.
 
-[Watch Video Highlight](https://videopress.com/embed/hYRH5uew?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/hYRH5uew)
 
 *Rolling Stone* readers voted "Dancing in the Dark" Single of the Year, and the magazine enshrined it as one of the 500 Songs That Shaped Rock and Roll. And while it didn't make it all the way to the top of the chart in America, it did in Belgium and The Netherlands, and it was the Number One song of the year in Australia.
 

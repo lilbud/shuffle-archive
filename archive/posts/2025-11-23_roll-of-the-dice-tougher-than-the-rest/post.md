@@ -83,7 +83,7 @@ I know this is usually the part of the essay where I share outstanding live perf
 
 Still, there are some rare and unusual performances that are worth checking out, starting with Bruce's very first performance of "Tougher Than the Rest," which happened months before the Tunnel of Love Express Tour at a rare E Street Band appearance (well, almost, anyway–neither Nils nor Clarence were present) at McLoone's Rum Runner at the Jersey Shore). It's not a great recording, but it's a historically significant one.
 
-[Watch Video Highlight](https://videopress.com/embed/bSuRxEka?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/bSuRxEka)
 
 Next up: a rare solo acoustic guitar performance from the Ghost of Tom Joad Tour, with gorgeous accompaniment from Soozie Tyrell's violin and Patti's vocals. I love this one.
 

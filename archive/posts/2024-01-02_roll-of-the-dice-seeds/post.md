@@ -93,7 +93,7 @@ And that *still* wasn't all. On Bruce's solo acoustic tour in support of *The Gh
 
 This arrangement was arguably the strongest one yet. Certainly, it was the bluesiest, trading in some of the song's anger for simmering resentment and defeatism.
 
-[Watch Video Highlight](https://videopress.com/embed/bjd4mLz9?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/bjd4mLz9)
 
 Like his Bridge School arrangement, though, this was just another one-off. When "Seeds" returned to Bruce's set lists on a regular basis (more than a decade later, on the recession-era Working on a Dream Tour), he'd returned to the original '85 arrangement.
 

@@ -96,12 +96,12 @@
 
 **2021:** At the fifteenth annual edition of Stand Up for Heroes at Alice Tulle Hall in New York City, Bruce performs four songs, including the public debut of “[Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)” and the first acoustic “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).”<br>
 
-[Watch Video Highlight](https://videopress.com/embed/4jab0Nll?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/4jab0Nll)
 
-[Watch Video Highlight](https://videopress.com/embed/Cor6CHI8?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/Cor6CHI8)
 
-[Watch Video Highlight](https://videopress.com/embed/md0CXS3t?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/md0CXS3t)
 
-[Watch Video Highlight](https://videopress.com/embed/OpcWI8O4?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/OpcWI8O4)
 
 **2023:** Bruce’s scheduled show in Calgary is postponed by more than a year due to his peptic ulcer disease.<br>

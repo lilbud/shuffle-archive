@@ -64,7 +64,7 @@ Although we're accustomed to glossing over female names in Springsteen's songsâ€
 
 Bruce lifted Jenny directly from *Journey to Nowhere*, but she's not Marshall's wife, girlfriend or daughter. In fact, she's not even a person at all.
 
-![](https://sweetjennylandcompany.com/images/jeanette%20furnace%201.jpg)
+![](../../assets/2023/05/jeanette%20furnace%201.jpg)
 
 Jeanette was the name of the $3,000,000 (in 1918 dollars) blast furnace at the Youngstown Sheet and Tube Company. Named after Mary Jeannette Thomas, daughter of Briar Hill Steel's president, the furnace was 90 feet tall and weighed 500 tons. Before it was decommissioned in 1977, it produced more than eleven million tons of steel. It provided and sustained the livelihood of thousands of workers, until it didn't.
 

@@ -64,7 +64,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 [Watch on Youtube: Bruce Springsteen & Roger McGuinn - Mr. Tambourine Man - Live from Orlando (04/23/2008)](https://www.youtube.com/watch?v=LEjTY92QbpA)
 
-[Watch Video Highlight](https://videopress.com/embed/Ifqqc6cS?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/Ifqqc6cS)
 
 ![](../../assets/2020/04/2008-04-23a.jpg)
 

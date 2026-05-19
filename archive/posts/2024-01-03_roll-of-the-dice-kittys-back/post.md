@@ -14,7 +14,7 @@ Bruce recorded "Kitty's Back" with the E Street Band in 1973, but he'd been work
 
 Take "[Garden State Parkway Blues](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)," for example, a thirty-minute(!) epic jam that first surfaced in 1969. I highly recommend checking out [my original essay](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/) on it, because "Garden State Parkway Blues" contains the DNA for several later Springsteen songs. But I'll save you time for now and guide you to the appropriate markers–skip to 4:57, 8:50, 11:44, and 21:46 to hear unmistakable echoes of "Kitty's Back."
 
-[Watch Video Highlight](https://videopress.com/embed/K8rRLDke?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/K8rRLDke)
 
 Those elements would turn up in Bruce's early work from time to time until he finally brought them together in a big band arrangement that (like much of his early work) served primarily as a framing sequence for epic and extended instrumental jams with completely superfluous lyrics–in this case about a guy who can't seem to let go of his unfaithful ex.
 

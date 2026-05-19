@@ -72,7 +72,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/tSIP2IPy)
 
-[Watch Video Highlight](https://videopress.com/embed/tKxNYA4j?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/tKxNYA4j)
 
 ![](../../assets/2020/11/2012-11-26a-1.png)
 

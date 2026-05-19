@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Tim McGraw & Bruce Springsteen: 'Letter To You' Documentary and E Street Band's Legacy | Apple Music](https://www.youtube.com/watch?v=7OMTyppnWLM)
 
-**2023:** The first of a series of scholarly symposiums is convened at Monmouth University to celebrate the golden anniversary of *[Greetings From Asbury Park, N.J.](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1973-0105-album.jpg?w=500&ssl=1)*Panelists include Mike Appel, Vini Lopez, Garry Tallent, David Sancious, and more.<br>
+**2023:** The first of a series of scholarly symposiums is convened at Monmouth University to celebrate the golden anniversary of *[Greetings From Asbury Park, N.J.](../../assets/2018/01/1973-0105-album.jpg)
 
 [Watch on Youtube: Greetings From Asbury Park Symposium - LOPEZ, SANCIOUS, TALLENT WITH PAT RODDY January 7,2023](https://www.youtube.com/watch?v=eJ4BWxKjyqI)
 

@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Bruce Springsteen - CAUTIOUS MAN 1988 (audio)](https://www.youtube.com/watch?v=4VtfZH44nqk)
 
-[Watch Video Highlight](https://videopress.com/embed/NKEsi6O4?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/NKEsi6O4)
 
 [Watch on Youtube: Bruce Springsteen - Two Faces - Live 1988 - Tunnel of Love Express Tour](https://www.youtube.com/watch?v=QENXHalKvSc)
 

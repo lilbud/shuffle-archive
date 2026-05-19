@@ -4,7 +4,7 @@
 
 **1972:** Recording sessions begin for Bruce’s first album, *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Bruce records five solo tracks today: “[Arabian Nights,](https://estreetshuffle.com/index.php/2021/03/23/roll-of-the-dice-arabian-nights/)” “[Cowboys of the Sea](https://estreetshuffle.com/index.php/2021/09/17/roll-of-the-dice-cowboys-of-the-sea/),” “[Growin’ Up,](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” “[Lady and the Doctor](https://estreetshuffle.com/index.php/2020/09/08/roll-of-the-dice-lady-and-the-doctor/),” and “[Street Queen](https://estreetshuffle.com/index.php/2019/06/19/roll-of-the-dice-street-queen/).” Only “Growin’ Up” will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.<br>
 
-[Watch Video Highlight](https://videopress.com/embed/IvoYACpv?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/IvoYACpv)
 
 **1973:** Bruce and the E Street Band open for Chicago at the Onondaga County War Memorial Auditorium in Syracuse, New York. The local paper mis-identifies Bruce, and they aren’t even close: somehow, they refer to him as “Bris Christy.” Mr. Reschke didn’t do so well with the song titles, either. See if you can figure out the songs Bruce actually played below.<br>
 

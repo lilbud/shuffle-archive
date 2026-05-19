@@ -40,7 +40,7 @@ By the time these songs were in the can, Bruce and his first wife Julianne Phill
 - “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/),” one of the best songs ever written about the moment and the reasons one decides to stray
 - “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/),” the title track that celebrates the bravery of committing to love when you’ve had enough experience to understand exactly what that entails
 
-[Watch Video Highlight](https://videopress.com/embed/pXf5J7uB?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/pXf5J7uB)
 
 When it was released in October 1987, *Tunnel of Love* earned critical acclaim for its introspective content on the heels of Bruce’s previous album, the poppy, mega-hit *Born in the U.S.A.* Its first two singles (“Brilliant Disguise” and “Tunnel of Love”) cracked the Top Ten, and “One Step Up” peaked at #13. The album itself went to #1 in the U.S. and the U.K. and was eventually certified triple platinum.
 

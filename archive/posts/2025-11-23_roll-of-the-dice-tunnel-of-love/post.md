@@ -110,7 +110,7 @@ But don't count out future appearances. "Tunnel of Love" is too significant a tr
 
 **Bonus:** Here's an alternate, rarely seen cut of Meiert Avis' award-winning video with less carnival imagery and more Bruce.<br>
 
-[Watch Video Highlight](https://videopress.com/embed/laIqiHGm?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/laIqiHGm)
 
 **Tunnel of Love**<br>
 **Recorded** June-July, 1987<br>

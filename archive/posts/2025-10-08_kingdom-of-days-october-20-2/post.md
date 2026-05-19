@@ -92,8 +92,8 @@
 
 **2021:** At the Javits Center in New York City, Bruce supports The Robin Hood Foundation with an acoustic set of “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/),” “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/),” and “Thunder Road.”<br>
 
-[Watch Video Highlight](https://videopress.com/embed/V4mnAWFo?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/V4mnAWFo)
 
-[Watch Video Highlight](https://videopress.com/embed/UqkgcR2k?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/UqkgcR2k)
 
-[Watch Video Highlight](https://videopress.com/embed/7uzJH4Vh?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/7uzJH4Vh)

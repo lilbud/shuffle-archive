@@ -22,7 +22,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/lPrBqD0H)
 
-[Watch Video Highlight](https://videopress.com/embed/NqB6kNCG?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/NqB6kNCG)
 
 ![](../../assets/2020/06/1984-07-01a.jpg)
 

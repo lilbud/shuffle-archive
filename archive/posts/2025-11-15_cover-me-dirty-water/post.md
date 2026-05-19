@@ -22,7 +22,7 @@ After three consecutive Boston shows over the course of a year featured “Dirty
 
 …or the Americana-influenced Sessions Band Tour (once again with partner-in-crime Peter Wolf).
 
-[Watch Video Highlight](https://videopress.com/embed/T0A7mJ4O?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/T0A7mJ4O)
 
 Bruce played it once more in a return appearance at Fenway Park in 2012 (no Peter Wolf this time, though)…
 

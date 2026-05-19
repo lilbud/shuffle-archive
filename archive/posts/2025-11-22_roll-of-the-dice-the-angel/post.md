@@ -76,7 +76,7 @@ Wherever could he have come up with the inspiration for that?
 
 We know Bruce played "The Angel" at least once, shortly after its release in early 1973. No recording survives (if there ever was one), so we don't know how his audience received it. But we know that Bruce didn't play it again for almost a quarter-century–and when he did revive it (by request from a fan who snuck his way into Bruce's soundcheck in London), he sounded so self-consciously sheepish that if not for the shock value it would probably have been considered the evening's lowlight.
 
-[Watch Video Highlight](https://videopress.com/embed/hWsdZ1Y5?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/hWsdZ1Y5)
 
 Bruce wouldn't attempt "The Angel" again for another thirteen years, and this time he didn't have a choice: promising a complete, start-to-finish performance of his debut album for the first and only time ever, Bruce at least had a chance to consider how he wanted to approach it.
 

@@ -62,7 +62,7 @@ Four years later, Reagan did his best to associate himself with the now mega-sta
 
 Although he typically let such attempts pass by without comment, Bruce responded to Reagan from the stage two days later.
 
-[Watch Video Highlight](https://videopress.com/embed/4C0NYp0F?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/4C0NYp0F)
 
 Both times, though, he was brief enough and sly enough that his remarks went mostly unnoticed.
 
@@ -103,8 +103,6 @@ A week later, he spoke up on stage against Trump's Muslim ban…
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vqeVGnWwnxM)
 
 …and three days after that he declared himself an "embarrassed American" following Trump's rude treatment of the Australian Prime Minister.
-
- 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zSiZMyUlw8Y)
 

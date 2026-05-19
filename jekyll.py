@@ -171,6 +171,64 @@ def replace_with_internal(cur: psycopg.Cursor) -> None:
             f.write(text)
 
 
+def replace_audio(content: str) -> str:
+    """Replace audio link with player."""
+    return re.sub(
+        r"\[.*.(mp3|wav|flac)\]\((.*.(mp3|wav|flac))\)",
+        r'{%- include audio url="\2" -%}',
+        content,
+    )
+
+
+def replace_img(content: str) -> str:
+    """Replace relative path to absolute path."""
+    return re.sub(r"../../assets", r"/assets/img/uploads", content)
+
+
+def replace_video(content: str) -> str:
+    """Append video iframe include under video link."""
+    videopress_pattern = (
+        r"(\[Watch Video Highlight\]\(https://videopress.com/embed/(.*)\??.*\))"
+    )
+    youtube_pattern = (
+        r"(\[Watch on youtube.*\]\(https://www.youtube.com/watch\?v=(.*)\))"
+    )
+    youtube_playlist_pattern = (
+        r"(\[Watch on youtube.*\]\(https://www.youtube.com/playlist\?list=(.*)\))"
+    )
+    vimeo_pattern = r"(https://player.vimeo.com/video/(.*)\?.*)"
+
+    content = re.sub(
+        videopress_pattern,
+        r'\1\n{%- include video provider="videopress" id="\2" -%}',
+        content,
+        flags=re.IGNORECASE,
+    )
+
+    content = re.sub(
+        youtube_pattern,
+        r'\1\n{%- include video provider="youtube" id="\2" -%}',
+        content,
+        flags=re.IGNORECASE,
+    )
+
+    content = re.sub(
+        youtube_playlist_pattern,
+        r'\1\n{%- include video provider="youtube-playlist" id="\2" -%}',
+        content,
+        flags=re.IGNORECASE,
+    )
+
+    content = re.sub(
+        vimeo_pattern,
+        r'\1\n{%- include video provider="vimeo" id="\2" -%}',
+        content,
+        flags=re.IGNORECASE,
+    )
+
+    return content
+
+
 def get_posts(
     slug: int,
     cur: psycopg.Cursor,
@@ -193,7 +251,7 @@ def get_posts(
                 p.published::date || '-' || p.slug as filename,
                 string_agg(distinct t.slug, ' ') as tag_list,
                 string_agg(distinct c.slug, ' ') FILTER (WHERE c.id < 3601) as category_list,
-                regexp_replace(m.url, 'http://estreetshuffle.com/wp-content/uploads/', '../../assets/') as header_img,
+                regexp_replace(m.url, '(http|https)://estreetshuffle.com/wp-content/uploads/', '../../assets/') as header_img,
                 p.post_id,
                 p.content,
                 p.url,
@@ -233,6 +291,10 @@ def main(cur: psycopg.Cursor, slug: int) -> None:
                 rf"C:\Users\bvw20\Documents\Software\Programming\Website\shuffle\_posts\{post['filename']}.md",
             )
 
+            content = replace_video(post["content"])
+            content = replace_img(content)
+            content = replace_audio(content)
+
             with post_file.open("w", encoding="utf-8") as f:
                 f.write("---\n")
 
@@ -257,7 +319,7 @@ def main(cur: psycopg.Cursor, slug: int) -> None:
                 f.write(f"post_id: {post['post_id']}\n")
 
                 f.write("---\n")
-                f.write(post["content"])
+                f.write(content)
 
 
 if __name__ == "__main__":
@@ -268,8 +330,3 @@ if __name__ == "__main__":
 
         for row in df.itertuples():
             main(slug=row.id, cur=cur)
-        # with Path(
-        #     r"C:\Users\bvw20\Documents\Personal\Projects\Bruce Stuff\Websites\e-street-shuffle\shuffle-archive\notes\sheets\master-post-list.csv",
-        # ).open("r", encoding="utf-8") as f:
-        #     for line in f:
-        #         main(slug=line.split(",")[0], cur=cur)

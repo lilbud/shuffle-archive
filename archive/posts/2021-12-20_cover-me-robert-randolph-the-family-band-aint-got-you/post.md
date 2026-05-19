@@ -1,7 +1,4 @@
-
-Bruce's original recording of "" is spare–almost a capella–but its Bo Diddley beat has always cried out for a funkified arrangement.
-
-[Ain't Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)
+Bruce's original recording of "[Ain't Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)" is spare–almost a capella–but its Bo Diddley beat has always cried out for a funkified arrangement.
 
 Thankfully, multiple Grammy-nominated Robert Randolph & The Family Band were more than up to the challenge.
 

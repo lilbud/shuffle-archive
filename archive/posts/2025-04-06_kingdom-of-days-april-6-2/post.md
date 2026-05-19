@@ -48,6 +48,6 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring ["Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" in place of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)." In attendance tonight: actress Gina Gershon.<br>
 
-![](https://brucebase.wdfiles.com/local--resized-images/gallery%3A2018-04-06-walter-kerr-theatre-new-york-city-ny/20180406_GinaGershon_01.jpg/medium.jpg)
+![](../../assets/2025/03/20180406_GinaGershon_01.jpg)
 
 **2022:** Bruce celebrates Clive Davis' 90th birthday by recording a video salute and a performance of "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)."<br>

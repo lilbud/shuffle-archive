@@ -42,7 +42,7 @@ He was working at the Power Station, and they just had a phenomenal band: Max, G
 
 That’s the first time I met Bruce. And I guess he just took a liking to that record. Then what really cemented it was one night in 1982, he came to see us play at Big Man's West and sat in with us, and we went out after and basically hung out the whole night, and just… you know, why do you become friends with a person? We just hit it off. Same age, same influences, sort of same upbringing, real working-class families.
 
-[Watch Video Highlight](https://videopress.com/embed/vfcrn5r7?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/vfcrn5r7)
 
 **Yeah. It’s easy to see. I mean, I don’t know Bruce, but just from what I know about you guys, I can see why you would click and become friends. It’s another thing, though, to collaborate the way you guys have. Bruce hasn't really done that with that many people and certainly with no one outside of Steve to the extent that you guys have. I’d love to know a little bit more about your collaborating relationship. You guys wrote several songs together. How does that work?**<br>
 
@@ -316,7 +316,7 @@ Yeah. When I first started, I worked with really severely disabled mentally and 
 
 **It's just mind-boggling to me. I mean… jeez, you even had Bruce out on tour with you!**<br>
 
-[Watch Video Highlight](https://videopress.com/embed/WoQylHbz?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/WoQylHbz)
 
 **Do you ever look back on it and go, “Boy, if we had done this or tried this maybe…” Or do you think it was the cards that were just dealt at the time?**<br>
 

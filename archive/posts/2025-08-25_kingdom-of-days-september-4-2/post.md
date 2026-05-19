@@ -22,7 +22,7 @@ Bruce is keeping busy on stage, because he’s unable to record. Billboard publi
 
 **1977:** Bruce makes a guest appearance with The Shots, the new Stone Pony house band on “[Farther Up the Road](https://estreetshuffle.com/index.php/2021/04/06/matr-bruce-springsteen-and-the-shots-farther-up-the-road/)” and “[Funky Broadway](https://estreetshuffle.com/index.php/2019/10/28/matr-bruce-springsteen-and-the-shots-funky-broadway/).”<br>
 
-[Watch Video Highlight](https://videopress.com/embed/KXWUSmka?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/KXWUSmka)
 
 [Watch on Youtube: Funky broadway ( Dyke & the Blazers / Wilson Picket cover )](https://www.youtube.com/watch?v=Jp0sUB4Kc_Q)
 

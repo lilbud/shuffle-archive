@@ -8,7 +8,7 @@
 
 [Watch on Youtube: Does This Bus Stop At 82nd Street? (Demo Version - 1972)](https://www.youtube.com/watch?v=YeicNZPARZg)
 
-[Watch Video Highlight](https://videopress.com/embed/54i5lVp4?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/54i5lVp4)
 
 **1976:** Bruce plays his first-ever show in Arkansas, at the Robinson Auditorium in Little Rock.<br>
 

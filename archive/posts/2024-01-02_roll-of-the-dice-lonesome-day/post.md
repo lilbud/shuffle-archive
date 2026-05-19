@@ -91,7 +91,7 @@ In its 381 appearances to date, Bruce has rarely altered the arrangement for "Lo
 
 But on his solo tour in 2005, Bruce found an acoustic arrangement that downplayed the rage and dialed up the hurt. Take a listen to Bruce's performance from August 13, 2005 in Vancouver, British Columbia.
 
-[Watch Video Highlight](https://videopress.com/embed/IaSVvsd3?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/IaSVvsd3)
 
 Even though he'd been performing it acoustically for months, there was something different about "Lonesome Day" that night. Even now, fifteen years later, I'm haunted by the "it's alright" refrain from that performance. Bruce delivered it in a way he'd never done before, and it's impossible not to be filled with empathy for the narrator's inner child.
 

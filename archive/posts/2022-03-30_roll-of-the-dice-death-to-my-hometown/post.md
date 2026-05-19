@@ -83,7 +83,7 @@ With such careful construction, "Death to My Hometown" might seem like a challen
 
 **Bonus:** There are several great professionally shot live performances to choose from, but here's the earliest: the debut of "Death to My Hometown" from Bruce's appearance on *Late Night with Jimmy Fallon* from March 2, 2012.<br>
 
-[Watch Video Highlight](https://videopress.com/embed/I43auK8y?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/I43auK8y)
 
 **Death to My Hometown**<br>
 **Recorded** 2011<br>

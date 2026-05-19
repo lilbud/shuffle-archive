@@ -12,7 +12,7 @@ The Bruce Springsteen Band made its first appearance the weekend after July 4th 
 
 Springsteen's Richmond setlists often contained a few familiar Steel Mill chestnuts to satisfy his loyal fans, but the rest of the set usually consisted of blues covers and bright, almost poppy original songs. We've listened to almost all of them together over the last seven years (if you've been with me that long), but there's one notable original Springsteen song from that era we've so far only glanced at.
 
-[Watch Video Highlight](https://videopress.com/embed/Ce3a1tdd?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/Ce3a1tdd)
 
 Bruce wrote "Talking About My Baby" for the Bruce Springsteen Band, but to the best of our knowledge (documentation of the BSB era is spotty at best), he only performed it once–in Richmond on Halloween eve.
 

@@ -4,7 +4,7 @@ Bruce Springsteen was and is a serious fan of Eric Burdon and The Animals. There
 
 And as far as Bruce's songwriting influences… well, let's listen to him explain to Little Steven:
 
-[Watch Video Highlight](https://videopress.com/embed/Vi2qMA7f?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/Vi2qMA7f)
 
 When it comes to songs by The Animals, we typically associate Bruce with his ferocious cover of "It's My Life," a regular feature during the Born to Run era. Thematically, though, "We Gotta Get Out of This Place" is at least as resonant with his songwriting themes.
 

@@ -80,7 +80,7 @@
 
 [Watch on Youtube: Local Hero Bruce Springsteen 9/21/2003 Detroit](https://www.youtube.com/watch?v=PDHsvzZGpPk)
 
-[Watch Video Highlight](https://videopress.com/embed/ODmDrQbM?hd=0&cover=1)
+[Watch Video Highlight](https://videopress.com/embed/ODmDrQbM)
 
 [Watch on Youtube: Detroit 21/09/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zClqCz-WnKG-OwnxCjyOydh)
 
