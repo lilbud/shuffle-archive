@@ -24,15 +24,15 @@ post_id: 55946
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1973-02-14b.jpg.webp)
 
-**1984:** Bruce records “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” in the studio, his highest-charting hit and the last song to be recorded for *Born in the U.S.A.*<br>
+**1984:** Bruce records “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)” in the studio, his highest-charting hit and the last song to be recorded for *Born in the U.S.A.*<br>
 
 [Watch on Youtube: Bruce Springsteen - Dancing In the Dark (Official Video)](https://www.youtube.com/watch?v=129kuDCQtHs)
 
-**1996:** Bruce continues the first leg of his European acoustic tour with a show in Dresden, where he closes the show with “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” for the first time.<br>
+**1996:** Bruce continues the first leg of his European acoustic tour with a show in Dresden, where he closes the show with “[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)” for the first time.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/4PFVEda7)
 
-**2017:** Bruce plays a love-themed show in Brisbane for Valentine’s Day, with “[Janey, Don’t You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md),” “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md),” “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md),” and “[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)” among the tour premieres. “Back in Your Arms” in particular is a little rough, though…<br>
+**2017:** Bruce plays a love-themed show in Brisbane for Valentine’s Day, with “[Janey, Don’t You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md),” “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md),” “[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md),” and “[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)” among the tour premieres. “Back in Your Arms” in particular is a little rough, though…<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Lucky Town [Brisbane, AUS - 14.FEB.2017]](https://www.youtube.com/watch?v=VKtj3SsR9co)
 

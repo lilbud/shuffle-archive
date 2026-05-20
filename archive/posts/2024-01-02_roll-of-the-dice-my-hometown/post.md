@@ -135,7 +135,7 @@ In 2011, the son from "My Hometown" would be about the same age as his father wa
 
 Unlike his father, though, he's not resigned–he's angry, and he's not going to surrender his town without a fight. There *was* something he could do.
 
-[But that's an essay for another day.](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)
+[But that's an essay for another day.](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md)
 
 ---
 

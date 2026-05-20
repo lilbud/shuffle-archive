@@ -10,7 +10,7 @@ post_id: 7410
 ---
 No, that's not a typo in the title: this is the story of *Betty* Jean.
 
-We all know [*Bobby* Jean's story](../2018-06-19_roll-of-the-dice-bobby-jean/post.md), of course: ze went away and there was nothing we could have done or said to keep hir from doing otherwise. We didn't even get to say goodbye.
+We all know [*Bobby* Jean's story](../1984-01-10_roll-of-the-dice-bobby-jean/post.md), of course: ze went away and there was nothing we could have done or said to keep hir from doing otherwise. We didn't even get to say goodbye.
 
 Hir older sister, Betty, however… oh, she stayed all right, and she made life a mixed blessing for her man.
 

@@ -52,7 +52,7 @@ post_id: 61267
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2003-11-01.png.webp)
 
-**2004:** Bruce performs three songs at a political rally for U.S. presidential candidate John Kerry in Cleveland. Senator John Glenn introduces Bruce, who proceeds to sing "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)," "Thunder Road," and "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)."<br>
+**2004:** Bruce performs three songs at a political rally for U.S. presidential candidate John Kerry in Cleveland. Senator John Glenn introduces Bruce, who proceeds to sing "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)," "Thunder Road," and "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)."<br>
 
 [Watch on Youtube: 2004 Presidential Election Eve John Kerry and Bruce Springsteen in Cleveland Ohio Rally](https://www.youtube.com/watch?v=MIPO7B51iMw)
 

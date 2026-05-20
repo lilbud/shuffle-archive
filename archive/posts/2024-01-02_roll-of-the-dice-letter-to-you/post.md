@@ -16,7 +16,7 @@ But I didn't. In fact, as time passed, I only felt worse.
 
 When "Letter to You" debuted as the first single and title track for Bruce's new album, the novelty of having new Springsteen music carried me for a few days. But even at first listen, I knew something was off, and as time went on I felt indifference turn to dislike, to the point where I even edited the song out of my playlist and skipped the track whenever I played the CD.
 
-"Letter to You" became the first Springsteen track since "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" to leave me stone cold.
+"Letter to You" became the first Springsteen track since "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" to leave me stone cold.
 
 [Watch on Youtube: Letter To You](https://www.youtube.com/watch?v=4wtHDwDzVtQ)
 
@@ -52,7 +52,7 @@ Let's take a listen (acoustic version!) so we can appreciate Bruce's heartfelt l
 
 [Watch Video Highlight](https://videopress.com/embed/Cor6CHI8)
 
-It's actually a challenge to analyze most of the new songs on *[Letter to You](../2023-07-10_album-companion-letter-to-you/post.md)—*not because they're laden with metaphor and symbolism, but for the exact opposite reason: Bruce writes so straightforwardly on this album and draws so much from his personal history that the songs call more for annotation than analysis.
+It's actually a challenge to analyze most of the new songs on *[Letter to You](../2017-01-01_album-companion-letter-to-you/post.md)—*not because they're laden with metaphor and symbolism, but for the exact opposite reason: Bruce writes so straightforwardly on this album and draws so much from his personal history that the songs call more for annotation than analysis.
 
 "Letter to You," the album's title track, barely even calls for that. The word *summational* can be overused in music journalism and criticism (present blog included), but it truly applies here. Heck, it almost sounds *final.*
 

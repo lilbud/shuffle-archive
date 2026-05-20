@@ -34,7 +34,7 @@ post_id: 59550
 
 [Watch Video Highlight](https://videopress.com/embed/OcpzKL31)
 
-**1986:** At the MTV Video Music Awards, "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" loses in the Best Male Video category to Robert Palmer's "Addicted to Love" and in the Best Overall Performance in a Video category to David Bowie and Mick Jagger's "[Dancing in the Street](../2020-09-12_cover-me-dancing-in-the-street/post.md)."<br>
+**1986:** At the MTV Video Music Awards, "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" loses in the Best Male Video category to Robert Palmer's "Addicted to Love" and in the Best Overall Performance in a Video category to David Bowie and Mick Jagger's "[Dancing in the Street](../2020-09-12_cover-me-dancing-in-the-street/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Glory Days (Official Video)](https://www.youtube.com/watch?v=6vQpW9XRiyM)
 
@@ -54,7 +54,7 @@ post_id: 59550
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2006-09-05.jpg.webp)
 
-**2016:** Bruce and the E Street Band make up for an earlier hurricane-induced rainout in Virginia Beach, playing an amazing chronological set for a reduced crowd in an already intimate outdoor venue. (The show was originally scheduled for a Saturday night on a holiday weekend–when the show was rescheduled for Labor Day, many fans already had their return trip booked for that day, as school started for many the following morning.) Apparently the string section couldn't make it either, so Bruce opens the show with an acoustic "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" on piano instead. "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)" and "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" are tour premieres tonight. For more highlights from this show, see my [*Where the Band Was* report.](../2018-09-05_where-the-band-was-virginia-beach-september-5-2016/post.md)<br>
+**2016:** Bruce and the E Street Band make up for an earlier hurricane-induced rainout in Virginia Beach, playing an amazing chronological set for a reduced crowd in an already intimate outdoor venue. (The show was originally scheduled for a Saturday night on a holiday weekend–when the show was rescheduled for Labor Day, many fans already had their return trip booked for that day, as school started for many the following morning.) Apparently the string section couldn't make it either, so Bruce opens the show with an acoustic "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)" on piano instead. "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)" and "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" are tour premieres tonight. For more highlights from this show, see my [*Where the Band Was* report.](../2018-09-05_where-the-band-was-virginia-beach-september-5-2016/post.md)<br>
 
 [Watch on Youtube: Bruce Springsteen - For You (live in Virginia Beach 2016)](https://www.youtube.com/watch?v=f_O0mnDPRfQ)
 

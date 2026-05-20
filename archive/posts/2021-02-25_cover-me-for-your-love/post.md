@@ -22,7 +22,7 @@ Bruce's selection was an obscure one: the sweet, romantic "For Your Love." Not t
 
 Although "For Your Love" certainly fit the theme of Bruce's Tunnel of Love Tour, I'm guessing most of the fans in the room didn't recognize it. Thirty years after it charted, "For Your Love" was an obscure choice, but Bruce's soundchecks were full of wild cards at the time–in part due to the presence of the Miami Horns (renamed The Horns of Love for that tour), who seemed to be up for anything Bruce could throw at them.
 
-Bruce threw a curve ball with "For Your Love," though. Rather than follow a more faithful reading, Bruce steered the band toward a decidedly reggae arrangement. (He'd been experimenting with reggae arrangements since transforming "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" the summer before.
+Bruce threw a curve ball with "For Your Love," though. Rather than follow a more faithful reading, Bruce steered the band toward a decidedly reggae arrangement. (He'd been experimenting with reggae arrangements since transforming "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" the summer before.
 
 The Horns followed Bruce's lead, and you can hear for yourself how it turned out.
 

@@ -74,7 +74,7 @@ post_id: 57721
 
 [Watch on Youtube: Bruce Springsteen Werchter Belgium 13/07/2013 Full Concert](https://www.youtube.com/watch?v=DvsNbfX8iik)
 
-**2016:** Bruce surprises and delights Paris fans by opening with "[Iceman](../2022-02-01_roll-of-the-dice-iceman/post.md)" (only its third-ever performance) and "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)" before announcing and performing *The River* in full, a first-time event in Europe.<br>
+**2016:** Bruce surprises and delights Paris fans by opening with "[Iceman](../2022-02-01_roll-of-the-dice-iceman/post.md)" (only its third-ever performance) and "[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)" before announcing and performing *The River* in full, a first-time event in Europe.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Iceman - AccorHotels Arena 13 07 2016](https://www.youtube.com/watch?v=cZgiQ_v14T8)
 

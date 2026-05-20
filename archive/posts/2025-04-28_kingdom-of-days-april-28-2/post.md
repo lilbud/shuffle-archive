@@ -54,7 +54,7 @@ post_id: 56632
 
 **2003:** Bruce rehearses at the Count Basie Theater for Bobby Bandiera's Hope Concert benefit the following day.<br>
 
-**2005:** On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays "[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)" for the first time in 17 years, and Jimmy LaFave guest-stars on "[Oklahoma Hills.](../2021-05-17_matr-bruce-springsteen-arlo-guthrie-joe-ely-and-jimmy-lafave-oklahoma-hills/post.md)" Also new to the set list tonight: "[Galveston Bay](../2020-06-22_roll-of-the-dice-galveston-bay/post.md)" and "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)."<br>
+**2005:** On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays "[Two Faces](../1987-01-08_roll-of-the-dice-two-faces/post.md)" for the first time in 17 years, and Jimmy LaFave guest-stars on "[Oklahoma Hills.](../2021-05-17_matr-bruce-springsteen-arlo-guthrie-joe-ely-and-jimmy-lafave-oklahoma-hills/post.md)" Also new to the set list tonight: "[Galveston Bay](../2020-06-22_roll-of-the-dice-galveston-bay/post.md)" and "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ZDEYaKNZ)
 
@@ -66,7 +66,7 @@ post_id: 56632
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2005-04-28c.jpg.webp)
 
-**2008:** Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres of "[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)" and "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)," before segueing to "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)," "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)," and "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)." Opening packs don't get much better than that. Also tour premiering tonight: "[Mary's Place](../2022-03-25_roll-of-the-dice-marys-place/post.md)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25606/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-4-28-2008-Greensboro-Coliseum-Greensboro-NC.html).<br>
+**2008:** Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres of "[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md)" and "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)," before segueing to "[Radio Nowhere](../2021-08-01_roll-of-the-dice-radio-nowhere/post.md)," "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)," and "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)." Opening packs don't get much better than that. Also tour premiering tonight: "[Mary's Place](../2022-03-25_roll-of-the-dice-marys-place/post.md)." This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,25606/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-4-28-2008-Greensboro-Coliseum-Greensboro-NC.html).<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Greensboro 2008](https://www.youtube.com/watch?v=MpSSwm21Cjs)
 
@@ -104,7 +104,7 @@ post_id: 56632
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3)
 
-**2023:** Bruce and the E Street Band kick off the European leg of their 2023 World Tour in Barcelona with some special guests: former U.S. First Lady Michelle Obama and actress Kate Capshaw join Patti Scialfa on stage for backing vocals on "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)." The run of nightly tour premieres continue with "[Human Touch.](../2019-08-09_roll-of-the-dice-human-touch/post.md)"<br>
+**2023:** Bruce and the E Street Band kick off the European leg of their 2023 World Tour in Barcelona with some special guests: former U.S. First Lady Michelle Obama and actress Kate Capshaw join Patti Scialfa on stage for backing vocals on "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)." The run of nightly tour premieres continue with "[Human Touch.](../2019-08-09_roll-of-the-dice-human-touch/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen singing Nightshift live in Barcelona 28/04/2023](https://www.youtube.com/watch?v=KUoPAY8d0uY)
 

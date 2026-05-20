@@ -12,7 +12,7 @@ Meet Life Size Models.
 
 An indie band with a sound both fresh and retro, Life Size Models is a band to watch. Their brand-new single, "Cusack, 1984" is fantastic–easily my favorite new song debut during this quarantine, and if you came of age in the 1980s like me, you're going to love it.
 
-But the B-side to "Cusack, 1984" is pretty stunning, too: a complete reinvention of Bruce's "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."
+But the B-side to "Cusack, 1984" is pretty stunning, too: a complete reinvention of Bruce's "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)."
 
 Yeah, I know: *everyone* covers "I'm on Fire."
 

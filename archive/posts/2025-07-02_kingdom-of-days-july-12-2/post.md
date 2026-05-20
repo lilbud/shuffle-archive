@@ -34,7 +34,7 @@ post_id: 57667
 
 **1979:** Bruce and the E Street Band work on "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" during a recording session at the Power Station in New York City.<br>
 
-**1984:** The Born in the U.S.A. Tour continues its midwest trek, arriving in East Troy, Wisconsin for the first of two nights. This show is notable for the world debut of the very rare "[Man at the Top](../2019-05-10_roll-of-the-dice-man-at-the-top/post.md)" (played only twice since). According to press reports, director Brian De Palma shoots additional footage for "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" at this show. It's unclear if any of it will be used.<br>
+**1984:** The Born in the U.S.A. Tour continues its midwest trek, arriving in East Troy, Wisconsin for the first of two nights. This show is notable for the world debut of the very rare "[Man at the Top](../2019-05-10_roll-of-the-dice-man-at-the-top/post.md)" (played only twice since). According to press reports, director Brian De Palma shoots additional footage for "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" at this show. It's unclear if any of it will be used.<br>
 
 [Watch on Youtube: Bruce Springsteen - Man At The Top (1984-07-12)](https://www.youtube.com/watch?v=N7s0WtNiTHI)
 
@@ -54,7 +54,7 @@ post_id: 57667
 
 [https://estreetshuffle.com/wp-content/uploads/2022/07/1991-07-12__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/07/1991-07-12__Merged.mp3)
 
-**1992:** Night Four of five at Wembley Arena for Bruce's World Tour 1992. The setlist highlight: "[The Big Muddy](../2019-01-29_roll-of-the-dice-the-big-muddy/post.md)," played only twice in Europe.<br>
+**1992:** Night Four of five at Wembley Arena for Bruce's World Tour 1992. The setlist highlight: "[The Big Muddy](../1992-02-07_roll-of-the-dice-the-big-muddy/post.md)," played only twice in Europe.<br>
 
 [Watch on Youtube: Bruce Springsteen - Leap Of Faith](https://www.youtube.com/watch?v=cGolb8D4DkY)
 

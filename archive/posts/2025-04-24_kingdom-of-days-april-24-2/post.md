@@ -70,7 +70,7 @@ post_id: 56611
 
 [Watch on Youtube: Bruce Springsteen Vienna 24/04/1999 Full Concert](https://www.youtube.com/watch?v=8QnOyrqe6w8)
 
-**2006:** Bruce and the Sessions Band play their second public warm-up show at Asbury Park's Convention Hall. The waltz arrangement of "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" debuts at this show, as does a new mash-up of "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" and "[Mystery Train](../2019-05-21_cover-me-mystery-train/post.md)."<br>
+**2006:** Bruce and the Sessions Band play their second public warm-up show at Asbury Park's Convention Hall. The waltz arrangement of "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" debuts at this show, as does a new mash-up of "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" and "[Mystery Train](../2019-05-21_cover-me-mystery-train/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/RnG13val)
 

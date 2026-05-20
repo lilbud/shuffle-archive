@@ -14,7 +14,7 @@ True fact: Chuck Berry wrote *five* songs about Mr. Johnny B. Goode, so you'd be
 
 [Watch on Youtube: Bye Bye Johnny - (Digitally Re-Mastered 2010)](https://www.youtube.com/watch?v=j4wBlewVPpQ)
 
-If those first lines sound familiar, that's because Bruce borrowed and paid homage to them in his own song, "[Johnny Bye-Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)."
+If those first lines sound familiar, that's because Bruce borrowed and paid homage to them in his own song, "[Johnny Bye-Bye](../1983-01-05_roll-of-the-dice-johnny-bye-bye/post.md)."
 
 In Berry's version, Johnny's mom had toiled and saved to buy her son a guitar and give him a chance to make it big–a detail that certainly must have resonated with Bruce. The song ends with his mother waiting for Johnny to return home with his new bride and build a mansion for his family. The story would continue.
 

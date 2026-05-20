@@ -14,7 +14,7 @@ I don’t have a blog category for mash-ups, but maybe I should, because I’ve 
 
 Let’s start with Michael Petrella and Eric. I don’t know much about Michael (and even less about Eric, like whether he has a last name), but I do know he’s got a pretty clever ear for a mash-up. I don’t think I could have ever come up with a Bruce Springsteen/Whitney Houston pairing that would work well, but Michael and Eric sure did.
 
-Check out their clever cover mash-up of “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” with “I Wanna Dance With Somebody.” Not only do they blend well musically, the lyrics match hand-in-glove, too.
+Check out their clever cover mash-up of “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)” with “I Wanna Dance With Somebody.” Not only do they blend well musically, the lyrics match hand-in-glove, too.
 
 [Watch on Youtube: Dancing in the Dark x Dance with Somebody (Mashup Cover) - Bruce Springsteen // Whitney Houston](https://www.youtube.com/watch?v=_eTxdpFlKv0)
 

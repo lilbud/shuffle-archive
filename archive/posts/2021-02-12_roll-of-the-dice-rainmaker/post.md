@@ -16,7 +16,7 @@ Hiatt's article dates the origin of "Rainmaker" to "a few years before Trump too
 
 I lean more toward Brucebase's assessment than Hiatt's, and what's more: I'm not convinced that the official track itself doesn't date back more than a decade. Bruce's vocals sound *very* Magic-era, as does the production and lyrical theme.
 
-There's no evidence of "Rainmaker" being recorded during the [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md) sessions captured on Bruce's 2020 documentary film, and Toby Scott's credited involvement suggests that at least part of the track dates back prior to the 2019 E Street Band recording sessions.
+There's no evidence of "Rainmaker" being recorded during the [*Letter to You*](../2017-01-01_album-companion-letter-to-you/post.md) sessions captured on Bruce's 2020 documentary film, and Toby Scott's credited involvement suggests that at least part of the track dates back prior to the 2019 E Street Band recording sessions.
 
 I have a strong suspicion that "Rainmaker"–not just the song, but much if not most of the actual track–is actually a bona fide *Magic* outtake.
 
@@ -102,7 +102,7 @@ It's the fifth verse that's the most devastating, however.
 > *Some come to make damn sure, my friend*<br>
 > *This mean season's got nothing to do with them*<br>
 
-The deeply empathetic first couplet reminds us of "[American Land,](../2020-01-10_roll-of-the-dice-american-land/post.md)" earning our sympathy for the rainmaker's followers who are motivated by trust, hope, and the promise of a chance–just a chance–to lift themselves out of their circumstances.
+The deeply empathetic first couplet reminds us of "[American Land,](../2016-01-22_roll-of-the-dice-american-land/post.md)" earning our sympathy for the rainmaker's followers who are motivated by trust, hope, and the promise of a chance–just a chance–to lift themselves out of their circumstances.
 
 But the second couplet is the damning one: here, Bruce spotlights the enablers, the ones who support the rainmaker just so that they don't end up on his bad side. Better to be on the side of power than against it.
 

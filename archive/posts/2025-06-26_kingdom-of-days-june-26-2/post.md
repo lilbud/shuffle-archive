@@ -30,7 +30,7 @@ post_id: 57181
 
 [Watch Video Highlight](https://videopress.com/embed/Y4S1mwaJ)
 
-**1992:** "[The Long Goodbye](../2021-12-05_roll-of-the-dice-the-long-goodbye/post.md)" makes its world debut at Night Two in Frankfurt, along with the tour premieres of "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" and "Follow That Dream."<br>
+**1992:** "[The Long Goodbye](../2021-12-05_roll-of-the-dice-the-long-goodbye/post.md)" makes its world debut at Night Two in Frankfurt, along with the tour premieres of "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" and "Follow That Dream."<br>
 
 [Watch on Youtube: The Long Goodbye Bruce Springsteen June 26,1992 Frankfurt, GER](https://www.youtube.com/watch?v=AuLvzIM27aE)
 

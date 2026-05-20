@@ -12,7 +12,7 @@ post_id: 57022
 
 **1969:** Child headlines at the eighth grade graduation concert at Blessed Sacrament Regional School in Margate, New Jersey.<br>
 
-**1972:** Recording sessions begin for Bruce's first album, *[Greetings From Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*Bruce records five solo tracks today: "[Arabian Nights,](../2021-03-23_roll-of-the-dice-arabian-nights/post.md)" "[Cowboys of the Sea](../2021-09-17_roll-of-the-dice-cowboys-of-the-sea/post.md)," "[Growin' Up,](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" "[Lady and the Doctor](../2011-01-21_roll-of-the-dice-lady-and-the-doctor/post.md/)," and "[Street Queen](../2011-01-28_roll-of-the-dice-street-queen/post.md/)." Only "Growin' Up" will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.<br>
+**1972:** Recording sessions begin for Bruce's first album, *[Greetings From Asbury Park, N.J.](../2023-01-05_album-companion-greetings-from-asbury-park-n-j/post.md)*Bruce records five solo tracks today: "[Arabian Nights,](../2011-01-11_roll-of-the-dice-arabian-nights/post.md)" "[Cowboys of the Sea](../2011-01-15_roll-of-the-dice-cowboys-of-the-sea/post.md)," "[Growin' Up,](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" "[Lady and the Doctor](../2011-01-21_roll-of-the-dice-lady-and-the-doctor/post.md/)," and "[Street Queen](../2011-01-28_roll-of-the-dice-street-queen/post.md/)." Only "Growin' Up" will eventually be released, and even that song will be re-recorded later in the month before being selected for the album.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/IvoYACpv)
 
@@ -38,7 +38,7 @@ post_id: 57022
 
 [Watch on Youtube: Bruce Springsteen "Guide to Summer" June '92](https://www.youtube.com/watch?v=V8GA_hlYbzg)
 
-**1999:** "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" makes its Reunion Tour premiere at the Estadio de la Comunidad in Madrid.<br>
+**1999:** "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" makes its Reunion Tour premiere at the Estadio de la Comunidad in Madrid.<br>
 
 [Watch on Youtube: bruce springsteen madrid la peineta 1999 TVE, canal plus, a](https://www.youtube.com/watch?v=95dOlNZgJoQ)
 

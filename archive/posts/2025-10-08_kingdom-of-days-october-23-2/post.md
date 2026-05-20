@@ -78,7 +78,7 @@ post_id: 61205
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2019-10-23a-scaled.jpg.webp)
 
-**2020:** At the stroke of midnight, Bruce releases his twentieth studio album, [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md), recorded in late 2019 with the E Street Band.<br>
+**2020:** At the stroke of midnight, Bruce releases his twentieth studio album, [*Letter to You*](../2017-01-01_album-companion-letter-to-you/post.md), recorded in late 2019 with the E Street Band.<br>
 
 [Watch on Youtube: Bruce Springsteen - One Minute You're Here (Official Audio)](https://www.youtube.com/watch?v=s-RT3nxr3T4?list=OLAK5uy_mRFUEqt8ZfwlGoMadXECt_tR961Se-Etc)
 

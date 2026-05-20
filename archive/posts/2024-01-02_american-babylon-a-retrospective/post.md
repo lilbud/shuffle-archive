@@ -32,7 +32,7 @@ Joe: Oh, I’m glad you liked it!
 
 **I’m a big fan. So I’m curious: where does *American Babylon* rank in *your* perception of your catalog?**<br>
 
-It’s near the top. I mean, there was [*Have a Good Time But Get Out Alive*](../2020-05-22_have-a-good-time-but-get-out-alive/post.md), the 40th anniversary edition that we’re promoting now. That was the record that… my life began to change with *Love's So Tough*, but it *really* hit a different level with *Have a Good Time But Get Out Alive.*
+It’s near the top. I mean, there was [*Have a Good Time But Get Out Alive*](../1988-04-25_have-a-good-time-but-get-out-alive/post.md), the 40th anniversary edition that we’re promoting now. That was the record that… my life began to change with *Love's So Tough*, but it *really* hit a different level with *Have a Good Time But Get Out Alive.*
 
 [Watch on Youtube: Have a Good Time but... Get out Alive](https://www.youtube.com/playlist?list=OLAK5uy_m8XucNiryNwVfJUu1EI206RMqA_KaLTK8)
 
@@ -142,7 +142,7 @@ No, because I was so excited when I wrote it! I went down to the studio with Ric
 
 [Watch on Youtube: American Babylon](https://www.youtube.com/watch?v=it0MaZc8ewg)
 
-**It’s funny you say that. I’m flashing back to [our *Have a Good Time* conversation](../2020-05-22_have-a-good-time-but-get-out-alive/post.md) and how when you put those bonus tracks out there was that demo of "Don’t Let Them Push You Around" that was wildly different from the final version.**<br>
+**It’s funny you say that. I’m flashing back to [our *Have a Good Time* conversation](../1988-04-25_have-a-good-time-but-get-out-alive/post.md) and how when you put those bonus tracks out there was that demo of "Don’t Let Them Push You Around" that was wildly different from the final version.**<br>
 
 [Watch on Youtube: Dont Let Them Push You Around (Demo)](https://www.youtube.com/watch?v=39gDr_UAxSU)
 

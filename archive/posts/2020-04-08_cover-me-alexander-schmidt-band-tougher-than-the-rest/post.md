@@ -10,7 +10,7 @@ post_id: 17537
 ---
 I don’t usually feature a cover artist a second time so soon after the first, but:
 
-a) Alexander Schmidt’s cover of “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” is just gorgeous–even better than his [previous cover](../2020-01-27_cover-me-alexander-schmidt-band-im-on-fire/post.md) of “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md).” It needs to be heard.
+a) Alexander Schmidt’s cover of “[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)” is just gorgeous–even better than his [previous cover](../2020-01-27_cover-me-alexander-schmidt-band-im-on-fire/post.md) of “[I’m on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md).” It needs to be heard.
 
 b) He’s got a new album (his debut, I think) of original material called [*Maverick*](https://www.youtube.com/playlist?list=PL12S3iSt14S9n9mLoFRPUy9g-YfVORcbW), and I’m very much enjoying my first listen.
 

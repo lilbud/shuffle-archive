@@ -46,7 +46,7 @@ post_id: 56368
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1988-04-04d.jpg.webp)
 
-**1993:** Night Two in Dortmund, Germany, for Bruce's World Tour 1993 features a rare (back then, anyway) acoustic arrangement of "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" along with acoustic versions of "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)" and "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" as well.<br>
+**1993:** Night Two in Dortmund, Germany, for Bruce's World Tour 1993 features a rare (back then, anyway) acoustic arrangement of "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" along with acoustic versions of "[Seeds](../2020-10-10_roll-of-the-dice-seeds/post.md)" and "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" as well.<br>
 
 [Watch on Youtube: Bruce Springsteen - Westfalenhalle, Dortmund 04.04.93](https://www.youtube.com/watch?v=DlSwO7z_59o)
 

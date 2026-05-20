@@ -34,11 +34,11 @@ I also didn’t know that this was the opening salvo in what would turn out to b
 
 “New York City Serenade” was gorgeous–just as beautiful as in Rome, but a subtly different performance. One of the joys of this leg of the tour would prove to be this ever evolving opener–each performance had its own character and style (much like its album-mate, “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)“), and astute listeners from that leg can listen to any one of them and tell you which show it came from.
 
-Now it was time to rock: the E Street Band launched into “[Wrecking Ball,](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)” a local favorite with added resonance, played on the site of the now-demolished stadium for which it was written.
+Now it was time to rock: the E Street Band launched into “[Wrecking Ball,](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md)” a local favorite with added resonance, played on the site of the now-demolished stadium for which it was written.
 
 [Watch on Youtube: Bruce Springsteen - Wrecking Ball - Aug 23, 2016 Metlife Stadim 20160823 201920](https://www.youtube.com/watch?v=lUoF09gMxcg)
 
-“[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” followed “Wrecking Ball,” a one-two punch that established a theme of defiance early on. But next up was another rarity, and my favorite track off [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md): “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md).”
+“[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)” followed “Wrecking Ball,” a one-two punch that established a theme of defiance early on. But next up was another rarity, and my favorite track off [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md): “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md).”
 
 During the extended introduction, Bruce told a new story–the first of several that evening–about the inspiration for the song, filled with metaphor that suggested this was not an ad lib.
 
@@ -58,7 +58,7 @@ The River run wasn’t unbroken, though–it was punctuated by a few even older 
 
 [Watch on Youtube: Bruce Springsteen Growin' Up 8/23/16 MetLife Stadium, NJ](https://www.youtube.com/watch?v=Ga50UOSi1UQ)
 
-The “Independence Day” video above doesn’t include it, but Bruce introduced that song, as usual, with a story about his father–but this time with much more color commentary than previously on the tour. And when the River run was finished, following a fierce “[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md),” Bruce told yet *another* long story, and I started to suspect that this leg was going to prove to be the “Autobiography Tour.” (Bruce’s *Born to Run* book had recently been announced.) I had no idea just how right I would prove to be a week later. For now, though, I just took in the story and enjoyed my very first “[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md).”
+The “Independence Day” video above doesn’t include it, but Bruce introduced that song, as usual, with a story about his father–but this time with much more color commentary than previously on the tour. And when the River run was finished, following a fierce “[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md),” Bruce told yet *another* long story, and I started to suspect that this leg was going to prove to be the “Autobiography Tour.” (Bruce’s *Born to Run* book had recently been announced.) I had no idea just how right I would prove to be a week later. For now, though, I just took in the story and enjoyed my very first “[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md).”
 
 [Watch on Youtube: Mansion on the Hill - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=kPD2ZBo9_Fc)
 
@@ -66,11 +66,11 @@ That beautiful performance was the start of a four-song slow set, which for any 
 
 [Watch on Youtube: Jack of All Trades (with strings) - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=ydQtkgz75Q0)
 
-“[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)” was next, almost a given for a hometown stand kick-off, and a full-throated audience singalong.
+“[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)” was next, almost a given for a hometown stand kick-off, and a full-throated audience singalong.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - My Hometown 2016-08-23](https://www.youtube.com/watch?v=7yP6RETtn-Q)
 
-“[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)“–always a highlight–wrapped up the slow set. Bruce picked up the tempo with a fierce “American Skin (41 Shots)” (Bruce was clearly sending a message via the theme of his song selection tonight) and then launched into a round of crowd-pleasing hits: “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md).” “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md),” “[Darlington County,](../2020-09-10_roll-of-the-dice-darlington-county/post.md)” “Because the Night,” “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)” and “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/).”
+“[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)“–always a highlight–wrapped up the slow set. Bruce picked up the tempo with a fierce “American Skin (41 Shots)” (Bruce was clearly sending a message via the theme of his song selection tonight) and then launched into a round of crowd-pleasing hits: “[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md).” “[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md),” “[Darlington County,](../1984-01-05_roll-of-the-dice-darlington-county/post.md)” “Because the Night,” “[She’s the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)” and “[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/).”
 
 [Watch on Youtube: The Promised Land - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=LJNlxhf8E6E)
 
@@ -82,11 +82,11 @@ That beautiful performance was the start of a four-song slow set, which for any 
 
 The whole second half of the show, in fact, was pretty standard, but I was fine with that. I’d walked in prepared for it, and I was surprised and delighted by the opener and by my first “Mansion on the Hill,” so I was happy to just enjoy a “greatest hits” set from that point on.
 
-“[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)” and “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)” wrapped the main set, and a majestic “Jungleland” kicked off the encores.
+“[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)” and “[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)” wrapped the main set, and a majestic “Jungleland” kicked off the encores.
 
 [Watch on Youtube: Jungleland - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=KUTRW5nscfY)
 
-It was a typical encore party from there: “Born to Run” giving way to “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md),” “Rosalita (Come Out Tonight),” “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md),” “[Shout](../2019-09-12_cover-me-shout/post.md),” and “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md).”
+It was a typical encore party from there: “Born to Run” giving way to “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md),” “Rosalita (Come Out Tonight),” “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md),” “[Shout](../2019-09-12_cover-me-shout/post.md),” and “[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md).”
 
 [Watch on Youtube: Bruce Springsteen 8/23/16 Dancing in the Dark with guests on stage MetLife Stadium, NJ](https://www.youtube.com/watch?v=XWBhTQzY_qk)
 

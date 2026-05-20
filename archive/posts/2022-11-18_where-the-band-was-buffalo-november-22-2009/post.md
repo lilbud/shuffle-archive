@@ -12,11 +12,11 @@ Way, way, up near the top of my favorite shows list lies this one. Certainly one
 
 One of the rules of Springsteen tours is that the penultimate show is almost always way better than the final show of the tour. This show was the exception, and over the last nine years it's only grown in stature.
 
-Not just because of one of the earliest performances of "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" (two years away from official release)…
+Not just because of one of the earliest performances of "[Wrecking Ball](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md)" (two years away from official release)…
 
 [Watch on Youtube: Springsteen "Wrecking Ball" Buffalo 11-22-09](https://www.youtube.com/watch?v=xUnqR9rQGWk)
 
-…or for the first-and-only-ever performance of Bruce's very first album start-to-finish (including the first-ever E Street Band performance of "[The Angel,](../2020-09-26_roll-of-the-dice-the-angel/post.md)" complete with viola), dedicated to Bruce's original manager Mike Appel…
+…or for the first-and-only-ever performance of Bruce's very first album start-to-finish (including the first-ever E Street Band performance of "[The Angel,](../2011-01-06_roll-of-the-dice-the-angel/post.md)" complete with viola), dedicated to Bruce's original manager Mike Appel…
 
 [Watch on Youtube: Bruce Springsteen - The Angel](https://www.youtube.com/watch?v=dBVO6p797Yk)
 

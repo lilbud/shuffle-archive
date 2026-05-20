@@ -96,7 +96,7 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication*, produced 
 
 [Watch on Youtube: Springsteen al benefit della Kristen Ann Carr Fund by Instagram George Zaver](https://www.youtube.com/watch?v=VSDq3QbDQgY)
 
-**2024:** Bruce opens his show in Columbus with the tour premiere of "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)." More surprises await lucky fans mid-show: the tour premieres of "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" and "[I'm Goin' Down.](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)"<br>
+**2024:** Bruce opens his show in Columbus with the tour premiere of "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)." More surprises await lucky fans mid-show: the tour premieres of "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" and "[I'm Goin' Down.](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - "Youngstown" - Columbus, Ohio - April 21, 2024](https://www.youtube.com/watch?v=AGY1lYBCe1s)
 

@@ -13,7 +13,7 @@ The nice thing about the 2004 "swing states" is that most of them were pretty cl
 
 Vote for Change Night Three was pretty similar to –the wild cards were tame by Bruce's standards ("" "," and "Travelin' Band"), but that was okay by me. These shows weren't about the setlists.
 
-[Night Two](../2018-10-02_where-the-band-was-cleveland-october-2-2004/post.md)[The Ties that Bind,](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)
+[Night Two](../2018-10-02_where-the-band-was-cleveland-october-2-2004/post.md)[The Ties that Bind,](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)
 
 [https://videopress.com/embed/vUaSHbY3](https://videopress.com/embed/vUaSHbY3)
 

@@ -36,7 +36,7 @@ post_id: 55627
 
 [Watch Video Highlight](https://videopress.com/embed/lH6SiNVz)
 
-**2006:** Bruce assembles the Seeger Sessions band for a final recording session, capturing “[Eyes on the Prize](../2021-11-01_cover-me-eyes-on-the-prize/post.md),” “[Jacob’s Ladder](../2019-04-18_rotd-cover-me-jacobs-ladder/post.md),” “[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md),” “[How Can I Keep From Singing](../2019-11-21_cover-me-how-can-i-keep-from-singing/post.md)” “[Bring ’em Home](../2021-06-23_rotd-cover-me-bring-em-home/post.md)” and “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md).” Of these, only “American Land” remains unreleased from this session. (Bruce re-recorded it for *Wrecking Ball*.)<br>
+**2006:** Bruce assembles the Seeger Sessions band for a final recording session, capturing “[Eyes on the Prize](../2006-01-10_cover-me-eyes-on-the-prize/post.md),” “[Jacob’s Ladder](../2006-01-08_rotd-cover-me-jacobs-ladder/post.md),” “[Buffalo Gals](../2006-01-15_cover-me-roll-of-the-dice-buffalo-gals/post.md),” “[How Can I Keep From Singing](../2006-01-16_cover-me-how-can-i-keep-from-singing/post.md)” “[Bring ’em Home](../2006-01-18_rotd-cover-me-bring-em-home/post.md)” and “[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md).” Of these, only “American Land” remains unreleased from this session. (Bruce re-recorded it for *Wrecking Ball*.)<br>
 
 [Watch on Youtube: Eyes on the Prize](https://www.youtube.com/watch?v=I7lnBLLn7wA)
 

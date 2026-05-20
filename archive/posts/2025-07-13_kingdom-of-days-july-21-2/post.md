@@ -36,7 +36,7 @@ post_id: 57794
 
 [Watch Video Highlight](https://videopress.com/embed/YhPvxRZh)
 
-**2009:** A stunner of a Working on a Dream show at the Stadio Olimpico in Turin–Bruce opens with the tour premiere of "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)" and delights with additional tour premieres of "[Drive All Night,](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" "[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md)," "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)," "Travelin' Band," and "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)."<br>
+**2009:** A stunner of a Working on a Dream show at the Stadio Olimpico in Turin–Bruce opens with the tour premiere of "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)" and delights with additional tour premieres of "[Drive All Night,](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" "[Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md)," "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)," "Travelin' Band," and "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/rh2cqQ7y)
 
@@ -44,7 +44,7 @@ post_id: 57794
 
 [Watch on Youtube: Turin 21/07/2009](https://www.youtube.com/playlist?list=PLJTyL9twk3zB01lb7dEjsgb_Lj1bmvwyA)
 
-**2012:** The Wrecking Ball Tour starts a Scandinavian swing with a show at Valle Hovin Stadion in Oslo. Bruce opens with an acoustic "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)," tour premieres "[Ain't Good Enough for You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)" and "[Streets of Fire,](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" and ends the show with a surprise bonus encore of "[Night](../2019-10-31_roll-of-the-dice-night/post.md)."<br>
+**2012:** The Wrecking Ball Tour starts a Scandinavian swing with a show at Valle Hovin Stadion in Oslo. Bruce opens with an acoustic "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)," tour premieres "[Ain't Good Enough for You](../2019-06-02_roll-of-the-dice-aint-good-enough-for-you/post.md)" and "[Streets of Fire,](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" and ends the show with a surprise bonus encore of "[Night](../2019-10-31_roll-of-the-dice-night/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen (live) - Wrecking Ball - Valle Hovin, Oslo - 2012-07-21](https://www.youtube.com/watch?v=fSB2ZPD8Tow)
 

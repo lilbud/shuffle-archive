@@ -28,7 +28,7 @@ Connection. Specifically, the connection between the singer and his wife.
 
 When Bruce sings "Tougher Than the Rest" solo, it's a beautiful thing. But when he sings it with Patti Scialfa… it's electric. And it's been that way from the very beginning.
 
-Bruce was very wise to make the official video for "Tougher Than the Rest" a live performance (the same one featured on his *Chimes of Freedom* EP) rather than use the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)studio track.
+Bruce was very wise to make the official video for "Tougher Than the Rest" a live performance (the same one featured on his *Chimes of Freedom* EP) rather than use the [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md)studio track.
 
 It's unclear whether Bruce and Patti were romantically entwined when this performance was captured in Los Angeles on April 27, 1988 (they've always been discreet about exactly when they got together), but if they weren't at the time, [they certainly were about to be](../2020-03-26_cover-me-boom-boom/post.md). Director Meiert Avis (who also filmed the videos for "[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)," "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)," and "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)") captured the chemistry between Bruce and Patti… and it's something to see, even all these years later.
 

@@ -34,9 +34,9 @@ Don't make me do it alone, okay?
 
 Why does this song elicit such a visceral reaction from me?
 
-Well, it's not the lyrics. I mean, they're not particularly profound, but they're serviceable. In fact, similar to the lesson I relearned when I wrote about "[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md)" recently, there's an argument to be made for "Cover Me" being a decent pop song if only it was set to a different backing track and arrangement.
+Well, it's not the lyrics. I mean, they're not particularly profound, but they're serviceable. In fact, similar to the lesson I relearned when I wrote about "[Letter to You](../2017-01-03_roll-of-the-dice-letter-to-you/post.md)" recently, there's an argument to be made for "Cover Me" being a decent pop song if only it was set to a different backing track and arrangement.
 
-In fact, Bruce himself made that argument implicitly, when he recast "Cover Me" almost a year and a half after he recorded it, as the unreleased outtake "[Drop On Down and Cover Me](../2019-12-18_roll-of-the-dice-drop-on-down-and-cover-me/post.md)."
+In fact, Bruce himself made that argument implicitly, when he recast "Cover Me" almost a year and a half after he recorded it, as the unreleased outtake "[Drop On Down and Cover Me](../1984-01-16_roll-of-the-dice-drop-on-down-and-cover-me/post.md)."
 
 [Watch on Youtube: Bruce Springstenn - Drop On Down And Cover Me](https://www.youtube.com/watch?v=4iQh-UzJiH4)
 
@@ -90,7 +90,7 @@ Like, *really* awkward.
 
 Bruce's smoking guitar solo distracts for the first few seconds out of the gate, but as soon as the first verse kicks in, so do the cringes. The E Street Band has grown tremendously in versatility over the years but in 1982, they were ill-suited for a song that clearly cries out for a disco beat. Bruce does his best to save it with his lead guitar (and Garry is particularly and impressively active throughout), but it's not enough to be convincing.
 
-Lacking any substantive lyrics to distract from or elevate the backing track, "Cover Me" doesn't so much rock as plod–which may be what motivated Bruce to commission DJ/producer Arthur Baker to remix "Cover Me" (along with "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "[Dancing in the Dark.](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)")
+Lacking any substantive lyrics to distract from or elevate the backing track, "Cover Me" doesn't so much rock as plod–which may be what motivated Bruce to commission DJ/producer Arthur Baker to remix "Cover Me" (along with "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "[Dancing in the Dark.](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)")
 
 "Cover Me" proved a much bigger challenge than the other two singles, though, and Baker did much more than remix the song. He swapped out Garry's bassline for a new one by Brian Rock, and he added a new background vocal track by Jocelyn Brown.
 

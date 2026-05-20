@@ -46,7 +46,7 @@ post_id: 56751
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Sunday_Sun_Sun__May_17__1981_-scaled.jpg.webp)
 
-**1982:** Bruce works on "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)," "This Hard Land," "[Baby I'm So Cold](../2019-05-04_roll-of-the-dice-baby-im-so-cold/post.md)" and "Common Ground (Stay Hungry)" at The Power Station in New York City.<br>
+**1982:** Bruce works on "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)," "This Hard Land," "[Baby I'm So Cold](../2019-05-04_roll-of-the-dice-baby-im-so-cold/post.md)" and "Common Ground (Stay Hungry)" at The Power Station in New York City.<br>
 
 **1984:** Nils Lofgren officially joins The E Street Band and rehearses with his new bandmates at the former home of Big Man's West in Red Bank.<br>
 

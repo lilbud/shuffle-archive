@@ -78,7 +78,7 @@ post_id: 57749
 
 [Watch Video Highlight](https://videopress.com/embed/NPLvxg3D)
 
-**2005:** Bruce busts open his Devils & Dust setlist in Buffalo with six tour premieres, including "[4th of July, Asbury Park (Sandy),](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" a solo piano "Leap of Faith," "[You're Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md)," "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[When You're Alone](../2020-11-15_roll-of-the-dice-when-youre-alone/post.md)," and a show-opening new acoustic arrangement of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" on guitar and harmonica.<br>
+**2005:** Bruce busts open his Devils & Dust setlist in Buffalo with six tour premieres, including "[4th of July, Asbury Park (Sandy),](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" a solo piano "Leap of Faith," "[You're Missing](../2020-02-11_roll-of-the-dice-youre-missing/post.md)," "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[When You're Alone](../1987-01-11_roll-of-the-dice-when-youre-alone/post.md)," and a show-opening new acoustic arrangement of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" on guitar and harmonica.<br>
 
 [Watch on Youtube: Bruce Springsteen Prove It All Night Live In Buffalo Solo Acoustic 2005](https://www.youtube.com/watch?v=6tdzu7g-jjc)
 

@@ -10,7 +10,7 @@ post_id: 12295
 ---
 There are so many covers of Bruce Springsteen's songs out there that I sometimes wonder if I'll ever be able to catalog them all.
 
-Most are the usual suspects: "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)," "Because the Night," "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" all get lots and lots of love.
+Most are the usual suspects: "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)," "Because the Night," "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," and "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" all get lots and lots of love.
 
 Sometimes, though, an artist takes a crack at one of Bruce's deep cuts, and they don't get much deeper than "[Lift Me Up.](../2018-05-20_roll-of-the-dice-lift-me-up/post.md)"
 

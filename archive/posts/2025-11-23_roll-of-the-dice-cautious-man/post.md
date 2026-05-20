@@ -57,7 +57,7 @@ It's not coincidence that Bruce introduces his character as "Bill" in the first 
 
 Here's the introduction of that iconic movie imagery we discussed above. It's not clear whether Bruce intends us to take that couplet literally or not. I've always considered it purely metaphorical. Either way, though, it's symbolic of the main character trying to keep his self-destructive tendencies in check.
 
-Did I forget to mention that Bruce wrote "Cautious Man" when he was not-that-long married to his first wife? As with much of *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*, Bruce was clearly working through some issues through song.
+Did I forget to mention that Bruce wrote "Cautious Man" when he was not-that-long married to his first wife? As with much of *[Tunnel of Love](../1987-01-01_album-companion-tunnel-of-love/post.md)*, Bruce was clearly working through some issues through song.
 
 There's a brief musical interlude here, as Bruce introduces dreamy keyboards to convey the passage of idyllic time.
 

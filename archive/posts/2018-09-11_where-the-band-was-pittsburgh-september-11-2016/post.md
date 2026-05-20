@@ -34,7 +34,7 @@ But September 11th saw the return of the storyteller, with a carefully construct
 
 [Watch on Youtube: Bruce Springsteen You're Missing Pittsburgh Consol Energy Arena September 11 2016](https://www.youtube.com/watch?v=VXIQIm2KEs4)
 
-When Bruce finally set *The Rising* aside (only for a bit–he'd return to it later), it was to play "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" a song of defiance and perseverance–another deliberate message. The middle of the show was still the chronological journey of recent shows, but the song selection trended darker, angrier: "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" and "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" made rare appearances.
+When Bruce finally set *The Rising* aside (only for a bit–he'd return to it later), it was to play "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" a song of defiance and perseverance–another deliberate message. The middle of the show was still the chronological journey of recent shows, but the song selection trended darker, angrier: "[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)" and "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" made rare appearances.
 
 [Watch on Youtube: Bruce Springsteen Streets of Fire Pittsburgh PA September 11 2016 Consol Energy Arena](https://www.youtube.com/watch?v=xBopIYPLLZs)
 
@@ -42,7 +42,7 @@ When Bruce finally set *The Rising* aside (only for a bit–he'd return to it la
 
 [Watch on Youtube: Bruce Springsteen Downbound Train Pittsburgh PA September 11 2016 Consol Energy Arena](https://www.youtube.com/watch?v=4dE-7cPuBpU)
 
-Finally, the set wrapped with "My City of Ruins," "[The Rising,](../2020-11-21_roll-of-the-dice-the-rising/post.md)" and "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)"–a triple-shot of resilience, determination, and defiance. This was a show that was as emotionally exhausting as it was physically.
+Finally, the set wrapped with "My City of Ruins," "[The Rising,](../2016-01-18_roll-of-the-dice-the-rising/post.md)" and "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)"–a triple-shot of resilience, determination, and defiance. This was a show that was as emotionally exhausting as it was physically.
 
 **2) The setting**<br>
 
@@ -58,7 +58,7 @@ Joe Grushecky is a long-time favorite of mine, and I'd never been able to catch 
 
 As I alluded above, Bruce never once directly addressed the significance of date. He didn't need to.
 
-He's played "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" at every show since he debuted it in 2002. I've seen him perform it more times than even "Born to Run." But it never felt as fresh and urgent as it did that night. And "My City of Ruins…" I've seen photos that capture the visual of an arena full of uplifted beacons, but nothing can capture the deafening communal roar of the "Rise Up!" chorus that night.
+He's played "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)" at every show since he debuted it in 2002. I've seen him perform it more times than even "Born to Run." But it never felt as fresh and urgent as it did that night. And "My City of Ruins…" I've seen photos that capture the visual of an arena full of uplifted beacons, but nothing can capture the deafening communal roar of the "Rise Up!" chorus that night.
 
 [Watch on Youtube: Bruce Springsteen - My City Of Ruins - Pittsburgh - 9/11/16](https://www.youtube.com/watch?v=Z7UmQxRcdkI)
 

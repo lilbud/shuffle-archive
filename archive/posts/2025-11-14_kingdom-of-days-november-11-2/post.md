@@ -70,7 +70,7 @@ post_id: 61329
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/The_Independent_Sun__Nov_19__2006_-scaled.jpg.webp)
 
-**2007:** The Magic Tour stops in Washington DC for the first of two nights at the Verizon Center, where Bruce tour premieres "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," and Frank Bruno makes a guest appearance on the show-closing "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)."<br>
+**2007:** The Magic Tour stops in Washington DC for the first of two nights at the Verizon Center, where Bruce tour premieres "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," and Frank Bruno makes a guest appearance on the show-closing "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)."<br>
 
 [Watch on Youtube: Growin' Up Bruce Springsteen 11/11/2007 Washington D.C.](https://www.youtube.com/watch?v=08eTLmDAM5g)
 

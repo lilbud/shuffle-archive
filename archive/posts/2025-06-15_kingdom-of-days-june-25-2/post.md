@@ -24,7 +24,7 @@ post_id: 57180
 
 **1984:** Bruce and the E Street Band rehearse one last time before kicking off the Born in the U.S.A. Tour. Following her successful audition the day before, Bruce invites Patti Scialfa to join the band effective immediately. She accepts on the spot.<br>
 
-**1985:** The French leg of the Born in the U.S.A. Tour continues with a show in Saint-Etienne, where Bruce plays "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" for the very first time in Europe.<br>
+**1985:** The French leg of the Born in the U.S.A. Tour continues with a show in Saint-Etienne, where Bruce plays "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" for the very first time in Europe.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/oaIjWOlU)
 
@@ -46,7 +46,7 @@ post_id: 57180
 
 [Watch Video Highlight](https://videopress.com/embed/BVjxn8FM)
 
-**1993:** David Letterman films his final episode on NBC before moving to CBS and turning his NBC show over to Conan O'Brien. To mark the occasion, Bruce drops by as a surprise guest and performs "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)," momentarily taking over leadership of the house band. Watch the band have the time of their lives below.<br>
+**1993:** David Letterman films his final episode on NBC before moving to CBS and turning his NBC show over to Conan O'Brien. To mark the occasion, Bruce drops by as a surprise guest and performs "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)," momentarily taking over leadership of the house band. Watch the band have the time of their lives below.<br>
 
 [Watch on Youtube: "Project X" on Letterman, June 25, 1993](https://www.youtube.com/watch?v=R9hqLDOPNg8)
 
@@ -56,7 +56,7 @@ post_id: 57180
 
 [Watch Video Highlight](https://videopress.com/embed/fpJ31k53)
 
-**2005:** Four tour premieres when the Devils & Dust Tour stops in Stockholm, including "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)," "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)," "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)," and the first "[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)" in 17 years. This show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24925/bruce-springsteen-hovet-stockholm-se-06-25-2005-mp3-flac-or-online-music-streaming.html).<br>
+**2005:** Four tour premieres when the Devils & Dust Tour stops in Stockholm, including "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)," "[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md)," "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)," and the first "[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)" in 17 years. This show is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24925/bruce-springsteen-hovet-stockholm-se-06-25-2005-mp3-flac-or-online-music-streaming.html).<br>
 
 [Watch on Youtube: Bruce Springsteen Archives: "Reason To Believe" Stockholm, Sweden, June 25, 2005](https://www.youtube.com/watch?v=o2GxcTjeu58)
 

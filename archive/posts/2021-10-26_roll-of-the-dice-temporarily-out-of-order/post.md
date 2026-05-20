@@ -47,7 +47,7 @@ Poor guy: his girl ghosted him before ghosting was a thing. And while the operat
 
 While only one performance of "Temporarily Out of Order" is definitively documented (the muddy one above), given the scarcity of recordings and set lists from that era, it's likely the band performed it at least a few times in early 1970.
 
-So let's keep our fingers crossed for a cleaner, clearer recording someday–it may not be one of Bruce's deepest early songs, but it's got a self-deprecating "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" charm that makes it worth a listen.
+So let's keep our fingers crossed for a cleaner, clearer recording someday–it may not be one of Bruce's deepest early songs, but it's got a self-deprecating "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)" charm that makes it worth a listen.
 
 **Temporarily Out of Order**<br>
 **Never recorded**<br>

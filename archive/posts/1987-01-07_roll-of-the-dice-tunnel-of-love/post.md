@@ -38,7 +38,7 @@ When Bruce first started recording sessions for his next album in January 1987, 
 
 "[The Honeymooners](../2018-04-04_roll-of-the-dice-the-honeymooners/post.md)," "[The Wish](../2018-06-23_roll-of-the-dice-the-wish/post.md)," and "[Two For the Road](../2020-06-30_roll-of-the-dice-two-for-the-road/post.md)" followed shortly thereafter, as Bruce continued exploring the idyllic side of romantic and familial love. By the end of February, however, Bruce's writing (or at least his recording) started to take a more ominous turn with "[Brilliant Disguise.](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)"
 
-Only two songs on [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)were recorded after the (unconfirmed) April separation date: "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" in late May/early June, and "Tunnel of Love" in late June/early July.
+Only two songs on [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md)were recorded after the (unconfirmed) April separation date: "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" in late May/early June, and "Tunnel of Love" in late June/early July.
 
 In essence, the later the recording, the murkier the theme, and there's no question that by those final two songs Bruce was finally and directly coming to terms with his inability to make his relationships work.
 

@@ -62,7 +62,7 @@ That same evening, Bruce plays a rehearsal show for his upcoming solo acoustic w
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1995-11-21d.png.webp)
 
-**1996:** One year later, the Ghost of Tom Joad Tour is still going strong. Bruce plays tonight at the Murat Theater in Indianapolis, where he tour premieres "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)."<br>
+**1996:** One year later, the Ghost of Tom Joad Tour is still going strong. Bruce plays tonight at the Murat Theater in Indianapolis, where he tour premieres "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)."<br>
 
 [Watch on Youtube: November 21, 1996 - Bruce Springsteen at Murat Theatre in Indy](https://www.youtube.com/watch?v=YXHvxdrSl2U)
 
@@ -118,4 +118,4 @@ That same evening, Bruce plays a rehearsal show for his upcoming solo acoustic w
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2017-11-21b.png.webp)
 
-**2019:** Bruce assembles the E Street Band for the fourth day of a five-day recording session that will yield [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md).<br>
+**2019:** Bruce assembles the E Street Band for the fourth day of a five-day recording session that will yield [*Letter to You*](../2017-01-01_album-companion-letter-to-you/post.md).<br>

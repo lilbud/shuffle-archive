@@ -12,9 +12,9 @@ In 1984, the world was introduced to Wilson and Wayne, two good ol' boys driving
 
 That road trip did not end well: it ends with Wayne handcuffed to the bumper of a state trooper's Ford. But we never learn *why–*what exactly did Wayne do to attract attention from the long arm of the law?
 
-Well, it all comes down to a flat-bed truck, a load of chickens, and [Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)‘s long-lost sister. No, not [Betty Jean](../2019-02-13_roll-of-the-dice-betty-jean/post.md), I mean the *other* other Jean.
+Well, it all comes down to a flat-bed truck, a load of chickens, and [Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)‘s long-lost sister. No, not [Betty Jean](../2019-02-13_roll-of-the-dice-betty-jean/post.md), I mean the *other* other Jean.
 
-Buckle up, and we'll listen to "Delivery Man," Bruce Springsteen's unreleased prequel to "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)."
+Buckle up, and we'll listen to "Delivery Man," Bruce Springsteen's unreleased prequel to "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)."
 
 [Watch Video Highlight](https://videopress.com/embed/NfMckKM4)
 

@@ -12,11 +12,11 @@ post_id: 15193
 
 In point of fact, "Car Wash" wasn't even called "Car Wash" until Bruce rescued the track from his vault for his 1998 *Tracks* box set project. Until then, from its original recording date fifteen years earlier, the song was called "Small Town Girl," which clues us in to not placing too much importance or symbolism on her place of employment.
 
-The track itself is a fun one, a honky-tonk arrangement that would make for a fine set list companion to "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)." (The similarity of the two tracks may be one reason why Bruce chose to leave "Small Town Girl" off of *Born in the U.S.A.*)
+The track itself is a fun one, a honky-tonk arrangement that would make for a fine set list companion to "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)." (The similarity of the two tracks may be one reason why Bruce chose to leave "Small Town Girl" off of *Born in the U.S.A.*)
 
 [Watch on Youtube: Car Wash (Studio Outtake - 1983)](https://www.youtube.com/watch?v=I9m2UMyBBWU)
 
-"Small Town Girl" wasn't the only song to come out of those recording sessions to feature a car wash as a prominent locale–"[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" did so as well. But whereas "Downbound Train" uses the car wash as ironic metaphor, there's barely a lick of symbolism, metaphor, or imagery to be found in "Car Wash."
+"Small Town Girl" wasn't the only song to come out of those recording sessions to feature a car wash as a prominent locale–"[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" did so as well. But whereas "Downbound Train" uses the car wash as ironic metaphor, there's barely a lick of symbolism, metaphor, or imagery to be found in "Car Wash."
 
 "Car Wash" is about the difficulty of hanging on to your dreams in the face of a stark reality that seems to defy them from ever being realized. In the song's sole poetic touch, Catherine refers to her job at the car wash as "doing time," a deliberate prison reference.
 

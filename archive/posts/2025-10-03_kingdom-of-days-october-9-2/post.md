@@ -60,7 +60,7 @@ post_id: 61076
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-10-09b.jpg.webp)
 
-**2009:** Bruce and the E Street Band play their last-ever show at Giants Stadium, sending it off in style with a final "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" to open and a cover of "[The Last Time](../2020-07-24_cover-me-the-last-time/post.md)" in the encores.<br>
+**2009:** Bruce and the E Street Band play their last-ever show at Giants Stadium, sending it off in style with a final "[Wrecking Ball](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md)" to open and a cover of "[The Last Time](../2020-07-24_cover-me-the-last-time/post.md)" in the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen 10-9-09 Last Time, Screen Shot, Giants Stadium](https://www.youtube.com/watch?v=UvtrrLkreH8)
 

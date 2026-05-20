@@ -24,7 +24,7 @@ On a cold day in late November, my friend Tjeerd and I took a ride across the bo
 
 [Watch Video Highlight](https://videopress.com/embed/tKxNYA4j)
 
-Next came one of the intact cores of the Wrecking Ball Tour: the successive sequence of “[We Take Care of Our Own,](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)” “[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md),” and “[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md).” I’m a big fan of the [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album, and I was delighted that this far into the tour, Bruce was still spotlighting so much new material.
+Next came one of the intact cores of the Wrecking Ball Tour: the successive sequence of “[We Take Care of Our Own,](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)” “[Wrecking Ball](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md),” and “[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md).” I’m a big fan of the [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album, and I was delighted that this far into the tour, Bruce was still spotlighting so much new material.
 
 [Watch Video Highlight](https://videopress.com/embed/eq7JohEx)
 
@@ -44,9 +44,9 @@ A rare “[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.
 
 [Watch Video Highlight](https://videopress.com/embed/i8kDYSAe)
 
-If there was a low point of the evening, it came next. “[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)” is one of the few Springsteen songs that I absolutely hate, and even though it’s a rarity, I seem to have a knack for being in the room when he plays it. Like this night.
+If there was a low point of the evening, it came next. “[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)” is one of the few Springsteen songs that I absolutely hate, and even though it’s a rarity, I seem to have a knack for being in the room when he plays it. Like this night.
 
-The second half of the *Born in the U.S.A.* double-header was better, although if I recall correctly, Nils forgot to join Bruce mid-arena during “[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)” and literally had to run from the stage to catch up to Bruce once he remembered.
+The second half of the *Born in the U.S.A.* double-header was better, although if I recall correctly, Nils forgot to join Bruce mid-arena during “[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)” and literally had to run from the stage to catch up to Bruce once he remembered.
 
 [Watch Video Highlight](https://videopress.com/embed/hB0p0pet)
 
@@ -62,7 +62,7 @@ The encore set was outstanding, starting with a pair of genuine surprises–not 
 
 [Watch Video Highlight](https://videopress.com/embed/F2Y7ISRz)
 
-Next, lights up for “Born to Run” and “[Dancing in the Dark.](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” And then–finally–Santa (who made an appearance himself), followed by a show-closing “[Tenth Avenue Freeze-Out.](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)”
+Next, lights up for “Born to Run” and “[Dancing in the Dark.](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)” And then–finally–Santa (who made an appearance himself), followed by a show-closing “[Tenth Avenue Freeze-Out.](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)”
 
 [Watch Video Highlight](https://videopress.com/embed/8ng5tnEo)
 

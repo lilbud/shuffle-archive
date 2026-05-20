@@ -46,7 +46,7 @@ post_id: 56782
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2002-05-18b.jpg.webp)
 
-**2009:** Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)," "Hava Nagila"(!) and "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)."<br>
+**2009:** Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: "[Little Latin Lupe Lu](../1976-01-14_cover-me-little-latin-lupe-lu/post.md/)," "Hava Nagila"(!) and "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/qDmdrtO6)
 

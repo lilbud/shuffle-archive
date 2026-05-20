@@ -72,7 +72,7 @@ Wondering how that show came to happen? Watch the interview below.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1988-0621.jpg.webp)
 
-**1992:** At Night Two in Milan, "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" makes its tour premiere and for the very first time, the crowd sings the instrumental bridge before the final verse, establishing a worldwide "Badlands" tradition forevermore. (*Of course*, that starts in Milan!) "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)," "[Tougher than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" and "Born to Run" make their tour debuts as well, and a soundcheck of "[Club Soul City](../2019-05-07_cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/post.md)" is surreptitiously recorded.<br>
+**1992:** At Night Two in Milan, "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" makes its tour premiere and for the very first time, the crowd sings the instrumental bridge before the final verse, establishing a worldwide "Badlands" tradition forevermore. (*Of course*, that starts in Milan!) "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)," "[Tougher than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)" and "Born to Run" make their tour debuts as well, and a soundcheck of "[Club Soul City](../2019-05-07_cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/post.md)" is surreptitiously recorded.<br>
 
 [CSC Milano 1992 by Brucebase Wiki](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F437507529&show_artwork=true&maxheight=1000&maxwidth=758)
 

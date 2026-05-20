@@ -57,13 +57,13 @@ And he does it against a Morricone-inspired, carefully crafted backing track (th
 
 It is breathtakingly effective.
 
-"Outlaw Pete" is the story of a man who tries his best to outrun his past, and for a while, he's successful. But what Bruce realized in the years since he introduced us to Frankie in "Highway Patrolman," Wilson in "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)," and Bill in "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)," is that if stories last long enough, the past *always* catches up.
+"Outlaw Pete" is the story of a man who tries his best to outrun his past, and for a while, he's successful. But what Bruce realized in the years since he introduced us to Frankie in "Highway Patrolman," Wilson in "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)," and Bill in "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)," is that if stories last long enough, the past *always* catches up.
 
 It's my wont to summarize the song in these essays, but in this case the author himself does it pretty well. In that same interview with Mark Hagen, Bruce described Pete's motivation:
 
 > *"He moves ahead. He tries to make the right moves. He awakes from a vision of his death and realizes: Life is finite. Time is with me always. And I'm frightened. And he rides west where he settles down. But the past comes back in the form of this bounty hunter, whose mind is also quickened and burdened by the need to get his man. And these possessed creatures meet along the shores of this river where the bounty hunter of course is killed, and his last words are: ‘We can't undo the things we've done.'"*<br>
 
-That's a pretty good synopsis of the main events of "Outlaw Pete." When we meet Pete, he's just a babe, introduced to us "[John Henry](../2021-06-01_cover-me-rotd-john-henry/post.md)"-style– so brash in his youth, invincibility and notoriety that he shouts his name as if the wind would carry it forever, daring all who hear him to forget him.
+That's a pretty good synopsis of the main events of "Outlaw Pete." When we meet Pete, he's just a babe, introduced to us "[John Henry](../2006-01-06_cover-me-rotd-john-henry/post.md)"-style– so brash in his youth, invincibility and notoriety that he shouts his name as if the wind would carry it forever, daring all who hear him to forget him.
 
 > *He was born a little baby on the Appalachian Trail*<br>
 > *At six months old he'd done three months in jail*<br>
@@ -139,7 +139,7 @@ All we can do with our past is reckon with it. Because otherwise it will come fo
 
 ---
 
-If "Outlaw Pete" met a mixed reception from E Street Nation in its album form, it was often treated with outright apathy in concert. A regular set list staple throughout the Working on a Dream Tour, "Outlaw Pete" usually featured early in the set, where its change-up pacing and novel length often threatened to sap the show of the kinetic energy Bruce had generated with his opening "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)."
+If "Outlaw Pete" met a mixed reception from E Street Nation in its album form, it was often treated with outright apathy in concert. A regular set list staple throughout the Working on a Dream Tour, "Outlaw Pete" usually featured early in the set, where its change-up pacing and novel length often threatened to sap the show of the kinetic energy Bruce had generated with his opening "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)."
 
 In Europe however, where his audiences ironically had a greater fascination and appreciation for American Westerns than his own fellow countrymen did, "Outlaw Pete" receive a warmer response.
 

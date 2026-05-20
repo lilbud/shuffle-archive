@@ -42,7 +42,7 @@ post_id: 59422
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1985-08-26b.png.webp)
 
-**1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)," and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" Afterwards, he zips over to The Columns in Avon, where he performs "[Lucille](../1976-01-07_cover-me-lucille/post.md/)" and "[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)" with The Cherubs.<br>
+**1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)," and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" Afterwards, he zips over to The Columns in Avon, where he performs "[Lucille](../1976-01-07_cover-me-lucille/post.md/)" and "[Stand By Me](../2021-12-12_matr-u2-and-bruce-springsteen-stand-by-me/post.md)" with The Cherubs.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2cGZrAWC)
 
@@ -66,7 +66,7 @@ post_id: 59422
 
 [Watch on Youtube: In Concert/MTV Plugged](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pbccXmiIkXNfQ2dUMIu6OVT)
 
-**1999:** Bruce and the reunited E Street Band play their fourth of five shows at Boston's Fleet Center. Anyone know what was going on during "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)?"<br>
+**1999:** Bruce and the reunited E Street Band play their fourth of five shows at Boston's Fleet Center. Anyone know what was going on during "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)?"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/weH542fm)
 

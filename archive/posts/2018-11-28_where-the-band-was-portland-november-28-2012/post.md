@@ -20,7 +20,7 @@ Two nights earlier, Bruce surprised and delighted me by opening the show with �
 
 The first half of the main set played out like a typical Wrecking Ball show, but as was often the case on that tour, all it took was the right sign to shake things up.
 
-First up, a spinner randomizer that *almost* landed on “[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)” (tip: not a great request for an E Street Band show–save that for the next Seeger tour), but thanks to some human intervention instead gave us “Steve’s Choice” (tip: always a great request option–Steve will never steer us wrong). Stevie chose the River outtake “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md),” a favorite of mine as well and my personal premiere for the show.
+First up, a spinner randomizer that *almost* landed on “[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)” (tip: not a great request for an E Street Band show–save that for the next Seeger tour), but thanks to some human intervention instead gave us “Steve’s Choice” (tip: always a great request option–Steve will never steer us wrong). Stevie chose the River outtake “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md),” a favorite of mine as well and my personal premiere for the show.
 
 [Watch on Youtube: Loose Ends Bruce Springsteen Portland November 28th 2012](https://www.youtube.com/watch?v=sB2oR8odTlc)
 
@@ -32,7 +32,7 @@ Over the course of the tour, Bruce had steered away from the “hard times” th
 
 [Watch on Youtube: Bruce Springsteen - Seeds (Live in Portland 2012-11-28)](https://www.youtube.com/watch?v=k8ZlKq7V9Sg)
 
-“[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)” featured the return of the “Lesbians ❤️ Bruce” crew–they cracked Bruce up [the last time he came through Portland](../2018-03-28_where-the-band-was-portland-march-28-2008/post.md), and it was great to see them get called up on stage this time.
+“[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)” featured the return of the “Lesbians ❤️ Bruce” crew–they cracked Bruce up [the last time he came through Portland](../2018-03-28_where-the-band-was-portland-march-28-2008/post.md), and it was great to see them get called up on stage this time.
 
 [Watch on Youtube: Bruce Springsteen - Darlington County (partial) - Portland, OR - 11/28/12](https://www.youtube.com/watch?v=fYRl1qbc_9I)
 
@@ -40,7 +40,7 @@ But the night’s highest lights came late in the show: first a rare, sublime �
 
 [Watch on Youtube: Drive All Night - Bruce Springsteen Portland OR Nov 28/12](https://www.youtube.com/watch?v=k2XmFqREHUQ)
 
-…and last, but for me the loveliest moment of the night: a by-request solo electric rendition of “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md) to open the encores, featuring one of Bruce’s best vocal performances of the entire tour.
+…and last, but for me the loveliest moment of the night: a by-request solo electric rendition of “[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md) to open the encores, featuring one of Bruce’s best vocal performances of the entire tour.
 
 [Watch on Youtube: Bruce Springsteen - If I Should Fall Behind Portland, OR Nov 28/12](https://www.youtube.com/watch?v=vp3sAJKac2E)
 

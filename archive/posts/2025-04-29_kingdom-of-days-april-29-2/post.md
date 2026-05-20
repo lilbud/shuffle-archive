@@ -90,7 +90,7 @@ Later in the show, Bruce performs "[Racing in the Street](../2021-10-03_roll-of-
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2012-04-29.jpg.webp)
 
-**2013:** The European leg of the Wrecking Ball Tour kicks off in Oslo with a stunning acoustic pre-show that includes "[All That Heaven Will Allow](../2022-08-05_roll-of-the-dice-all-that-heaven-will-allow/post.md)" and "[The Fever.](../2020-10-04_roll-of-the-dice-the-fever/post.md)" The main event is no slouch either, opening with Stevie in Lilyhammer character singing "[My Kind of Town](../2022-01-09_cover-me-my-kind-of-town/post.md)" and the tour premiere of "Follow that Dream."<br>
+**2013:** The European leg of the Wrecking Ball Tour kicks off in Oslo with a stunning acoustic pre-show that includes "[All That Heaven Will Allow](../1987-01-03_roll-of-the-dice-all-that-heaven-will-allow/post.md)" and "[The Fever.](../2020-10-04_roll-of-the-dice-the-fever/post.md)" The main event is no slouch either, opening with Stevie in Lilyhammer character singing "[My Kind of Town](../2022-01-09_cover-me-my-kind-of-town/post.md)" and the tour premiere of "Follow that Dream."<br>
 
 [Watch on Youtube: Bruce Springsteen 2013-04-29 Oslo - The Fever (solo acoustic guitar pre-show)](https://www.youtube.com/watch?v=h-xSurGojKw)
 

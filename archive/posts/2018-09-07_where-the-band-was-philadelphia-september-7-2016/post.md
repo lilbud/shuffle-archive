@@ -32,7 +32,7 @@ It was clear to me this show was going to set a record when I realized we were a
 
 [Watch on Youtube: Thundercrack - Springsteen - Philadelphia Sept 7, 2016](https://www.youtube.com/watch?v=tWAWaM4B2Qk)
 
-The second half of the show covered more traditional "greatest hits" territory, as if Bruce was rewarding more casual fans for indulging the old-time obsessives in the first half. But there were still gems to be unearthed, even if only semi-precious: "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)" infused the park with a jolt of adrenaline; "[Jack of All Trades](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)" with the string section commanded attention, and a late-set "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" was a welcome addition to the *Born in the U.S.A.* portion of the evening.
+The second half of the show covered more traditional "greatest hits" territory, as if Bruce was rewarding more casual fans for indulging the old-time obsessives in the first half. But there were still gems to be unearthed, even if only semi-precious: "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)" infused the park with a jolt of adrenaline; "[Jack of All Trades](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)" with the string section commanded attention, and a late-set "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" was a welcome addition to the *Born in the U.S.A.* portion of the evening.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band "Downbound Train" Live @ Citizens Bank Park](https://www.youtube.com/watch?v=WKAbIedIesY)
 

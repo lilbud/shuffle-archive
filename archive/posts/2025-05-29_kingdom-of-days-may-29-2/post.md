@@ -102,7 +102,7 @@ post_id: 56858
 
 [Watch on Youtube: Bruce Springsteen - Croke Park - Dublin - 29 May 2016 - Thunder Road](https://www.youtube.com/watch?v=dYl5h2vAxOs)
 
-**2020:** Bruce makes one of his strangest pandemic appearances, remotely joining Dropkick Murphys on "Rose Tattoo" and "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" in their empty stadium performance at Fenway Park.<br>
+**2020:** Bruce makes one of his strangest pandemic appearances, remotely joining Dropkick Murphys on "Rose Tattoo" and "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" in their empty stadium performance at Fenway Park.<br>
 
 [Watch on Youtube: Dropkick Murphys & Bruce Springsteen live streaming at Fenway Park, 29-5-2020 - American Land](https://www.youtube.com/watch?v=0I4SBPyGD9g)
 

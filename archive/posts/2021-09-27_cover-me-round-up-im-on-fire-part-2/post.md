@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/09/imonfire-2.jpg
 post_id: 29309
 ---
-When it comes to covers, "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" is easily Bruce Springsteen's most popular song.
+When it comes to covers, "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" is easily Bruce Springsteen's most popular song.
 
 The list of first-class renditions keeps growing faster than I can keep up with, so it's time for another trip around the world to see how global musicians interpret Bruce's 1985 hit single.
 

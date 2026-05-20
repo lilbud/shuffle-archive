@@ -86,7 +86,7 @@ post_id: 59694
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/2001-09-21b.jpg.webp)
 
-**2003:** Two more "missing years" songs makes their tour (and E Street Band) debuts in the home stretch of the Rising Tour, when "[Local Hero](../2019-01-17_roll-of-the-dice-local-hero/post.md)" and "[My Beautiful Reward](../2023-02-19_roll-of-the-dice-my-beautiful-reward/post.md)" come out to play at Comerica Park in Detroit–but the best highlight is saved for the encores, when Martha Reeves joins Bruce and the band to play her 1963 hit "[Heat Wave](../2020-02-18_matr-bruce-springsteen-and-martha-reeves-heat-wave/post.md)."<br>
+**2003:** Two more "missing years" songs makes their tour (and E Street Band) debuts in the home stretch of the Rising Tour, when "[Local Hero](../1992-02-04_roll-of-the-dice-local-hero/post.md)" and "[My Beautiful Reward](../1992-02-11_roll-of-the-dice-my-beautiful-reward/post.md)" come out to play at Comerica Park in Detroit–but the best highlight is saved for the encores, when Martha Reeves joins Bruce and the band to play her 1963 hit "[Heat Wave](../2020-02-18_matr-bruce-springsteen-and-martha-reeves-heat-wave/post.md)."<br>
 
 [Watch on Youtube: Local Hero Bruce Springsteen 9/21/2003 Detroit](https://www.youtube.com/watch?v=PDHsvzZGpPk)
 

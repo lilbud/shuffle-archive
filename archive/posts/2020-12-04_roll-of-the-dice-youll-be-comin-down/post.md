@@ -8,11 +8,11 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/coming-down.png
 post_id: 4353
 ---
-Someday, I'd love to see Bruce play "You'll Be Comin' Down" back-to-back with "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)" and see if he has the same epiphany that he had in Sunrise a few years ago…
+Someday, I'd love to see Bruce play "You'll Be Comin' Down" back-to-back with "[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)" and see if he has the same epiphany that he had in Sunrise a few years ago…
 
 [Watch on Youtube: Linda Let Me Be the One (edited)- Springsteen - BB&T Arena Sunrise, FL - April 29, 2014](https://www.youtube.com/watch?v=KtyeEEnkLAk)
 
-…because it's sure hard not to hear echoes of "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)" from 1992 when you listen to this under-the-radar track from Bruce's 2007 *Magic* album, particularly the chorus:
+…because it's sure hard not to hear echoes of "[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)" from 1992 when you listen to this under-the-radar track from Bruce's 2007 *Magic* album, particularly the chorus:
 
 [Watch on Youtube: You'll Be Comin' Down](https://www.youtube.com/watch?v=487gIbI4Z4I)
 

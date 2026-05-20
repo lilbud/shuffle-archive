@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/03/rockroll.jpg
 post_id: 33511
 ---
-Of all of the members of Bruce Springsteen's bands over the years, Francine Daniels holds the distinction of shortest tenure. Daniels joined The Bruce Springsteen Band as a backing vocalist in October 1971, replacing [Barbara Dinkins](../2020-11-07_roll-of-the-dice-you-dont-leave-me-no-choice/post.md), who preferred singing in the church choir rather than a rock and roll band.
+Of all of the members of Bruce Springsteen's bands over the years, Francine Daniels holds the distinction of shortest tenure. Daniels joined The Bruce Springsteen Band as a backing vocalist in October 1971, replacing [Barbara Dinkins](../1972-01-09_roll-of-the-dice-you-dont-leave-me-no-choice/post.md), who preferred singing in the church choir rather than a rock and roll band.
 
 Daniels made her debut on October 29th; she made her final appearance two days later. Not because her talents were insufficient, but because Bruce had finally realized that a nine-member band wasn't economically feasible and made the painful decision to pare the band back to its core five-man, prototypical E Street membership.
 

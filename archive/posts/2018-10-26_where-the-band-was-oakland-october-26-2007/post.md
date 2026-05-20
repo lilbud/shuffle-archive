@@ -20,7 +20,7 @@ We all made the pit, and showtime came fast, with a blast of energy right out of
 
 [Watch on Youtube: 1. Radio Nowhere (Bruce Springsteen - Live In Oakland 10-26-2007)](https://www.youtube.com/watch?v=oPod68Lun4s)
 
-"[No Surrender,](../2021-11-18_roll-of-the-dice-no-surrender/post.md) "[Lonesome Day,](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)" and "[Gypsy Biker](../2019-05-02_roll-of-the-dice-gypsy-biker/post.md)" rounded out the standard opening pack ("[Gypsy Biker](../2019-05-02_roll-of-the-dice-gypsy-biker/post.md)" being a particular standout, and then Bruce established the theme for the evening with "[Magic](../2020-09-13_roll-of-the-dice-magic/post.md)." Bruce was still somewhat circumspect with his political comments, but that would change as the tour progressed.
+"[No Surrender,](../1984-01-09_roll-of-the-dice-no-surrender/post.md) "[Lonesome Day,](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)" and "[Gypsy Biker](../2019-05-02_roll-of-the-dice-gypsy-biker/post.md)" rounded out the standard opening pack ("[Gypsy Biker](../2019-05-02_roll-of-the-dice-gypsy-biker/post.md)" being a particular standout, and then Bruce established the theme for the evening with "[Magic](../2020-09-13_roll-of-the-dice-magic/post.md)." Bruce was still somewhat circumspect with his political comments, but that would change as the tour progressed.
 
 [Watch on Youtube: 4. Gypsy Biker (Bruce Springsteen - Live In Oakland 10-26-2007)](https://www.youtube.com/watch?v=PICcE7dhJOg)
 
@@ -36,7 +36,7 @@ Our first premiere–"[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/pos
 
 [Watch on Youtube: 8. She's The One (Bruce Springsteen - Live In Oakland 10-26-2007)](https://www.youtube.com/watch?v=9mh9p5rSBuo)
 
-Turns out a break was coming: Bruce took the pace down a bit to get topical again with "[Livin' in the Future](../2023-06-24_roll-of-the-dice-livin-in-the-future/post.md)," before segueing to the wild card part of the show with "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)."
+Turns out a break was coming: Bruce took the pace down a bit to get topical again with "[Livin' in the Future](../2023-06-24_roll-of-the-dice-livin-in-the-future/post.md)," before segueing to the wild card part of the show with "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - Living In The Future - AWESOME!!10/26/07](https://www.youtube.com/watch?v=ICGQohAC4AQ)
 
@@ -44,13 +44,13 @@ I was looking forward to a Patti spotlight tonight–Bruce had been rotating her
 
 [Watch on Youtube: 11. Tunnel Of Love (Bruce Springsteen - Live In Oakland 10-26-2007)](https://www.youtube.com/watch?v=52Jc01mvBqA)
 
-Following "Tunnel" were two tour premieres, and while neither were exactly rare, both are always welcome: first a majestic "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," then a rollicking "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)."
+Following "Tunnel" were two tour premieres, and while neither were exactly rare, both are always welcome: first a majestic "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," then a rollicking "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)."
 
 [Watch on Youtube: 12. Racing In The Street (Bruce Springsteen - Live In Oakland 10-26-2007)](https://www.youtube.com/watch?v=KRlQyCC04KA)
 
 [Watch on Youtube: 13. Working On The Highway (Bruce Springsteen - Live In Oakland 10-26-2007)](https://www.youtube.com/watch?v=NPy2nniXWj8)
 
-The Magic Tour had a theme, of course, and that message was delivered home nightly in a fixed sequence of songs that closed out the main set. Each song is powerful on its own, but in sequence they delivered an unmistakable message to fans as an election year approached. That string of songs–"[Devil's Arcade](../2021-05-16_roll-of-the-dice-devils-arcade/post.md)" into "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)," "Last to Die," "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)." was a highlight of each and every show. I still hadn't come to terms with the new arrangement of "Long Walk Home" (I'd fallen in love with the Seeger Sessions version), but I was starting to warm to it.
+The Magic Tour had a theme, of course, and that message was delivered home nightly in a fixed sequence of songs that closed out the main set. Each song is powerful on its own, but in sequence they delivered an unmistakable message to fans as an election year approached. That string of songs–"[Devil's Arcade](../2021-05-16_roll-of-the-dice-devils-arcade/post.md)" into "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)," "Last to Die," "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)." was a highlight of each and every show. I still hadn't come to terms with the new arrangement of "Long Walk Home" (I'd fallen in love with the Seeger Sessions version), but I was starting to warm to it.
 
 [Watch on Youtube: 14. Devil's Arcade (Bruce Springsteen - Live In Oakland 10-26-2007)](https://www.youtube.com/watch?v=NasZSoU7P4o)
 
@@ -72,7 +72,7 @@ Unfortunately, Bruce chose to give us "[Thundercrack](../2021-09-24_roll-of-the-
 
 [Watch on Youtube: Bruce Springsteen Oakland 10/26/07](https://www.youtube.com/watch?v=jPWHQuoF4us)
 
-Bruce recovered with "Born to Run," but by that time the show was almost over. "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" was great, but the E Street Band hadn't quite wrapped their arms around "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" yet–where the Sessions Band swung their way through it, the E Street Band seemed to stomp their way along. They'd get better–much better–as the tour progressed, but as a show closer during this leg of the tour, it didn't quite pass muster.
+Bruce recovered with "Born to Run," but by that time the show was almost over. "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" was great, but the E Street Band hadn't quite wrapped their arms around "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" yet–where the Sessions Band swung their way through it, the E Street Band seemed to stomp their way along. They'd get better–much better–as the tour progressed, but as a show closer during this leg of the tour, it didn't quite pass muster.
 
 [Watch on Youtube: 23. American Land (Bruce Springsteen - Live In Oakland 10-26-2007)](https://www.youtube.com/watch?v=UkolsmqSXTE)
 

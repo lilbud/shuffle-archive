@@ -106,7 +106,7 @@ It's a long and arduous journey, but we're going to make it. Together.
 
 ---
 
-Bruce constructed his Magic Tour set lists around a five-song sequence that closed almost every show through the spring of 2008. Together, "Devil's Arcade," "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)," "Last to Die," "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)," and "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" created core tour themes of sacrifice, heroism, betrayal, resistance, and defiance, and until the tour began loosening as spring turned to summer, "Devil's Arcade" served as an important anchor.
+Bruce constructed his Magic Tour set lists around a five-song sequence that closed almost every show through the spring of 2008. Together, "Devil's Arcade," "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)," "Last to Die," "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)," and "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" created core tour themes of sacrifice, heroism, betrayal, resistance, and defiance, and until the tour began loosening as spring turned to summer, "Devil's Arcade" served as an important anchor.
 
 In all, Bruce performed "Devil's Arcade" 73 times on that tour–but never since, not even once.
 

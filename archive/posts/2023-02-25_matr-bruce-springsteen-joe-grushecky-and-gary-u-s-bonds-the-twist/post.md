@@ -70,7 +70,7 @@ Toward the end of the song, Bonds took over. He segued the band into "Peppermint
 
 "Peppermint Twist" was only one of many Twist-themed songs spawned by Checker's record-setting single. While Joey Dee and The Starliters were scoring a hit with "Peppermint Twist," another local group called The Top Notes recorded their own Twist tribute.
 
-Their 1961 original recording attracted little notice, but when it was re-worked by The Isley Brothers and The Beatles shortly after, it became a monster hit of its own, one that Springsteen would go on to cover more than 400 times (and counting) in concert–more than his own staples like "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" and "[Racing in the Street.](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)"
+Their 1961 original recording attracted little notice, but when it was re-worked by The Isley Brothers and The Beatles shortly after, it became a monster hit of its own, one that Springsteen would go on to cover more than 400 times (and counting) in concert–more than his own staples like "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" and "[Racing in the Street.](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)"
 
 But that's an entry for another day.
 

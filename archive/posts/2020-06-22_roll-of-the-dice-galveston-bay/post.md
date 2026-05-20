@@ -90,7 +90,7 @@ Standing at the precipice of darkness, Billy pulls himself back and goes home to
 
 "Galveston Bay" is a strange candidate for an optimistic song, but in context of the album it appears on ([*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)), that's exactly what it is. On an album cloaked in rage, hopelessness, alienation, and darkness, "Galveston Bay" is a candle.
 
-That's why Bruce saved it for the encore of his Joad Tour sets, more often than not serving as the penultimate song of the night and a lead-in for the show-closing "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" (which itself takes on new meaning after being namechecked in "Galveston Bay"). Positioned at the end of the night, "Galveston Bay" allowed Bruce to ensure that his audience went home each night on a note of hope and optimism.
+That's why Bruce saved it for the encore of his Joad Tour sets, more often than not serving as the penultimate song of the night and a lead-in for the show-closing "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" (which itself takes on new meaning after being namechecked in "Galveston Bay"). Positioned at the end of the night, "Galveston Bay" allowed Bruce to ensure that his audience went home each night on a note of hope and optimism.
 
 [Watch on Youtube: Bruce Springsteen - Galveston Bay (Live 1996)](https://www.youtube.com/watch?v=29W8yzXfB9E)
 

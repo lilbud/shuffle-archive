@@ -28,7 +28,7 @@ In fact, the key to understanding "Real World" is to understand when it was writ
 
 Roy Bittan deserves just as much credit as Bruce's wife and son for the inspiration, however.
 
-Bruce was actually suffering from writer's block at the time, and he'd laid off the E Street Band just a few weeks prior. Musically aimless and lyrically blocked ("Every time I sat down to write, I was just sort of rehashing [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md), except not as good," he told *Rolling Stone* in a 1992 interview), Springsteen recalled Bittan telling him about some tracks he'd composed.
+Bruce was actually suffering from writer's block at the time, and he'd laid off the E Street Band just a few weeks prior. Musically aimless and lyrically blocked ("Every time I sat down to write, I was just sort of rehashing [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md), except not as good," he told *Rolling Stone* in a 1992 interview), Springsteen recalled Bittan telling him about some tracks he'd composed.
 
 "So I called him and said, ‘Come on over, maybe I'll try to write to some of your tracks.' So he had the music to ‘[Roll of the Dice](../2020-01-18_roll-of-the-dice-roll-of-the-dice/post.md),' and I came up with the idea for that, and I went home and wrote the song."
 

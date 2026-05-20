@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/05/bimbo-du-jour.jpg
 post_id: 18471
 ---
-Deep down, we always knew that “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” was secretly punk, didn’t we?
+Deep down, we always knew that “[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)” was secretly punk, didn’t we?
 
 Bimbo du Jour sure did.
 

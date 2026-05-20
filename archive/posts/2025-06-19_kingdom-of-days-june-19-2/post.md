@@ -72,7 +72,7 @@ post_id: 57110
 
 [Watch on Youtube: Two Faces (solo piano) Bruce Springsteen June 19, 2005 Rotterdam, NED](https://www.youtube.com/watch?v=zO9akJo53-8)
 
-**2006:** The Seeger Sessions Tour stops at the Performing Arts Center in Saratoga Springs, where "[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)" makes its final tour appearance.<br>
+**2006:** The Seeger Sessions Tour stops at the Performing Arts Center in Saratoga Springs, where "[Buffalo Gals](../2006-01-15_cover-me-roll-of-the-dice-buffalo-gals/post.md)" makes its final tour appearance.<br>
 
 [Watch on Youtube: Bruce Springsteen & The Sessions Band, Buffalo Gals, Live](https://www.youtube.com/watch?v=-Pi4xwctX_o)
 

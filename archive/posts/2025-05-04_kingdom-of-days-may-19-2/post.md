@@ -70,7 +70,7 @@ post_id: 56783
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Evening_Standard_Fri__May_21__1999_-scaled.jpg.webp)
 
-**2003:** Elliott Murphy guest-stars on "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)" and "Born to Run" when the Rising Tour makes a stop at the Estadio de la Comunidad in Madrid.<br>
+**2003:** Elliott Murphy guest-stars on "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)" and "Born to Run" when the Rising Tour makes a stop at the Estadio de la Comunidad in Madrid.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/SCAXgeKO)
 
@@ -92,7 +92,7 @@ post_id: 56783
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2005-05-19.jpg.webp)
 
-**2009:** The first and only E Street Band performance of "[Like a Rolling Stone](../2019-06-09_cover-me-like-a-rolling-stone/post.md)" debuts at the Mellon Arena in Pittsburgh. Plus: a rare outing for "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md);" Joe and Johnny Grushecky join the band for two final encores of "[Glory Day](../2024-06-04_roll-of-the-dice-glory-days/post.md)s" and "[Mony Mony](../2021-03-18_cover-me-mony-mony/post.md)."<br>
+**2009:** The first and only E Street Band performance of "[Like a Rolling Stone](../2019-06-09_cover-me-like-a-rolling-stone/post.md)" debuts at the Mellon Arena in Pittsburgh. Plus: a rare outing for "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md);" Joe and Johnny Grushecky join the band for two final encores of "[Glory Day](../1984-01-12_roll-of-the-dice-glory-days/post.md)s" and "[Mony Mony](../2021-03-18_cover-me-mony-mony/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Jackson Cage (2009)](https://www.youtube.com/watch?v=YRvmZpc6P34)
 
@@ -100,7 +100,7 @@ post_id: 56783
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2009-05-19.jpg.webp)
 
-**2016:** Bruce makes a return appearance (his third) at the Rock in Rio Festival in Lisbon. *The River* gets thrown by the wayside, with only three songs from that album making a Greatest Hits setlist that includes the tour premieres of "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[Downbound Train,](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" "[I'm on Fire,](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)," and "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)." Watch the full pro-shot set below.<br>
+**2016:** Bruce makes a return appearance (his third) at the Rock in Rio Festival in Lisbon. *The River* gets thrown by the wayside, with only three songs from that album making a Greatest Hits setlist that includes the tour premieres of "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[Downbound Train,](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" "[I'm on Fire,](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)," and "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)." Watch the full pro-shot set below.<br>
 
 [Bruce Springsteen & The E Street Band - Rock In Rio 2016 - Full Concert](https://player.vimeo.com/video/176779980?dnt=1&app_id=122963)
 

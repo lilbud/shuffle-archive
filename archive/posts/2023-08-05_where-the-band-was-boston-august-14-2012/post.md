@@ -18,13 +18,13 @@ But despite a beautiful evening, an amped-up crowd, and my first "real" time at 
 
 That was my bad–listening with fresh ears (in preparation to write this), Bruce turned in a typically outstanding performance, and as a document of a typical Wrecking Ball show, it's a pretty great one. But five months into the tour, I was hoping for more than a typical show.
 
-Even at the time, though, there were some outstanding highlights. The show certainly opened strong, starting in broad daylight (the show started around 7pm due to the city's curfew) with a one-two punch of "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" promising a festive mood for the evening.
+Even at the time, though, there were some outstanding highlights. The show certainly opened strong, starting in broad daylight (the show started around 7pm due to the city's curfew) with a one-two punch of "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" and "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" promising a festive mood for the evening.
 
 [Watch on Youtube: BRUCE SPRINGSTEEN OPENS UP AT FENWAY PARK 8-14-2012](https://www.youtube.com/watch?v=Jgs3AJF9c34)
 
 [Watch on Youtube: Bruce Springsteen - Out in the Street - Fenway Park - 8-14-12 - Night 1](https://www.youtube.com/watch?v=Nz4YJCdW00k)
 
-From my vantage point in the pit, the crowd was electrified, and the show was off to a great start. The standard tour three-pack of "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)," "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" and "[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)" followed. I'd have have been genuinely surprised if any of those had been omitted, as they established the identity of the tour at the start of every show. The performances were intense, and the band was tight. Bruce seemed like he was on a mission.
+From my vantage point in the pit, the crowd was electrified, and the show was off to a great start. The standard tour three-pack of "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)," "[Wrecking Ball](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md)" and "[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md)" followed. I'd have have been genuinely surprised if any of those had been omitted, as they established the identity of the tour at the start of every show. The performances were intense, and the band was tight. Bruce seemed like he was on a mission.
 
 [Watch on Youtube: Springsteen - Fenway - 8-14-2012 - Death to My Hometown . "Live"](https://www.youtube.com/watch?v=zD336SGIlrM)
 
@@ -48,7 +48,7 @@ The energy picked back up with "Because the Night," especially when Nils took hi
 
 [Watch on Youtube: Springsteen Fenway 8-14-12 BecauseTheNight Nils Solo](https://www.youtube.com/watch?v=rkx6HDLEVeQ)
 
-…but what followed was a three-pack of uptempo but safe crowd-pleasers–"[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)," "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)," and "[Working on the Highway.](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" This was the point were I realized that 1) we were getting Intense Bruce tonight, not Loose Bruce, and 2) the rest of the show wasn't likely to offer up any real surprises.
+…but what followed was a three-pack of uptempo but safe crowd-pleasers–"[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)," "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)," and "[Working on the Highway.](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" This was the point were I realized that 1) we were getting Intense Bruce tonight, not Loose Bruce, and 2) the rest of the show wasn't likely to offer up any real surprises.
 
 [Watch on Youtube: "Johnny '99" - Bruce Springsteen at Fenway Park 8.14.2012](https://www.youtube.com/watch?v=Z7RSTUuFr8A)
 
@@ -70,11 +70,11 @@ So of course:
 
 That was the genuine highlight of the show for me. It was only the second time I'd ever heard Bruce play it (I was lucky enough to catch it in St. Louis four years prior), but this was the first time with Jake, and his solo was magnificent. I remember thinking that it was worth being at the show for that song alone.
 
-"[The Rising,](../2020-11-21_roll-of-the-dice-the-rising/post.md)" "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" and "Thunder Road" closed out the main set, horns soaring and lifting the crowd during the final coda.
+"[The Rising,](../2016-01-18_roll-of-the-dice-the-rising/post.md)" "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" and "Thunder Road" closed out the main set, horns soaring and lifting the crowd during the final coda.
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band - Thunder Road - Live At Fenway 2012](https://www.youtube.com/watch?v=6c3kaLUwkiE)
 
-I remember predicting to myself the likely encores: given the serious nature of the setlist, I expected "[We Are Alive](../2018-09-15_roll-of-the-dice-we-are-alive/post.md)" as the opener, and I was right. And then given the "A Set" nature of the evening, I suspected a string of familiar crowd-pleasers, and that's exactly what we got: "Born to Run" into "Rosalita (Come Out Tonight)" into "Glory Days," "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)," and "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)." I was just fine with that–expectations met, I let myself enjoy the raucous crowd and familiar songs.
+I remember predicting to myself the likely encores: given the serious nature of the setlist, I expected "[We Are Alive](../2018-09-15_roll-of-the-dice-we-are-alive/post.md)" as the opener, and I was right. And then given the "A Set" nature of the evening, I suspected a string of familiar crowd-pleasers, and that's exactly what we got: "Born to Run" into "Rosalita (Come Out Tonight)" into "Glory Days," "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," and "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)." I was just fine with that–expectations met, I let myself enjoy the raucous crowd and familiar songs.
 
 [Watch on Youtube: "Born to Run" Bruce Springsteen at Fenway Park, Boston, night 1](https://www.youtube.com/watch?v=XDUlTQEiGsE)
 

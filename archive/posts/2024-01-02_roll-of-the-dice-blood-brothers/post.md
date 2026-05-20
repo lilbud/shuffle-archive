@@ -43,7 +43,7 @@ Remember, this is the man who only a few years earlier wrote one of the other de
 > *We swore we'd travel darlin' side by side*<br>
 > *We'd help each other stay in stride*<br>
 
-Granted, "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" is a romantic song and "Blood Brothers" a fraternal one, but the narrator of the latter seems to have lost the heart of the former.
+Granted, "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" is a romantic song and "Blood Brothers" a fraternal one, but the narrator of the latter seems to have lost the heart of the former.
 
 > *Now the hardness of this world slowly grinds your dreams away*<br>
 > *Making a fool's joke out of the promises we make*<br>

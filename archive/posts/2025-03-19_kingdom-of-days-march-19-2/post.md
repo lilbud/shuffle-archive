@@ -56,7 +56,7 @@ post_id: 56191
 
 [Watch Video Highlight](https://videopress.com/embed/eLzC9Wo8)
 
-**2005:** With the Seeger Sessions Band in his home studio, Bruce records "[Old Dan Tucker](../2020-11-24_cover-me-old-dan-tucker/post.md)," "[Mrs. McGrath](../2019-05-26_cover-me-rotd-mrs-mcgrath/post.md)," "[Erie Canal](../2019-11-02_cover-me-erie-canal/post.md)," "[O Mary Don't You Weep,](../2022-07-15_cover-me-o-mary-dont-you-weep/post.md)" "[John Henry](../2021-06-01_cover-me-rotd-john-henry/post.md)," "[Shenandoah](../2022-03-22_cover-me-shenandoah/post.md)," "[Froggie Went A-courtin](../2021-01-26_roll-of-the-dice-cover-me-froggie-went-a-courtin/post.md)'" and "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
+**2005:** With the Seeger Sessions Band in his home studio, Bruce records "[Old Dan Tucker](../2006-01-02_cover-me-old-dan-tucker/post.md)," "[Mrs. McGrath](../2006-01-04_cover-me-rotd-mrs-mcgrath/post.md)," "[Erie Canal](../2006-01-07_cover-me-erie-canal/post.md)," "[O Mary Don't You Weep,](../2006-01-05_cover-me-o-mary-dont-you-weep/post.md)" "[John Henry](../2006-01-06_cover-me-rotd-john-henry/post.md)," "[Shenandoah](../2006-01-11_cover-me-shenandoah/post.md)," "[Froggie Went A-courtin](../2006-01-14_roll-of-the-dice-cover-me-froggie-went-a-courtin/post.md)'" and "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - O Mary Don't You Weep (The Seeger Sessions)](https://www.youtube.com/watch?v=tebjshm7f_I)
 

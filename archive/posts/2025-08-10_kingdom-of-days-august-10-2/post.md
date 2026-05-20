@@ -14,7 +14,7 @@ post_id: 58367
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1968-0810.jpg.webp)
 
-**1972:** Bruce continues his solo stand (the second of six nights) opening for Dave Van Ronk at Max's Kansas City in New York. At one of these shows, Bruce opens with "[Henry Boy](../2022-04-08_roll-of-the-dice-henry-boy/post.md)" and closes with "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," and both are captured on video by Barry Rebo.<br>
+**1972:** Bruce continues his solo stand (the second of six nights) opening for Dave Van Ronk at Max's Kansas City in New York. At one of these shows, Bruce opens with "[Henry Boy](../2011-01-17_roll-of-the-dice-henry-boy/post.md)" and closes with "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," and both are captured on video by Barry Rebo.<br>
 
 [Watch on Youtube: Bruce Springsteen Henry Boy 1972](https://www.youtube.com/watch?v=BpKsq8Y7_EY)
 
@@ -22,7 +22,7 @@ post_id: 58367
 
 **1974:** Bruce cancels a scheduled gig in Port Chester, New York to make room for ongoing *Born to Run* recording sessions.<br>
 
-**1975:** There's a *before* and an *after* with Bruce's career, and both pivot around Bruce's legendary residency at New York's Bottom Line. This is the last *before* show at the Allen Theater in Cleveland. Bruce closes the show with a solo piano tour premiere of "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" — a quiet end to this phase of Bruce's career.<br>
+**1975:** There's a *before* and an *after* with Bruce's career, and both pivot around Bruce's legendary residency at New York's Bottom Line. This is the last *before* show at the Allen Theater in Cleveland. Bruce closes the show with a solo piano tour premiere of "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)" — a quiet end to this phase of Bruce's career.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8b5JAfx4)
 
@@ -42,7 +42,7 @@ post_id: 58367
 
 **1982:** Bruce (along with most of the E Street Band and Asbury Jukes) attends and performs at the wedding of Southside Johnny Lyon and Jill Glasner.<br>
 
-**1992:** Bruce wraps up the eleven-night World Tour 1992 stand at the Meadowlands in style, opening with an acoustic "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" (with only Roy as accompaniment) and the only tour performance of "Rosalita (Come Out Tonight)." Steve Van Zandt joins the band for "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" and "[Darlington County.](../2020-09-10_roll-of-the-dice-darlington-county/post.md)"<br>
+**1992:** Bruce wraps up the eleven-night World Tour 1992 stand at the Meadowlands in style, opening with an acoustic "[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md)" (with only Roy as accompaniment) and the only tour performance of "Rosalita (Come Out Tonight)." Steve Van Zandt joins the band for "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" and "[Darlington County.](../1984-01-05_roll-of-the-dice-darlington-county/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/cFhy9Txg)
 
@@ -70,7 +70,7 @@ Entertainment Tonight airs a segment covering the end of the marathon run of sho
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1996-08-10.jpg.webp)
 
-**2002:** Night Two on the Rising Tour is pretty similar to opening night. At the MCI Center in Washington, DC, Bruce drops "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" and replaces it with the tour premiere of "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)."<br>
+**2002:** Night Two on the Rising Tour is pretty similar to opening night. At the MCI Center in Washington, DC, Bruce drops "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" and replaces it with the tour premiere of "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Atz3RHXN)
 

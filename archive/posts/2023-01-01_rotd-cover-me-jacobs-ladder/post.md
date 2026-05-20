@@ -18,7 +18,7 @@ But the song that most of us are familiar with is the African American slave spi
 
 When Bruce assembled a group of musicians to record his collection of American folk songs that would eventually become the [*We Shall Overcome*](../2022-07-17_album-companion-we-shall-overcome/post.md) album, "Jacob's Ladder" is one of the last songs they recorded–barely 90 days before the album hit store shelves.
 
-And while Bruce reinterpreted all of the songs on the album [to some degree](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md), "Jacob's Ladder" is one of the most striking adaptations, with a full-on Dixieland arrangement that sounds for all the world like the song originated in New Orleans.
+And while Bruce reinterpreted all of the songs on the album [to some degree](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md), "Jacob's Ladder" is one of the most striking adaptations, with a full-on Dixieland arrangement that sounds for all the world like the song originated in New Orleans.
 
 [Watch on Youtube: Jacob's Ladder](https://www.youtube.com/watch?v=yiPz8OdqB2E)
 

@@ -38,7 +38,7 @@ post_id: 62959
 
 [Watch Video Highlight](https://videopress.com/embed/K55rhq4Y)
 
-**2002:** The Rising Tour stops at Mellon Arena in Pittsburgh, where Joe Grushecky joins Bruce for the tour premiere of "[Code of Silence](../2018-08-27_codeofsilence/post.md)" and stays through "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" and "Born to Run." Bruce also tour premieres "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" and the show-closing "Santa Claus is Comin' to Town."<br>
+**2002:** The Rising Tour stops at Mellon Arena in Pittsburgh, where Joe Grushecky joins Bruce for the tour premiere of "[Code of Silence](../2018-08-27_codeofsilence/post.md)" and stays through "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" and "Born to Run." Bruce also tour premieres "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" and the show-closing "Santa Claus is Comin' to Town."<br>
 
 [Watch on Youtube: Bruce Springsteen And The E Street Band - Mellon Arena, Pittsburgh PA 12/04/02 AUDIO ONLY](https://www.youtube.com/watch?v=da6W4D4IpTM)
 

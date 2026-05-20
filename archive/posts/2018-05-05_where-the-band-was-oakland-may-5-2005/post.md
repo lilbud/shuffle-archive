@@ -12,9 +12,9 @@ I was *so* looking forward to this show.
 
 It was my first chance to see Bruce perform acoustically in a small venue, and my friend Steve and I made the trip from Seattle because we weren't sure if there would be a Pacific Northwest leg later (there was).
 
-And by all accounts, it was a great show. Listening to it years later, I love how fresh the *Devils & Dust* material sounds so early in the tour. And since we'd managed to avoid all spoilers (it was much easier in those days), there were some genuinely breathtaking surprises, starting with the pump organ opener of "[My Beautiful Reward](../2023-02-19_roll-of-the-dice-my-beautiful-reward/post.md)" and the bullet mic version of "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)." We hadn't even hit the new material yet, and I'd already heard two personal premieres.
+And by all accounts, it was a great show. Listening to it years later, I love how fresh the *Devils & Dust* material sounds so early in the tour. And since we'd managed to avoid all spoilers (it was much easier in those days), there were some genuinely breathtaking surprises, starting with the pump organ opener of "[My Beautiful Reward](../1992-02-11_roll-of-the-dice-my-beautiful-reward/post.md)" and the bullet mic version of "[Reason to Believe](../2021-02-27_roll-of-the-dice-reason-to-believe/post.md)." We hadn't even hit the new material yet, and I'd already heard two personal premieres.
 
-"[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)" was a stunner–it was only the second time the song had been performed since 1988, and it was the early highlight of the show for me:
+"[Two Faces](../1987-01-08_roll-of-the-dice-two-faces/post.md)" was a stunner–it was only the second time the song had been performed since 1988, and it was the early highlight of the show for me:
 
 [Watch on Youtube: Bruce Springsteen - Two Faces - Oakland, May 5 2005](https://www.youtube.com/watch?v=XNDtMzKT7Qw)
 

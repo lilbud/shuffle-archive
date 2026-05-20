@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/05/willow.png
 post_id: 27322
 ---
-I told myself I'd lay low with the "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" covers for a bit, but I love this new one too much to keep it on the shelf.
+I told myself I'd lay low with the "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" covers for a bit, but I love this new one too much to keep it on the shelf.
 
 Jane Willow is a Dutch-turned-Irish folk artist with wonderful original music featured on [her web site](https://www.janewillow.com/media).
 

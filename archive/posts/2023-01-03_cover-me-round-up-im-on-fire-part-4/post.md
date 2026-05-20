@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/01/little.jpg
 post_id: 32244
 ---
-It’ s time for our first “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” round-up of 2022, and we’ve got some great ones to enjoy today. Each of today’s artists gifts us with a different spin on Bruce’s oft-covered classic.
+It’ s time for our first “[I’m on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)” round-up of 2022, and we’ve got some great ones to enjoy today. Each of today’s artists gifts us with a different spin on Bruce’s oft-covered classic.
 
 Let’s start off with singer-songwriter Stefanie Joyce’s country arrangement. “This song is so fun because it’s been covered by so many artists in so many drastically different ways,” Stefanie wrote on her YouTube page. “I’m partial to the Whitey Morgan version. We tried to do something a bit country, a bit bluegrass, and a whole lotta dark.”
 

@@ -36,7 +36,7 @@ post_id: 59551
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1985-09-06b.jpg.webp)
 
-**1988:** Bruce plays his first and only show in Hungary when the Human Rights Now! Tour arrives in Budapest. Tour premiering tonight: "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" and "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)." Meanwhile, Bruce's *Chimes of Freedom* EP is released to support the tour.<br>
+**1988:** Bruce plays his first and only show in Hungary when the Human Rights Now! Tour arrives in Budapest. Tour premiering tonight: "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" and "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)." Meanwhile, Bruce's *Chimes of Freedom* EP is released to support the tour.<br>
 
 [Watch on Youtube: Chimes of Freedom (Live at Stockholms Olympiastadion, Stockholm, SE - July 1988)](https://www.youtube.com/watch?v=WhvpFX63JGw)
 

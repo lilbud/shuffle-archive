@@ -30,7 +30,7 @@ That night, the Born in the U.S.A. Tour stops in Louisville at Freedom Hall.
 
 [Watch on Youtube: When You Need Me (Studio Outtake - 1987)](https://www.youtube.com/watch?v=mimaPIQVUjI)
 
-**1996:** Bruce debuts a new song, “[Sell It and They Will Come](../2019-02-09_roll-of-the-dice-sell-it-and-they-will-come/post.md),” at the first of two nights at the Fox Theater in Detroit. Suffice it to say it’s not among the deeper songs in Bruce’s catalog. Check out the world premiere of this still unreleased song below. Bruce tour premieres “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” tonight as well.<br>
+**1996:** Bruce debuts a new song, “[Sell It and They Will Come](../2019-02-09_roll-of-the-dice-sell-it-and-they-will-come/post.md),” at the first of two nights at the Fox Theater in Detroit. Suffice it to say it’s not among the deeper songs in Bruce’s catalog. Check out the world premiere of this still unreleased song below. Bruce tour premieres “[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)” tonight as well.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/109-Sell-It-and-They-will-Come-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/01/109-Sell-It-and-They-will-Come-online-audio-converter.com_.mp3)
 

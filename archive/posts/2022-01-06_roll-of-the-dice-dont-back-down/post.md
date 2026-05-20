@@ -22,7 +22,7 @@ This version of "Don't Back Down" is truly a separate song from the others, but 
 
 [Watch on Youtube: Bruce Springsteen Don't Back Down #10 different music & double track vocals](https://www.youtube.com/watch?v=omkVpmMkLOY)
 
-Lyrically, this version of "Don't Back Down" is still a work in progress–the third verse is just the first verse repeated and there are a few lines that sound at least lightly bluffed–but this is definitely a fully formed pop song with verses in the mold of "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" and a refrain reminiscent of "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)."
+Lyrically, this version of "Don't Back Down" is still a work in progress–the third verse is just the first verse repeated and there are a few lines that sound at least lightly bluffed–but this is definitely a fully formed pop song with verses in the mold of "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)" and a refrain reminiscent of "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)."
 
 > *If you're out on your own and you ain't got a home*<br>
 > *And it feels like the whole world's just gonna fall on you*<br>

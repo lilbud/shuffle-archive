@@ -20,7 +20,7 @@ post_id: 56072
 
 [Watch on Youtube: Bruce Springsteen - 1974-03-03 Gaston Hall, Washington, DC](https://www.youtube.com/watch?v=QKt4kLHbLHk)
 
-**1985:** Bruce shoots the video for "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" with director John Sayles in Hollywood.<br>
+**1985:** Bruce shoots the video for "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" with director John Sayles in Hollywood.<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm On Fire (Official Video)](https://www.youtube.com/watch?v=lrpXArn3hII)
 

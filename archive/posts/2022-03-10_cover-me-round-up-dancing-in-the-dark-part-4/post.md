@@ -10,7 +10,7 @@ post_id: 32829
 ---
 I'm serious, y'all: These things multiply *fast.*
 
-It's only been two months since our last "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" cover round-up and I *still* had to whittle down a list of a dozen new ones to arrive at today's five spotlights. That means I'm falling further behind instead of catching up, so let's not waste any more time before diving into today's stellar selections.
+It's only been two months since our last "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" cover round-up and I *still* had to whittle down a list of a dozen new ones to arrive at today's five spotlights. That means I'm falling further behind instead of catching up, so let's not waste any more time before diving into today's stellar selections.
 
 Let's start with the highest-profile of the bunch: the Juno-winning, Canadian indie-pop band, Walk Off the Earth. With over four million YouTube subscribers and videos with as many as 190 million views, "high profile" is not an understatement.
 

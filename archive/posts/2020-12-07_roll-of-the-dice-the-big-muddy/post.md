@@ -12,7 +12,7 @@ If you ask me for my top ten Springsteen on songs on any given day, you won't fi
 
 But if you ask me for my top twenty, I guarantee "The Big Muddy" will be on it every time. It's one of Bruce's best songs, and while it may not come immediately to mind when mentally browsing Bruce's catalog, when you hear it, it's bound to stick with you for days afterward.
 
-"The Big Muddy" sticks out like a sore thumb on *Lucky Town*, the 1992 album that introduced it to us. On an album full of bright, shiny optimism, how the heck did a song like this end up smack in the middle of it? Only "[Souls of the Departed](../2019-03-19_roll-of-the-dice-souls-of-the-departed/post.md)" keeps it from being the sole rebel on the album, but whereas "Souls of the Departed" is an angry song, "The Big Muddy" is just… unsettling.
+"The Big Muddy" sticks out like a sore thumb on *Lucky Town*, the 1992 album that introduced it to us. On an album full of bright, shiny optimism, how the heck did a song like this end up smack in the middle of it? Only "[Souls of the Departed](../1992-02-10_roll-of-the-dice-souls-of-the-departed/post.md)" keeps it from being the sole rebel on the album, but whereas "Souls of the Departed" is an angry song, "The Big Muddy" is just… unsettling.
 
 Everything about it sounds ominous, from Bruce's lyrics to his idle guitar and meandering riff. (Bruce plays almost solo, accompanied only by Roy on keyboards and Gary Mallaber on drums.) This is the song of a man uncertain about the way forward.
 

@@ -71,11 +71,11 @@ Let's experiment. If you care to indulge me, try listening to a playlist of just
 
 [Watch on Youtube: Bruce Springsteen 'Letter To You' Album](https://www.youtube.com/playlist?list=PLr7gpDHqxU8Aa8Bb5AJeLQmDeFyRmOii2)
 
-- "[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md)" opens the set, but it's also a summation statement for Bruce's entire body of work.
+- "[Letter to You](../2017-01-03_roll-of-the-dice-letter-to-you/post.md)" opens the set, but it's also a summation statement for Bruce's entire body of work.
 - "[Last Man Standing](../2022-11-19_roll-of-the-dice-last-man-standing/post.md)" gives the album its origin and heart...
 - .... and "[The Power of Prayer](../2021-09-29_roll-of-the-dice-the-power-of-prayer/post.md)" gives it its soul. Perhaps it's not a coincidence that they're musical sound-alikes.
-- "[House of a Thousand Guitars](../2021-04-23_roll-of-the-dice-house-of-a-thousand-guitars/post.md)" is Springsteen's mission statement and invitation to his concert audience...
-- ...while "[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)" is his on-stage reckoning with the ticking clock.
+- "[House of a Thousand Guitars](../2016-01-15_roll-of-the-dice-house-of-a-thousand-guitars/post.md)" is Springsteen's mission statement and invitation to his concert audience...
+- ...while "[Ghosts](../2017-01-11_roll-of-the-dice-ghosts/post.md)" is his on-stage reckoning with the ticking clock.
 - "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" is a parting benediction, a fitting bookend not only to the title track but to each and every one of the five songs above.
 
 [Watch on Youtube: Bruce Springsteen - Spiritual Songwriting & "Letter to You" | The Daily Social Distancing Show](https://www.youtube.com/watch?v=QZuBEO-ilg4?start=13)

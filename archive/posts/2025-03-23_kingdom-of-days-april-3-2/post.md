@@ -26,7 +26,7 @@ post_id: 56347
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
 
-**1985:** Bruce and the E Street Band play their first of two *Born in the U.S.A.* shows in Melbourne, Australia. Bruce performs "[Johnny Bye-Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)" for the final time to date.<br>
+**1985:** Bruce and the E Street Band play their first of two *Born in the U.S.A.* shows in Melbourne, Australia. Bruce performs "[Johnny Bye-Bye](../1983-01-05_roll-of-the-dice-johnny-bye-bye/post.md)" for the final time to date.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9ND97yT2)
 
@@ -36,7 +36,7 @@ post_id: 56347
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/1988-04-03-1.jpg.webp)
 
-**1993:** Bruce brings his World Tour 1993 to Dortmund, Germany, where he debuts his cover of "[Many Rivers to Cross](../2018-07-28_cover-me-many-rivers-to-cross/post.md)" and Jon Bon Jovi and Richie Sambora join him on stage for "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
+**1993:** Bruce brings his World Tour 1993 to Dortmund, Germany, where he debuts his cover of "[Many Rivers to Cross](../2018-07-28_cover-me-many-rivers-to-cross/post.md)" and Jon Bon Jovi and Richie Sambora join him on stage for "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/fUeXizaZ)
 
@@ -56,7 +56,7 @@ post_id: 56347
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2001-04-03b-scaled.jpg.webp)
 
-**2009:** In Glendale, Night Two on the Working on a Dream Tour brings six set list change-ups (including "[Night](../2019-10-31_roll-of-the-dice-night/post.md)," "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)," and "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)"), rare for this early in the tour.<br>
+**2009:** In Glendale, Night Two on the Working on a Dream Tour brings six set list change-ups (including "[Night](../2019-10-31_roll-of-the-dice-night/post.md)," "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)," and "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)"), rare for this early in the tour.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - THE WRESTLER - GLENDALE 2009](https://www.youtube.com/watch?v=emnJ4gJGdM0)
 

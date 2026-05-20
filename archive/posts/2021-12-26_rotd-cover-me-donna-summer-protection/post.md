@@ -14,11 +14,11 @@ Geffen phoned a friend who happened to manage a client who Geffen thought might 
 
 Geffen's artist was reigning disco queen Donna Summer, and his friend Jon Landau's client was Bruce Springsteen, rock's heir to the throne in 1982. The pairing was an intriguing one, and when red-hot producer Quincy Jones was added to the mix, it was a can't-miss combination.
 
-Bruce set about writing a song that had one foot in the disco arena and one foot in rock. It turned out great–so great, in fact, that Landau wouldn't let his client give "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" away.
+Bruce set about writing a song that had one foot in the disco arena and one foot in rock. It turned out great–so great, in fact, that Landau wouldn't let his client give "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" away.
 
 [Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
-Landau convinced Bruce to hang on to "Cover Me" (it became the follow-up single to "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" and peaked at #7 in 1984), urging him instead to write something just like it, but different.
+Landau convinced Bruce to hang on to "Cover Me" (it became the follow-up single to "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" and peaked at #7 in 1984), urging him instead to write something just like it, but different.
 
 He did exactly that. Bruce wrote "Protection," another disco-influenced song that was the lyrical polar opposite of "Cover Me" and recorded a demo with the E Street Band.
 
@@ -62,7 +62,7 @@ Still, it's effective here–considerably more so than in "Cover Me"–thanks in
 > *Protection, that's what I need*<br>
 > *I want protection, baby, from your love*<br>
 
-It's never quite clear, however, whether the off-screen love interest is as manipulative as our narrator seems to believe. Those middle verses are very similar to the dream sequence in "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" (Bruce was dipping into dream imagery often during that period), and it's easy to imagine our narrator is haunted by his imagination more than his infatuation.
+It's never quite clear, however, whether the off-screen love interest is as manipulative as our narrator seems to believe. Those middle verses are very similar to the dream sequence in "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" (Bruce was dipping into dream imagery often during that period), and it's easy to imagine our narrator is haunted by his imagination more than his infatuation.
 
 Still, that last verse can go either way. Is he lost in a dream, in memory? Or is this just the beginning of a new cycle of torment? We don't know, but either way we can feel how badly Bruce's character needs some relief. Relief that he never gets–this is isn't that kind of song.
 

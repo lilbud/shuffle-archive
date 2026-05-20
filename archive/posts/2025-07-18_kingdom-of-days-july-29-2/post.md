@@ -22,7 +22,7 @@ post_id: 57873
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/1966-0729.gif)
 
-**1971:** The Bruce Springsteen Band plays two shows at D'Scene in South Amboy, New Jersey. The setlist includes "[Natural Magic,](../2020-05-19_roll-of-the-dice-natural-magic/post.md)" "[Goin' Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md)," "[Dance Dance Dance](../2018-06-22_roll-of-the-dice-dance-dance-dance/post.md)," and more.<br>
+**1971:** The Bruce Springsteen Band plays two shows at D'Scene in South Amboy, New Jersey. The setlist includes "[Natural Magic,](../1972-01-03_roll-of-the-dice-natural-magic/post.md)" "[Goin' Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md)," "[Dance Dance Dance](../1972-01-05_roll-of-the-dice-dance-dance-dance/post.md)," and more.<br>
 
 [Watch on Youtube: The Bruce Springsteen Band - MY BABY'S NATURAL MAGIC 1971 (audio)](https://www.youtube.com/watch?v=Ok630L5Z9D8)
 

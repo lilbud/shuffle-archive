@@ -28,7 +28,7 @@ post_id: 59732
 
 [Watch on Youtube: Bruce Springsteen - DARKNESS ON THE EDGE OF TOWN 1980 (The River rehearsals)](https://www.youtube.com/watch?v=igHd2JZI9PM)
 
-**1985:** The final stand of the marathon Born in the U.S.A. Tour begins at the Los Angeles Memorial Coliseum, where Bruce plays both "[War](../2019-05-27_cover-me-war/post.md)" and "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" for the very first time. "War" will continue to be a staple through the Tunnel of Love Tour, but "Janey" won't be played again for eight years. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,21734/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-27-1985-Los-Angeles-Memorial-Coliseum-Los-Angeles-CA.html).<br>
+**1985:** The final stand of the marathon Born in the U.S.A. Tour begins at the Los Angeles Memorial Coliseum, where Bruce plays both "[War](../2016-01-02_cover-me-war/post.md)" and "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" for the very first time. "War" will continue to be a staple through the Tunnel of Love Tour, but "Janey" won't be played again for eight years. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,21734/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-27-1985-Los-Angeles-Memorial-Coliseum-Los-Angeles-CA.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - Cadillac Ranch (1985)](https://www.youtube.com/watch?v=a1kiuXZtODg)
 
@@ -52,7 +52,7 @@ post_id: 59732
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1985-09-27b.jpg.webp)
 
-**1988:** The Human Rights Now! Tour lands in Asia, starting with a show at the Tokyo Dome, where Bruce tour debuts "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."<br>
+**1988:** The Human Rights Now! Tour lands in Asia, starting with a show at the Tokyo Dome, where Bruce tour debuts "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/D15WeCor)
 
@@ -72,7 +72,7 @@ post_id: 59732
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1999-09-27b.jpg.webp)
 
-**2002:** Milwaukee gets tour one-offs of "[Mary Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)" and a show-closing "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)" (complete with "Are you loose?") and a "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" tour premiere when the Rising Tour stops at the Bradley Center for a night.<br>
+**2002:** Milwaukee gets tour one-offs of "[Mary Queen of Arkansas](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)" and a show-closing "[Little Queenie](../1976-01-04_cover-me-little-queenie/post.md/)" (complete with "Are you loose?") and a "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" tour premiere when the Rising Tour stops at the Bradley Center for a night.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jFG933Sz)
 

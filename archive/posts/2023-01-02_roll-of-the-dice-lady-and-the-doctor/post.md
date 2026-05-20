@@ -10,7 +10,7 @@ post_id: 20495
 ---
 One of the first songs recorded for *Greetings from Asbury Park, N.J.*, but ultimately discarded from the final release, "Lady and the Doctor" mines a common early Springsteen theme: lovers from different worlds, unable to make it work but unwilling to break it off.
 
-Bruce's recent autobiographical openness sheds light on his penchant for getting himself into toxic relationships in his younger days, so it's not a stretch for us to suspect that "Lady and the Doctor," like fellow immediately pre-label songs like "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" and "[Two Hearts in True Waltz Time](../2019-09-10_roll-of-the-dice-two-hearts-in-true-waltz-time/post.md)," are at least informed if not inspired by Bruce's romantic misfires. They certainly all till similar earth.
+Bruce's recent autobiographical openness sheds light on his penchant for getting himself into toxic relationships in his younger days, so it's not a stretch for us to suspect that "Lady and the Doctor," like fellow immediately pre-label songs like "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)" and "[Two Hearts in True Waltz Time](../2011-01-31_roll-of-the-dice-two-hearts-in-true-waltz-time/post.md)," are at least informed if not inspired by Bruce's romantic misfires. They certainly all till similar earth.
 
 "Lady and the Doctor" is one of the more artistically ambitious entries in this category; while it never quite seems fully realized, at times Bruce dazzles with his lyrics.
 

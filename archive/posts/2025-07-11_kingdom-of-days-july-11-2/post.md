@@ -18,7 +18,7 @@ post_id: 57666
 
 **1973:** Bruce records overdubs for "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" and "[Evacuation of the West](../2020-09-16_roll-of-the-dice-evacuation-of-the-west/post.md)" at 914 Sound Studios in Blauvelt, New York.<br>
 
-**1977:** Bruce and the E Street Band work on "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" at Atlantic Studio in New York City.<br>
+**1977:** Bruce and the E Street Band work on "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" at Atlantic Studio in New York City.<br>
 
 **1979:** Bruce and the E Street Band work on "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" during a recording session at the Power Station in New York City.<br>
 
@@ -36,7 +36,7 @@ post_id: 57666
 
 [Watch on Youtube: Bruce Springsteen: Helsinki '08 - Santa Claus Is Coming To Town](https://www.youtube.com/watch?v=0stcLuNJlIQ)
 
-**2009:** Jake Clemons makes his debut on an E Street Band stage when he guest-stars on sax during "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" as the Working on a Dream Tour stops for the first of two nights at RDS Arena in Dublin. (How strange to see him next to Clarence–the intersection of E Street Past and Present!) Bruce's son Evan joins the band as well, playing acoustic guitar on "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)." Tour debuting tonight: "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)."<br>
+**2009:** Jake Clemons makes his debut on an E Street Band stage when he guest-stars on sax during "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" as the Working on a Dream Tour stops for the first of two nights at RDS Arena in Dublin. (How strange to see him next to Clarence–the intersection of E Street Past and Present!) Bruce's son Evan joins the band as well, playing acoustic guitar on "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)." Tour debuting tonight: "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Tenth Avenue Freeze-Out - Dublin 2009-07-11 CLOSEUP](https://www.youtube.com/watch?v=BLQMbiz0mYE)
 

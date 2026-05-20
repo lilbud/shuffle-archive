@@ -44,7 +44,7 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 [Watch on Youtube: Car Wash (Studio Outtake - 1983)](https://www.youtube.com/watch?v=I9m2UMyBBWU)
 
-**1985:** Bruce and the E Street Band play a warm-up rehearsal at Slane Castle in Ireland in preparation for the kick-off of the European leg of the Born in the U.S.A. Tour. Meanwhile, "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" is released as the fifth single from *Born in the U.S.A*.<br>
+**1985:** Bruce and the E Street Band play a warm-up rehearsal at Slane Castle in Ireland in preparation for the kick-off of the European leg of the Born in the U.S.A. Tour. Meanwhile, "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" is released as the fifth single from *Born in the U.S.A*.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1985-05-31.jpg.webp)
 
@@ -56,7 +56,7 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 [Watch on Youtube: Bruce Springsteen Dublin 31/05/2003 Full Concert](https://www.youtube.com/watch?v=duv8guPDvlE)
 
-**2006:** At his Seeger show in Noblesville, Indiana, Bruce opens with the premiere of a new arrangement of "[Atlantic City,](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" and debuts "[Froggie Went A-Courtin'](../2021-01-26_roll-of-the-dice-cover-me-froggie-went-a-courtin/post.md)" by request for a seven-year-old boy.<br>
+**2006:** At his Seeger show in Noblesville, Indiana, Bruce opens with the premiere of a new arrangement of "[Atlantic City,](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" and debuts "[Froggie Went A-Courtin'](../2006-01-14_roll-of-the-dice-cover-me-froggie-went-a-courtin/post.md)" by request for a seven-year-old boy.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/rfWZdex5)
 
@@ -66,7 +66,7 @@ Later that evening, Bruce and the (as yet unnamed) E Street Band open for Chicag
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2006-05-31.jpg.webp)
 
-**2008:** Back-to-back tour premieres at Night Two at London's Emirates Stadium, both from *Born in the U.S.A.*: "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" and "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."<br>
+**2008:** Back-to-back tour premieres at Night Two at London's Emirates Stadium, both from *Born in the U.S.A.*: "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" and "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)."<br>
 
 [Watch on Youtube: I'm on Fire Bruce Springsteen @ Emirates 31/5/08](https://www.youtube.com/watch?v=SjT-Zg4h3U0)
 

@@ -16,7 +16,7 @@ post_id: 56288
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1976-0326.jpg.webp)
 
-**1988:** "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)" makes its live debut during Bruce's Tunnel of Love Express show at the Rupp Arena in Lexington.<br>
+**1988:** "[Ain't Got You](../1987-01-01_roll-of-the-dice-aint-got-you/post.md)" makes its live debut during Bruce's Tunnel of Love Express show at the Rupp Arena in Lexington.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2KwzHwiH)
 

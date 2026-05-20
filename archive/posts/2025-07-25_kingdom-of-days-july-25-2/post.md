@@ -40,7 +40,7 @@ post_id: 57813
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/platinum.jpg.webp)
 
-**1988:** Bruce plays a Tunnel of Love show in Copenhagen, where Link Wray guest-stars on "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
+**1988:** Bruce plays a Tunnel of Love show in Copenhagen, where Link Wray guest-stars on "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Boom Boom 25th July 1988, Idraetspark, Copenhagen, Denmark](https://www.youtube.com/watch?v=5A-alLsp2yg)
 

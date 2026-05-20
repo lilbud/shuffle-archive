@@ -46,7 +46,7 @@ But the highlight came toward the end of the main set, when Bruce played a doubl
 
 The crowd interaction during "The E Street Shuffle" was amazing–it looked like the entire floor was pogo-ing, waving, and moving as one. All through the song–the whole show, really–the crowd sang every note. Not just every word, every *note*. Bruce ate it up; the band's intensity increased song by song throughout the show.
 
-("Incident" was on the set list, but "E Street Shuffle" was an audible–a dealer's choice of "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" or "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" was slotted instead, and I was *very* happy for the substitution.)
+("Incident" was on the set list, but "E Street Shuffle" was an audible–a dealer's choice of "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" or "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)" was slotted instead, and I was *very* happy for the substitution.)
 
 Another pair of audibles came during the encores–this one a mixed bag: out went "[Growin' Up,](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" and in came "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)." That one I was fine with–it seems funny to think about it today, but at the time, "Tenth Avenue" was a semi-rarity; I hadn't heard it live since the Reunion tour seven years earlier.
 

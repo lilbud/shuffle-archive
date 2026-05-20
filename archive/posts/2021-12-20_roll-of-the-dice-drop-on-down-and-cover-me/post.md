@@ -10,7 +10,7 @@ post_id: 14888
 ---
 This.
 
-*This* is what should have been on *Born in the U.S.A.* instead of "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)."
+*This* is what should have been on *Born in the U.S.A.* instead of "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)."
 
 Even Bruce must have recognized at some point just that "Cover Me" wasn't ready for prime time, because he continued to work on the song long, long after he recorded the version that's on the album.
 

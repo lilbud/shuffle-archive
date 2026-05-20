@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/Robert-Randolph-and-The-Family-Band-2.jpg
 post_id: 20094
 ---
-Bruce's original recording of "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)" is spare–almost a capella–but its Bo Diddley beat has always cried out for a funkified arrangement.
+Bruce's original recording of "[Ain't Got You](../1987-01-01_roll-of-the-dice-aint-got-you/post.md)" is spare–almost a capella–but its Bo Diddley beat has always cried out for a funkified arrangement.
 
 Thankfully, multiple Grammy-nominated Robert Randolph & The Family Band were more than up to the challenge.
 

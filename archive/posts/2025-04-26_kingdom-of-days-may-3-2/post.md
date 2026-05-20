@@ -10,7 +10,7 @@ post_id: 56669
 ---
 ***New for 2025:** Audio for 1972; new entry for 1982; video for 1988*<br>
 
-**1972:** After impressing John Hammond the day prior, Bruce records fourteen demo tracks at Columbia Records in New York City. Four of them ("[Mary Queen of Arkansas,](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)" "[It's Hard to Be a Saint in the City,](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," and "[Does This Bus Stop at 82nd Street?](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" will be released more than a quarter century later on *Tracks*. Others, like "[Two Hearts in True Waltz Time](../2019-09-10_roll-of-the-dice-two-hearts-in-true-waltz-time/post.md)" and "[Street Queen](../2011-01-28_roll-of-the-dice-street-queen/post.md/)," remain unreleased.<br>
+**1972:** After impressing John Hammond the day prior, Bruce records fourteen demo tracks at Columbia Records in New York City. Four of them ("[Mary Queen of Arkansas,](../2011-01-03_roll-of-the-dice-mary-queen-of-arkansas/post.md/)" "[It's Hard to Be a Saint in the City,](../2011-01-09_roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/post.md/)" "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," and "[Does This Bus Stop at 82nd Street?](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" will be released more than a quarter century later on *Tracks*. Others, like "[Two Hearts in True Waltz Time](../2011-01-31_roll-of-the-dice-two-hearts-in-true-waltz-time/post.md)" and "[Street Queen](../2011-01-28_roll-of-the-dice-street-queen/post.md/)," remain unreleased.<br>
 
 [Watch on Youtube: Mary Queen Of Arkansas (Demo Version - 1972)](https://www.youtube.com/watch?v=MvabtjLsDGI)
 
@@ -22,7 +22,7 @@ post_id: 56669
 
 **1976:** Bruce plays his first-ever show in Arkansas, at the Robinson Auditorium in Little Rock.<br>
 
-**1981:** The original River Tour stops for a night at the Scandinavium in Gothenburg, Sweden. This is Bruce's first show in Sweden since 1975, so local fans are treated to their first performances of "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and other [*Darkness*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)tracks along with cuts from *The River*.<br>
+**1981:** The original River Tour stops for a night at the Scandinavium in Gothenburg, Sweden. This is Bruce's first show in Sweden since 1975, so local fans are treated to their first performances of "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" and other [*Darkness*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)tracks along with cuts from *The River*.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/UaOmLbOj)
 
@@ -66,7 +66,7 @@ post_id: 56669
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2009-05-03.jpg.webp)
 
-**2013:** At the first of three Wrecking Ball shows at Friends Arena in Solna, Sweden, Bruce plays the full *Born to Run* album start to finish–the first time he has done this outside of the United States. In the encores, Bruce opens with an acoustic performance of "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)," and Elliott Murphy joins Bruce and the band for "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
+**2013:** At the first of three Wrecking Ball shows at Friends Arena in Solna, Sweden, Bruce plays the full *Born to Run* album start to finish–the first time he has done this outside of the United States. In the encores, Bruce opens with an acoustic performance of "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)," and Elliott Murphy joins Bruce and the band for "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/SaSEYKdE)
 
@@ -78,7 +78,7 @@ post_id: 56669
 
 [Watch Video Highlight](https://videopress.com/embed/9ilCSqQc)
 
-**2014:** Bruce makes a return visit (his third) to the New Orleans Jazz Festival for an afternoon show. Rickie Lee Jones joins Bruce for seven songs, and John Fogerty for two of his own ("[Green River](../2021-10-27_matr-bruce-springsteen-and-john-fogerty-green-river/post.md)" and "Proud Mary"). Tour debuting tonight: "[How Can a Poor Man Stand Such Times and Live](../2021-12-08_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" and "[When the Saints Go Marching In](../2021-03-28_cover-me-when-the-saints-go-marching-in/post.md)."<br>
+**2014:** Bruce makes a return visit (his third) to the New Orleans Jazz Festival for an afternoon show. Rickie Lee Jones joins Bruce for seven songs, and John Fogerty for two of his own ("[Green River](../2021-10-27_matr-bruce-springsteen-and-john-fogerty-green-river/post.md)" and "Proud Mary"). Tour debuting tonight: "[How Can a Poor Man Stand Such Times and Live](../2006-01-17_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" and "[When the Saints Go Marching In](../2021-03-28_cover-me-when-the-saints-go-marching-in/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen and John Fogerty with Green River@JazzFest 2014 New Orleans](https://www.youtube.com/watch?v=wiH1MXrcWaA)
 

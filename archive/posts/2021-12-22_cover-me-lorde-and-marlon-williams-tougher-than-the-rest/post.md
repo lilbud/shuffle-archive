@@ -14,7 +14,7 @@ Together at the piano, Lorde and Marlon covered one of Bruce's best songs, "[Tou
 
 [Watch Video Highlight](https://videopress.com/embed/OxW9Zavv)
 
-Lorde is no stranger to covering Bruce–she performed "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" in concert several times on her *Melodrama* tour in 2017. And of course the respect is mutual: Bruce famously covered Lorde's breakout hit "Royals" in 2014.
+Lorde is no stranger to covering Bruce–she performed "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" in concert several times on her *Melodrama* tour in 2017. And of course the respect is mutual: Bruce famously covered Lorde's breakout hit "Royals" in 2014.
 
 But *everyone* covers "I'm on Fire." It's wonderful to see and hear these two great artists dig a little bit deeper into Bruce's catalog.
 

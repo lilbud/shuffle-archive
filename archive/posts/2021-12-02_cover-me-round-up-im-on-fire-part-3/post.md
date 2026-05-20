@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/12/otherfaves.jpg
 post_id: 30858
 ---
-It's time for another installment of *Cover Me Round-Up: [I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)—*a song so nice, they covered it seventy bazillion times. At this rate, we'll never catch up, so let's jump right in.
+It's time for another installment of *Cover Me Round-Up: [I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)—*a song so nice, they covered it seventy bazillion times. At this rate, we'll never catch up, so let's jump right in.
 
 First up is a familiar face. We met Carson McKee a couple of months ago when we listened to his lovely [cover of "Nebraska"](../2021-09-23_cover-me-carson-mckee-and-skylar-mckee-nebraska/post.md) with his brother Skylar. Carson has another musical partner, though–he also performs with Joshua Lee Turner as indie folk duo The Other Favorites.
 

@@ -10,7 +10,7 @@ post_id: 28142
 ---
 In 1986, Bruce Springsteen was still surfing a wave of super-stardom on the heels of the massive success that was *Born in the U.S.A.*
 
-One might think that eighteen months after the release of the album and a few months after the end of his record-breaking tour, popular attention might have been ready to move on. Yet, Bruce still managed to score two Top Ten singles in 1986: "[My Hometown,](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" which peaked at #6 in the early weeks of the year, and "[War](../2019-05-27_cover-me-war/post.md)," which notched a #9 berth at the tail end of it.
+One might think that eighteen months after the release of the album and a few months after the end of his record-breaking tour, popular attention might have been ready to move on. Yet, Bruce still managed to score two Top Ten singles in 1986: "[My Hometown,](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" which peaked at #6 in the early weeks of the year, and "[War](../2016-01-02_cover-me-war/post.md)," which notched a #9 berth at the tail end of it.
 
 Escaping most of his fans' notice at the time, however, was a *third* hit single in 1986 with a Springsteen credit.
 

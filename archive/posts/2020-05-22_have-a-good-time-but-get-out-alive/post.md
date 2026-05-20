@@ -28,7 +28,7 @@ Even if you were around and aware at the time, it's understandable if you missed
 
 Critics and fans were quick to pick up on the similarities in sound and sensibilities between the Houserockers' 32-year-old lead singer and a certain New Jersey rocker, and comparisons (mostly favorable) abounded in reviews and articles.
 
-The band even drew the notice of Bruce himself, who dedicated "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" to "Joe and the Iron City boys" when he came through their hometown of Pittsburgh that autumn.
+The band even drew the notice of Bruce himself, who dedicated "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" to "Joe and the Iron City boys" when he came through their hometown of Pittsburgh that autumn.
 
 [Watch on Youtube: Bruce Springsteen - "The Promised Land" - Pittsburgh, 1980-11-30](https://www.youtube.com/watch?v=I1Ab0iyJitA)
 

@@ -22,7 +22,7 @@ For the unfamiliar, "Pilgrim in the Temple of Love" holds the distinction of bei
 
 Composed in 1996 and performed throughout that year on The Ghost of Tom Joad Tour, "Pilgrim in the Temple of Love" is the story of a chance meeting between Bruce and Santa in the unlikeliest of places: a New Jersey strip club.
 
-Now given St. Bruce's public persona, fans might find this a difficult premise to swallow. But while it may border on the apocryphal, "Pilgrim in the Temple of Love" has an air of authenticity about it, similar to "[Local Hero](../2019-01-17_roll-of-the-dice-local-hero/post.md)," with which "Pilgrim" shares its image-puncturing theme.
+Now given St. Bruce's public persona, fans might find this a difficult premise to swallow. But while it may border on the apocryphal, "Pilgrim in the Temple of Love" has an air of authenticity about it, similar to "[Local Hero](../1992-02-04_roll-of-the-dice-local-hero/post.md)," with which "Pilgrim" shares its image-puncturing theme.
 
 For Bruce actually is known to be an aficionado of the naked art scene–he's admitted as much on occasion, most notably on his *VH1 Storytellers* appearance in 2005.
 

@@ -8,11 +8,11 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/04/Honeymooners.jpg
 post_id: 1412
 ---
-A month or so ago, I wrote about "[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md)," and called it a perfect song about a perfect day.
+A month or so ago, I wrote about "[County Fair](../1983-01-11_roll-of-the-dice-county-fair/post.md)," and called it a perfect song about a perfect day.
 
 > *"There's no plot to "County Fair," no character development, transformation, or revelation. It's just a song about being young and in love, in a small town on a perfect day."*<br>
 
-That description applies just as well to "The Honeymooners," a [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)outtake released more than a decade after it was recorded, as part of the *Tracks* collection.
+That description applies just as well to "The Honeymooners," a [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md)outtake released more than a decade after it was recorded, as part of the *Tracks* collection.
 
 [Watch on Youtube: The Honeymooners (Studio Outtake - 1987)](https://www.youtube.com/watch?v=6WRbJD_Nsb8)
 

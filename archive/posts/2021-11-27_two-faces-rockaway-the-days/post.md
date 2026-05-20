@@ -43,7 +43,7 @@ Springsteen ends the verse with a casual, soothing "All right," as if he's check
 
 We're no longer in the past; whatever's happening in the chorus is happening right now. We're no longer listening to a detached third-person narrative; there's a real, vulnerable person here now, speaking to us directly, asking for comfort.
 
-And by "comfort," of course, I mean sex. This is a song like "Because the Night" and "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" and "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," in which a character overwhelmed by the misery of the world turns to sex as a refuge, a way to get through a long, depressing night. Ken hears the singer of "Rockaway the Days" as a maternal figure, and while I disagree, I think he's pinpointed something central about how this chorus feels. Springsteen's voice is gentle, the cadence repetitive and soothing. This is a lullaby of a kind, but a dark one, a lullaby for adults.
+And by "comfort," of course, I mean sex. This is a song like "Because the Night" and "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" and "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," in which a character overwhelmed by the misery of the world turns to sex as a refuge, a way to get through a long, depressing night. Ken hears the singer of "Rockaway the Days" as a maternal figure, and while I disagree, I think he's pinpointed something central about how this chorus feels. Springsteen's voice is gentle, the cadence repetitive and soothing. This is a lullaby of a kind, but a dark one, a lullaby for adults.
 
 The singer takes up Billy's story again, running quickly through the big events of his life, his courtship and marriage. (In what may be Springsteen's laziest rhyme ever, he names Billy's wife "Mary Dove" so that her name will rhyme with "love." Oof.)
 
@@ -82,7 +82,7 @@ Then something unexpected happens: the song keeps going. For the first time, tha
 > *Rich man want the power and the seat on the top*<br>
 > *Poor man want the money that the rich man got*<br>
 
-Sound familiar? Six years before, in "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," Springsteen sang confidently,
+Sound familiar? Six years before, in "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)," Springsteen sang confidently,
 
 > *Poor man wanna be rich, rich man wanna be king*<br>
 > *And a king ain't satisfied till he rules everything*<br>
@@ -105,7 +105,7 @@ Either one is possible, but I'm inclined to think it's the second. I think Sprin
 
 This also explains the flatness of the narration, the sense of being shut out of Billy's thoughts and emotions. The singer doesn't know Billy; he knows only the bare events of his life. And yet Billy's story has brushed up against his own, and he's affected by it, haunted by it.
 
-Compare this to "[Wreck on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)," another story with a car crash, a dead young man, and a narrator who has crossed paths with someone else's tragedy. That song ends with the singer lying awake at night watching his girlfriend sleep, keeping vigil over the things he loves so they don't slip away. "Rockaway the Days" is "Wreck on the Highway" updated for the *Born in the U.S.A.* era, a time when that kind of human connection is harder to come by.
+Compare this to "[Wreck on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)," another story with a car crash, a dead young man, and a narrator who has crossed paths with someone else's tragedy. That song ends with the singer lying awake at night watching his girlfriend sleep, keeping vigil over the things he loves so they don't slip away. "Rockaway the Days" is "Wreck on the Highway" updated for the *Born in the U.S.A.* era, a time when that kind of human connection is harder to come by.
 
 [Watch on Youtube: Wreck on the Highway](https://www.youtube.com/watch?v=D-MthLm7_m0)
 

@@ -18,7 +18,7 @@ But let's start in 1978, with a fateful motel poolside meeting. Let's let Bruce 
 
 [Watch Video](https://cdn.embedly.com/widgets/media.html?src=https%3A%2F%2Fw.soundcloud.com%2Fplayer%2F%3Fvisual%3Dtrue%26url%3Dhttp%253A%252F%252Fapi.soundcloud.com%252Ftracks%252F268169474%26show_artwork%3Dtrue%26secret_token%3Ds-cJlpT&url=https%3A%2F%2Fsoundcloud.com%2Faudible%2Fborn-on-the-fourth-of-july%2Fs-cJlpT&image=http%3A%2F%2Fi1.sndcdn.com%2Fartworks-000167511522-b8th0v-t500x500.jpg&key=205dfc3e29a54717b61d110ab0ac5a3d&type=text%2Fhtml&schema=soundcloud)
 
-Bruce's meeting and friendship with Ron Kovic sparked Bruce's interest in veteran's affairs, leading in short order to a benefit concert and songs that confronted the Vietnam veteran's experience head-on ("[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)," "[Vietnam](../2019-08-31_roll-of-the-dice-vietnam/post.md)," and "[Born in the U.S.A](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md).").
+Bruce's meeting and friendship with Ron Kovic sparked Bruce's interest in veteran's affairs, leading in short order to a benefit concert and songs that confronted the Vietnam veteran's experience head-on ("[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)," "[Vietnam](../1984-01-02_roll-of-the-dice-vietnam/post.md)," and "[Born in the U.S.A](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md).").
 
 But Bruce had been grappling with the Vietnam war since he was a teenager. As far back as his Steel Mill Days, we have recordings of original Springsteen compositions like "[The War is Over](../2019-03-23_roll-of-the-dice-the-war-is-over/post.md)" that keenly acknowledge and rage against the human cost of war.
 
@@ -34,7 +34,7 @@ But as Bruce realized–probably not at the moment, but certainly later–there 
 
 [Watch Video Highlight](https://videopress.com/embed/tUAdpU2d)
 
-So it's no wonder that Kovic's book touched a raw nerve when Bruce read it. By the end of the Darkness Tour, Kovic and his experience were still very top of mind for Bruce–at the famed Winterland show in December 1978, Bruce dedicated "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" to Kovic, mentioning both author and book by name.
+So it's no wonder that Kovic's book touched a raw nerve when Bruce read it. By the end of the Darkness Tour, Kovic and his experience were still very top of mind for Bruce–at the famed Winterland show in December 1978, Bruce dedicated "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" to Kovic, mentioning both author and book by name.
 
 So when the tour ended and Bruce began writing songs for what would become *The River*, it's reasonable to assume that Kovic and his fellow veterans were still very much a presence–if not overtly, than at least subconsciously.
 

@@ -10,7 +10,7 @@ post_id: 33129
 ---
 No, it's not a coincidence.
 
-Just as its name implies, "Death to My Hometown" is a direct sequel to "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)"–certainly thematically, and a strong argument could be made for literally as well.
+Just as its name implies, "Death to My Hometown" is a direct sequel to "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)"–certainly thematically, and a strong argument could be made for literally as well.
 
 Both songs are narrated by fathers passing along life lessons to their sons; both are set in towns ravaged by economic downturns; both feature two verses told in flashback, a revelatory bridge, and a torch-passing final verse.
 

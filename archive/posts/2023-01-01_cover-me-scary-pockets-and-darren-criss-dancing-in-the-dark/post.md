@@ -12,7 +12,7 @@ If you haven’t discovered Scary Pockets yet, check out their [YouTube channel]
 
 The Los Angeles-based funk band releases new music videos weekly, usually a reinterpretation of a classic song featuring some phenomenal guest vocalists.
 
-Last week’s release featured the multi-talented Darren Criss at the microphone, with what is easily one of the best covers of “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” yet.
+Last week’s release featured the multi-talented Darren Criss at the microphone, with what is easily one of the best covers of “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)” yet.
 
 I know I’ve been going to the “Dancing in the Dark” well pretty often of late, but trust me: watch this one.
 

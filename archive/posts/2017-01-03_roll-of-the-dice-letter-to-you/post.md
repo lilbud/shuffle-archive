@@ -52,7 +52,7 @@ Let's take a listen (acoustic version!) so we can appreciate Bruce's heartfelt l
 
 [Watch Video Highlight](https://videopress.com/embed/Cor6CHI8)
 
-It's actually a challenge to analyze most of the new songs on *[Letter to You](../2023-07-10_album-companion-letter-to-you/post.md)—*not because they're laden with metaphor and symbolism, but for the exact opposite reason: Bruce writes so straightforwardly on this album and draws so much from his personal history that the songs call more for annotation than analysis.
+It's actually a challenge to analyze most of the new songs on *[Letter to You](../2017-01-01_album-companion-letter-to-you/post.md)—*not because they're laden with metaphor and symbolism, but for the exact opposite reason: Bruce writes so straightforwardly on this album and draws so much from his personal history that the songs call more for annotation than analysis.
 
 "Letter to You," the album's title track, barely even calls for that. The word *summational* can be overused in music journalism and criticism (present blog included), but it truly applies here. Heck, it almost sounds *final.*
 

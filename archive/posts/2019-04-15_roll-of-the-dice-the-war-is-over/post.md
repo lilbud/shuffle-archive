@@ -10,7 +10,7 @@ post_id: 7886
 ---
 The dice are mean today.
 
-Just a few days after assigning me "[Souls of the Departed](../2019-03-19_roll-of-the-dice-souls-of-the-departed/post.md)," they turn up the similarly themed Steel Mill number, "The War Is Over," and the comparison is almost cruel.
+Just a few days after assigning me "[Souls of the Departed](../1992-02-10_roll-of-the-dice-souls-of-the-departed/post.md)," they turn up the similarly themed Steel Mill number, "The War Is Over," and the comparison is almost cruel.
 
 To be fair, though, Bruce wrote "The War Is Over" when he was still a teen, so we can forgive the stridency of the lyrics and the stretched-to-its-breaking-point metaphor; instead we can admire the songwriter's earnestness and the arranger's creativity.
 

@@ -54,7 +54,7 @@ post_id: 55858
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/rsmag.jpg.webp)
 
-**2014:** The High Hopes Tour moves on to Perth for the first of three nights. These are Bruce’s first ever shows in Perth, and Night One is a barn-burner. The show opens with the E Street Band premiere of “[Frankie Fell in Love](../2018-02-12_roll-of-the-dice-frankie-fell-in-love/post.md)” and features a marathon “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md).” Also making their tour premieres tonight: “[The E Street Shuffle,](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)” “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md),” and “[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md).”<br>
+**2014:** The High Hopes Tour moves on to Perth for the first of three nights. These are Bruce’s first ever shows in Perth, and Night One is a barn-burner. The show opens with the E Street Band premiere of “[Frankie Fell in Love](../2018-02-12_roll-of-the-dice-frankie-fell-in-love/post.md)” and features a marathon “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md).” Also making their tour premieres tonight: “[The E Street Shuffle,](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)” “[For You](../2011-01-07_roll-of-the-dice-for-you/post.md),” and “[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Frankie Fell In Love - Perth, 5 February 2014](https://www.youtube.com/watch?v=ytHX-zy5OQU)
 

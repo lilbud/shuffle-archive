@@ -36,7 +36,7 @@ But of all the songs Bruce gave away for *On the Line* that cried out for an off
 
 [Watch Video Highlight](https://videopress.com/embed/HbdN8Y0e)
 
-Bruce still sticks pretty close to that "It's Gonna Work Out Fine" melody, but it's lusher now, more romantic and soulful, with a coda at least inspired by if not lifted from "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)."
+Bruce still sticks pretty close to that "It's Gonna Work Out Fine" melody, but it's lusher now, more romantic and soulful, with a coda at least inspired by if not lifted from "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)."
 
 The lyrics speak for themselves–not much is required in the way of analysis. This is a pure R&B pop song., with Bruce's narrator finding all the validation he needs in the love of his girl.
 

@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2022/04/laralark.jpg
 post_id: 33402
 ---
-It's time for another edition of *Cover Me Round-Up*, featuring six fresh takes on Bruce Springsteen's most covered song, "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."
+It's time for another edition of *Cover Me Round-Up*, featuring six fresh takes on Bruce Springsteen's most covered song, "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)."
 
 Today's cover crop is our most stylistically diverse one yet, with artists from around the globe translating "I'm on Fire" into genres and arrangements far afield from Bruce's original Top 10 single.
 

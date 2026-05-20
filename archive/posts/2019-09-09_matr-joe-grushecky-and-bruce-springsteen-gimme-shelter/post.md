@@ -10,7 +10,7 @@ post_id: 12100
 ---
 It's shocking that it took Bruce until 1995 to cover what is arguably The Rolling Stones' greatest song (*Rolling Stone* and *Ultimate Classic Rock* certainly think so, at least); it's even more surprising that he hasn't covered it since.
 
-Or properly, for that matter, since his one and only stab at it (other than quoting it nightly in "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" on the Tunnel of Love Express Tour) was with Joe Grushecky on backing vocals and guitar only.
+Or properly, for that matter, since his one and only stab at it (other than quoting it nightly in "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" on the Tunnel of Love Express Tour) was with Joe Grushecky on backing vocals and guitar only.
 
 In the autumn of 1995, Bruce became an honorary (and temporary) Houserocker, joining the band for their "October Assault" in support of Joe's Bruce-produced [*American Babylon*](../2020-10-17_american-babylon-a-retrospective/post.md) album (which, IMHO, every Springsteen fan should own).
 

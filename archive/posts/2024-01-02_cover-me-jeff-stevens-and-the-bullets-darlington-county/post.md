@@ -14,13 +14,13 @@ How many *Born in the U.S.A.* songs charted as singles?
 
 …stump your questioner by answering eight instead of seven.
 
-Because in addition to "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)," "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)," "[Born in the U.S.A.,](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)," "Glory Days," "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)," and "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," one other song made a brief appearance on the Billboard charts.
+Because in addition to "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)," "[Born in the U.S.A.,](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)," "Glory Days," "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)," and "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," one other song made a brief appearance on the Billboard charts.
 
 Except it was the Country chart rather than the Hot 100, and it didn't chart until 1986.
 
 Oh, and Bruce Springsteen wasn't the recording artist.
 
-Jeff Stevens and the Bullets recorded "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" as their debut single and took it to #69 on the U.S. Country chart.
+Jeff Stevens and the Bullets recorded "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)" as their debut single and took it to #69 on the U.S. Country chart.
 
 [https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3](https://estreetshuffle.com/wp-content/uploads/2020/09/c87_322-Jeff-Stevens-Darlington-County-256K-S-4.07.mp3)
 

@@ -78,7 +78,7 @@ post_id: 59633
 
 [Watch on Youtube: Soundcheck Bruce Springsteen en Chile!](https://www.youtube.com/watch?v=LA-yNDJDNOM)
 
-**2020:** Bruce releases the first single, video, and title track to his upcoming album with the E Street Band, "[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md)."<br>
+**2020:** Bruce releases the first single, video, and title track to his upcoming album with the E Street Band, "[Letter to You](../2017-01-03_roll-of-the-dice-letter-to-you/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Letter To You (Official Video)](https://www.youtube.com/watch?v=AQyLEz0qy-g)
 

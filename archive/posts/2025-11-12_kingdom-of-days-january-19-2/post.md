@@ -52,7 +52,7 @@ post_id: 55607
 
 **2014:** *High Hopes* reaches #1 in the U.K., making it Bruce’s tenth #1 album in that country.<br>
 
-**2016:** The River Tour moves on to Chicago. In memory of Glenn Frey, who died the day before, Bruce performs an acoustic “[Take It Easy](https://wp.me/p9w3Lk-3y)” in the encore. This is only night two of the tour, and Bruce is a little rusty. Listen to him forget how to start “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md).” Twice.<br>
+**2016:** The River Tour moves on to Chicago. In memory of Glenn Frey, who died the day before, Bruce performs an acoustic “[Take It Easy](https://wp.me/p9w3Lk-3y)” in the encore. This is only night two of the tour, and Bruce is a little rusty. Listen to him forget how to start “[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md).” Twice.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3)
 

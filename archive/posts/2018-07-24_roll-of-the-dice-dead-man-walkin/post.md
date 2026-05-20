@@ -37,7 +37,7 @@ Like many of Bruce's great songs, the bridges in "Dead Man Walkin" are home to t
 > *Once I had a job, I had a girl…*<br>
 > *Between our dreams and actions lies this world*<br>
 
-The job/girl line is a callback to the loser in "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)," and the dream/actions line is an absolutely brilliant reduction of pretty much that entire song from *Born in the U.S.A.–*so much so that one can't help but wonder if we're listening to the same character, further down a very dark and lonely road.
+The job/girl line is a callback to the loser in "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)," and the dream/actions line is an absolutely brilliant reduction of pretty much that entire song from *Born in the U.S.A.–*so much so that one can't help but wonder if we're listening to the same character, further down a very dark and lonely road.
 
 > *In the deep forest*<br>
 > *Their blood and tears rushed over me*<br>

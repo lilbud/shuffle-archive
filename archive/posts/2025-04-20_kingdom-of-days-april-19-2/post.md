@@ -32,11 +32,11 @@ post_id: 56557
 
 [Watch Video Highlight](https://videopress.com/embed/TVhMNdU8)
 
-**1988:** [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) is certified 3x multi-platinum by the Recording Industry Association of America.<br>
+**1988:** [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) is certified 3x multi-platinum by the Recording Industry Association of America.<br>
 
 [Watch on Youtube: Tunnel of Love](https://www.youtube.com/playlist?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
 
-**1993:** Bruce brings his World Tour 1993 to Rotterdam for the first of two nights at Sportpaleis Ahoy. Watch the final encore of “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)” below.<br>
+**1993:** Bruce brings his World Tour 1993 to Rotterdam for the first of two nights at Sportpaleis Ahoy. Watch the final encore of “[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)” below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Working On The Highway - April 19th 1993](https://www.youtube.com/watch?v=9OJC24_OS6k)
 
@@ -44,7 +44,7 @@ post_id: 56557
 
 [Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1996:** Bruce plays a solo acoustic show in Berlin. Three songs from tonight’s show (“[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” and “[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)“) will be released on Bruce’s *Missing* EP later in the year.<br>
+**1996:** Bruce plays a solo acoustic show in Berlin. Three songs from tonight’s show (“[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)” and “[Spare Parts](../1987-01-04_roll-of-the-dice-spare-parts/post.md/)“) will be released on Bruce’s *Missing* EP later in the year.<br>
 
 [Watch on Youtube: Darkness On the Edge of Town (Live at ICC SAAL 1, Berlin, Germany - April 1996)](https://www.youtube.com/watch?v=1rh5xrkopE4)
 

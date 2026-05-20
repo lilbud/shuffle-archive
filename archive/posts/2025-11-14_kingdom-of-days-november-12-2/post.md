@@ -42,7 +42,7 @@ post_id: 61330
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/Daily_News_2001_11_14_43-scaled.jpg.webp)
 
-**2002:** Clarence is back in action after eye surgery, and Bruce starts their Rising show in Cincinnati with a speech decrying racism (referencing recent police brutality and a subsequent boycott) before launching into "American Skin (41 Shots)," making this the first time since the tour began that "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" does not open the show. In the encores, Bruce takes a rare (at this time, at least) sign request and plays "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)."<br>
+**2002:** Clarence is back in action after eye surgery, and Bruce starts their Rising show in Cincinnati with a speech decrying racism (referencing recent police brutality and a subsequent boycott) before launching into "American Skin (41 Shots)," making this the first time since the tour began that "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)" does not open the show. In the encores, Bruce takes a rare (at this time, at least) sign request and plays "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ajh8Trpa)
 

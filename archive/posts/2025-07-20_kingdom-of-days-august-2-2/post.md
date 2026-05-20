@@ -64,7 +64,7 @@ post_id: 57895
 
 [Watch on Youtube: Willy and the hand jive (Johnny Otis cover )](https://www.youtube.com/watch?v=V0bdSzmU4jI)
 
-**1992:** Night Seven of eleven at the Brendan Byrne Arena in East Rutherford sees the live debut of the very rarely performed "[Book of Dreams](../2019-06-04_roll-of-the-dice-book-of-dreams/post.md)."<br>
+**1992:** Night Seven of eleven at the Brendan Byrne Arena in East Rutherford sees the live debut of the very rarely performed "[Book of Dreams](../1992-02-09_roll-of-the-dice-book-of-dreams/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - BOOK OF DREAMS 1992 live](https://www.youtube.com/watch?v=pOZX8CqaEp4)
 

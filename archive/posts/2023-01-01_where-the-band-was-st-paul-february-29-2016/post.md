@@ -73,7 +73,7 @@ And of course, the final sequence of songs from “[Fade Away](../2018-04-28_rol
 
 [Watch on Youtube: Bruce Springsteen "Wreck On The Highway" St.Paul,Mn 2/29/16 HD](https://www.youtube.com/watch?v=-9buayl21Vc)
 
-I’d held out hope that in the brief post-album mini-set, I’d get a rare chestnut or two. But it wasn’t to be last night–instead, Bruce gave us terrific performances of songs I’d seen many, many times before, from “[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” through “Thunder Road.” It’s pretty tough to complain about that.
+I’d held out hope that in the brief post-album mini-set, I’d get a rare chestnut or two. But it wasn’t to be last night–instead, Bruce gave us terrific performances of songs I’d seen many, many times before, from “[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)” through “Thunder Road.” It’s pretty tough to complain about that.
 
 [Watch on Youtube: Bruce Springsteen "Badlands" St.Paul,Mn 2/29/16 HD](https://www.youtube.com/watch?v=2GSfUIxKmDw)
 
@@ -91,13 +91,13 @@ I’d held out hope that in the brief post-album mini-set, I’d get a rare ches
 
 Still, even though the performances were great, the crowd was one of the most energetic of the tour to date, and the River set continued to grow in its majesty, I couldn’t help but be a little disappointed as the encores started and I realized I wouldn’t be getting any surprises at all.
 
-But then I reminded myself that the first set was full of songs I hadn’t heard before last month, and as Bruce launched into “Born to Run” and “[Bobby Jean,](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)” I watched the crowd go nuts and surrendered to the vibe, and that’s when the magic started.
+But then I reminded myself that the first set was full of songs I hadn’t heard before last month, and as Bruce launched into “Born to Run” and “[Bobby Jean,](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)” I watched the crowd go nuts and surrendered to the vibe, and that’s when the magic started.
 
 [Watch on Youtube: Bruce Springsteen "Born To Run" St.Paul,Mn 2/29/16 HD](https://www.youtube.com/watch?v=zLwa9RwzZnw)
 
 [Watch on Youtube: Bruce Springsteen "Bobby Jean" St.Paul,Mn 2/29/16 HD](https://www.youtube.com/watch?v=UtiR3pJQgLQ)
 
-Bruce always brings someone up on stage to dance with him during “[Dancing in the Dark,](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” usually a young woman. But last night, Bruce invited both an elderly woman and a young girl–and both of their expressions (especially the bewildered girl who was presented with a guitar she had no idea what to do with) were priceless. I love those moments at a Springsteen show–you never know exactly when one’s coming, but you always know–at every show–that one will.
+Bruce always brings someone up on stage to dance with him during “[Dancing in the Dark,](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)” usually a young woman. But last night, Bruce invited both an elderly woman and a young girl–and both of their expressions (especially the bewildered girl who was presented with a guitar she had no idea what to do with) were priceless. I love those moments at a Springsteen show–you never know exactly when one’s coming, but you always know–at every show–that one will.
 
 [Watch on Youtube: Bruce Springsteen "Dancing In The Dark" St.Paul,Mn 2/29/16 HD](https://www.youtube.com/watch?v=InascGTbEac)
 

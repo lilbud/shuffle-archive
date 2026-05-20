@@ -52,7 +52,7 @@ The late show was recorded, too–but only the first two songs have surfaced. Bu
 
 **2010:** Bruce wins the Grammy Award for Best Solo Rock Vocal Performance for “[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md),” the only one of his four nominations this year to earn him an award. Bruce was also nominated for Best Pop Collaboration with Vocals for “[Sea of Heartbreak](../2018-01-12_meeting-across-the-river-bruce-springsteen-and-rosanne-cash/post.md)” with Rosanne Cash; Best Rock Song for “Working on a Dream,” and Best Song Written for a Motion Picture for “[The Wrestler.](../2020-10-31_roll-of-the-dice-the-wrestler/post.md)”<br>
 
-**2016:** The River Tour (2016 edition) makes a stop at the Prudential Center in Newark, where “[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md),” “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md),” and “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)” make their tour debuts.<br>
+**2016:** The River Tour (2016 edition) makes a stop at the Prudential Center in Newark, where “[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md),” “[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md),” and “[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)” make their tour debuts.<br>
 
 [Watch on Youtube: Bruce Springsteen - 2016-01-31 Newark - Meet Me In The City](https://www.youtube.com/watch?v=SBz7CTnx6gw)
 

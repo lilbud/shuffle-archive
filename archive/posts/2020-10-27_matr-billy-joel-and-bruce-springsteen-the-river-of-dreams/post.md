@@ -12,7 +12,7 @@ Of all the songs in Billy Joel’s catalog begging for a Billy/Bruce team-up, �
 
 [Watch on Youtube: Billy Joel - The River of Dreams (Official HD Video)](https://www.youtube.com/watch?v=hSq4B_zHqPM)
 
-Not just because it was a hit single, topping the U.S. Adult Contemporary chart (peaking at #3 on the Hot 100), but because Bruce sure loves him some river metaphors (“[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md),” “[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md),” “[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md),” “[One Minute You’re Here…](../2021-05-30_roll-of-the-dice-one-minute-youre-here/post.md)” the list goes on and on.)
+Not just because it was a hit single, topping the U.S. Adult Contemporary chart (peaking at #3 on the Hot 100), but because Bruce sure loves him some river metaphors (“[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md),” “[Across the Border](../2020-09-06_roll-of-the-dice-across-the-border/post.md),” “[Blood Brothers](../2019-12-06_roll-of-the-dice-blood-brothers/post.md),” “[One Minute You’re Here…](../2021-05-30_roll-of-the-dice-one-minute-youre-here/post.md)” the list goes on and on.)
 
 So what a treat it was when Billy and Bruce closed their main set with it at their benefit fundraiser for then-candidate Barack Obama in the closing weeks of the 2008 U.S. presidential campaign.
 

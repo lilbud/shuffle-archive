@@ -62,7 +62,7 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he'll sw
 
 [Watch on Youtube: Gothenburg 04/07/2008](https://www.youtube.com/playlist?list=PLJTyL9twk3zBF2CkbbRvghJhqt8OJ1AhD)
 
-**2012:** Bruce plays an Independence Day-themed set at Bercy in Paris, featuring the tour premieres of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" and "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)," along with "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" and "[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)" This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/packages/2,1226/Bruce-Springsteen-Paris-2012.html).<br>
+**2012:** Bruce plays an Independence Day-themed set at Bercy in Paris, featuring the tour premieres of "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)" and "[Independence Day](../2022-03-14_roll-of-the-dice-independence-day/post.md)," along with "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)" and "[American Land.](../2016-01-22_roll-of-the-dice-american-land/post.md)" This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/packages/2,1226/Bruce-Springsteen-Paris-2012.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - 4th of July, Asbury Park (Sandy) - 04-07-12 Paris](https://www.youtube.com/watch?v=c_vd5ZTMpNw)
 

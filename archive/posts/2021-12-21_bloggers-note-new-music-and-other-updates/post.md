@@ -12,7 +12,7 @@ Well, hello there!
 
 I don't write these updates very often (the last one was six months ago) since this isn't really a news site, but there's enough happening in the Springsteen world these days that I thought it was worth doing a brief recap in case you've missed any of it.
 
-The big news, of course, is that we have a brand new Bruce Springsteen song, with an album on the way! "[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md)" dropped yesterday morning in two versions: a four-minute video and a five-minute audio. You can find the audio on your favorite streaming service; here's the video for those who haven't had the pleasure yet.
+The big news, of course, is that we have a brand new Bruce Springsteen song, with an album on the way! "[Letter to You](../2017-01-03_roll-of-the-dice-letter-to-you/post.md)" dropped yesterday morning in two versions: a four-minute video and a five-minute audio. You can find the audio on your favorite streaming service; here's the video for those who haven't had the pleasure yet.
 
 [Watch on Youtube: Bruce Springsteen - Letter To You (Official Video)](https://www.youtube.com/watch?v=AQyLEz0qy-g)
 

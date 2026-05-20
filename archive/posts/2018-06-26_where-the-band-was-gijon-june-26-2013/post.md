@@ -28,7 +28,7 @@ Bruce followed up “My Love” with “[Out in the Street,](../2021-10-28_roll-
 
 [Watch on Youtube: Pam And Adele Springsteen - Out in the street - Gijón 2013](https://www.youtube.com/watch?v=JaAbkPtk-QE)
 
-But from there, the setlist went out the window: it was sign-request time, and the Spanish fans did not let me down. First up, my first “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md),” one of my favorite songs from the HT/LT era.
+But from there, the setlist went out the window: it was sign-request time, and the Spanish fans did not let me down. First up, my first “[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md),” one of my favorite songs from the HT/LT era.
 
 [Watch on Youtube: Springsteen LIVE - Better Days - Gijon, Spain 6/26/13](https://www.youtube.com/watch?v=VtQ3mg2a8Dg)
 

@@ -62,7 +62,7 @@ post_id: 56717
 
 [Watch Video Highlight](https://videopress.com/embed/NWEGes7W)
 
-**2006:** The Seeger Sessions Tour picks up steam in Manchester with the live premiere of “[How Can I Keep From Singing](../2019-11-21_cover-me-how-can-i-keep-from-singing/post.md)” and the tour debut of the “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)/[Mystery Train](../2019-05-21_cover-me-mystery-train/post.md)” mash-up.<br>
+**2006:** The Seeger Sessions Tour picks up steam in Manchester with the live premiere of “[How Can I Keep From Singing](../2006-01-16_cover-me-how-can-i-keep-from-singing/post.md)” and the tour debut of the “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)/[Mystery Train](../2019-05-21_cover-me-mystery-train/post.md)” mash-up.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/iHzc5aGI)
 

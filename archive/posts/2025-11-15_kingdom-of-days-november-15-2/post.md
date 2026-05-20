@@ -60,7 +60,7 @@ Meanwhile, for those of us not at the show, The Ben Stiller show gets educationa
 
 [Watch on Youtube: Counting with Bruce Springsteen](https://www.youtube.com/watch?v=FIJ3grfB3WE)
 
-**1999:** On Night Two in Cleveland on the Reunion Tour, Bruce and the E Street Band debut a new country-ish arrangement of "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" and soundcheck a unique "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)."<br>
+**1999:** On Night Two in Cleveland on the Reunion Tour, Bruce and the E Street Band debut a new country-ish arrangement of "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" and soundcheck a unique "[State Trooper](../2019-12-22_roll-of-the-dice-state-trooper/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Odds and Sods Rarities - State Trooper - (Cleveland 1999 soundcheck)](https://www.youtube.com/watch?v=rlejOJ7Ve28)
 
@@ -82,7 +82,7 @@ Meanwhile, for those of us not at the show, The Ben Stiller show gets educationa
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2007-11-15.png.webp)
 
-**2009:** Bruce has a laugh at his own expense, greeting his Milwaukee crowd with "Good evening, Ohio!" (a nod to the mistake he'd made legitimately the show before). The show itself opens with "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" and includes the tour premiere of "[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)" by request, along with rare outings for "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)," "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)," and "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and a complete album performance of *Born to Run*.<br>
+**2009:** Bruce has a laugh at his own expense, greeting his Milwaukee crowd with "Good evening, Ohio!" (a nod to the mistake he'd made legitimately the show before). The show itself opens with "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" and includes the tour premiere of "[Living Proof](../1992-02-08_roll-of-the-dice-living-proof/post.md)" by request, along with rare outings for "[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)," "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)," and "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and a complete album performance of *Born to Run*.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN "Living Proof" 11/15/09 Milwaukee, WI](https://www.youtube.com/watch?v=-gl9xW7CC0o)
 

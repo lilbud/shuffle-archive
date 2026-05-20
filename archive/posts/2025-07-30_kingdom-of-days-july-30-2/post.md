@@ -40,13 +40,13 @@ post_id: 57850
 
 **1985:** Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.<br>
 
-**1987:** Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey, playing reggae versions of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," along with covers of "[One Love](../2019-11-28_matr-bruce-springsteen-and-jah-love-one-love-people-get-ready/post.md)" and "[People Get Ready.](../2019-01-06_matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/post.md)"<br>
+**1987:** Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey, playing reggae versions of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" and "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," along with covers of "[One Love](../2019-11-28_matr-bruce-springsteen-and-jah-love-one-love-people-get-ready/post.md)" and "[People Get Ready.](../2019-01-06_matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/r1cTI473)
 
 [Watch on Youtube: Bruce Springsteen - My hometown (reggae version)](https://www.youtube.com/watch?v=xVV5FTnI4FM)
 
-**1988:** The Tunnel of Love Tour nears its end with this final German show in Bremen, where "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" makes its tour debut.<br>
+**1988:** The Tunnel of Love Tour nears its end with this final German show in Bremen, where "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" makes its tour debut.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/mpsQeIHo)
 
@@ -64,7 +64,7 @@ post_id: 57850
 
 [Watch on Youtube: Bruce Springsteen - "Into the Fire" - Today Show 7/30/02](https://www.youtube.com/watch?v=CBFOdcaPAI0)
 
-That night, Bruce and the band play a public warm-up show, where "[Paradise](../2018-01-07_roll-of-the-dice-paradise/post.md)" debuts and "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" returns after a decade of absence. "Into the Fire" features a stunning introduction that features Clarence on bagpipes, but it will be gone when the tour begins in proper.
+That night, Bruce and the band play a public warm-up show, where "[Paradise](../2018-01-07_roll-of-the-dice-paradise/post.md)" debuts and "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" returns after a decade of absence. "Into the Fire" features a stunning introduction that features Clarence on bagpipes, but it will be gone when the tour begins in proper.
 
 [Watch on Youtube: Bruce Springsteen Convention Hall Asbury Park 30/07/2002 Full Concert](https://www.youtube.com/watch?v=YdsNXmNw1PI)
 
@@ -86,7 +86,7 @@ Finally, ABC's *Nightline* airs Bruce's performance of "[Empty Sky](../2022-09-1
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2007-07-30.png.webp)
 
-**2009:** A beautiful set list in Benidorm, Spain, on the Working on a Dream Tour, as "[Janey, Don't You Lose Heart,](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" "[Girls in Their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)," and "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" receive their tour debuts and "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" gets a rare outing.<br>
+**2009:** A beautiful set list in Benidorm, Spain, on the Working on a Dream Tour, as "[Janey, Don't You Lose Heart,](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" "[Girls in Their Summer Clothes](../2019-02-17_roll-of-the-dice-girls-in-their-summer-clothes/post.md)," and "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" receive their tour debuts and "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" gets a rare outing.<br>
 
 [Watch on Youtube: Bruce Springsteen - Prove It All Night - 30 07 09](https://www.youtube.com/watch?v=mZw8n91G2nY)
 

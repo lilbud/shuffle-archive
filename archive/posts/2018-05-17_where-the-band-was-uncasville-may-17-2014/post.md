@@ -34,7 +34,7 @@ Because there’s just no way I could have predicted:
 
 [Watch Video Highlight](https://videopress.com/embed/SVpwOLpQ)
 
-* *four* acoustic songs in the encore (“[I’ll Work for Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md),” “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/),” “[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md),” and “Thunder Road”)–I’m not sure that’s ever happened before or since on an E Street Band tour.
+* *four* acoustic songs in the encore (“[I’ll Work for Your Love](../2018-02-14_roll-of-the-dice-ill-work-for-your-love/post.md),” “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/),” “[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md),” and “Thunder Road”)–I’m not sure that’s ever happened before or since on an E Street Band tour.
 
 [Watch on Youtube: I'll Work for your Love - Springsteen - Mohegan Sun Arena, CT - May 17, 2014](https://www.youtube.com/watch?v=ENCL6J0hidU)
 

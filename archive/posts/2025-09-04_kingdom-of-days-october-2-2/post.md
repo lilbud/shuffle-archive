@@ -88,7 +88,7 @@ post_id: 59751
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2007-10-02.jpg.webp)
 
-**2009:** On Night Two (of five) at Giants Stadium, Bruce plays the entire [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) album and still finds time to tour premiere "[Jailhouse Rock](../2019-10-12_matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/post.md)" and "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and give "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" its second-ever appearance. Curt Ramm is present once again (as he will be for the remainder of the tour), and he, Ed Manion, Art Baron, and Larry Eagle form an almost-Sessions Band reunion during the "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" encore.<br>
+**2009:** On Night Two (of five) at Giants Stadium, Bruce plays the entire [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) album and still finds time to tour premiere "[Jailhouse Rock](../2019-10-12_matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/post.md)" and "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and give "[Wrecking Ball](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md)" its second-ever appearance. Curt Ramm is present once again (as he will be for the remainder of the tour), and he, Ed Manion, Art Baron, and Larry Eagle form an almost-Sessions Band reunion during the "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" encore.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Z7igU6U2)
 

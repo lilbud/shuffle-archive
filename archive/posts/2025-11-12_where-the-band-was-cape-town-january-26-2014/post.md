@@ -34,7 +34,7 @@ Night 1 featured a High Hopes Tour setlist (although I had no idea at the time w
 
 There was a reason for that: Pete Seeger died during the down day between Nights 1 and 2, and Seeger had a huge influence on Bruce. Going into the show that night, I expected a tribute song at some point.
 
-Sure enough, leading off the encore was “[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md),” dedicated to Seeger and to Nelson Mandela, sung in unison by the entire audience, and resonating more in South Africa than it ever did on the Seeger Sessions tour. Those minutes existed out of time and remain one of my most memorable experiences at a Springsteen show.
+Sure enough, leading off the encore was “[We Shall Overcome](../2006-01-13_roll-of-the-dice-cover-me-we-shall-overcome/post.md),” dedicated to Seeger and to Nelson Mandela, sung in unison by the entire audience, and resonating more in South Africa than it ever did on the Seeger Sessions tour. Those minutes existed out of time and remain one of my most memorable experiences at a Springsteen show.
 
 [Watch on Youtube: Bruce Springsteen - We Shall Overcome - Cape Town - Bellville - 2014-01-26](https://www.youtube.com/watch?v=PE2lhLHeDBw)
 
@@ -48,7 +48,7 @@ Bruce was also much looser at this show than at the opener. On Night 1, there we
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/01/bs140129_01.jpg.webp)
 
-Night 3 was a strange mix: on one hand, it was a throwback to the Wrecking Ball Tour, opening with “[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)” and featuring standards from that tour like “[Jack of All Trades,](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)” “[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)” “[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md),” and “[Rocky Ground](../2023-03-20_roll-of-the-dice-rocky-ground/post.md).” It’s almost as if Bruce felt bad that he skipped South Africa on that tour and wanted to give the locals a taste of what they missed.
+Night 3 was a strange mix: on one hand, it was a throwback to the Wrecking Ball Tour, opening with “[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)” and featuring standards from that tour like “[Jack of All Trades,](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)” “[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)” “[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md),” and “[Rocky Ground](../2023-03-20_roll-of-the-dice-rocky-ground/post.md).” It’s almost as if Bruce felt bad that he skipped South Africa on that tour and wanted to give the locals a taste of what they missed.
 
 But it was also a night of premieres (including the first ever performance of “[This is Your Sword,](../2021-02-04_roll-of-the-dice-this-is-your-sword/post.md)” which Steve was clearly not prepared for), sign requests (including a memorable one for “[Tougher than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)“), surprises (Tom Morello’s brother proposed on-stage to his fiancee), and guest-stars (Mos Def joined the band during the encores for a unpredictable-yet-inevitable cover of “Sun City.”
 

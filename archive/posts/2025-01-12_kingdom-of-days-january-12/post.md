@@ -72,6 +72,6 @@ post_id: 55578
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/2018-01-12.jpg.webp)
 
-**2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First hand reports from fans listening at the stage door (including this blogger) confirm the addition of “Nightshift” and the return of “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” as the show opener (a position it will hold throughout most of the tour) as the setlist begins to take shape.<br>
+**2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First hand reports from fans listening at the stage door (including this blogger) confirm the addition of “Nightshift” and the return of “[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)” as the show opener (a position it will hold throughout most of the tour) as the setlist begins to take shape.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/01/2023-01-12.jpg.webp)

@@ -16,7 +16,7 @@ Case in point: "Bring on the Night," a Darkness/River-era outtake that has some 
 
 [Watch on Youtube: Bring On The Night (Studio Outtake - 1979)](https://www.youtube.com/watch?v=lumeLcEFPsI)
 
-Yes, "Bring on the Night" is a kissing cousin to "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)." The two songs share more than some common lines–they're both restless, urgent, lonely cries for connection from an isolated introvert. ("[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" is another example of that theme–Bruce would mine this ground often during his early stardom years.)
+Yes, "Bring on the Night" is a kissing cousin to "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)." The two songs share more than some common lines–they're both restless, urgent, lonely cries for connection from an isolated introvert. ("[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" is another example of that theme–Bruce would mine this ground often during his early stardom years.)
 
 But while the protagonist of "My Love" is fiercely defiant and determined to make that connection and conquer his shyness, the narrator of "Bring on the Night" accepts and relishes his inability to connect.
 

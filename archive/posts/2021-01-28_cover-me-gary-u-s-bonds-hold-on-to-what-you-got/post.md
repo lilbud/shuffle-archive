@@ -28,7 +28,7 @@ It's such a killer backing track, in fact, that it nearly overshadows Bruce's ly
 
 One of the secrets to writing a great pop song is making it easy to understand but ambiguous enough so it can't be pinned down to a specific context, and Bruce threads that needle expertly here.
 
-Is this an on-the-rocks love song, sung by a suitor who refuses to give up fighting for his girl? Is it a cautionary tale, a "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)"-style pep talk sung from one friend to another? Or is it a "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)"-esque self-motivational anthem?
+Is this an on-the-rocks love song, sung by a suitor who refuses to give up fighting for his girl? Is it a cautionary tale, a "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)"-style pep talk sung from one friend to another? Or is it a "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)"-esque self-motivational anthem?
 
 You tell me:
 

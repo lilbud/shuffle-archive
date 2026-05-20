@@ -10,7 +10,7 @@ post_id: 18396
 ---
 You’re familiar with Lisa Lowell’s voice, even if you don’t know her name.
 
-You can hear her backing vocals all over Bruce’s [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album, as far back as “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md),” and even on recently released tracks like “[I’ll Stand By You](../2018-08-09_roll-of-the-dice-ill-stand-by-you-always/post.md).” And of course, she was an on-stage presence throughout the Seeger Session Tour.
+You can hear her backing vocals all over Bruce’s [*Wrecking Ball*](../2023-03-28_album-companion-wrecking-ball/post.md)album, as far back as “[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md),” and even on recently released tracks like “[I’ll Stand By You](../2018-08-09_roll-of-the-dice-ill-stand-by-you-always/post.md).” And of course, she was an on-stage presence throughout the Seeger Session Tour.
 
 We actually heard a bit of Lisa’s work yesterday in Patti Scialfa’s “[Rainy Day Man](https://estreetshuffle.com/?p=19060).” We rarely get a chance to hear her lead vocals, though. That’s too bad, because she’s a wonderful singer.
 

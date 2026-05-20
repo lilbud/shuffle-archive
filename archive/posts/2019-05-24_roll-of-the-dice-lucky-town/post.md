@@ -18,7 +18,7 @@ And with that revelation about the title track for Bruce's tenth studio album, w
 
 "Lucky Town" is a return to form for Bruce. Freed from the overly lavish production and arrangements that weighed down much of *Human Touch*, "Lucky Town" saunters its way over the rise. It's also an intensely personal song not just lyrically, but musically: Bruce plays every instrument on the tracks but the drums.
 
-It's the second song on the album that bears its name, but the opening track "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)" (a brilliant song in its own right) feels unnaturally ebullient by comparison. "Lucky Town" feels more natural, Bruce sounds more at ease, and the use of a minor key melody set against hopeful lyrics is a clever twist on Bruce's more common reverse formula.
+It's the second song on the album that bears its name, but the opening track "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)" (a brilliant song in its own right) feels unnaturally ebullient by comparison. "Lucky Town" feels more natural, Bruce sounds more at ease, and the use of a minor key melody set against hopeful lyrics is a clever twist on Bruce's more common reverse formula.
 
 The first verse reads like a deliberate "Hungry Heart" callback, with a hero who doesn't know where he's going, but he knows he has to go:
 

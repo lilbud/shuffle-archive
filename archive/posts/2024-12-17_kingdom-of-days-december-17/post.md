@@ -28,11 +28,11 @@ post_id: 55359
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Atlanta, GA 1984-12-17 (NEW SOURCE)](https://www.youtube.com/watch?v=SJx4HDT2JIQ)
 
-**1989:** Bruce joins Clarence Clemons and The Red Bank Rockers on stage at the Ventura Theater in Ventura, California, playing "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)," "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)," and "[Sweet Little Sixteen](../2018-06-18_cover-me-sweet-little-sixteen/post.md)."<br>
+**1989:** Bruce joins Clarence Clemons and The Red Bank Rockers on stage at the Ventura Theater in Ventura, California, playing "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)," "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)," and "[Sweet Little Sixteen](../2018-06-18_cover-me-sweet-little-sixteen/post.md)."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1989-12-17.png.webp)
 
-**1992:** World Tour 1992 wraps up at Rupp Arena in Lexington, where Garry Tallent makes a guest appearance on "Glory Days" and "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)." Bruce and the band will be back on the road in 1993, but "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" won't be heard again for a decade, "[I Wish I Were Blind](../2021-10-17_roll-of-the-dice-i-wish-i-were-blind/post.md)" disappears for 11 years, and "[The Big Muddy](../2019-01-29_roll-of-the-dice-the-big-muddy/post.md)" will never be heard from again.<br>
+**1992:** World Tour 1992 wraps up at Rupp Arena in Lexington, where Garry Tallent makes a guest appearance on "Glory Days" and "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)." Bruce and the band will be back on the road in 1993, but "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" won't be heard again for a decade, "[I Wish I Were Blind](../2021-10-17_roll-of-the-dice-i-wish-i-were-blind/post.md)" disappears for 11 years, and "[The Big Muddy](../1992-02-07_roll-of-the-dice-the-big-muddy/post.md)" will never be heard from again.<br>
 
 [Watch on Youtube: Bruce Springsteen - "The Big Muddy" - Lexington, 1992-12-17](https://www.youtube.com/watch?v=Gq1ASVKNDAk)
 
@@ -66,7 +66,7 @@ post_id: 55359
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2002-12-17.png.webp)
 
-**2007:** Elliott Murphy guest stars on "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" when the Magic Tour stops for a night in Paris.<br>
+**2007:** Elliott Murphy guest stars on "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" when the Magic Tour stops for a night in Paris.<br>
 
 [Watch on Youtube: Paris 17/12/2007](https://www.youtube.com/playlist?list=PLJTyL9twk3zB9tK1RIiVLNu5zmvw9VdTV)
 

@@ -32,7 +32,7 @@ post_id: 55606
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/01/greensboro85.jpg.webp)
 
-**1986:** On *American Top 40,* host Casey Kasem introduces “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)” with the story of the first show Bruce and Clarence ever played together.<br>
+**1986:** On *American Top 40,* host Casey Kasem introduces “[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)” with the story of the first show Bruce and Clarence ever played together.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3)
 
@@ -58,7 +58,7 @@ post_id: 55606
 
 [Watch Video Highlight](https://videopress.com/embed/hqPvtH4u)
 
-**2009**: Bruce performs “[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)” and “[This Land Is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)” at the We Are One concert in honor of Barack Obama’s inauguration as the 44th President of the United States of America.<br>
+**2009**: Bruce performs “[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)” and “[This Land Is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)” at the We Are One concert in honor of Barack Obama’s inauguration as the 44th President of the United States of America.<br>
 
 [Watch on Youtube: the rising - bruce springsteen](https://www.youtube.com/watch?v=f5e1WlOyr1U)
 

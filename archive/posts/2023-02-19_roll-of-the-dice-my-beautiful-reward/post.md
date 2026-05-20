@@ -8,9 +8,9 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2023/02/raven.jpg
 post_id: 41682
 ---
-In the opening notes of his 1987 *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*album, Bruce Springsteen introduces us to a thinly veiled narrator who has it all.
+In the opening notes of his 1987 *[Tunnel of Love](../1987-01-01_album-companion-tunnel-of-love/post.md)*album, Bruce Springsteen introduces us to a thinly veiled narrator who has it all.
 
-Well, almost all. He's missing just one thing. In "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)," he sings of his fame, success, and worldly wealth–all of which mean nothing to him without the one thing he lacks: love.
+Well, almost all. He's missing just one thing. In "[Ain't Got You](../1987-01-01_roll-of-the-dice-aint-got-you/post.md)," he sings of his fame, success, and worldly wealth–all of which mean nothing to him without the one thing he lacks: love.
 
 [Watch on Youtube: Ain't Got You](https://www.youtube.com/watch?v=5iO8d8m0esY)
 

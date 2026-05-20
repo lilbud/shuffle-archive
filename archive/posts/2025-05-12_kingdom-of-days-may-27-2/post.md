@@ -14,7 +14,7 @@ post_id: 56856
 
 [Watch Video Highlight](https://videopress.com/embed/10bHWUP3)
 
-**1978:** At Night Two in Philadelphia on the Darkness Tour, the core of the set finally gels, as fans hear the first consecutive plays of "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)," "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)," "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," "Thunder Road," and "Jungleland." This core five-pack will last throughout the rest of the tour.<br>
+**1978:** At Night Two in Philadelphia on the Darkness Tour, the core of the set finally gels, as fans hear the first consecutive plays of "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)," "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)," "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," "Thunder Road," and "Jungleland." This core five-pack will last throughout the rest of the tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/LvrfSAAA)
 
@@ -32,7 +32,7 @@ post_id: 56856
 
 **1983:** Bruce and the E Street Band record at The Hit Factory in New York City for *Born in the U.S.A.*, although none of the tracks from today's session will make the album.<br>
 
-**1985:** Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell's in Hoboken for the first of two days of filming for the video for "[Glory Days.](../2024-06-04_roll-of-the-dice-glory-days/post.md)" Watch local news coverage below.<br>
+**1985:** Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell's in Hoboken for the first of two days of filming for the video for "[Glory Days.](../1984-01-12_roll-of-the-dice-glory-days/post.md)" Watch local news coverage below.<br>
 
 [Watch on Youtube: Bruce Springsteen: Making of Glory Days video at Maxwell's, Hoboken, NJ 5-28-85](https://www.youtube.com/watch?v=NeJrkyzmyS0)
 
@@ -72,7 +72,7 @@ post_id: 56856
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2005-05-27b.jpg.webp)
 
-**2006:** The American leg of the Seeger Sessions Tour begins with a show at the Tweeter Center in Mansfield, Massachusetts. Peter Wolf guest-stars on a "[Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)" / "[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)" medley.<br>
+**2006:** The American leg of the Seeger Sessions Tour begins with a show at the Tweeter Center in Mansfield, Massachusetts. Peter Wolf guest-stars on a "[Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)" / "[Buffalo Gals](../2006-01-15_cover-me-roll-of-the-dice-buffalo-gals/post.md)" medley.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/AEGvmSmm)
 
@@ -114,7 +114,7 @@ post_id: 56856
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/05/2019-05-27.jpg.webp)
 
-**2023:** Bruce takes a tumble during "[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)" when he and the E Street Band play their second of two nights in Amsterdam on their 2023 World Tour.<br>
+**2023:** Bruce takes a tumble during "[Ghosts](../2017-01-11_roll-of-the-dice-ghosts/post.md)" when he and the E Street Band play their second of two nights in Amsterdam on their 2023 World Tour.<br>
 
 [Watch on Youtube: Bruce Springsteen - Ghosts (Amsterdam #2, 2023)](https://www.youtube.com/watch?v=S4PFmorEK0M)
 

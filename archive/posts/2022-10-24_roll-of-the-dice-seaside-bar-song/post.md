@@ -18,7 +18,7 @@ Let's take a listen.
 
 [Watch on Youtube: Seaside Bar Song (Studio Outtake - 1973)](https://www.youtube.com/watch?v=F1I0nfQqgtM)
 
-The first thing that jumps out at us from "Seaside Bar Song" isn't its lyrics. It's that Farfisa riff that grabs us, bores its way into our brains, and absolutely refuses to let go. In later years, we'd learn to expect this kind of earworm from Bruce, but "Seaside Bar Song" was recorded in mid-1973, long before "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," "[I'm a Rocker,](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)" and "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)."
+The first thing that jumps out at us from "Seaside Bar Song" isn't its lyrics. It's that Farfisa riff that grabs us, bores its way into our brains, and absolutely refuses to let go. In later years, we'd learn to expect this kind of earworm from Bruce, but "Seaside Bar Song" was recorded in mid-1973, long before "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)," "[I'm a Rocker,](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)" and "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)."
 
 Only one other song on the album has such an irresistible riff, and as with "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)," Springsteen modeled his hook on an early rock and roll classic. Early studio takes of "Seaside Bar Song" were called "Johnny & The Hurricanes Song," and it's not hard to figure out which song Bruce had in mind.
 

@@ -44,7 +44,7 @@ post_id: 56781
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/05/2005-05-17c.jpg.webp)
 
-**2006:** Wolfgang Niedecken joins Bruce and the Sessions Band for "[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)" in Frankfurt.<br>
+**2006:** Wolfgang Niedecken joins Bruce and the Sessions Band for "[Buffalo Gals](../2006-01-15_cover-me-roll-of-the-dice-buffalo-gals/post.md)" in Frankfurt.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/obMMPfb9)
 
@@ -86,7 +86,7 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/The_Day_Mon__May_19__2014_-scaled.jpg.webp)
 
-**2016:** *The River* tracks still dominate the set list as the European leg gathers steam, but there's still plenty of room for tour premieres: "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)," "[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md)," "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" and a solo acoustic "This Hard Land" all make their debut in San Sebastian.<br>
+**2016:** *The River* tracks still dominate the set list as the European leg gathers steam, but there's still plenty of room for tour premieres: "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)," "[Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md)," "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)" and a solo acoustic "This Hard Land" all make their debut in San Sebastian.<br>
 
 [Watch on Youtube: La llegada de Bruce Springsteen a Donostia](https://www.youtube.com/watch?v=Ja7SJRQVRKA)
 

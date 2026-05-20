@@ -23,7 +23,7 @@ As I mentioned, the song isn't fully developed. A lot of the lyrics are bluffed,
 > *They wear it in their eyes, they wear it on their shirts*<br>
 > *They come down here looking to get hurt*<br>
 
-…because [they'd show up in somewhat altered form](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md) a few years later:
+…because [they'd show up in somewhat altered form](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md) a few years later:
 
 > *Friday night's pay night guys fresh out of work*<br>
 > *Talking about the weekend scrubbing off the dirt*<br>

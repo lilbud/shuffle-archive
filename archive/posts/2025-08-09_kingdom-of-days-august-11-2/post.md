@@ -58,7 +58,7 @@ post_id: 58368
 
 [Watch Video Highlight](https://videopress.com/embed/bAJmbbez)
 
-**2003:** Bruce and the E Street Band wrap up their three-show Rising stand at Philadelphia's Lincoln Financial Field in peak form, opening with "From Small Things (Big Things One Day Come)," and tour premiering "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" and "[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)" (the latter of which hadn't been played in 25 years). Throw in a rare "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)," and a show-closing "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)," and you've got the makings of a killer setlist. And then there's that "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" under a full moon...<br>
+**2003:** Bruce and the E Street Band wrap up their three-show Rising stand at Philadelphia's Lincoln Financial Field in peak form, opening with "From Small Things (Big Things One Day Come)," and tour premiering "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)" and "[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)" (the latter of which hadn't been played in 25 years). Throw in a rare "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)" "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)," and a show-closing "[I'm a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)," and you've got the makings of a killer setlist. And then there's that "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" under a full moon...<br>
 
 [Watch on Youtube: From Small Things, Philadelphia 2003](https://www.youtube.com/watch?v=DyPmTlgg180)
 
@@ -70,7 +70,7 @@ post_id: 58368
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Pretty Flamingo/Rosalita | Philly, 2003](https://www.youtube.com/watch?v=ItDtlDPy-nE)
 
-**2005:** Bruce continues his solo acoustic swing through the Pacific Northwest with a show at Seattle's Key Arena, where Bruce tour premieres "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" and plays a one-off guitar version of "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)." For more highlights from this show, see my [*Where the Band Was* report](../2018-08-11_where-the-band-was-seattle-august-11-2005/post.md).<br>
+**2005:** Bruce continues his solo acoustic swing through the Pacific Northwest with a show at Seattle's Key Arena, where Bruce tour premieres "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)" and plays a one-off guitar version of "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)." For more highlights from this show, see my [*Where the Band Was* report](../2018-08-11_where-the-band-was-seattle-august-11-2005/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen - Be True [TP] - Seattle - 8/11/05](https://www.youtube.com/watch?v=Ee2uF3Sun5c)
 

@@ -60,7 +60,7 @@ post_id: 61366
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/Lexington_Herald_Leader_Fri__Nov_15__2002_-scaled.jpg.webp)
 
-**2006:** "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" sees its Seeger Sessions Tour premiere (as a duet with Frank Bruno) in fellow former steel town Sheffield, and "[Froggie Went A-Courtin'](../2021-01-26_roll-of-the-dice-cover-me-froggie-went-a-courtin/post.md)" makes a rare appearance to close the show.<br>
+**2006:** "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" sees its Seeger Sessions Tour premiere (as a duet with Frank Bruno) in fellow former steel town Sheffield, and "[Froggie Went A-Courtin'](../2006-01-14_roll-of-the-dice-cover-me-froggie-went-a-courtin/post.md)" makes a rare appearance to close the show.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Youngstown" - Sheffield, 2006-11-14](https://www.youtube.com/watch?v=9uadDklikMA)
 

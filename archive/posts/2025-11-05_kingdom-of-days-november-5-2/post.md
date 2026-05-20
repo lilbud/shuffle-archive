@@ -106,7 +106,7 @@ post_id: 61284
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2014-11-05.png.webp)
 
-**2018:** Bruce makes a return appearance at Stand Up For Heroes, now in its twelfth year. In addition to his customary turn as amateur comedian, Bruce performs an acoustic mini-set that includes a fun "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" duet with Eric Church and a beautiful "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" with Patti.<br>
+**2018:** Bruce makes a return appearance at Stand Up For Heroes, now in its twelfth year. In addition to his customary turn as amateur comedian, Bruce performs an acoustic mini-set that includes a fun "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" duet with Eric Church and a beautiful "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" with Patti.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Stand up for Heroes - Nov 5th 2018](https://www.youtube.com/watch?v=IuWlu5mym7U)
 

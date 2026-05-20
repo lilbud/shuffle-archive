@@ -18,7 +18,7 @@ Because "Trouble in Paradise" is most definitely the period at the end of his ea
 
 One of three tracks Roy brought to Bruce during a period of writer's block, "Trouble in Paradise" is also the only one of the three to be cast off Bruce's *Human Touch* album. (It wouldn't see release until *Tracks* in 1998.) If I had to hazard a guess, I'd speculate that's because the lyrics Bruce wrote for it look backwards, making it out of step with his forward-looking 1992 albums.
 
-It sure makes a great bookend to his previous album, though. [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) gets an unfair rap as a divorce album; it would be more accurate to call it a concept album that explores the stages and varieties of loving relationships. But there's no denying that the album's second side is a journey through the fraying of a relationship, the centerpiece of which is the exquisite "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)."
+It sure makes a great bookend to his previous album, though. [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) gets an unfair rap as a divorce album; it would be more accurate to call it a concept album that explores the stages and varieties of loving relationships. But there's no denying that the album's second side is a journey through the fraying of a relationship, the centerpiece of which is the exquisite "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)."
 
 "Brilliant Disguise" foreshadows, predicts and even rhymes with "Trouble in Paradise." Bruce sets his earlier song in newlywed days, where mystery gives way to insecurity and doubt. Seeds of dissolution sown here are in full flower by "Trouble in Paradise."
 

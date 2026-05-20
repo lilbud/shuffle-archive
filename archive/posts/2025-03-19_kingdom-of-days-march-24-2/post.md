@@ -32,7 +32,7 @@ post_id: 56286
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
 
-**1983:** In his home studio in Los Angeles, Bruce records "[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md)." It will remain unreleased for two decades.<br>
+**1983:** In his home studio in Los Angeles, Bruce records "[County Fair](../1983-01-11_roll-of-the-dice-county-fair/post.md)." It will remain unreleased for two decades.<br>
 
 [Watch on Youtube: County Fair (Studio Outtake - 1983)](https://www.youtube.com/watch?v=yltKgMyWLH0)
 
@@ -64,7 +64,7 @@ post_id: 56286
 
 [Watch on Youtube: Something In The Night - Bruce Springsteen - Rod Laver Arena - 24-03-2013](https://www.youtube.com/watch?v=G6RuCkjsUR4)
 
-**2016:** The revived River Tour finally loosens up in Seattle when Bruce takes sign requests for much of the post-album set and tour premieres "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)." Eddie Vedder joins Bruce for "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" in the encores. For more highlights, see my [*Where the Band Was* report for this show.](../2018-03-24_where-the-band-was-seattle-march-24-2016/post.md)<br>
+**2016:** The revived River Tour finally loosens up in Seattle when Bruce takes sign requests for much of the post-album set and tour premieres "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)." Eddie Vedder joins Bruce for "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" in the encores. For more highlights, see my [*Where the Band Was* report for this show.](../2018-03-24_where-the-band-was-seattle-march-24-2016/post.md)<br>
 
 [Watch on Youtube: Bruce Springsteen and Eddie Vedder- Bobby Jean, Key Arena, Seattle, WA, March 24, 2016](https://www.youtube.com/watch?v=TuyXZLdfSCQ)
 

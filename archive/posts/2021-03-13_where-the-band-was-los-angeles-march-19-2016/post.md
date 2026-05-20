@@ -20,7 +20,7 @@ The kind of night where you’re so close to the action you can see the band mem
 
 [Watch on Youtube: Bruce Springsteen, Rosalita - L.A. Sports Arena, March 19, 2016](https://www.youtube.com/watch?v=IK2_qTqwyGE)
 
-The kind of night where Bruce knew it was his last opportunity to play the Sports Arena, and he wasn’t about to let the Dump That Jumped meet the wrecking ball gently. For three hours and 46 minutes, Bruce played 35 songs leading to a final, fitting “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)” send-off for the arena.
+The kind of night where Bruce knew it was his last opportunity to play the Sports Arena, and he wasn’t about to let the Dump That Jumped meet the wrecking ball gently. For three hours and 46 minutes, Bruce played 35 songs leading to a final, fitting “[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)” send-off for the arena.
 
 [Watch Video Highlight](https://videopress.com/embed/gEgxS1N3)
 

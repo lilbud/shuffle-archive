@@ -62,7 +62,7 @@ post_id: 61240
 
 [Watch on Youtube: Bruce Springsteen - SINALOA COWBOYS 1999 (audio)](https://www.youtube.com/watch?v=bLo07jpukyM)
 
-**2004:** Bruce performs "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" at two rallies for presidential candidate John Kerry, the first in Madison, Wisconsin, the second at Ohio State University.<br>
+**2004:** Bruce performs "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" and "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" at two rallies for presidential candidate John Kerry, the first in Madison, Wisconsin, the second at Ohio State University.<br>
 
 [Watch on Youtube: Bruce Springsteen @ John Kerry for President Rally Madison, WI 10.28.2004](https://www.youtube.com/watch?v=tS7kP1lgmYY)
 

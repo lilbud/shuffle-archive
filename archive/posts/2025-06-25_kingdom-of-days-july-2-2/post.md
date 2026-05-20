@@ -40,7 +40,7 @@ post_id: 57559
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1981-07-02.jpg.webp)
 
-**1984:** The last of three nights in St. Paul (and the opening stand of the Born in the U.S.A. Tour) features the live debuts of "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" and "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)," along with the last full-band arrangement of "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" for fifteen years.<br>
+**1984:** The last of three nights in St. Paul (and the opening stand of the Born in the U.S.A. Tour) features the live debuts of "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" and "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)," along with the last full-band arrangement of "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" for fifteen years.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/PWy5WzaZ)
 

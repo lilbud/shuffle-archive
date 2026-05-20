@@ -10,7 +10,7 @@ post_id: 10637
 ---
 Of all of Bruce's adaptations on his [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md) album, "Jesse James" is perhaps the most faithful. Which is more than a bit ironic, but we'll get to that later.
 
-Bruce's 2006 album is chock full of fresh arrangements and updated lyrics for classic folks songs from "[Mrs. McGrath](../2019-05-26_cover-me-rotd-mrs-mcgrath/post.md)" to "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" to the [title track](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md).
+Bruce's 2006 album is chock full of fresh arrangements and updated lyrics for classic folks songs from "[Mrs. McGrath](../2006-01-04_cover-me-rotd-mrs-mcgrath/post.md)" to "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" to the [title track](../2006-01-13_roll-of-the-dice-cover-me-we-shall-overcome/post.md).
 
 But Bruce's version of "Jesse James" changes very little from the original 1919 recording by Bentley Ball.
 
@@ -32,7 +32,7 @@ What's most remarkable about "Jesse James" is simply its inclusion among the See
 
 History tells us that James was in fact a brutal thief and murderer who didn't share his bounty with anyone outside of his gang. Nevertheless the James-as-populist portrayal quickly took hold in popular culture, and James continued to be a larger-than-life figure certainly into and through Bruce's childhood.
 
-Perhaps it's Bruce's fascination with the old west that led him to record "Jesse James," or perhaps it was reluctance to let go of a childhood anti-hero. (This isn't the first time Bruce has recorded a song about Jesse James–see "[The Ballad of Jesse James](../2020-10-22_roll-of-the-dice-the-ballad-of-jesse-james/post.md)" on *Chapter and* *Verse*, or the unreleased "[Cowboys of the Sea](../2021-09-17_roll-of-the-dice-cowboys-of-the-sea/post.md)" or "[Robert Ford](../2019-07-14_roll-of-the-dice-robert-ford/post.md).") Or maybe Bruce simply views "Jesse James" as a musical ancestor to "[Johnny 99,](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" an outlaw that makes for a great story if not a true one.
+Perhaps it's Bruce's fascination with the old west that led him to record "Jesse James," or perhaps it was reluctance to let go of a childhood anti-hero. (This isn't the first time Bruce has recorded a song about Jesse James–see "[The Ballad of Jesse James](../1972-01-13_roll-of-the-dice-the-ballad-of-jesse-james/post.md)" on *Chapter and* *Verse*, or the unreleased "[Cowboys of the Sea](../2011-01-15_roll-of-the-dice-cowboys-of-the-sea/post.md)" or "[Robert Ford](../2019-07-14_roll-of-the-dice-robert-ford/post.md).") Or maybe Bruce simply views "Jesse James" as a musical ancestor to "[Johnny 99,](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" an outlaw that makes for a great story if not a true one.
 
 In any event, "Jesse James" was the first song recorded during the Seeger Sessions, one of the earliest songs on the CD, and an early and standout staple on the Seeger Sessions tour setlists.
 

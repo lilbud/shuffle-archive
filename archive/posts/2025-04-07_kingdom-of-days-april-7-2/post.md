@@ -60,11 +60,11 @@ Earlier that same day, Bruce and Dave Sancious drop by WMMR-FM in Philadelphia t
 
 **2006:** Bruce rehearses with the Sessions Band at Asbury Park's Paramount Theater, preparing for their upcoming tour.<br>
 
-**2008:** Tom Morello makes a guest appearance at the Magic Tour stop in Anaheim. The new arrangement of "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" that Bruce and Tom work up will become a fan favorite and eventually become an officially released track in both studio and live form (on *High Hopes* and *Magic Tour Highlights*, respectively). Tom isn't the only guest-star, though: Bobby Bandiera joins for "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)," and Marty Rifkin and Marc Anthony Thompson join for a mini-Sessions Band reunion on "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)."<br>
+**2008:** Tom Morello makes a guest appearance at the Magic Tour stop in Anaheim. The new arrangement of "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" that Bruce and Tom work up will become a fan favorite and eventually become an officially released track in both studio and live form (on *High Hopes* and *Magic Tour Highlights*, respectively). Tom isn't the only guest-star, though: Bobby Bandiera joins for "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)," and Marty Rifkin and Marc Anthony Thompson join for a mini-Sessions Band reunion on "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - The Ghost of Tom Joad (Live ft. Tom Morello)](https://www.youtube.com/watch?v=B-c6GphpAeY)
 
-**2009:** Bruce and the E Street Band return to Oklahoma after an absence of more than three decades. Their Working on a Dream show at the Bok Center in Tulsa features the tour premieres of "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" and "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."<br>
+**2009:** Bruce and the E Street Band return to Oklahoma after an absence of more than three decades. Their Working on a Dream show at the Bok Center in Tulsa features the tour premieres of "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)" and "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm Goin' Down - Live from Tulsa, OK - Working On A Dream Tour - 2009-04-07](https://www.youtube.com/watch?v=vCw2vOUKZzY)
 
@@ -76,7 +76,7 @@ Earlier that same day, Bruce and Dave Sancious drop by WMMR-FM in Philadelphia t
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/08/roll-of-the-dice-tougher-than-the-rest/)"
 
-**2023:** "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)" makes its tour premiere when Bruce and the E Street Band bring their World Tour to CFG Bank Arena in Baltimore.<br>
+**2023:** "[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)" makes its tour premiere when Bruce and the E Street Band bring their World Tour to CFG Bank Arena in Baltimore.<br>
 
 [Watch on Youtube: Bruce Springsteen - Lucky Town ( Baltimore 7 April 2023 )](https://www.youtube.com/watch?v=Hrp4t0v7TqI)
 

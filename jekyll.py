@@ -180,11 +180,6 @@ def replace_audio(content: str) -> str:
     )
 
 
-def replace_img(content: str) -> str:
-    """Replace relative path to absolute path."""
-    return re.sub(r"../../assets", r"/assets/img/uploads", content)
-
-
 def replace_video(content: str) -> str:
     """Append video iframe include under video link."""
     videopress_pattern = (
@@ -229,6 +224,19 @@ def replace_video(content: str) -> str:
     return content
 
 
+def replace_links(content: str) -> str:
+    """Replace post link with post_url format"""
+    link_pattern = r"(\[[^\]]*\])\(..\/(\d{4}-\d{2}-\d{2})_([^/)]*)\/post.md\/?\)"
+
+    content = re.sub(
+        link_pattern,
+        r"\1({% link _posts/\2-\3.md %})",
+        content,
+    )
+
+    return content
+
+
 def get_posts(
     cur: psycopg.Cursor,
 ) -> list | None:
@@ -244,8 +252,8 @@ def get_posts(
     return None
 
 
-def main(cur: psycopg.Cursor, slug: int) -> None:
-    res = get_posts(slug, cur)
+def main(cur: psycopg.Cursor) -> None:
+    res = get_posts(cur)
 
     if res:
         for post in res:
@@ -258,8 +266,8 @@ def main(cur: psycopg.Cursor, slug: int) -> None:
             )
 
             content = replace_video(post["content"])
-            # content = replace_img(content)
             content = replace_audio(content)
+            content = replace_links(content)
 
             with post_file.open("w", encoding="utf-8") as f:
                 f.write("---\n")
@@ -270,7 +278,7 @@ def main(cur: psycopg.Cursor, slug: int) -> None:
                     f.write("layout: default-post\n")
 
                 f.write(f'title: "{title}"\n')
-                f.write(f'author: "{post["author"]}"\n')
+                f.write(f'author: "{post["author_name"]}"\n')
                 f.write(f'excerpt: "{post["excerpt"].strip()}"\n')
 
                 if post["tag_list"]:

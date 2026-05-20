@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/10/tadjennings.jpg
 post_id: 22279
 ---
-I know, I know… another “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” cover.
+I know, I know… another “[I’m on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)” cover.
 
 Trust me: at this point an artist needs to bring something new and fresh to the table if they want me to pay attention to the umpteenth cover of Bruce’s 1985 Top Ten single.
 

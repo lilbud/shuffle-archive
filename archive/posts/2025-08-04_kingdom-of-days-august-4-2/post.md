@@ -32,7 +32,7 @@ post_id: 57909
 
 [Watch Video Highlight](https://videopress.com/embed/TGLh27pu)
 
-**1999:** There are still five more nights to go in the opening U.S. stand of the Reunion Tour, but Night Ten will be hard to top: Bruce opens the show with the tour premiere of "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" ("[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" gets a tour premiere as well), and "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" is played for the first time ever.<br>
+**1999:** There are still five more nights to go in the opening U.S. stand of the Reunion Tour, but Night Ten will be hard to top: Bruce opens the show with the tour premiere of "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" ("[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)" gets a tour premiere as well), and "[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md)" is played for the first time ever.<br>
 
 [Watch on Youtube: Bruce Springsteen - For You @ East Rutherford 1999-08-04](https://www.youtube.com/watch?v=jzSBtKAjMYw?start=66)
 

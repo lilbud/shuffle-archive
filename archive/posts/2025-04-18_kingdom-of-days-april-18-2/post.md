@@ -34,11 +34,11 @@ post_id: 56556
 
 [Watch on Youtube: Bruce Springsteen Give My Love To Rose](https://www.youtube.com/watch?v=hEfe80Ty8KY)
 
-**2000:** At their Reunion show in Houston, fans witness the E Street Band premiere of "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)."<br>
+**2000:** At their Reunion show in Houston, fans witness the E Street Band premiere of "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MuIILEbI)
 
-**2003:** At the Corel Centre in Ottawa on the Rising Tour, Bruce plays "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" for the only time on the tour. In the encores, Clarence collides with Bruce during "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)," falls on top of him, knocks them both to the ground, and they somehow manage to continue playing the entire time!<br>
+**2003:** At the Corel Centre in Ottawa on the Rising Tour, Bruce plays "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" for the only time on the tour. In the encores, Clarence collides with Bruce during "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)," falls on top of him, knocks them both to the ground, and they somehow manage to continue playing the entire time!<br>
 
 [Watch on Youtube: Ramrod Bruce Springsteen 4/18/2003 Ottawa, ON](https://www.youtube.com/watch?v=iwyYmRypZGk)
 

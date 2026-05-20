@@ -12,13 +12,13 @@ Even when Bruce is happiest with his lot in life, he grapples with the systemic 
 
 There's probably no better example of this duality at work in his music than "Souls of the Departed."
 
-"Souls of the Departed" sticks out like a sore thumb on the otherwise bright and shiny *Lucky Town*. (Yes, there's also "[The Big Muddy](../2019-01-29_roll-of-the-dice-the-big-muddy/post.md)," but that song is more cautionary tale than personal confession.) It's overtly political and deeply unsettling, a far cry from the romantic love songs and self-deprecating humor that characterizes the rest of the album.
+"Souls of the Departed" sticks out like a sore thumb on the otherwise bright and shiny *Lucky Town*. (Yes, there's also "[The Big Muddy](../1992-02-07_roll-of-the-dice-the-big-muddy/post.md)," but that song is more cautionary tale than personal confession.) It's overtly political and deeply unsettling, a far cry from the romantic love songs and self-deprecating humor that characterizes the rest of the album.
 
 Let's take a listen, and then we'll break it down:
 
 [Watch on Youtube: Souls of the Departed](https://www.youtube.com/watch?v=2t-81cQv5f8)
 
-The first thing–literally–that we notice about "Souls of the Departed" is that its musical backbone is virtually copied and pasted from the album's opening track, "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)." That's almost certainly intentional: although "[My Beautiful Reward](../2023-02-19_roll-of-the-dice-my-beautiful-reward/post.md)" serves as the album's epilogue, "Souls of the Departed" functions as the album's true closer, and as such "Better Days" and "Souls of the Departed" serve as bookends, mirror images–the first a confession of contentment and the last a confession of complicity.
+The first thing–literally–that we notice about "Souls of the Departed" is that its musical backbone is virtually copied and pasted from the album's opening track, "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)." That's almost certainly intentional: although "[My Beautiful Reward](../1992-02-11_roll-of-the-dice-my-beautiful-reward/post.md)" serves as the album's epilogue, "Souls of the Departed" functions as the album's true closer, and as such "Better Days" and "Souls of the Departed" serve as bookends, mirror images–the first a confession of contentment and the last a confession of complicity.
 
 Sonically, "Souls of the Departed" is as angry a rocker as the lyrics demand, so it's a shocker when we find out that the song is a *solo track–*Bruce plays every instrument that we hear except for Gary Mallaber's drums.
 

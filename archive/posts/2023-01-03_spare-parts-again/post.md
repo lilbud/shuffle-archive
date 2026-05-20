@@ -18,7 +18,7 @@ And because I love you, I brought you back something!
 
 This past Monday night, I attended Stand Up For Heroes in New York City, my third time at the annual Bob Woodruff Foundation benefit for veterans and their families. and my favorite time as well.
 
-Bruce performed four songs (all with dirty jokes serving as introductions), including the public debut of "[Letter to You](../2021-01-05_roll-of-the-dice-letter-to-you/post.md)" and an ultra-rare acoustic "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)." I captured his entire set on video, and I think they came out great. Enjoy them below:
+Bruce performed four songs (all with dirty jokes serving as introductions), including the public debut of "[Letter to You](../2017-01-03_roll-of-the-dice-letter-to-you/post.md)" and an ultra-rare acoustic "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)." I captured his entire set on video, and I think they came out great. Enjoy them below:
 
 [Watch Video Highlight](https://videopress.com/embed/4jab0Nll)
 

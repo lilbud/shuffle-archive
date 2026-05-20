@@ -38,7 +38,7 @@ post_id: 56370
 
 "*I'd like to thank everyone for the honor. It's especially nice coming from my hometown and my old alma mater. It's kind of funny, really. I spent my years at Freehold Regional pretty much as an outcast and at best a very mediocre student. I would probably have been voted 'Least Likely to Succeed'. My only advice to teachers and the administrators would be to keep your eyes on the ones that don't fit in. They're the ones thinking out of the box and reimagining this place we live in... our hometown. You never know where they're going. So, thank you once again and please show my mother a good time. Without her I may not have survived Freehold Regional High School."*
 
-**2012:** Bruce brings the Wrecking Ball Tour to Madison Square Garden for the first of two nights. The setlist features the tour premiere of "[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md)" and a very rare "[Lion's Den](../2019-06-21_roll-of-the-dice-lions-den/post.md)," only its fourth performance and its first in over a decade.<br>
+**2012:** Bruce brings the Wrecking Ball Tour to Madison Square Garden for the first of two nights. The setlist features the tour premiere of "[Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md)" and a very rare "[Lion's Den](../2019-06-21_roll-of-the-dice-lions-den/post.md)," only its fourth performance and its first in over a decade.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QvFl1u7J)
 
@@ -60,4 +60,4 @@ post_id: 56370
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/20180406_GinaGershon_01.jpg.webp)
 
-**2022:** Bruce celebrates Clive Davis' 90th birthday by recording a video salute and a performance of "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)."<br>
+**2022:** Bruce celebrates Clive Davis' 90th birthday by recording a video salute and a performance of "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)."<br>

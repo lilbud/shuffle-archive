@@ -38,7 +38,7 @@ post_id: 58379
 
 [Watch on Youtube: Bruce Springsteen - SEA CRUISE 1981 (audio)](https://www.youtube.com/watch?v=yMelZDKYN28)
 
-**1984:** At Night Seven of their ten-night Meadowlands stand on the Born in the U.S.A. Tour, Bruce and the band tour debut "[Johnny Bye-Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)," played here in a new, faster arrangement than on the River Tour.<br>
+**1984:** At Night Seven of their ten-night Meadowlands stand on the Born in the U.S.A. Tour, Bruce and the band tour debut "[Johnny Bye-Bye](../1983-01-05_roll-of-the-dice-johnny-bye-bye/post.md)," played here in a new, faster arrangement than on the River Tour.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Johnny Bye-Bye" 1984-08-16](https://www.youtube.com/watch?v=VTU3sV309Y8)
 

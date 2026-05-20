@@ -10,7 +10,7 @@ post_id: 5068
 ---
 By now you my motto when it comes to covers: Do it better, or do it different.
 
-Self-described “melancholy lo-fi indie” band The Boombox Hearts takes the latter route with “[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md),” but it’s pretty darn good, too.
+Self-described “melancholy lo-fi indie” band The Boombox Hearts takes the latter route with “[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md),” but it’s pretty darn good, too.
 
 “Cover Me” is at heart a sad song, right from the opening lines, and the Boombox Hearts well capture that sense of longing for connection in a rough and tumble world.
 

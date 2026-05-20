@@ -10,7 +10,7 @@ post_id: 56767
 ---
 ***New for 2025:** Video for 2023*<br>
 
-**1971:** Dr. Zoom and the Sonic Boom make their second and final appearance under that moniker, at Newark State College's Ernie the Chicken Festival. Miraculously, the show is recorded in very good quality–take a listen below for great covers like "[Will You Love Me Tomorrow](../2018-01-20_cover-me-will-you-love-me-tomorrow/post.md)" and "[It Takes a Lot to Laugh, It Takes a Train to Cry](../2018-04-23_cover-me-it-takes-a-lot-to-laugh-it-takes-a-train-to-cry/post.md)" and great Springsteen originals like "[Look Towards the Land](../2018-12-10_roll-of-the-dice-look-towards-the-land/post.md)" and "[Goin' Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md)." Later that same evening, Bruce makes his debut as a member of The Sundance Blues Band at The Student Prince.<br>
+**1971:** Dr. Zoom and the Sonic Boom make their second and final appearance under that moniker, at Newark State College's Ernie the Chicken Festival. Miraculously, the show is recorded in very good quality–take a listen below for great covers like "[Will You Love Me Tomorrow](../2018-01-20_cover-me-will-you-love-me-tomorrow/post.md)" and "[It Takes a Lot to Laugh, It Takes a Train to Cry](../2018-04-23_cover-me-it-takes-a-lot-to-laugh-it-takes-a-train-to-cry/post.md)" and great Springsteen originals like "[Look Towards the Land](../1972-01-14_roll-of-the-dice-look-towards-the-land/post.md)" and "[Goin' Back to Georgia](../2019-03-07_roll-of-the-dice-goin-back-to-georgia/post.md)." Later that same evening, Bruce makes his debut as a member of The Sundance Blues Band at The Student Prince.<br>
 
 [Watch on Youtube: Dr. Zoom and the Sonic Boom (Bruce Springsteen) - 1971/05/15 Newark State College {private remaster}](https://www.youtube.com/watch?v=SKlCDDAWNx0)
 
@@ -24,7 +24,7 @@ post_id: 56767
 
 [Watch Video Highlight](https://videopress.com/embed/izQmoLoJ)
 
-**2003:** The Rising Tour moves on to Gijon. Watch local TV coverage of the show, including the first minute of the opening "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)," below.<br>
+**2003:** The Rising Tour moves on to Gijon. Watch local TV coverage of the show, including the first minute of the opening "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)," below.<br>
 
 [Watch on Youtube: springsteen en gijon 2003 telecinco](https://www.youtube.com/watch?v=udTJ_cq1Wec)
 
@@ -48,7 +48,7 @@ post_id: 56767
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2009-05-15b.jpg.webp)
 
-**2012:** The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las Palmas in the Canary Islands. Bruce plays four tour premieres on this night: "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)," "[Working on the Highway,](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" and "[The River.](../2021-03-04_roll-of-the-dice-the-river/post.md)"<br>
+**2012:** The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las Palmas in the Canary Islands. Bruce plays four tour premieres on this night: "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)," "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)," "[Working on the Highway,](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" and "[The River.](../2021-03-04_roll-of-the-dice-the-river/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/yoA0eBRu)
 

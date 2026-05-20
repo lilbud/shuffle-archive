@@ -185,7 +185,7 @@ When Bruce shortened the song, he tautened it. When he jettisoned his spiteful l
 
 "She's the One" crackles and sizzles, and its appearance in the set list guarantees an adrenaline rush rivaled only by "[Night](../2019-10-31_roll-of-the-dice-night/post.md)" and "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)."
 
-It quickly became a set list mainstay, and as Bruce realized how many rock and roll songs were built on that unforgettable beat, "She's the One" would often feature several minutes of build-up, usually in the form of rock classics like "Not Fade Away" and "Mona," sometimes drawn from Bruce's own catalog like "[Preacher's Daughter](../2018-07-01_roll-of-the-dice-preachers-daughter/post.md)" and "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)."
+It quickly became a set list mainstay, and as Bruce realized how many rock and roll songs were built on that unforgettable beat, "She's the One" would often feature several minutes of build-up, usually in the form of rock classics like "Not Fade Away" and "Mona," sometimes drawn from Bruce's own catalog like "[Preacher's Daughter](../2018-07-01_roll-of-the-dice-preachers-daughter/post.md)" and "[Ain't Got You](../1987-01-01_roll-of-the-dice-aint-got-you/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - She's The One (Includes Gloria & Not Fade Away) / Landover 1978](https://www.youtube.com/watch?v=Koogv4fLLnM)
 

@@ -12,7 +12,7 @@ At last: the dice lead us to Bruce Springsteen's latest and finest album, *Weste
 
 Seven months after its release, with the benefit of distance, catalog comparison, and deep and repeated listens, I can confidently rank *Western Stars* at the very pinnacle of Bruce's officially released catalog.
 
-*Born to Run* may be a more important milestone; [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) may have brought us a legendary tour; *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*may reveal the artist at his most vulnerable. But *Western Stars* is unrivaled in songwriting and musical craftsmanship, and in years to come I trust that it will receive its due recognition.
+*Born to Run* may be a more important milestone; [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md) may have brought us a legendary tour; *[Tunnel of Love](../1987-01-01_album-companion-tunnel-of-love/post.md)*may reveal the artist at his most vulnerable. But *Western Stars* is unrivaled in songwriting and musical craftsmanship, and in years to come I trust that it will receive its due recognition.
 
 *Western Stars* is a deeply romantic and emotionally vibrant album. I've heard some call it depressing, even nihilistic–but respectfully, I would argue the opposite: *Western Stars* is uplifting, a tribute to life lived. There's a theme to be found at work in *Western Stars*, but we have to look beyond its American West imagery and not allow our lens to be overly filtered through our knowledge of Bruce's chronic depression.
 

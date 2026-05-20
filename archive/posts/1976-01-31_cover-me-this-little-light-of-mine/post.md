@@ -26,7 +26,7 @@ It endures for a reason: we have it at the ready when the world challenges us to
 
 So it was a perfect candidate for inclusion on Bruce Springsteen's Seeger Sessions Tour, too, although Bruce didn't introduce it until the tour's final leg.
 
-Prior to the final European leg of the tour, Bruce had been closing most of his shows with "[When the Saints Go Marching In](../2021-03-28_cover-me-when-the-saints-go-marching-in/post.md)." Over the summer, however, Bruce had debuted and released a new song, "[American Land,](../2020-01-10_roll-of-the-dice-american-land/post.md)" which in the autumn became the new show closer, ending each night on an appropriately upbeat and fiery note.
+Prior to the final European leg of the tour, Bruce had been closing most of his shows with "[When the Saints Go Marching In](../2021-03-28_cover-me-when-the-saints-go-marching-in/post.md)." Over the summer, however, Bruce had debuted and released a new song, "[American Land,](../2016-01-22_roll-of-the-dice-american-land/post.md)" which in the autumn became the new show closer, ending each night on an appropriately upbeat and fiery note.
 
 However, Bruce realized he needed a segue between the quiet "Saints" and the defiant "American Land," and "This Little Light of Mine" proved just the ticket, ramping up the energy while bridging the tone. As the final leg progressed, it also grew into a spotlight for the amazing voice of backup singer Cindy Mizelle.
 

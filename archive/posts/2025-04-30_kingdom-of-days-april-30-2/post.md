@@ -36,7 +36,7 @@ post_id: 56649
 
 [https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/Bruce-Springsteen-1996-04-30.mp3)
 
-**2000:** "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" makes its Reunion-era debut in a unique and short-lived country arrangement at the Firstar Center in Cincinnati.<br>
+**2000:** "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" makes its Reunion-era debut in a unique and short-lived country arrangement at the Firstar Center in Cincinnati.<br>
 
 [Watch on Youtube: Bruce Springsteen - Dancing in the Dark (country swing version) - April 30 2000](https://www.youtube.com/watch?v=z22ca5w4cdU)
 
@@ -50,7 +50,7 @@ post_id: 56649
 
 **2003:** Back-to-back benefits: following the previous night's benefit for Bobby Bandiera Jr., Bruce plays a benefit for the Rumson County Day School at The Stone Pony with much of the same line-up: Patti Scialfa, Jon Bon Jovi, Southside Johnny, and Bobby Bandiera.<br>
 
-**2005:** Nils Lofgren makes a guest appearance on a gorgeous "This Hard Land" at Bruce's solo acoustic show in Glendale, where Bruce plays "[Book of Dreams](../2019-06-04_roll-of-the-dice-book-of-dreams/post.md)" for the first time in thirteen years and debuts "[All I'm Thinkin' About](../2020-11-05_roll-of-the-dice-all-im-thinkin-about/post.md)."<br>
+**2005:** Nils Lofgren makes a guest appearance on a gorgeous "This Hard Land" at Bruce's solo acoustic show in Glendale, where Bruce plays "[Book of Dreams](../1992-02-09_roll-of-the-dice-book-of-dreams/post.md)" for the first time in thirteen years and debuts "[All I'm Thinkin' About](../2020-11-05_roll-of-the-dice-all-im-thinkin-about/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Io7Odebr)
 
@@ -80,7 +80,7 @@ post_id: 56649
 
 [Watch on Youtube: Bruce Springsteen 2013-04-30 Oslo - Open All Night](https://www.youtube.com/watch?v=U7tAOJ-da-U)
 
-**2015:** Bruce and the E Street Band attend the funeral of Lenore Travis, wife of concert producer and long-time friend George Travis. Bruce, Nils and Patti perform "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" and "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)."<br>
+**2015:** Bruce and the E Street Band attend the funeral of Lenore Travis, wife of concert producer and long-time friend George Travis. Bruce, Nils and Patti perform "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" and "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)."<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2015-04-30.jpg.webp)
 

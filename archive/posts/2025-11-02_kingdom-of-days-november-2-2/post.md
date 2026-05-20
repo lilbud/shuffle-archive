@@ -26,7 +26,7 @@ post_id: 61268
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/11/The_Aegis_1978_11_02_17-scaled.jpg.webp)
 
-**1984:** Bruce and the E Street Band play their sixth of seven nights at the L.A. Memorial Sports Arena, where "[Johnny Bye-Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)" returns to the set for its second tour performance, and "Stolen Car" gets a rare outing.<br>
+**1984:** Bruce and the E Street Band play their sixth of seven nights at the L.A. Memorial Sports Arena, where "[Johnny Bye-Bye](../1983-01-05_roll-of-the-dice-johnny-bye-bye/post.md)" returns to the set for its second tour performance, and "Stolen Car" gets a rare outing.<br>
 
 [Watch on Youtube: Bruce Springsteen "Johnny Bye Bye" - Los Angeles, 1984-11-02](https://www.youtube.com/watch?v=u7W9ImOc2QI)
 
@@ -36,7 +36,7 @@ post_id: 61268
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1984-11-02b.png.webp)
 
-**1997:** Asked to contribute a song for an upcoming Pete Seeger tribute album, Bruce contacts a group of musicians he'd recently met (members of The Gotham Playboys, who had played private parties at his house) and some additional friends, and he assembles the ensemble at his home studio in Rumson. The recording session that ensues will become known as the first "Seeger Session," and six songs are recorded: "[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)," "[My Oklahoma Home](../2020-03-04_cover-me-my-oklahoma-home/post.md)," "[Jesse James](../2019-07-10_roll-of-the-dice-cover-me-jesse-james/post.md)," "[Hobo's Lullaby](https://estreetshuffle.com/?p=20113), "I Come and Stand at Every Door," and "Pretty Boy Floyd." Those last two are still unreleased to this day.<br>
+**1997:** Asked to contribute a song for an upcoming Pete Seeger tribute album, Bruce contacts a group of musicians he'd recently met (members of The Gotham Playboys, who had played private parties at his house) and some additional friends, and he assembles the ensemble at his home studio in Rumson. The recording session that ensues will become known as the first "Seeger Session," and six songs are recorded: "[We Shall Overcome](../2006-01-13_roll-of-the-dice-cover-me-we-shall-overcome/post.md)," "[My Oklahoma Home](../2006-01-09_cover-me-my-oklahoma-home/post.md)," "[Jesse James](../2006-01-03_roll-of-the-dice-cover-me-jesse-james/post.md)," "[Hobo's Lullaby](https://estreetshuffle.com/?p=20113), "I Come and Stand at Every Door," and "Pretty Boy Floyd." Those last two are still unreleased to this day.<br>
 
 [Watch on Youtube: We Shall Overcome](https://www.youtube.com/watch?v=ULYpA_Z4yx8)
 

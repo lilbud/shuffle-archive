@@ -32,7 +32,7 @@ From the opening notes of "[The Ties That Bind](../2018-03-09_roll-of-the-dice-t
 
 About halfway through the record, inside the Garden felt like that last scene in *Willy Wonka and the Chocolate Factory*, when Charlie, Grandpa, and Willy Wonka are in the Wonkavator on their way to blasting through the roof.
 
-At that moment, I looked around from the back of the pit at thousands of happy people dancing, took notice of the completely unguarded middle riser, and was struck by a bolt of inspiration to jump up on it if Bruce didn't pull someone up during "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)." I thought if I grabbed as many other people as I could, we'd stand a better chance of not getting pulled right off, and it'd be hilarious fun. I scanned the crowd to see who was nearby, ran up to some folks, and shrieked as loud and quickly as I could: "Do you wanna jump up there during "Dancing?!"
+At that moment, I looked around from the back of the pit at thousands of happy people dancing, took notice of the completely unguarded middle riser, and was struck by a bolt of inspiration to jump up on it if Bruce didn't pull someone up during "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)." I thought if I grabbed as many other people as I could, we'd stand a better chance of not getting pulled right off, and it'd be hilarious fun. I scanned the crowd to see who was nearby, ran up to some folks, and shrieked as loud and quickly as I could: "Do you wanna jump up there during "Dancing?!"
 
 Well, no one said no…
 

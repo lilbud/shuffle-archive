@@ -23,7 +23,7 @@ In any event, both songs share the same first verse (with a couple of minor word
 > *I lived in a house of gold, yeah, on a far hillside*<br>
 > *I had two beautiful children and a kind and loving wife*<br>
 
-These are hardly the only two Springsteen songs to share this scenario. Bruce would later distill these lines down to "I had a job, I had a girl; I had something going, mister, in this world," and use that motif in "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)," "[Dead Man Walkin'](../2018-07-24_roll-of-the-dice-dead-man-walkin/post.md)," Clearly, the idea of feeling lost and rootless in a place that was once very much one's anchor was an idea that pre-occupied him at least for a time, and while Bruce was not yet a family man, it certainly doesn't take an imaginative leap to understand how the life of a touring rock star might make one feel a bit removed from one's roots.
+These are hardly the only two Springsteen songs to share this scenario. Bruce would later distill these lines down to "I had a job, I had a girl; I had something going, mister, in this world," and use that motif in "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)," "[Dead Man Walkin'](../2018-07-24_roll-of-the-dice-dead-man-walkin/post.md)," Clearly, the idea of feeling lost and rootless in a place that was once very much one's anchor was an idea that pre-occupied him at least for a time, and while Bruce was not yet a family man, it certainly doesn't take an imaginative leap to understand how the life of a touring rock star might make one feel a bit removed from one's roots.
 
 The scene is set, and now the story starts:
 
@@ -56,7 +56,7 @@ We never learn the singer's secret, either in "Fugitive's Dream" or in "Unsatisf
 
 In "Fugitive's Dream" it's implied that the secret is more sinister, and while that song ends on a similar reflective scene, its imagery is darker and lonelier.
 
-In a sense, "Fugitive's Dream" presaged the style of songwriting that would feature heavily on *[The Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)*, and "Unsatisfied Heart" might have been right at home on [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md). The closing lines of "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" would fit aptly here:
+In a sense, "Fugitive's Dream" presaged the style of songwriting that would feature heavily on *[The Ghost of Tom Joad](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)*, and "Unsatisfied Heart" might have been right at home on [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md). The closing lines of "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" would fit aptly here:
 
 > *God have mercy on the man who doubts what he's sure of.*<br>
 

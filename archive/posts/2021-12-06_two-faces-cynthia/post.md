@@ -16,7 +16,7 @@ Author's note: This is going to be an unusual post: one where Ken and I agree co
 
 Ken has already made my central point about "Cynthia:" that it's a more enlightened version of Roy Orbison's "Oh, Pretty Woman." But I think there's more to be said about just how Springsteen accomplishes this. So this will be a companion post rather than a counterpoint, a close reading to sit alongside Ken's more comprehensive overview.***
 
-***There's a video of a *Late Show* interview from 2016, in which Stephen Colbert challenges Bruce Springsteen to name his top 5 Bruce songs. Springsteen gets through the first four pretty easily –"Born to Run," "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)," "Thunder Road," and "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)"–and then stalls out. The audience tries to help as Bruce dramatically ponders his choices. Then a woman's voice rises above the rest, shouting loud enough to get Bruce's attention. "Cynthia! CYNTHIAAA!"<br>
+***There's a video of a *Late Show* interview from 2016, in which Stephen Colbert challenges Bruce Springsteen to name his top 5 Bruce songs. Springsteen gets through the first four pretty easily –"Born to Run," "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)," "Thunder Road," and "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)"–and then stalls out. The audience tries to help as Bruce dramatically ponders his choices. Then a woman's voice rises above the rest, shouting loud enough to get Bruce's attention. "Cynthia! CYNTHIAAA!"<br>
 
 Bruce, unsurprisingly, goes with "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" instead.
 

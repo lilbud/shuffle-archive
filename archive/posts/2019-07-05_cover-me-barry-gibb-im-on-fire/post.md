@@ -15,7 +15,7 @@ One of the highlights of Bruce Springsteen’s Australian High Hopes Tour was hi
 
 So when Barry kicked off his own American tour a few months later, he decided to repay the favor.
 
-At his tour opener (and at many of the shows thereafter), Barry’s set included a cover of Bruce’s 1985 hit, “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md).” Here’s his performance from Chicago, on May 27, 2014:
+At his tour opener (and at many of the shows thereafter), Barry’s set included a cover of Bruce’s 1985 hit, “[I’m on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md).” Here’s his performance from Chicago, on May 27, 2014:
 
 [Watch on Youtube: Barry Gibb "I'm on Fire' Chicago Mythology Tour](https://www.youtube.com/watch?v=R81FXrQ6aiQ)
 

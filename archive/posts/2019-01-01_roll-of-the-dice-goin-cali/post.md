@@ -14,7 +14,7 @@ I was wondering what song they would assign me to start the year off with, secre
 
 But after a quick reacquaintance listen, I realized it's a perfect selection for a New Year's Day. "Goin' Cali" is about fresh starts and new beginnings; leaving your past behind and taking action for a brighter future. Isn't that what today is all about?
 
-Because it wasn't released until eight years after it was written, it's easy to miss the significance of "Goin' Cali." It's the bridge between [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) and *Human Touch/Lucky Town*, one that traces Bruce's literal and metaphorical journey to self-awareness, self-acceptance, and a new family of his own creation.
+Because it wasn't released until eight years after it was written, it's easy to miss the significance of "Goin' Cali." It's the bridge between [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) and *Human Touch/Lucky Town*, one that traces Bruce's literal and metaphorical journey to self-awareness, self-acceptance, and a new family of his own creation.
 
 [Watch on Youtube: Goin' Cali (Studio Outtake - 1991)](https://www.youtube.com/watch?v=hSwtuwgZ9J4)
 
@@ -41,7 +41,7 @@ While it's fascinating to read Bruce's insights into such a personal song, he do
 
 At the time of its release in 1998 on *Tracks*, most of us probably didn't read too much into those first two lines. As Bruce notes above, sometimes you just have those days where you itch for the ability start anew. But today, with full knowledge of Bruce's adult-life-long struggle with depression, those first lines carry additional heft. Perhaps Bruce's move out west (which did indeed happen shortly before the song was likely written) was indeed an attempt by Bruce to wrest himself out of the throes of his illness by moving away from the ghosts of his past.
 
-The next verse is one of Bruce's most heart-wrenching (so much so that he'd re-use it in "[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)"):
+The next verse is one of Bruce's most heart-wrenching (so much so that he'd re-use it in "[Living Proof](../1992-02-08_roll-of-the-dice-living-proof/post.md)"):
 
 > *So he pulled his heart and soul down off the shelf*<br>
 > *Packed them next to the faith that he'd lost in himself*<br>
@@ -57,7 +57,7 @@ The backing track for "Goin' Cali'" is so spare (Bruce plays every instrument), 
 
 Bruce has often talked about his first trip out west–in fact, it formed the basis of a set piece in *Springsteen on Broadway*–but he doesn't often speak of this one. At the time, it must have felt significant, leaving behind his roots and retracing his parents' migration.
 
-And that "promised land" reference–that's no accident. Last year, I wrote an essay on "[The Promised Land,](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" arguing that it serves both as a song of defiance and a song of surrender. I still believe that Bruce meant it that way, and I believe that his reference to it here is very much in keeping with that dual interpretation.
+And that "promised land" reference–that's no accident. Last year, I wrote an essay on "[The Promised Land,](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" arguing that it serves both as a song of defiance and a song of surrender. I still believe that Bruce meant it that way, and I believe that his reference to it here is very much in keeping with that dual interpretation.
 
 > *Now where the Transcontinental dumps into the sea*<br>
 > *There's a bar made up to look like 1963*<br>
@@ -66,7 +66,7 @@ And that "promised land" reference–that's no accident. Last year, I wrote an e
 > *Bartender said "Hey, how's it hangin', tiger?"*<br>
 > *He had a shot of tequila, smiled and whispered "lighter"*<br>
 
-This verse is probably more metaphorical than literal, but either way it represents Bruce's warring desires for recognition and anonymity. This theme surfaces in other parts of Bruce's contemporaneous catalog as well (see "[Local Hero](../2019-01-17_roll-of-the-dice-local-hero/post.md)").
+This verse is probably more metaphorical than literal, but either way it represents Bruce's warring desires for recognition and anonymity. This theme surfaces in other parts of Bruce's contemporaneous catalog as well (see "[Local Hero](../1992-02-04_roll-of-the-dice-local-hero/post.md)").
 
 > *He went down to the desert city where the rattlesnakes play*<br>
 > *And left his dead skin by the roadside in the noon of day*<br>

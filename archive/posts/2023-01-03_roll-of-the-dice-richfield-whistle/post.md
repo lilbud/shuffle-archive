@@ -57,7 +57,7 @@ James Lucas almost immediately starts making moral compromises, rationalizing an
 > *Mr. Wills, he was a rich man*<br>
 > *He'd been a rich man all his life*<br>
 
-Jimmy knows he's doing the wrong thing, but he doesn't recognize he's on a slippery slope. One moral compromise leads to another, a classic noir theme that Bruce later employed in songs like "[The Big Muddy](../2019-01-29_roll-of-the-dice-the-big-muddy/post.md)" and "[The Line](../2018-08-08_roll-of-the-dice-the-line/post.md)."
+Jimmy knows he's doing the wrong thing, but he doesn't recognize he's on a slippery slope. One moral compromise leads to another, a classic noir theme that Bruce later employed in songs like "[The Big Muddy](../1992-02-07_roll-of-the-dice-the-big-muddy/post.md)" and "[The Line](../2018-08-08_roll-of-the-dice-the-line/post.md)."
 
 Inevitably, Jimmy is found out. His boss confronts him but has mercy on him, simply firing him when he also could have had him arrested.
 

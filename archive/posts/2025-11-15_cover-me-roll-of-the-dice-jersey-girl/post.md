@@ -51,7 +51,7 @@ In any event, while it wasn't the first time Bruce wrote new lyrics for a song w
 
 [Watch on Youtube: Bruce Springsteen - Party Lights (The River: Outtakes) [Lyric]](https://www.youtube.com/watch?v=S2WWQAvS_6I)
 
-Exactly one week later, at the final show of that opening Meadowlands stand and after another practice performance on the 5th, Bruce recorded his performance of "Jersey Girl" for posterity. That rendition is the one we're all most familiar with–it was released as the B-side to the single for "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" in 1984 and included on *Live 1975-85* two years after that.
+Exactly one week later, at the final show of that opening Meadowlands stand and after another practice performance on the 5th, Bruce recorded his performance of "Jersey Girl" for posterity. That rendition is the one we're all most familiar with–it was released as the B-side to the single for "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" in 1984 and included on *Live 1975-85* two years after that.
 
 It's a magnificent performance–one of Bruce's very best and certainly one of his most passionate.
 

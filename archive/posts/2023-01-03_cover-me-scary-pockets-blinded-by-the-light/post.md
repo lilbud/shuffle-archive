@@ -12,9 +12,9 @@ I try to keep a rotating spotlight on fresh new cover artists here, but every on
 
 Today makes the first time I've featured a three-peat, however. That's because Los Angeles-based funk combo Scary Pockets is just *so* darn good, and it seems like every year at this time they gift us with a creative take on one of Bruce Springsteen's classic songs.
 
-First, there was their [incredibly cool cover](../2019-12-01_cover-me-scary-pockets-and-darren-criss-dancing-in-the-dark/post.md) of "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)," featuring Darrin Criss on lead vocals back in 2019. Then there was the time Rett Madison fronted [an infectiously danceable version](../2020-11-10_cover-me-scary-pockets-im-on-fire/post.md) of "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" last year.
+First, there was their [incredibly cool cover](../2019-12-01_cover-me-scary-pockets-and-darren-criss-dancing-in-the-dark/post.md) of "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," featuring Darrin Criss on lead vocals back in 2019. Then there was the time Rett Madison fronted [an infectiously danceable version](../2020-11-10_cover-me-scary-pockets-im-on-fire/post.md) of "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" last year.
 
-Today, Swatkins and Therese Curatolo front the band for a funky cover of a cover–Manfred Mann's version of Bruce's "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)."
+Today, Swatkins and Therese Curatolo front the band for a funky cover of a cover–Manfred Mann's version of Bruce's "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)."
 
 [Watch on Youtube: Blinded by the Light | Bruce Springsteen | funk cover ft. Swatkins & Therese Curatolo](https://www.youtube.com/watch?v=QZMP_HrAwCg)
 

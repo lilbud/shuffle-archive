@@ -18,7 +18,7 @@ But if you ask me, I'll tell you it's "Iceman."
 
 Well-known Springsteen scholars call it "spooky" and "unsettling," "chilling" and "mournful," a song of "deep despair." But with due respect to the scholars, "Iceman" is none of those things. At least not lyrically.
 
-"Iceman" is essentially a slower, sparer "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," a song of defiance and persistence in the face of what would seem to anyone like insurmountable odds, a stacked deck, a rigged game of life. To those who listen carefully, "Iceman" is a song of resilience and even optimism.
+"Iceman" is essentially a slower, sparer "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)," a song of defiance and persistence in the face of what would seem to anyone like insurmountable odds, a stacked deck, a rigged game of life. To those who listen carefully, "Iceman" is a song of resilience and even optimism.
 
 Bruce actually telegraphs it in his opening verse with a lyric that would show up just weeks later in "Badlands," which end up on the album in place of "Iceman."
 

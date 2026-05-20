@@ -10,7 +10,7 @@ post_id: 4180
 ---
 Bruce was fascinated with traditional American folk and gospel long, *long* before the Seeger Sessions.
 
-Although it took until his 2006 album for us to hear Bruce's arrangements, we'd occasionally catch a glimpse through live tracks like "[This Land is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)," and compilation releases like "[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)."
+Although it took until his 2006 album for us to hear Bruce's arrangements, we'd occasionally catch a glimpse through live tracks like "[This Land is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)," and compilation releases like "[We Shall Overcome](../2006-01-13_roll-of-the-dice-cover-me-we-shall-overcome/post.md)."
 
 But way back in the autumn of 1981, Bruce was tinkering with the classic gospel hymn "Precious Memories," and he happened to capture it on tape–and that tape happened to leak. Take a listen to the fascinating one-minute, double-tracked snippet below. (That's all that we have.)
 

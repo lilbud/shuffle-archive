@@ -70,7 +70,7 @@ post_id: 61115
 
 [Watch on Youtube: Bruce Springsteen - Live in Barcelona](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89)
 
-**2008:** Bruce, Patti, Roy, Billy Joel, India.Arie, and John Legend perform at a *Change Rocks* benefit for presidential candidate Barack Obama in New York City. Bruce joins John Legend for "If You're Out There" before performing "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "This Hard Land" as solo acoustic numbers. Finally he, Patti, and Roy join Billy and his band for a set of combined Joel/Springsteen classics capped by a show-closing "[Signed, Sealed, Delivered I'm Yours](../2021-11-29_matr-john-legend-bruce-springsteen-billy-joel-and-india-arie-signed-sealed-delivered-im-yours/post.md)" with the Obamas.<br>
+**2008:** Bruce, Patti, Roy, Billy Joel, India.Arie, and John Legend perform at a *Change Rocks* benefit for presidential candidate Barack Obama in New York City. Bruce joins John Legend for "If You're Out There" before performing "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" and "This Hard Land" as solo acoustic numbers. Finally he, Patti, and Roy join Billy and his band for a set of combined Joel/Springsteen classics capped by a show-closing "[Signed, Sealed, Delivered I'm Yours](../2021-11-29_matr-john-legend-bruce-springsteen-billy-joel-and-india-arie-signed-sealed-delivered-im-yours/post.md)" with the Obamas.<br>
 
 [Watch on Youtube: Springsteen, Joel Rock for Obama's Benefit](https://www.youtube.com/watch?v=cDCy0G9MpyU)
 

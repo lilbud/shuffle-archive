@@ -61,7 +61,7 @@ Hoping to break away from whatever metaphorical chains bound him, he ended up br
 > *To breakaway, oh, breakaway, oh Ronde, Ronde, Ronde, Ronde Ray*<br>
 > *To breakaway*<br>
 
-Yes, that's the chorus for "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" you spotted there. Although Bruce was working on "Badlands" at the same time he recorded "Breakaway," that iconic line ("let the broken hearts stand as the price you've gotta pay") wouldn't migrate to "Badlands" until several months later. Bruce isn't one to let a great line go to waste.
+Yes, that's the chorus for "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" you spotted there. Although Bruce was working on "Badlands" at the same time he recorded "Breakaway," that iconic line ("let the broken hearts stand as the price you've gotta pay") wouldn't migrate to "Badlands" until several months later. Bruce isn't one to let a great line go to waste.
 
 > *Janie slipped from behind the bar last night*<br>
 > *Cashed out and walked onto streets rainy and grey*<br>

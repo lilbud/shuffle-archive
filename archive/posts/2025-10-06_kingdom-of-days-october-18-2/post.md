@@ -108,7 +108,7 @@ That night, back in the U.S., Ben Stiller debuts *Legends of Springsteen* on his
 
 [Watch on Youtube: Bruce Springsteen Bologna 18/10/2002 Full Concert](https://www.youtube.com/watch?v=Dd4xxtDGyyQ)
 
-**2007:** Bruce tour premieres a back-to-back "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" and "Jungleland" at Night Two on the Magic Tour at Madison Square Garden. Sessions Band alumni Charlie Giordano, Lisa Lowell, Larry Eagle, Jeremy Chatzky, and Greg Liszt join the E Street Band for a show closing "[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)" Although no one knows it at the time, Charlie will be back on the E Street stage a month later due to tragic circumstances.<br>
+**2007:** Bruce tour premieres a back-to-back "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" and "Jungleland" at Night Two on the Magic Tour at Madison Square Garden. Sessions Band alumni Charlie Giordano, Lisa Lowell, Larry Eagle, Jeremy Chatzky, and Greg Liszt join the E Street Band for a show closing "[American Land.](../2016-01-22_roll-of-the-dice-american-land/post.md)" Although no one knows it at the time, Charlie will be back on the E Street stage a month later due to tragic circumstances.<br>
 
 [Watch on Youtube: Bruce Springsteen & E Street Band - Meeting Across The River](https://www.youtube.com/watch?v=LRg_IOi5YtQ)
 

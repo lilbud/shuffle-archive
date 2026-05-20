@@ -10,7 +10,7 @@ post_id: 24825
 ---
 On the heels of the River Tour, firearms showed up with surprising frequency as Bruce started working on what would become his *Nebraska* album. We've looked at "[Bells of San Salvador](../2021-02-02_roll-of-the-dice-bells-of-san-salvador/post.md)" recently, along with "[Under the Gun.](../2020-12-17_roll-of-the-dice-under-the-gun/post.md)" And of course, there's the deadly incident that earns "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" his nickname.
 
-But as 1981 turned to 1982, Bruce started to really mine the theme with his acoustic home demos of "Ruled by the Gun," which appear to have been recorded around the same time Bruce was working on "[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md)" for the band.
+But as 1981 turned to 1982, Bruce started to really mine the theme with his acoustic home demos of "Ruled by the Gun," which appear to have been recorded around the same time Bruce was working on "[Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md)" for the band.
 
 [Watch on Youtube: Bruce Springsteen Ruled By The Gun #1](https://www.youtube.com/watch?v=APeHGkZfjTs)
 

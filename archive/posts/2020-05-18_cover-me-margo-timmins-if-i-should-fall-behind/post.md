@@ -12,7 +12,7 @@ The Cowboy Junkies are no strangers to covering Bruce's music in their inimitabl
 
 But this one's different.
 
-Margo Timmins' solo turn on "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" is delicate, sweet, and so intimate you can hear the piano pedals.
+Margo Timmins' solo turn on "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" is delicate, sweet, and so intimate you can hear the piano pedals.
 
 [Watch on Youtube: Margo Timmins - If I Should Fall Behind [Bruce Springsteen]](https://www.youtube.com/watch?v=ugCpitUSvDI)
 

@@ -30,18 +30,18 @@ The morning of the show, my friend and I, along with DJ Jay Philpot, got on the 
 
 When we arrived at the studio, there were already a number of people outside the doors waiting to get in. After a little while, the doors opened and someone came out to announce that Bruce wanted the contest winners to come in. We made our way to the front, through the doors, and into a wide-open hall. Right away, we saw Bruce and the band on the stage and rushed right up front. So for a little while, the 30 or so contest winners with our guests were the only fans there.
 
-I remember Bruce working through the chord changes of “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)” with the band. He stopped and asked several of us where we were from. Then I remember him playing an acoustic version of “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” and telling us that we were going to help sing the chorus.
+I remember Bruce working through the chord changes of “[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)” with the band. He stopped and asked several of us where we were from. Then I remember him playing an acoustic version of “[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)” and telling us that we were going to help sing the chorus.
 
 He left the stage until showtime. There was time to get food and drinks, which were provided. There were a lot of music industry people there. I remember Little Steven walking by me to hang out with someone.
 
 As show time neared, the contest winners were right back up front. The show was broadcast across the country. Here's the setlist and some notes from what I can remember:
 
-- [Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md) (played as a warm-up before the broadcast)
+- [Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md) (played as a warm-up before the broadcast)
 - [Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)
-- [Local Hero](../2019-01-17_roll-of-the-dice-local-hero/post.md)
-- [Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)
+- [Local Hero](../1992-02-04_roll-of-the-dice-local-hero/post.md)
+- [Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)
 - Darkness on the Edge of Town
-- [If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)
+- [If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)
 
 [Watch Video Highlight](https://videopress.com/embed/eUV8Hd1P)
 
@@ -49,12 +49,12 @@ As show time neared, the contest winners were right back up front. The show was 
 
 [Watch Video Highlight](https://videopress.com/embed/LQZeF5Jg)
 
-- [The Big Muddy](../2019-01-29_roll-of-the-dice-the-big-muddy/post.md): Primarily Bruce on electric guitar, with Roy and the band coming in during the song
+- [The Big Muddy](../1992-02-07_roll-of-the-dice-the-big-muddy/post.md): Primarily Bruce on electric guitar, with Roy and the band coming in during the song
 
 [Watch Video Highlight](https://videopress.com/embed/eD05kswB)
 
-- [Living Poof](../2020-03-18_roll-of-the-dice-living-proof/post.md)
-- [My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)
+- [Living Poof](../1992-02-08_roll-of-the-dice-living-proof/post.md)
+- [My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)
 - Leap of Faith
 - [Man's Job](../2022-05-30_roll-of-the-dice-mans-job/post.md)
 
@@ -68,7 +68,7 @@ As show time neared, the contest winners were right back up front. The show was 
 
 [Watch Video Highlight](https://videopress.com/embed/K2A6d4DI)
 
-- [Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md), with Little Steven
+- [Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md), with Little Steven
 
 [Watch Video Highlight](https://videopress.com/embed/er94Z6vt)
 
@@ -80,11 +80,11 @@ Then when the broadcast ended, he said that he was going to take a short break a
 
 He came back out and played five more songs for us. So much fun! He played:
 
-- [Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md) (solo on electric guitar)
+- [Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md) (solo on electric guitar)
 - [Real World](../2022-07-25_roll-of-the-dice-real-world/post.md)
 - [99 ½ Won't Do](../2020-10-11_cover-me-ninety-nine-and-a-half-wont-do/post.md) (a lot of fun even though I had never heard it before)
-- [Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)
-- [Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md) (w/ Little Steven)
+- [Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)
+- [Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md) (w/ Little Steven)
 
 When the post-broadcast portion was over we thought that was it, but Bruce announced that he would come out and sign things for us. It seemed to me that Bruce's people might not have been expecting this as they quickly scrambled to put up a table and chair behind a rope and had us form a line. The line of people wasn't just the contest winners, it was a good portion of the 300 or so people there, which also included a lot of music industry people.
 

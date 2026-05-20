@@ -18,7 +18,7 @@ post_id: 56433
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1974-04-12.jpg.webp)
 
-**1976:** At the Cambria County War Memorial in Johnstown, Pennsylvania, Bruce and the E Street Band play their final full-band “[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)” for 23 years. Promoters are getting Bruce’s name right these days, but they’re still struggling with the band’s.<br>
+**1976:** At the Cambria County War Memorial in Johnstown, Pennsylvania, Bruce and the E Street Band play their final full-band “[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)” for 23 years. Promoters are getting Bruce’s name right these days, but they’re still struggling with the band’s.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1976-0412.jpg.webp)
 

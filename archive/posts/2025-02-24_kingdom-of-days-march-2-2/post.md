@@ -70,7 +70,7 @@ post_id: 56071
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1998-03-02a.jpg.webp)
 
-**2003:** Joe Ely joins the E Street Band for "[All Just to Get to You](../2022-02-23_matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/post.md)" and "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" during the Austin stop on the Rising Tour. This show also features the tour premiere of "[War](../2019-05-27_cover-me-war/post.md)" as the U.S. prepares for war with Iraq.<br>
+**2003:** Joe Ely joins the E Street Band for "[All Just to Get to You](../2022-02-23_matr-joe-ely-and-bruce-springsteen-all-just-to-get-to-you/post.md)" and "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" during the Austin stop on the Rising Tour. This show also features the tour premiere of "[War](../2016-01-02_cover-me-war/post.md)" as the U.S. prepares for war with Iraq.<br>
 
 [Watch on Youtube: Growin' Up (acoustic) Bruce Springsteen and Clarence Clemons 3/2/2003 Austin, TX](https://www.youtube.com/watch?v=PD3t4lMXybc)
 
@@ -86,7 +86,7 @@ post_id: 56071
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2008-03-02b.jpg.webp)
 
-**2012:** Bruce is a guest on *Late Night with Jimmy Fallon*, where he pokes fun of himself by dressing as his *Born in the U.S.A.*-era self for a parody of "[Sexy and I Know It](../2018-03-24_matr-bruce-springsteen-and-jimmy-fallon-sexy-and-i-know-it/post.md)." Later Bruce and the band (plus Tom Morello) premiere "[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)" and "[Jack of All Trades](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)" and play a rare "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)." Watch Bruce's performance and interview below.<br>
+**2012:** Bruce is a guest on *Late Night with Jimmy Fallon*, where he pokes fun of himself by dressing as his *Born in the U.S.A.*-era self for a parody of "[Sexy and I Know It](../2018-03-24_matr-bruce-springsteen-and-jimmy-fallon-sexy-and-i-know-it/post.md)." Later Bruce and the band (plus Tom Morello) premiere "[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md)" and "[Jack of All Trades](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)" and play a rare "[The E Street Shuffle](../2020-06-06_roll-of-the-dice-the-e-street-shuffle/post.md)." Watch Bruce's performance and interview below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9ki7nHat)
 

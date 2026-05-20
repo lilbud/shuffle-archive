@@ -56,7 +56,7 @@ post_id: 55961
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road - Hunter Valley 18th February 2017](https://www.youtube.com/watch?v=jZWSzzVzzWU)
 
-**2023:** Jake is still out of action with COVID-19 as Bruce and the E Street Band bring their 2023 World Tour to Kansas City. Bruce breaks the news with his usual good humor during “[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md).”<br>
+**2023:** Jake is still out of action with COVID-19 as Bruce and the E Street Band bring their 2023 World Tour to Kansas City. Bruce breaks the news with his usual good humor during “[Ghosts](../2017-01-11_roll-of-the-dice-ghosts/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Ghosts - Kansas City, 2/18/2023](https://www.youtube.com/watch?v=dQaRy0bGWMc)
 

@@ -45,7 +45,7 @@ When I asked him what inspired him to make the connection, Silent Bear took me i
 
 Silent Bear and Bruce may never have met, but they're only one degree separated: they both shared a friendship and working relationship with the late, great Pete Seeger.
 
-Silent Bear connected with Seeger in 2009 to enlist Pete's support in Silent Bear's mission to secure freedom for Native American political prisoner Leonard Peltier. With Pete's blessing, Silent Bear adapted Pete's "[Bring 'em Home](../2021-06-23_rotd-cover-me-bring-em-home/post.md)" to create awareness for Peltier, retitling the song "Bring Him Home" and writing new verses.
+Silent Bear connected with Seeger in 2009 to enlist Pete's support in Silent Bear's mission to secure freedom for Native American political prisoner Leonard Peltier. With Pete's blessing, Silent Bear adapted Pete's "[Bring 'em Home](../2006-01-18_rotd-cover-me-bring-em-home/post.md)" to create awareness for Peltier, retitling the song "Bring Him Home" and writing new verses.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/01/letter2.jpg.webp)
 

@@ -32,7 +32,7 @@ When Bruce described the song's origin in his *VH-1 Storytellers* episode, he be
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OP9_lG3nslA)
 
-That's not entirely true. It's possible that he composed the main melody upon completing his lyrical acrobatics. However, we know the bridge arrangement pre-dates "Blinded" by at least a couple of months, because it appears in "[Henry Boy,](../2022-04-08_roll-of-the-dice-henry-boy/post.md)" recorded in June 1972 and performed live on August 10th. That was the same day Bruce submitted his completed (he thought) album to Columbia, only to be sent home by Clive Davis in search of a single.
+That's not entirely true. It's possible that he composed the main melody upon completing his lyrical acrobatics. However, we know the bridge arrangement pre-dates "Blinded" by at least a couple of months, because it appears in "[Henry Boy,](../2011-01-17_roll-of-the-dice-henry-boy/post.md)" recorded in June 1972 and performed live on August 10th. That was the same day Bruce submitted his completed (he thought) album to Columbia, only to be sent home by Clive Davis in search of a single.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lbc5Kus_Lkw)
 

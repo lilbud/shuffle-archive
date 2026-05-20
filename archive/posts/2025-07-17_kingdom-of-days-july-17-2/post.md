@@ -38,7 +38,7 @@ post_id: 57748
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1984-07-17.png.webp)
 
-**1988:** The Tunnel of Love Tour arrives in Munich, where “[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” makes its tour premiere.<br>
+**1988:** The Tunnel of Love Tour arrives in Munich, where “[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)” makes its tour premiere.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Hg1d3CbK)
 
@@ -54,7 +54,7 @@ post_id: 57748
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2004-07-17.png.webp)
 
-**2008:** The Magic Tour’s Spanish leg continues with a show in Madrid, featuring a rare performance of “[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md).”<br>
+**2008:** The Magic Tour’s Spanish leg continues with a show in Madrid, featuring a rare performance of “[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Cover Me (Madrid 2008)](https://www.youtube.com/watch?v=xzVzqJEkbJ4)
 
@@ -66,7 +66,7 @@ post_id: 57748
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2011-07-17.png.webp)
 
-**2012:** “Before we were so rudely interrupted…”Bruce picks up in Dublin where he left off–or rather, was cut off–at Hyde Park, bringing his own mock generator on stage, flipping the switch to “ON” and finishing “Twist and Shout” from the previous show. He then launches directly into “[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md),” a very appropriate tour premiere. Other tour premieres include “[I’m a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)” and “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md).”<br>
+**2012:** “Before we were so rudely interrupted…”Bruce picks up in Dublin where he left off–or rather, was cut off–at Hyde Park, bringing his own mock generator on stage, flipping the switch to “ON” and finishing “Twist and Shout” from the previous show. He then launches directly into “[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md),” a very appropriate tour premiere. Other tour premieres include “[I’m a Rocker](../2020-09-18_roll-of-the-dice-im-a-rocker/post.md)” and “[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen, Dublin, RDS, 2012, Intro/Twist & Shout (London Cont.)](https://www.youtube.com/watch?v=4Ehdf2SbIDI)
 

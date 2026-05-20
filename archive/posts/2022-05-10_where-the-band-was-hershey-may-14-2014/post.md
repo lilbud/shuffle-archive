@@ -34,7 +34,7 @@ to a couple of classic River outtakes (“[Be True](../2020-12-02_roll-of-the-di
 
 [Watch on Youtube: Bruce Springsteen Surprise, Surprise Live at Hershey, PA 5-14-14 (Part 6)](https://www.youtube.com/watch?v=Pg_HcKbWbd4)
 
-…and an absolutely stunning acoustic piano performance of “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md).” Sour crowd taste aside (who carries on a conversation during a moment like this? Many people around me, that’s who), that particular “For You” performance will rank among the top song performances I’ve ever seen for a long, long time to come.
+…and an absolutely stunning acoustic piano performance of “[For You](../2011-01-07_roll-of-the-dice-for-you/post.md).” Sour crowd taste aside (who carries on a conversation during a moment like this? Many people around me, that’s who), that particular “For You” performance will rank among the top song performances I’ve ever seen for a long, long time to come.
 
 [Watch on Youtube: Bruce Springsteen "For You" Hershey Park](https://www.youtube.com/watch?v=xZuMWcKdRT0)
 

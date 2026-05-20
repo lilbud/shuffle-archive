@@ -58,12 +58,12 @@ post_id: 61074
 
 [Watch on Youtube: Bruce Springsteen reads from his autobiography at The Town Hall in New York City on October 7, 2016](https://www.youtube.com/watch?v=i1PptJNEqIY)
 
-**2017:** Bruce tweaks his *Springsteen on Broadway* running order, swapping the positions of "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)."<br>
+**2017:** Bruce tweaks his *Springsteen on Broadway* running order, swapping the positions of "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)."<br>
 
 **2020:** E Street Radio airs Volume 13 of Bruce's *From My Home to Yours* radio show, entitled "My Kingdom for a Car."<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-07-Bruce-E-Street-Radio-DJ-set-13-1.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-07-Bruce-E-Street-Radio-DJ-set-13-1.mp3)
 
-Later that day, Bruce records a promotional interview for [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md)with Zane Lowe. The interview will be aired on Apple Music later this month.
+Later that day, Bruce records a promotional interview for [*Letter to You*](../2017-01-01_album-companion-letter-to-you/post.md)with Zane Lowe. The interview will be aired on Apple Music later this month.
 
 [Watch on Youtube: Bruce Springsteen - Apple Music 'Letter To You' Interview](https://www.youtube.com/watch?v=PhkL4K7Esc0)

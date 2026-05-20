@@ -46,7 +46,7 @@ Mad Dog Vinni Lopez made an appearance to play his shambolic drums on "T[he E St
 
 [Watch on Youtube: Bruce Springsteen - E Street Shuffle W/ Drummer Vini Lopez 9/19/12 MetLife New Jersey Full HD Show](https://www.youtube.com/watch?v=kdypt1cQNI0)
 
-and Steven Van Zandt had a nice twang to his guitar filling out "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)."
+and Steven Van Zandt had a nice twang to his guitar filling out "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)."
 
 It was during the encores – where DeRose in particular was pumped for "Rosalita" – that the Growlers provided me the fodder to let the spirit of Bruce even more completely take hold of me.
 

@@ -36,7 +36,7 @@ post_id: 56001
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1981-0225.jpg.webp)
 
-**1985:** Bruce wins the Grammy for Best Rock Vocal Performance (Male) for “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).” (He is also nominated for Record of the Year (for “Dancing in the Dark” and Album of the Year (for *Born in the U.S.A.*) but loses to Tina Turner’s “What’s Love Got to Do With It” and Lionel Richie’s *Can’t Slow Down* respectively.) Bruce attends the ceremony with his mother and future-first-wife Julianne Phillips. The camera catches Bruce and Juli several times during the show.<br>
+**1985:** Bruce wins the Grammy for Best Rock Vocal Performance (Male) for “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md).” (He is also nominated for Record of the Year (for “Dancing in the Dark” and Album of the Year (for *Born in the U.S.A.*) but loses to Tina Turner’s “What’s Love Got to Do With It” and Lionel Richie’s *Can’t Slow Down* respectively.) Bruce attends the ceremony with his mother and future-first-wife Julianne Phillips. The camera catches Bruce and Juli several times during the show.<br>
 
 [Watch on Youtube: 1985 Grammy Awards - Bruce Springsteen and Julianne Phillips](https://www.youtube.com/watch?v=7ucaXZiaXQ8)
 
@@ -50,7 +50,7 @@ post_id: 56001
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/rolling-stone-cover-volume-494-2-26-1987-bruce-springsteen.jpg.webp)
 
-**1996:** Bruce’s solo acoustic tour moves on to Amsterdam. The acoustic/percussive arrangement of “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” makes its debut and will close the show for the rest of the tour. This show also features the tour debut of “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md).”<br>
+**1996:** Bruce’s solo acoustic tour moves on to Amsterdam. The acoustic/percussive arrangement of “[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)” makes its debut and will close the show for the rest of the tour. This show also features the tour debut of “[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/t4RYAYvv)
 
@@ -62,7 +62,7 @@ post_id: 56001
 
 [Watch on Youtube: Bruce Springsteen - The Ghost of Tom Joad [1997]](https://www.youtube.com/watch?v=55q3F2XGiDk)
 
-**1999:** Bruce stops by *Late Night With Conan O’Brien* to collect Max for the upcoming Reunion Tour and performs a fun “[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)” with The Max Weinberg 7.<br>
+**1999:** Bruce stops by *Late Night With Conan O’Brien* to collect Max for the upcoming Reunion Tour and performs a fun “[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)” with The Max Weinberg 7.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/pISaTcTb)
 

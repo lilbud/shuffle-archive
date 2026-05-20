@@ -74,7 +74,7 @@ post_id: 57894
 
 [Watch on Youtube: Bruce Springsteen at Yankee Stadium - August 1, 2001](https://www.youtube.com/watch?v=L1G-u3q9G9A)
 
-**2002:** Bruce and the E Street Band perform "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" and "[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)" on *The Late Show with David Letterman*. (The latter song will air tomorrow.)<br>
+**2002:** Bruce and the E Street Band perform "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)" and "[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)" on *The Late Show with David Letterman*. (The latter song will air tomorrow.)<br>
 
 [Watch on Youtube: Bruce Springsteen on David letterman The Rising](https://www.youtube.com/watch?v=sUk7uV2ua4o)
 
@@ -88,7 +88,7 @@ post_id: 57894
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2003-08-01b.png.webp)
 
-**2005:** The remarkable run of tour debuts on the Devils and Dust Tour continues at this show at U.S. Bank Arena in Cincinnati. Bruce opens the show with "[Two For the Road](../2020-06-30_roll-of-the-dice-two-for-the-road/post.md)" (its first airing ever), and follows it later in the show with "[Ain't Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md)" and "[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)." Also getting rare outings: "[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)" and "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)," making for a wonderful set list.<br>
+**2005:** The remarkable run of tour debuts on the Devils and Dust Tour continues at this show at U.S. Bank Arena in Cincinnati. Bruce opens the show with "[Two For the Road](../2020-06-30_roll-of-the-dice-two-for-the-road/post.md)" (its first airing ever), and follows it later in the show with "[Ain't Got You](../1987-01-01_roll-of-the-dice-aint-got-you/post.md)" and "[Living Proof](../1992-02-08_roll-of-the-dice-living-proof/post.md)." Also getting rare outings: "[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)" and "[Janey, Don't You Lose Heart](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)," making for a wonderful set list.<br>
 
 [Watch on Youtube: Living Proof (solo acoustic) Bruce Springsteen 8/1/2005 Cincinnati, OH](https://www.youtube.com/watch?v=6Zn3qhy37To)
 

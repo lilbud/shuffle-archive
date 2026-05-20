@@ -32,7 +32,7 @@ post_id: 56432
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/1974-0412.jpg.webp)
 
-**1978:** At the last minute during a *Darkness* mixing and overdub session at the Record Plant, Bruce opts to overdub a Big Man sax solo onto "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)." The track will be pressed to acetate the next day.<br>
+**1978:** At the last minute during a *Darkness* mixing and overdub session at the Record Plant, Bruce opts to overdub a Big Man sax solo onto "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)." The track will be pressed to acetate the next day.<br>
 
 [Watch on Youtube: Bruce Springsteen - Badlands (Official Lyric Video)](https://www.youtube.com/watch?v=o5IZuuzUa04)
 

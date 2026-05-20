@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/12/laura-marling-bruce-springsteen-592.jpg
 post_id: 14569
 ---
-Some songs are indelibly imprinted on or by the context in which you first hear them. For me, Eddie Berman and Laura Marling’s version of “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” is a textbook example.
+Some songs are indelibly imprinted on or by the context in which you first hear them. For me, Eddie Berman and Laura Marling’s version of “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)” is a textbook example.
 
 Last month, my wife and I escaped the cold and rainy Pacific Northwest for a long weekend in Rome. The Eternal City turned out to be only a tad warmer than the Emerald City and not at all drier, but sometimes a change of scenery is all you need.
 

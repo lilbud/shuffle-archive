@@ -24,7 +24,7 @@ post_id: 57868
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2022/07/1974-0728.jpg.webp)
 
-**1975:** A rainy night plagues Bruce's performance at the Carter Barron Amphitheater in Washington DC's Rock Creek Park. Heavy rain delays the start of the show by two hours, and lingering moisture disrupts Bruce's guitar throughout the show, causing additional mid-show delays. Still, the performance is great, and the crowd is hot. Listen to the rare instrumental "[Funk Song](../2018-05-02_roll-of-the-dice-funk-song/post.md)" below.<br>
+**1975:** A rainy night plagues Bruce's performance at the Carter Barron Amphitheater in Washington DC's Rock Creek Park. Heavy rain delays the start of the show by two hours, and lingering moisture disrupts Bruce's guitar throughout the show, causing additional mid-show delays. Still, the performance is great, and the crowd is hot. Listen to the rare instrumental "[Funk Song](../1972-01-22_roll-of-the-dice-funk-song/post.md)" below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/PjwQpbMI)
 
@@ -46,7 +46,7 @@ post_id: 57868
 
 [Watch on Youtube: Bobby Jean](https://www.youtube.com/watch?v=iGR_Rk74tOk)
 
-**1992:** Night Four of eleven in East Rutherford on World Tour 1992 sees the tour premieres of "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" and "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)."<br>
+**1992:** Night Four of eleven in East Rutherford on World Tour 1992 sees the tour premieres of "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" and "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8RRTltYG)
 
@@ -86,7 +86,7 @@ post_id: 57868
 
 [Watch on Youtube: Bruce Springsteen - 2013-07-28 Kilkenny - Man At The Top (European debut)](https://www.youtube.com/watch?v=cWtMBPfVCEE)
 
-**2016:** The European leg of the River Tour nears its end with this show in Oslo. Early arrivals are treated to a pre-show acoustic "[Working on the Highway,](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" but everyone gets to enjoy a full album performance of *The River*, played in full for the final time.<br>
+**2016:** The European leg of the River Tour nears its end with this show in Oslo. Early arrivals are treated to a pre-show acoustic "[Working on the Highway,](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" but everyone gets to enjoy a full album performance of *The River*, played in full for the final time.<br>
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band, PRE SHOW, 2016-07-28, Frognerparken, Oslo, Norway](https://www.youtube.com/watch?v=gjuUefoThoM)
 

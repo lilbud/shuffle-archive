@@ -22,7 +22,7 @@ Bruce wrote and recorded "Do Your Job" just prior to the financial crisis that a
 
 As with much of Bruce's unreleased material, however, the unreleased single made its way to the Internet where we can now watch it and wonder what might have been. Unfortunately, the timing is once again awful with so many Americans out of work due to the great pandemic, so we can expect the Springsteen camp to deny any association with this shoulda-been-a-hit track.
 
-"Do Your Job" has a classic E Street sound–not surprising, since it seems that it was recorded during one of the breaks on the Magic Tour (as was much of *Working on a Dream*). Featuring a catchy hook, a riff reminiscent of "[The Promised Land,](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and classic Springsteen themes like the value of hard work, Bruce had all the necessary elements to elevate "Do Your Job" to its rightful place in Bruce's officially released catalog.
+"Do Your Job" has a classic E Street sound–not surprising, since it seems that it was recorded during one of the breaks on the Magic Tour (as was much of *Working on a Dream*). Featuring a catchy hook, a riff reminiscent of "[The Promised Land,](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" and classic Springsteen themes like the value of hard work, Bruce had all the necessary elements to elevate "Do Your Job" to its rightful place in Bruce's officially released catalog.
 
  *I can't believe my eyes, it's so friggin' amazing*
 > *Americans are getting lazier*

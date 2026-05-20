@@ -32,7 +32,7 @@ Bruce may have left his family behind geographically, but emotionally they were 
 
 In those first few months following his return to New Jersey in 1972, he recorded "[Family Song](../2020-02-23_roll-of-the-dice-family-song/post.md)," a chronicle of his reunion with and newfound empathy for his parents.
 
-It wasn't just his parents on his mind, though, because "[Randolph Street](../2020-12-27_roll-of-the-dice-randolph-street/post.md)" also came out of this period. "Randolph Street" was a love letter to his grandparents and a tentative attempt to revisit his great loss when they passed away.
+It wasn't just his parents on his mind, though, because "[Randolph Street](../2011-01-25_roll-of-the-dice-randolph-street/post.md)" also came out of this period. "Randolph Street" was a love letter to his grandparents and a tentative attempt to revisit his great loss when they passed away.
 
 But Bruce never directly faces death head-on in "Randolph Street." His sixteen-year-old self is the narrator, in a detached state of shock on the day of his grandmother's passing. We hear Bruce recollect his grandparents in loving detail, and we can hear the pain in his voice as he revisits their final days. But when it comes to his grandparents' deaths, his songwriting is delicate and circumspect.
 

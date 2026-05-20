@@ -64,7 +64,7 @@ post_id: 56718
 
 [Watch on Youtube: Bruce Springsteen Land Of Hope And Dreams (Live 2000 05 08)](https://www.youtube.com/watch?v=pai9_124wjk)
 
-**2003:** The second of two Rising shows at Stadion Feyenoord in Rotterdam features a solo acoustic “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md).”<br>
+**2003:** The second of two Rising shows at Stadion Feyenoord in Rotterdam features a solo acoustic “[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md).”<br>
 
 [Watch on Youtube: Rotterdam 08/05/2003](https://www.youtube.com/playlist?list=PLJTyL9twk3zD22QfINKskZMkqSLOVo7RF)
 
@@ -74,7 +74,7 @@ post_id: 56718
 
 [Watch on Youtube: Bruce 'The Boss' Springsteen at Hammersmith May 8th 2006](https://www.youtube.com/watch?v=niCOPuhUF50)
 
-**2009:** Bruce takes the Working on a Dream Tour to Penn State University, where he performs “[My Generation](../2018-03-27_matr-pete-townshend-roger-daltry-and-bruce-springsteen-my-generation/post.md)” for the first time. The set also includes the tour premieres of “This Life,” “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md),” and “[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md).”<br>
+**2009:** Bruce takes the Working on a Dream Tour to Penn State University, where he performs “[My Generation](../2018-03-27_matr-pete-townshend-roger-daltry-and-bruce-springsteen-my-generation/post.md)” for the first time. The set also includes the tour premieres of “This Life,” “[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md),” and “[Wooly Bully](../2018-03-31_cover-me-woolly-bully/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - My Generation - Live from University Park - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=21ShrNP31CY)
 

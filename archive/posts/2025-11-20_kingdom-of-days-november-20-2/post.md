@@ -80,7 +80,7 @@ post_id: 62408
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2009-11-20b.png.webp)
 
-**2019:** Bruce gathers the E Street Band at his home studio in Colts Neck for the third day of a five-day recording session that will yield [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md).<br>
+**2019:** Bruce gathers the E Street Band at his home studio in Colts Neck for the third day of a five-day recording session that will yield [*Letter to You*](../2017-01-01_album-companion-letter-to-you/post.md).<br>
 
 **2023:** Bruce's scheduled show in Montreal is postponed to the following Halloween due to his peptic ulcer disease. Instead, Bruce releases the last episode (as of this writing) of *From My Home to Yours* on Sirius XM. This episode is entitled "California Sun."<br>
 

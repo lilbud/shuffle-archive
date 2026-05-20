@@ -14,7 +14,7 @@ When Bruce gathered the E Street Band at the Expo Theater in Fort Monmouth to re
 
 But when the Express left the station, "When You're Alone" was left… well, not quite alone (since "[Valentine's Day](../1987-01-12_roll-of-the-dice-valentines-day/post.md/)" didn't make the final set list either), but pretty close to it.
 
-With only a dozen outings since its release on *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*32 years ago (none of them on the original tour), "When You're Alone" is one of the least-played songs from the album. Even when he does play it, Bruce always seems somewhat ambivalent toward it, never commenting on the meaning, context, or genesis of the song.
+With only a dozen outings since its release on *[Tunnel of Love](../1987-01-01_album-companion-tunnel-of-love/post.md)*32 years ago (none of them on the original tour), "When You're Alone" is one of the least-played songs from the album. Even when he does play it, Bruce always seems somewhat ambivalent toward it, never commenting on the meaning, context, or genesis of the song.
 
 We're left to our own devices to intuit the reasons for Bruce's aversion to "When You're Alone," but I imagine most fans would arrive at a common hypothesis in pretty short order.
 

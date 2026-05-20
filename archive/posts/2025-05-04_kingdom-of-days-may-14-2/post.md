@@ -84,7 +84,7 @@ post_id: 56766
 
 [Watch on Youtube: Bruce Springsteen - Dancing in the dark/Twist and shout (Copenhagen 2013-05-14)](https://www.youtube.com/watch?v=tkucXqYD6I0)
 
-**2014:** The High Hopes Tour makes its penultimate stop in Hershey, Pennsylvania, where the set includes an opening "[Clampdown](../2021-09-10_cover-me-clampdown/post.md)," the tour premiere of "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)," and a stunning solo piano performance of "[For You.](../2022-01-08_roll-of-the-dice-for-you/post.md)" For more highlights from this show, see my [*Where the Band Was* report](../2018-05-14_where-the-band-was-hershey-may-14-2014/post.md) from this date. Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,11392/Bruce-Springsteen-mp3-flac-download-5-14-2014-Hersheypark-Stadium-Hershey-PA.html).<br>
+**2014:** The High Hopes Tour makes its penultimate stop in Hershey, Pennsylvania, where the set includes an opening "[Clampdown](../2021-09-10_cover-me-clampdown/post.md)," the tour premiere of "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)," and a stunning solo piano performance of "[For You.](../2011-01-07_roll-of-the-dice-for-you/post.md)" For more highlights from this show, see my [*Where the Band Was* report](../2018-05-14_where-the-band-was-hershey-may-14-2014/post.md) from this date. Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,11392/Bruce-Springsteen-mp3-flac-download-5-14-2014-Hersheypark-Stadium-Hershey-PA.html).<br>
 
 [Watch on Youtube: Bruce Springsteen "For You" Hershey Park](https://www.youtube.com/watch?v=xZuMWcKdRT0)
 

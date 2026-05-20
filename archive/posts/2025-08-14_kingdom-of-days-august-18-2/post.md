@@ -44,11 +44,11 @@ post_id: 59370
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1992-08-18c.png.webp)
 
-**2001:** Bruce makes a surprise afternoon appearance at the annual Clearwater Festival in Asbury Park, playing six songs (including the first ever acoustic performance of "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)"). The video footage below is unintentionally hilarious at times: first, a local news reporter tries multiple times to do a "guess who that is over there" intro, but an oblivious Bruce fails to cooperate; later, a group performance of "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" is, let's say, ragtag. And that poor ASL interpreter–how hard must it be to sign *that* song?<br>
+**2001:** Bruce makes a surprise afternoon appearance at the annual Clearwater Festival in Asbury Park, playing six songs (including the first ever acoustic performance of "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)"). The video footage below is unintentionally hilarious at times: first, a local news reporter tries multiple times to do a "guess who that is over there" intro, but an oblivious Bruce fails to cooperate; later, a group performance of "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)" is, let's say, ragtag. And that poor ASL interpreter–how hard must it be to sign *that* song?<br>
 
 [Watch on Youtube: Bruce Springsteen - Clearwater Festival (Asbury Park) , 2001-08-18](https://www.youtube.com/watch?v=RABT8memYGI)
 
-Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on stage for four songs, including "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" and "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)..."
+Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on stage for four songs, including "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" and "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)..."
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/2001-0818a.jpg.webp)
 

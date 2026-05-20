@@ -12,7 +12,7 @@ This past year's quarantine has brought us so many great new Springsteen covers 
 
 So let's take a trip back to the "classic" covers for at least a couple of installments.
 
-This one's been stuck in my head since I wrote my *Roll of the Dice* article on "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" recently. Frank Black's cover is crunchy, grungy, and loud–exactly what you'd expect if you read Bruce's lyrics before listening to the song. Turn this one up *loud*.
+This one's been stuck in my head since I wrote my *Roll of the Dice* article on "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)" recently. Frank Black's cover is crunchy, grungy, and loud–exactly what you'd expect if you read Bruce's lyrics before listening to the song. Turn this one up *loud*.
 
 [Watch on Youtube: I'm Going Down](https://www.youtube.com/watch?v=oEbT-xFcbck)
 

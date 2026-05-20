@@ -10,11 +10,11 @@ post_id: 13621
 ---
 We tend to think of the Seeger Sessions as a point in time, a momentary diversion between Bruce's rock albums. The Seeger Sessions actually spanned a full decade, though–they bridge the *Ghost of Tom Joad* period all the way through to the *Magic* era.
 
-Most of the songs that would eventually be released on Bruce's 2006 album were recorded either in November 1997 or March 2005, but there were a few stragglers recorded as late as January 2006. "[Jacob's Ladder](../2019-04-18_rotd-cover-me-jacobs-ladder/post.md)" and "[Eyes on the Prize](../2021-11-01_cover-me-eyes-on-the-prize/post.md)" and "[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)" were among the songs recorded in that third and final Seeger session.
+Most of the songs that would eventually be released on Bruce's 2006 album were recorded either in November 1997 or March 2005, but there were a few stragglers recorded as late as January 2006. "[Jacob's Ladder](../2006-01-08_rotd-cover-me-jacobs-ladder/post.md)" and "[Eyes on the Prize](../2006-01-10_cover-me-eyes-on-the-prize/post.md)" and "[Buffalo Gals](../2006-01-15_cover-me-roll-of-the-dice-buffalo-gals/post.md)" were among the songs recorded in that third and final Seeger session.
 
 But in typical Springsteen fashion, he recorded more songs than he released, and a few are known to remain in the vault to this day, including treatments of "Michael, Row Your Boat Ashore" and "Pretty Boy Floyd."
 
-One of those holdbacks, though, did finally see an official release just last year: towards the end of 2018, Appleseed Records released an anniversary compilation CD entitled *Roots and Branches*, and since Appleseed was the genesis of the very first Seeger Session (Bruce assembled the musicians to record "[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)" for Appleseed's Seeger tribute album), Bruce reached into his vault to contribute another track from those sessions.
+One of those holdbacks, though, did finally see an official release just last year: towards the end of 2018, Appleseed Records released an anniversary compilation CD entitled *Roots and Branches*, and since Appleseed was the genesis of the very first Seeger Session (Bruce assembled the musicians to record "[We Shall Overcome](../2006-01-13_roll-of-the-dice-cover-me-we-shall-overcome/post.md)" for Appleseed's Seeger tribute album), Bruce reached into his vault to contribute another track from those sessions.
 
 "If I Had a Hammer (The Hammer Song)" is one of the few Seeger sessions tracks that was actually written (rather than adapted) by Pete Seeger. Seeger co-wrote the song in 1949 with Lee Hays and released it in 1950 with The Weavers.
 

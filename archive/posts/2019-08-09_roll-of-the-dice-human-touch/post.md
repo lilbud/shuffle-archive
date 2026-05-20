@@ -104,7 +104,7 @@ As for the final choruses… well, they're so direct and unadorned that I'm at a
 
 But hey now, that "hey now!" saves "Human Touch" from petering out unremarkably, Those final two minutes–easily the finest two minutes on the album.
 
-Despite its imperfections, "Human Touch" served admirably as the lead-off (and only) single for its album, although it's a little tricky to measure exactly how well: as a promotional gimmick, Bruce promoted his double album combo by releasing a lead-off single with two A-sides and no B-side. "Human Touch" shared the spotlight with "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)," but if memory serves, "Human Touch" received the lion's share of the radio play.
+Despite its imperfections, "Human Touch" served admirably as the lead-off (and only) single for its album, although it's a little tricky to measure exactly how well: as a promotional gimmick, Bruce promoted his double album combo by releasing a lead-off single with two A-sides and no B-side. "Human Touch" shared the spotlight with "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)," but if memory serves, "Human Touch" received the lion's share of the radio play.
 
 Regardless, the song peaked at #16 on the Billboard Hot 100, cracked the top ten in Canada, Sweden, Ireland and other countries, and captured the top of the chart in Italy and Spain (two of Bruce's strongest of strongholds)
 

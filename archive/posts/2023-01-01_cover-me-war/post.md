@@ -28,7 +28,7 @@ The song went over well, and Bruce kept it in the set for the remainder of the t
 
 Bruce's single peaked at #8, making it the second time "War" cracked the Top Ten.
 
-When Bruce resumed touring in 1988 in support of his [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) album, "War" stayed in the set. Throughout the entire tour, Bruce played "War" as a nightly lead-in to "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" — perhaps to make sure no one misunderstood the latter.
+When Bruce resumed touring in 1988 in support of his [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) album, "War" stayed in the set. Throughout the entire tour, Bruce played "War" as a nightly lead-in to "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" — perhaps to make sure no one misunderstood the latter.
 
 In June of that year, when the tour reached Birmingham, England, Bruce was finally able to perform "War" with the artist who took the song all the way to Number One (Starr had moved to the U.K. by then). Fortunately, that performance was captured on video.
 

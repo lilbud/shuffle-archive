@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/mumford.jpg
 post_id: 13442
 ---
-I really tried to put some more space between "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" covers, but then this one popped up on YouTube a week ago and suddenly I'm off the wagon.
+I really tried to put some more space between "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" covers, but then this one popped up on YouTube a week ago and suddenly I'm off the wagon.
 
 And yes, I know that Mumford & Sons have been covering "I'm on Fire" for years, and yes I know that many of those performances were captured on video in pretty great quality.
 

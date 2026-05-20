@@ -100,7 +100,7 @@ post_id: 61182
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-20-LTY-Radio-2-Bruce-Dave-Grohl-Eddie-Vedder.mp3)
 
-**2021:** At the Javits Center in New York City, Bruce supports The Robin Hood Foundation with an acoustic set of "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)," "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)," and "Thunder Road."<br>
+**2021:** At the Javits Center in New York City, Bruce supports The Robin Hood Foundation with an acoustic set of "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)," "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," and "Thunder Road."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/V4mnAWFo)
 

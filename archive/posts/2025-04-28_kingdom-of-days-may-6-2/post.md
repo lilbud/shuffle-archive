@@ -26,7 +26,7 @@ post_id: 56701
 
 **1980:** At a mixing session for *The River* at Clover Studios in Los Angeles, Bruce works on "[I Wanna Marry You.](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)"<br>
 
-**1982:** Bruce and the E Street Band record "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" at the Power Station in New York City.<br>
+**1982:** Bruce and the E Street Band record "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" at the Power Station in New York City.<br>
 
 [Watch on Youtube: Working on the Highway](https://www.youtube.com/watch?v=5OEA9_Gtims)
 

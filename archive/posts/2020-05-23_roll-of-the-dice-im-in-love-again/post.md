@@ -12,7 +12,7 @@ Two Bruce Springsteen Band songs in one week? You bet: it's Memorial Day weekend
 
 I love those Bruce Springsteen Band shows–they're warm and soulful, cool and brassy, and at times as close to pop as Bruce ever got. I love playing them on a warm weekend afternoon.
 
-Earlier this week, we listened to "[Natural Magic](../2020-05-19_roll-of-the-dice-natural-magic/post.md)," Bruce's Van Morrison tribute. Today, we check out Bruce's hat tip to The Crystals, "I'm in Love Again." No further introduction needed–this song is as light as a feather. Let's take a listen:
+Earlier this week, we listened to "[Natural Magic](../1972-01-03_roll-of-the-dice-natural-magic/post.md)," Bruce's Van Morrison tribute. Today, we check out Bruce's hat tip to The Crystals, "I'm in Love Again." No further introduction needed–this song is as light as a feather. Let's take a listen:
 
 [Watch Video Highlight](https://videopress.com/embed/mEy5mzkR)
 

@@ -50,7 +50,7 @@ post_id: 56455
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-16.jpg.webp)
 
-**2009:** At Night Two at the L.A. Sports Arena, Mike Ness guest stars on "[Bad Luck](../2020-06-25_matr-bruce-springsteen-and-mike-ness-bad-luck/post.md)" and "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)." Making their tour debuts: "[Candy's Room,](../2022-05-02_roll-of-the-dice-candys-room/post.md)" "[Adam Raised a Cain,](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" "Proud Mary," "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," and "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)."<br>
+**2009:** At Night Two at the L.A. Sports Arena, Mike Ness guest stars on "[Bad Luck](../2020-06-25_matr-bruce-springsteen-and-mike-ness-bad-luck/post.md)" and "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)." Making their tour debuts: "[Candy's Room,](../2022-05-02_roll-of-the-dice-candys-room/post.md)" "[Adam Raised a Cain,](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" "Proud Mary," "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)," and "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Bad Luck - Live from Los Angeles - With Mike Ness from Social Distortion - 2009](https://www.youtube.com/watch?v=NCHI_PBXRvk)
 
@@ -58,7 +58,7 @@ post_id: 56455
 
 [Watch on Youtube: BRUCE SPRINGSTEEN DOES BACKSTREETS APRIL 16, 2009 LOS ANGELES SPORTS ARENA](https://www.youtube.com/watch?v=x8RqRx7ftd0)
 
-**2012:** Albany's Wrecking Ball show includes a rare, solo acoustic "[Janey, Don't You Lose Heart,](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" played by request, and the tour premieres of "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" and "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)." Watch the entire show below.<br>
+**2012:** Albany's Wrecking Ball show includes a rare, solo acoustic "[Janey, Don't You Lose Heart,](../2019-04-06_roll-of-the-dice-janey-dont-you-lose-heart/post.md)" played by request, and the tour premieres of "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" and "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)." Watch the entire show below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QeL22Nwg)
 

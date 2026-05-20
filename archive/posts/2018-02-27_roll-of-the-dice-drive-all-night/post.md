@@ -96,7 +96,7 @@ He'll drive all night.
 
 "Drive All Night" is easily in my top ten all-time favorite Springsteen songs. That list changes frequently, but I don't think DAN ever left it. In concert, it's performed only rarely (outside of the River full-album shows) and it only grows in power over time.
 
-Interestingly, for long-time fans, "Drive All Night" began in concert: the first time Bruce sang the lyrics was in an introduction to "[Backstreets](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" on New Years' Eve in 1977. That show is available on YouTube, but it omits the one-time-only introduction. Check it out below to hear the first-ever proto-"Drive All Night."
+Interestingly, for long-time fans, "Drive All Night" began in concert: the first time Bruce sang the lyrics was in an introduction to "[Backstreets](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md)" on New Years' Eve in 1977. That show is available on YouTube, but it omits the one-time-only introduction. Check it out below to hear the first-ever proto-"Drive All Night."
 
 [https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3](https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3)
 

@@ -20,7 +20,7 @@ post_id: 62617
 
 **1977:** At The Record Plant in New York City, Bruce and the E Street Band work on "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)."<br>
 
-**1980:** Bruce takes the River Tour to the Civic Arena in Pittsburgh, where Bruce dedicates "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" to Joe Grushecky.<br>
+**1980:** Bruce takes the River Tour to the Civic Arena in Pittsburgh, where Bruce dedicates "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" to Joe Grushecky.<br>
 
 [Watch on Youtube: Bruce Springsteen - "The Promised Land" - Pittsburgh, 1980-11-30](https://www.youtube.com/watch?v=I1Ab0iyJitA)
 
@@ -50,7 +50,7 @@ post_id: 62617
 
 **2007:** Bruce comes down with a severe cold and postpones a scheduled show in Arnhem to the next day.<br>
 
-**2012:** The Wrecking Ball Tour travels down the west coast to Oakland for a show at Oracle Arena. Notables tonight include a rare full-band "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)" a by-request "[Pay Me My Money Down,](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" and a "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" encore.<br>
+**2012:** The Wrecking Ball Tour travels down the west coast to Oakland for a show at Oracle Arena. Notables tonight include a rare full-band "[Devils & Dust](../2022-03-02_roll-of-the-dice-devils-dust/post.md)" a by-request "[Pay Me My Money Down,](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" and a "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" encore.<br>
 
 [Watch on Youtube: Bruce Springsteen "Pay Me My Money Down" 11/30/2012 Oakland, CA](https://www.youtube.com/watch?v=bC_Tvu0cDYo)
 

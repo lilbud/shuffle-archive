@@ -26,7 +26,7 @@ post_id: 55934
 
 [Watch on Youtube: Old Dan Tucker](https://www.youtube.com/watch?v=OG1ctA7FXyU)
 
-**2014:** The first night of two in Adelaide kicks off with a party-time cover of “[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)” and an audibled “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/).” The show also features a rare outing of “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md).” Also tour premiering tonight: “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” “[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md),” “[Mary’s Place,](../2022-03-25_roll-of-the-dice-marys-place/post.md)” and “[If I Should Fall Behind.](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)”<br>
+**2014:** The first night of two in Adelaide kicks off with a party-time cover of “[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)” and an audibled “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/).” The show also features a rare outing of “[Back in Your Arms](../2019-11-10_roll-of-the-dice-back-in-your-arms/post.md).” Also tour premiering tonight: “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” “[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md),” “[Mary’s Place,](../2022-03-25_roll-of-the-dice-marys-place/post.md)” and “[If I Should Fall Behind.](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)”<br>
 
 [Watch on Youtube: "Highway to Hell" (Adelaide, 02/11/14)](https://www.youtube.com/watch?v=Z3AzXGXnGcs)
 
@@ -38,7 +38,7 @@ post_id: 55934
 
 [Watch on Youtube: Bruce Springsteen - Prove It All Night ('78 Intro) - Adelaide, 11 February 2014](https://www.youtube.com/watch?v=or7WYLS2HOM)
 
-**2017:** The Summer 2017 Tour makes a stop at Hanging Rock in Macedon, Australia, opening with a solo acoustic “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” and a full band “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md).” “[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)” makes its tour premiere tonight as well.<br>
+**2017:** The Summer 2017 Tour makes a stop at Hanging Rock in Macedon, Australia, opening with a solo acoustic “[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)” and a full band “[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md).” “[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)” makes its tour premiere tonight as well.<br>
 
 [Watch on Youtube: The Promised Land (acoustic) - Bruce Springsteen - Hanging Rock - 11th February 2017](https://www.youtube.com/watch?v=ZlmnwhzTEzo)
 

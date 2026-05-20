@@ -34,7 +34,7 @@ post_id: 57090
 
 **1979:** Bruce and the E Street Band record for their upcoming album at the Power Station in New York City.<br>
 
-**1981:** Bruce joins Jackson Browne, Gary U.S. Bonds and others at Survival Sunday, an anti-nuke benefit event at the Hollywood Bowl. Watch the pro-shot performance below, including a duet with Jackson Browne on "[The Promised Land"](../2018-07-04_roll-of-the-dice-the-promised-land/post.md) and a team-up with Gary U.S. Bonds on "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)."<br>
+**1981:** Bruce joins Jackson Browne, Gary U.S. Bonds and others at Survival Sunday, an anti-nuke benefit event at the Hollywood Bowl. Watch the pro-shot performance below, including a duet with Jackson Browne on "[The Promised Land"](../2016-01-09_roll-of-the-dice-the-promised-land/post.md) and a team-up with Gary U.S. Bonds on "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)."<br>
 
 [Watch on Youtube: ''Survival Sunday'' - Bruce Springsteen - June 14th, 1981 - Hollywood Bowl - Los Angeles, CA](https://www.youtube.com/watch?v=jkNS8KLaXHw)
 
@@ -70,7 +70,7 @@ Meanwhile, Patti films a performance and interview for *The Late Show With David
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Buffalo_News_Sat__Jun_21__2008_-scaled.jpg.webp)
 
-**2009:** The day after his set at Bonnaroo, Bruce checks out sets by MGMT, Band of Horses, and Okkervil River before joining Phish on stage at Bonnaroo for three epic jams: "[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)," "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)," and "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
+**2009:** The day after his set at Bonnaroo, Bruce checks out sets by MGMT, Band of Horses, and Okkervil River before joining Phish on stage at Bonnaroo for three epic jams: "[Mustang Sally](../2020-07-15_matr-bruce-springsteen-and-just-about-everybody-mustang-sally/post.md)," "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)," and "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch on Youtube: Phish (feat. Bruce Springsteen) - Mustang Sally 6/14/2009](https://www.youtube.com/watch?v=BXA8NLsXdoc)
 

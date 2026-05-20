@@ -78,7 +78,7 @@ vs.
 > *Tonight our bed is cold, I'm lost in the darkness of our love*<br>
 > *God have mercy on the man who doubts what he's sure of*<br>
 
-Coincidence? Perhaps. But I suspect Bruce was haunted for years by a fear of wearing masks in relationships. That theme stopped after the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)album. "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)" sheds some pretty good insight as to why.
+Coincidence? Perhaps. But I suspect Bruce was haunted for years by a fear of wearing masks in relationships. That theme stopped after the [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md)album. "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)" sheds some pretty good insight as to why.
 
 (Bonus: Here's an early home demo of Bruce working out the melody for "Little White Lies," sometime in early 1979.)
 

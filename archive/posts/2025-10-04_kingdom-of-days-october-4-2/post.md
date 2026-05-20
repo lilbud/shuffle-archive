@@ -50,7 +50,7 @@ post_id: 61047
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2002-10-04b.jpg.webp)
 
-That night, Bruce plays the Fleet Center, dedicating "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" to Zakim and closing the show with "[Dirty Water,](../2022-03-18_cover-me-dirty-water/post.md)" joined by Peter Wolf.
+That night, Bruce plays the Fleet Center, dedicating "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" to Zakim and closing the show with "[Dirty Water,](../2022-03-18_cover-me-dirty-water/post.md)" joined by Peter Wolf.
 
 [Watch Video Highlight](https://videopress.com/embed/nYd5pwJC)
 

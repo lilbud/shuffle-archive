@@ -22,7 +22,7 @@ post_id: 56834
 
 **1975:** Bruce and the E Street Band work on "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" at the Record Plant in New York City.<br>
 
-**1978:** The Darkness on the Edge of Town Tour begins at Shea's Buffalo Theater in Buffalo, New York. Besides the obvious album track premieres, this show also marks the first performances of "[Paradise by the 'C'](../2020-12-12_roll-of-the-dice-paradise-by-the-c/post.md)" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)," as well as the first "Sad Eyes" version of "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" and the only full-band performance of "The Promise" until 2010. Listen in on the pre-show soundcheck, live debut of "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" and more below.<br>
+**1978:** The Darkness on the Edge of Town Tour begins at Shea's Buffalo Theater in Buffalo, New York. Besides the obvious album track premieres, this show also marks the first performances of "[Paradise by the 'C'](../2020-12-12_roll-of-the-dice-paradise-by-the-c/post.md)" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)," as well as the first "Sad Eyes" version of "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)" and the only full-band performance of "The Promise" until 2010. Listen in on the pre-show soundcheck, live debut of "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" and more below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/IL3IeSg9)
 
@@ -34,7 +34,7 @@ post_id: 56834
 
 **1982:** Bruce sits in with Cats on a Smooth Surface at The Stone Pony.<br>
 
-**1983:** Bruce and the E Street Band complete "[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md)" at *Born in the U.S.A.* recording sessions at The Hit Factory in New York City. It won't be released for another thirty years.<br>
+**1983:** Bruce and the E Street Band complete "[County Fair](../1983-01-11_roll-of-the-dice-county-fair/post.md)" at *Born in the U.S.A.* recording sessions at The Hit Factory in New York City. It won't be released for another thirty years.<br>
 
 [Watch on Youtube: County Fair (Studio Outtake - 1983)](https://www.youtube.com/watch?v=yltKgMyWLH0)
 
@@ -66,7 +66,7 @@ post_id: 56834
 
 [Watch on Youtube: Springsteen - Radio Nowhere & No Retreat (Part 1) RDS 2008](https://www.youtube.com/watch?v=1SkVTUNWxvo)
 
-**2009:** The final show of the first American leg of the Working on a Dream Tour in East Rutherford features the tour premieres of "S[omething in the Night,](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," and "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)."<br>
+**2009:** The final show of the first American leg of the Working on a Dream Tour in East Rutherford features the tour premieres of "S[omething in the Night,](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)" "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," and "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/94aBB87m)
 

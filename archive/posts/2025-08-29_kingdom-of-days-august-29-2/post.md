@@ -54,7 +54,7 @@ post_id: 59500
 
 [Watch on Youtube: Joe Grushecky and Bruce Springsteen in conversation](https://www.youtube.com/playlist?list=PL39D3CD52696EBA54)
 
-**2002:** On a rainy night, Bruce and the E Street Band kick off the MTV Video Music Awards, performing "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" outside Hayden Planetarium in New York City for the cameras followed by a private 75-minute concert in the rain.<br>
+**2002:** On a rainy night, Bruce and the E Street Band kick off the MTV Video Music Awards, performing "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)" outside Hayden Planetarium in New York City for the cameras followed by a private 75-minute concert in the rain.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DJSBoofS)
 

@@ -70,7 +70,7 @@ post_id: 57179
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2006-06-24.jpg.webp)
 
-**2007:** Bruce performs "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for "[You Never Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md)."<br>
+**2007:** Bruce performs "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for "[You Never Can Tell](../2020-03-14_cover-me-you-never-can-tell/post.md)."<br>
 
 [Watch on Youtube: Bruce with the JLB](https://www.youtube.com/watch?v=QIQjpeIfk9s)
 

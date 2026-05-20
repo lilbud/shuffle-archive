@@ -14,7 +14,7 @@ That's the single greatest last line of any rock song ever (IMO, anyway).
 
 If you asked me to name my favorite Bruce Springsteen songs, the list would vary by the year, week, or even day. But "Brilliant Disguise" would *always* be on the list: the lyrics remain among the most powerful he's ever written, his vocals emotional and soulful, and that video…
 
-"Brilliant Disguise" arrested me from the moment I first heard it on October 3, 1987, the day it was released as the lead-off single for the [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) album—mostly because of that last line.
+"Brilliant Disguise" arrested me from the moment I first heard it on October 3, 1987, the day it was released as the lead-off single for the [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) album—mostly because of that last line.
 
 I was nineteen, and while I knew that line was significant, I had no idea what it meant. I obsessed over the paradox of it and turned it endlessly in my mind as I listened to the song over and over in those first few weeks.
 
@@ -32,7 +32,7 @@ The whispered words are probably innocuous: "I love you," most likely. Or maybe 
 
 And now the mystery deepens. What was she doing out there late at night? For that matter, what was *he* doing? Does the couple really share as much as they think they do?
 
-(Literary device note: did you catch the "edge of town" reference? It's a sly callback to "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," a way to imply impending darkness without literally stating it. Also, for all we know, the couple lives at the edge of town, but Bruce knows that the listener invests in the point-of-view character so that he becomes central, and therefore the edge of town is far away. All in all, a very slick trick: Bruce conveys a lot of information in that one line.)
+(Literary device note: did you catch the "edge of town" reference? It's a sly callback to "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," a way to imply impending darkness without literally stating it. Also, for all we know, the couple lives at the edge of town, but Bruce knows that the listener invests in the point-of-view character so that he becomes central, and therefore the edge of town is far away. All in all, a very slick trick: Bruce conveys a lot of information in that one line.)
 
 > *So tell me what I see when I look in your eyes*<br>
 > *Is that you baby or just a brilliant disguise*
@@ -120,7 +120,7 @@ If there's a live performance, I'd recommend, it'd be this one from 1990—the f
 
 **Brilliant Disguise**<br>
 **Recorded:** Early 1987<br>
-**Released:** [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)(1987), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
+**Released:** [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md)(1987), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
 **First Performed:** October 31, 1987 (Sea Bright, NJ)<br>
 **Last** **Performed:** November 22, 2024 (Vancouver, BC)<br>
 

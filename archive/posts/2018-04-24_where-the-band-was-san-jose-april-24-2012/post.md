@@ -16,7 +16,7 @@ Skip ahead if you must to about the 8:30 mark, where Bruce decides–as he often
 
 [Watch on Youtube: Thundercrack - Bruce Springsteen @ San Jose - 24th April 2012](https://www.youtube.com/watch?v=fdNM42qloIY)
 
-Setlist-wise, this wasn’t a remarkable show: it was the first show of the tour without any premieres, but there were some Reunion-era gems, including “[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md)” “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” and “American Skin (41 Shots),” which kept the intensity level high.
+Setlist-wise, this wasn’t a remarkable show: it was the first show of the tour without any premieres, but there were some Reunion-era gems, including “[Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md)” “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” and “American Skin (41 Shots),” which kept the intensity level high.
 
 I had a nice prime position in the pit for this show, and it proved to be a nice kick-off for my three-show California run. And if this show was lacking in surprises, the next two would certainly make up for it.
 

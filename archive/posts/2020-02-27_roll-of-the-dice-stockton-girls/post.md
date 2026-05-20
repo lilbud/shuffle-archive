@@ -52,7 +52,7 @@ Even the second verses are parallel, with the Stockton Boys leaving their wives 
 > *They come running down from the factory*<br>
 > *I love those Stockton girls*<br>
 
-Bruce never finished either song (that we know of), although he would develop a similar theme in "Out on the Street" and repurpose a couple of "Stockton Boys" lyrics for "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)."
+Bruce never finished either song (that we know of), although he would develop a similar theme in "Out on the Street" and repurpose a couple of "Stockton Boys" lyrics for "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)."
 
 In the end, both "Stockton Boys" and "Stockton Girls" are curiosities, signposts on the road to *The River*.
 

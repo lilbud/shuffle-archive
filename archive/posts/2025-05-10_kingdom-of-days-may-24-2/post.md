@@ -30,7 +30,7 @@ post_id: 56835
 
 **1983:** Bruce and the E Street Band work on "King's Highway" at The Hit Factory in New York City. It hasn't surfaced in any form to this day.<br>
 
-**1985:** Director John Sayles films background footage at Maxwell's in Hoboken, New Jersey, for Bruce's "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" video.<br>
+**1985:** Director John Sayles films background footage at Maxwell's in Hoboken, New Jersey, for Bruce's "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" video.<br>
 
 [Watch on Youtube: Bruce Springsteen - Glory Days (Official Video)](https://www.youtube.com/watch?v=6vQpW9XRiyM)
 

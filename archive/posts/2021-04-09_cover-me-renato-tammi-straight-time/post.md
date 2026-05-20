@@ -12,7 +12,7 @@ Full transparency: this is another plug for this year’s [*Cover Me* contest.](
 
 You know, the one I get to be on the [Critics Award Jury](../2021-04-01_cover-me-lorde-and-marlon-williams-tougher-than-the-rest/post.md) for. (Hey, I’ve never been asked to do anything like this before–I’m pretty excited about it!)
 
-Anyway, the quality winner from last year was Renato Tammi, whose cover of “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” is so eerily haunting that you’d think it hailed from *Nebraska* instead of *Born in the U.S.A,* if you didn’t know better.
+Anyway, the quality winner from last year was Renato Tammi, whose cover of “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)” is so eerily haunting that you’d think it hailed from *Nebraska* instead of *Born in the U.S.A,* if you didn’t know better.
 
 [Watch on Youtube: Dancing In The Dark (Bruce Springsteen cover) - Renato Tammi](https://www.youtube.com/watch?v=rLWOfmO9O1o)
 

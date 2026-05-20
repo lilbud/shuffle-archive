@@ -32,11 +32,11 @@ post_id: 61315
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/46628013495_ede92039e7_o.jpg.webp)
 
-**1987:** *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*reaches the Number 1 spot on the album charts in the U.S.<br>
+**1987:** *[Tunnel of Love](../1987-01-01_album-companion-tunnel-of-love/post.md)*reaches the Number 1 spot on the album charts in the U.S.<br>
 
 [Watch on Youtube: Tunnel of Love](https://www.youtube.com/playlist?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
 
-**2006:** Bruce premieres a new arrangement of "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" to open his Seeger Sessions show in Antwerp.<br>
+**2006:** Bruce premieres a new arrangement of "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)" to open his Seeger Sessions show in Antwerp.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Blinded by the Light" - Antwerp, 2006-11-07](https://www.youtube.com/watch?v=7VTKGHf6OqM)
 
@@ -76,6 +76,6 @@ post_id: 61315
 
 [Watch Video Highlight](https://videopress.com/embed/0OS8Z512)
 
-**2022:** Bruce makes his customary appearance at Stand Up For Heroes at David Geffen Hall in New York City. His four-song set features the public debut of "[House of a Thousand Guitars](../2021-04-23_roll-of-the-dice-house-of-a-thousand-guitars/post.md)."<br>
+**2022:** Bruce makes his customary appearance at Stand Up For Heroes at David Geffen Hall in New York City. His four-song set features the public debut of "[House of a Thousand Guitars](../2016-01-15_roll-of-the-dice-house-of-a-thousand-guitars/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Stand Up For Heroes 11-7-2022](https://www.youtube.com/watch?v=dTGMH1Z2Ctc)

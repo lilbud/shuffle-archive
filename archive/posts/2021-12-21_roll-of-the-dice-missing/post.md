@@ -32,7 +32,7 @@ Three days later, Sean Penn was in possession of a brand new Bruce Springsteen s
 
 The film bombed, earning back less than a million of its $9 million budget, and without a soundtrack album, that meant that a brand new Springsteen song came and went with almost zero notice.
 
-But almost zero is still something, and so to capitalize on what notice there was, Bruce released "Missing" as a single in April 1996, backed by a live version of "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" from his in-progress Ghost of Tom Joad Tour.
+But almost zero is still something, and so to capitalize on what notice there was, Bruce released "Missing" as a single in April 1996, backed by a live version of "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" from his in-progress Ghost of Tom Joad Tour.
 
 [Watch on Youtube: Missing (from 'The Crossing Guard' OST)](https://www.youtube.com/watch?v=G-YK-FZIK2o)
 
@@ -57,7 +57,7 @@ There's no doubt that Bruce consciously reworked his obscure 1994 single for his
 
 The latter song is clearly about the aftermath of a tragic death; Bruce conveys as much through his lyrics, his music, and the context of the album. "Missing" however, was composed long before the tragic events of September 2001, and the circumstances surrounding the titular missing character are far more ambiguous.
 
-Is the narrator's lover dead? Has she fled? Is she in trouble, or has she simply moved on? We never learn, but her departure hits our narrator as hard as the one that hits the protagonist in "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)." The comparison is especially apt considering the dream sequences that haunt both narrators:
+Is the narrator's lover dead? Has she fled? Is she in trouble, or has she simply moved on? We never learn, but her departure hits our narrator as hard as the one that hits the protagonist in "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)." The comparison is especially apt considering the dream sequences that haunt both narrators:
 
 > *Last night I dreamed the sky went black*<br>
 > *You were drifting down, couldn't get back*<br>

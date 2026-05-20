@@ -50,7 +50,7 @@ post_id: 61328
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1986-11-10.png.webp)
 
-**1992:** At World Tour 1992 Night Two at the Nassau Coliseum, Bruce and his new touring band play "[Cross My Heart](../2020-12-29_roll-of-the-dice-cross-my-heart/post.md)" in its only acoustic performance to date, and Billy Joel guests on "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
+**1992:** At World Tour 1992 Night Two at the Nassau Coliseum, Bruce and his new touring band play "[Cross My Heart](../2020-12-29_roll-of-the-dice-cross-my-heart/post.md)" in its only acoustic performance to date, and Billy Joel guests on "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - CROSS MY HEART (live 1992)](https://www.youtube.com/watch?v=ry54U4Fn5aM)
 
@@ -66,7 +66,7 @@ post_id: 61328
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/1998-11-10b.png.webp)
 
-**1999:** When Bruce and the E Street Band bring the Reunion Tour to Indianapolis, they're joined on stage by an audience member, who plays guitar on "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)." This is the first concert to be held at the new arena, and fans in attendance are not happy with the sound quality.<br>
+**1999:** When Bruce and the E Street Band bring the Reunion Tour to Indianapolis, they're joined on stage by an audience member, who plays guitar on "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)." This is the first concert to be held at the new arena, and fans in attendance are not happy with the sound quality.<br>
 
 [Watch on Youtube: Bruce Springsteen - On Stage with Springsteen 11-10-99, Conseco Fieldhouse, Indianapolis](https://www.youtube.com/watch?v=w72TyGyqHVY)
 

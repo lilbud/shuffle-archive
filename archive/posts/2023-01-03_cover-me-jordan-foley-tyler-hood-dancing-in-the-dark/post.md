@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/02/foley.jpg
 post_id: 25332
 ---
-Jordan Foley and Tyler Hood's new cover of "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" rockets immediately to the top tier of my favorite versions of this very, very, *very* oft-covered song.
+Jordan Foley and Tyler Hood's new cover of "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" rockets immediately to the top tier of my favorite versions of this very, very, *very* oft-covered song.
 
 Foley is a folk-Americana singer-songwriter based in Orlando, and we can clearly hear those influences in his impressive interpretation.
 

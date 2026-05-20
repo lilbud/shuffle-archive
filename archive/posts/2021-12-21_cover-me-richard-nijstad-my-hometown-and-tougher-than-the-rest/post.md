@@ -16,7 +16,7 @@ As a young boy in The Netherlands in the 1980s, Richard grew up to Bruce’s mus
 
 Today, Richard fronts his own band, Different Faces, an eighties cover band with a repertoire that includes a lot of Bruce’s songs.
 
-Why such a strong focus? Because like many of us, Richard found parallels to his own life in Bruce’s music. In particular, “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)” resonated because he remembers his stepfather letting him steer his car as young boy, and the lessons he learned from his stepfather he passed on to his own daughters.
+Why such a strong focus? Because like many of us, Richard found parallels to his own life in Bruce’s music. In particular, “[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)” resonated because he remembers his stepfather letting him steer his car as young boy, and the lessons he learned from his stepfather he passed on to his own daughters.
 
 In his tender cover of “My Hometown” below, we can feel Richard’s genuine connection to Bruce’s lyrics.
 

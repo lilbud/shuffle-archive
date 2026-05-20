@@ -34,7 +34,7 @@ If you've never listened to *The Ghost of Tom Joad* in a darkened room with over
 
 [Watch on Youtube: The Ghost of Tom Joad](https://www.youtube.com/watch?v=CumZ9dugKKU?list=OLAK5uy_kJWc11v4XUCaBVwStO3aZtEU58NmRDcD8)
 
-This is also one of Springsteen's most thematically cohesive albums. At the time of its release in 1995, only *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)* rivaled it for focus.
+This is also one of Springsteen's most thematically cohesive albums. At the time of its release in 1995, only *[Tunnel of Love](../1987-01-01_album-companion-tunnel-of-love/post.md)* rivaled it for focus.
 
 The most obvious comparisons, however, are to *Western Stars* in setting and *Nebraska* in tone. (Bruce admitted in his autobiography that in writing the album he picked up where *Nebraska* left off.)*The Ghost of Tom Joad* is a collection of sober, somber and lonely songs about disaffected and alienated characters in the American West.
 

@@ -89,7 +89,7 @@ Deep down, he knows his act of revenge isn't going to make things better. It's o
 
 So yes, "Lonesome Day" can certainly work in a 9/11 context if we focus on the emotion of the song and don't sweat every detail of the narrative. We can interpret the final verse as a plea for caution before retaliating and escalating and a warning to avoid betraying our own values in so doing.
 
-But to me, "Lonesome Day" has always felt like a relationship song rather than a political song, one that has more in common with [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) than the rest of *The Rising*.
+But to me, "Lonesome Day" has always felt like a relationship song rather than a political song, one that has more in common with [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) than the rest of *The Rising*.
 
 Nevertheless, "Lonesome Day" has become a set list staple for the modern-day E Street Band, appearing (often nightly) on every single tour since *The Rising.* From the beginning, fans knew what to do when Bruce played it, pumping their fists on every "It's alright" as if in some kind of rock and roll group therapy.
 

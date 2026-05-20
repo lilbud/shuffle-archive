@@ -12,7 +12,7 @@ post_id: 9986
 
 It's more accurate to say that "Book of Dreams" is a song about wedding eves than wedding days, but that's a nit not worth picking with the songwriter.
 
-What's more interesting to me is the presence of both "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" and "Book of Dreams" on the same album. The two songs are so very close in style, content and sentiment that one can almost imagine them as an exchange of wedding vows, the former from her to him, the latter from him to her.
+What's more interesting to me is the presence of both "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" and "Book of Dreams" on the same album. The two songs are so very close in style, content and sentiment that one can almost imagine them as an exchange of wedding vows, the former from her to him, the latter from him to her.
 
 Or perhaps they're both from the groom-to-be. "If I Should Fall Behind" sounds like it takes place a few days before the wedding; "Book of Dreams" is mere hours away.
 

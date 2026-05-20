@@ -56,7 +56,7 @@ post_id: 59693
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1994-09-20.jpg.webp)
 
-**1999:** Bruce and the reunited E Street Band play their third of six nights in Philadelphia on the Reunion Tour, where Bruce improvises a new verse for "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)."<br>
+**1999:** Bruce and the reunited E Street Band play their third of six nights in Philadelphia on the Reunion Tour, where Bruce improvises a new verse for "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/cbcMa6fr)
 
@@ -68,7 +68,7 @@ post_id: 59693
 
 [Watch on Youtube: Bruce Springsteen - Lonesome Day](https://www.youtube.com/watch?v=SAMkFVJ-ews)
 
-**2003:** Buffalo gets one of the best and certainly the most surprising shows from the Rising Tour stadium leg at the Darien Lake Performing Arts Center. Bruce opens with the tour premiere of "[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)" and debuts the as-yet-unreleased outtake, "[County Fair.](../2018-02-17_roll-of-the-dice-county-fair/post.md)" "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)" is also tour premiered, and "Leap of Faith" makes a return appearance. By now, it's apparent to all that Bruce is deliberately unearthing material he hasn't touched in years (if at all), and when his upcoming compilation album, *The Essential Bruce Springsteen* tracklist is announced, it becomes clear why.<br>
+**2003:** Buffalo gets one of the best and certainly the most surprising shows from the Rising Tour stadium leg at the Darien Lake Performing Arts Center. Bruce opens with the tour premiere of "[Tunnel of Love](../1987-01-07_roll-of-the-dice-tunnel-of-love/post.md/)" and debuts the as-yet-unreleased outtake, "[County Fair.](../1983-01-11_roll-of-the-dice-county-fair/post.md)" "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)" is also tour premiered, and "Leap of Faith" makes a return appearance. By now, it's apparent to all that Bruce is deliberately unearthing material he hasn't touched in years (if at all), and when his upcoming compilation album, *The Essential Bruce Springsteen* tracklist is announced, it becomes clear why.<br>
 
 [Watch on Youtube: Focus On: Federici (3-05) County Fair -- Darien Lake PAC - Buffalo, NY (9-20-2003)](https://www.youtube.com/watch?v=I21wWMXEvjw)
 
@@ -78,7 +78,7 @@ post_id: 59693
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2006-09-20.jpg.webp)
 
-**2009:** Bruce premieres a new concept, playing a full album start-to-finish in select shows. Kicking off at the United Center in Chicago, Bruce and the band play *Born to Run* in full, with Richard Davis and Curt Ramm as guest musicians. The encores are pretty great too, featuring tour premieres of "[Da Doo Ron Ron](../2019-01-02_matr-bruce-springsteen-and-darlene-love-da-doo-ron-ron/post.md)" and "[Rockin' Robin](../2021-08-10_cover-me-rockin-robin/post.md)," and a rare "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)." In the soundcheck, Bruce works on a new song to be debuted later in the month at Giants Stadium.<br>
+**2009:** Bruce premieres a new concept, playing a full album start-to-finish in select shows. Kicking off at the United Center in Chicago, Bruce and the band play *Born to Run* in full, with Richard Davis and Curt Ramm as guest musicians. The encores are pretty great too, featuring tour premieres of "[Da Doo Ron Ron](../2019-01-02_matr-bruce-springsteen-and-darlene-love-da-doo-ron-ron/post.md)" and "[Rockin' Robin](../2021-08-10_cover-me-rockin-robin/post.md)," and a rare "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)." In the soundcheck, Bruce works on a new song to be debuted later in the month at Giants Stadium.<br>
 
 [Watch on Youtube: Bruce Springsteen Wrecking Ball 2009-09-20 Chicago Soundcheck](https://www.youtube.com/watch?v=0Vk6rblSo_4)
 

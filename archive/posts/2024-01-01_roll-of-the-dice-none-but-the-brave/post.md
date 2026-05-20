@@ -24,7 +24,7 @@ Let's start with the unreleased outtake.
 
 [Watch on Youtube: Bruce Springsteen - "None But the Brave" original outtake](https://www.youtube.com/watch?v=syZB1xaNo0s)
 
-So let's just lay this out first and foremost: whichever version we're listening to, "None But the Brave" is magnificent. It's heartfelt and heartbreaking, and it captures the E Street Band sound at perhaps its most quintessential. Why in the world Bruce chose to leave it off of *Born in the U.S.A.* is beyond me. Perhaps he felt the central conceit of the song–the left-behind friend/lover singing to his gone-to-greener-pastures girl–was essentially the same one used for "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" on that album, but in my opinion "None But the Brave" is the superior song.
+So let's just lay this out first and foremost: whichever version we're listening to, "None But the Brave" is magnificent. It's heartfelt and heartbreaking, and it captures the E Street Band sound at perhaps its most quintessential. Why in the world Bruce chose to leave it off of *Born in the U.S.A.* is beyond me. Perhaps he felt the central conceit of the song–the left-behind friend/lover singing to his gone-to-greener-pastures girl–was essentially the same one used for "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" on that album, but in my opinion "None But the Brave" is the superior song.
 
 Its first verse and chorus establish the scene and the situation with Bruce's by-now trademark verbal economy:
 
@@ -91,7 +91,7 @@ And finally, he rages:
 
 And in that final line, we understand the one thing he does not–that even though he considers himself one of the brave, robbed of the freedom and life of which he dreamt, the bravery that life demands isn't the courage to dream but rather the strength, determination, and fortitude to make them real.
 
-"None But the Brave" is at heart a tragic song. "[Bobby Jean,](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" at least, features a hero at peace, even if his heart has a hole in it. The hero of "None But the Brave" is broken.
+"None But the Brave" is at heart a tragic song. "[Bobby Jean,](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" at least, features a hero at peace, even if his heart has a hole in it. The hero of "None But the Brave" is broken.
 
 So: that's the original version, recorded June 27, 1983.
 

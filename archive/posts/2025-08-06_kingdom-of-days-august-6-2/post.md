@@ -36,7 +36,7 @@ post_id: 57911
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1982-08-06b.png.webp)
 
-**1984:** At Night Two of ten at the Brendan Byrne Arena in East Rutherford on the Born in the U.S.A. Tour, "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" makes its tour debut, and "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" is played in its third arrangement of the tour. This one will stick, and this specific performance (along with "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)" from this show) will appear on the *Live 1975-85* box set. Additionally Bruce's performance of "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" from this show will be released the following year on the *We Are the World* album, as well as on *The Essential Bruce Springsteen* in 2003. The entire show is available as part of Bruce's official archive series–get it here.<br>
+**1984:** At Night Two of ten at the Brendan Byrne Arena in East Rutherford on the Born in the U.S.A. Tour, "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)" makes its tour debut, and "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" is played in its third arrangement of the tour. This one will stick, and this specific performance (along with "[Nebraska](../2018-04-16_roll-of-the-dice-nebraska/post.md)" from this show) will appear on the *Live 1975-85* box set. Additionally Bruce's performance of "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" from this show will be released the following year on the *We Are the World* album, as well as on *The Essential Bruce Springsteen* in 2003. The entire show is available as part of Bruce's official archive series–get it here.<br>
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band "Street Fighting Man" E. Rutherford, NJ 8/6/84](https://www.youtube.com/watch?v=QB3KnqP7ee4)
 
@@ -78,7 +78,7 @@ Also on this day, Entertainment Tonight airs a segment on Bruce's new *Rolling S
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2003-08-06.png.webp)
 
-**2005:** At his solo acoustic show at the Fox Theater in St. Louis, Bruce plays "[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md)" for only the second (and final) time to date. Another surprise: the very first solo piano version of "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)."<br>
+**2005:** At his solo acoustic show at the Fox Theater in St. Louis, Bruce plays "[County Fair](../1983-01-11_roll-of-the-dice-county-fair/post.md)" for only the second (and final) time to date. Another surprise: the very first solo piano version of "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen "County Fair" solo on Electric Piano; St. Louis, MO August 6, 2005](https://www.youtube.com/watch?v=pR8iJlVO-P0)
 

@@ -12,7 +12,7 @@ post_id: 34887
 
 This isn't the first time I've used that pull quote in a *Roll of the Dice* installment.
 
-It's not even the first time I've used it in a [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) essay. Long before Bruce opened up publicly in interviews about his lifelong struggles with depression, he was telling us about it through his work.
+It's not even the first time I've used it in a [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) essay. Long before Bruce opened up publicly in interviews about his lifelong struggles with depression, he was telling us about it through his work.
 
 With the possible exception of "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)," nowhere is that more evident than in "Two Faces."
 

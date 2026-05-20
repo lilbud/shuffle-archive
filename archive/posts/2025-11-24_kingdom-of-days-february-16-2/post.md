@@ -52,7 +52,7 @@ post_id: 55948
 
 [Watch Video Highlight](https://videopress.com/embed/BlkrjD6J)
 
-**2014:** Night Two in Melbourne on the High Hopes Tour features a full album performance of *Born to Run* and tour debuts of “[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md),” “[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md),” “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/),” [Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/),” and “[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md).” Curiously, no official recording is available of this show.<br>
+**2014:** Night Two in Melbourne on the High Hopes Tour features a full album performance of *Born to Run* and tour debuts of “[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md),” “[Roulette](../2022-04-16_roll-of-the-dice-roulette/post.md),” “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/),” [Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/),” and “[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md).” Curiously, no official recording is available of this show.<br>
 
 [Watch on Youtube: Bruce Springsteen - Lucky Town - Roulette -- Melbourne 16 February 2014](https://www.youtube.com/watch?v=CmsEn31SK_E)
 

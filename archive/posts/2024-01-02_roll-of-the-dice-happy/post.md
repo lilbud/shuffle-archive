@@ -16,7 +16,7 @@ It's true that such a late recording date would seem odd, given that by this tim
 
 But anyone who remembers their first dreamlike yet sleepless days as a new parent should recognize their fellow traveler in this song, because the official recording date for "Happy" anchors the song on Day 19 of Jessica Springsteen's life, making it highly like that Bruce wrote it on one of those first life-altered nights.
 
-"Happy" is a love song, certainly, but it's more about satisfaction than romance. Like "[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)" (with which it shares a lyric), "Happy" opens the door wide into the joy and peace that he's always drawn from his family–and perhaps something more, as well.
+"Happy" is a love song, certainly, but it's more about satisfaction than romance. Like "[Living Proof](../1992-02-08_roll-of-the-dice-living-proof/post.md)" (with which it shares a lyric), "Happy" opens the door wide into the joy and peace that he's always drawn from his family–and perhaps something more, as well.
 
 Let's take a listen.
 
@@ -35,7 +35,7 @@ The first verse of "Happy" leads us to expect a traditional love song–it sound
 > *Happy when I taste your kiss*<br>
 > *I'm happy in a love like this*<br>
 
-In fact, the words should seem very familiar to us, because the opening lines are drawn directly from "[My Beautiful Reward,](../2023-02-19_roll-of-the-dice-my-beautiful-reward/post.md)" but while the narrator in that song is restive and rueful, in "Happy," Bruce couldn't be more content.
+In fact, the words should seem very familiar to us, because the opening lines are drawn directly from "[My Beautiful Reward,](../1992-02-11_roll-of-the-dice-my-beautiful-reward/post.md)" but while the narrator in that song is restive and rueful, in "Happy," Bruce couldn't be more content.
 
 And in the second verse, we realize why:
 
@@ -54,7 +54,7 @@ There's a lot of meaning packed into this one verse. On the surface, it's still 
 
 We also, in retrospect, find surprisingly direct reference to Bruce's depression. At the time of its release in 1998, we probably assumed the "darkness" to be a callback to Bruce's work two decades prior. Perhaps it was–Bruce has been known to revisit characters down the road. But more likely, it's an intimate glimpse into the salvation that Patti has provided him–something that Bruce has only in recent years begun to directly discuss.
 
-The ethereal melody of "Happy" hints that the darkness may only temporarily be at bay, that it's always lying in wait to reclaim him. Only the bridge takes flight before returning to a final verse, but even there Bruce echoes "[If I Should Fall Behind,](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" making it clear that he knows what this world can do.
+The ethereal melody of "Happy" hints that the darkness may only temporarily be at bay, that it's always lying in wait to reclaim him. Only the bridge takes flight before returning to a final verse, but even there Bruce echoes "[If I Should Fall Behind,](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" making it clear that he knows what this world can do.
 
 > *In a world of doubt and fear*<br>
 > *I wake at night and reach to find you near*<br>
@@ -72,7 +72,7 @@ The ethereal melody of "Happy" hints that the darkness may only temporarily be a
 > *Happy in each other's kiss*<br>
 > *I'm happy in a love like this*<br>
 
-There's one last turn of phrase that's worth noting here. The notion of shedding one's skin shows up not only here, but also in "[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)" (recorded in late 1991) and "[Trouble River](../2019-03-05_roll-of-the-dice-trouble-river/post.md)" (record in early 1990)–suggesting that during this post-E Street, early marriage and family period, Bruce was focused on finding and remaking himself, leaving behind the persona that had come to define him and embracing new roles as husband and father to people he knew would truly see and know him.
+There's one last turn of phrase that's worth noting here. The notion of shedding one's skin shows up not only here, but also in "[Living Proof](../1992-02-08_roll-of-the-dice-living-proof/post.md)" (recorded in late 1991) and "[Trouble River](../2019-03-05_roll-of-the-dice-trouble-river/post.md)" (record in early 1990)–suggesting that during this post-E Street, early marriage and family period, Bruce was focused on finding and remaking himself, leaving behind the persona that had come to define him and embracing new roles as husband and father to people he knew would truly see and know him.
 
 And the notion to "slip these bars" echoes the open cage from "Living Proof" with no keys, no guards, just shadows for bars–another example of how trapped in himself he must have felt by the late eighties, and how relieved he must have been to have found himself in his new and growing family.
 

@@ -60,7 +60,7 @@ post_id: 61049
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/2005-10-06.jpg.webp)
 
-**2007:** It may be early in the Magic Tour, but Philadelphia still gets its special show when Bruce tour premieres "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)," "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" on Night Two. (It's hard to believe that "Dancing" was ever gone!) Also premiering at this show: a full-band arrangement of "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)."<br>
+**2007:** It may be early in the Magic Tour, but Philadelphia still gets its special show when Bruce tour premieres "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)," "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" and "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" on Night Two. (It's hard to believe that "Dancing" was ever gone!) Also premiering at this show: a full-band arrangement of "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Radio Nowhere 2007](https://www.youtube.com/watch?v=8WuOoMztbz4)
 

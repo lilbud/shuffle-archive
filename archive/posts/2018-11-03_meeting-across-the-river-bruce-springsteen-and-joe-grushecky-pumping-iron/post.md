@@ -8,7 +8,7 @@ categories: cover-me meeting-across-the-river
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/11/pumping.jpg
 post_id: 5413
 ---
-In 1980, Joe Grushecky's band, the Iron City Houserockers, were recording their second album, [*Have a Good Time But Get Out Alive*](../2020-05-22_have-a-good-time-but-get-out-alive/post.md).
+In 1980, Joe Grushecky's band, the Iron City Houserockers, were recording their second album, [*Have a Good Time But Get Out Alive*](../1988-04-25_have-a-good-time-but-get-out-alive/post.md).
 
 Steve Van Zandt produced and arranged five of the songs on that album (and played guitar on one), all while still working in the studio with the E Street Band on *The River.* One night, Steve invited Joe to tag along and introduced him to Bruce. That, as they say, was the beginning of a long and beautiful friendship.
 

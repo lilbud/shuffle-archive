@@ -54,7 +54,7 @@ post_id: 59682
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1996-09-18.jpg.webp)
 
-**2003:** Another great show on Night Two in Hartford, with Bruce opening his Rising Show with the first-ever E Street Band performance of "[Souls of the Departed](../2019-03-19_roll-of-the-dice-souls-of-the-departed/post.md)," the tour premiere of "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)," and a solo piano "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)."<br>
+**2003:** Another great show on Night Two in Hartford, with Bruce opening his Rising Show with the first-ever E Street Band performance of "[Souls of the Departed](../1992-02-10_roll-of-the-dice-souls-of-the-departed/post.md)," the tour premiere of "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)," and a solo piano "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/I9toXviI)
 

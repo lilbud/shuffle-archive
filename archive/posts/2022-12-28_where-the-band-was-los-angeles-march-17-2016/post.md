@@ -20,7 +20,7 @@ Bruce was visibly moved tonight. The performances and setlist were more sentime[
 
 [Watch Video Highlight](https://videopress.com/embed/8qQpcwpC)
 
-This was the first Night Two of the tour, and as predicted, the setlist started to open up. Typically, the show only varies 2 or 3 songs per night, because so much of the show is taken up by the River album. This night, however, featured five songs not heard on Night 1, two of which were tour premieres: “[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)” and “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md).”
+This was the first Night Two of the tour, and as predicted, the setlist started to open up. Typically, the show only varies 2 or 3 songs per night, because so much of the show is taken up by the River album. This night, however, featured five songs not heard on Night 1, two of which were tour premieres: “[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md)” and “[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md).”
 
 [Watch on Youtube: Bruce Springsteen - 2016 - Los Angeles - Death To My Hometown - HQ Audio](https://www.youtube.com/watch?v=crTZal-lFE4)
 

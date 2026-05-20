@@ -42,7 +42,7 @@ That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Cent
 
 [Watch on Youtube: Crush on You](https://www.youtube.com/watch?v=zDN8pvyKYkU)
 
-**1980:** At Night Two at Chicago's Uptown Theater on the River Tour, Bruce tour premieres "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" and "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)," and "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" features a new introduction (actually an older unreleased song) called "[Here She Comes Walkin'](../2020-09-24_roll-of-the-dice-here-she-comes-walkin/post.md)." Bruce will resurrect this introduction more than 35 years later on the River Tour's sequel.<br>
+**1980:** At Night Two at Chicago's Uptown Theater on the River Tour, Bruce tour premieres "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)" and "[Good Rockin' Tonight](../2020-09-17_cover-me-good-rockin-tonight/post.md)," and "[I Wanna Marry You](../2022-04-22_roll-of-the-dice-i-wanna-marry-you/post.md)" features a new introduction (actually an older unreleased song) called "[Here She Comes Walkin'](../2020-09-24_roll-of-the-dice-here-she-comes-walkin/post.md)." Bruce will resurrect this introduction more than 35 years later on the River Tour's sequel.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/rrBFWpm2)
 
@@ -58,7 +58,7 @@ That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Cent
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2004-10-11.jpg.webp)
 
-**2017:** One final tweak during the last preview performance of *Springsteen on Broadway:* "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" return to their original sequence.<br>
+**2017:** One final tweak during the last preview performance of *Springsteen on Broadway:* "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)" return to their original sequence.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8HmDEFpr)
 

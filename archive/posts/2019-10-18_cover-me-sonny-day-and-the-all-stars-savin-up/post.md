@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/10/Sonny_Day_and_th_564a8e09016d2.jpg
 post_id: 13441
 ---
-It’s obscure covers week here on the Shuffle. First, we had “[The Angel](../2020-09-26_roll-of-the-dice-the-angel/post.md)” by [The Blue Bonnets](../2019-10-14_cover-me-the-blue-bonnets-the-angel/post.md), but at least Bruce officially released that song. Today’s entry can’t even claim that.
+It’s obscure covers week here on the Shuffle. First, we had “[The Angel](../2011-01-06_roll-of-the-dice-the-angel/post.md)” by [The Blue Bonnets](../2019-10-14_cover-me-the-blue-bonnets-the-angel/post.md), but at least Bruce officially released that song. Today’s entry can’t even claim that.
 
 If you don’t hail from New Zealand, perhaps you’re not familiar with the late, great Sonny Day. (I wasn’t until this song.)
 

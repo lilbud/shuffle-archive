@@ -16,6 +16,6 @@ Melissa's solo albums are well worth seeking out, particularly her 2004 sophomor
 
 [Watch on Youtube: Factory](https://www.youtube.com/watch?v=wt0gbX2hTVk)
 
-Arranged as a crunchy "[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)"-esque work stomp, Melissa pulls off a tough feat–capturing the song's original tone while hardening it into a true rocker.
+Arranged as a crunchy "[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md)"-esque work stomp, Melissa pulls off a tough feat–capturing the song's original tone while hardening it into a true rocker.
 
 Enjoy the day off if you have it, and send thanks to those who don't. Our essential workers are what today's all about.

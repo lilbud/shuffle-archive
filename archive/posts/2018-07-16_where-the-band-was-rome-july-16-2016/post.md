@@ -30,7 +30,7 @@ For the next twelve minutes, I was completely rapt. And when the strings kicked 
 
 There were other highlights during the evening, to be sure. But this was the biggest of the biggest. (And yes, we were all waving paper hearts for Bruce–fans coordinated and distributed them, and Bruce was noticeably moved by them from the moment he walked out on stage.)
 
-When the band ripped into "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" after bidding goodbye to the strings, I was jolted back to reality–i'd almost forgotten there was an entire show still to come! Three songs in, Bruce took his first request of the evening: a couldn't-be-more-appropriate "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)," and both the band and the crowd were off to the races:
+When the band ripped into "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" after bidding goodbye to the strings, I was jolted back to reality–i'd almost forgotten there was an entire show still to come! Three songs in, Bruce took his first request of the evening: a couldn't-be-more-appropriate "[Summertime Blues](../2020-01-02_cover-me-summertime-blues/post.md)," and both the band and the crowd were off to the races:
 
 [Watch on Youtube: Bruce Springsteen - Summer Time Blues](https://www.youtube.com/watch?v=_Gp1O7VJEaE)
 

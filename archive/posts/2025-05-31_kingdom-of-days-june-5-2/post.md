@@ -40,7 +40,7 @@ post_id: 56997
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1981-06-05.jpg.webp)
 
-**1985:** Night Two at St. James Park in Newcastle on the Born in the U.S.A. Tour features the European debuts of "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" and "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)."<br>
+**1985:** Night Two at St. James Park in Newcastle on the Born in the U.S.A. Tour features the European debuts of "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)" and "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/KLnISPhf)
 
@@ -66,7 +66,7 @@ post_id: 56997
 
 [Watch on Youtube: Zaragoza 05/06/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zDNk3-1NLB5Ele9zP7rXXd5)
 
-**2006:** Bruce and the Sessions Band appear on *The Tonight Show with Jay Leno.* Later that night (the Tonight Show tapes during the day), the band plays a show at the Greek Theater in L.A., where Roy Bittan guest-stars on "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)." Two videos of "[How Can a Poor Man Stand Such Times and Live](../2021-12-08_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" below, both pro-shot–one from the Tonight Show and one from the concert.<br>
+**2006:** Bruce and the Sessions Band appear on *The Tonight Show with Jay Leno.* Later that night (the Tonight Show tapes during the day), the band plays a show at the Greek Theater in L.A., where Roy Bittan guest-stars on "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)." Two videos of "[How Can a Poor Man Stand Such Times and Live](../2006-01-17_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" below, both pro-shot–one from the Tonight Show and one from the concert.<br>
 
 [Watch on Youtube: Bruce Springsteen: How Can a Poor Man Stand Such Times and Live 6/5/06](https://www.youtube.com/watch?v=WOGGDRwy8zs)
 
@@ -102,6 +102,6 @@ post_id: 56997
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2022:** Bruce makes a surprise guest appearance with Coldplay at MetLife Stadium in East Rutherford, duetting with Chris Martin on "[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md)" and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
+**2022:** Bruce makes a surprise guest appearance with Coldplay at MetLife Stadium in East Rutherford, duetting with Chris Martin on "[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md)" and "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
 
 [Watch on Youtube: "Working on a Dream & Dancing in the Dark" Coldplay & Bruce Springsteen@New York 6/5/22](https://www.youtube.com/watch?v=W6w3xLqR_Os)

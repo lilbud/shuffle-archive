@@ -32,11 +32,11 @@ post_id: 57515
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/1978-0629.jpg.webp)
 
-**1983:** Bruce and the E Street Band record "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" at The Hit Factory in New York City.<br>
+**1983:** Bruce and the E Street Band record "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" at The Hit Factory in New York City.<br>
 
 [Watch on Youtube: My Hometown](https://www.youtube.com/watch?v=KrGi8ODOWR0)
 
-**1984:** A big, big night for Bruce Springsteen and the E Street Band: The Born in the U.S.A. Tour kicks off at the St. Paul Civic Center Arena, with Nils and Patti making their official debuts as full-fledged members of the band. Film director Brian De Palma is on hand to film Bruce's performance (twice!) of "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" for the now classic music video, and fan [Sandi Pederson is front and center](../2019-06-28_where-the-band-was-st-paul-june-28-1984/post.md). This is also Courtney Cox's debut–as most people know, she's the "lucky fan" pulled out of the audience to dance with Bruce on-stage.<br>
+**1984:** A big, big night for Bruce Springsteen and the E Street Band: The Born in the U.S.A. Tour kicks off at the St. Paul Civic Center Arena, with Nils and Patti making their official debuts as full-fledged members of the band. Film director Brian De Palma is on hand to film Bruce's performance (twice!) of "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" for the now classic music video, and fan [Sandi Pederson is front and center](../2019-06-28_where-the-band-was-st-paul-june-28-1984/post.md). This is also Courtney Cox's debut–as most people know, she's the "lucky fan" pulled out of the audience to dance with Bruce on-stage.<br>
 
 Watch footage from the video premiere below, and then listen to a never-before-circulated soundboard recording of Bruce's first-ever public concert performance of "Dancing in the Dark." (Sorry about those drum machines...)
 
@@ -48,7 +48,7 @@ Watch footage from the video premiere below, and then listen to a never-before-c
 
 [Watch on Youtube: St Paul 29/06/1984](https://www.youtube.com/playlist?list=PLJTyL9twk3zAEeAs19HVKihUHhbpsNF26)
 
-In the setlist, a couple of notable moments: Bruce covers "[Street Fighting Man](../1976-01-17_cover-me-street-fighting-man/post.md/)" for the first time, and "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" makes its debut as well, the latter song in a short-lived arrangement with an extended instrumental ending and a new final verse.
+In the setlist, a couple of notable moments: Bruce covers "[Street Fighting Man](../1976-01-17_cover-me-street-fighting-man/post.md/)" for the first time, and "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" makes its debut as well, the latter song in a short-lived arrangement with an extended instrumental ending and a new final verse.
 
 [Watch on Youtube: Bruce Springsteen - No Surrender (Live 1984)](https://www.youtube.com/watch?v=_VQiGVKbLok)
 
@@ -70,7 +70,7 @@ In the setlist, a couple of notable moments: Bruce covers "[Street Fighting Man]
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Herald_News_1985_07_01_10.jpg.webp)
 
-Meanwhile, "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)," Bruce's latest single, climbs the charts and is profiled on *American Top 40*.
+Meanwhile, "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)," Bruce's latest single, climbs the charts and is profiled on *American Top 40*.
 
 [Watch Video Highlight](https://videopress.com/embed/bjCt8eEl)
 
@@ -88,7 +88,7 @@ Meanwhile, "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)," Br
 
 [Watch on Youtube: Seven Angels (Studio Outtake - 1990)](https://www.youtube.com/watch?v=SWUXK4D7F-E)
 
-**1992:** Bruce and his new touring band bring World Tour 1992 to Paris for the first of two nights at Palais Omnisports de Paris-Bercy, where Bruce reveals that "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" and "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" share a common character.<br>
+**1992:** Bruce and his new touring band bring World Tour 1992 to Paris for the first of two nights at Palais Omnisports de Paris-Bercy, where Bruce reveals that "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" and "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" share a common character.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/3NLub5G0)
 

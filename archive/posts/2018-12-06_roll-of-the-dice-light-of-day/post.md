@@ -71,7 +71,7 @@ It remains a mystery to me how that performance of "Light of Day" could have bee
 
 That's especially surprising considering the band actually did record the song in the studio, on May 25, 1983, during the *Born in the U.S.A.* sessions. What happened next is tangled, so follow along:
 
-Film auteur Paul Schrader wrote a movie screenplay in 1981 called *Born in the U.S.A.* and asked Bruce to write a song for it. Bruce declined, but something about the title of the screenplay obviously stuck with him–and inspired him to transform his work-in-progress song "[Vietnam](../2019-08-31_roll-of-the-dice-vietnam/post.md)" into what we came to know as the title track for his most successful album.
+Film auteur Paul Schrader wrote a movie screenplay in 1981 called *Born in the U.S.A.* and asked Bruce to write a song for it. Bruce declined, but something about the title of the screenplay obviously stuck with him–and inspired him to transform his work-in-progress song "[Vietnam](../1984-01-02_roll-of-the-dice-vietnam/post.md)" into what we came to know as the title track for his most successful album.
 
 Meanwhile, Schrader hadn't actually got around to making his movie. When he was ready to do so in 1985, his original title of "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" was no longer available due to the mega-blockbuster status of the song he inspired. Bruce must have felt a little guilty about that, so he offered Schrader an outtake that didn't make the album: "Just Around the Corner to the Light of Day." Schrader dug it, accepted it, and changed and shortened the title of the movie to match the song (Bruce shortened the song title as well), bringing us full circle.
 

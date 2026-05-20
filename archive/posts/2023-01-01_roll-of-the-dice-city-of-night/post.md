@@ -33,7 +33,7 @@ There's not a lot in "City of Night" that asks for analysis, but there are a cou
 
 First, there's the title itself, another in a long, *long* list of Springsteen songs inspired by potboilers and film noir. This one takes its name from John Rechy's 1963 novel (famously namechecked by The Doors in "L.A. Woman") .
 
-Then there's that lyric: "Some people wanna die young and gloriously." That line will resurface a decade later in "[All That Heaven Will Allow](../2022-08-05_roll-of-the-dice-all-that-heaven-will-allow/post.md)" (another borrowed title). Although we're used to hearing Bruce's lyrics pop up in other songs, at first listen "City of Night" and "All That Heaven Will Allow" couldn't seem more dissimilar. We might change our mind on repeat listen, however: both narrators are walking on air with only love on their minds.
+Then there's that lyric: "Some people wanna die young and gloriously." That line will resurface a decade later in "[All That Heaven Will Allow](../1987-01-03_roll-of-the-dice-all-that-heaven-will-allow/post.md)" (another borrowed title). Although we're used to hearing Bruce's lyrics pop up in other songs, at first listen "City of Night" and "All That Heaven Will Allow" couldn't seem more dissimilar. We might change our mind on repeat listen, however: both narrators are walking on air with only love on their minds.
 
 > *I don't believe what I see in this street*<br>
 > *I don't know how people they can take the heat*<br>

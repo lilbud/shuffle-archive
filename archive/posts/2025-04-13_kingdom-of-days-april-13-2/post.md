@@ -50,7 +50,7 @@ post_id: 56452
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/04/Daily_Record_Tue__Apr_16__1985_-scaled.jpg.webp)
 
-Also today: *American Top 40* guest host Chuck Britton introduces Bruce's current hit "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" with a story about his fascination with Elvis Presley.
+Also today: *American Top 40* guest host Chuck Britton introduces Bruce's current hit "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" with a story about his fascination with Elvis Presley.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3)
 
@@ -82,7 +82,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce's curren
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.<br>
 
-**2006:** At Asbury Park's Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour. Their rehearsal performance of "[How Can a Poor Man Stand Such Times and Live?](../2021-12-08_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" will be released on the *American Land Edition* of *[We Shall Overcome: The Seeger Sessions](../2022-07-17_album-companion-we-shall-overcome/post.md)*.<br>
+**2006:** At Asbury Park's Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour. Their rehearsal performance of "[How Can a Poor Man Stand Such Times and Live?](../2006-01-17_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)" will be released on the *American Land Edition* of *[We Shall Overcome: The Seeger Sessions](../2022-07-17_album-companion-we-shall-overcome/post.md)*.<br>
 
 [Watch on Youtube: How Can a Poor Man Stand Such Times and Live](https://www.youtube.com/watch?v=ibbOhr8t5pQ)
 
@@ -92,7 +92,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce's curren
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2008-04-13.jpg.webp)
 
-**2012:** The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to "[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)" and plays "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" in honor of Max's birthday in the encores. Tour premiering tonight: "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)," "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)," and "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)."<br>
+**2012:** The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to "[Buffalo Gals](../2006-01-15_cover-me-roll-of-the-dice-buffalo-gals/post.md)" and plays "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" in honor of Max's birthday in the encores. Tour premiering tonight: "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)," "[Mountain of Love](../2022-09-21_cover-me-mountain-of-love/post.md)," and "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Mountain of Love - Live from Buffalo (04/13/2012)](https://www.youtube.com/watch?v=WxyT7i0L4MQ)
 

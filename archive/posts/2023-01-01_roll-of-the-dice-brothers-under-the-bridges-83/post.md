@@ -24,7 +24,7 @@ Let's take a listen:
 
 [Watch on Youtube: Brothers Under The Bridges ('83) (Studio Outtake - 1983)](https://www.youtube.com/watch?v=dthkGZiL1gA)
 
-You probably heard echoes of "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" in the "li li li" chorus, and the lyrics have the same wistful yearning of youth for independence. That's probably not an accident. "Brothers Under the Bridges" was recorded between mid-September and early October of 1983; "No Surrender" was recorded just before Halloween.
+You probably heard echoes of "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" in the "li li li" chorus, and the lyrics have the same wistful yearning of youth for independence. That's probably not an accident. "Brothers Under the Bridges" was recorded between mid-September and early October of 1983; "No Surrender" was recorded just before Halloween.
 
 Some have speculated that "Brothers Under the Bridges" should be considered an early prototype of "No Surrender," but I don't subscribe to that theory. Bruce has often worked on similar songs in parallel–sometimes instead of choosing between two paths for a song, he chooses both. I think this is one of those instances. Still, it wouldn't have made sense to put both songs on the album, and it's hard to argue that Bruce didn't make the right choice.
 

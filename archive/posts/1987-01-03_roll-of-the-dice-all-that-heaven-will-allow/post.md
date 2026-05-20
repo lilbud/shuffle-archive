@@ -22,7 +22,7 @@ I won't spoil the rest for you, in case you haven't seen it. Let's just say it's
 
 Bruce is notorious for borrowing film titles for his songs, but rarely do the songs fit their namesakes as snugly as "All That Heaven Will Allow." (Bruce slightly retitled for flow.)
 
-"All That Heaven Will Allow" is one of the brighter songs on [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)–perhaps the brightest. It's a poppy, treacly, light-on-its-feet smile of a song that defies any attempts at analysis by dint of its unabashed newly-in-love lyrics.
+"All That Heaven Will Allow" is one of the brighter songs on [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md)–perhaps the brightest. It's a poppy, treacly, light-on-its-feet smile of a song that defies any attempts at analysis by dint of its unabashed newly-in-love lyrics.
 
 If we pay attention though, Bruce gives us just enough context clues to establish that the link to Sirk's 1955 film is more than just titular.
 

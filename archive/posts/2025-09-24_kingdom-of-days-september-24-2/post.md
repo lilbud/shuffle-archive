@@ -58,7 +58,7 @@ On television, NBC's youth-oriented *Main Street* series profiles Bruce.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1996-09-24.jpg.webp)
 
-**1999:** One of the best shows of the Reunion Tour (we need an official release of this one!) takes place at the Philadelphia Spectrum the day after Bruce turns 50, and the birthday theme is established from the get-go: Bruce opens the show with a cassette recording of a special birthday song recorded by his mom's next-door neighbor, followed immediately by the tour premiere of "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)." It's definitely an old-school night, with the band playing "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)" for the first time since the Darkness Tour and a show-closing "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" for the first time since the Chicken Scratch Tour of 1976. "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" makes its tour debut as well. This show was rescheduled due to inclement weather from a week prior, and the audience lucked out as a result.<br>
+**1999:** One of the best shows of the Reunion Tour (we need an official release of this one!) takes place at the Philadelphia Spectrum the day after Bruce turns 50, and the birthday theme is established from the get-go: Bruce opens the show with a cassette recording of a special birthday song recorded by his mom's next-door neighbor, followed immediately by the tour premiere of "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)." It's definitely an old-school night, with the band playing "[The Fever](../2020-10-04_roll-of-the-dice-the-fever/post.md)" for the first time since the Darkness Tour and a show-closing "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)" for the first time since the Chicken Scratch Tour of 1976. "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)" makes its tour debut as well. This show was rescheduled due to inclement weather from a week prior, and the audience lucked out as a result.<br>
 
 [Watch on Youtube: Bruce Springsteen- Spirit in the Night- 9/24/1999](https://www.youtube.com/watch?v=8zHCQDYRuQA)
 
@@ -80,7 +80,7 @@ Earlier in the day, *Kindred Spirits: A Tribute to the Songs of Johnny Cash* is 
 
 [Watch on Youtube: Give My Love To Rose](https://www.youtube.com/watch?v=APIuWzCKwto)
 
-**2007:** Bruce and the E Street Band prepare to launch the Magic Tour, but first they hold a couple of rehearsal shows at Asbury Park's Convention Hall. Tonight's show is the first one, and therefore many *Magic* tracks make their live premiere. The E Street Band also tackles "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" for the first time in 33 years, and "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" and "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" for the first time ever. "[Empty Sky](../2022-09-12_roll-of-the-dice-empty-sky/post.md)" is played in a one-time-only full-band arrangement.<br>
+**2007:** Bruce and the E Street Band prepare to launch the Magic Tour, but first they hold a couple of rehearsal shows at Asbury Park's Convention Hall. Tonight's show is the first one, and therefore many *Magic* tracks make their live premiere. The E Street Band also tackles "[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md)" for the first time in 33 years, and "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" and "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" for the first time ever. "[Empty Sky](../2022-09-12_roll-of-the-dice-empty-sky/post.md)" is played in a one-time-only full-band arrangement.<br>
 
 [Watch on Youtube: Bruce Springsteen - full-band "Empty Sky," Asbury Park, 2007-09-24](https://www.youtube.com/watch?v=fGlr7CItD68)
 
@@ -94,7 +94,7 @@ Earlier in the day, *Kindred Spirits: A Tribute to the Songs of Johnny Cash* is 
 
 [Watch on Youtube: Bruce Springsteen: The Album Collection - The Thrill Hill Sessions (Digital video- with...](https://www.youtube.com/watch?v=3evNvtbgojk)
 
-**2020:** Bruce releases "[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)," the second single from his upcoming *Letter to You* album, and AARP publishes a video featurette on the project to their YouTube channel.<br>
+**2020:** Bruce releases "[Ghosts](../2017-01-11_roll-of-the-dice-ghosts/post.md)," the second single from his upcoming *Letter to You* album, and AARP publishes a video featurette on the project to their YouTube channel.<br>
 
 [Watch on Youtube: Bruce Springsteen - Ghosts (Lyric Video)](https://www.youtube.com/watch?v=Lo5QNcFioZ4)
 

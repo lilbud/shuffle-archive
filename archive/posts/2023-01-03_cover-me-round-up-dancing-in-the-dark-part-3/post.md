@@ -10,7 +10,7 @@ post_id: 31272
 ---
 Welcome to a new installment of *Cover Me Round-Up!*
 
-Today's curated collection is my favorite one to date. When it comes to "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" covers, you might think you've heard them all–after all, we've featured *thirty-eight* different renditions here on the Shuffle over the past four years.
+Today's curated collection is my favorite one to date. When it comes to "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" covers, you might think you've heard them all–after all, we've featured *thirty-eight* different renditions here on the Shuffle over the past four years.
 
 But Bruce's most popular song ever continues to inspire artists old and new, and each of today's stellar entries features a fresh arrangement, stellar production values, and a terrific performance. No matter your musical tastes, you're bound to find at least one version below that speaks to you and shines a new light on "Dancing in the Dark."
 

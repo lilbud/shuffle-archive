@@ -57,7 +57,7 @@ There's a sense of fatalism at work throughout "Independence Day," established i
 > *But they can't touch me now and you can't touch me now*<br>
 > *They ain't gonna do to me what I watched them do to you*<br>
 
-In fact, at least in lyrics we hear echoes of the [opening](../2019-05-20_roll-of-the-dice-badlands/post.md) and [closing](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md) tracks of *Darkness on the Edge of Town*, but whereas those tracks are self-centered anthems of actualization, the narrator of "Independence Day" is more focused on what he's leaving behind than on where he's going.
+In fact, at least in lyrics we hear echoes of the [opening](../2016-01-20_roll-of-the-dice-badlands/post.md) and [closing](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md) tracks of *Darkness on the Edge of Town*, but whereas those tracks are self-centered anthems of actualization, the narrator of "Independence Day" is more focused on what he's leaving behind than on where he's going.
 
 We never get a hint of what's drawing him away from home–there's no dream, no mission, no job, no girl. He's running away, not toward–something Bruce makes explicit in the second chorus. And what he's running from is an existential threat: if he doesn't leave now, he'll end up defeated and broken like his father, consigned to a "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" life.
 

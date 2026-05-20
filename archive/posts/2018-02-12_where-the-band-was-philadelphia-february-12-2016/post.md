@@ -32,9 +32,9 @@ Bruce fixed that by launching into “[Prove It All Night](../2020-10-24_roll-of
 
 [Watch on Youtube: My Love will not Let You Down - Springsteen - Philadelphia Feb 12, 2016](https://www.youtube.com/watch?v=p4NBXN0hlRA)
 
-It was the joyous release we all needed, and the show barreled through the rest of the set: a welcome “[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)” (such a fitting song in Philadelphia), the welcome return of “Jungleland,” (which hadn’t yet been played on this tour), and only the second time I’ve ever heard “[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)” live.
+It was the joyous release we all needed, and the show barreled through the rest of the set: a welcome “[Wrecking Ball](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md)” (such a fitting song in Philadelphia), the welcome return of “Jungleland,” (which hadn’t yet been played on this tour), and only the second time I’ve ever heard “[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)” live.
 
-The encores may not have held any setlist curveballs, but this was still Philadelphia, so it shouldn’t have been a surprise when “Philly Elvis” (who I’d met in the pit line at [the 2009 show](../2018-10-19_where-the-band-was-philadelphia-october-19-2009/post.md) where he made his first on-stage appearance) took the stage during “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).”
+The encores may not have held any setlist curveballs, but this was still Philadelphia, so it shouldn’t have been a surprise when “Philly Elvis” (who I’d met in the pit line at [the 2009 show](../2018-10-19_where-the-band-was-philadelphia-october-19-2009/post.md) where he made his first on-stage appearance) took the stage during “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md).”
 
 [Watch on Youtube: Dancing in the Dark - Springsteen - Philadelphia Feb 12, 2016](https://www.youtube.com/watch?v=l4FyCboEoiw)
 

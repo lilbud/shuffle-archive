@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/06/mad-hatter.jpg
 post_id: 18719
 ---
-"[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" has been enjoying a bit of a renaissance these past couple of years.
+"[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" has been enjoying a bit of a renaissance these past couple of years.
 
 Once largely dismissed as a very eighties pop hit (which in fairness, it was), it seems that artists from all sorts of places and genres have lately dialed into the cry of loneliness and need for connection that lurks at the heart of Bruce's greatest hit.
 

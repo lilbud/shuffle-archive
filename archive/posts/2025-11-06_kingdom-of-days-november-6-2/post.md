@@ -46,7 +46,7 @@ post_id: 61285
 
 [Watch on Youtube: Bruce Springsteen, "Spirit in the Night" - Toronto, 1992-11-06](https://www.youtube.com/watch?v=lwaQu6w9mWE)
 
-**1999:** Bruce plays his first-ever show in North Dakota, where "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" makes its U.S. Reunion Tour premiere.<br>
+**1999:** Bruce plays his first-ever show in North Dakota, where "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" makes its U.S. Reunion Tour premiere.<br>
 
 [Watch on Youtube: Bruce Springsteen - "My Hometown" Fargo, 1999-11-06](https://www.youtube.com/watch?v=mm3dke6edD4)
 
@@ -76,7 +76,7 @@ post_id: 61285
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2004-11-06.png.webp)
 
-**2006:** The Seeger Sessions Tour arrives in Cologne, where Wolfgang Niedecken joins in the customary guest-star slot on "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
+**2006:** The Seeger Sessions Tour arrives in Cologne, where Wolfgang Niedecken joins in the customary guest-star slot on "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/cBIpRIw1)
 

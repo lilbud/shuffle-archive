@@ -16,6 +16,6 @@ This is one of them.
 
 Lanny Cordola has associated himself with a few bands over the years, but he’s a wonderful musician in his own right. (He plays every instrument you hear on this track.)
 
-His 2001 spin on “[My Beautiful Reward](../2023-02-19_roll-of-the-dice-my-beautiful-reward/post.md)” is original in sound but true in spirit to the original; it’s more reflective and atmospheric than Bruce’s album version, and his vocals and arrangement really bring out the narrative.
+His 2001 spin on “[My Beautiful Reward](../1992-02-11_roll-of-the-dice-my-beautiful-reward/post.md)” is original in sound but true in spirit to the original; it’s more reflective and atmospheric than Bruce’s album version, and his vocals and arrangement really bring out the narrative.
 
 This is very well done.

@@ -42,7 +42,7 @@ post_id: 56316
 
 (marketing plan and USA Today scan courtesy of reader Andy Swanson)
 
-**1993:** Bruce kicks off World Tour 1993 in Glasgow with an acoustic mini-set–a feature that distinguishes this year's tour from the one that preceded it. "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)" is filmed and broadcast the following evening on *Top of the Pops*.<br>
+**1993:** Bruce kicks off World Tour 1993 in Glasgow with an acoustic mini-set–a feature that distinguishes this year's tour from the one that preceded it. "[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)" is filmed and broadcast the following evening on *Top of the Pops*.<br>
 
 [Watch on Youtube: Lucky Town - Bruce Springsteen (live at the SEC Centre, Glasgow 1993)](https://www.youtube.com/watch?v=_7Cjtv2v-MM)
 

@@ -20,7 +20,7 @@ post_id: 57811
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - Max's Kansas City, New York City, NY (Early) 07-23-1973](https://www.youtube.com/watch?v=H4XP4h5FesY)
 
-**1975:** The Born to Run Tour picks up steam at the Music Inn in Lenox, Massachusetts, where Bruce debuts "[Funk Song](../2018-05-02_roll-of-the-dice-funk-song/post.md)" and plays a rare "[Gimme That Wine](../2019-03-22_cover-me-gimme-that-wine/post.md)."<br>
+**1975:** The Born to Run Tour picks up steam at the Music Inn in Lenox, Massachusetts, where Bruce debuts "[Funk Song](../1972-01-22_roll-of-the-dice-funk-song/post.md)" and plays a rare "[Gimme That Wine](../2019-03-22_cover-me-gimme-that-wine/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Funk Song (Lenox, MA - July 23, 1975)](https://www.youtube.com/watch?v=CD7INecYql8)
 
@@ -148,7 +148,7 @@ Meanwhile, Mike Appel's and Marc Eliot's new tell-all *Down Thunder Road* garner
 
 [Watch on Youtube: Escovedo & Springsteen - Beast of Burden (23-07-2010)](https://www.youtube.com/watch?v=sWu1xn3OKHM)
 
-**2012:** Bruce opens the first of two Wrecking Ball shows in Bergen, Norway with a gorgeous, acoustic "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)," accompanied only by Roy. This show also features the live debut of "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)" along with the tour premiere of "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)."<br>
+**2012:** Bruce opens the first of two Wrecking Ball shows in Bergen, Norway with a gorgeous, acoustic "[Who'll Stop the Rain](../2023-07-12_cover-me-wholl-stop-the-rain/post.md)," accompanied only by Roy. This show also features the live debut of "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)" along with the tour premiere of "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)."<br>
 
 [Watch on Youtube: Who'll Stop The Rain - Bruce & Roy](https://www.youtube.com/watch?v=GlZ5SPKn5ls)
 

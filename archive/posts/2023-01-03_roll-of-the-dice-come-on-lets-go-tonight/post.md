@@ -18,7 +18,7 @@ If Bruce hadn't released it on *The Promise* in 2010, I'd probably be covering "
 
 To hardcore Springsteen fans, it's difficult to listen to "Come On (Let's Go Tonight)" and hear anything other than a hodgepodge of lyrics that would eventually find their way to other more well-known songs.
 
-And yet, if we can pretend that we've never listened to "Factory," "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)," and "[Johnny Bye Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)" before, there's a somber reflection on life and death waiting to be discovered here.
+And yet, if we can pretend that we've never listened to "Factory," "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)," and "[Johnny Bye Bye](../1983-01-05_roll-of-the-dice-johnny-bye-bye/post.md)" before, there's a somber reflection on life and death waiting to be discovered here.
 
 "Come On (Let's Go Tonight)" was one of the very first songs recorded for [*Darkness on the Edge of Town*](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md). In fact, a first cut was recorded on the very first day of recording sessions. Bruce worked on it throughout the early days of the summer of '77, and one of those early July recordings escaped into the wild as a bootleg.
 

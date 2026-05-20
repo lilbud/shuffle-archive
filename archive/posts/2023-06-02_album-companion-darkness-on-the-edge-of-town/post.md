@@ -30,16 +30,16 @@ If you’ve joined me along the way, you might find it interesting to explore so
 
 So if you’re inclined to join me, let’s take a look back and a look inside the songs that comprise Bruce Springsteen’s fourth studio album, *Darkness on the Edge of Town*.
 
-- “[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” – the opening anthem that’s also an allegory for the legal battle that delayed but also influenced the album (originally published May 20, 2019)
+- “[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)” – the opening anthem that’s also an allegory for the legal battle that delayed but also influenced the album (originally published May 20, 2019)
 - “[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)” – the Steinbeck-inspired opening salvo in Bruce’s years-long exploration of father/son relationships (originally published July 3, 2022)
 - “[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)” – the rawest, darkest, and earliest performed track on the album, also rooted in the contemporaneous lawsuit (originally published May 28, 2021)
 - “[Candy’s Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)” – a three-part look at the construction of a song about an idealized and idolized sex worker (originally published May 2, 2022)
 - “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” – an exploration of the themes, influences, and artistry of the album’s crown jewel (originally published October 3, 2021)
-- “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” – the one track that gets darker rather than brighter on a deeper listen (originally published July 4, 2018)
+- “[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)” – the one track that gets darker rather than brighter on a deeper listen (originally published July 4, 2018)
 - “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)” – the albums’ plainest, most economical and most autobiographical track (originally published October 31, 2018)
 - “[Streets of Fire](../2021-11-06_roll-of-the-dice-streets-of-fire/post.md)” – a cathartic sensory experience of a song that one *feels* rather than hears (originally published November 6, 2021)
 - “[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)” – rock’s most ferocious wedding song (originally published October 24, 2020)
-- “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)” – the title track that embodies the album’s warring themes: the inability to accept defeat, paired with an addiction to the things that ensure it (originally published April 10, 2018)
+- “[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)” – the title track that embodies the album’s warring themes: the inability to accept defeat, paired with an addiction to the things that ensure it (originally published April 10, 2018)
 
 Each of the linked articles above features early outtakes and work-in-progress performances, great live versions, and my own personal reading and consideration of each song. By no means do I consider these authoritative or representative of Bruce’s intentions, but they do reflect the results of deep listening, research, and reflection.
 

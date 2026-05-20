@@ -31,7 +31,7 @@ But "Maria's Bed" is also full of callbacks to and swipes from other Springsteen
 > *I got a sweet soft fever rushing around my head*<br>
 > *I'm gonna sleep tonight in Maria's bed*<br>
 
-Four lines in, and we might as well be listening to "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md):"
+Four lines in, and we might as well be listening to "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md):"
 
 > *I work for the county out on ninety five*<br>
 > *All day I hold a red flag and watch the traffic pass me by*<br>

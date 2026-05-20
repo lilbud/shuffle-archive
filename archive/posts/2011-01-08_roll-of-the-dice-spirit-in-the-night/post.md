@@ -16,7 +16,7 @@ Cahill was so wild, in fact, that Bruce thought Lozito had to be a bit off herse
 
 One night that summer, Bruce, Wild Billy, Crazy Diane, Davy Hazlett (a temporary Steel Mill member who Bruce called "Hazy" (according to Hazlett)) and other friends and hangers-on escaped the summer heat at a nearby lake and while Wild Billy took a nocturnal swim, Bruce and Crazy Diane hooked up. Before long, Diane broke up with Wild Billy and took up with Bruce.
 
-A year or so later, when Bruce completed his first album, Clive Davis (President of Columbia Records) felt the album didn't have any songs with commercial potential and asked Bruce to write another track or two. Bruce went home and wrote "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" and "Spirit in the Night," the latter of which memorialized that first spark between Bruce and his girlfriend.
+A year or so later, when Bruce completed his first album, Clive Davis (President of Columbia Records) felt the album didn't have any songs with commercial potential and asked Bruce to write another track or two. Bruce went home and wrote "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)" and "Spirit in the Night," the latter of which memorialized that first spark between Bruce and his girlfriend.
 
 So the story goes. At least, according to Lozito in her interviews about it. To my knowledge, Bruce has never commented.
 

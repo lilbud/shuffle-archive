@@ -14,7 +14,7 @@ Around a minute and 45 seconds into "Hello Sunshine," we're treated to something
 
 Those thirty wordless seconds–that's the sound of pure contentment.
 
-Have we ever heard Bruce sound so deeply satisfied before? I don't think so. One could make an argument for outtakes like "[County Fair](../2018-02-17_roll-of-the-dice-county-fair/post.md)" and "[The Honeymooners,](../2018-04-04_roll-of-the-dice-the-honeymooners/post.md)" I suppose, but those songs focus on a single perfect day–we instinctively know that the narrators of those songs are experiencing a brief moment of time out of time.
+Have we ever heard Bruce sound so deeply satisfied before? I don't think so. One could make an argument for outtakes like "[County Fair](../1983-01-11_roll-of-the-dice-county-fair/post.md)" and "[The Honeymooners,](../2018-04-04_roll-of-the-dice-the-honeymooners/post.md)" I suppose, but those songs focus on a single perfect day–we instinctively know that the narrators of those songs are experiencing a brief moment of time out of time.
 
 There's also "[Happy](../2019-07-28_roll-of-the-dice-happy/post.md)," of course, but that's the song of a new dad in his babymoon phase–all new parents go through that (emphasis on *through*).
 
@@ -32,7 +32,7 @@ Let's take another listen.
 
 Rarely does Bruce employ music as a narrative device so effectively as he does in "Hello Sunshine."
 
-We don't need the video to tell us we're on an open road–we realize that from the opening bars. Matt Chamberlain (the unsung percussionist hero on "[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)" and "[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)" as well) carries us along entirely on his brushes, save for a single drumbeat that punctuates the song like the rhythmic seams along the highway.
+We don't need the video to tell us we're on an open road–we realize that from the opening bars. Matt Chamberlain (the unsung percussionist hero on "[Shackled and Drawn](../2020-07-16_roll-of-the-dice-shackled-and-drawn/post.md)" and "[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md)" as well) carries us along entirely on his brushes, save for a single drumbeat that punctuates the song like the rhythmic seams along the highway.
 
 After a few seconds, Ron Aniello's bossa nova bass line kicks in with a simple riff that merges with Chamberlain's percussion to form a rhythm line that literally *sounds* like the open road.
 

@@ -83,7 +83,7 @@ In a brilliant stroke, Bruce switches mid-song from the electric to acoustic pia
 
 **Walk Like a Man**<br>
 **Recorded:** January 20, 1987<br>
-**Released:** [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) (1987)<br>
+**Released:** [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) (1987)<br>
 **First performed:** February 25, 1987 (Worcester, MA)<br>
 **Last performed:** August 1, 2005 (Cincinnati, OH)<br>
 

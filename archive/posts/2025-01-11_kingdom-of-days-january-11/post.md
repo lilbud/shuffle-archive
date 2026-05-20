@@ -30,7 +30,7 @@ post_id: 55577
 
 [Watch Video Highlight](https://videopress.com/embed/w4Rg1WKW)
 
-**2002:** On the occasion of Clarence’s 60th birthday, Bruce joins Clarence on stage at B.B. King’s nightclub in Mashantucket, Connecticut. They play four songs together, including “[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)” with B.B. King.<br>
+**2002:** On the occasion of Clarence’s 60th birthday, Bruce joins Clarence on stage at B.B. King’s nightclub in Mashantucket, Connecticut. They play four songs together, including “[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)” with B.B. King.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jbc3T593)
 

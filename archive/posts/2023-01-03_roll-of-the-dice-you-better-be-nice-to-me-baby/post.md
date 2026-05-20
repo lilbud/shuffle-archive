@@ -12,7 +12,7 @@ Special treat today, folks! We're taking another trip back to the Bruce Springst
 
 Presented here for your listening pleasure: a fifty-year-old never-recorded, extremely rare (performed only once that we know of) lost Springsteen original, "You Better Be Nice to Me, Baby."
 
-Don't confuse this with the lost Bruce Springsteen Band original we listened to last week. That one was "[I've Got to Have You, Baby](../2021-06-13_roll-of-the-dice-ive-got-to-have-you-baby/post.md)," and it's a completely different song (although Bruce played them back-to-back in a baby-centric set on September 1, 1971).
+Don't confuse this with the lost Bruce Springsteen Band original we listened to last week. That one was "[I've Got to Have You, Baby](../1972-01-07_roll-of-the-dice-ive-got-to-have-you-baby/post.md)," and it's a completely different song (although Bruce played them back-to-back in a baby-centric set on September 1, 1971).
 
 If you thought "I've Got to Have You, Baby" was a fun listen, though, you've got a treat in store when you hear this one.
 

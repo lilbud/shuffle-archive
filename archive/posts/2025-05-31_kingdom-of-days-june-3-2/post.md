@@ -48,7 +48,7 @@ post_id: 56995
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2000-06-02.jpg.webp)
 
-**2006:** Nils guest-stars on "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" (and enjoys the show from the pit!) when the Seeger Sessions Tour stops in Glendale, Arizona. For more on this show, see my [*Where the Band Was* report](../2018-06-03_where-the-band-was-glendale-june-3-2006/post.md) from this show.<br>
+**2006:** Nils guest-stars on "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" (and enjoys the show from the pit!) when the Seeger Sessions Tour stops in Glendale, Arizona. For more on this show, see my [*Where the Band Was* report](../2018-06-03_where-the-band-was-glendale-june-3-2006/post.md) from this show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/4kABHXOv)
 
@@ -70,7 +70,7 @@ post_id: 56995
 
 [Watch Video Highlight](https://videopress.com/embed/Xbgy7LJ6)
 
-**2016:** A stunning River show in Coventry, England: Bruce opens with the tour premieres of "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" and "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)," and tour premieres "[Save My Love](../2019-07-16_roll-of-the-dice-save-my-love/post.md)," "Travelin' Band," and "[Seven Nights to Rock](../2021-04-22_cover-me-seven-nights-to-rock/post.md)" as well.<br>
+**2016:** A stunning River show in Coventry, England: Bruce opens with the tour premieres of "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)" and "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)," and tour premieres "[Save My Love](../2019-07-16_roll-of-the-dice-save-my-love/post.md)," "Travelin' Band," and "[Seven Nights to Rock](../2021-04-22_cover-me-seven-nights-to-rock/post.md)" as well.<br>
 
 [Watch on Youtube: Bruce Springsteen - 2016-06-03 - Something In The Night](https://www.youtube.com/watch?v=QWZTduaV8vY)
 

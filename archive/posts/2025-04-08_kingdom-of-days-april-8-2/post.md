@@ -20,7 +20,7 @@ post_id: 56403
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/1984-04-08.jpg.webp)
 
-**1993:** At the second of two shows in Zurich, Bruce plays "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" for the first and only time this year and tour debuts "Rockin' All Over the World."<br>
+**1993:** At the second of two shows in Zurich, Bruce plays "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" for the first and only time this year and tour debuts "Rockin' All Over the World."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/D126GX2S)
 

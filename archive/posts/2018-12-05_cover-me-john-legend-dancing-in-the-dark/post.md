@@ -10,7 +10,7 @@ post_id: 6188
 ---
 John Legend has covered Bruce’s greatest hit many times in concert, including at Bruce’s MusiCares Person of the Year Tribute concert.
 
-But my favorite performance was during “Springsteen Week” in 2012 on the *The Tonight Show Starring Jimmy Fallon*. Legend made an appearance to play “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)” with The Roots, and their team-up was atmospheric, jazzy and magical.
+But my favorite performance was during “Springsteen Week” in 2012 on the *The Tonight Show Starring Jimmy Fallon*. Legend made an appearance to play “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)” with The Roots, and their team-up was atmospheric, jazzy and magical.
 
 Check it out:
 

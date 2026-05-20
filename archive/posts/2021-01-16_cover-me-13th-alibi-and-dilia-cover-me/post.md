@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/01/dilia.jpg
 post_id: 24579
 ---
-Earlier this week, I published my *Roll of the Dice* article on "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" and proclaimed it my least favorite Springsteen song ever.
+Earlier this week, I published my *Roll of the Dice* article on "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" and proclaimed it my least favorite Springsteen song ever.
 
 I wasn't particularly generous in my review, but in all fairness I did caveat: "There's an argument to be made for 'Cover Me' being a decent pop song if only it was set to a different backing track and arrangement."
 

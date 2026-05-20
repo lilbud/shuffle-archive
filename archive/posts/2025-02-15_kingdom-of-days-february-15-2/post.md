@@ -52,7 +52,7 @@ post_id: 55947
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1997-02-15.png.webp)
 
-**2014:** The first of two nights in Melbourne features a surprise guest in the opening numbers: Eddie Vedder joins the E Street Band for “Highway to Hell” and “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md).” Another surprise shortly follows: a full performance of the *Born in the U.S.A.* album. Also tour premiering tonight: “[Jole Blon,](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)” “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md),” “[I’m Goin’ Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md),” and “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md).”<br>
+**2014:** The first of two nights in Melbourne features a surprise guest in the opening numbers: Eddie Vedder joins the E Street Band for “Highway to Hell” and “[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md).” Another surprise shortly follows: a full performance of the *Born in the U.S.A.* album. Also tour premiering tonight: “[Jole Blon,](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)” “[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md),” “[I’m Goin’ Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md),” and “[Factory](../2018-10-31_roll-of-the-dice-factory/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen - Walk on - Highway to Hell - 2014-02-15 Melbourne, Australia](https://www.youtube.com/watch?v=gyUWJ4To0Dg)
 

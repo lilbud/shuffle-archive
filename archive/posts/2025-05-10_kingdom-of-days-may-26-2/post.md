@@ -28,7 +28,7 @@ post_id: 56837
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/05/1981-05-26-Brighton__Merged.mp3)
 
-**1984:** Bruce's world premiere performance of "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" occurs under very strange circumstances: Bruce happens to be at Xanadu in Asbury Park where the band Bystander is playing. The band had managed to obtain a promo copy of Bruce's new single, learned the song, and planned to debut it on this night. When they learn that Bruce is in the house, they invite him to join them, but Bruce declines. The band extends the intro, hoping Bruce will relent–and he does, grabbing the mic at the last second and performing the live debut of his greatest hit.<br>
+**1984:** Bruce's world premiere performance of "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" occurs under very strange circumstances: Bruce happens to be at Xanadu in Asbury Park where the band Bystander is playing. The band had managed to obtain a promo copy of Bruce's new single, learned the song, and planned to debut it on this night. When they learn that Bruce is in the house, they invite him to join them, but Bruce declines. The band extends the intro, hoping Bruce will relent–and he does, grabbing the mic at the last second and performing the live debut of his greatest hit.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/0BTfSZSi)
 

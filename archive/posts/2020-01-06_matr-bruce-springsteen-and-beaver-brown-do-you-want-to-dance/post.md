@@ -18,7 +18,7 @@ Most often appearing with Stone Pony house band Cats on a Smooth Surface, Bruce 
 
 Bruce also played with Beaver Brown–still a year away from the peak of their *Eddie and the Cruisers* popularity–four times that summer, including Saturday night, August 7th.
 
-That night is best known for the debut of what would eventually become "[Downbound Train,](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" but for my money, the highlight of the night was Bruce and the band's first-ever performance of Bobby Freeman's "Do You Want to Dance." Without the demands of nightly marathon concerts, Bruce's vocals were in great form, and their performance was captured in very good quality for an almost forty-year-old bar gig. Check it out:
+That night is best known for the debut of what would eventually become "[Downbound Train,](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" but for my money, the highlight of the night was Bruce and the band's first-ever performance of Bobby Freeman's "Do You Want to Dance." Without the demands of nightly marathon concerts, Bruce's vocals were in great form, and their performance was captured in very good quality for an almost forty-year-old bar gig. Check it out:
 
 [Watch on Youtube: Bruce Springsteen - Do You Wanna Dance (Live 1982)](https://www.youtube.com/watch?v=BR6wGGYOpXM)
 

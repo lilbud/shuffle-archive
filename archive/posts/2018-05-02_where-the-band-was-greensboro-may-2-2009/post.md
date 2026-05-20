@@ -32,7 +32,7 @@ But it was the next song that blew the lid of the place. I'm talking an encore-l
 
 [Watch on Youtube: Bruce Springsteen Greensboro 5-2-09 Hang On Sloopy](https://www.youtube.com/watch?v=NfXi1CnA0Bg)
 
-Rare outings for "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)," "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," and a set-closing surprise "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" made for a fantastic main set. "Cadillac" was one of several songs performed with full house lights on–Bruce was clearly enjoying watching the crowd that night.
+Rare outings for "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)," "[Human Touch](../2019-08-09_roll-of-the-dice-human-touch/post.md)," and a set-closing surprise "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)" made for a fantastic main set. "Cadillac" was one of several songs performed with full house lights on–Bruce was clearly enjoying watching the crowd that night.
 
 [Watch on Youtube: Bruce Springsteen Greensboro 5-2-09 Cadillac Ranch](https://www.youtube.com/watch?v=bYntXbo-MTg)
 

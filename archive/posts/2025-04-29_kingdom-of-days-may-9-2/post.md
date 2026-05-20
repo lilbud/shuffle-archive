@@ -28,7 +28,7 @@ post_id: 56719
 
 [Watch on Youtube: Stolen Car](https://www.youtube.com/watch?v=f0RNWwXcQiU)
 
-**1984:** "[Dancing in the Dark,](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" the first single off *Born in the U.S.A.* is sent to radio stations. It will appear in record stores shortly and become Bruce's greatest hit.<br>
+**1984:** "[Dancing in the Dark,](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" the first single off *Born in the U.S.A.* is sent to radio stations. It will appear in record stores shortly and become Bruce's greatest hit.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1984-05-09.jpg.webp)
 
@@ -54,7 +54,7 @@ post_id: 56719
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/1992-05-09.jpg.webp)
 
-**1993:** Bruce continues his tour of Spain with a single show in Santiago. Watch terrific pro-shot videos of "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)," "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)," and "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" below.<br>
+**1993:** Bruce continues his tour of Spain with a single show in Santiago. Watch terrific pro-shot videos of "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)," "[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)," and "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)" below.<br>
 
 [Watch on Youtube: Bruce Springsteen arrives at Santiago de Compostela](https://www.youtube.com/watch?v=0OtYo4bIv60)
 
@@ -70,7 +70,7 @@ post_id: 56719
 
 [Watch Video Highlight](https://videopress.com/embed/5MQ16PaR)
 
-**2006:** Bruce and the Sessions Band play a televised show at St. Luke's Church in London. Watch the performance in great quality below, especially Bruce's hilarious mistake on "[Jacob's Ladder](../2019-04-18_rotd-cover-me-jacobs-ladder/post.md)" at minute 36.<br>
+**2006:** Bruce and the Sessions Band play a televised show at St. Luke's Church in London. Watch the performance in great quality below, especially Bruce's hilarious mistake on "[Jacob's Ladder](../2006-01-08_rotd-cover-me-jacobs-ladder/post.md)" at minute 36.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2j9sa8J0)
 

@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/dessa.jpg
 post_id: 29229
 ---
-Chances are that if I told you that a notable rapper/hip-hop singer covered a Bruce Springsteen song, neither Dessa nor "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" would immediately spring to mind as likely candidates.
+Chances are that if I told you that a notable rapper/hip-hop singer covered a Bruce Springsteen song, neither Dessa nor "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)" would immediately spring to mind as likely candidates.
 
 And even if they did, you probably wouldn't expect a moody, acoustic, and gorgeously atmospheric track like this.
 

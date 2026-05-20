@@ -70,7 +70,7 @@ post_id: 55450
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/12/1982-1231.jpg.webp)
 
-**1987:** [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) is certified double platinum by the Recording Industry Association of America.<br>
+**1987:** [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) is certified double platinum by the Recording Industry Association of America.<br>
 
 [Watch on Youtube: Tunnel of Love](https://www.youtube.com/playlist?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
 

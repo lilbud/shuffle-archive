@@ -74,7 +74,7 @@ post_id: 59734
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/09/1996-09-29.jpg.webp)
 
-**2002:** Bruce tour premieres "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" when the Rising Tour stops at the Fargodome in North Dakota.<br>
+**2002:** Bruce tour premieres "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" when the Rising Tour stops at the Fargodome in North Dakota.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VydrrUiL)
 
@@ -102,7 +102,7 @@ post_id: 59734
 
 [Watch on Youtube: Bruce Springsteen - Do I Love You (Indeed I Do) (Official Video)](https://www.youtube.com/watch?v=O0jBwk71Qcw)
 
-That evening, Bruce and Patti perform "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
+That evening, Bruce and Patti perform "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
 > View this post on Instagram
 >
 > [A post shared by covenant- alex (@borntorunboss1)](https://www.instagram.com/tv/CjTHuJAtR9O/?utm_source=ig_embed&utm_campaign=loading)

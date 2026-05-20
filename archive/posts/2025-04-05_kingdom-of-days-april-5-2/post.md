@@ -54,7 +54,7 @@ post_id: 56369
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2007-04-05.jpg.webp)
 
-**2008:** Another radio station contest to pick a song for the set list–this time "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" is the winner for this Magic Tour stop at HP Pavilion in San Jose. "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" and "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" make their tour debut tonight as well.<br>
+**2008:** Another radio station contest to pick a song for the set list–this time "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" is the winner for this Magic Tour stop at HP Pavilion in San Jose. "[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" and "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" make their tour debut tonight as well.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/4ds7LEvR)
 
@@ -70,7 +70,7 @@ post_id: 56369
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2009-04-05b.jpg.webp)
 
-**2016:** At a River Tour stop in Dallas, things get a little out of hand during "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
+**2016:** At a River Tour stop in Dallas, things get a little out of hand during "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
 
 [Watch on Youtube: Born to Run / Dancing in the Dark - Bruce Springsteen. AA Center, Dallas TX. April 5, 2016.](https://www.youtube.com/watch?v=nXqgo0oSJc0)
 

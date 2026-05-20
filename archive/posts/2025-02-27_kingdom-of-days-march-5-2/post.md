@@ -38,7 +38,7 @@ post_id: 56096
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1999-03-05a.jpg.webp)
 
-**2001:** "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" and "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" are both certified gold by the Recording Industry Association of America.<br>
+**2001:** "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" and "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" are both certified gold by the Recording Industry Association of America.<br>
 
 [Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
@@ -48,7 +48,7 @@ post_id: 56096
 
 [Watch on Youtube: Working On A Dream](https://www.youtube.com/playlist?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ)
 
-**2023:** Bruce and the E Street Band bring their World Tour to Saint Paul, where they tour premiere "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" and "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)."<br>
+**2023:** Bruce and the E Street Band bring their World Tour to Saint Paul, where they tour premiere "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" and "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen- Pay Me My Money Down - St Paul, MN - 3/5/2023](https://www.youtube.com/watch?v=QFvxomhYioc)
 

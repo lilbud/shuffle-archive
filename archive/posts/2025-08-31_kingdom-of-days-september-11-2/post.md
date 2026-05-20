@@ -36,7 +36,7 @@ post_id: 59634
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/1971-09-11.jpg.webp)
 
-**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce records “[Blinded by the Light”](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md) and “[Spirit in the Night,](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” the final tracks for his upcoming debut album.<br>
+**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce records “[Blinded by the Light”](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md) and “[Spirit in the Night,](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)” the final tracks for his upcoming debut album.<br>
 
 [Watch on Youtube: Blinded By The Light](https://www.youtube.com/watch?v=xPy82OO6vRg)
 
@@ -64,7 +64,7 @@ post_id: 59634
 
 [Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1987:** At the MTV Video Music Awards, “Born to Run” and “[War](../2019-05-27_cover-me-war/post.md)” split the vote for Best Stage Performance in a Video; as a result, Bon Jovi walks away with the award for “Livin’ on a Prayer.”<br>
+**1987:** At the MTV Video Music Awards, “Born to Run” and “[War](../2016-01-02_cover-me-war/post.md)” split the vote for Best Stage Performance in a Video; as a result, Bon Jovi walks away with the award for “Livin’ on a Prayer.”<br>
 
 [Watch on Youtube: Bruce Springsteen - Born to Run (Official Video)](https://www.youtube.com/watch?v=IxuThNgl3YA)
 

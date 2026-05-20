@@ -30,7 +30,7 @@ post_id: 61048
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/10/1979-10-05a.jpg.webp)
 
-**1987:** Bruce releases his eighth studio album, [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md), to much less fanfare than greeted his previous *Live 1975-85* box set–a fact that almost every news report mentions.<br>
+**1987:** Bruce releases his eighth studio album, [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md), to much less fanfare than greeted his previous *Live 1975-85* box set–a fact that almost every news report mentions.<br>
 
 [Watch on Youtube: Tunnel of Love](https://www.youtube.com/playlist?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
 
@@ -48,7 +48,7 @@ post_id: 61048
 
 [Watch Video Highlight](https://videopress.com/embed/kXtX77yt)
 
-**2004:** Neil Young guest stars at Bruce's Vote for Change show in St. Paul, joining Bruce for "[Souls of the Departed](../2019-03-19_roll-of-the-dice-souls-of-the-departed/post.md)," "[All Along the Watchtower](../2020-08-13_matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/post.md)," and "[Rockin' in the Free World](../2019-04-16_matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/post.md)."<br>
+**2004:** Neil Young guest stars at Bruce's Vote for Change show in St. Paul, joining Bruce for "[Souls of the Departed](../1992-02-10_roll-of-the-dice-souls-of-the-departed/post.md)," "[All Along the Watchtower](../2020-08-13_matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/post.md)," and "[Rockin' in the Free World](../2019-04-16_matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Live In St Paul 2004 - Full Concert (HD Remastered)](https://www.youtube.com/watch?v=grkLn4dpbZc)
 
@@ -58,7 +58,7 @@ post_id: 61048
 
 [Watch on Youtube: Bruce Springsteen w/ John Fogerty Centerfield (Live VFC 2004 10 05)](https://www.youtube.com/watch?v=ExdLcwIZdsk)
 
-**2006:** One of the best shows from the Seeger Sessions Tour, at the ancient Arena di Verona: Bruce tour premieres "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)," along with Patti's "[Valerie](../2020-12-13_matr-patti-scialfa-and-bruce-springsteen-valerie/post.md)" (played in honor of her final appearance on the tour until its final stand) and Bruce's first-ever performance of "[Samson and Delilah.](../2020-09-25_cover-me-samson-and-delilah/post.md)" For more highlights from this show, see my [*Where the Band Was* report](../2018-10-05_where-the-band-was-verona-october-5-2006/post.md).<br>
+**2006:** One of the best shows from the Seeger Sessions Tour, at the ancient Arena di Verona: Bruce tour premieres "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" and "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)," along with Patti's "[Valerie](../2020-12-13_matr-patti-scialfa-and-bruce-springsteen-valerie/post.md)" (played in honor of her final appearance on the tour until its final stand) and Bruce's first-ever performance of "[Samson and Delilah.](../2020-09-25_cover-me-samson-and-delilah/post.md)" For more highlights from this show, see my [*Where the Band Was* report](../2018-10-05_where-the-band-was-verona-october-5-2006/post.md).<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=y2JOWKSyUA4?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&start=2342&wmode=transparent)
 
@@ -70,7 +70,7 @@ post_id: 61048
 
 [Watch on Youtube: Bruce Springsteen - Live In Verona 2006 - Full Broadcast (Italian FM Radio Broadcast)](https://www.youtube.com/watch?v=KvadUhGEKY0)
 
-**2007:** The young Magic Tour rolls into Philadelphia for its first two-night stand. Night One at the Wachovia Center features tour debuts for "[No Surrender,](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" (in place of Patti's "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)") and "[My Hometown.](../2020-04-09_roll-of-the-dice-my-hometown/post.md)"<br>
+**2007:** The young Magic Tour rolls into Philadelphia for its first two-night stand. Night One at the Wachovia Center features tour debuts for "[No Surrender,](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" "[Candy's Room](../2022-05-02_roll-of-the-dice-candys-room/post.md)," "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" (in place of Patti's "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)") and "[My Hometown.](../1983-01-12_roll-of-the-dice-my-hometown/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen Radio Nowhere live Philadelphia 10/05/2007](https://www.youtube.com/watch?v=1RrxmM2jpxg)
 
@@ -92,7 +92,7 @@ post_id: 61048
 
 [Watch on Youtube: Bruce Springsteen launching Born to Run, Conversation with Dan Stone](https://www.youtube.com/watch?v=nXqxyBWp9Ho)
 
-**2017:** Bruce makes a small tweak in *Springsteen on Broadway*, swapping out "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" for "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" as previews continue. In attendance tonight: Jessica Springsteen<br>
+**2017:** Bruce makes a small tweak in *Springsteen on Broadway*, swapping out "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" for "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)" as previews continue. In attendance tonight: Jessica Springsteen<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jjFcAf1z)
 

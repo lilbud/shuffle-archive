@@ -14,7 +14,7 @@ post_id: 55972
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1975-02-21.jpg.webp)
 
-**1995:** After more than five years apart, Bruce reconvenes the E Street Band to promote his *Greatest Hits* album. The band gathers at Tramps nightclub in New York City and rehearses for their gig that evening, where they will debut and record a live performance video for “[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md).” Many fan favorites also make their return on this night, including the first-ever full-band performance of “This Hard Land.”<br>
+**1995:** After more than five years apart, Bruce reconvenes the E Street Band to promote his *Greatest Hits* album. The band gathers at Tramps nightclub in New York City and rehearses for their gig that evening, where they will debut and record a live performance video for “[Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md).” Many fan favorites also make their return on this night, including the first-ever full-band performance of “This Hard Land.”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/o98o5YmB)
 
@@ -54,7 +54,7 @@ post_id: 55972
 
 [Watch on Youtube: Bruce Springsteen - "My City Of Ruins"](https://www.youtube.com/watch?v=ntgpWPwTVnM)
 
-**2023:** Jake is back in action in Tulsa after a bout with COVID, but the virus continues its tour of the E Street Band. Lisa Lowell misses this show and the next one, but the rest of the band turns in a great show in the undersold BOK Center, tour premiering “[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)” in the encores.<br>
+**2023:** Jake is back in action in Tulsa after a bout with COVID, but the virus continues its tour of the E Street Band. Lisa Lowell misses this show and the next one, but the rest of the band turns in a great show in the undersold BOK Center, tour premiering “[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)” in the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance +](https://www.youtube.com/watch?v=-bxN1RTASUU)
 

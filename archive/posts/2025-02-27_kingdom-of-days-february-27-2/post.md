@@ -36,7 +36,7 @@ post_id: 56014
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1986-02-27.png.webp)
 
-**1988:** On the release date for “[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/),” his third single and video from *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md),* Bruce visits his friend John Mulheren in the Monmouth County jail.<br>
+**1988:** On the release date for “[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/),” his third single and video from *[Tunnel of Love](../1987-01-01_album-companion-tunnel-of-love/post.md),* Bruce visits his friend John Mulheren in the Monmouth County jail.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/1988-02-27.jpg.webp)
 
@@ -48,13 +48,13 @@ post_id: 56014
 
 **2000:** Bruce and the E Street Band rehearse for the next leg of the Reunion Tour at Penn State University.<br>
 
-**2012:** Bruce and the E Street Band (plus Curt Ramm) make a guest appearance on *Late Night with Jimmy Fallon,* where they play “[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)” and “[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md).”<br>
+**2012:** Bruce and the E Street Band (plus Curt Ramm) make a guest appearance on *Late Night with Jimmy Fallon,* where they play “[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)” and “[Wrecking Ball](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md).”<br>
 
 [Watch Video Highlight](https://videopress.com/embed/CTNZOLZP)
 
 [Watch Video Highlight](https://videopress.com/embed/YypCW8h2)
 
-**2016:** At the Blue Cross Arena in Rochester, “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)” returns in the encore, where it will remain throughout the tour. This show also features a rare “[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)” from the River outtakes and the tour premieres of “[I’m Goin’ Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)” and “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md).”<br>
+**2016:** At the Blue Cross Arena in Rochester, “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)” returns in the encore, where it will remain throughout the tour. This show also features a rare “[I Wanna Be With You](../2018-01-14_roll-of-the-dice-i-wanna-be-with-you/post.md)” from the River outtakes and the tour premieres of “[I’m Goin’ Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)” and “[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md).”<br>
 
 [Watch on Youtube: I Wanna Be With You - Bruce Springsteen & The E Street Band - Rochester](https://www.youtube.com/watch?v=JuLI1JrSlYs)
 

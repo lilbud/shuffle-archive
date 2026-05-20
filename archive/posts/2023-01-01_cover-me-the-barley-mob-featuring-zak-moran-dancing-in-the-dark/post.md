@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/barley-mob.jpg
 post_id: 16089
 ---
-The Barley Mob are a six-member rock band from Ireland, and if their name strikes you as a play on the name of a certain beloved artist, well let’s just say the band’s influences show in their terrific cover of Bruce’s “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md),” released earlier this year.
+The Barley Mob are a six-member rock band from Ireland, and if their name strikes you as a play on the name of a certain beloved artist, well let’s just say the band’s influences show in their terrific cover of Bruce’s “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md),” released earlier this year.
 
 [Watch on Youtube: Bruce Springsteen - Dancing in the Dark (Cover) ft Zak Moran](https://www.youtube.com/watch?v=DqMzuSz_7Lk)
 

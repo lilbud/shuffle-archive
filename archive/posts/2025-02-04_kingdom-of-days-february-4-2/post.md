@@ -42,7 +42,7 @@ post_id: 55857
 
 [Watch on Youtube: Bruce Springsteen w/ Peter Wolf & the E Street Band - Shout - Boston - 2.4.16](https://www.youtube.com/watch?v=iWiE_zd0Ve0)
 
-**2017:** On Night Two in Melbourne, Bruce continues to make subtle political statements by opening with “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md).” Surprisingly (given how many times he’s played it) and comically, Bruce completely spaces on how to start “[Waitin’ on a Sunny Day.](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)” He and Steve spend about two minutes repeatedly trying to figure it out before the crowd finally takes matters into their own hands. Also making their tour debut tonight: “[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md),” “This Hard Land,” “and [Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md).”<br>
+**2017:** On Night Two in Melbourne, Bruce continues to make subtle political statements by opening with “[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md).” Surprisingly (given how many times he’s played it) and comically, Bruce completely spaces on how to start “[Waitin’ on a Sunny Day.](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)” He and Steve spend about two minutes repeatedly trying to figure it out before the crowd finally takes matters into their own hands. Also making their tour debut tonight: “[Sherry Darling](../2018-07-06_roll-of-the-dice-sherry-darling/post.md),” “This Hard Land,” “and [Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen, ESB, American Land, Melbourne, AAMI Park, 4 February 2017](https://www.youtube.com/watch?v=3cU0klJsEOc)
 

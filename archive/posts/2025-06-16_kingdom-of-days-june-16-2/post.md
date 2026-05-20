@@ -92,7 +92,7 @@ post_id: 57092
 
 [Watch on Youtube: Bruce Springsteen and Killers on Today Show 6-16-2021](https://www.youtube.com/watch?v=REXG6XCXDPA)
 
-**2022:** Bruce makes a surprise appearance at Paul McCartney's show at MetLife Stadium in East Rutherford, dueting with McCartney on "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" and "[I Wanna Be Your Man](../2023-07-15_matr-paul-mccartney-and-bruce-springsteen-i-wanna-be-your-man/post.md)." He returns during the encore to play guitar on "[The End](../2024-07-06_matr-paul-mccartney-and-bruce-springsteen-the-end/post.md)."<br>
+**2022:** Bruce makes a surprise appearance at Paul McCartney's show at MetLife Stadium in East Rutherford, dueting with McCartney on "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" and "[I Wanna Be Your Man](../2023-07-15_matr-paul-mccartney-and-bruce-springsteen-i-wanna-be-your-man/post.md)." He returns during the encore to play guitar on "[The End](../2024-07-06_matr-paul-mccartney-and-bruce-springsteen-the-end/post.md)."<br>
 
 [Watch on Youtube: "Glory Days & I Wanna Be Your Man" Paul McCartney & Bruce Springsteen@New York 6/16/22](https://www.youtube.com/watch?v=F5lZnNsNPIA)
 

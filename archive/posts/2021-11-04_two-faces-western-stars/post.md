@@ -45,7 +45,7 @@ Ken has already written a great [analysis of the song from the first viewpoint](
 
 [Watch on Youtube: Bruce Springsteen - Western Stars (Official Video)](https://www.youtube.com/watch?v=_IXzAAKrsFE)
 
-Ken points out that "Western Stars" has much the same beginning as "Dancing in the Dark." And like "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)," it slips something by you. It plays with what you think you know, what you think you're hearing.
+Ken points out that "Western Stars" has much the same beginning as "Dancing in the Dark." And like "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," it slips something by you. It plays with what you think you know, what you think you're hearing.
 
 The first time you hear the lyric "I get up in the evening," there's a little jolt of surprise, of a cliché being overturned. Only on a second listen do you hear the line as the literal truth: the daily grind of a character who works nights, goes to bed in the morning, gets up after dark.
 

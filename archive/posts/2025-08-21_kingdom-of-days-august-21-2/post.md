@@ -48,7 +48,7 @@ post_id: 59399
 
 [Watch on Youtube: Bruce Springsteen - "Hungry Heart" w/Flo and Eddie - 1981-08-21](https://www.youtube.com/watch?v=xwVaag7j2KI)
 
-**1985:** At the third of a four-night Giants Stadium stand (there will be two more later in the summer), "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" is recorded and eventually released on *Live 1975-85*.<br>
+**1985:** At the third of a four-night Giants Stadium stand (there will be two more later in the summer), "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" is recorded and eventually released on *Live 1975-85*.<br>
 
 [Watch on Youtube: Bobby Jean (Live at Giants Stadium, E. Rutherford, NJ - August 1985)](https://www.youtube.com/watch?v=HsgPJoBLbFU)
 
@@ -86,7 +86,7 @@ post_id: 59399
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1999-08-21.png.webp)
 
-**2002:** Bruce debuts the modern-day rock arrangement of "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" at his Rising Tour show in Tacoma. It will be an E Street Band tour staple ever after. Also tour premiering at this show: "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)." For more highlights from this show, see my [*Where the Band Was*](../2018-08-21_where-the-band-was-tacoma-august-21-2002/post.md)[report.](../2018-08-21_where-the-band-was-tacoma-august-21-2002/post.md)<br>
+**2002:** Bruce debuts the modern-day rock arrangement of "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" at his Rising Tour show in Tacoma. It will be an E Street Band tour staple ever after. Also tour premiering at this show: "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)." For more highlights from this show, see my [*Where the Band Was*](../2018-08-21_where-the-band-was-tacoma-august-21-2002/post.md)[report.](../2018-08-21_where-the-band-was-tacoma-august-21-2002/post.md)<br>
 
 [Watch on Youtube: Bruce Springsteen - "Dancing in the Dark" Tacoma, 2002-08-21 (new arrangement premiere)](https://www.youtube.com/watch?v=EtJH29n-76Y)
 

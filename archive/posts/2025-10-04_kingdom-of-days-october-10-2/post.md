@@ -28,7 +28,7 @@ post_id: 61098
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/09/1980-10-10.jpg.webp)
 
-**1983:** Bruce completes "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" during a mixing and overdub session at The Hit Factory in New York City.<br>
+**1983:** Bruce completes "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" during a mixing and overdub session at The Hit Factory in New York City.<br>
 
 [Watch on Youtube: Bobby Jean](https://www.youtube.com/watch?v=iGR_Rk74tOk)
 

@@ -50,7 +50,7 @@ By the end of the song, Bruce looked looser than I'd ever seen him. He shouted, 
 
 Bruce voice was in fine form, and "Girls" proved to be one of many highlights for the night.
 
-It was time to return to the setlist now, for the traditional opener three-pack of "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)," "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" and "[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)," but Bruce only got through the first of those before he audibled *again* (his fourth in the first seven songs), bringing up Steve for a crowd-pleasing "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)."
+It was time to return to the setlist now, for the traditional opener three-pack of "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)," "[Wrecking Ball](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md)" and "[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md)," but Bruce only got through the first of those before he audibled *again* (his fourth in the first seven songs), bringing up Steve for a crowd-pleasing "[Two Hearts](../2018-05-28_roll-of-the-dice-two-hearts/post.md)."
 
 He did make it back for the rest of the opening pack, though, launching from "Death to My Hometown" into "My City of Ruins," with a very different story tonight that showed that Bruce was feeling the venue in a way he hadn't earlier.
 
@@ -78,7 +78,7 @@ And then… my heart skipped a beat, because I recognized the piano notes that s
 
 [Watch on Youtube: Bruce Springsteen - Prove It All Night (3cam mix with dubbed audio) 2012-08-15 Fenway Park, Boston](https://www.youtube.com/watch?v=n8kIjzIZL5g)
 
-It was the return of the 1978 tour arrangement of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)," so high on my chase list I never even bothered to wish for it. My mind was now blowing song after song, so I was almost grateful when Bruce returned the show to earth for a (still audibled) "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" and a fun "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" with a hotdog and beer break for Bruce.
+It was the return of the 1978 tour arrangement of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)," so high on my chase list I never even bothered to wish for it. My mind was now blowing song after song, so I was almost grateful when Bruce returned the show to earth for a (still audibled) "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" and a fun "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" with a hotdog and beer break for Bruce.
 
 [Watch on Youtube: "Darkness on the Edge of Town" - Bruce Springsteen at Fenway Park](https://www.youtube.com/watch?v=ve5_b2rJDj0)
 
@@ -92,7 +92,7 @@ Bruce called for yet another audible (I'd completely lost track by now)–this t
 
 [Watch on Youtube: Bruce Springsteen Backstreets Fenway Park 8-15-2012](https://www.youtube.com/watch?v=oCixUwho8mw)
 
-From there, "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" and "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" finished out the main set, leaving us to wonder what surprises the encores could possibly bring.
+From there, "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" and "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" finished out the main set, leaving us to wonder what surprises the encores could possibly bring.
 
 [Watch on Youtube: Badlands Bruce Springsteen Fenway Night 2 HD](https://www.youtube.com/watch?v=YDmf_f69_gY)
 
@@ -104,9 +104,9 @@ The rain had continued since "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the
 
 [Watch on Youtube: Springsteen Fenway 2 Detroit and Dancing](https://www.youtube.com/watch?v=CFbBVPTZ6_Y)
 
-And then, after "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" came one last sign request–and oh, what a great one: we were back in the seventies again, with the tour premiere of "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)," another first for me. The cherry on top: Bruce reprised his "I'm just a prisoner….. of rock and roll" declaration at the end of the song, another moment I'd never thought I'd get to witness live.
+And then, after "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" came one last sign request–and oh, what a great one: we were back in the seventies again, with the tour premiere of "[Quarter to Three](../2021-08-21-cover-me-quarter-to-three/post.md/)," another first for me. The cherry on top: Bruce reprised his "I'm just a prisoner….. of rock and roll" declaration at the end of the song, another moment I'd never thought I'd get to witness live.
 
-We could have been done by that point as far as I was concerned, but Bruce wasn't. We still had "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" and a show-closing "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" (complete with guest-appearance by Ken Casey of Dropkick Murphys) in store.
+We could have been done by that point as far as I was concerned, but Bruce wasn't. We still had "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" and a show-closing "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" (complete with guest-appearance by Ken Casey of Dropkick Murphys) in store.
 
 [Watch on Youtube: "Tenth Avenue Freeze Out" - Bruce Springsteen at Fenway Park](https://www.youtube.com/watch?v=GsPysFEGjJ0)
 
@@ -116,7 +116,7 @@ I was soaked, I was exhausted, I was jubilant–but that's the way you're *suppo
 
 I'd never experienced anything quite like that show. St. Louis '08 may have matched it in surprises and topped it in terms of the bands form and intensity, but I'd never seen a show this loose.
 
-All told, there were 18 songs in this show that were different from the first night, and to give you a sense of how much we deviated from the setlist, here are the songs that Bruce was supposed to have played but didn't: "[Night](../2019-10-31_roll-of-the-dice-night/post.md)," "[Jack of All Trades](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)," "[Jackson Cage,](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)," "[Apollo Medley](../2020-11-20_cover-me-the-way-you-do-the-things-you-do/post.md)," "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" (that one was a shocking omission), "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)," [Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)," and "Twist and Shout." Plus, there were only 26 songs on the setlist, and Bruce played 30.
+All told, there were 18 songs in this show that were different from the first night, and to give you a sense of how much we deviated from the setlist, here are the songs that Bruce was supposed to have played but didn't: "[Night](../2019-10-31_roll-of-the-dice-night/post.md)," "[Jack of All Trades](../2020-11-27_roll-of-the-dice-jack-of-all-trades/post.md)," "[Jackson Cage,](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" "[She's the One](../2021-04-04_roll-of-the-dice-shes-the-one/post.md)," "[Apollo Medley](../2020-11-20_cover-me-the-way-you-do-the-things-you-do/post.md)," "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)" (that one was a shocking omission), "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)," [Dirty Water](../2022-03-18_cover-me-dirty-water/post.md)," and "Twist and Shout." Plus, there were only 26 songs on the setlist, and Bruce played 30.
 
 I'm glad I did both Fenway shows–even a standard Bruce set is worth catching. But 8/15/12 was the show that cemented it for me: never pass up the last show in a multi-night stand.
 

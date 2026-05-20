@@ -30,7 +30,7 @@ post_id: 55134
 
 [Watch Video Highlight](https://videopress.com/embed/7IdXR5EB)
 
-**1986:** Bruce debuts the video for his new single, "[War](../2019-05-27_cover-me-war/post.md)," from his *Live 1975-85* box set.<br>
+**1986:** Bruce debuts the video for his new single, "[War](../2016-01-02_cover-me-war/post.md)," from his *Live 1975-85* box set.<br>
 
 [Watch on Youtube: Bruce Springsteen - War](https://www.youtube.com/watch?v=mn91L9goKfQ)
 

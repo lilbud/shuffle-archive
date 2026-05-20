@@ -56,7 +56,7 @@ post_id: 57867
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-07-27.png.webp)
 
-**2003:** Night Seven of ten at Giants Stadium on the Rising Tour has an unusual opening number: "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)." Check out the rare IEM recording of "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" below.<br>
+**2003:** Night Seven of ten at Giants Stadium on the Rising Tour has an unusual opening number: "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)." Check out the rare IEM recording of "[Meeting Across the River](../2019-08-04_roll-of-the-dice-meeting-across-the-river/post.md)" below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/xKaPgDtU)
 

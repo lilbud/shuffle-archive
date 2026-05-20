@@ -50,7 +50,7 @@ post_id: 55845
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road (Toronto 2016)](https://www.youtube.com/watch?v=XyF69cUZcP4)
 
-**2017**: The Australian Summer Tour moves to Melbourne. Finding it embarrassing to represent America during the early days of the Trump Administration, Bruce makes a statement by opening with an acoustic cover of The Orlon’s “[Don’t Hang Up](../2021-05-13_cover-me-dont-hang-up/post.md),” dedicated to Prime Minister Turnbull after Trump hung up on their call the previous day. Bruce follows up with “[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)” and also includes a solo acoustic “[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)” in the encores, bookending the show with pointed statements.<br>
+**2017**: The Australian Summer Tour moves to Melbourne. Finding it embarrassing to represent America during the early days of the Trump Administration, Bruce makes a statement by opening with an acoustic cover of The Orlon’s “[Don’t Hang Up](../2021-05-13_cover-me-dont-hang-up/post.md),” dedicated to Prime Minister Turnbull after Trump hung up on their call the previous day. Bruce follows up with “[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)” and also includes a solo acoustic “[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)” in the encores, bookending the show with pointed statements.<br>
 
 [Watch on Youtube: "Don't Hang Up" (Melbourne, 02/02/17)](https://www.youtube.com/watch?v=zSiZMyUlw8Y)
 
@@ -64,6 +64,6 @@ post_id: 55845
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2024:** Bruce salutes and performs with Jon Bon Jovi at the annual MusiCares Person of the Year gala in honor of Bon Jovi. The two perform “[Who Says You Can’t Go Home](../2019-06-22_matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/post.md)” and “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” together.<br>
+**2024:** Bruce salutes and performs with Jon Bon Jovi at the annual MusiCares Person of the Year gala in honor of Bon Jovi. The two perform “[Who Says You Can’t Go Home](../2019-06-22_matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/post.md)” and “[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)” together.<br>
 
 [Watch on Youtube: Jon Bon Jovi And Bruce Springsteen Perform On Stage In LA | TMZ](https://www.youtube.com/watch?v=TRVlZPAUkHo)

@@ -28,7 +28,7 @@ post_id: 61114
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/10/1984-10-15b.png.webp)
 
-**1988:** The Human Rights Now! Tour comes to a close with a worldwide radio broadcast from the finale in Buenos Aires. This last show features some special guest appearances: David Sancious joins his old band for "[Glory Days,](../2024-06-04_roll-of-the-dice-glory-days/post.md)" "[Raise Your Hand,](../1976-01-13_cover-me-raise-your-hand/post.md/)" and "Twist and Shout"–the latter two featuring Branford Marsalis as well. HBO will air portions of the show in a documentary later in the year, and a DVD/Blu-ray collection will be released many years later.<br>
+**1988:** The Human Rights Now! Tour comes to a close with a worldwide radio broadcast from the finale in Buenos Aires. This last show features some special guest appearances: David Sancious joins his old band for "[Glory Days,](../1984-01-12_roll-of-the-dice-glory-days/post.md)" "[Raise Your Hand,](../1976-01-13_cover-me-raise-your-hand/post.md/)" and "Twist and Shout"–the latter two featuring Branford Marsalis as well. HBO will air portions of the show in a documentary later in the year, and a DVD/Blu-ray collection will be released many years later.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/6Vqm2t6a)
 
@@ -80,7 +80,7 @@ post_id: 61114
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2005-10-15b.png.webp)
 
-**2007:** Bruce tour premieres "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" early in the set during his Magic Tour stop at the Air Canada Center in Toronto.<br>
+**2007:** Bruce tour premieres "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)" early in the set during his Magic Tour stop at the Air Canada Center in Toronto.<br>
 
 [Watch on Youtube: Bruce Springsteen - Magic (Live Toronto 15.10.2007)](https://www.youtube.com/watch?v=hgzYSwLqQcc)
 
@@ -90,7 +90,7 @@ post_id: 61114
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/2014-1027.jpg.webp)
 
-**2020:** Still in quarantine during the pandemic, Bruce grants interviews via Zoom in support of his upcoming album, [*Letter to You*.](../2023-07-10_album-companion-letter-to-you/post.md)<br>
+**2020:** Still in quarantine during the pandemic, Bruce grants interviews via Zoom in support of his upcoming album, [*Letter to You*.](../2017-01-01_album-companion-letter-to-you/post.md)<br>
 
 **2024:** At an invite-only premiere for *Road Diary* at the Museum of Modern Art in New York City, Bruce joins a post-film panel with Jon Landau, Thom Zimny, and Steven Van Zandt to discuss the project.<br>
 

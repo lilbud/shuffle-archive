@@ -34,7 +34,7 @@ post_id: 55271
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1984-12-09.png.webp)
 
-**1995:** At Night Two at the Tower Theater in Philadelphia on the Ghost of Tom Joad Tour, Bruce plays a tour one-off of "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)." Just as the night before, the show is recorded, and parts of it will be broadcast the following week on the Columbia Records Radio Hour.<br>
+**1995:** At Night Two at the Tower Theater in Philadelphia on the Ghost of Tom Joad Tour, Bruce plays a tour one-off of "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)." Just as the night before, the show is recorded, and parts of it will be broadcast the following week on the Columbia Records Radio Hour.<br>
 
 [Watch on Youtube: Straight Time (Live at The Tower Theater, Philadelphia, PA - December 1995)](https://www.youtube.com/watch?v=JL5x0GNeuBY)
 
@@ -70,7 +70,7 @@ post_id: 55271
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2019:** Bruce joins Sting, John Mellencamp, James Taylor, Bob Geldof, The Eurythmics, and more at the 30th anniversary benefit concert for the Rainforest Foundation at the Beacon Theater in New York City. Bruce plays three songs, including duets with John Mellencamp on "[Pink Houses](../2021-03-11_matr-john-mellancamp-and-bruce-springsteen-pink-houses/post.md)" and "[Glory Days,](../2024-06-04_roll-of-the-dice-glory-days/post.md)" plus an all-star encore of ["Don't Stop Believin'.](../2020-12-20_matr-bruce-springsteen-sting-lady-gaga-elton-john-and-more-dont-stop-believin/post.md)"<br>
+**2019:** Bruce joins Sting, John Mellencamp, James Taylor, Bob Geldof, The Eurythmics, and more at the 30th anniversary benefit concert for the Rainforest Foundation at the Beacon Theater in New York City. Bruce plays three songs, including duets with John Mellencamp on "[Pink Houses](../2021-03-11_matr-john-mellancamp-and-bruce-springsteen-pink-houses/post.md)" and "[Glory Days,](../1984-01-12_roll-of-the-dice-glory-days/post.md)" plus an all-star encore of ["Don't Stop Believin'.](../2020-12-20_matr-bruce-springsteen-sting-lady-gaga-elton-john-and-more-dont-stop-believin/post.md)"<br>
 
 [Watch on Youtube: John Mellencamp & Bruce Springsteen - Pink House - Rainforest Benefit Show 12-9-2019](https://www.youtube.com/watch?v=nhppxrSzQ24)
 

@@ -82,7 +82,7 @@ Perhaps it was a way of welcoming Nils to the band (Nils joined just prior to th
 
 Bruce recorded "Janey, Don't You Lose Heart" in 1983 during the recording sessions for what would become *Born in the U.S.A.* Although it obviously didn't make the final album, it very nearly did–in fact, at one point it was slated to be the last song on the album, which would have ended the album on a much more uplifting note.
 
-Bruce couldn't lock her completely away, though–he actually released "Janey" as the B-side to "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" in the summer of 1985, and he surprised fans a live performance shortly thereafter.
+Bruce couldn't lock her completely away, though–he actually released "Janey" as the B-side to "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)" in the summer of 1985, and he surprised fans a live performance shortly thereafter.
 
 Janey made her stage debut during the final stand of the Born in the USA Tour, introduced without ceremony as the penultimate encore of the night. It was a strange place in the setlist to introduce a new song, but it wouldn't be the only time Janey would show up at the end of a show. Thankfully, that debut performance was filmed (and was just yesterday released on an official archive series release), so we can watch it all these decades later. Bruce chose to give Roy the solo spotlight that night instead of Clarence, but otherwise it's a faithful first outing.
 

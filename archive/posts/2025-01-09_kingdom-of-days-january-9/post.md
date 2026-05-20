@@ -18,7 +18,7 @@ Bruce plays two more shows that night at Paul’s Mall.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/12/1973-01-09.jpg.webp)
 
-**1980:** Bruce Springsteen joins very young cover band Atlantic City Expressway on stage at The Fast Lane in Asbury Park. The band’s front man: seventeen-year-old Jon Bon Jovi. Jon is still two years from recording his first hit, three years from forming his own band, and four years from releasing his first album. Atlantic City Expressway is quite familiar with Bruce’s work–his songs often appeared on the band’s set lists. Tonight, Bruce and the band perform “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” together.<br>
+**1980:** Bruce Springsteen joins very young cover band Atlantic City Expressway on stage at The Fast Lane in Asbury Park. The band’s front man: seventeen-year-old Jon Bon Jovi. Jon is still two years from recording his first hit, three years from forming his own band, and four years from releasing his first album. Atlantic City Expressway is quite familiar with Bruce’s work–his songs often appeared on the band’s set lists. Tonight, Bruce and the band perform “[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)” together.<br>
 
 ![Image result for atlantic city expressway bon jovi](https://1.bp.blogspot.com/_59qYhgWrjqU/TLTulZBXZhI/AAAAAAAAALU/F7YTLO1h-W4/s1600/1978-Atlantic%2BCity%2BExpressway.jpg)
 

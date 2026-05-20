@@ -60,7 +60,7 @@ post_id: 56286
 
 [Watch on Youtube: Something In The Night - Bruce Springsteen - Rod Laver Arena - 24-03-2013](https://www.youtube.com/watch?v=G6RuCkjsUR4)
 
-**2016:** The revived River Tour finally loosens up in Seattle when Bruce takes sign requests for much of the post-album set and tour premieres “Adam Raised a Cain.” Eddie Vedder joins Bruce for “[Bo](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)b[by Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)” in the encores.<br>
+**2016:** The revived River Tour finally loosens up in Seattle when Bruce takes sign requests for much of the post-album set and tour premieres “Adam Raised a Cain.” Eddie Vedder joins Bruce for “[Bo](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)b[by Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)” in the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen and Eddie Vedder- Bobby Jean, Key Arena, Seattle, WA, March 24, 2016](https://www.youtube.com/watch?v=TuyXZLdfSCQ)
 

@@ -42,7 +42,7 @@ post_id: 56630
 
 [Watch Video Highlight](https://videopress.com/embed/Ty8xxuZl)
 
-**2008:** At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bobcats Arena enjoy the tour premieres of "[Souls of the Departed](../2019-03-19_roll-of-the-dice-souls-of-the-departed/post.md)" (the show opener) and "[Wild Billy's Circus Story](../2019-03-14_roll-of-the-dice-wild-billys-circus-story/post.md),"<br>
+**2008:** At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bobcats Arena enjoy the tour premieres of "[Souls of the Departed](../1992-02-10_roll-of-the-dice-souls-of-the-departed/post.md)" (the show opener) and "[Wild Billy's Circus Story](../2019-03-14_roll-of-the-dice-wild-billys-circus-story/post.md),"<br>
 
 [Watch on Youtube: Souls of The Departed - Bruce Sprinsgteen](https://www.youtube.com/watch?v=nHlzZofJQwQ)
 
@@ -58,7 +58,7 @@ post_id: 56630
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/04/2009-0427.jpg.webp)
 
-**2012:** At night two in Los Angeles, Bruce surprises early arrivals by walking out on stage pre-show with a group of relatives and playing an acoustic "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)." Bruce fakes out Kevin Buell with a fake guitar mishap before "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)," only to honor him for reaching the 1,000 show milestone when he came out on stage. Making their tour debuts tonight: "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" and "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)." For more highlights from this show, see my [Where the Band Was report](../2018-04-27_where-the-band-was-los-angeles-april-27-2012/post.md) from this date.<br>
+**2012:** At night two in Los Angeles, Bruce surprises early arrivals by walking out on stage pre-show with a group of relatives and playing an acoustic "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)." Bruce fakes out Kevin Buell with a fake guitar mishap before "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)," only to honor him for reaching the 1,000 show milestone when he came out on stage. Making their tour debuts tonight: "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" and "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)." For more highlights from this show, see my [Where the Band Was report](../2018-04-27_where-the-band-was-los-angeles-april-27-2012/post.md) from this date.<br>
 
 [Watch on Youtube: Bruce Springsteen - For You (Acoustic - Live Los Angeles April 27 2012)](https://www.youtube.com/watch?v=I46gjoZQtws)
 

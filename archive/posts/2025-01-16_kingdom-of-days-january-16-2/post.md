@@ -66,4 +66,4 @@ post_id: 55590
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2023:** Bruce rehearses backgrounds with Soozie Tyrell and The E Street Choir at The Vogel in Red Bank, New Jersey, in preparation for their upcoming world tour. First hand reports from fans (including this blogger) listening at the stage door confirming rare piano run-throughs of songs like “[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” and “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).”<br>
+**2023:** Bruce rehearses backgrounds with Soozie Tyrell and The E Street Choir at The Vogel in Red Bank, New Jersey, in preparation for their upcoming world tour. First hand reports from fans (including this blogger) listening at the stage door confirming rare piano run-throughs of songs like “[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)” and “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md).”<br>

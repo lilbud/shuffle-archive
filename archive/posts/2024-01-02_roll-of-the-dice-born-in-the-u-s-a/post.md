@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/born-usa-springsteen.jpg
 post_id: 11226
 ---
-Last month, we took a look at Bruce's unreleased *Nebraska-*era home demo, "[Vietnam](../2019-08-31_roll-of-the-dice-vietnam/post.md)."
+Last month, we took a look at Bruce's unreleased *Nebraska-*era home demo, "[Vietnam](../1984-01-02_roll-of-the-dice-vietnam/post.md)."
 
 "Vietnam" was the grandfather of both "Born in the U.S.A." and "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)," but by the end of that essay, it was pretty clear which path Bruce was going to follow first.
 
@@ -159,7 +159,7 @@ The President of the United States seems to have been in their company. Although
 
 [Watch on Youtube: Ronald Reagan - Bruce Springsteen (19.09.1984)](https://www.youtube.com/watch?v=z8BRWNaOdlc)
 
-In fairness, though, at times it seemed like Bruce was determined to feed the controversy. In January 1985, producer Arthur Baker (who had previously tried his hand at "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" and "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)") produced a trio of remixes of Bruce's anthem.
+In fairness, though, at times it seemed like Bruce was determined to feed the controversy. In January 1985, producer Arthur Baker (who had previously tried his hand at "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" and "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)") produced a trio of remixes of Bruce's anthem.
 
 These remixes draw a lot of scorn, but if you listen carefully, they're actually pretty good–especially the "Freedom Mix" below. Yes, it's mostly a curiosity today, but had the final minute of Bruce's studio version sounded as harrowing and haunted as the final minutes of Baker's remix, a lot fewer people would have misunderstood the song.
 

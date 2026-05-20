@@ -20,7 +20,7 @@ One such far-flung location was New Delhi, where Bruce met up with The Epidemics
 
 Although "Eye Catcher" is a studio track, Bruce's contribution was captured live–he joined the duo on stage during their set at the New Delhi Amnesty Rights Now! show, and his solos were seamlessly integrated with the studio track. (Nils and David Sancious are there on the grafted live track as well.)
 
-"Up to You" probably won't make any Springsteen fan's best-of list, but it's fascinating to hear how Bruce's Americana harmonica melodies (you can *almost* hear hints of "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "This Hard Land" if you listen) blend with Indian melodies and instrumentation.
+"Up to You" probably won't make any Springsteen fan's best-of list, but it's fascinating to hear how Bruce's Americana harmonica melodies (you can *almost* hear hints of "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" and "This Hard Land" if you listen) blend with Indian melodies and instrumentation.
 
 **Up to You**<br>
 **Recorded** Unknown (live excerpt from 9/30/88)<br>

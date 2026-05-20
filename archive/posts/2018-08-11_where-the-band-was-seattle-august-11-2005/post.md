@@ -12,7 +12,7 @@ Coming off an outstanding show [the night before in Portland](https://wp.me/p9w3
 
 Portland’s setlist was romantic and eclectic, and I suspected that Seattle might turn out to be a very different show. I was right: Seattle was no less surprising, and still filled with rarities (including five songs I’d never heard live before), but the mood was more serious–this was Bruce in cinematic mode, with liberal dips into *Nebraska* and [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)-style storytelling.
 
-Bruce had been on a streak, opening shows with a tour debut–heck, sometimes even a world debut–each night, but he broke pattern in Seattle, opening with a song he’d played before (“[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)“) but in a very different arrangement–on pump organ instead of guitar. Either way, it was a first for me, and I savored the moment, knowing that another night of unpredictable, personal firsts was in store.
+Bruce had been on a streak, opening shows with a tour debut–heck, sometimes even a world debut–each night, but he broke pattern in Seattle, opening with a song he’d played before (“[Living Proof](../1992-02-08_roll-of-the-dice-living-proof/post.md)“) but in a very different arrangement–on pump organ instead of guitar. Either way, it was a first for me, and I savored the moment, knowing that another night of unpredictable, personal firsts was in store.
 
 [Watch on Youtube: Bruce Springsteen - Living Proof - Seattle - 8/11/05](https://www.youtube.com/watch?v=DOr0YpxkVtI)
 
@@ -36,7 +36,7 @@ More surprises were in store, though. Following the reliable nightly outing of �
 
 [Watch on Youtube: Bruce Springsteen - Frankie - Seattle-8/11/05](https://www.youtube.com/watch?v=CGT-SE1K4Yg)
 
-The next few songs were a return to standard territory: an always welcome outing for “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md),” and the nightly pairing of “[Part Man, Part Monkey](../2022-02-19_roll-of-the-dice-part-man-part-monkey/post.md)” and “[Ain’t Got You](../2021-08-30_roll-of-the-dice-aint-got-you/post.md).”
+The next few songs were a return to standard territory: an always welcome outing for “[The River](../2021-03-04_roll-of-the-dice-the-river/post.md),” and the nightly pairing of “[Part Man, Part Monkey](../2022-02-19_roll-of-the-dice-part-man-part-monkey/post.md)” and “[Ain’t Got You](../1987-01-01_roll-of-the-dice-aint-got-you/post.md).”
 
 [Watch on Youtube: Bruce Springsteen - The River - Seattle - 8/11/05](https://www.youtube.com/watch?v=yEFgBoS8qsQ)
 
@@ -70,8 +70,8 @@ Sometime between my Oakland show in May and the Portland show in August, a silen
 
 My wife and I made it right up to the front of the stage, where I was able to shake hands with Bruce for the second day in a row (the previous day was during the afternoon when Bruce took a parking lot stroll after the soundcheck). I must not have given her ample warning though, because to this day she still talks about the out-of-body experience of being dragged through a dark arena and suddenly being just inches in front of Bruce.
 
-From that vantage point we were treated to a double-shot from Bruce’s first album: “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)” and the one and only acoustic guitar performance of “[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)” on that tour.
+From that vantage point we were treated to a double-shot from Bruce’s first album: “[Growin’ Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)” and the one and only acoustic guitar performance of “[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)” on that tour.
 
 [Watch on Youtube: Bruce Springsteen - For You (Acoustic) - Seattle - 8/11/05](https://www.youtube.com/watch?v=WUMuta55JIg)
 
-The standard encores of “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” and “[Dream Baby Dream](../2020-04-02_cover-me-dream-baby-dream/post.md)” closed a terrific show, leaving me two days to wonder what my final tour show in Vancouver would bring. I hoped for at least a few songs I hadn’t yet heard on this stand. I never dreamed I’d get *ten*.
+The standard encores of “[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)” and “[Dream Baby Dream](../2020-04-02_cover-me-dream-baby-dream/post.md)” closed a terrific show, leaving me two days to wonder what my final tour show in Vancouver would bring. I hoped for at least a few songs I hadn’t yet heard on this stand. I never dreamed I’d get *ten*.

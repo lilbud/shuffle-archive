@@ -8,7 +8,7 @@ categories: kingdom-of-days
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/02/TOL-Express.jpg
 post_id: 56002
 ---
-**1972:** The Bruce Springsteen Band plays their seventh show this month at The Back Door in Richmond. This show features the only known circulating performance of “[Down to the Riverside](../2021-10-15_roll-of-the-dice-down-to-the-riverside/post.md).”<br>
+**1972:** The Bruce Springsteen Band plays their seventh show this month at The Back Door in Richmond. This show features the only known circulating performance of “[Down to the Riverside](../1972-02-05_roll-of-the-dice-down-to-the-riverside/post.md).”<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3](https://estreetshuffle.com/wp-content/uploads/2021/10/06-Down-to-the-Riverside.mp3)
 
@@ -34,7 +34,7 @@ post_id: 56002
 
 [Watch on Youtube: U.S.A. For Africa - We Are the World](https://www.youtube.com/watch?v=9AjkUyX0rVw)
 
-**1988:** The Tunnel of Love Express Tour kicks off in Worcester, Massachusetts. Most *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*songs receive their first concert airings, and old standards are played with new arrangements. Unheard outtakes and covers round out a tightly thematic set list and a very different Springsteen show than most fans have ever heard. The Miami Horns join the E Street Band for this tour, temporarily renamed The Horns of Love.<br>
+**1988:** The Tunnel of Love Express Tour kicks off in Worcester, Massachusetts. Most *[Tunnel of Love](../1987-01-01_album-companion-tunnel-of-love/post.md)*songs receive their first concert airings, and old standards are played with new arrangements. Unheard outtakes and covers round out a tightly thematic set list and a very different Springsteen show than most fans have ever heard. The Miami Horns join the E Street Band for this tour, temporarily renamed The Horns of Love.<br>
 
 Listen in on the soundcheck…
 
@@ -110,7 +110,7 @@ Listen in on the soundcheck…
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road (acoustic) - Auckland, NZ - 25 02 2017](https://www.youtube.com/watch?v=lDwzH92dZhI)
 
-**2023:** The E Street Choir is short-handed tonight, with both Lisa Lowell and Curtis King down for the count with COVID-19. Still, Bruce and the band deliver a great show at the Moda Center in Portland, tour premiering “[I’m on Fire.](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)”<br>
+**2023:** The E Street Choir is short-handed tonight, with both Lisa Lowell and Curtis King down for the count with COVID-19. Still, Bruce and the band deliver a great show at the Moda Center in Portland, tour premiering “[I’m on Fire.](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)”<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm On Fire, Portland OR, 2/25/2023 Live](https://www.youtube.com/watch?v=rLY9_P57_kE)
 

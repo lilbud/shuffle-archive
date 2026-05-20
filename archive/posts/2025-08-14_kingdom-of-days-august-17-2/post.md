@@ -20,7 +20,7 @@ post_id: 59369
 
 [Watch on Youtube: August 17th, 1981 - Morrison, CO](https://www.youtube.com/playlist?list=PLsxNBNx2akeU6hH1IQ-_RzSrXz3-Te7tL)
 
-**1984:** The Born in the U.S.A. Tour's ten-night stand at the Brendan Byrne Arena in East Rutherford reaches Night Eight, a show notable for the first-ever performance of "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" and the tour premiere of "Follow That Dream."<br>
+**1984:** The Born in the U.S.A. Tour's ten-night stand at the Brendan Byrne Arena in East Rutherford reaches Night Eight, a show notable for the first-ever performance of "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)" and the tour premiere of "Follow That Dream."<br>
 
 [Watch on Youtube: Bruce Springsteen - first ever "I'm Goin' Down" - 1984-08-17](https://www.youtube.com/watch?v=_PJFou1o1JE)
 

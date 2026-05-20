@@ -37,7 +37,7 @@ But it's the second verse that rings with familiarity for Springsteen fans–lis
 > *I fall down on my knees and I cry*
 > *It's my way of saying goodbye*
 
-It would take another eighteen years, but that middle line would eventually make it (in slightly modified form) to an official release via "[Downbound Train.](../2019-01-22_roll-of-the-dice-downbound-train/post.md)"
+It would take another eighteen years, but that middle line would eventually make it (in slightly modified form) to an official release via "[Downbound Train.](../1984-01-07_roll-of-the-dice-downbound-train/post.md)"
 
 It's believed that Bruce and The Castiles likely played "That's What You Get" live throughout 1966 and 1967, but no document survives to confirm that. Not only does this recording stand as the only confirmed performance of one of Bruce's earliest songs, it's tied with "Baby I" as the earliest known recording of a Bruce Springsteen performance.
 

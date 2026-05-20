@@ -32,7 +32,7 @@ post_id: 57122
 
 [Watch on Youtube: Max Wedding](https://www.youtube.com/watch?v=BYSy8wMTC34)
 
-**1988:** At Night Two at Villa Park in Birmingham, England, on the Tunnel of Love Tour, Edwin Starr drops by to perform "[War](../2019-05-27_cover-me-war/post.md)" with the band.<br>
+**1988:** At Night Two at Villa Park in Birmingham, England, on the Tunnel of Love Tour, Edwin Starr drops by to perform "[War](../2016-01-02_cover-me-war/post.md)" with the band.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/BFpYsmqK)
 
@@ -54,7 +54,7 @@ post_id: 57122
 
 [Watch on Youtube: Copenhagen (6/22/2005)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1D-h5b2aQCFM2wJZ8n-7x-2)
 
-**2006:** Bruce opens with the debut of a new song at his Seeger Sessions show in Madison Square Garden: "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)." This is the performance that is included on the *American Land* edition of [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md).<br>
+**2006:** Bruce opens with the debut of a new song at his Seeger Sessions show in Madison Square Garden: "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)." This is the performance that is included on the *American Land* edition of [*We Shall Overcome: The Seeger Sessions*](../2022-07-17_album-companion-we-shall-overcome/post.md).<br>
 
 [Watch on Youtube: Bruce Springsteen - American Land (Live tour Video)](https://www.youtube.com/watch?v=tpeisHYbKdE)
 
@@ -84,7 +84,7 @@ post_id: 57122
 
 [Watch on Youtube: Bruce Springsteen - Nijmegen - Twist & Shout (60.000 people and rain :) MultiCam](https://www.youtube.com/watch?v=Y97eccXdw6c)
 
-**2016:** The River Tour starts a northern European swing with a show at Telia Parken in Copenhagen, where Bruce tour premieres "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)," "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)," [We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)," and "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)." This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14117/Bruce-Springsteen-mp3-flac-download-6-22-2016-Telia-Parken-Copenhagen-DK.html).<br>
+**2016:** The River Tour starts a northern European swing with a show at Telia Parken in Copenhagen, where Bruce tour premieres "[Rendezvous](../2021-05-08_roll-of-the-dice-rendezvous/post.md)," "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)," [We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)," and "[Pink Cadillac](../2019-08-21_roll-of-the-dice-pink-cadillac/post.md)." This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14117/Bruce-Springsteen-mp3-flac-download-6-22-2016-Telia-Parken-Copenhagen-DK.html).<br>
 
 [Watch on Youtube: Bruce Springsteen - Pink Cadillac - Copenhagen 2016](https://www.youtube.com/watch?v=mwlCGEQVK5w)
 

@@ -50,13 +50,13 @@ post_id: 59654
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1984-09-13.jpg.webp)
 
-**1985:** At the MTV Video Music Awards, "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" wins the award for Best Male Video, and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" wins the award for Best Stage Performance in a Video (but loses to Philip Bailey and Phil Collins' "Easy Lover" in the Best Overall Performance in a Video category). Little Steven and John Sayles are on hand to accept the award on Bruce's behalf (ironically, since Little Steven is no longer in the E Street Band).<br>
+**1985:** At the MTV Video Music Awards, "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" wins the award for Best Male Video, and "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" wins the award for Best Stage Performance in a Video (but loses to Philip Bailey and Phil Collins' "Easy Lover" in the Best Overall Performance in a Video category). Little Steven and John Sayles are on hand to accept the award on Bruce's behalf (ironically, since Little Steven is no longer in the E Street Band).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/12KMj7U1)
 
 [Watch Video Highlight](https://videopress.com/embed/hYRH5uew)
 
-Why isn't Bruce there to accept his award? Because he's on stage with the E Street Band at the Cotton Bowl in Dallas, where "Travelin" Band" makes its tour premiere as the show closer, and Bruce forgets the words to "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)."
+Why isn't Bruce there to accept his award? Because he's on stage with the E Street Band at the Cotton Bowl in Dallas, where "Travelin" Band" makes its tour premiere as the show closer, and Bruce forgets the words to "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)."
 
 [Watch Video Highlight](https://videopress.com/embed/TNM9ebpw)
 

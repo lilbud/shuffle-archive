@@ -86,7 +86,7 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 **2006:** Bruce rehearses with the Sessions Band for their upcoming European tour.<br>
 
-**2012:** Bruce and the E Street Band kick off a three-night Wrecking Ball stand at MetLife Stadium in East Rutherford, surprising early arrivals with a pre-show of "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" and "[For You.](../2022-01-08_roll-of-the-dice-for-you/post.md)" The set list features the tour premiere of "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)," and Vini Lopez makes guest appearances in both the main set and the encores.<br>
+**2012:** Bruce and the E Street Band kick off a three-night Wrecking Ball stand at MetLife Stadium in East Rutherford, surprising early arrivals with a pre-show of "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)" and "[For You.](../2011-01-07_roll-of-the-dice-for-you/post.md)" The set list features the tour premiere of "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)," and Vini Lopez makes guest appearances in both the main set and the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen, Growin' Up / For You, MetLife Stadium, 09/19/12](https://www.youtube.com/watch?v=uU4HFVGbvrY)
 

@@ -22,7 +22,7 @@ post_id: 57049
 
 [Watch on Youtube: Bruce Springsteen Ramrod #1](https://www.youtube.com/watch?v=XwJp0FaZNG4)
 
-**1982:** Bruce joins Jackson Browne on stage for "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "[Running on Empty](../2021-03-24_matr-jackson-browne-and-bruce-springsteen-running-on-empty/post.md)" in New York's Central Park at the Rally for Disarmament. Later that night, Bruce plays three songs with Sonny Kenn at Big Man's West in Red Bank.<br>
+**1982:** Bruce joins Jackson Browne on stage for "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" and "[Running on Empty](../2021-03-24_matr-jackson-browne-and-bruce-springsteen-running-on-empty/post.md)" in New York's Central Park at the Rally for Disarmament. Later that night, Bruce plays three songs with Sonny Kenn at Big Man's West in Red Bank.<br>
 
 [Watch on Youtube: Bruce Springsteen & Jackson Browne - The Promised Land](https://www.youtube.com/watch?v=ONG5UOwbpu4)
 

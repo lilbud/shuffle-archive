@@ -30,11 +30,11 @@ post_id: 61317
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/47458526171_9a81e03089_o.jpg.webp)
 
-**1985:** On *American Top 40*, host Casey Kasem introduces "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" with the story of how Bruce joined The Castiles.<br>
+**1985:** On *American Top 40*, host Casey Kasem introduces "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)" with the story of how Bruce joined The Castiles.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-09.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-09.mp3)
 
-**1992:** Bruce brings World Tour 1992 to the Nassau Coliseum in Uniondale for a two-night stand highlighted by guest appearances. Tonight is Night One, and Steve Van Zandt joins for an encore of "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
+**1992:** Bruce brings World Tour 1992 to the Nassau Coliseum in Uniondale for a two-night stand highlighted by guest appearances. Tonight is Night One, and Steve Van Zandt joins for an encore of "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ba1yui05)
 
@@ -64,7 +64,7 @@ post_id: 61317
 
 [Watch on Youtube: Bruce Springsteen - Spare Parts (Acoustic)](https://www.youtube.com/watch?v=quDkCHDvLLk)
 
-**2006:** Nils Lofgren makes a guest appearance during "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" when Bruce brings the Seeger Sessions Tour to the NEC Arena in Birmingham, England. Nils is the last man standing (and singing, and playing) on stage after the band exits.<br>
+**2006:** Nils Lofgren makes a guest appearance during "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" when Bruce brings the Seeger Sessions Tour to the NEC Arena in Birmingham, England. Nils is the last man standing (and singing, and playing) on stage after the band exits.<br>
 
 [Watch on Youtube: Bruce Springsteen & Nils Lofgren - "Pay Me My Money Down" - Birmingham, 2006-11-09](https://www.youtube.com/watch?v=ZV8WxevPOaY)
 

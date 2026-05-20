@@ -68,7 +68,7 @@ The last surviving member of The Castiles found himself profoundly affected by t
 
 As summer turned to autumn turned to winter, Bruce reflected on his loss and his own mortality. His Broadway run was over, no tour was on the horizon, and it had been some time since he'd been visited by a muse. Something tugged at him though, and in the early days of spring, the dam broke.
 
-Over the course of about ten days in April 2019, Bruce wrote the songs that would form the heart of [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md). "I just wandered around the house in different rooms," he told Brian Hiatt in *Rolling Stone*, "and I wrote a song each day. I wrote a song in the bedroom. I wrote a song in our bar. I wrote a song in the living room."
+Over the course of about ten days in April 2019, Bruce wrote the songs that would form the heart of [*Letter to You*](../2017-01-01_album-companion-letter-to-you/post.md). "I just wandered around the house in different rooms," he told Brian Hiatt in *Rolling Stone*, "and I wrote a song each day. I wrote a song in the bedroom. I wrote a song in our bar. I wrote a song in the living room."
 
 The first song–the one that established the theme for the album and inspired all that came after–was "Last Man Standing."
 

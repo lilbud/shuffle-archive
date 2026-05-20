@@ -54,7 +54,7 @@ post_id: 56238
 
 [Watch on Youtube: Tragedy](https://www.youtube.com/watch?v=jf7BSf5ezUY)
 
-**2003:** On the eve of the Iraq War, Bruce opens the Australia leg of The Rising Tour with an acoustic "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" at the Telstra Dome in Melbourne. "[War](../2019-05-27_cover-me-war/post.md)" also receives a rare outing.<br>
+**2003:** On the eve of the Iraq War, Bruce opens the Australia leg of The Rising Tour with an acoustic "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" at the Telstra Dome in Melbourne. "[War](../2016-01-02_cover-me-war/post.md)" also receives a rare outing.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uZuuks3s)
 

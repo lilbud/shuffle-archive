@@ -76,7 +76,7 @@ post_id: 59750
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2004-10-01b.jpg.webp)
 
-**2006:** Bruce and the Sessions Band kick off the final leg of the Seeger Sessions Tour with an autumn tour of Italy, starting in Bologna with a show at PalaMalaguti, where "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" makes its tour debut in a beautiful new arrangement, and Bruce plays "[This Little Light of Mine](../1976-01-31_cover-me-this-little-light-of-mine/post.md/)" for the very first time. "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" returns as the show closer, where it will remain for the rest of the tour.<br>
+**2006:** Bruce and the Sessions Band kick off the final leg of the Seeger Sessions Tour with an autumn tour of Italy, starting in Bologna with a show at PalaMalaguti, where "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" makes its tour debut in a beautiful new arrangement, and Bruce plays "[This Little Light of Mine](../1976-01-31_cover-me-this-little-light-of-mine/post.md/)" for the very first time. "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" returns as the show closer, where it will remain for the rest of the tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/O7hJWw9Y)
 
@@ -98,7 +98,7 @@ post_id: 59750
 
 **2016:** Bruce brings his promotional book tour to the west coast, starting with an appearance at Elliott Bay Book Company in Seattle, where he meets the author of this blog at 2 minutes and 35 seconds before the end of this video!<br>
 
-**2022:** Bruce and Jake join The Killers for "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," "Dustland," and "Born to Run" at Madison Square Garden.<br>
+**2022:** Bruce and Jake join The Killers for "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)," "Dustland," and "Born to Run" at Madison Square Garden.<br>
 
 [Watch on Youtube: The Killers and Bruce Springsteen Dustland (with intro) Live at Madison Square Garden NYC 10/1/22 4K](https://www.youtube.com/watch?v=QgIXt_mi9qA)
 

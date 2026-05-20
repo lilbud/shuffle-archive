@@ -46,7 +46,7 @@ Joel's video was nominated for a Best Video VMA in 1984 but lost; "I'm on Fire" 
 
 Except that video has long since faded from the zeitgeist, so it doesn't fully explain the song's strange popularity either.
 
-So maybe it's the lyrics. Unlike "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" (the only songs that previously outperformed it), both of which require close attention to understand thanks to their belying backing tracks, Bruce's words in "I'm on Fire" are simple, direct, and frank–and in perfect comity with his music.
+So maybe it's the lyrics. Unlike "[Hungry Heart](../2022-12-21_roll-of-the-dice-hungry-heart/post.md)" and "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" (the only songs that previously outperformed it), both of which require close attention to understand thanks to their belying backing tracks, Bruce's words in "I'm on Fire" are simple, direct, and frank–and in perfect comity with his music.
 
 It's almost silly to try and analyze "I'm on Fire," so blatant are its lyrics.
 

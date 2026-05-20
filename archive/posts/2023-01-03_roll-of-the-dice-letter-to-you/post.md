@@ -16,7 +16,7 @@ But I didn't. In fact, as time passed, I only felt worse.
 
 When "Letter to You" debuted as the first single and title track for Bruce's new album, the novelty of having new Springsteen music carried me for a few days. But even at first listen, I knew something was off, and as time went on I felt indifference turn to dislike, to the point where I even edited the song out of my playlist and skipped the track whenever I played the CD.
 
-"Letter to You" became the first Springsteen track since "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" to leave me stone cold.
+"Letter to You" became the first Springsteen track since "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" to leave me stone cold.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4wtHDwDzVtQ)
 

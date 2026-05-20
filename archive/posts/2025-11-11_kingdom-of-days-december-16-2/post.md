@@ -34,7 +34,7 @@ post_id: 63011
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1984-12-16.png.webp)
 
-**1992:** Joe Grushecky joins Bruce and his new touring band for "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)' and "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" when World Tour 1992 stops at Pittsburgh's Civic Arena.<br>
+**1992:** Joe Grushecky joins Bruce and his new touring band for "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)' and "[Santa Claus is Comin' to Town](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" when World Tour 1992 stops at Pittsburgh's Civic Arena.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/DzFye1yV)
 
@@ -42,7 +42,7 @@ post_id: 63011
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/45085203155_e0e88b3926_o.jpg.webp)
 
-**1995:** At Night Two at the Orpheum Theater in Boston on the Ghost of Tom Joad Tour, Bruce plays "[Brothers Under the Bridge](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" for the first time ever, as well as the tour premiere of "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)," which will evolve as the tour goes on and become a staple of Bruce's acoustic performances.<br>
+**1995:** At Night Two at the Orpheum Theater in Boston on the Ghost of Tom Joad Tour, Bruce plays "[Brothers Under the Bridge](../2021-12-24_cover-me-santa-claus-is-comin-to-town/post.md)" for the first time ever, as well as the tour premiere of "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)," which will evolve as the tour goes on and become a staple of Bruce's acoustic performances.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Brothers Under the Bridge" - Boston 1995-12-16](https://www.youtube.com/watch?v=mdNEGaautJw)
 
@@ -52,7 +52,7 @@ post_id: 63011
 
 **1997:** Bruce throws a Christmas party at McLoone's Rum Runner in Sea Bright and joins Bobby Bandiera as the evening's entertainment.<br>
 
-**2002:** Bruce and the E Street Band bring the Rising Tour to the Value City Arena in Columbus, where Bruce plays a gorgeous solo piano "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" and a "Glory Days"/"[Hang on Sloopy](../2020-04-07_cover-me-hang-on-sloopy/post.md)" mash-up.<br>
+**2002:** Bruce and the E Street Band bring the Rising Tour to the Value City Arena in Columbus, where Bruce plays a gorgeous solo piano "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" and a "Glory Days"/"[Hang on Sloopy](../2020-04-07_cover-me-hang-on-sloopy/post.md)" mash-up.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Kr7eHWGX)
 

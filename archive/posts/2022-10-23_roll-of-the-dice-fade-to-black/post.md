@@ -12,7 +12,7 @@ He's better known for his encyclopedic knowledge of rock history, but he's also 
 
 Bruce Springsteen's catalog is filled with titles borrowed from the films of his youth. As early as "Thunder Road" and as recently as "[Western Stars](../2020-03-28_roll-of-the-dice-western-stars/post.md)," Bruce leavened his songs with cinematic shorthand and stage direction.
 
-If his penchant had a peak, it came as the late 1970s gave way to the 1980s. From the somber "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" to the noirish "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" to the dreamlike "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)," the influence of Hollywood on Bruce's songwriting is undeniable. In 1979, he went all in with "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)," a song so laden with film imagery and vocabulary that it sounds as if it was written by a film student.
+If his penchant had a peak, it came as the late 1970s gave way to the 1980s. From the somber "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md)" to the noirish "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" to the dreamlike "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)," the influence of Hollywood on Bruce's songwriting is undeniable. In 1979, he went all in with "[Be True](../2020-12-02_roll-of-the-dice-be-true/post.md)," a song so laden with film imagery and vocabulary that it sounds as if it was written by a film student.
 
 But there was almost another song even more directorial–one as dark and depressing as "Be True" is bright and romantic.
 

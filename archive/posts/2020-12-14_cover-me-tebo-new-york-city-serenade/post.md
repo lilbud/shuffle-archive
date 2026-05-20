@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/12/tebo.jpg
 post_id: 23731
 ---
-One-person band covers are all the rage during quarantine, and this year has brought a flood of "I[‘m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" covers.
+One-person band covers are all the rage during quarantine, and this year has brought a flood of "I[‘m on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" and "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" covers.
 
 Every once in a while, though, a cover artist gets a bit more daring and goes deep, deep *deep* into Bruce Springsteen's catalog and selects a song that rarely gets a cover treatment.
 

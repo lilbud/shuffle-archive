@@ -21,7 +21,7 @@ For a good long stretch, Bruce Springsteen was a searcher, starting each new alb
 
 And then something changed.
 
-When Bruce began his eighth decade on the planet, his songs stopped seeking answers. *Western Stars* and [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md), his two most recent albums, couldn't sound more different musically, but thematically they couldn't be more similar.
+When Bruce began his eighth decade on the planet, his songs stopped seeking answers. *Western Stars* and [*Letter to You*](../2017-01-01_album-companion-letter-to-you/post.md), his two most recent albums, couldn't sound more different musically, but thematically they couldn't be more similar.
 
 *Western Stars* is full of lush, orchestral, finely-drawn character studies; *Letter to You* is intimate autobiography with a classic E Street sound. But both collections are keenly aware that the past holds more answers than the present, and the future is shrinking with each passing day.
 

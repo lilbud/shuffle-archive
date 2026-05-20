@@ -106,7 +106,7 @@ Also on this date, Bruce appears on the cover of *Rolling Stone*.
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2018:** *Springsteen on Broadway* is in the home stretch of its theatrical run at the Walter Kerr Theater in New York City. Meanwhile, Bruce releases "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" as a single in advance of the soundtrack album for his Broadway show.<br>
+**2018:** *Springsteen on Broadway* is in the home stretch of its theatrical run at the Walter Kerr Theater in New York City. Meanwhile, Bruce releases "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" as a single in advance of the soundtrack album for his Broadway show.<br>
 
 [Watch on Youtube: Bruce Springsteen - The Promised Land (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=bHgP2mJvRDE)
 

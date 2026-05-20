@@ -42,7 +42,7 @@ post_id: 57091
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1985-0615.jpg.webp)
 
-**1988:** "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" makes its Tunnel of Love Tour premiere at the first of two nights at Stadio Flaminio in Rome. Earlier in the day, a photographer catches Bruce in a state of undress with Patti, outing their rumored affair.<br>
+**1988:** "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" makes its Tunnel of Love Tour premiere at the first of two nights at Stadio Flaminio in Rome. Earlier in the day, a photographer catches Bruce in a state of undress with Patti, outing their rumored affair.<br>
 
 [Watch on Youtube: Bruce Springsteen Live in Rome 1988](https://www.youtube.com/watch?v=TY8qIOyupTs)
 

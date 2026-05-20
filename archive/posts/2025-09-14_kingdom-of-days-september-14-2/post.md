@@ -56,7 +56,7 @@ post_id: 59655
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1995-09-14.jpg.webp)
 
-**2003:** At his Rising show in Chapel Hill, Bruce finally starts acknowledging his TOL/HT/LT era, tour premiering "[Brilliant Disguise,](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" and "[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)," the latter of which is its first E Street Band performance. The trend will continue throughout the rest of the tour, perhaps not coincidentally while *The Essential Bruce Springsteen* compilation is in production.<br>
+**2003:** At his Rising show in Chapel Hill, Bruce finally starts acknowledging his TOL/HT/LT era, tour premiering "[Brilliant Disguise,](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" and "[Living Proof](../1992-02-08_roll-of-the-dice-living-proof/post.md)," the latter of which is its first E Street Band performance. The trend will continue throughout the rest of the tour, perhaps not coincidentally while *The Essential Bruce Springsteen* compilation is in production.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QUWjxN0h)
 
@@ -72,7 +72,7 @@ post_id: 59655
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2010-09-14.jpg.webp)
 
-**2012:** Bruce and the E Street Band play a Wrecking Ball show at Nationals Park in Washington, DC, where "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" makes its tour debut and Ali Weinberg (Max's daughter) plays the accordion for "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)."<br>
+**2012:** Bruce and the E Street Band play a Wrecking Ball show at Nationals Park in Washington, DC, where "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)" makes its tour debut and Ali Weinberg (Max's daughter) plays the accordion for "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Washington DC - 14/09/2012 HD: Wrecking Ball](https://www.youtube.com/watch?v=AW2L4kQ9R7Y)
 

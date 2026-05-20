@@ -26,7 +26,7 @@ Bruce premiered his version at his year-ending stand at Nassau Coliseum in Decem
 
 [Watch on Youtube: 2. Merry Christmas Baby (Bruce Springsteen - Live At The Nassau Coliseum 12-28-1980)](https://www.youtube.com/watch?v=4cSe8KQAuKM)
 
-But it was the band's performance three days later that Bruce chose to officially release in 1986, as the B-side to "[War](../2019-05-27_cover-me-war/post.md)," the first single from *Live 1975-85*. (The song itself does not appear in the box set.)
+But it was the band's performance three days later that Bruce chose to officially release in 1986, as the B-side to "[War](../2016-01-02_cover-me-war/post.md)," the first single from *Live 1975-85*. (The song itself does not appear in the box set.)
 
 The very next year, that same performance was included in the Special Olympics benefit album, *A Very Special Christmas*.
 

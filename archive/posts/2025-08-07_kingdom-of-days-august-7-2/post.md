@@ -34,7 +34,7 @@ post_id: 57927
 
 [Watch Video Highlight](https://videopress.com/embed/0KQVFFpL)
 
-**1982:** Bruce joins Beaver Brown on stage at Big Man's West in Red Bank, where he debuts a work-in-progress, "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" in the middle of "[Lucille](../1976-01-07_cover-me-lucille/post.md/)." (Skip to the 21 minute-mark below to hear it.)<br>
+**1982:** Bruce joins Beaver Brown on stage at Big Man's West in Red Bank, where he debuts a work-in-progress, "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" in the middle of "[Lucille](../1976-01-07_cover-me-lucille/post.md/)." (Skip to the 21 minute-mark below to hear it.)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/9dFjGaHk)
 
@@ -56,7 +56,7 @@ post_id: 57927
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/08/1985-0807.jpg.webp)
 
-**1992:** At the penultimate show of World Tour 1992's eleven-night stand at the Meadowlands, Bruce and Roy play a tour one-off, an intimate "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)." "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" is also a tour one-off, and Southside Johnny guest-stars on "[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)."<br>
+**1992:** At the penultimate show of World Tour 1992's eleven-night stand at the Meadowlands, Bruce and Roy play a tour one-off, an intimate "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)." "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)" is also a tour one-off, and Southside Johnny guest-stars on "[All the Way Home](../2019-09-08_roll-of-the-dice-all-the-way-home/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/MZxl9BXf)
 

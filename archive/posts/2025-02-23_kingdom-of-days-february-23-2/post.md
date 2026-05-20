@@ -68,7 +68,7 @@ post_id: 56010
 
 **2000:** Despite being nominated for both the Best Male Rock Vocal Performance and Best Rock Song categories (both for “The Promise”), Bruce takes home no Grammy Awards this year.<br>
 
-**2003:** At the 45th Grammy Awards in Madison Square Garden, Bruce performs and wins three awards (Best Male Rock Vocal Performance and Best Rock Song for “[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md),” and Best Rock Album for *The Rising*). Although nominated for Album of the Year and Song of the Year as well, Bruce does not win in those categories. At the end of the show, Bruce and Steve pay tribute to Joe Strummer with Elvis Costello and Dave Grohl, performing “[London Calling](../2018-04-09_matr-bruce-springsteen-elvis-costello-steve-van-zandt-dave-grohl-london-calling/post.md).”<br>
+**2003:** At the 45th Grammy Awards in Madison Square Garden, Bruce performs and wins three awards (Best Male Rock Vocal Performance and Best Rock Song for “[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md),” and Best Rock Album for *The Rising*). Although nominated for Album of the Year and Song of the Year as well, Bruce does not win in those categories. At the end of the show, Bruce and Steve pay tribute to Joe Strummer with Elvis Costello and Dave Grohl, performing “[London Calling](../2018-04-09_matr-bruce-springsteen-elvis-costello-steve-van-zandt-dave-grohl-london-calling/post.md).”<br>
 
 [Watch on Youtube: the rising](https://www.youtube.com/watch?v=dXkOOJo4Uqg)
 

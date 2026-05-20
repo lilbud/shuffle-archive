@@ -88,7 +88,7 @@ In a contemporaneous interview, Bruce described "Radio Nowhere" as apocalyptic, 
 
 Our narrator searches high and low for connection: to music (the mystery train refers to the [iconic rock song](../2019-05-21_cover-me-mystery-train/post.md)) and to people.
 
-I've read suggestions that "misty rain" is a "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" callback, and that "dancing down a dark hole" refers to another *Born in the U.S.A.* track, but I think that's reading too much into Bruce's penchant for recycling metaphors. It's a neat idea to think that this might be Bruce's way of referring to his career journey (of which *Born in the U.S.A.* was his commercial apex), but if that was his intent, I doubt he'd select one of the few songs from that album that wasn't even released as a single.)
+I've read suggestions that "misty rain" is a "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" callback, and that "dancing down a dark hole" refers to another *Born in the U.S.A.* track, but I think that's reading too much into Bruce's penchant for recycling metaphors. It's a neat idea to think that this might be Bruce's way of referring to his career journey (of which *Born in the U.S.A.* was his commercial apex), but if that was his intent, I doubt he'd select one of the few songs from that album that wasn't even released as a single.)
 
 And since we're discussing similarities to other songs, I supposed this is as good a place as any to address the musical controversy that unfortunately overshadowed a deservedly deeper discussion of "Radio Nowhere" when it first debuted.
 
@@ -104,7 +104,7 @@ But acknowledging the influence of the hit 1981 single on Bruce's 2007 anthem sh
 
 It was an odd controversy at the time (fueled, no doubt, by some tongue-in-cheek comments offered by songwriter Tommy Heath when interviewed about it), and I'm glad it was much shorter-lived than the maddening "waves/sways" debate. (*Thank you*, Jon Landau, for putting that to rest before the dice forced me to waste words on it someday.)
 
-So let's look past the separated-at-birth riffs and appreciate the E Street Band's performance on"Radio Nowhere" for what it is: a powerful, hard-driving, galvanizing instrumental clarion call as powerful as any in the rock canon. There's a reason why "Radio Nowhere" tends to only appear as an opener, encore, or lead-in to a main set finale. Like "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" (with which "Radio Nowhere" shares common traits), it reliably rallies the audience to the peak of emotion, energy, and zeal required for the moment… even at 8:45 in the morning.
+So let's look past the separated-at-birth riffs and appreciate the E Street Band's performance on"Radio Nowhere" for what it is: a powerful, hard-driving, galvanizing instrumental clarion call as powerful as any in the rock canon. There's a reason why "Radio Nowhere" tends to only appear as an opener, encore, or lead-in to a main set finale. Like "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" (with which "Radio Nowhere" shares common traits), it reliably rallies the audience to the peak of emotion, energy, and zeal required for the moment… even at 8:45 in the morning.
 
 [Watch on Youtube: Bruce Springsteen - Radio Nowhere (Live) [HQ TV version]](https://www.youtube.com/watch?v=h8Xb8Cq9NrI)
 

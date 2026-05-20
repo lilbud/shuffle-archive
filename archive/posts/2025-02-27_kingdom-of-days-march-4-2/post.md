@@ -46,7 +46,7 @@ post_id: 56095
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/02/2000-03-04.jpg.webp)
 
-**2003:** In Jacksonville along the Rising Tour, the band covers "[Let's Go, Let's Go, Let's Go](../2018-09-26_matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/post.md)" in memory of Hank Ballard, who died the week prior. This show also features the tour debut (and only the second E Street Band performance) of "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)." Watch the full show below.<br>
+**2003:** In Jacksonville along the Rising Tour, the band covers "[Let's Go, Let's Go, Let's Go](../2018-09-26_matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/post.md)" in memory of Hank Ballard, who died the week prior. This show also features the tour debut (and only the second E Street Band performance) of "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)." Watch the full show below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/xKFbULno)
 

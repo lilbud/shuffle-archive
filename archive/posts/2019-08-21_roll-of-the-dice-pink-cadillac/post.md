@@ -78,7 +78,7 @@ There's also another section toward the end of the song where Bruce makes it cle
 
 Obviously, "Pink Cadillac" never made it onto *Nebraska* despite its inclusion in the original sessions. And even though it was one of the few *Nebraska* holdouts to successfully translate to a full-band arrangement, it didn't make *Born in the U.S.A.* either.
 
-Still, Bruce couldn't keep "Pink Cadillac" in the garage. Despite it not making his destined-to-be-a-blockbuster album, Bruce actually released "Pink Cadillac" a full month before the album as the B-side to the single for "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" (making "Pink Cadillac" one of two vagina songs to get radio airplay in 1984–Sheena Easton's "Sugar Walls" was the other).
+Still, Bruce couldn't keep "Pink Cadillac" in the garage. Despite it not making his destined-to-be-a-blockbuster album, Bruce actually released "Pink Cadillac" a full month before the album as the B-side to the single for "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" (making "Pink Cadillac" one of two vagina songs to get radio airplay in 1984–Sheena Easton's "Sugar Walls" was the other).
 
 [Watch on Youtube: Pink Cadillac (Single B-Side - 1984)](https://www.youtube.com/watch?v=Wk5cIUI6Zac)
 

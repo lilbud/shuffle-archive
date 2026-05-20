@@ -66,7 +66,7 @@ post_id: 56404
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/44767315690_66ce7d7276_o.jpg.webp)
 
-**2000:** Kansas City gets an outstanding set list for their Reunion show: Bruce opens with “[Take ‘Em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)” and plays “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)” and “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” later in the set.<br>
+**2000:** Kansas City gets an outstanding set list for their Reunion show: Bruce opens with “[Take ‘Em as They Come](../2019-03-29_roll-of-the-dice-take-em-as-they-come/post.md)” and plays “[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)” and “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)” later in the set.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/TwY6egiH)
 

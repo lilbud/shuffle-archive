@@ -101,7 +101,7 @@ Which brings us almost full circle.
 
 In the waning days of the 2008 presidential campaign, Senator Barack Obama tapped Springsteen to join him for a last-minute mini-tour of get-out-the-vote rallies. Bruce had already endorsed Obama early in the campaign, and he was keen to do all he could to deliver a better outcome than when he last took to the road in support of a candidate.
 
-In Philadelphia, Columbus, Cleveland, and Ypsilanti, Michigan, Bruce took to the stage with his guitar in support of Senator Obama. His setlist included motivational originals like "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)," "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)," and "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)," but he closed each set with the one song that distilled both the promise and the duty that lay before his audience.
+In Philadelphia, Columbus, Cleveland, and Ypsilanti, Michigan, Bruce took to the stage with his guitar in support of Senator Obama. His setlist included motivational originals like "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)," "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)," and "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)," but he closed each set with the one song that distilled both the promise and the duty that lay before his audience.
 
 Springsteen's arrangement of "This Land Is Your Land" that year was far removed from his 1980s performances. Feeling victory in the air, his performances were optimistic, energizing and galvanizing. This video from his Michigan rally–with endearing behind-the-scenes footage of the Obama family singing and dancing along–is a rarely seen treasure.
 

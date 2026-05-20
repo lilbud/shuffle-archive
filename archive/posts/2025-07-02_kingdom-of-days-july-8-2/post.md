@@ -58,7 +58,7 @@ post_id: 57650
 
 **1992:** The Recording Industry Association of America certifies *Live 1975-85* as 12x multi-platinum.<br>
 
-**2008:** At Magic Night Two in Oslo, Bruce tour premieres "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" (in its only tour appearance) and plays a rare "From Small Things (Big Things One Day Come)."<br>
+**2008:** At Magic Night Two in Oslo, Bruce tour premieres "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" (in its only tour appearance) and plays a rare "From Small Things (Big Things One Day Come)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jglWnfIg)
 

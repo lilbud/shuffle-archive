@@ -70,11 +70,11 @@ post_id: 57089
 
 [Watch on Youtube: Commercials for Bruce Springsteen's Stockholm '88 show](https://www.youtube.com/watch?v=5FHRd_4prwY)
 
-**1999:** The Reunion Tour begins a German mini-leg with a show in Leipzig, where fans enjoy the tour premiere of "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" and the only performance to date of "[Car Wash](../2020-01-04_roll-of-the-dice-car-wash/post.md)."<br>
+**1999:** The Reunion Tour begins a German mini-leg with a show in Leipzig, where fans enjoy the tour premiere of "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" and the only performance to date of "[Car Wash](../2020-01-04_roll-of-the-dice-car-wash/post.md)."<br>
 
 [Watch on Youtube: Car Wash Bruce Springsteen June 13, 1999 Leipzig, GER](https://www.youtube.com/watch?v=NrmZ4zG_5ls)
 
-**2005:** Bruce's solo acoustic mini-tour of Germany begins with a show at Olympiahalle in Munich. Bruce opens with the tour premiere of "Into the Fire" and tour premieres "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" and "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" as well.<br>
+**2005:** Bruce's solo acoustic mini-tour of Germany begins with a show at Olympiahalle in Munich. Bruce opens with the tour premiere of "Into the Fire" and tour premieres "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)" and "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" as well.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/BUkie5gm)
 
@@ -84,7 +84,7 @@ post_id: 57089
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/06/2006-06-13.jpg.webp)
 
-**2009:** Bruce headlines Bonnaroo, Max returns to the band (for half the show), and Evan Springsteen plays guitar on "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)." Watch the marvelously filmed "[Outlaw Pete](../2021-12-29_roll-of-the-dice-outlaw-pete/post.md)" below.<br>
+**2009:** Bruce headlines Bonnaroo, Max returns to the band (for half the show), and Evan Springsteen plays guitar on "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)." Watch the marvelously filmed "[Outlaw Pete](../2021-12-29_roll-of-the-dice-outlaw-pete/post.md)" below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/kLcd8kmd)
 
@@ -102,7 +102,7 @@ post_id: 57089
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/06/2018-06-13.png.webp)
 
-**2023:** World Tour 2023 arrives in Zurich, where Bruce and the E Street Band tour debut "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)." Buy or stream this show [here](https://live.brucespringsteen.net/live-music/0,31080/Bruce-Springsteen-mp3-flac-download-6-13-2023-Stadion-Letzigrund-Zurich-SWITZERLAND.html).<br>
+**2023:** World Tour 2023 arrives in Zurich, where Bruce and the E Street Band tour debut "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)." Buy or stream this show [here](https://live.brucespringsteen.net/live-music/0,31080/Bruce-Springsteen-mp3-flac-download-6-13-2023-Stadion-Letzigrund-Zurich-SWITZERLAND.html).<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - My Love Will Not Let You Down - Zürich 13/06/2023](https://www.youtube.com/watch?v=bOdPnIB9iPw)
 

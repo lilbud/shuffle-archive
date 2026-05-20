@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/12/vile.jpg
 post_id: 5743
 ---
-Kurt Vile's cover of "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" with The Violators is fantastic.
+Kurt Vile's cover of "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" with The Violators is fantastic.
 
 At its heart, "Downbound Train" has always been a stuck-in-one's-own-head tale, with an undercurrent of obsessive insecurity throughout. Although it's one of my favorites among Bruce's catalog, I've always felt Bruce never *quite* got there on the original studio track (in my opinion, the 80s synth keeps the instrumental track from matching the brilliance of the lyrics), but Vile and his band capture the lurking menace of the song perfectly.
 

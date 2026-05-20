@@ -36,7 +36,7 @@ post_id: 56175
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1988-03-15.png.webp)
 
-**1999:** Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street Band play a mini-set that includes Springsteen classics like "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)," a duet with Wilson Pickett (and Billy Joel on keyboard) and an all-star jam on "[Let It Be](../2020-11-23_matr-paul-mccartney-billy-joel-bruce-springsteen-and-more-let-it-be/post.md)."<br>
+**1999:** Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street Band play a mini-set that includes Springsteen classics like "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" and "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)," a duet with Wilson Pickett (and Billy Joel on keyboard) and an all-star jam on "[Let It Be](../2020-11-23_matr-paul-mccartney-billy-joel-bruce-springsteen-and-more-let-it-be/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Full HOF induction - March 15, 1999](https://www.youtube.com/watch?v=rnLjmojIp20)
 

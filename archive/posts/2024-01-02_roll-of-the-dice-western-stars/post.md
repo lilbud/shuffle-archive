@@ -12,7 +12,7 @@ For Bruce Springsteen, all roads lead west.
 
 His fondness for cinema, his fascination with the American west, his reckoning with age and remembrance of glory days–all those avenues converge in the land of sunsets and arrive at "Western Stars."
 
-"Western Stars" is magnificent. It's also inevitable. Bruce's songwriting has been building toward this ever since "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" in 1978 and barreling at full speed since [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)in 1995.
+"Western Stars" is magnificent. It's also inevitable. Bruce's songwriting has been building toward this ever since "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" in 1978 and barreling at full speed since [*The Ghost of Tom Joad*](../2023-06-03_album-companion-the-ghost-of-tom-joad/post.md)in 1995.
 
 By the time he arrived at his 2005 masterpiece, "[Reno](../2020-05-21_roll-of-the-dice-reno/post.md)"–a song that has so many parallels to "Western Stars" that they're practically siblings (an essay for another day)–we knew we'd clearly been introduced to a more mature, introspective Bruce Springsteen who was coming to terms with having more sunrises behind him than ahead of him.
 
@@ -20,7 +20,7 @@ It's not much of a stretch to call *Western Stars* Bruce's magnum opus and its t
 
 In general, I'm not a huge fan of on-the-nose music videos. If all you're doing is literally illustrating the song, why bother? Our imaginations can do that just fine on our own.
 
-But "Western Stars" isn't an ordinary song. Like "Thunder Road" and "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)", "Western Stars" earns its cinematic label–it just *sounds* like a movie. Heck, it's virtually a musical score.
+But "Western Stars" isn't an ordinary song. Like "Thunder Road" and "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)", "Western Stars" earns its cinematic label–it just *sounds* like a movie. Heck, it's virtually a musical score.
 
 In fact, "Western Stars" is such an evocative song that there's almost no point in watching its official video–odds are the movie we visualize when we hear the song is even more vivid than Thom Zimny's wonderful five-minute film. And yet, the video is beautifully filmed and features some of Bruce's very best acting. I find myself unable to separate the song from the video; whenever I listen to "Western Stars," I see it as well.
 
@@ -48,7 +48,7 @@ The first line of "Western Stars" mirrors the opening line of Bruce's greatest h
 
 > *I get up in the evenin', and I ain't got nothin' to say*<br>
 
-In 1984, Bruce's "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" narrator bristled and seethed with frustration at his lack of forward momentum. He was tired–tired and bored with himself.
+In 1984, Bruce's "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" narrator bristled and seethed with frustration at his lack of forward momentum. He was tired–tired and bored with himself.
 
 Our "Western Stars" protagonist, by contrast, is simply happy to be alive. It's implied that he's lost many friends already: Forest Lawn is a famous Los Angeles cemetery, known as the final resting place for many of the stars of the Golden Age of Hollywood. The "down the Five" reference is more than a colorful geographical detail–it's a reminder of how the modern age (Interstate 5, which runs past Forest Lawn) has imprinted itself over the remnants of the past. It's also a bit of clever foreshadowing–we'll refer back to this later in the song.
 

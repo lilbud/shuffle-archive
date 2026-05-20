@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/sin.jpg
 post_id: 15411
 ---
-I don't know exactly why this 1982 outtake fascinates me so much. Bruce mined similar earth to more humorous effect both earlier ("[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)") and later ("[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)"); he'd write more probing and insightful relationship songs on [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) a few years later.
+I don't know exactly why this 1982 outtake fascinates me so much. Bruce mined similar earth to more humorous effect both earlier ("[Talk to Me](../2019-02-26_roll-of-the-dice-talk-to-me/post.md)") and later ("[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)"); he'd write more probing and insightful relationship songs on [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) a few years later.
 
 Lyrically, Bruce would put some of these lines to better use in "[My Father's House](../2021-08-13_roll-of-the-dice-my-fathers-house/post.md)." Metrically, "Wages of Sin" is one of the most awkward songs Bruce has ever written–he stumbles and trips his way through the entire song, at times veering perilously close to a train wreck but never quite leaving the track.
 

@@ -8,7 +8,7 @@ categories: cover-me spare-parts
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/07/sexonfire.png
 post_id: 18567
 ---
-It’s pretty tough to do something new with “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” — it’s very likely the most covered song in Bruce’s catalog.
+It’s pretty tough to do something new with “[I’m on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)” — it’s very likely the most covered song in Bruce’s catalog.
 
 Dan Patrick Fulton pulls it off, though, by mashing it up with “Sex on Fire” by Kings of Leon–a neat pairing that works both musically and thematically.
 

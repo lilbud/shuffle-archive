@@ -50,7 +50,7 @@ post_id: 56015
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/02/1988-0228.jpg.webp)
 
-**1995:** Bruce’s *Greatest Hits* album is released, featuring four new songs recorded for this collection: “[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md),” “[Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md),” “[Blood Brothers,](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)” and “This Hard Land.”<br>
+**1995:** Bruce’s *Greatest Hits* album is released, featuring four new songs recorded for this collection: “[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md),” “[Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md),” “[Blood Brothers,](../2019-12-06_roll-of-the-dice-blood-brothers/post.md)” and “This Hard Land.”<br>
 
 [Watch on Youtube: Born to Run](https://www.youtube.com/watch?v=1glxaEB5G7I)
 

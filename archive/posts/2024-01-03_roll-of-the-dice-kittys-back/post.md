@@ -103,7 +103,7 @@ I'll leave you with one of my favorite performances of "Kitty's Back," and possi
 
 Did they play a song from *The Rising*, an album that Bruce was still actively promoting? Nope. Did they play a holiday classic for the season? Yes, eventually, but only later in the show.
 
-The song they came to play that night was the song that truly showcases the amazing array of talent in the E Street Band and probably did more to spike ticket sales than "Born to Run" or "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" would have: a joyous, ten-minute rendition of "Kitty's Back."
+The song they came to play that night was the song that truly showcases the amazing array of talent in the E Street Band and probably did more to spike ticket sales than "Born to Run" or "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" would have: a joyous, ten-minute rendition of "Kitty's Back."
 
 [Watch on Youtube: Bruce Springsteen- Kitty's back- Late night with Conan O'Brien-12/12/2002](https://www.youtube.com/watch?v=ZS93U0TJd-c)
 

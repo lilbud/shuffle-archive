@@ -52,7 +52,7 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad's
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1984-08-25c.png.webp)
 
-**1992:** World Tour 1992 moves on to the Washington DC area, with the first of two shows at the Capital Center in Largo. Bruce plays "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" for the last time on the tour. It will surface once more next year, and then not again until the Reunion Tour.<br>
+**1992:** World Tour 1992 moves on to the Washington DC area, with the first of two shows at the Capital Center in Largo. Bruce plays "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" for the last time on the tour. It will surface once more next year, and then not again until the Reunion Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/BgCpUOF3)
 

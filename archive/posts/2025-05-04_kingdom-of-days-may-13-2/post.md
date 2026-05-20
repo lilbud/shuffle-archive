@@ -24,11 +24,11 @@ post_id: 56765
 
 [Watch Video Highlight](https://videopress.com/embed/aCzHx7js)
 
-**1981:** At the Apollo Theater in Manchester, England, Bruce plays "[Johnny Bye-Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)" for the very first time and dedicates "[This Land Is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)" to Bob Marley, who died two days ago.<br>
+**1981:** At the Apollo Theater in Manchester, England, Bruce plays "[Johnny Bye-Bye](../1983-01-05_roll-of-the-dice-johnny-bye-bye/post.md)" for the very first time and dedicates "[This Land Is Your Land](../2023-07-04_cover-me-this-land-is-your-land/post.md)" to Bob Marley, who died two days ago.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/h9MVaf2z)
 
-**1982:** Bruce records "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" at The Power Station in New York City.<br>
+**1982:** Bruce records "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)" at The Power Station in New York City.<br>
 
 [Watch on Youtube: Darlington County](https://www.youtube.com/watch?v=1t5JvmqTx94)
 
@@ -72,7 +72,7 @@ post_id: 56765
 
 [Watch on Youtube: Bruce Springsteen - Land Of Hope And Dreams - Sevilla, May 13, 2012](https://www.youtube.com/watch?v=_ALY3XPMdc4)
 
-**2014:** Bruce plays a sizzling show in Albany, opening with a cover of INXS's "[Don't Change](../2021-03-26_cover-me-dont-change/post.md)." Tour premieres and rarities abound, including "[Treat Her Right,](../2019-10-04_cover-me-treat-her-right/post.md)" "[Save the Last Dance for Me](../2020-10-25_cover-me-save-the-last-dance-for-me/post.md)," "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)," "[Seaside Bar Song,](../2022-10-24_roll-of-the-dice-seaside-bar-song/post.md)" and "[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)." Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,11390/Bruce-Springsteen-mp3-flac-download-5-13-2014-Times-Union-Center-Albany-NY.html).<br>
+**2014:** Bruce plays a sizzling show in Albany, opening with a cover of INXS's "[Don't Change](../2021-03-26_cover-me-dont-change/post.md)." Tour premieres and rarities abound, including "[Treat Her Right,](../2019-10-04_cover-me-treat-her-right/post.md)" "[Save the Last Dance for Me](../2020-10-25_cover-me-save-the-last-dance-for-me/post.md)," "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)," "[Seaside Bar Song,](../2022-10-24_roll-of-the-dice-seaside-bar-song/post.md)" and "[Kingdom of Days](../2022-04-04_roll-of-the-dice-kingdom-of-days/post.md)." Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,11390/Bruce-Springsteen-mp3-flac-download-5-13-2014-Times-Union-Center-Albany-NY.html).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/QYCbkR5K)
 

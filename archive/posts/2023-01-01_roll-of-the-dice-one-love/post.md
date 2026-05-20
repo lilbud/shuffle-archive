@@ -8,23 +8,23 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/04/one-love-1.png
 post_id: 8491
 ---
-Bruce's recording sessions for what would become *Born in the U.S.A.* spanned more than two years. "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" (recorded in January, 1982) would end up as the earliest recorded song on the album; "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" would complete the album when it was recorded almost 25 months later.
+Bruce's recording sessions for what would become *Born in the U.S.A.* spanned more than two years. "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" (recorded in January, 1982) would end up as the earliest recorded song on the album; "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" would complete the album when it was recorded almost 25 months later.
 
 By the halfway mark in early 1983, Bruce had already written, recorded, and assembled enough material to release as an album–and he came fairly close to doing so, under a working title of *Murder Incorporated.*
 
 The track list is fascinating–it includes half of the songs that would eventually comprise *Born in the U.S.A.*, but it also included a handful of *very* strong contenders that have become fan favorites since their eventual release on *Greatest Hits* and *Tracks* years later:
 
 1. [Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)
-2. [Murder Incorporated](../2020-04-19_roll-of-the-dice-murder-incorporated/post.md)
-3. [Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)
+2. [Murder Incorporated](../1984-01-15_roll-of-the-dice-murder-incorporated/post.md)
+3. [Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)
 4. Glory Days
 5. This Hard Land
 6. [My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)
-7. [Johnny Bye Bye](../2022-07-13_roll-of-the-dice-johnny-bye-bye/post.md)
+7. [Johnny Bye Bye](../1983-01-05_roll-of-the-dice-johnny-bye-bye/post.md)
 8. [Frankie](../2019-03-31_roll-of-the-dice-frankie/post.md)
-9. [I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)
-10. [Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)
-11. [I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)
+9. [I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)
+10. [Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)
+11. [I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)
 
 What an album that would have been!
 

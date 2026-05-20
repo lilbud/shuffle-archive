@@ -54,7 +54,7 @@ Let's move on and listen to take #2, which runs from about 1:20 to 3:16 in the v
 > *Did you ever think in the end your kids you would never believe*<br>
 > *That if you wouldn't leave this old town, that it would leave me*<br>
 
-Too bad Bruce discarded that last line–it's brilliant. But if that verse sounds vaguely familiar, compare it to "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," which wouldn't surface for another five years:
+Too bad Bruce discarded that last line–it's brilliant. But if that verse sounds vaguely familiar, compare it to "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," which wouldn't surface for another five years:
 
 > *Now Main Street's whitewashed windows and vacant stores*<br>
 > *Seems like there ain't nobody wants to come down here no more*<br>

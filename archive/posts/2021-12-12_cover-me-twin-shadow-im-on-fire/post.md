@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/01/twin-shadow.jpg
 post_id: 550
 ---
-It occurred to me to day that I'm about a month into this blog and have yet to spotlight a cover of "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."
+It occurred to me to day that I'm about a month into this blog and have yet to spotlight a cover of "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)."
 
 That needs to change–if only because there are SO MANY covers of this song out there, and if I don't start soon, we're going to end up needing an "I'm on Fire" month at some point, and as great as the song is, no one wants that.
 

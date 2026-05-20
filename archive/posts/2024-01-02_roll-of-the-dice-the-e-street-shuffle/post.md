@@ -38,7 +38,7 @@ And then there are those lyrics.
 
 Every time I listen to "The E Street Shuffle," I shake my head. There's absolutely no reason why lyrics like "those E Street brats in twilight duel flashlight phantoms in full star stream" should fit *any* melody or meter. It's hard to even *say* some of Bruce's lines, let alone sing them.
 
-And yet somehow, Bruce manages to turn a word salad into a sandwich, pulling off some clever internal rhyming in the process. Even more than in "[Blinded by the Light,](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" I find myself occasionally questioning whether Bruce was really the pharmacological straight-edge he's always claimed he was.
+And yet somehow, Bruce manages to turn a word salad into a sandwich, pulling off some clever internal rhyming in the process. Even more than in "[Blinded by the Light,](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)" I find myself occasionally questioning whether Bruce was really the pharmacological straight-edge he's always claimed he was.
 
 Regardless, once we adjust to Bruce's lyrical verbosity, we realize: nothing happens in "The E Street Shuffle." Like *absolutely* nothing. The whole song is just one big stage-setting exercise–the very last lines imply the story is about to start, and then the song turns into a raging party that eventually just fades out.
 

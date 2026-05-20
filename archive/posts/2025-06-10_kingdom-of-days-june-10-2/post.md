@@ -70,11 +70,11 @@ Also on this date in 2003: the BBC premieres a three-part series narrated by Joh
 
 [Watch on Youtube: Bruce Springsteen - The River, Firenze 10 june 2012](https://www.youtube.com/watch?v=j9U-OV0Jmm4)
 
-**2013:** Bruce arrives in London for his Wrecking Ball show and sings "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" (in support of ONE) with an acoustic guitar from the balcony of MTV Networks Europe. Watch the performance below–the video is wonderfully shot and recorded.<br>
+**2013:** Bruce arrives in London for his Wrecking Ball show and sings "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" (in support of ONE) with an acoustic guitar from the balcony of MTV Networks Europe. Watch the performance below–the video is wonderfully shot and recorded.<br>
 
 [Watch on Youtube: Bruce Springsteen The Promised Land Acoustic](https://www.youtube.com/watch?v=NtAlPiVtqD0)
 
-**2018:** Bruce receives a special Tony Award from Billy Joel for *Springsteen on Broadway*. He performs "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" at the televised ceremonies (introduced by Robert De Niro), along with an abridged version of its introduction from the show.<br>
+**2018:** Bruce receives a special Tony Award from Billy Joel for *Springsteen on Broadway*. He performs "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" at the televised ceremonies (introduced by Robert De Niro), along with an abridged version of its introduction from the show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/VuOKNznQ)
 

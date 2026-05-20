@@ -32,7 +32,7 @@ Joe Grushecky and the Houserockers played the Marz series on June 25th, and we r
 
 About 6:00 pm on August 20th, I arrive at Marz. Joe comes over and says, "I got Bruce over here and we'd like to get up and soundcheck." Our friend and loud sound guy, the late George Iocca, didn't have mics set up yet. But Joe and Bruce wanted to go so they got going. George was cranky but hey…
 
-So, we were expecting Joe Grushecky songs and some traditional covers. Instead, for the ten of us in the house: the rehearsal included "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)," "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," "Glory Days" and "[Born on the Bayou](../2021-04-19_matr-john-fogerty-and-bruce-springsteen-born-on-the-bayou/post.md)" (a Creedence cover). We were pretty amazed.
+So, we were expecting Joe Grushecky songs and some traditional covers. Instead, for the ten of us in the house: the rehearsal included "[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)," "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)," "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," "Glory Days" and "[Born on the Bayou](../2021-04-19_matr-john-fogerty-and-bruce-springsteen-born-on-the-bayou/post.md)" (a Creedence cover). We were pretty amazed.
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/08/Bruce-Marz-8-20-94-Living-Proofwm-2.jpg.webp)
 

@@ -42,7 +42,7 @@ post_id: 57665
 
 [Watch on Youtube: The Wild, the Innocent & The E Street Shuffle](https://www.youtube.com/playlist?list=OLAK5uy_kVpI9n-dmnHW7df2Iloxk8nXaya4yEzEw)
 
-**1992:** Night Three of five at Wembley Arena on World Tour 1992 features an acoustic "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
+**1992:** Night Three of five at Wembley Arena on World Tour 1992 features an acoustic "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Dancing In The Dark (live 1992)](https://www.youtube.com/watch?v=a-SPT1ZR_Eo)
 

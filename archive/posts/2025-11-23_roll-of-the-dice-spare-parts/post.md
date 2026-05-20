@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/01/spareparts_ep-at-cd3.jpg
 post_id: 6810
 ---
-Bruce captured "Spare Parts" on the second take of the very first day of recording for the album that would become [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md). Wham, bam, thank you, ma'am.
+Bruce captured "Spare Parts" on the second take of the very first day of recording for the album that would become [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md). Wham, bam, thank you, ma'am.
 
 And that's as apt a metaphor as any for a song that's otherwise devoid of it.
 

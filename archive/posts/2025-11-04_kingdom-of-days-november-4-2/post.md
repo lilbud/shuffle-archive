@@ -10,7 +10,7 @@ post_id: 61283
 ---
 ***New for 2025:** Audio for 1976 and 1977; review for 2002 and 2007; new entry for 2024*<br>
 
-**1971:** Tinker West drives Bruce to New York City to introduce him to future manager Mike Appel. Bruce performs a few songs for Appel on piano and acoustic guitar, including "[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md)," which Bruce will officially release 49 years later, and "[Baby Doll](../2019-10-13_roll-of-the-dice-baby-doll/post.md)," which fails to impress. Bruce and Appel agree to touch base again someday, but their next meeting won't happen for another four months.<br>
+**1971:** Tinker West drives Bruce to New York City to introduce him to future manager Mike Appel. Bruce performs a few songs for Appel on piano and acoustic guitar, including "[Song for Orphans](../2019-04-10_roll-of-the-dice-song-for-orphans/post.md)," which Bruce will officially release 49 years later, and "[Baby Doll](../2011-01-12_roll-of-the-dice-baby-doll/post.md)," which fails to impress. Bruce and Appel agree to touch base again someday, but their next meeting won't happen for another four months.<br>
 
 **1975:** Bruce and the E Street Band play their second of three nights at Arizona State University in Tempe.<br>
 
@@ -54,7 +54,7 @@ At the recording session itself, Bruce works on "[Independence Day](../2022-03-1
 
 **2001:** At the 53rd Annual Emmy Awards, *Live in New York City* is nominated for Outstanding Variety, Music, or Comedy Special but loses to *Cirque du Soleil: Dralion*. Chris Hilson is also nominated as Best Director for *Live in New York City* but loses to David Mallet, the director of *Cirque du Soleil: Dralion.*<br>
 
-**2002:** The Rising Tour moves on to Houston, where Bruce plays a rare solo piano "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)."<br>
+**2002:** The Rising Tour moves on to Houston, where Bruce plays a rare solo piano "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/wRtLFvfs)
 
@@ -90,7 +90,7 @@ At the recording session itself, Bruce works on "[Independence Day](../2022-03-1
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2010-11-04.png.webp)
 
-**2011:** Almost one year to the days, Bruce and Joe Grushecky reprise their pair of Soldiers & Sailors shows in Pittsburgh, with the same format. This is Night Two, and Bruce once again joins opening act The Composure for "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)." An acoustic mini-set follows (featuring "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)") and a full set with Joe Grushecky and The Houserockers. But the show doesn't end there–Bruce returns to the stage for a final acoustic set.<br>
+**2011:** Almost one year to the days, Bruce and Joe Grushecky reprise their pair of Soldiers & Sailors shows in Pittsburgh, with the same format. This is Night Two, and Bruce once again joins opening act The Composure for "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)." An acoustic mini-set follows (featuring "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)") and a full set with Joe Grushecky and The Houserockers. But the show doesn't end there–Bruce returns to the stage for a final acoustic set.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Your Own Worst Enemy" - Pittsburgh - November 4, 2011](https://www.youtube.com/watch?v=Np2eY9ke24s)
 

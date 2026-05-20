@@ -44,7 +44,7 @@ post_id: 56993
 
 [Watch Video Highlight](https://videopress.com/embed/bBlBT9ah)
 
-**1983:** Bruce and the E Street Band work on "[Drop on Down and Cover Me](../2019-12-18_roll-of-the-dice-drop-on-down-and-cover-me/post.md)" at The Hit Factory in New York City.<br>
+**1983:** Bruce and the E Street Band work on "[Drop on Down and Cover Me](../1984-01-16_roll-of-the-dice-drop-on-down-and-cover-me/post.md)" at The Hit Factory in New York City.<br>
 
 **1984:** Bruce sits in with John Eddie and the Front Street Runners at the Stone Pony, performing four cover songs with the band. Earlier in the day, Max Weinberg releases his book *The Big Beat: Conversations with Rock's Great Drummers.*<br>
 

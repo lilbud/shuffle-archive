@@ -86,7 +86,7 @@ Bruce plays three more songs (including "[If I Was the Priest](../2018-12-28_rol
 
 [Watch on Youtube: It's All Over Now - Soozie Tyrell ft. Bruce Springsteen (The Stone Pony, 2 May 2003)](https://www.youtube.com/watch?v=J_Q803Ov1QE)
 
-**2005:** At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Bruce tour premieres "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," "[If I Should Fall Behind,](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)," and "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)" (in only its second performance ever).<br>
+**2005:** At the first of two solo acoustic shows at the Pantages Theater in Hollywood, Bruce tour premieres "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," "[If I Should Fall Behind,](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)," and "[Cautious Man](../1987-01-05_roll-of-the-dice-cautious-man/post.md/)" (in only its second performance ever).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/628Kn0VK)
 
@@ -116,7 +116,7 @@ Bruce plays three more songs (including "[If I Was the Priest](../2018-12-28_rol
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/News_and_Record_2009_05_04_3.jpg.webp)
 
-**2010:** Bruce joins newly inducted New Jersey Hall of Fame member Danny DeVito on stage for "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
+**2010:** Bruce joins newly inducted New Jersey Hall of Fame member Danny DeVito on stage for "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen and Danny DeVito perform "Glory Days" at the 2010 New Jersey Hall of Fame.](https://www.youtube.com/watch?v=wGdNnhyqq94)
 

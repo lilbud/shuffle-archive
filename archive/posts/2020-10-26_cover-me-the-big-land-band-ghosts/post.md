@@ -12,7 +12,7 @@ It's tempting to call The Big Land Band a Springsteen tribute band, but that wou
 
 Today's cover certainly falls in the "fresh" category in more ways than one.
 
-"[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)" is one of Bruce's newest tracks, and from the minute we first hear it performed with the E Street Band, it's hard to imagine it performed acoustically.
+"[Ghosts](../2017-01-11_roll-of-the-dice-ghosts/post.md)" is one of Bruce's newest tracks, and from the minute we first hear it performed with the E Street Band, it's hard to imagine it performed acoustically.
 
 And yet, here comes Big Land Band frontman William Goetz stepping up to the microphone to take a swing at it.
 

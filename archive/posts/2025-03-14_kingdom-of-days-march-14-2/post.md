@@ -10,7 +10,7 @@ post_id: 56174
 ---
 ***New for 2025:** New entry for 1978; video for 2013*<br>
 
-**1972:** The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factory in Highlands, New Jersey. Tinker West records the sessions, and his tapes will prove to be the highest quality recording of The Bruce Springsteen Band and a fascinating document of that period. Standout tracks include "[When You Dance](../2018-08-12_roll-of-the-dice-when-you-dance/post.md)," "[Look Toward the Land,](../2018-12-10_roll-of-the-dice-look-towards-the-land/post.md)" "[Funk Song,](../2018-05-02_roll-of-the-dice-funk-song/post.md)" and an absolutely stunning must-hear cover of "[It's All Over Now, Baby Blue.](../2019-01-12_cover-me-its-all-over-now-baby-blue/post.md)" Take a listen:<br>
+**1972:** The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factory in Highlands, New Jersey. Tinker West records the sessions, and his tapes will prove to be the highest quality recording of The Bruce Springsteen Band and a fascinating document of that period. Standout tracks include "[When You Dance](../1972-01-25_roll-of-the-dice-when-you-dance/post.md)," "[Look Toward the Land,](../1972-01-14_roll-of-the-dice-look-towards-the-land/post.md)" "[Funk Song,](../1972-01-22_roll-of-the-dice-funk-song/post.md)" and an absolutely stunning must-hear cover of "[It's All Over Now, Baby Blue.](../2019-01-12_cover-me-its-all-over-now-baby-blue/post.md)" Take a listen:<br>
 
 [Watch Video Highlight](https://videopress.com/embed/gDKpMFQm)
 

@@ -8,7 +8,7 @@ categories: where-the-band-was
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2018/09/philly2.jpg
 post_id: 4262
 ---
-The big question in my mind coming out of [Night One in Philadelphia](../2018-09-07_where-the-band-was-philadelphia-september-7-2016/post.md): how do you top a show that includes “New York City Serenade,” “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/),” “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md), “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md),” “[The Fever,](../2020-10-04_roll-of-the-dice-the-fever/post.md)” “[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md), “[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md),” “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md),” and “Jungleland” on Night Two?
+The big question in my mind coming out of [Night One in Philadelphia](../2018-09-07_where-the-band-was-philadelphia-september-7-2016/post.md): how do you top a show that includes “New York City Serenade,” “[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/),” “[Kitty’s Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md), “[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md),” “[The Fever,](../2020-10-04_roll-of-the-dice-the-fever/post.md)” “[Thundercrack](../2021-09-24_roll-of-the-dice-thundercrack/post.md), “[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md),” “[Streets of Philadelphia](../2021-06-30_roll-of-the-dice-streets-of-philadelphia/post.md),” and “Jungleland” on Night Two?
 
 Or would this be the exception that disproves the Night One/Night Two truism?
 
@@ -16,7 +16,7 @@ Turns out you top it by keeping a couple of those gems, like the by-now standard
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - New York City Serenade [Philadelphia PA, USA - 09.SEP.2016]](https://www.youtube.com/watch?v=UuDAUUy4Upg)
 
-…swapping out the rest for genuine by-request wild cards (missing entirely from Night One) like “From Small Things (Big Things One Day Come),” “[I’m Goin’ Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md),” and “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)” (played in succession early in the set)…
+…swapping out the rest for genuine by-request wild cards (missing entirely from Night One) like “From Small Things (Big Things One Day Come),” “[I’m Goin’ Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md),” and “[Loose Ends](../2022-06-23_roll-of-the-dice-loose-end/post.md)” (played in succession early in the set)…
 
 [Watch on Youtube: From Small Things / I'm Goin' Down - Springsteen - Philadelphia Sept 9, 2016](https://www.youtube.com/watch?v=SNKOQzAgFac)
 
@@ -34,7 +34,7 @@ Turns out you top it by keeping a couple of those gems, like the by-now standard
 
 [Watch on Youtube: Racing In The Street - Philadelphia (Best Version) - 9/9/16](https://www.youtube.com/watch?v=DQc_HLYh_NI)
 
-And it doesn’t hurt to restart my streak of getting at least one personal premiere per show going again, by playing my first “[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md).”
+And it doesn’t hurt to restart my streak of getting at least one personal premiere per show going again, by playing my first “[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md).”
 
 [Watch on Youtube: Bruce Springsteen Lucky Town Philadelphia September 9, 2016 Citizens Bank Park](https://www.youtube.com/watch?v=yPk_tcXVVSs)
 

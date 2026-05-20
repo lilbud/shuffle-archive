@@ -34,11 +34,11 @@ post_id: 61269
 
 [Watch on Youtube: Bruce Springsteen and Jackson Browne, "Detroit Medley" Los Angeles, 1980-11-03](https://www.youtube.com/watch?v=4H0xsYHJYw8)
 
-**1984:** On *American Top 40*, host Casey Kasem shines a spotlight on Bruce's marathon shows while introducing "[Cover Me.](../2021-01-13_roll-of-the-dice-cover-me/post.md)"<br>
+**1984:** On *American Top 40*, host Casey Kasem shines a spotlight on Bruce's marathon shows while introducing "[Cover Me.](../1984-01-04_roll-of-the-dice-cover-me/post.md)"<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1984-11-03.mp3)
 
-**1992:** It's Election Day in the United States, and during Bruce's show in Milwaukee, Bill Clinton is declared the winner. Bruce congratulates him from the stage, dedicating (fittingly) "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
+**1992:** It's Election Day in the United States, and during Bruce's show in Milwaukee, Bill Clinton is declared the winner. Bruce congratulates him from the stage, dedicating (fittingly) "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Glory Days" Milwaukee, 1992-11-03](https://www.youtube.com/watch?v=kItDzU6Jz38)
 
@@ -72,7 +72,7 @@ post_id: 61269
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/11/2005-11-03.png.webp)
 
-**2009:** Bruce plays "[Brown Eyed Girl](../2018-09-20_cover-me-brown-eyed-girl/post.md)" for the very first time when the Working on a Dream Tour stops at Time Warner Cable Arena in Charlotte. Other highlights include "[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md)," "So Young and in Love" and a full album performance of *Born to Run.* Frank Bruno makes a guest appearance on "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" in the encores.<br>
+**2009:** Bruce plays "[Brown Eyed Girl](../2018-09-20_cover-me-brown-eyed-girl/post.md)" for the very first time when the Working on a Dream Tour stops at Time Warner Cable Arena in Charlotte. Other highlights include "[I Fought the Law](../2022-04-01_matr-bruce-springsteen-and-don-henley-i-fought-the-law/post.md)," "So Young and in Love" and a full album performance of *Born to Run.* Frank Bruno makes a guest appearance on "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" in the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen - Charlotte, NC 11-03-09 "So Young & In Love"](https://www.youtube.com/watch?v=7O-SD9pOwYE)
 
@@ -82,7 +82,7 @@ post_id: 61269
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2009-11-03.png.webp)
 
-**2010:** Bruce's third appearance at Stand Up for Heroes (at the Beacon Theater in New York City) is his most productive: he once again auctions a guitar and brings in $140,000 for the Bob Woodruff foundation. Oh, and he also joins the Max Weinberg 7 to perform "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)," "[Kitty's Back,](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" and "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)."<br>
+**2010:** Bruce's third appearance at Stand Up for Heroes (at the Beacon Theater in New York City) is his most productive: he once again auctions a guitar and brings in $140,000 for the Bob Woodruff foundation. Oh, and he also joins the Max Weinberg 7 to perform "[Open All Night](../2020-10-28_roll-of-the-dice-open-all-night/post.md)," "[Kitty's Back,](../2022-01-22_roll-of-the-dice-kittys-back/post.md)" and "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)."<br>
 
 [Watch on Youtube: Open All Night - Springsteen Live Stand Up for Heroes 2010.avi](https://www.youtube.com/watch?v=dAUY3qlh6Ag)
 
@@ -92,7 +92,7 @@ post_id: 61269
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/10/2010-11-03.png.webp)
 
-**2011:** Almost one year to the day, Bruce and Joe Grushecky reprise their pair of Soldiers & Sailors shows in Pittsburgh, with the same format. Bruce joins opening act The Composure for "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)," performs a mini-acoustic set, and then joins Joe Grushecky and The Houserockers for a full set.<br>
+**2011:** Almost one year to the day, Bruce and Joe Grushecky reprise their pair of Soldiers & Sailors shows in Pittsburgh, with the same format. Bruce joins opening act The Composure for "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," performs a mini-acoustic set, and then joins Joe Grushecky and The Houserockers for a full set.<br>
 
 [Watch on Youtube: Bruce Springsteen with The Composure - "Dancing In The Dark"](https://www.youtube.com/watch?v=5ShAXSeBQFc)
 

@@ -48,7 +48,7 @@ post_id: 56112
 
 **![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/2006-03-07.jpg.webp)**<br>
 
-**2008:** “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” and “[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)” make their Magic Tour premiere at HSBC Arena in Buffalo.<br>
+**2008:** “[Detroit Medley](../1976-01-02_cover-me-detroit-medley/post.md/)” and “[Buffalo Gals](../2006-01-15_cover-me-roll-of-the-dice-buffalo-gals/post.md)” make their Magic Tour premiere at HSBC Arena in Buffalo.<br>
 
 [Watch on Youtube: Bruce Springsteen Buffalo Gals Buffalo 07/03/2008](https://www.youtube.com/watch?v=ZL5Uc-ezduQ)
 
@@ -60,7 +60,7 @@ post_id: 56112
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2023:** Bruce and the E Street Band return to the scene of the crime, harkening back to their infamous bomb scare show several times throughout the evening at Fiserv Forum in Milwaukee. “[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)” makes its tour debut tonight.<br>
+**2023:** Bruce and the E Street Band return to the scene of the crime, harkening back to their infamous bomb scare show several times throughout the evening at Fiserv Forum in Milwaukee. “[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md)” makes its tour debut tonight.<br>
 
 [Watch on Youtube: Bruce Springsteen - Milwaukee - 3/7/23 Entrance and No Surrender](https://www.youtube.com/watch?v=68gAA8kl1M4)
 

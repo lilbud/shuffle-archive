@@ -59,7 +59,7 @@ I had been gradually walking away, but on that day the ties tautened.
 > *The branches and brambles tore my clothes and scratched my arms*<br>
 > *But I ran till I fell shaking in his arms*<br>
 
-Bruce had already written "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" by this point, which features a remarkably similar and equally powerful dream sequence. But as brilliantly cinematic as it is, the dream in "Downbound Train" is just a narrative device; the dream that opens "My Father's House" by contrast is deeply symbolic.
+Bruce had already written "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" by this point, which features a remarkably similar and equally powerful dream sequence. But as brilliantly cinematic as it is, the dream in "Downbound Train" is just a narrative device; the dream that opens "My Father's House" by contrast is deeply symbolic.
 
 The dream takes place at night, in the darkness–a metaphor for the scary and dangerous world of adulthood. For most of us, our parents serve not only as our caretakers and teachers, but also our role models and moral guides. The narrator's father's house represents a place of innocence, guidance, acceptance, forgiveness, and unconditional love (whether or not those things characterized his childhood home in the waking world).
 

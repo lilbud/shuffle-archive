@@ -58,47 +58,38 @@ from database import load_db
 
 
 posts_dir = Path("./archive/posts")
+jekyll_dir = Path(
+    r"C:\Users\bvw20\Documents\Software\Programming\Website\shuffle\_posts",
+)
 
-linklist = []
+# for file in jekyll_dir.iterdir():
+#     link_pattern = r"({% link _posts/([^\]]*).md %})"
+#     content = file.read_text(encoding="utf-8")
+
+#     for match in re.findall(link_pattern, content):
+#         if not Path(jekyll_dir, match[1]).exists():
+#             date = re.search(r"\d{4}-\d{2}-\d{2}", match[1])[0]
+#             slug = re.search(r"\d{4}-\d{2}-\d{2}-(.*)", match[1])[1]
+
+#             print(date, slug)
+
+
 with load_db() as conn, conn.cursor() as cur:
     for post in posts_dir.glob("**/*.md"):
-        print(post.parent.name)
-        data = json.loads(Path(post.parent, "meta.json").read_text(encoding="utf-8"))
+        content = post.read_text(encoding="utf-8")
 
-        last_modified = datetime.datetime.strptime(
-            data["modified_gmt"],
-            "%Y-%m-%dT%H:%M:%S",
-        )
+        link_pattern = r"\[([^\]]*)\]\(..\/(\d{4}-\d{2}-\d{2})_([^/)]*)\/post.md\/?\)"
 
-        res = cur.execute(
-            """select * from all_posts where post_id = %(id)s and last_modified = %(last_modified)s""",
-            {"id": data["id"], "last_modified": last_modified},
-        ).fetchone()
+        for i in re.findall(link_pattern, content):
+            res = cur.execute(
+                """select published::date, slug, filename from published_posts where slug = %(slug)s""",
+                {"slug": i[2]},
+            ).fetchone()
 
-        title = res["title"].strip('"').replace('"', "'")
+            if res:
+                content = content.replace(
+                    f"{i[1]}_{i[2]}",
+                    f"{res['published']}_{res['slug']}",
+                )
 
-        with post.open("w", encoding="utf-8") as f:
-            f.write("---\n")
-
-            if res["header_img"]:
-                f.write("layout: post\n")
-            else:
-                f.write("layout: default-post\n")
-
-            f.write(f'title: "{res["title"]}"\n')
-            f.write(f'author: "{res["author_name"]}"\n')
-            f.write(f'excerpt: "{res["excerpt"].strip()}"\n')
-
-            if res["tag_list"]:
-                f.write(f"tags: {res['tag_list']}\n")
-
-            if res["category_list"]:
-                f.write(f"categories: {res['category_list']}\n")
-
-            if res["header_img"]:
-                f.write(f"header_img: {res['header_img']}\n")
-
-            f.write(f"post_id: {res['post_id']}\n")
-
-            f.write("---\n")
-            f.write(res["content"])
+        post.write_text(content, encoding="utf-8")

@@ -26,13 +26,13 @@ post_id: 55962
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/02/1977-02-19.png.webp)
 
-Also on this date in 1977: Manfred Mann’s Earth Band gifts Bruce with his only number one single. Their cover of “[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)” tops the charts in the U.S. and Canada today.
+Also on this date in 1977: Manfred Mann’s Earth Band gifts Bruce with his only number one single. Their cover of “[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)” tops the charts in the U.S. and Canada today.
 
 [Watch on Youtube: Blinded By The Light](https://www.youtube.com/watch?v=33ptulhhQPg)
 
 **1984:** Nils Lofgren spends the weekend with Bruce at his house in Rumson. Not long after, Bruce will invite Nils to join the E Street Band.<br>
 
-**2003:** Bruce plays a solo acoustic show in Somerville, Massachusetts, as a benefit for *Doubletake* *Magazine*. This show features the premiere of “[The Wall](../2024-09-04_roll-of-the-dice-the-wall/post.md)” (which won’t be released for more than a decade) and a one-off acoustic “[Souls of the Departed](../2019-03-19_roll-of-the-dice-souls-of-the-departed/post.md).” The real highlight, though, is the post-show Q&A sessions with fans in attendance. Take a listen below.<br>
+**2003:** Bruce plays a solo acoustic show in Somerville, Massachusetts, as a benefit for *Doubletake* *Magazine*. This show features the premiere of “[The Wall](../2024-09-04_roll-of-the-dice-the-wall/post.md)” (which won’t be released for more than a decade) and a one-off acoustic “[Souls of the Departed](../1992-02-10_roll-of-the-dice-souls-of-the-departed/post.md).” The real highlight, though, is the post-show Q&A sessions with fans in attendance. Take a listen below.<br>
 
 [Watch on Youtube: Bruce Springsteen - THE WALL 2003 (audio)](https://www.youtube.com/watch?v=pdOOc0oQhzU)
 

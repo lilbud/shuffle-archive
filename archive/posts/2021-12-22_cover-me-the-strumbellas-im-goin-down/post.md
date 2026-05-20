@@ -19,7 +19,7 @@ Canadian alt/indie-country/rock band The Strumbellas may be big Springsteen fans
 
 Like lots of other bands during this last, lost tour-less year, The Strumbellas have been releasing live performances on video for their fans, including an acoustic series of original songs and covers.
 
-One of those covers was a lovely rendition of Bruce’s “[I’m Goin’ Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md),” stripped down to expose the heartbreak hiding in Bruce’s lyrics.
+One of those covers was a lovely rendition of Bruce’s “[I’m Goin’ Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md),” stripped down to expose the heartbreak hiding in Bruce’s lyrics.
 
 [Watch on Youtube: The Strumbellas - I'm Goin' Down (Acoustic Session)](https://www.youtube.com/watch?v=1rvUzqckkrU)
 

@@ -84,7 +84,7 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2006-0425b.jpg.webp)
 
-**2008:** The Magic Tour moves to Atlanta for a show at Philips Arena, where "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)" makes its tour premiere.<br>
+**2008:** The Magic Tour moves to Atlanta for a show at Philips Arena, where "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)" makes its tour premiere.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/CcJp0LLz)
 
@@ -92,7 +92,7 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/04/2008-04-25b.jpg.webp)
 
-**2016:** The closing night of the first U.S. leg of the River Tour (2016 version) at Barclays Center in Brooklyn brings the tour premieres of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" and "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" along with a reprise of Bruce's "[Purple Rain](../2021-03-03_cover-me-purple-rain/post.md)" tribute, a rare "[Loose Ends,](../2022-06-23_roll-of-the-dice-loose-end/post.md)" and an adorable fan singalong to "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)."<br>
+**2016:** The closing night of the first U.S. leg of the River Tour (2016 version) at Barclays Center in Brooklyn brings the tour premieres of "[Boom Boom](../2020-03-26_cover-me-boom-boom/post.md)" and "[Trapped](../2018-08-05_roll-of-the-dice-cover-me-trapped/post.md)" along with a reprise of Bruce's "[Purple Rain](../2021-03-03_cover-me-purple-rain/post.md)" tribute, a rare "[Loose Ends,](../2022-06-23_roll-of-the-dice-loose-end/post.md)" and an adorable fan singalong to "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)."<br>
 
 [Watch on Youtube: "Blinded by the light" - Bruce Springsteen & special guest"](https://www.youtube.com/watch?v=QTMfT2Pr_P4)
 

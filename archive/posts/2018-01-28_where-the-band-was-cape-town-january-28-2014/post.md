@@ -16,7 +16,7 @@ Night 1 was the High Hopes Tour (although I had no idea at the time what that wo
 
 There was a reason for that: Pete Seeger died during the down day between Night 1 and Night 2, and Seeger had a huge influence on Bruce. Going into the show that night, I expected a tribute song at some point.
 
-Sure enough, leading off the encore was “[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md),” dedicated to Seeger and to Nelson Mandela, sung in unison by the entire audience, and resonating more in South Africa than it ever did on the Seeger Sessions tour. Those minutes existed out of time and remain one of my most memorable experiences at a Springsteen show.
+Sure enough, leading off the encore was “[We Shall Overcome](../2006-01-13_roll-of-the-dice-cover-me-we-shall-overcome/post.md),” dedicated to Seeger and to Nelson Mandela, sung in unison by the entire audience, and resonating more in South Africa than it ever did on the Seeger Sessions tour. Those minutes existed out of time and remain one of my most memorable experiences at a Springsteen show.
 
 [Watch on Youtube: Bruce Springsteen - We Shall Overcome - Cape Town - Bellville - 2014-01-26](https://www.youtube.com/watch?v=PE2lhLHeDBw)
 

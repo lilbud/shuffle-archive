@@ -52,7 +52,7 @@ post_id: 62386
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1990-11-17.png.webp)
 
-**1992:** Just like in the old days, several minutes after Bruce leaves the stage following his World Tour 1992 show in Chapel Hill, he stuns remaining fans (and the band and crew) by returning to the stage to play an extra encore of "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)," muttering "All I was gonna do is sit in the hotel room anyway..."<br>
+**1992:** Just like in the old days, several minutes after Bruce leaves the stage following his World Tour 1992 show in Chapel Hill, he stuns remaining fans (and the band and crew) by returning to the stage to play an extra encore of "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)," muttering "All I was gonna do is sit in the hotel room anyway..."<br>
 
 [Watch on Youtube: Bruce Springsteen - "Working on the Highway" - Chapel Hill, 1992-11-17](https://www.youtube.com/watch?v=cH8ta8hMUwI)
 
@@ -64,7 +64,7 @@ post_id: 62386
 
 [Watch on Youtube: Born To Run](https://www.youtube.com/playlist?list=OLAK5uy_nZs0gvllzGn7y9-5OuorN7W37HPrPGrn8)
 
-**1999:** "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" makes an appearance by request when Bruce and the E Street Band play a Reunion show at the Value City Arena in Columbus.<br>
+**1999:** "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" makes an appearance by request when Bruce and the E Street Band play a Reunion show at the Value City Arena in Columbus.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/7kNy3MXA)
 
@@ -114,11 +114,11 @@ post_id: 62386
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/11/Daily_News_Thu__Nov_19__2009_-scaled.jpg.webp)
 
-**2011:** Bruce and Jessica take in Taylor Swift's concert in Raleigh. Backstage, he borrows Taylor's guitar, plays "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)," and signs the guitar for her. Watch Taylor tell the story and show a clip of Bruce's impromptu performance below (and check out her own cover of "Dancing in the Dark" [here).](https://estreetshuffle.com/index.php/2018/11/14/cover-me-taylor-swift-dancing-in-the-dark/)<br>
+**2011:** Bruce and Jessica take in Taylor Swift's concert in Raleigh. Backstage, he borrows Taylor's guitar, plays "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," and signs the guitar for her. Watch Taylor tell the story and show a clip of Bruce's impromptu performance below (and check out her own cover of "Dancing in the Dark" [here).](https://estreetshuffle.com/index.php/2018/11/14/cover-me-taylor-swift-dancing-in-the-dark/)<br>
 
 [Watch on Youtube: Exclusive! Taylor Swift's Springsteen Story on Ellen show](https://www.youtube.com/watch?v=fOpbhV-aLew)
 
-**2012:** The Wrecking Ball Tour comes to the Sprint Center in Kansas City, where Bruce opens with, well, "[Kansas City](../2021-01-11_cover-me-kansas-city/post.md)." Bruce also tour premieres "[My Beautiful Reward](../2023-02-19_roll-of-the-dice-my-beautiful-reward/post.md)," played by the E Street Band for only the second time and dedicated to Bruce's cousin and assistant tour manager Lenny Sullivan, who died in Kansas City three years earlier.<br>
+**2012:** The Wrecking Ball Tour comes to the Sprint Center in Kansas City, where Bruce opens with, well, "[Kansas City](../2021-01-11_cover-me-kansas-city/post.md)." Bruce also tour premieres "[My Beautiful Reward](../1992-02-11_roll-of-the-dice-my-beautiful-reward/post.md)," played by the E Street Band for only the second time and dedicated to Bruce's cousin and assistant tour manager Lenny Sullivan, who died in Kansas City three years earlier.<br>
 
 [Watch on Youtube: Bruce Springsteen - Kansas City w/ Hey, Hey, Hey, Hey (ALL) [TP] - K.C.-11/17/12](https://www.youtube.com/watch?v=xdCE8JiNYqY)
 

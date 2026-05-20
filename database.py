@@ -1,6 +1,7 @@
 import datetime
 import json
 import os
+import re
 from pathlib import Path
 
 import ftfy
@@ -33,6 +34,8 @@ def insert_post() -> None:
         for post in post_dir.iterdir():
             content = Path(post / "post.md").read_text(encoding="utf-8")
             meta = json.loads(Path(post / "meta.json").read_text())
+
+            content = re.sub("^---[\\s\\S]+?---\n?", "", content)
 
             post_id = meta["id"]
             slug = meta["slug"]

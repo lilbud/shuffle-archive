@@ -48,11 +48,11 @@ post_id: 56768
 
 [Watch Video Highlight](https://videopress.com/embed/484BpLnV)
 
-**1997:** Bruce's solo acoustic tour of France continues at the Berlioz Opera House in Montpellier, where the set list features a rare performance of "[For You.](../2022-01-08_roll-of-the-dice-for-you/post.md)"<br>
+**1997:** Bruce's solo acoustic tour of France continues at the Berlioz Opera House in Montpellier, where the set list features a rare performance of "[For You.](../2011-01-07_roll-of-the-dice-for-you/post.md)"<br>
 
 [Watch Video Highlight](https://videopress.com/embed/PTD9NGHp)
 
-**1999:** The Reunion Tour's U.K. swing continues with a show at the NEC Arena in Birmingham, where Edwin Starr makes a guest appearance on a tour one-off of "[War](../2019-05-27_cover-me-war/post.md)."<br>
+**1999:** The Reunion Tour's U.K. swing continues with a show at the NEC Arena in Birmingham, where Edwin Starr makes a guest appearance on a tour one-off of "[War](../2016-01-02_cover-me-war/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Bg41FE4q)
 

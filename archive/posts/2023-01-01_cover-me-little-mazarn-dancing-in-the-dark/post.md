@@ -10,7 +10,7 @@ post_id: 10925
 ---
 I'm not sure how to describe Little Mazarn's sound; "new age/Appalachian" may be as close as I can get.
 
-It's not worth getting hung up on categories, though, because no matter where you assign it, Little Mazarn's cover of Bruce's "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" is gorgeous, haunting, and unique. It'll stick with you long after the first listen.
+It's not worth getting hung up on categories, though, because no matter where you assign it, Little Mazarn's cover of Bruce's "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" is gorgeous, haunting, and unique. It'll stick with you long after the first listen.
 
 [Watch on Youtube: Dancing in the Dark](https://www.youtube.com/watch?v=Wap9nrhyEJw)
 

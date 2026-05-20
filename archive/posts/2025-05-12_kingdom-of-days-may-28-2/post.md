@@ -42,7 +42,7 @@ post_id: 56857
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/05/1977-0528.jpg.webp)
 
-**1985:** Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell's in Hoboken for the second day of filming for the video for "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)."<br>
+**1985:** Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell's in Hoboken for the second day of filming for the video for "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Glory Days (Official Video)](https://www.youtube.com/watch?v=6vQpW9XRiyM)
 

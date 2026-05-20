@@ -54,7 +54,7 @@ post_id: 62429
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/1992-11-23b.png.webp)
 
-**2002:** Bruce plays a Rising show full of surprises at the American Airlines Arena in Miami. No less than four tour premieres tonight, two of them with guest stars: "[Out in the Street,](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" "Because the Night" (with Bono and Dave Stewart), "So Young and in Love," and "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" (with Dion). And if the show needed more cameos, Bruce was happy to oblige: actor Vincent Pastore from The Sopranos introduced the encores.<br>
+**2002:** Bruce plays a Rising show full of surprises at the American Airlines Arena in Miami. No less than four tour premieres tonight, two of them with guest stars: "[Out in the Street,](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)" "Because the Night" (with Bono and Dave Stewart), "So Young and in Love," and "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" (with Dion). And if the show needed more cameos, Bruce was happy to oblige: actor Vincent Pastore from The Sopranos introduced the encores.<br>
 
 [Watch on Youtube: Bruce Springsteen & Bono - Because The Night (Live in Miami)](https://www.youtube.com/watch?v=hFOLwjmjRR4)
 
@@ -64,7 +64,7 @@ post_id: 62429
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2002-11-23.png.webp)
 
-**2019:** Bruce contributes a brief video salute for Steve Van Zandt's tribute at the Rock and Roll Forever Foundation's First Annual Gala at the Hard Rock Cafe in New York City. The benefit auction includes two guitars autographed by the E Street Band during their *[Letter to You](../2023-07-10_album-companion-letter-to-you/post.md)*recording session that finished just the day before.<br>
+**2019:** Bruce contributes a brief video salute for Steve Van Zandt's tribute at the Rock and Roll Forever Foundation's First Annual Gala at the Hard Rock Cafe in New York City. The benefit auction includes two guitars autographed by the E Street Band during their *[Letter to You](../2017-01-01_album-companion-letter-to-you/post.md)*recording session that finished just the day before.<br>
 
 [Watch on Youtube: Bruce Springsteen - Video Message - Rock And Roll Foundation Gala Honoring Little Steven](https://www.youtube.com/watch?v=oFdlLxrAAgI)
 

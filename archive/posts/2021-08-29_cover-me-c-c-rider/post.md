@@ -8,7 +8,7 @@ categories: cover-me cover-you
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/08/seesee.jpg
 post_id: 29029
 ---
-Now *this* is The Bruce Springsteen Band. Remember that heavy recording of “[Do It With a Feeling](../2021-08-28_roll-of-the-dice-do-it-with-a-feeling/post.md)” we listened to yesterday? Compare that with this gorgeous stereo recording of the blues standard “C.C. Rider.”
+Now *this* is The Bruce Springsteen Band. Remember that heavy recording of “[Do It With a Feeling](../1972-02-03_roll-of-the-dice-do-it-with-a-feeling/post.md)” we listened to yesterday? Compare that with this gorgeous stereo recording of the blues standard “C.C. Rider.”
 
 [Watch Video Highlight](https://videopress.com/embed/hrH99RUi)
 

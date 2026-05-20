@@ -36,7 +36,7 @@ In the second verse, the divergence becomes more obvious. In this version, Bruce
 > *Young boys for hire waiting to blow us all down*<br>
 > *There are strange flashes in the sky up above*<br>
 
-That's some impressionistic imagery there (and yes, that first line would end up in "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" five years later); Bruce paints a gritty street scene as backdrop for the lovers. Six years later, the song would instead be set against a town dying a slow economic death. (It would be easy, in fact, to imagine the 1982 version of Frankie set in the same place is "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md).")
+That's some impressionistic imagery there (and yes, that first line would end up in "[Drive All Night](../2018-02-27_roll-of-the-dice-drive-all-night/post.md)" five years later); Bruce paints a gritty street scene as backdrop for the lovers. Six years later, the song would instead be set against a town dying a slow economic death. (It would be easy, in fact, to imagine the 1982 version of Frankie set in the same place is "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md).")
 
 In both versions, though, Bruce takes his time painting a stark backdrop so he can play up his hero's romance in the foreground, and when his lyrics open up, we feel our hearts open, too:
 

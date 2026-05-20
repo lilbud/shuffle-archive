@@ -10,7 +10,7 @@ post_id: 39970
 ---
 Written for The Ramones, arranged after The Beach Boys, built around a Four Seasons riff and a Tennyson metaphor, sped up a la Alvin and The Chipmunks, and sporting deceptively dark lyrics, "Hungry Heart" was a longshot candidate for release at all, let alone a lead single.
 
-It became, of course, one of Bruce Springsteen's biggest hits. Even today, it remains Springsteen's best-charting single in North America, behind only "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."
+It became, of course, one of Bruce Springsteen's biggest hits. Even today, it remains Springsteen's best-charting single in North America, behind only "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - Hungry Heart (Official Audio)](https://www.youtube.com/watch?v=boJhWtw-6Gg)
 

@@ -28,7 +28,7 @@ post_id: 59371
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/08/1984-08-19.jpg.webp)
 
-**1985:** Bruce and the E Street Band play their second of a four-night stand at Giants Stadium (they will return later that summer). The show is notable for its performances of "[Johnny 99,](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" "[Working on the Highway,](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)" "[I'm on Fire,](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" and "Born to Run," all of which are recorded and will be released on the *Live 1975-85* box set. Their "Born to Run" performance will become the audio for the official video for the song.<br>
+**1985:** Bruce and the E Street Band play their second of a four-night stand at Giants Stadium (they will return later that summer). The show is notable for its performances of "[Johnny 99,](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" "[Working on the Highway,](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)" "[I'm on Fire,](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" and "Born to Run," all of which are recorded and will be released on the *Live 1975-85* box set. Their "Born to Run" performance will become the audio for the official video for the song.<br>
 
 [Watch on Youtube: Bruce Springsteen - Born to Run (Official Video)](https://www.youtube.com/watch?v=IxuThNgl3YA)
 

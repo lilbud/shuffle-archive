@@ -14,7 +14,7 @@ I escaped to the Pacific Northwest half my life ago, but as long as Bruce contin
 
 Pretty much every Springsteen show is great. But in some cities, you're more likely than not to get the jaw-dropping, rarities-filled setlists that fans dream of. And in Philadelphia, you're pretty much guaranteed it: Philly is consistently and reliably the site of legendary Bruce shows dating back well before "Born to Run."
 
-This show certainly fit that mold. It started out normally enough, with a standard "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" opener kicking off the usual WOAD opening pack and recession-themed mini-set. But then came sign-collection time, and we were off to the races.
+This show certainly fit that mold. It started out normally enough, with a standard "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" opener kicking off the usual WOAD opening pack and recession-themed mini-set. But then came sign-collection time, and we were off to the races.
 
 First, a rare outing of "[Fire](../2020-08-05_roll-of-the-dice-fire/post.md)" in response to a sign deserving of attention…
 

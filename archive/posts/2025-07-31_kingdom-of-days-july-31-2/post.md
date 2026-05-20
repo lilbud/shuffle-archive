@@ -26,7 +26,7 @@ post_id: 57851
 
 [Watch Video Highlight](https://videopress.com/embed/lzcXNflW)
 
-**1984:** "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" is released as the second single off of the red-hot *Born in the U.S.A.* album. It will peak at #7 on the charts.<br>
+**1984:** "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" is released as the second single off of the red-hot *Born in the U.S.A.* album. It will peak at #7 on the charts.<br>
 
 [Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
@@ -44,7 +44,7 @@ That evening, Bruce tour premieres "[Growin' Up](../2011-01-03_roll-of-the-dice-
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1987-07-31b.png.webp)
 
-**1992:** The opening stand of World Tour 1992 reaches its midpoint in East Rutherford on Night Six of eleven. Many tour premieres tonight, including "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)", and the live debuts of "[Pony Boy](../2019-03-01_roll-of-the-dice-cover-me-pony-boy/post.md)" and "[Cross My Heart](../2020-12-29_roll-of-the-dice-cross-my-heart/post.md)."<br>
+**1992:** The opening stand of World Tour 1992 reaches its midpoint in East Rutherford on Night Six of eleven. Many tour premieres tonight, including "[Atlantic City](../2018-06-04_roll-of-the-dice-atlantic-city/post.md)," "[Spirit in the Night](../2011-01-08_roll-of-the-dice-spirit-in-the-night/post.md/)," "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)", and the live debuts of "[Pony Boy](../2019-03-01_roll-of-the-dice-cover-me-pony-boy/post.md)" and "[Cross My Heart](../2020-12-29_roll-of-the-dice-cross-my-heart/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Atlantic City Brendan Bryne Arena New Jersey 31/07/1992](https://www.youtube.com/watch?v=xeSRlWZq2lk)
 
@@ -68,7 +68,7 @@ That evening, Bruce tour premieres "[Growin' Up](../2011-01-03_roll-of-the-dice-
 
 [Watch on Youtube: Lost in the Flood (Live at Schottenstein Center, Columbus, OH - 7/31/2005)](https://www.youtube.com/watch?v=vdZ12-Y7_pU)
 
-**2008:** At the final of three Giants Stadium shows on the Magic Tour, Bruce tour premieres "[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)" and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" and holds a mini-Seeger Sessions reunion when Jeremy Chatzky, Sam Bardfeld, and Curtis King join the band for "[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)"<br>
+**2008:** At the final of three Giants Stadium shows on the Magic Tour, Bruce tour premieres "[Pretty Flamingo](../2021-12-04_cover-me-pretty-flamingo/post.md)" and "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" and holds a mini-Seeger Sessions reunion when Jeremy Chatzky, Sam Bardfeld, and Curtis King join the band for "[American Land.](../2016-01-22_roll-of-the-dice-american-land/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - Pretty Flamingo](https://www.youtube.com/watch?v=y1Pht9wCmdc)
 

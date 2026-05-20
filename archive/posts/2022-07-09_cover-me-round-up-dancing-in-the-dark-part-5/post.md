@@ -10,7 +10,7 @@ post_id: 35073
 ---
 They keep on coming–but thankfully, they never stop surprising and delighting.
 
-We're talking about covers of Bruce Springsteen's 1984 megahit single, "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."
+We're talking about covers of Bruce Springsteen's 1984 megahit single, "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)."
 
 Ever since Bruce *almost* topped the charts with it (Prince denied him what would otherwise have been his only #1 hit single), and with increasing frequency, artists have been putting their own spins on it. Considering that the original version sounds about as eighties as you can get, "Dancing in the Dark" has proven to be almost infinitely malleable in the hands of the right bands.
 

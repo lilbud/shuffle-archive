@@ -10,11 +10,11 @@ post_id: 22769
 ---
 It's Double-Shot Tuesday on the Shuffle! Today, we bring you not one but *two* terrific covers of "I'm on Fire" courtesy of the fine folks at Scary Pockets.
 
-Wait, wait! Don't leave! I know we've spotlit a ton of "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" covers already, and truth be told the list of remaining ones could keep a blog going all by themselves.
+Wait, wait! Don't leave! I know we've spotlit a ton of "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" covers already, and truth be told the list of remaining ones could keep a blog going all by themselves.
 
 But that just means the bar is high for what makes the cut to include, and both of these are well worth checking out.
 
-We've featured the work of Scary Pockets before–they're a Los Angeles-based covers band that funkifies classic songs with a rotating cast of guest vocalists. About a year ago, we took a look at their [irresistible take](../2019-12-01_cover-me-scary-pockets-and-darren-criss-dancing-in-the-dark/post.md) on "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" with Darrin Criss.
+We've featured the work of Scary Pockets before–they're a Los Angeles-based covers band that funkifies classic songs with a rotating cast of guest vocalists. About a year ago, we took a look at their [irresistible take](../2019-12-01_cover-me-scary-pockets-and-darren-criss-dancing-in-the-dark/post.md) on "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" with Darrin Criss.
 
 Today, they've recruited [Rett Madison](https://www.rettmadison.com/), a new singer-songwriter on the music scene who's already generating quite a bit of mainstream buzz in advance of her debut album. Together, Madison and Scary Pockets deliver a powerfully funky cover of "I'm on Fire" that'll have you dancing by the one-minute mark.
 

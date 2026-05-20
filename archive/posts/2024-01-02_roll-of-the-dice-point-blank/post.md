@@ -81,7 +81,7 @@ All of this is setup for the extended dream sequence that is the heart of "Point
 > *You just turned and then you looked away*<br>
 > *Like just another stranger waiting to get blown away*<br>
 
-As a songwriter, Bruce uses this device sparingly, but when he does (as in "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)") the effect is mesmerizing. Like a dream, some details are vivid; others are ignored, and the background is a blur.
+As a songwriter, Bruce uses this device sparingly, but when he does (as in "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)") the effect is mesmerizing. Like a dream, some details are vivid; others are ignored, and the background is a blur.
 
 But the details aren't important here. We're meant to focus on the foreground, but instead we fixate on Bruce's vocal as he strains mightily to maintain his composure, his emotional armor starting to buckle.
 

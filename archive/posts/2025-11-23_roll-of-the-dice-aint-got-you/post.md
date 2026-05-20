@@ -26,7 +26,7 @@ A decade after Arnold and Reed released their versions, "I Ain't Got You" was co
 
 Given Bruce's fondness for both bands, it's likely he first became aware of "I Ain't Got You" through those cover recordings, which debuted within weeks of each other during the summer The Castiles played their very first shows.
 
-But at some point Bruce traced the song to its original artist, because there are homages all over "Ain't Got You," the leadoff track to Bruce's 1987 *[Tunnel of Love](../2022-08-08_album-companion-tunnel-of-love/post.md)*album.
+But at some point Bruce traced the song to its original artist, because there are homages all over "Ain't Got You," the leadoff track to Bruce's 1987 *[Tunnel of Love](../1987-01-01_album-companion-tunnel-of-love/post.md)*album.
 
 [Watch on Youtube: Ain't Got You](https://www.youtube.com/watch?v=5iO8d8m0esY)
 

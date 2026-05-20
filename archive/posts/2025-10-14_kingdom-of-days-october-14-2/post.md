@@ -60,7 +60,7 @@ post_id: 61113
 
 [Watch on Youtube: What Love Can Do (Live at Wachovia Spectrum, Philadelphia, PA - 10/14/2009)](https://www.youtube.com/watch?v=WVVFNDyM2as)
 
-**2017:** Bruce can't seem to decide on the order of "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" during his Broadway show at the Walter Kerr Theater in New York City–the two songs switch places for the third time.<br>
+**2017:** Bruce can't seem to decide on the order of "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" and "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)" during his Broadway show at the Walter Kerr Theater in New York City–the two songs switch places for the third time.<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/2017-1003.jpg.webp)
 

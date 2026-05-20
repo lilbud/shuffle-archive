@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/09/brentparlane.jpg
 post_id: 21414
 ---
-"[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)" is one of Bruce Springsteen's loveliest songs, but the studio track that appears on [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) is one of his most dated.
+"[Walk Like a Man](../1987-01-06_roll-of-the-dice-walk-like-a-man/post.md/)" is one of Bruce Springsteen's loveliest songs, but the studio track that appears on [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) is one of his most dated.
 
 It's not like the drum machine and prominent synths squelch the tenderness of the song, but it screams "eighties" like few other songs in his catalog.
 

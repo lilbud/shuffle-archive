@@ -26,7 +26,7 @@ Bruce wisely avoided the original version’s challenging key changes, which als
 
 As a result, Cash’s sweet lyrics are laid bare without distraction, and Soozie Tyrell’s lonely, lovely violin bridges the verses to create an unbroken pledge of love and fidelity.
 
-Bruce must have been pleased with how it came off, because he opened his show with it the next night as well. After that, though, the song went back on the shelf–other than a brief nod to it as an intro to “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” on the Magic Tour, Bruce hasn’t played “I Walk the Line” ever since.
+Bruce must have been pleased with how it came off, because he opened his show with it the next night as well. After that, though, the song went back on the shelf–other than a brief nod to it as an intro to “[I’m on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)” on the Magic Tour, Bruce hasn’t played “I Walk the Line” ever since.
 
 **I Walk The Line**<br>
 **First performed:** September 13, 2003 (Landover, MD)<br>

@@ -38,7 +38,7 @@ post_id: 61239
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/10/46735344874_c8e2fd32b2_o.jpg.webp)
 
-**1983:** At The Hit Factory in New York City, Bruce and the E Street Band record "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)."<br>
+**1983:** At The Hit Factory in New York City, Bruce and the E Street Band record "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)."<br>
 
 [Watch on Youtube: No Surrender](https://www.youtube.com/watch?v=txKhQ9cbhgo)
 

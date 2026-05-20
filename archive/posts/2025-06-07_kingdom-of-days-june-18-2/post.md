@@ -30,7 +30,7 @@ post_id: 57109
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1985-0618.jpg.webp)
 
-**1988:** In town for their Tunnel of Love show the following night, Bruce and Clarence make a guest appearance at the S.O.S. Racisme concert in Paris. The pair perform a mini-set, Bruce on guitar and harmonica and Clarence on sax and backing vocals. Watch this very unusual and beautiful performance below, including a wonderful “[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)” and the first-ever acoustic performance of “[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md).”<br>
+**1988:** In town for their Tunnel of Love show the following night, Bruce and Clarence make a guest appearance at the S.O.S. Racisme concert in Paris. The pair perform a mini-set, Bruce on guitar and harmonica and Clarence on sax and backing vocals. Watch this very unusual and beautiful performance below, including a wonderful “[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)” and the first-ever acoustic performance of “[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md).”<br>
 
 [Watch on Youtube: Bruce Springsteen and Clarrence Clemons SOS Racisme! 18th of June 1988 Paris](https://www.youtube.com/watch?v=7kltDPpjiP0)
 

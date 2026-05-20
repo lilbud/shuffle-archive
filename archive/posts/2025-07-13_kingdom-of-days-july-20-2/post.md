@@ -30,7 +30,7 @@ post_id: 57793
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-07-20.png.webp)
 
-**2005:** Bruce brings his solo acoustic tour to Bridgeport, Connecticut, where he tour premieres "[All That Heaven Will Allow](../2022-08-05_roll-of-the-dice-all-that-heaven-will-allow/post.md)" and "[Nothing Man,](../2020-08-29_roll-of-the-dice-nothing-man/post.md)" both on electric piano.<br>
+**2005:** Bruce brings his solo acoustic tour to Bridgeport, Connecticut, where he tour premieres "[All That Heaven Will Allow](../1987-01-03_roll-of-the-dice-all-that-heaven-will-allow/post.md)" and "[Nothing Man,](../2020-08-29_roll-of-the-dice-nothing-man/post.md)" both on electric piano.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/wpRIRm41)
 
@@ -38,7 +38,7 @@ post_id: 57793
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/2005-07-20.png.webp)
 
-**2008:** Bruce and the E Street Band play their last European Magic show, at Camp Nou in Barcelona, tour premiering "[I'm Goin' Down](../2021-06-05_roll-of-the-dice-im-goin-down/post.md)" (the first time that song has ever been played in Europe).<br>
+**2008:** Bruce and the E Street Band play their last European Magic show, at Camp Nou in Barcelona, tour premiering "[I'm Goin' Down](../1984-01-11_roll-of-the-dice-im-goin-down/post.md)" (the first time that song has ever been played in Europe).<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band Barcelona 20th July 2008 Tougher Than The Rest](https://www.youtube.com/watch?v=SzMNhfqCOJ8)
 

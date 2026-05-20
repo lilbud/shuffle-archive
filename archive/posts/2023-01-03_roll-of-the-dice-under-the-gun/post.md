@@ -26,7 +26,7 @@ In all, there are a whopping eleven known work-in-progress bootlegs of "Under th
 
 Unfortunately, the lyrics are too undeveloped in the acoustic demos for us to get a true sense of the final song, and while it was presumably finished by the time Bruce rehearsed it with the band, his vocals are too distant for us to make them out.
 
-That said, here's what we do know: like "Thunder Road," "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," and "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)," "Under the Gun" was another in a string of songs with titles ripped from movie posters, in this case the 1951 film noir thriller.
+That said, here's what we do know: like "Thunder Road," "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)," and "[Point Blank](../2020-12-19_roll-of-the-dice-point-blank/post.md)," "Under the Gun" was another in a string of songs with titles ripped from movie posters, in this case the 1951 film noir thriller.
 
 Bruce's song appears to have nothing in common with the film beyond its name, however. "Under the Gun" appears to be a song about a man who can't quite earn the kind of living he wants to provide for himself and his wife.
 

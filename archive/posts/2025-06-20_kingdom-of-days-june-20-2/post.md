@@ -54,7 +54,7 @@ post_id: 57120
 
 [Watch Video Highlight](https://videopress.com/embed/Hi4z7lS4)
 
-**2005:** Elliott Murphy makes a guest appearance on "[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)" when Bruce tour premieres it (along with "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)") at his solo acoustic show in Paris.<br>
+**2005:** Elliott Murphy makes a guest appearance on "[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)" when Bruce tour premieres it (along with "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)") at his solo acoustic show in Paris.<br>
 
 [Watch on Youtube: Bruce Springsteen My Beautiful Reward 20 Juin 2005 Paris Bercy Solo Acoustic Soundboard](https://www.youtube.com/watch?v=6DNpb_i2V7U)
 
@@ -64,7 +64,7 @@ post_id: 57120
 
 [Watch on Youtube: Bruce Springsteen Dream Baby Dream 20 Juin 2005 Paris Bercy Solo Acoustic Soundboard](https://www.youtube.com/watch?v=tQ3_Fy5nd10)
 
-**2006:** Bruce and the Sessions Band deliver a great show at the Tweeter Center in Camden, tour premiering a full-band "[Maria's Bed](../2018-11-16_roll-of-the-dice-marias-bed/post.md)." Southside Johnny and Joe Grushecky join Bruce for "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
+**2006:** Bruce and the Sessions Band deliver a great show at the Tweeter Center in Camden, tour premiering a full-band "[Maria's Bed](../2018-11-16_roll-of-the-dice-marias-bed/post.md)." Southside Johnny and Joe Grushecky join Bruce for "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen & Seeger Sessions - My city of ruins - Live from Camden, NJ - 2006-06-20](https://www.youtube.com/watch?v=yoq1or7rtS0)
 

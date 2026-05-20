@@ -30,7 +30,7 @@ Two hours later my company and I are inside the venue and to our surprise IN the
 
 Bruce Springsteen and the extended E Street Band get on stage around eight o'clock. Bruce is wearing black: jeans, a shirt and a vest. His face is slightly tanned.
 
-The show starts off in familiar fashion for the *Wrecking Ball* Tour: "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)*," "*[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)," and "[Wrecking Ball](../2022-08-12_roll-of-the-dice-wrecking-ball/post.md)" immediately receive a loud and energetic response from the crowd.
+The show starts off in familiar fashion for the *Wrecking Ball* Tour: "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)*," "*[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)," and "[Wrecking Ball](../2016-01-17_roll-of-the-dice-wrecking-ball/post.md)" immediately receive a loud and energetic response from the crowd.
 
 [Watch Video Highlight](https://videopress.com/embed/cgvnjE9h)
 

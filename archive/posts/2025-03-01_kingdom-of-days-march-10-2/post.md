@@ -38,7 +38,7 @@ post_id: 56135
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1977-0310.jpg.webp)
 
-**1978:** Bruce and the band complete their recording of "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" at the Record Plant in New York City.<br>
+**1978:** Bruce and the band complete their recording of "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" at the Record Plant in New York City.<br>
 
 [Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/watch?v=0LpdEyGhNxM)
 
@@ -76,7 +76,7 @@ post_id: 56135
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Newsday__Suffolk_Edition__Thu__Mar_13__2008_-scaled.jpg.webp)
 
-**2016:** The 2016 version of the River Tour moves on to the Talking Stick Resort Arena in Phoenix, where "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" makes its tour debut.<br>
+**2016:** The 2016 version of the River Tour moves on to the Talking Stick Resort Arena in Phoenix, where "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" makes its tour debut.<br>
 
 [Watch on Youtube: Hungry Heart Bruce Springsteen Phoenix March 10 2016 Talking Stick Arena](https://www.youtube.com/watch?v=aRRO-15wJGQ)
 

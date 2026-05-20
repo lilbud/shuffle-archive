@@ -96,7 +96,7 @@ post_id: 62986
 
 **2018:** *Springsteen on Broadway* enters the final week of its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Bruce Willis and Billy Joel.<br>
 
-**2020:** Still in the midst of the pandemic, Bruce and most of the E Street Band (minus Garry and Soozie, plus Jack Daley sitting in on bass) perform "[Ghosts](../2023-07-06_roll-of-the-dice-ghosts/post.md)" and "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" on *Saturday Night Live*.<br>
+**2020:** Still in the midst of the pandemic, Bruce and most of the E Street Band (minus Garry and Soozie, plus Jack Daley sitting in on bass) perform "[Ghosts](../2017-01-11_roll-of-the-dice-ghosts/post.md)" and "[I'll See You in My Dreams](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" on *Saturday Night Live*.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2OZScE6v)
 

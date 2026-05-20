@@ -82,6 +82,6 @@ post_id: 57108
 
 **2023:** On his night off between shows in Birmingham, Bruce attends Steve Earle's solo acoustic show.<br>
 
-**2024:** Bruce and the E Street Band wrap up their three-night stand in Madrid, tour premiering "[Cover Me.](../2021-01-13_roll-of-the-dice-cover-me/post.md)"<br>
+**2024:** Bruce and the E Street Band wrap up their three-night stand in Madrid, tour premiering "[Cover Me.](../1984-01-04_roll-of-the-dice-cover-me/post.md)"<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GNYtVhlI3f8)

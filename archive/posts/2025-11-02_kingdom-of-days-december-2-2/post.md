@@ -38,7 +38,7 @@ post_id: 62661
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2019/11/46735692384_9c40836eae_o.jpg.webp)
 
-**1981:** Bruce records an acoustic demo of "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" at home in New Jersey,<br>
+**1981:** Bruce records an acoustic demo of "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" at home in New Jersey,<br>
 
 **1984:** Bruce and the band make a Born in the U.S.A. Tour stop at Louisiana State University in Baton Rouge.<br>
 
@@ -54,7 +54,7 @@ post_id: 62661
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1992-12-02b.png.webp)
 
-**1996:** Dion DiMucci guest stars on "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" when Bruce plays his first of two solo acoustic shows at the Sunrise Musical Theater in Florida.<br>
+**1996:** Dion DiMucci guest stars on "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" when Bruce plays his first of two solo acoustic shows at the Sunrise Musical Theater in Florida.<br>
 
 [Watch on Youtube: Bruce Springsteen and Dion, "If I Should Fall Behind" - Sunrise, FL, 1996-12-02](https://www.youtube.com/watch?v=Pi5wsCgXMhw)
 
@@ -64,7 +64,7 @@ post_id: 62661
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/12/1996-12-02c.png.webp)
 
-**2002:** "[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)" makes its Rising Tour premiere at Philips Arena in Atlanta, and Brendan O'Brien joins Bruce and the Band for "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" and "Born to Run."<br>
+**2002:** "[Where the Bands Are](../2018-11-08_roll-of-the-dice-where-the-bands-are/post.md)" makes its Rising Tour premiere at Philips Arena in Atlanta, and Brendan O'Brien joins Bruce and the Band for "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" and "Born to Run."<br>
 
 [Watch on Youtube: Bruce Springsteen - Live In Atlanta 2002 - Full Concert (HD Remastered)](https://www.youtube.com/watch?v=DZDTf9ogKIM)
 

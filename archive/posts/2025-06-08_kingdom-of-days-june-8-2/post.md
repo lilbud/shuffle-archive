@@ -32,7 +32,7 @@ post_id: 57023
 
 [Watch Video Highlight](https://videopress.com/embed/dAro3Txt)
 
-**1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)," "[Darlington County,](../2020-09-10_roll-of-the-dice-darlington-county/post.md)" "[My Hometown,](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" all make their live debuts. Listen to this historic bar gig below.<br>
+**1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)," "[Darlington County,](../1984-01-05_roll-of-the-dice-darlington-county/post.md)" "[My Hometown,](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" and "[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)" all make their live debuts. Listen to this historic bar gig below.<br>
 
 [Watch on Youtube: Bruce Springsteen (bootleg) - Stone Pony June 6th 1984 (full album)](https://www.youtube.com/watch?v=_vH_efNE9ZU)
 
@@ -48,7 +48,7 @@ post_id: 57023
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/Bristol_Herald_Courier__Bristol_Virginia_Tennessean_Mon__Jun_10__1985_-scaled.jpg.webp)
 
-**1991:** At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)"–written for the occasion–for the very first time.<br>
+**1991:** At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)"–written for the occasion–for the very first time.<br>
 
 [Watch on Youtube: News coverage: Bruce Springsteen marries Patti Scialfa - June 9, 1991](https://www.youtube.com/watch?v=om5UcNKA5XY)
 

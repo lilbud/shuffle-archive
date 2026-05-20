@@ -48,7 +48,7 @@ That evening, Bruce plays a solo acoustic show at the Saenger Performing Arts Ce
 
 [Watch on Youtube: Bruce Springsteen Rolling Stone State of the Union](https://www.youtube.com/watch?v=XT0OxAS5wg0)
 
-**2010**: Bruce performs “[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)” at a benefit for Haiti earthquake victims, joined by Charlie Giordano, Patti Scialfa, Soozie Tyrell, Curt Ramm, Curtis King, and Cindy Mizelle.<br>
+**2010**: Bruce performs “[We Shall Overcome](../2006-01-13_roll-of-the-dice-cover-me-we-shall-overcome/post.md)” at a benefit for Haiti earthquake victims, joined by Charlie Giordano, Patti Scialfa, Soozie Tyrell, Curt Ramm, Curtis King, and Cindy Mizelle.<br>
 
 [Watch on Youtube: We Shall Overcome Bruce Springsteen Hope For Haiti January 22 2010](https://www.youtube.com/watch?v=HtC_NIBXrH4)
 

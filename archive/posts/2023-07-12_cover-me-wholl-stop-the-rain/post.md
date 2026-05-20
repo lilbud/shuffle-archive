@@ -34,7 +34,7 @@ For five minutes–before playing even a single note–Bruce and Bobby started a
 
 [Watch on Youtube: Bruce Springsteen: 0. Intros - Live in Los Angeles (August 20th, 1981)](https://www.youtube.com/watch?v=v57L3LC9pRU)
 
-Bruce had been opening his shows on that leg of the tour with "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" or "Thunder Road." Occasionally he'd mix it up with a cameo of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" or even "Born to Run."
+Bruce had been opening his shows on that leg of the tour with "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" or "Thunder Road." Occasionally he'd mix it up with a cameo of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" or even "Born to Run."
 
 This night, however, he opened with a cover that was usually deep in the main set.
 

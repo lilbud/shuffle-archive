@@ -18,7 +18,7 @@ Written and recorded during the Nebraska era, "Danger Zone" is tender, warm, and
 
 [Watch Video Highlight](https://videopress.com/embed/ovwt7ZtQ)
 
-If there's a through line to be drawn from "Danger Zone," it might be one that threads through "Child Bride" on the way to "[Working on the Highway](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)."
+If there's a through line to be drawn from "Danger Zone," it might be one that threads through "Child Bride" on the way to "[Working on the Highway](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)."
 
 Those latter two songs–one still unreleased, the other now a classic–center around a romantic relationship between their protagonist and an underage girl.
 

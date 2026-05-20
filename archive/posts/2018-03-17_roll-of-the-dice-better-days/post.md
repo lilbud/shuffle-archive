@@ -12,7 +12,7 @@ It's possible that I'm biased.
 
 After all, I'd been married a grand total of 11 days to a woman I'd started dating not even four months prior, when "Better Days" was released as the first single ahead of the upcoming *Lucky Town* album.
 
-But c'mon… how is it possible not to love this song? It just *pours* happiness and contentment and wonder into the world, and unlike his previous album ([*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md)), I knew exactly how Bruce felt when he wrote and recorded this new material.
+But c'mon… how is it possible not to love this song? It just *pours* happiness and contentment and wonder into the world, and unlike his previous album ([*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md)), I knew exactly how Bruce felt when he wrote and recorded this new material.
 
 There are those that argue that great art is born out of heartbreak and pain, not love and contentment. That may be true, but if so, here's an exception.
 

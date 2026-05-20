@@ -60,7 +60,7 @@ Also today, Little Steven releases his third solo album, *Freedom–No Compromis
 
 [Watch on Youtube: Bruce Springsteen 4th Of July Asbury Park (Sandy) Brussels 12/05/2003](https://www.youtube.com/watch?v=3UyaIHDMex0)
 
-**2006:** Bruce and the Sessions Band deliver one of the best shows of the early Seeger Sessions Tour in Milan. Check out highlights below, including the tour premiere of "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" and a beautiful "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)."<br>
+**2006:** Bruce and the Sessions Band deliver one of the best shows of the early Seeger Sessions Tour in Milan. Check out highlights below, including the tour premiere of "[Ramrod](../2022-09-10_roll-of-the-dice-ramrod/post.md)" and a beautiful "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Z15AQne0)
 

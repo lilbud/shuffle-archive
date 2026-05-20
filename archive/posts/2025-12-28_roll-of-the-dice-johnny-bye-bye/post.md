@@ -93,7 +93,7 @@ In early 1983, however, Bruce made another attempt, once again recasting the mus
 
 [Watch on Youtube: Johnny Bye-Bye (Single B-Side - 1984)](https://www.youtube.com/watch?v=VK2l94VDFkU)
 
-That version of "Johnny Bye Bye" appeared on the B-side of the single for "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)," and Bruce played it throughout the fall and winter of 1984-1985.
+That version of "Johnny Bye Bye" appeared on the B-side of the single for "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)," and Bruce played it throughout the fall and winter of 1984-1985.
 
 [Watch on Youtube: Bruce Springsteen Johnny Bye Bye Tempe 08/11/1984](https://www.youtube.com/watch?v=MQ6hQ2iHD2g)
 

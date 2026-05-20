@@ -8,9 +8,9 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2021/03/humanmagic.jpg
 post_id: 26103
 ---
-Presenting the second in our new *Cover Me Round-Up* series, spotlighting Springsteen songs that are covered too frequently to keep up with unless I spotlight them in batches. (Check out the first installment featuring covers of "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" [here](../2021-03-05_cover-me-round-up-im-on-fire/post.md).)
+Presenting the second in our new *Cover Me Round-Up* series, spotlighting Springsteen songs that are covered too frequently to keep up with unless I spotlight them in batches. (Check out the first installment featuring covers of "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" [here](../2021-03-05_cover-me-round-up-im-on-fire/post.md).)
 
-Leading off today's tour is Toronto indie-disco/neo-soul band, Human Magic. Recorded during the pandemic, their cover of "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" is urgent, funky, and features a trombone solo instead of The Big Man's sax. It works amazingly well–this is one of my favorite "Dancing in the Dark" covers in many moons.
+Leading off today's tour is Toronto indie-disco/neo-soul band, Human Magic. Recorded during the pandemic, their cover of "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" is urgent, funky, and features a trombone solo instead of The Big Man's sax. It works amazingly well–this is one of my favorite "Dancing in the Dark" covers in many moons.
 
 [Watch on Youtube: HUMAN MAGIC - CELLAR SESSIONS - Dancing In The Dark (Bruce Springsteen soul cover)(2021)](https://www.youtube.com/watch?v=6aAtOw9uLPY)
 

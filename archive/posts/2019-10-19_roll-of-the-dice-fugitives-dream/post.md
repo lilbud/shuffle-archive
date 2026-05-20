@@ -24,7 +24,7 @@ So go ahead–give it a listen, and then we'll break it down.
 
 "Fugitive's Dream" is nothing short of stunning. If not for the date stamp on the recording (early 1983), one might naturally assume that the song and the recording hail from Bruce's *Nebraska* period. It's certainly as dark, brave, and fully realized as any of the classics from Bruce's 1982 landmark album.
 
-Like "Unsatisfied Heart," we open with a classic Springsteen introduction. In "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" and "[Dead Man Walkin',](../2018-07-24_roll-of-the-dice-dead-man-walkin/post.md)" Bruce would reduce it to "I had a job, I had a girl; I had something going, Mister, in this world." Here, however, it's:
+Like "Unsatisfied Heart," we open with a classic Springsteen introduction. In "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" and "[Dead Man Walkin',](../2018-07-24_roll-of-the-dice-dead-man-walkin/post.md)" Bruce would reduce it to "I had a job, I had a girl; I had something going, Mister, in this world." Here, however, it's:
 
 > *Sir, I am a pilgrim and a stranger in this land*
 > *Once I had a home here, my salvation was at hand*

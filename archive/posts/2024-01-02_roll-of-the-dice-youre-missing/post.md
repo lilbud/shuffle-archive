@@ -16,7 +16,7 @@ There had been calls to arms, calls to caution, and calls to nationalism disguis
 
 And then, in the summer of 2002 came *The Rising*, Bruce Springsteen's first album of new original material in seven years. *The Rising* was and still is commonly considered a 9/11 album, but in truth most of the songs had been written, performed, and in some cases recorded long before.
 
-But towards the end of the album comes a remarkable three-song sequence that directly addresses the tragedy of the year before. The title track is the centerpiece, drawing us into a 9/11 first responder's final moments. "[The Rising](../2020-11-21_roll-of-the-dice-the-rising/post.md)" is bookended by two songs that focus on the loss felt by those left behind by the ones who rose on that day.
+But towards the end of the album comes a remarkable three-song sequence that directly addresses the tragedy of the year before. The title track is the centerpiece, drawing us into a 9/11 first responder's final moments. "[The Rising](../2016-01-18_roll-of-the-dice-the-rising/post.md)" is bookended by two songs that focus on the loss felt by those left behind by the ones who rose on that day.
 
 Of the two, "[Paradise](../2018-01-07_roll-of-the-dice-paradise/post.md)" is the more artistic; I shared my thoughts on it during the earliest days of my blog. But "You're Missing" is the more powerful song for its simplicity.
 
@@ -102,7 +102,7 @@ Bruce performed "You're Missing" over 100 times throughout the Rising Tour, in a
 
 So if you ask me for my favorite live performance of "You're Missing," I'll choose the one almost no one was in the room for: on October 5, 2002, Bruce quietly rehearsed in an empty studio for his *Saturday Night Live* appearance that evening.
 
-Bruce only soundchecked three songs that afternoon: "[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)," "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)," and a solo piano rendition of "You're Missing." Performed in a darkened, empty studio with no accompaniment other than Bruce's piano, nothing distracts from the pain and pathos of Bruce's lyrics.
+Bruce only soundchecked three songs that afternoon: "[Lonesome Day](../2020-04-11_roll-of-the-dice-lonesome-day/post.md)," "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)," and a solo piano rendition of "You're Missing." Performed in a darkened, empty studio with no accompaniment other than Bruce's piano, nothing distracts from the pain and pathos of Bruce's lyrics.
 
 [Watch on Youtube: Bruce Springsteen rehearsal "You're Missing" in 2002](https://www.youtube.com/watch?v=o1kgnwHGXbg)
 

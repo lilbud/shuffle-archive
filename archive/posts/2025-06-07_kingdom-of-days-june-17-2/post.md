@@ -38,7 +38,7 @@ post_id: 57108
 
 [Watch on Youtube: Bruce Springsteen Stockholm 17/06/1992 Full Concert](https://www.youtube.com/watch?v=k-WgU8bSNGc)
 
-**1999:** "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" makes its Reunion Tour debut when Bruce and the E Street Band make a Reunion Tour stop at Weserstadion in Bremen, Germany. During the pre-show soundcheck, Bruce plays the first known performance of "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)."<br>
+**1999:** "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" makes its Reunion Tour debut when Bruce and the E Street Band make a Reunion Tour stop at Weserstadion in Bremen, Germany. During the pre-show soundcheck, Bruce plays the first known performance of "[Waitin' on a Sunny Day](../2019-09-27_roll-of-the-dice-waitin-on-a-sunny-day/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Waitin' on a Sunny Day Bremen, Germany soundcheck performance 17/06/1999](https://www.youtube.com/watch?v=fdK4HJpdQ10)
 
@@ -60,7 +60,7 @@ post_id: 57108
 
 [Watch Video Highlight](https://videopress.com/embed/5vc82MI0)
 
-**2006:** Bruce and the Sessions Band make a tour stop at the DTE Energy Music Theater in Clarkston, Michigan. The performance of "[Bring 'Em Home](../2021-06-23_rotd-cover-me-bring-em-home/post.md)" on the *American Land* edition of [*We Shall Overcome*](../2022-07-17_album-companion-we-shall-overcome/post.md) was recorded at this show, as was the official video for "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
+**2006:** Bruce and the Sessions Band make a tour stop at the DTE Energy Music Theater in Clarkston, Michigan. The performance of "[Bring 'Em Home](../2006-01-18_rotd-cover-me-bring-em-home/post.md)" on the *American Land* edition of [*We Shall Overcome*](../2022-07-17_album-companion-we-shall-overcome/post.md) was recorded at this show, as was the official video for "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Pay Me My Money Down (Tour Version Video)](https://www.youtube.com/watch?v=BYF8IntUFZI)
 
@@ -72,7 +72,7 @@ post_id: 57108
 
 [Watch on Youtube: Bruce Springsteen Spanish Eyes 2012 06 17 Madrid, Spain CamMix HD 720p](https://www.youtube.com/watch?v=76aUzAhPQ1I)
 
-**2016:** Bruce opens his River show in Munich with the tour premiere of the Darkness Tour arrangement of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" and closes with a solo acoustic guitar performance of "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)." This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14115/Bruce-Springsteen-mp3-flac-download-6-17-2016-Olympic-Stadium-Munich-DE.html).<br>
+**2016:** Bruce opens his River show in Munich with the tour premiere of the Darkness Tour arrangement of "[Prove It All Night](../2020-10-24_roll-of-the-dice-prove-it-all-night/post.md)" and closes with a solo acoustic guitar performance of "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)." This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14115/Bruce-Springsteen-mp3-flac-download-6-17-2016-Olympic-Stadium-Munich-DE.html).<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Prove it all night [Münich, ALE - 17.JUN.2016]](https://www.youtube.com/watch?v=TKtwd2fedYQ)
 
@@ -84,6 +84,6 @@ post_id: 57108
 
 **2023:** On his night off between shows in Birmingham, Bruce attends Steve Earle's solo acoustic show.<br>
 
-**2024:** Bruce and the E Street Band wrap up their three-night stand in Madrid, tour premiering "[Cover Me.](../2021-01-13_roll-of-the-dice-cover-me/post.md)"<br>
+**2024:** Bruce and the E Street Band wrap up their three-night stand in Madrid, tour premiering "[Cover Me.](../1984-01-04_roll-of-the-dice-cover-me/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Cover Me - Madrid 17/06/2024](https://www.youtube.com/watch?v=GNYtVhlI3f8)

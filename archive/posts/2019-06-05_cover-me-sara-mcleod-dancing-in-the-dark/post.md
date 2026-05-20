@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/06/Sarah-2BMcLeod.jpg
 post_id: 10185
 ---
-Wow, do I love this version of [Bruce's greatest hit](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md).
+Wow, do I love this version of [Bruce's greatest hit](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md).
 
 It's both different and great–and arguably an even better arrangement than Bruce's original track.
 

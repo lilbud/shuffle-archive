@@ -48,7 +48,7 @@ post_id: 62387
 
 [Watch on Youtube: Bruce Springsteen - Live in Barcelona](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89)
 
-**2006:** Bruce and the Sessions Band play the second of a three-night stand at Dublin's Point Theater, where "Highway Patrolman" makes its tour premiere, and "[Shenandoah](../2022-03-22_cover-me-shenandoah/post.md)" makes its world debut. The show is recorded and filmed, and eight songs will be released on the *Live in Dublin* CD and video release. "[Bobby Jean](../2018-06-19_roll-of-the-dice-bobby-jean/post.md)" and "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" from this show will be released in a special *Bruce Springsteen With The Sessions Band PBS Exclusive* EP for PBS pledge donors.<br>
+**2006:** Bruce and the Sessions Band play the second of a three-night stand at Dublin's Point Theater, where "Highway Patrolman" makes its tour premiere, and "[Shenandoah](../2006-01-11_cover-me-shenandoah/post.md)" makes its world debut. The show is recorded and filmed, and eight songs will be released on the *Live in Dublin* CD and video release. "[Bobby Jean](../1984-01-10_roll-of-the-dice-bobby-jean/post.md)" and "[Johnny 99](../2020-07-20_roll-of-the-dice-johnny-99/post.md)" from this show will be released in a special *Bruce Springsteen With The Sessions Band PBS Exclusive* EP for PBS pledge donors.<br>
 
 [Watch on Youtube: Bruce Springsteen with the Sessions Band - Eyes on the Prize (Live In Dublin)](https://www.youtube.com/watch?v=qd6J2QF3fJY)
 
@@ -98,9 +98,9 @@ post_id: 62387
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
-**2019:** Bruce assembles the E Street Band at his home studio in Colts Neck for the first of a five-day recording session for what will become [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md).<br>
+**2019:** Bruce assembles the E Street Band at his home studio in Colts Neck for the first of a five-day recording session for what will become [*Letter to You*](../2017-01-01_album-companion-letter-to-you/post.md).<br>
 
-**2020:** Stand Up for Heroes goes virtual due to the great pandemic, with Bruce performing as he has for every other installment of the annual benefit event. Patti joins him this time for performances of "[House of a Thousand Guitars](../2021-04-23_roll-of-the-dice-house-of-a-thousand-guitars/post.md)," and "[I'll See You in My Dreams,](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" and Bruce plays a solo acoustic "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" as well.<br>
+**2020:** Stand Up for Heroes goes virtual due to the great pandemic, with Bruce performing as he has for every other installment of the annual benefit event. Patti joins him this time for performances of "[House of a Thousand Guitars](../2016-01-15_roll-of-the-dice-house-of-a-thousand-guitars/post.md)," and "[I'll See You in My Dreams,](../2021-11-26_roll-of-the-dice-ill-see-you-in-my-dreams/post.md)" and Bruce plays a solo acoustic "[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)" as well.<br>
 
 [Watch on Youtube: Bruce Springsteen - Stand Up For Heroes 2020 (with Jon Stewart introductions)](https://www.youtube.com/watch?v=NqT9L2aT9XE)
 

@@ -14,7 +14,7 @@ post_id: 61184
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/10/1976-1022.jpg.webp)
 
-**1984:** At their second of two nights at the Oakland Coliseum on the Born in the U.S.A. Tour, Bruce and the band tour premiere "Stolen Car" and play their very first performance of "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)." Bruce brings his sister Pam on stage for "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
+**1984:** At their second of two nights at the Oakland Coliseum on the Born in the U.S.A. Tour, Bruce and the band tour premiere "Stolen Car" and play their very first performance of "[Shut Out the Light](../2020-10-14_roll-of-the-dice-shut-out-the-light/post.md)." Bruce brings his sister Pam on stage for "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NN0O68Cw)
 
@@ -42,7 +42,7 @@ post_id: 61184
 
 [Watch on Youtube: Bruce Springsteen Rotterdam 22/10/2002 Full Concert](https://www.youtube.com/watch?v=0sj9eO-6KDs)
 
-**2006:** When the Seeger Sessions Tour comes to Granada, Bruce opens the encores with a tour debut, an acoustic "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)."<br>
+**2006:** When the Seeger Sessions Tour comes to Granada, Bruce opens the encores with a tour debut, an acoustic "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/buHbTTAH)
 

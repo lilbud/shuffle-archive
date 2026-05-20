@@ -10,7 +10,7 @@ post_id: 15272
 ---
 It was one of the very first songs Bruce recorded for *[Darkness on the Edge of Town](../2022-07-05_album-companion-darkness-on-the-edge-of-town/post.md)*, and it was the last song to be cut.
 
-At one point it closed the album, at another it kicked off Side Two. Early on, it was the second track on Side One, inheriting and building the out-of-the-gate momentum from "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)."
+At one point it closed the album, at another it kicked off Side Two. Early on, it was the second track on Side One, inheriting and building the out-of-the-gate momentum from "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)."
 
 It should have been a hit, and judging by fan reaction when Bruce played it in concert (he actually wrote it and performed it several times during his 1977 "Lawsuit Tour") it probably *would* have been a hit had Bruce released it in 1978 instead of 1998.
 

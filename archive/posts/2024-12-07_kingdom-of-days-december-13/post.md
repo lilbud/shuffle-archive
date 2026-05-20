@@ -34,7 +34,7 @@ post_id: 55290
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/12/The_Commercial_Appeal_1984_12_14_26.jpg.webp)
 
-**1987:** Bruce appears at the All Star Benefit for the Homeless Children at Madison Square Garden. Like the name suggests, the talent line-up is stellar, making for some amazing moments: Bruce, Paul Simon, James Taylor, Billy Joel, Ruben Blades, and Lou Reed all back Dion DiMucci for "[A Teenager in Love](../2020-08-16_matr-dion-bruce-springsteen-paul-simon-lou-reed-james-taylor-billy-joel-and-reuben-blades-a-teenager-in-love/post.md);" Bruce plays a solo acoustic "Born to Run;" Paul Shaffer's World's Most Dangerous Band tackles "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" with Bruce, Paul, and Billy. Check out highlights and news coverage from this amazing show below.<br>
+**1987:** Bruce appears at the All Star Benefit for the Homeless Children at Madison Square Garden. Like the name suggests, the talent line-up is stellar, making for some amazing moments: Bruce, Paul Simon, James Taylor, Billy Joel, Ruben Blades, and Lou Reed all back Dion DiMucci for "[A Teenager in Love](../2020-08-16_matr-dion-bruce-springsteen-paul-simon-lou-reed-james-taylor-billy-joel-and-reuben-blades-a-teenager-in-love/post.md);" Bruce plays a solo acoustic "Born to Run;" Paul Shaffer's World's Most Dangerous Band tackles "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" with Bruce, Paul, and Billy. Check out highlights and news coverage from this amazing show below.<br>
 
 [Watch on Youtube: Teenager in love - Dion - homeless benefit concert, 13-12-87](https://www.youtube.com/watch?v=9hJOwe0vH_s)
 

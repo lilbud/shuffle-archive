@@ -62,7 +62,7 @@ post_id: 57795
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/07/2011-0722.jpg.webp)
 
-**2012:** On the one year anniversary of the Norway attacks, Bruce and Steve play "[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)" at the memorial concert for the victims in Oslo.<br>
+**2012:** On the one year anniversary of the Norway attacks, Bruce and Steve play "[We Shall Overcome](../2006-01-13_roll-of-the-dice-cover-me-we-shall-overcome/post.md)" at the memorial concert for the victims in Oslo.<br>
 
 [Watch on Youtube: July 22- 2012 Bruce Springsteen NORWAY Memorial Concert For Victims on Utøya and Oslo](https://www.youtube.com/watch?v=LTrgNSlCkKY)
 

@@ -52,7 +52,7 @@ post_id: 55287
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2023/12/Asbury_Park_Press_Tue__Dec_12__2006_.jpg.webp)
 
-**2007:** The Magic Tour continues its Scandinavian leg, stopping at the Globe Arena in Stockholm for a night, where Clarence's son Christopher joins the band for "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
+**2007:** The Magic Tour continues its Scandinavian leg, stopping at the Globe Arena in Stockholm for a night, where Clarence's son Christopher joins the band for "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - I'll Work For Your Love - Live 2007](https://www.youtube.com/watch?v=pyLicU8OX5k)
 

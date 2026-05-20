@@ -46,7 +46,7 @@ Bruce underscores this by ending the song with an unresolved verse, based on aut
 > *Poison snake bites you, you're poison too"*<br>
 > *At night I can feel that poison runnin' 'round my veins*<br>
 
-That central line–"poison snake bites you, you're poison too"–also appears in "[The Big Muddy](../2019-01-29_roll-of-the-dice-the-big-muddy/post.md)" (see that entry for more on the *Paris Trout* reference); its migration from outtake to album suggests that Bruce was still fascinated by the notion of violence begetting violence, of the sins of the father being passed on to the son. (He'd obviously been exploring that theme for many years, most overtly in "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md).")
+That central line–"poison snake bites you, you're poison too"–also appears in "[The Big Muddy](../1992-02-07_roll-of-the-dice-the-big-muddy/post.md)" (see that entry for more on the *Paris Trout* reference); its migration from outtake to album suggests that Bruce was still fascinated by the notion of violence begetting violence, of the sins of the father being passed on to the son. (He'd obviously been exploring that theme for many years, most overtly in "[Adam Raised a Cain](../2022-07-03_roll-of-the-dice-adam-raised-a-cain/post.md).")
 
 Interestingly, an early lyrics sheet for "Gave It a Name" implies a more explicit father/son parallel at the expense of biblical accuracy. Instead of "Cain slew Abel ‘neath the black rain," Bruce's original line was "Cain slew Adam all the same." Perhaps Bruce realized that the alternative history would distract from the rest of the song; regardless, he reverted to the traditional version before finalizing the song.
 

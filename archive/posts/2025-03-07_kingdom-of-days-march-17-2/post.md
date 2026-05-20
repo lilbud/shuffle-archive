@@ -28,7 +28,7 @@ post_id: 56189
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/1981-0318.jpg.webp)
 
-**1988:** Bruce and the E Street Band play their second of two nights at the Rosemont Horizon near Chicago, where they tour premiere "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" and "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)."<br>
+**1988:** Bruce and the E Street Band play their second of two nights at the Rosemont Horizon near Chicago, where they tour premiere "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" and "[Backstreets](../2022-05-14_roll-of-the-dice-backstreets/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/iEJOIMJg)
 
@@ -42,7 +42,7 @@ post_id: 56189
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/03/Austin_American_Statesman_Thu__Mar_21__1996_-scaled.jpg.webp)
 
-**1998:** *Where Have All the Flowers Gone*, a Pete Seeger tribute album, is released, featuring Bruce's cover of "[We Shall Overcome](../2018-08-15_roll-of-the-dice-cover-me-we-shall-overcome/post.md)," the very first Seeger Session recording to see the light of day, eight years before the release of the album for which it will serve as the title track.<br>
+**1998:** *Where Have All the Flowers Gone*, a Pete Seeger tribute album, is released, featuring Bruce's cover of "[We Shall Overcome](../2006-01-13_roll-of-the-dice-cover-me-we-shall-overcome/post.md)," the very first Seeger Session recording to see the light of day, eight years before the release of the album for which it will serve as the title track.<br>
 
 [Watch on Youtube: Bruce Springsteen - "We Shall Overcome" (original 1998 version)](https://www.youtube.com/watch?v=026oa4oMG5k)
 
@@ -60,7 +60,7 @@ post_id: 56189
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/03/2012-03-17-1.jpg.webp)
 
-**2016:** At Night Two (of three) at the Los Angeles Sports Arena, Bruce tour premieres "[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md)" and "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)" for St. Patrick's Day. For highlights, see my [*Where the Band Was* report](../2018-03-17_where-the-band-was-los-angeles-march-17-2016/post.md) for this show.<br>
+**2016:** At Night Two (of three) at the Los Angeles Sports Arena, Bruce tour premieres "[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md)" and "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)" for St. Patrick's Day. For highlights, see my [*Where the Band Was* report](../2018-03-17_where-the-band-was-los-angeles-march-17-2016/post.md) for this show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/vlByZSBh)
 

@@ -46,7 +46,7 @@ That evening, Bruce and the (still unnamed) E Street Band play two shows at Libe
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1999-03-08.jpg.webp)
 
-**2008:** Bruce drops by a benefit for the Ranney School at the Eagle Oaks Country Club in Farmingdale, New Jersey and plays "[Glory Days](../2024-06-04_roll-of-the-dice-glory-days/post.md)" with Tim McLoone and the Shirleys. (photo credit: backstreets.com)<br>
+**2008:** Bruce drops by a benefit for the Ranney School at the Eagle Oaks Country Club in Farmingdale, New Jersey and plays "[Glory Days](../1984-01-12_roll-of-the-dice-glory-days/post.md)" with Tim McLoone and the Shirleys. (photo credit: backstreets.com)<br>
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/03/2008-0308.jpg.webp)
 

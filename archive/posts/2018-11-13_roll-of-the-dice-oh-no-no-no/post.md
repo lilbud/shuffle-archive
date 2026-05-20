@@ -49,7 +49,7 @@ At this point, it almost sounds like Bruce is setting up a duet, perhaps a novel
 
 Bruce almost certainly would have developed the song further–we don't know if he ever got around to it (this lyric sheet is all we have), but the asymmetry of the verses and the single chorus suggests that more back and forth was originally planned (and given the time period, most likely a guitar jam to underscore the emotional angst).
 
-Still, given what we have here, even if Bruce had finished and recorded the song, it's doubtful we'd consider it an early gem. As far as relationship songs go, it's not exactly [*Tunnel of Love*](../2022-08-08_album-companion-tunnel-of-love/post.md) material.
+Still, given what we have here, even if Bruce had finished and recorded the song, it's doubtful we'd consider it an early gem. As far as relationship songs go, it's not exactly [*Tunnel of Love*](../1987-01-01_album-companion-tunnel-of-love/post.md) material.
 
 **Oh No No No**<br>
 **Never recorded**

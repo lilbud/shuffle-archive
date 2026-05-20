@@ -56,7 +56,7 @@ post_id: 56783
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/05/Evening_Standard_Fri__May_21__1999_-scaled.jpg.webp)
 
-**2003:** Elliott Murphy guest-stars on “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)” and “Born to Run” when the Rising Tour makes a stop at the Estadio de la Comunidad in Madrid.<br>
+**2003:** Elliott Murphy guest-stars on “[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)” and “Born to Run” when the Rising Tour makes a stop at the Estadio de la Comunidad in Madrid.<br>
 
 [Watch on Youtube: Bruce Springsteen La Peineta madrid 2003 lamandragora](https://www.youtube.com/watch?v=NSQGuU01YCc)
 
@@ -74,7 +74,7 @@ post_id: 56783
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/2005-05-19.jpg.webp)
 
-**2009:** The first and only E Street Band performance of “Like a Rolling Stone” debuts at the Mellon Arena in Pittsburgh. Plus: a rare outing for “Jackson Cage;” Joe and Johnny Grushecky join the band for two final encores of “[Glory Day](../2024-06-04_roll-of-the-dice-glory-days/post.md)s” and “Mony Mony.”<br>
+**2009:** The first and only E Street Band performance of “Like a Rolling Stone” debuts at the Mellon Arena in Pittsburgh. Plus: a rare outing for “Jackson Cage;” Joe and Johnny Grushecky join the band for two final encores of “[Glory Day](../1984-01-12_roll-of-the-dice-glory-days/post.md)s” and “Mony Mony.”<br>
 
 [Watch on Youtube: Bruce Springsteen - Jackson Cage (2009)](https://www.youtube.com/watch?v=YRvmZpc6P34)
 

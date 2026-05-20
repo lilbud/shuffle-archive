@@ -36,7 +36,7 @@ post_id: 56190
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/1977-03-18.jpg.webp)
 
-**1999:** Bruce and the reunited E Street Band play their first public show at Convention Hall in Asbury Park. The show is a warm-up for the upcoming tour and a benefit for local Asbury Park community organizations. "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)" and "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" both make their debuts tonight; "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" makes its E Street Band debut; "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" is played for the first time in 15 years; and "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" and "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" get new arrangements.<br>
+**1999:** Bruce and the reunited E Street Band play their first public show at Convention Hall in Asbury Park. The show is a warm-up for the upcoming tour and a benefit for local Asbury Park community organizations. "[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md)" and "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" both make their debuts tonight; "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" makes its E Street Band debut; "[Factory](../2018-10-31_roll-of-the-dice-factory/post.md)" is played for the first time in 15 years; and "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" and "[Youngstown](../2023-05-01_roll-of-the-dice-youngstown/post.md)" get new arrangements.<br>
 
 News coverage from the day:
 
@@ -62,7 +62,7 @@ News coverage from the day:
 
 [Watch Video Highlight](https://videopress.com/embed/lxNzRjRj)
 
-**2011:** Bruce joins Dropkick Murphys on stage at the House of Blues in Boston for "[Peg O' My Heart](../2020-02-03_matr-dropkick-murphys-and-bruce-springsteen-peg-o-my-heart/post.md)," "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," and "[I'm Shipping Up to Boston](../2018-12-16_matr-dropkick-murphys-and-bruce-springsteen-im-shipping-up-to-boston/post.md)."<br>
+**2011:** Bruce joins Dropkick Murphys on stage at the House of Blues in Boston for "[Peg O' My Heart](../2020-02-03_matr-dropkick-murphys-and-bruce-springsteen-peg-o-my-heart/post.md)," "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)," and "[I'm Shipping Up to Boston](../2018-12-16_matr-dropkick-murphys-and-bruce-springsteen-im-shipping-up-to-boston/post.md)."<br>
 
 [Watch on Youtube: Peg O' My Heart - Dropkick Murphys and The Boss (HiRes)](https://www.youtube.com/watch?v=rGvZGCh16yA)
 

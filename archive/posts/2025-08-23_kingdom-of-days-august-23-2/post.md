@@ -62,7 +62,7 @@ post_id: 59419
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2008-08-23.png.webp)
 
-**2009:** Back-to-back tour premieres at Night Two in Mansfield on the Working on a Dream Tour: first, the return of "[Independence Day,](../2022-03-14_roll-of-the-dice-independence-day/post.md)" followed by an instrumental "[(Love is Like a) Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)" during the sign collection. Jay Weinberg takes the drums from his dad for the second half of the show, and Ken Casey joins the band for "[American Land.](../2020-01-10_roll-of-the-dice-american-land/post.md)"<br>
+**2009:** Back-to-back tour premieres at Night Two in Mansfield on the Working on a Dream Tour: first, the return of "[Independence Day,](../2022-03-14_roll-of-the-dice-independence-day/post.md)" followed by an instrumental "[(Love is Like a) Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)" during the sign collection. Jay Weinberg takes the drums from his dad for the second half of the show, and Ken Casey joins the band for "[American Land.](../2016-01-22_roll-of-the-dice-american-land/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen "Independence Day" Mansfield 8-23-09](https://www.youtube.com/watch?v=vJTpQPqjBU4)
 

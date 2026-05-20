@@ -12,7 +12,7 @@ Longtime readers know that while I love Bruce's music from pretty much any era, 
 
 The Bruce Springsteen Band consisted of future E Street Band members (Bruce, Steve, Garry, Vini Lopez, and Dave Sancious) plus horns and backing vocalists. Bluesy and brassy, the band presaged in a way the big band incarnation of the E Street Band still fifty years(!) down the road.
 
-Several songs from this era have surfaced on bootlegs; check out "[Dance Dance Dance](../2018-06-22_roll-of-the-dice-dance-dance-dance/post.md)," "[It's Time to Go Home](../2018-05-31_roll-of-the-dice-its-time-to-go-home/post.md)," and "[When You Dance](../2018-08-12_roll-of-the-dice-when-you-dance/post.md)" for some great examples.
+Several songs from this era have surfaced on bootlegs; check out "[Dance Dance Dance](../1972-01-05_roll-of-the-dice-dance-dance-dance/post.md)," "[It's Time to Go Home](../1972-01-17_roll-of-the-dice-its-time-to-go-home/post.md)," and "[When You Dance](../1972-01-25_roll-of-the-dice-when-you-dance/post.md)" for some great examples.
 
 But many still haven't, including "Sometimes at Night," known to have been played by The Bruce Springsteen Band on at least one summer night in 1971, thanks to the surviving setlist below.
 

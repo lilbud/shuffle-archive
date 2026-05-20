@@ -12,7 +12,7 @@ If I had less restraint, I'd probably feature a cover from the outstanding *Play
 
 (See my previous entry on Jeniferever's [stunning cover](../2019-11-03_cover-me-jeniferever-one-step-up/post.md) of "[One Step Up](../1987-01-10_roll-of-the-dice-one-step-up/post.md/)" from that compilation.)
 
-Today, the spotlight is on one of my favorites: a gorgeous cello and double bass-led arrangement of "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" by Vatican Cellars.
+Today, the spotlight is on one of my favorites: a gorgeous cello and double bass-led arrangement of "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" by Vatican Cellars.
 
 [Watch Video](https://bandcamp.com/EmbeddedPlayer/album=136685173/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/track=3618468140/transparent=true/)
 

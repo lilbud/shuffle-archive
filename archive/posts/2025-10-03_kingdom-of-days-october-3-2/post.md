@@ -76,7 +76,7 @@ post_id: 59752
 
 [Watch on Youtube: New York City Serenade Bruce Springsteen 10/3/2003 NYC](https://www.youtube.com/watch?v=l8eEFuw_SMU)
 
-**2004:** The Vote for Change Tour moves on to the next swing state–Michigan–with a show at Cobo Arena. "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" and "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" replace "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" in the set, and "Travelin' Band" makes its debut in the encores. The Dixie Chicks are in town for their VfC show, too, and they make it over to the Cobo in time to join Bruce and the assembled artists for the final encore. For more highlights from this show, see my [Where the Band Was report](../2018-10-03_where-the-band-was-detroit-october-3-2004/post.md).<br>
+**2004:** The Vote for Change Tour moves on to the next swing state–Michigan–with a show at Cobo Arena. "[The Ties That Bind](../2018-03-09_roll-of-the-dice-the-ties-that-bind/post.md)" and "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" replace "[The River](../2021-03-04_roll-of-the-dice-the-river/post.md)" in the set, and "Travelin' Band" makes its debut in the encores. The Dixie Chicks are in town for their VfC show, too, and they make it over to the Cobo in time to join Bruce and the assembled artists for the final encore. For more highlights from this show, see my [Where the Band Was report](../2018-10-03_where-the-band-was-detroit-october-3-2004/post.md).<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1wwST4YS)
 
@@ -84,7 +84,7 @@ post_id: 59752
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/2004-10-03b.jpg.webp)
 
-**2005:** While driving his kids to school, Bruce notices on the radio that his favorite local public station is holding a membership drive. The station makes a plea for community support, so Bruce decides to provide it, stopping by the station with his guitar and spending over thirty minutes on-air talking with their music director and playing two songs. One of them, ["If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)," will be released on a promotional CD for pledging members.<br>
+**2005:** While driving his kids to school, Bruce notices on the radio that his favorite local public station is holding a membership drive. The station makes a plea for community support, so Bruce decides to provide it, stopping by the station with his guitar and spending over thirty minutes on-air talking with their music director and playing two songs. One of them, ["If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)," will be released on a promotional CD for pledging members.<br>
 
 [Watch on Youtube: Bruce Springsteen - "If I Should Fall Behind" WBJB-FM Radio Appearance, 2005-10-03](https://www.youtube.com/watch?v=RWCr-vhU6V4)
 
@@ -98,7 +98,7 @@ post_id: 59752
 
 [Watch on Youtube: Bruce Springsteen with the Sessions Band - This Little Light of Mine (Live In Dublin)](https://www.youtube.com/watch?v=R0qAYq1GVec)
 
-**2009:** Night Three of five at Giants Stadium on the Working on a Dream Tour features the entire *Born in the U.S.A.* album along with the tour premiere of "Last to Die" and a by-request "[Jersey Girl.](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" Jeremy Chatzky joins the band and Curt Ramm for "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)," and the set list continues to benefit from the presence of Curt and his trumpet.<br>
+**2009:** Night Three of five at Giants Stadium on the Working on a Dream Tour features the entire *Born in the U.S.A.* album along with the tour premiere of "Last to Die" and a by-request "[Jersey Girl.](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" Jeremy Chatzky joins the band and Curt Ramm for "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)," and the set list continues to benefit from the presence of Curt and his trumpet.<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Long Walk Home - 10/03/09 - Giants Stadium](https://www.youtube.com/watch?v=UwyN4OLL0mk)
 

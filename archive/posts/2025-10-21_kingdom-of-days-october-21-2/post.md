@@ -52,7 +52,7 @@ post_id: 61183
 
 [Watch on Youtube: Light of Day (Live)](https://www.youtube.com/watch?v=B5nlBl0H6YM)
 
-**1996:** Bruce plays a solo acoustic show at Arizona State University in Tempe, where local resident Nils Lofgren makes a guest appearance for "[No Surrender.](../2021-11-18_roll-of-the-dice-no-surrender/post.md)"<br>
+**1996:** Bruce plays a solo acoustic show at Arizona State University in Tempe, where local resident Nils Lofgren makes a guest appearance for "[No Surrender.](../1984-01-09_roll-of-the-dice-no-surrender/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen & Nils Lofgren, "No Surrender" Tempe, 1996-10-21](https://www.youtube.com/watch?v=ZW2CbgB4iJQ)
 

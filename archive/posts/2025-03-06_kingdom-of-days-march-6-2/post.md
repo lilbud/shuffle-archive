@@ -62,7 +62,7 @@ post_id: 56097
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/03/2012-03-05b.png.webp)
 
-**2016:** The River Tour (2016 edition) stops at the Chaifetz Arena in St. Louis, where lucky (and talented) fan Tom England gets to join the band on-stage for "[Working on the Highway.](../2018-01-11_roll-of-the-dice-working-on-the-highway/post.md)"<br>
+**2016:** The River Tour (2016 edition) stops at the Chaifetz Arena in St. Louis, where lucky (and talented) fan Tom England gets to join the band on-stage for "[Working on the Highway.](../1984-01-06_roll-of-the-dice-working-on-the-highway/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen - Stolen Car- St. Louis 03/06/2016](https://www.youtube.com/watch?v=GZswWtjvWGQ)
 

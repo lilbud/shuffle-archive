@@ -32,7 +32,7 @@ post_id: 57021
 
 [Watch on Youtube: Bruce Springsteen - "None But the Brave" original outtake](https://www.youtube.com/watch?v=syZB1xaNo0s)
 
-**1984:** Bruce shoots a video for "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" with director Jeff Stein. It does not go well. Watch the abandoned video along with Bruce's rehearsal footage below.<br>
+**1984:** Bruce shoots a video for "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" with director Jeff Stein. It does not go well. Watch the abandoned video along with Bruce's rehearsal footage below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/eRUVm7qp)
 
@@ -40,7 +40,7 @@ post_id: 57021
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/05/1984-06-06.jpg.webp)
 
-**2005:** At his solo acoustic show in Rome, Bruce tour premieres "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" and "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)."<br>
+**2005:** At his solo acoustic show in Rome, Bruce tour premieres "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)" and "[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - I'm on Fire (live in Rome 2005)](https://www.youtube.com/watch?v=W2WAlyG4YCk)
 
@@ -52,7 +52,7 @@ post_id: 57021
 
 [Watch on Youtube: Rome 06/06/2005](https://www.youtube.com/playlist?list=PLJTyL9twk3zDWMIwV0bAuTa5JwEY-txNz)
 
-**2006:** At the Sleep Train Pavilion in Concord, California, Joan Baez joins Bruce and the Sessions Band for "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
+**2006:** At the Sleep Train Pavilion in Concord, California, Joan Baez joins Bruce and the Sessions Band for "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Bring 'Em Home (Live Tour Video)](https://www.youtube.com/watch?v=Mv4vW1FGnCQ)
 

@@ -12,7 +12,7 @@ Twin sisters Ellie and Louise Macnamara are lifelong Bruce Springsteen fans, and
 
 They’ve been singing together in their native Ireland as Heathers (yes, that’s an homage to the film) since they were seventeen. They’re thirty now, and in interviews they almost always cite Bruce as one of their key musical influences while growing up.
 
-In concert, their sets often feature a terrific cover of Bruce’s “[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md),” and fortunately there are several great documents of it to chose from–so many, in fact, that I can’t choose just one.
+In concert, their sets often feature a terrific cover of Bruce’s “[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md),” and fortunately there are several great documents of it to chose from–so many, in fact, that I can’t choose just one.
 
 So here’s a pairing, first from their Windmill Sessions appearance in January 2016…
 
@@ -24,7 +24,7 @@ So here’s a pairing, first from their Windmill Sessions appearance in January 
 
 Four years later, they’d get to perform it for Bruce himself… sort of.
 
-Just prior to the release of [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md), Bruce gave a video interview to Ryan Tubridy on *The Late Late Show*.
+Just prior to the release of [*Letter to You*](../2017-01-01_album-companion-letter-to-you/post.md), Bruce gave a video interview to Ryan Tubridy on *The Late Late Show*.
 
 [Watch on Youtube: Legendary Bruce Springsteen chats about Shane MacGowan | The Late Late Show | RTÉ One](https://www.youtube.com/watch?v=rOlAxENYtpg)
 

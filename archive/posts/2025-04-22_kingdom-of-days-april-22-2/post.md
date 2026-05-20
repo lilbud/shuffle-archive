@@ -56,7 +56,7 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 [Watch on Youtube: Bruce Springsteen - Evening Magazine (Pittsburgh), April 22, 1988](https://www.youtube.com/watch?v=DzQHe4A1mkk)
 
-**1996:** Thanks to the request of a fan who snuck his way into the soundcheck, Bruce plays "[The Angel](../2020-09-26_roll-of-the-dice-the-angel/post.md)" for the first time ever (and the last time for 13 years) at his solo acoustic show in Royal Albert Hall in London.<br>
+**1996:** Thanks to the request of a fan who snuck his way into the soundcheck, Bruce plays "[The Angel](../2011-01-06_roll-of-the-dice-the-angel/post.md)" for the first time ever (and the last time for 13 years) at his solo acoustic show in Royal Albert Hall in London.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/hWsdZ1Y5)
 
@@ -92,7 +92,7 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/04/2008-04-22a.jpg.webp)
 
-**2009:** Night Two in Boston brings the premiere of "[I Wanna Be Sedated](../2019-03-15_cover-me-i-wanna-be-sedated/post.md)" (by request) and a guest-spot/marriage proposal by Tim Brennan of Dropkick Murphys. Making their tour premiere: "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)," "So Young and in Love," and "[Seven Nights to Rock](../2021-04-22_cover-me-seven-nights-to-rock/post.md)."<br>
+**2009:** Night Two in Boston brings the premiere of "[I Wanna Be Sedated](../2019-03-15_cover-me-i-wanna-be-sedated/post.md)" (by request) and a guest-spot/marriage proposal by Tim Brennan of Dropkick Murphys. Making their tour premiere: "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)," "So Young and in Love," and "[Seven Nights to Rock](../2021-04-22_cover-me-seven-nights-to-rock/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - I Wanna Be sedated (Boston 2009)](https://www.youtube.com/watch?v=kCvJo1-Z3B8)
 

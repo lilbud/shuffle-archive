@@ -33,7 +33,7 @@ As for the original songwriters, Barry Gibb had this to say after witnessing the
 
 Many fans (this one included) consider "Stayin' Alive" to be one of Bruce's best-ever covers, a highlight on a tour full of surprise, inventive covers.
 
-Three months later, Gibb would return the favor. Check out his [cover](../2019-07-05_cover-me-barry-gibb-im-on-fire/post.md) of Bruce's "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)".
+Three months later, Gibb would return the favor. Check out his [cover](../2019-07-05_cover-me-barry-gibb-im-on-fire/post.md) of Bruce's "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)".
 
 **Stayin' Alive**<br>
 **First performed:** February 26, 2014 (Brisbane, Australia)<br>

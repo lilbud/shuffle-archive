@@ -14,7 +14,7 @@ How many *Born in the U.S.A.* songs charted as singles?
 
 …stump your questioner by answering eight instead of seven.
 
-Because in addition to "Dancing in the Dar[k](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)," "Cover Me," "Born in the U.S.A.," "I'm on Fire," "Glory Days," "I'm Goin' Down," and "My Hometown," one other song made a brief appearance on the Billboard charts.
+Because in addition to "Dancing in the Dar[k](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)," "Cover Me," "Born in the U.S.A.," "I'm on Fire," "Glory Days," "I'm Goin' Down," and "My Hometown," one other song made a brief appearance on the Billboard charts.
 
 Except it was the Country chart rather than the Hot 100, and it didn't chart until 1986.
 

@@ -24,7 +24,7 @@ Not because I'm lazy, and not because I want to embarrass myself with how ridicu
 
 > *Bruce's performance was relentlessly intense throughout the entire set, moreso than I've ever seen, and that apparently was the problem. This was the closing night of the tour, but it was also the second show in two days (which he almost never does anymore), and the fourth show in six days… and by the end of the main set, he was visibly exhausted.*<br>
 
-> *When he skipped the first wild-card encore number that precedes "Born to Run," I chalked it up to saving room for some surprises at the end. And a surprise we got: After the first two of the standard three-pack ("[Dancing in the Dark,](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" "[Tenth Avenue Freeze-out,](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" and "[Shout](../2019-09-12_cover-me-shout/post.md)") that has formed the centerpiece of every encore set this year, Bruce called an audible for "Jungleland." It was stunning, but he barely made it through.*<br>
+> *When he skipped the first wild-card encore number that precedes "Born to Run," I chalked it up to saving room for some surprises at the end. And a surprise we got: After the first two of the standard three-pack ("[Dancing in the Dark,](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" "[Tenth Avenue Freeze-out,](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)" and "[Shout](../2019-09-12_cover-me-shout/post.md)") that has formed the centerpiece of every encore set this year, Bruce called an audible for "Jungleland." It was stunning, but he barely made it through.*<br>
 
 [Watch Video Highlight](https://videopress.com/embed/6EmRzj4L)
 

@@ -90,7 +90,7 @@ It certainly seems that the piano came first, as we're fortunate to have an earl
 
 [Watch Video Highlight](https://videopress.com/embed/Ax0zZAwy)
 
-But the song didn't fully come to life until two guest artists entered the studio: Richard Davis (who previously backed Bruce on "[The Angel](../2020-09-26_roll-of-the-dice-the-angel/post.md)") on the double bass, and Randy Brecker (making his second appearance on *Born to Run–*he can also be found on "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)") on the trumpet. Suddenly "Meeting Across the River" sounded like absolutely nothing Bruce had ever written or recorded before, and although they compared a few takes before settling on the final form, each and every one of them were great. Take a listen to a couple of the alternative takes below.
+But the song didn't fully come to life until two guest artists entered the studio: Richard Davis (who previously backed Bruce on "[The Angel](../2011-01-06_roll-of-the-dice-the-angel/post.md)") on the double bass, and Randy Brecker (making his second appearance on *Born to Run–*he can also be found on "[Tenth Avenue Freeze-Out](../2018-11-19_roll-of-the-dice-tenth-avenue-freeze-out/post.md)") on the trumpet. Suddenly "Meeting Across the River" sounded like absolutely nothing Bruce had ever written or recorded before, and although they compared a few takes before settling on the final form, each and every one of them were great. Take a listen to a couple of the alternative takes below.
 
 [Watch Video Highlight](https://videopress.com/embed/N5qa3969)
 

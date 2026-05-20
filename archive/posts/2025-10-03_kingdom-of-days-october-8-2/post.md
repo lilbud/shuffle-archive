@@ -48,7 +48,7 @@ That evening, Bruce joins Little Steven and the Disciples of Soul at The Ritz in
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1998-10-08b.jpg.webp)
 
-**2004:** The Vote for Change Tour stops in Orlando, where Tracy Chapman joins Bruce on stage for "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" and Bruce guests with R.E.M. on "[Permanent Vacation](../2018-04-20_meeting-across-the-river-rem-and-bruce-springsteen-permanent-vacation/post.md)."<br>
+**2004:** The Vote for Change Tour stops in Orlando, where Tracy Chapman joins Bruce on stage for "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" and Bruce guests with R.E.M. on "[Permanent Vacation](../2018-04-20_meeting-across-the-river-rem-and-bruce-springsteen-permanent-vacation/post.md)."<br>
 
 [Watch on Youtube: R.E.M. 2004/10/08 - Vote For Change Tour, TD Waterhouse Centre, Orlando (w/Springsteen & Lofgren)](https://www.youtube.com/watch?v=imXUy4RyuNw?start=3)
 

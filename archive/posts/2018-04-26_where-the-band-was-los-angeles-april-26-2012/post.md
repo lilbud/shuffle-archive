@@ -16,7 +16,7 @@ I was never able to figure out how to get inside the building for the soundcheck
 
 Turns out all he had to do was pass out from the heat while waiting in line for the pit lottery! One moment we’re chatting with fellow fans, the next moment he’s swaying, and a moment later, he’s on the ground.
 
-He wasn’t ever out cold–he was back on his feet seconds after he hit the ground–but it was enough for concerned onlookers to shout for a medic. Less than a minute later, he was in a wheelchair, and security took the both of us into the building. Turns out the medical office is (or was–the building has since been demolished) on the main concourse overlooking the stage, and as the staff took his vitals and ran some tests, we were able to easily watch Bruce and Tom Morello work out their by-then customary collaboration on “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” as well as run through “[Death to My Hometown](../2022-03-30_roll-of-the-dice-death-to-my-hometown/post.md).”
+He wasn’t ever out cold–he was back on his feet seconds after he hit the ground–but it was enough for concerned onlookers to shout for a medic. Less than a minute later, he was in a wheelchair, and security took the both of us into the building. Turns out the medical office is (or was–the building has since been demolished) on the main concourse overlooking the stage, and as the staff took his vitals and ran some tests, we were able to easily watch Bruce and Tom Morello work out their by-then customary collaboration on “[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)” as well as run through “[Death to My Hometown](../2016-01-04_roll-of-the-dice-death-to-my-hometown/post.md).”
 
 (Brucebase only lists “[California Sun](../2020-06-10_cover-me-california-sun/post.md)” and “[Long Walk Home](../2020-03-21_roll-of-the-dice-long-walk-home/post.md)” for the setlist that night, but I can confirm first-hand the additional songs above.)
 
@@ -24,7 +24,7 @@ When the medic asked Eddie if he felt well enough to go back outside, he started
 
 So now you know: if you want to get inside the building for the soundcheck, just faint. You’re welcome.
 
-The show itself was worth the initial scare: the setlist was great, from the “[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” opener with full house lights on…
+The show itself was worth the initial scare: the setlist was great, from the “[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)” opener with full house lights on…
 
 [Watch on Youtube: Bruce Springsteen - Badlands (Live Los Angeles April 26 2012)](https://www.youtube.com/watch?v=8jBuO9gkSRU)
 

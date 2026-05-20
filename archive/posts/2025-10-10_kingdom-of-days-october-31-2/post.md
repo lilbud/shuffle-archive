@@ -48,7 +48,7 @@ post_id: 61250
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/10/Simi_Valley_Star_1984_11_02_21-scaled.jpg.webp)
 
-**1987:** Forbes Magazine lists Bruce as the third highest-earning American entertainer at $56 million. That night, Bruce and the E Street Band (minus Nils and Clarence) play at McLoone's Rum Runner in Sea Bright, where they play "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)," "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)," "[Two Faces](../2022-05-26_roll-of-the-dice-two-faces/post.md)" and an acoustic "Born to Run" for the very first time.<br>
+**1987:** Forbes Magazine lists Bruce as the third highest-earning American entertainer at $56 million. That night, Bruce and the E Street Band (minus Nils and Clarence) play at McLoone's Rum Runner in Sea Bright, where they play "[Brilliant Disguise](../1987-01-09_roll-of-the-dice-brilliant-disguise/post.md/)," "[Tougher Than the Rest](../1987-01-02_roll-of-the-dice-tougher-than-the-rest/post.md/)," "[Two Faces](../1987-01-08_roll-of-the-dice-two-faces/post.md)" and an acoustic "Born to Run" for the very first time.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bSuRxEka)
 

@@ -42,7 +42,7 @@ The second thing that leaps out at us are the lyrics, which sound awfully famili
 > *And let your doubts slip away ‘neath your sighs*<br>
 > *Let me kiss your Spanish eyes*<br>
 
-"Spanish Eyes" wouldn't see the light of day until 2010, but those four lines in bold introduce one of Bruce's greatest hits, his 1985 Top Ten single, "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)."
+"Spanish Eyes" wouldn't see the light of day until 2010, but those four lines in bold introduce one of Bruce's greatest hits, his 1985 Top Ten single, "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)."
 
 [Watch on Youtube: I'm On Fire](https://www.youtube.com/watch?v=1VxFS5-klfk)
 

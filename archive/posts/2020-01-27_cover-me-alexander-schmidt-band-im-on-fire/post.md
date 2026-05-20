@@ -8,7 +8,7 @@ categories: cover-me
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/01/alexschmidt.jpg
 post_id: 15626
 ---
-There are [so many covers](https://estreetshuffle.com/?s=i%27m+on+fire) of Bruce Springsteen’s “[I’m on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)” floating around out there that I had to put a temporary moratorium on featuring them on this blog to avoid accidentally creating its own sub-blog.
+There are [so many covers](https://estreetshuffle.com/?s=i%27m+on+fire) of Bruce Springsteen’s “[I’m on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)” floating around out there that I had to put a temporary moratorium on featuring them on this blog to avoid accidentally creating its own sub-blog.
 
 But here’s a version that warrants lifting the ban.
 

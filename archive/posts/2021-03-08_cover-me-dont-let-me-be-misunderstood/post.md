@@ -20,7 +20,7 @@ And yet there it is, at the end of the song: a simple but instantly recognizable
 
 I'd like to think Bruce would have discovered "Don't Let Me Be Misunderstood" anyway at some point, because it's such an incredible song, and because Simone's performance is far and away better than any cover by anyone else since. (That may be hyperbole, since I haven't heard them all, but just take another listen to her searing vocals and tell me: can *you* imagine anyone topping that?)
 
-But it wasn't Simone's performance that inspired "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)," of course. It was The Animals' version released several months later that caught Bruce's attention.
+But it wasn't Simone's performance that inspired "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)," of course. It was The Animals' version released several months later that caught Bruce's attention.
 
 Their cover of "Don't Let Me Be Misunderstood" was a huge international hit, peaking at #15 in the U.S. and #3 in the U.K., but in order to accomplish that feat, they had to popify the song with a Doors-ian organ riff. (The Animals were masters of the riff.) It's still great, but Eric Burdon's vocals convey only a fraction of the sincerity of Simone's.
 

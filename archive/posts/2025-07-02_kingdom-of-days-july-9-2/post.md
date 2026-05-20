@@ -24,7 +24,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1978-07-09.jpg.webp)
 
-**1981:** Bruce and the E Street Band close out their opening stand at the Brendan Byrne Arena in the Meadowlands, and Gary U.S. Bonds joins them on stage for "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)." Bruce's performance of "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" will be released in 1984 as the B-side to "[Cover Me](../2021-01-13_roll-of-the-dice-cover-me/post.md)" as well as on the *Live 1975-85* box set. This concert is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24818/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-9-1981-Brendan-Byrne-Arena-East-Rutherford-NJ.html).<br>
+**1981:** Bruce and the E Street Band close out their opening stand at the Brendan Byrne Arena in the Meadowlands, and Gary U.S. Bonds joins them on stage for "[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[This Little Girl](../2018-09-06_rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/post.md)." Bruce's performance of "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" will be released in 1984 as the B-side to "[Cover Me](../1984-01-04_roll-of-the-dice-cover-me/post.md)" as well as on the *Live 1975-85* box set. This concert is available for purchase as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24818/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-9-1981-Brendan-Byrne-Arena-East-Rutherford-NJ.html).<br>
 
 [Watch on Youtube: This Land is Your Land (Live at Brendan Byrne Arena, E. Rutherford, NJ - 7/9/1981)](https://www.youtube.com/watch?v=c6InmR1IPs4)
 
@@ -36,7 +36,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2021/07/1981-07-09.jpg.webp)
 
-**1984:** At Night Two in Richfield, Ohio on the Born in the U.S.A. Tour, Bruce plays "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)" acoustically for the first time ever, along with the tour premiere of "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)."<br>
+**1984:** At Night Two in Richfield, Ohio on the Born in the U.S.A. Tour, Bruce plays "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)" acoustically for the first time ever, along with the tour premiere of "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Eurx5bco)
 
@@ -74,7 +74,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/1999-07-09.jpg.webp)
 
-**2012:** The Wrecking Ball Tour stops in Zurich for a night, where Bruce opens the show with the tour premiere of "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)." Other tour premieres include "[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md)" and "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)."<br>
+**2012:** The Wrecking Ball Tour stops in Zurich for a night, where Bruce opens the show with the tour premiere of "[Don't Look Back](../2020-05-03_roll-of-the-dice-dont-look-back/post.md)." Other tour premieres include "[Working on a Dream](../2019-07-04_roll-of-the-dice-working-on-a-dream/post.md)" and "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)."<br>
 
 [Watch on Youtube: springsteen opening zurigo 9 7 2012 don't look back + badlands hd!](https://www.youtube.com/watch?v=bONvhTMjY38)
 
@@ -94,7 +94,7 @@ That evening, Bruce plays a gig at the San Diego Sports Arena, where he sings "[
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/07/2014-07-09.jpg.webp)
 
-**2016:** Bruce and the E Street Band play the TW Classic Festival in Werchter, Belgium, where "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)" and "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)" make their tour premieres. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14123/Bruce-Springsteen-mp3-flac-download-7-9-2016-Festivalpark-Werchter-BE.html).<br>
+**2016:** Bruce and the E Street Band play the TW Classic Festival in Werchter, Belgium, where "[Mansion on the Hill](../2022-03-06_roll-of-the-dice-mansion-on-the-hill/post.md)" and "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)" make their tour premieres. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14123/Bruce-Springsteen-mp3-flac-download-7-9-2016-Festivalpark-Werchter-BE.html).<br>
 
 [Watch on Youtube: Bruce Springsteen July 9, 2016, Werchter, Belgium Mansion On The Hill](https://www.youtube.com/watch?v=IHivuJjx3WI)
 

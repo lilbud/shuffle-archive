@@ -66,7 +66,7 @@ post_id: 56750
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/05/Star_Tribune_2005_05_11_B5.jpg.webp)
 
-**2006:** The Seeger Sessions Tour moves on to Paris, where Bruce premieres "[Bring 'Em Home](../2021-06-23_rotd-cover-me-bring-em-home/post.md)." The show also features the proper tour premiere of the waltz arrangement of "[If I Should Fall Behind](../2018-06-01_roll-of-the-dice-if-i-should-fall-behind/post.md)." Elliott Murphy and Garland Jeffreys join Bruce for "[Buffalo Gals](../2018-06-10_cover-me-roll-of-the-dice-buffalo-gals/post.md)" in the encore.<br>
+**2006:** The Seeger Sessions Tour moves on to Paris, where Bruce premieres "[Bring 'Em Home](../2006-01-18_rotd-cover-me-bring-em-home/post.md)." The show also features the proper tour premiere of the waltz arrangement of "[If I Should Fall Behind](../1992-02-05_roll-of-the-dice-if-i-should-fall-behind/post.md)." Elliott Murphy and Garland Jeffreys join Bruce for "[Buffalo Gals](../2006-01-15_cover-me-roll-of-the-dice-buffalo-gals/post.md)" in the encore.<br>
 
 [Watch on Youtube: Bruce Springsteen John Henry Live In Paris Bercy 10/05/2006](https://www.youtube.com/watch?v=aTMpLFLVjJI)
 

@@ -24,7 +24,7 @@ I camped out on a facing lawn with a great view of the back entrance of the Civi
 
 I walked down the hill and caught the eye of the security guard, who asked me if I was there for the video shoot. My response was simple: "What video shoot?"
 
-The "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)" video shoot, it turned out. The guard told me that vouchers were handed out to fans who attended the Rush concert as they exited the show the night before. Each voucher allowed two people to appear as extras as background to the performance, approximately 200 fans or so, a pretty accurate estimation as to how many were invited.
+The "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)" video shoot, it turned out. The guard told me that vouchers were handed out to fans who attended the Rush concert as they exited the show the night before. Each voucher allowed two people to appear as extras as background to the performance, approximately 200 fans or so, a pretty accurate estimation as to how many were invited.
 
 Needless to say, I did not have a voucher. With my camera in hand, I was just about to retreat back to my spot on the hill and hope for a Bruce sighting when two young ladies walked up and were met by the security guy. He explained that they needed to commit to the entire day and would not be done until well into the late afternoon.
 

@@ -8,7 +8,7 @@ categories: roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2019/07/jessejames-2.jpg
 post_id: 10783
 ---
-Let's see: Bruce has [written a song about Jesse James](../2020-10-22_roll-of-the-dice-the-ballad-of-jesse-james/post.md), recorded [a second one handed down from the Old West era](../2019-07-10_roll-of-the-dice-cover-me-jesse-james/post.md), and namechecked him in still another unreleased demo.
+Let's see: Bruce has [written a song about Jesse James](../1972-01-13_roll-of-the-dice-the-ballad-of-jesse-james/post.md), recorded [a second one handed down from the Old West era](../2006-01-03_roll-of-the-dice-cover-me-jesse-james/post.md), and namechecked him in still another unreleased demo.
 
 I think we can safely see that Bruce has a fascination with the man–so much so that he even wrote a song about the man who killed him.
 

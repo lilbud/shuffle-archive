@@ -72,7 +72,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Bruce Springsteen - Bobby Jean Vienna 05 07 2009](https://www.youtube.com/watch?v=uZmO4suisxY)
 
-**2012:** Night Two in Bercy on the Wrecking Ball Tour features a highly audibled old-school setlist, featuring the tour premiere of "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" and performances of "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)," "Thunder Road" and more. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/packages/2,1226/Bruce-Springsteen-Paris-2012.html).<br>
+**2012:** Night Two in Bercy on the Wrecking Ball Tour features a highly audibled old-school setlist, featuring the tour premiere of "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)" and performances of "[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md)," "[Incident on 57th Street](../2018-12-14_roll-of-the-dice-incident-on-57th-street/post.md)," "[Something in the Night](../2021-05-28_roll-of-the-dice-something-in-the-night/post.md)," "Thunder Road" and more. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/packages/2,1226/Bruce-Springsteen-Paris-2012.html).<br>
 
 [Watch on Youtube: "Something In The Night" - Bruce Springsteen and the E Street Band 7/5/2012](https://www.youtube.com/watch?v=TK2tZ71K9e0)
 

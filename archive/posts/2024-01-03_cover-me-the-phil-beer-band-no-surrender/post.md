@@ -14,7 +14,7 @@ Even today, he’s likely to feature songs like “[Factory](../2018-10-31_roll-
 
 [Watch on Youtube: Phil Beer:Youngstown](https://www.youtube.com/watch?v=COWapD2t-jQ)
 
-His high-water mark, though, is undoubtedly his band’s joyously rollicking cover of “[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” from his *Mandorock 2000 Live* album.
+His high-water mark, though, is undoubtedly his band’s joyously rollicking cover of “[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)” from his *Mandorock 2000 Live* album.
 
 [Watch on Youtube: No Surrender](https://www.youtube.com/watch?v=0uZ-UY0KVHo)
 

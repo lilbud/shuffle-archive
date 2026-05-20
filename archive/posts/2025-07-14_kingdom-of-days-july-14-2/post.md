@@ -48,7 +48,7 @@ post_id: 57722
 
 [Watch Video Highlight](https://videopress.com/embed/yHujCIf5)
 
-**2005:** Bruce kicks off the encores at his solo acoustic show in Toronto with the tour premiere of "[Darlington County.](../2020-09-10_roll-of-the-dice-darlington-county/post.md)"<br>
+**2005:** Bruce kicks off the encores at his solo acoustic show in Toronto with the tour premiere of "[Darlington County.](../1984-01-05_roll-of-the-dice-darlington-county/post.md)"<br>
 
 [Watch on Youtube: Bruce Springsteen Darlington County Solo Acoustic Live From Toronto 14/07/2005](https://www.youtube.com/watch?v=Tq-Zp9idlVE)
 

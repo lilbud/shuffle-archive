@@ -32,7 +32,7 @@ post_id: 56240
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2025/03/The_Sydney_Morning_Herald_1985_03_23_Page_44.jpg.webp)
 
-**1992:** “[Better Days](../2018-03-17_roll-of-the-dice-better-days/post.md)” is released as the first single from Bruce’s upcoming *Lucky Town* album.<br>
+**1992:** “[Better Days](../1992-02-02_roll-of-the-dice-better-days/post.md)” is released as the first single from Bruce’s upcoming *Lucky Town* album.<br>
 
 [Watch on Youtube: Bruce Springsteen - Better Days](https://www.youtube.com/watch?v=VmwJQ62Cs_o)
 

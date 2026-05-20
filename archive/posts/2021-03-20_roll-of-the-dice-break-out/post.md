@@ -28,7 +28,7 @@ Take a listen and see how many references to other released Springsteen songs yo
 
 [Watch on Youtube: Bruce Springsteen - Break Out](https://www.youtube.com/watch?v=vk9MGJkJPoY)
 
-It's difficult to analyze "Break Out," since even this take is still a work in progress, but it's clear that Bruce is tilling similar soil as "[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)" — and in fact, I'm sure you picked out some lyrics that would eventually find their way to that iconic song. So rather than cover that ground again, I'll simply annotate when we encounter a lyric that leads elsewhere.
+It's difficult to analyze "Break Out," since even this take is still a work in progress, but it's clear that Bruce is tilling similar soil as "[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)" — and in fact, I'm sure you picked out some lyrics that would eventually find their way to that iconic song. So rather than cover that ground again, I'll simply annotate when we encounter a lyric that leads elsewhere.
 
 Here are Bruce's lyrics, courtesy of the fine folks at SpringeteenLyrics.com. (I'm not 100% sure of their accuracy, but they match what I hear closely enough.)
 
@@ -37,7 +37,7 @@ Here are Bruce's lyrics, courtesy of the fine folks at SpringeteenLyrics.com. (I
 > *I was schooled down and dirty, signed a note getting back to town*<br>
 > *It was there where the workers slaved all week waiting for payday to come around*<br>
 
-The official take of "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" was completed only weeks after the second take of "Break Out" above. The phrase must have been on his mind, because it appears twice in this outtake.
+The official take of "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" was completed only weeks after the second take of "Break Out" above. The phrase must have been on his mind, because it appears twice in this outtake.
 
 We'll also see some similarities to "The Promised Land" in the chorus:
 

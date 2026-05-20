@@ -72,7 +72,7 @@ post_id: 59712
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/09/1999-09-25c.jpg.webp)
 
-**2002:** Eddie Vedder makes his first-ever appearance with Bruce when the Rising Tour stops at Chicago's United Center. Bruce and Eddie sing the tour premiere of "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" together; Bruce also tour premieres "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" and "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)."<br>
+**2002:** Eddie Vedder makes his first-ever appearance with Bruce when the Rising Tour stops at Chicago's United Center. Bruce and Eddie sing the tour premiere of "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" together; Bruce also tour premieres "[Jackson Cage](../2018-11-04_roll-of-the-dice-jackson-cage/post.md)" and "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen and Eddie Vedder - My Hometown](https://www.youtube.com/watch?v=W7s8Ugl4d8M)
 
@@ -88,7 +88,7 @@ post_id: 59712
 
 **2004:** Patti's solo mini-tour continues at the Roxy Theater in West Hollywood, where Bruce joins her on guitar and backing vocals for "[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)" and "[Love (Stand Up)](https://estreetshuffle.com/index.php/2021/02/14/matr-patti-scialfa-and-bruce-springsteen-love-stand-up/)" in his first appearance at the venue since his legendary radio broadcast.<br>
 
-**2007:** Bruce releases his latest studio album, *Magic*. That evening, Bruce and the E Street Band hold a second public rehearsal for the Magic Tour, where they play "[Magic](../2020-09-13_roll-of-the-dice-magic/post.md)" and Patti's "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)" from her new *Play It As It Lays* album for the first time. Sessions Band members Jeremy Chatzky and Curt Ramm join the band for the show-closing "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)."<br>
+**2007:** Bruce releases his latest studio album, *Magic*. That evening, Bruce and the E Street Band hold a second public rehearsal for the Magic Tour, where they play "[Magic](../2020-09-13_roll-of-the-dice-magic/post.md)" and Patti's "[Town Called Heartbreak](../2020-08-09_matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/post.md)" from her new *Play It As It Lays* album for the first time. Sessions Band members Jeremy Chatzky and Curt Ramm join the band for the show-closing "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen Radio Nowhere live Asbury Park 09/25/2007](https://www.youtube.com/watch?v=KcONtIJYY0A)
 

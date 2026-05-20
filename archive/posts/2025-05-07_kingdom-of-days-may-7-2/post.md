@@ -64,7 +64,7 @@ post_id: 56717
 
 [Watch Video Highlight](https://videopress.com/embed/NWEGes7W)
 
-**2006:** The Seeger Sessions Tour picks up steam in Manchester with the live premiere of "[How Can I Keep From Singing](../2019-11-21_cover-me-how-can-i-keep-from-singing/post.md)" and the tour debut of the "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)/[Mystery Train](../2019-05-21_cover-me-mystery-train/post.md)" mash-up.<br>
+**2006:** The Seeger Sessions Tour picks up steam in Manchester with the live premiere of "[How Can I Keep From Singing](../2006-01-16_cover-me-how-can-i-keep-from-singing/post.md)" and the tour debut of the "[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranch/post.md)/[Mystery Train](../2019-05-21_cover-me-mystery-train/post.md)" mash-up.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/iHzc5aGI)
 
@@ -100,7 +100,7 @@ post_id: 56717
 
 [Watch on Youtube: Bruce Springsteen 2013-05-07 Turku - Pink Cadillac](https://www.youtube.com/watch?v=gXElNNsFvPM)
 
-**2014:** Bruce and Patti fly to Los Angeles for the USC Shoah Foundation's Ambassadors for Humanity gala, where Bruce performs "[The Promised Land](../2018-07-04_roll-of-the-dice-the-promised-land/post.md)" and "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
+**2014:** Bruce and Patti fly to Los Angeles for the USC Shoah Foundation's Ambassadors for Humanity gala, where Bruce performs "[The Promised Land](../2016-01-09_roll-of-the-dice-the-promised-land/post.md)" and "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)."<br>
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - "The Promised Land" Live At USC Shoah Foundation Gala 5/7/2014](https://www.youtube.com/watch?v=sRHdTW95P_A)
 

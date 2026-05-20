@@ -14,7 +14,7 @@ post_id: 57513
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2018/06/1971-0627.jpg.webp)
 
-**1972:** It's a big day in the studio for Bruce: he records "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)," "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)," "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)," "Visitation at Fort Horn," "[Lady and the Doctor](../2011-01-21_roll-of-the-dice-lady-and-the-doctor/post.md/)," and "[Arabian Nights](../2021-03-23_roll-of-the-dice-arabian-nights/post.md)," the last three of which remain unreleased to this day.<br>
+**1972:** It's a big day in the studio for Bruce: he records "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)," "[Growin' Up](../2011-01-03_roll-of-the-dice-growin-up/post.md/)," "[Lost in the Flood](../2011-01-05_roll-of-the-dice-lost-in-the-flood/post.md/)," "[Does This Bus Stop at 82nd Street](../2011-01-04_roll-of-the-dice-does-this-bus-stop-at-82nd-street/post.md/)," "Visitation at Fort Horn," "[Lady and the Doctor](../2011-01-21_roll-of-the-dice-lady-and-the-doctor/post.md/)," and "[Arabian Nights](../2011-01-11_roll-of-the-dice-arabian-nights/post.md)," the last three of which remain unreleased to this day.<br>
 
 [Watch on Youtube: For You](https://www.youtube.com/watch?v=rdP3y4k2KKU)
 
@@ -74,7 +74,7 @@ post_id: 57513
 
 [Watch on Youtube: The Gaslight Anthem - The '59 Sound (Live feat. Bruce Springsteen)](https://www.youtube.com/watch?v=djdRSffcI9E)
 
-Bruce opens his own set with his first and only performance of "[Coma Girl,](../2019-03-13_cover-me-coma-girl/post.md)" in tribute to Joe Strummer. Brian Fallon returns Bruce's favor from earlier in the day by guest-starring on "[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)."
+Bruce opens his own set with his first and only performance of "[Coma Girl,](../2019-03-13_cover-me-coma-girl/post.md)" in tribute to Joe Strummer. Brian Fallon returns Bruce's favor from earlier in the day by guest-starring on "[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)."
 
 [Watch on Youtube: Bruce Springsteen, Glastonbury 27 June 2009 - Coma Girl](https://www.youtube.com/watch?v=MtvZnL19wps)
 
@@ -86,7 +86,7 @@ Bruce opens his own set with his first and only performance of "[Coma Girl,](../
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/06/The_Independent_2009_06_29_10.jpg.webp)
 
-**2016:** Night Two (of three) at Gothenburg's Ullevi opens with the tour premiere of "[Mary's Place](../2022-03-25_roll-of-the-dice-marys-place/post.md)" and features two additional tour premieres ("[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[Lucky Town](../2019-05-24_roll-of-the-dice-lucky-town/post.md)") in the set as well. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14119/Bruce-Springsteen-mp3-flac-download-6-27-2016-Ullevi-Stadium-Goteborg-SE.html).<br>
+**2016:** Night Two (of three) at Gothenburg's Ullevi opens with the tour premiere of "[Mary's Place](../2022-03-25_roll-of-the-dice-marys-place/post.md)" and features two additional tour premieres ("[Jole Blon](../2019-08-29_matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/post.md)" and "[Lucky Town](../1992-02-03_roll-of-the-dice-lucky-town/post.md)") in the set as well. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14119/Bruce-Springsteen-mp3-flac-download-6-27-2016-Ullevi-Stadium-Goteborg-SE.html).<br>
 
 [Watch on Youtube: Bruce Springsteen Pro Shot Ullevi Gothenburg 2016-06-27](https://www.youtube.com/watch?v=TsiCrw33PPc)
 

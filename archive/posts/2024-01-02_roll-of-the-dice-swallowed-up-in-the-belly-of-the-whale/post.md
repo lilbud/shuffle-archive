@@ -16,7 +16,7 @@ That's arguably the case with "Swallowed Up (In the Belly of the Whale)," which 
 
 *Wrecking Ball* is not only one of Bruce's most cohesive albums, it's the one with the strongest narrative arc. Starting off defiantly with the anthemic "[We Take Care of Our Own](../2020-12-25_roll-of-the-dice-we-take-care-of-our-own/post.md)," Bruce descends from anger to surrender, bottoming out with "[This Depression](../2020-02-21_roll-of-the-dice-this-depression/post.md)" before climbing out towards "[Land of Hope and Dreams](../2018-01-05_roll-of-the-dice-land-of-hope-and-dreams/post.md)" and closing with the eternal "[We Are Alive](../2018-09-15_roll-of-the-dice-we-are-alive/post.md)."
 
-And then, almost as an afterthought, comes two bonus tracks: "Swallowed Up (In the Belly of the Whale)" and "[American Land](../2020-01-10_roll-of-the-dice-american-land/post.md)."
+And then, almost as an afterthought, comes two bonus tracks: "Swallowed Up (In the Belly of the Whale)" and "[American Land](../2016-01-22_roll-of-the-dice-american-land/post.md)."
 
 The latter makes sense as a bonus track–although it's not a completely square peg in the album's roundly economic theme, Bruce had already given it an official release as a live performance back in 2006.
 

@@ -10,7 +10,7 @@ post_id: 25516
 ---
 When it comes to Springsteen covers, Manfred Mann's Earth Band occupies the throne with not one but *three* successfully charting hits–all of which scored higher than Bruce was able to do by himself.
 
-The band is best known for their lyric-mangling version of "[Blinded by the Light](../2023-01-01_roll-of-the-dice-blinded-by-the-light/post.md)," which to this day remains Bruce's only #1 hit song when Mann took it there in early 1977.
+The band is best known for their lyric-mangling version of "[Blinded by the Light](../2011-01-02_roll-of-the-dice-blinded-by-the-light/post.md)," which to this day remains Bruce's only #1 hit song when Mann took it there in early 1977.
 
 [Watch on Youtube: Blinded by the Light ~ Manfred Mann's Earth Band with lyrics](https://www.youtube.com/watch?v=Rpq35wyDi7I)
 

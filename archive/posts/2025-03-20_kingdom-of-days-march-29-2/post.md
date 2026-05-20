@@ -58,7 +58,7 @@ post_id: 56306
 
 [Spotify Embed: Fatherhood](https://open.spotify.com/embed/episode/1NTNCe83v8fBXxLe5RKhSY?si=17cb78b9cc6e4a41&utm_source=oembed)
 
-**2023:** "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.<br>
+**2023:** "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band Concert - Live in Detroit - March 29, 2023](https://www.youtube.com/watch?v=ozJ7CrhBLKI)
 

@@ -18,7 +18,7 @@ post_id: 57178
 
 **1974:** Bruce and the E Street Band play two shows on their third of three consecutive nights at Le Garage on Long Beach Island.<br>
 
-**1977:** Bruce and the E Street Band work on "[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" at Atlantic Studios in New York City.<br>
+**1977:** Bruce and the E Street Band work on "[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md)" at Atlantic Studios in New York City.<br>
 
 **1978:** In town a day early for his Darkness Tour stop, Bruce drops by the Paramount Theater in Portland, Oregon to catch Warren Zevon's performance. He joins Zevon for "I'll Sleep When I'm Dead," the final encore of the evening.<br>
 
@@ -58,7 +58,7 @@ post_id: 57178
 
 [Watch on Youtube: Bruce Springsteen - State trooper Gothenburg, Sweden, June 23, 2005.](https://www.youtube.com/watch?v=jolZKmU3SbM)
 
-**2006:** Conan O'Brien, Thomas Haden Church, Jimmy Fallon, and the Max Weinberg 7 join the Sessions Band in a rousing rendition of "[Pay Me My Money Down](../2018-07-03_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" on *Late Night with Conan O'Brien.* Bruce also performs "[Bring 'em Home](../2021-06-23_rotd-cover-me-bring-em-home/post.md)."<br>
+**2006:** Conan O'Brien, Thomas Haden Church, Jimmy Fallon, and the Max Weinberg 7 join the Sessions Band in a rousing rendition of "[Pay Me My Money Down](../2006-01-12_roll-of-the-dice-cover-me-pay-me-my-money-down/post.md)" on *Late Night with Conan O'Brien.* Bruce also performs "[Bring 'em Home](../2006-01-18_rotd-cover-me-bring-em-home/post.md)."<br>
 
 [Watch on Youtube: Bruce Springsteen - Pay Me My Money Down [Conan O'Brien]](https://www.youtube.com/watch?v=fSt22GEPQGg)
 

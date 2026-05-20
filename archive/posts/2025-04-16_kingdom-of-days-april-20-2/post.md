@@ -60,7 +60,7 @@ post_id: 56571
 
 **2005:** At the Paramount Theater in Asbury Park, Bruce holds his final rehearsal before beginning his solo acoustic tour.<br>
 
-**2006:** The first public warm-up show for the Seeger Sessions Tour features the premiere of "[How Can a Poor Man Stand Such Times and Live](../2021-12-08_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)," "[When the Saints Go Marching In](../2021-03-28_cover-me-when-the-saints-go-marching-in/post.md)" and the album tracks.<br>
+**2006:** The first public warm-up show for the Seeger Sessions Tour features the premiere of "[How Can a Poor Man Stand Such Times and Live](../2006-01-17_rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/post.md)," "[When the Saints Go Marching In](../2021-03-28_cover-me-when-the-saints-go-marching-in/post.md)" and the album tracks.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/rGqntUpa)
 

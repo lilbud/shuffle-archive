@@ -18,7 +18,7 @@ Think I’m exaggerating? Then ask yourself: If I gave you, say, 100 chances to 
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Charlotte, NC April 19, 2014 - Iceman](https://www.youtube.com/watch?v=_4rwJ--zjmA)
 
-I’m guessing somewhere around the 300 mark. And yet that’s exactly what happened. I’m sure that casual fans were scratching their heads at the moody, atmospheric opener with the borrowed “[Badlands](../2019-05-20_roll-of-the-dice-badlands/post.md)” lyric in the opening verse (this was only the second time Bruce had ever performed the song), but the hardcore fans all got the message Bruce was sending: Anything goes tonight.
+I’m guessing somewhere around the 300 mark. And yet that’s exactly what happened. I’m sure that casual fans were scratching their heads at the moody, atmospheric opener with the borrowed “[Badlands](../2016-01-20_roll-of-the-dice-badlands/post.md)” lyric in the opening verse (this was only the second time Bruce had ever performed the song), but the hardcore fans all got the message Bruce was sending: Anything goes tonight.
 
 And anything did.
 
@@ -30,13 +30,13 @@ After a rocking “[Cadillac Ranch](../2020-07-23_roll-of-the-dice-cadillac-ranc
 
 [Watch on Youtube: Bruce Springsteen - Louie Louie Into Mustang Sally](https://www.youtube.com/watch?v=JWaQUBrs_sU)
 
-…to a pair of more pedestrian requests (“[No Surrender](../2021-11-18_roll-of-the-dice-no-surrender/post.md)” and “[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)“) to a wild double-shot of “From Small Things (Big Things One Day Come)” and “[Brown-Eyed Girl](../2018-09-20_cover-me-brown-eyed-girl/post.md)…”
+…to a pair of more pedestrian requests (“[No Surrender](../1984-01-09_roll-of-the-dice-no-surrender/post.md)” and “[Out in the Street](../2021-10-28_roll-of-the-dice-out-in-the-street/post.md)“) to a wild double-shot of “From Small Things (Big Things One Day Come)” and “[Brown-Eyed Girl](../2018-09-20_cover-me-brown-eyed-girl/post.md)…”
 
 [Watch on Youtube: Bruce Springsteen - Brown Eyed Girl](https://www.youtube.com/watch?v=dLFKEdHKeaw)
 
 …and then to “[Racing in the Street](../2021-10-03_roll-of-the-dice-racing-in-the-street/post.md),” that made a full seven out of nine consecutive songs drawn from request signs. Even the songs that weren’t requests were audibled–meaning that Bruce essentially made the majority of the show up as he went along.
 
-More sign requests followed: “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” a rare encore-opening “[Darkness on the Edge of Town](../2018-04-10_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” and Bruce audibled “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)” as the main set closer.
+More sign requests followed: “[My Love Will Not Let You Down](../2018-01-24_roll-of-the-dice-my-love-will-not-let-you-down/post.md),” a rare encore-opening “[Darkness on the Edge of Town](../2016-01-07_roll-of-the-dice-darkness-on-the-edge-of-town/post.md),” and Bruce audibled “[Light of Day](../2018-12-06_roll-of-the-dice-light-of-day/post.md)” as the main set closer.
 
 After “Darkness” kicked of the encores, the show took a (momentarily, at least) more serious turn with “The Wall,” (watch the wonderful pro-shot video below), followed by a perfect pairing with “[Born in the U.S.A.](../2019-09-21_roll-of-the-dice-born-in-the-u-s-a/post.md)”
 

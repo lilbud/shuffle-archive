@@ -52,7 +52,7 @@ post_id: 62388
 
 [Watch Video Highlight](https://videopress.com/embed/imoYRMGl)
 
-**2002:** Bruce tour debuts "[Darlington County](../2020-09-10_roll-of-the-dice-darlington-county/post.md)," and Emmylou Harris makes a guest appearance on "[My Hometown](../2020-04-09_roll-of-the-dice-my-hometown/post.md)" when Bruce and the E Street Band bring the Rising Tour to Birmingham, Alabama.<br>
+**2002:** Bruce tour debuts "[Darlington County](../1984-01-05_roll-of-the-dice-darlington-county/post.md)," and Emmylou Harris makes a guest appearance on "[My Hometown](../1983-01-12_roll-of-the-dice-my-hometown/post.md)" when Bruce and the E Street Band bring the Rising Tour to Birmingham, Alabama.<br>
 
 [Watch on Youtube: Bruce Springsteen & Emmylou Harris, "My Hometown" - Birmingham, 2002-11-19](https://www.youtube.com/watch?v=mv0AXMl-vOg)
 
@@ -74,7 +74,7 @@ post_id: 62388
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/11/2005-11-19b.png.webp)
 
-**2006:** Bruce and the Sessions Band play the last of a three-night stand at Dublin's Point Theater, where "[For You](../2022-01-08_roll-of-the-dice-for-you/post.md)" makes its tour premiere. The show is recorded and filmed, and seven songs will be released on the *Live in Dublin* CD and video release. "For You" and "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" from this show will be released in a special *Bruce Springsteen With The Sessions Band PBS Exclusive* EP for PBS pledge donors.<br>
+**2006:** Bruce and the Sessions Band play the last of a three-night stand at Dublin's Point Theater, where "[For You](../2011-01-07_roll-of-the-dice-for-you/post.md)" makes its tour premiere. The show is recorded and filmed, and seven songs will be released on the *Live in Dublin* CD and video release. "For You" and "[The Ghost of Tom Joad](../2019-10-17_roll-of-the-dice-the-ghost-of-tom-joad/post.md)" from this show will be released in a special *Bruce Springsteen With The Sessions Band PBS Exclusive* EP for PBS pledge donors.<br>
 
 [Watch on Youtube: Bruce Springsteen with the Sessions Band - Old Dan Tucker (Live In Dublin)](https://www.youtube.com/watch?v=fO0yV_HcXx4)
 
@@ -110,7 +110,7 @@ post_id: 62388
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2024/11/Fort_Collins_Coloradoan_2012_11_23_Page_3-scaled.jpg.webp)
 
-**2019:** Bruce assembles the E Street Band at his home studio in Colts Neck for the second of a five-day recording session that will lead to [*Letter to You*](../2023-07-10_album-companion-letter-to-you/post.md).<br>
+**2019:** Bruce assembles the E Street Band at his home studio in Colts Neck for the second of a five-day recording session that will lead to [*Letter to You*](../2017-01-01_album-companion-letter-to-you/post.md).<br>
 
 **2022:** Bruce appears on RTE Radio in Ireland to promote his new album, *Only the Strong Survive*.<br>
 

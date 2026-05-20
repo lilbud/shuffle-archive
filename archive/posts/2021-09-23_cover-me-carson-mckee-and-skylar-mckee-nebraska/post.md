@@ -14,7 +14,7 @@ It feels weird to describe a murder ballad as beautiful, but I can't help it: Ca
 
 Carson's acoustic-electric guitar underpins their performance with a sinister bass line that never lets us forget that we're listening to a serial killer's tale. But dang, those harmonies and that delicate guitar interplay... I just want to listen to this over and over.
 
-This isn't Carson's first foray into the Springsteen catalog, however. He released a cover of "[I'm on Fire](../2021-09-11_roll-of-the-dice-im-on-fire/post.md)" a full year ago with his Other Favorites bandmate Josh Turner, and it's equally wonderful. And because I have way too many "I'm on Fire" covers left to blog about, I'm serving up a rare double-shot today.
+This isn't Carson's first foray into the Springsteen catalog, however. He released a cover of "[I'm on Fire](../1984-01-08_roll-of-the-dice-im-on-fire/post.md)" a full year ago with his Other Favorites bandmate Josh Turner, and it's equally wonderful. And because I have way too many "I'm on Fire" covers left to blog about, I'm serving up a rare double-shot today.
 
 Enjoy.
 

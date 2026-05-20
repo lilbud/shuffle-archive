@@ -38,7 +38,7 @@ Later that night–so late that it's technically the following day, August 31–
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/1988-08-30.png.webp)
 
-**2002:** The Rising Tour moves on to the Savvis Center in St. Louis. The set list is slowly opening up as "[Downbound Train](../2019-01-22_roll-of-the-dice-downbound-train/post.md)" makes its tour premiere early in the show.<br>
+**2002:** The Rising Tour moves on to the Savvis Center in St. Louis. The set list is slowly opening up as "[Downbound Train](../1984-01-07_roll-of-the-dice-downbound-train/post.md)" makes its tour premiere early in the show.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/sA1EzJjX)
 
@@ -72,7 +72,7 @@ Later that night–so late that it's technically the following day, August 31–
 
 ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets_webp/2020/08/2009-08-30.png.webp)
 
-**2016:** Jaws drop and the Internet breaks: Bruce and the E Street Band break their U.S. record–again–for the longest show ever (this time breaking the four-hour mark), but it's the set list at this final East Rutherford show that blows minds: the show starts with the by now (amazingly) standard opener, "New York City Serenade" complete with strings, but what follows is a largely chronological trip through Bruce's catalog. Rickie Lee Jones guest stars on three songs, and Bruce plays the entire second side of *The Wild, The Innocent, and The E Street Shuffle* (including the tour premiere of "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)"). Also making their tour premiere: "[Pretty Flamingo,](../2021-12-04_cover-me-pretty-flamingo/post.md)" "[Living Proof](../2020-03-18_roll-of-the-dice-living-proof/post.md)," and "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)." A fireworks-accompanied "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" closes a remarkable show.<br>
+**2016:** Jaws drop and the Internet breaks: Bruce and the E Street Band break their U.S. record–again–for the longest show ever (this time breaking the four-hour mark), but it's the set list at this final East Rutherford show that blows minds: the show starts with the by now (amazingly) standard opener, "New York City Serenade" complete with strings, but what follows is a largely chronological trip through Bruce's catalog. Rickie Lee Jones guest stars on three songs, and Bruce plays the entire second side of *The Wild, The Innocent, and The E Street Shuffle* (including the tour premiere of "[Kitty's Back](../2022-01-22_roll-of-the-dice-kittys-back/post.md)"). Also making their tour premiere: "[Pretty Flamingo,](../2021-12-04_cover-me-pretty-flamingo/post.md)" "[Living Proof](../1992-02-08_roll-of-the-dice-living-proof/post.md)," and "[Secret Garden](../2019-05-30_roll-of-the-dice-secret-garden/post.md)." A fireworks-accompanied "[Jersey Girl](../1976-02-07_cover-me-roll-of-the-dice-jersey-girl/post.md/)" closes a remarkable show.<br>
 
 [Watch on Youtube: MetLife#3 - Aug 30, 2016](https://www.youtube.com/playlist?list=PLrNIMOwexdz95YpVOZNuDZ_qAqPt2D4Vj)
 

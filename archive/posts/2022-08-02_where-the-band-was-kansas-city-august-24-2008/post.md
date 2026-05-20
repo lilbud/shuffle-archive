@@ -36,7 +36,7 @@ Some surprises were poignant, like the full band premiere (sort of, anyway: Bruc
 
 [Watch on Youtube: Bruce Springsteen - Kansas City 2008-08-24 - "Devils and Dust"](https://www.youtube.com/watch?v=lxumJ3w2EWE)
 
-…and some were intimate: Bruce's almost-final encore of "[Save the Last Dance for Me](../2020-10-25_cover-me-save-the-last-dance-for-me/post.md)" was quiet, soulful, and a genuine love note to E Street Nation… right up to the surprise pay-off, a perfect segue into "[Dancing in the Dark](../2021-12-25_roll-of-the-dice-dancing-in-the-dark/post.md)."
+…and some were intimate: Bruce's almost-final encore of "[Save the Last Dance for Me](../2020-10-25_cover-me-save-the-last-dance-for-me/post.md)" was quiet, soulful, and a genuine love note to E Street Nation… right up to the surprise pay-off, a perfect segue into "[Dancing in the Dark](../1984-01-13_roll-of-the-dice-dancing-in-the-dark/post.md)."
 
 [Watch on Youtube: Bruce Springsteen - Kansas City 2008-08-24 - "Save the Last Dance/DiTD"](https://www.youtube.com/watch?v=2i9bNACWIE0)
 
