@@ -62,13 +62,7 @@ posts_dir = Path("./archive/posts")
 linklist = []
 with load_db() as conn, conn.cursor() as cur:
     for post in posts_dir.glob("**/*.md"):
-        # print(post.parent.name)
         content = post.read_text(encoding="utf-8")
-
-        # for old, new in links_list:
-        #     content = content.replace(old, new)
-
-        # post.write_text(content, encoding="utf-8")
 
         link_pattern = r"\[([^\)]*)\]\(([^\)]*)/\)"
 
