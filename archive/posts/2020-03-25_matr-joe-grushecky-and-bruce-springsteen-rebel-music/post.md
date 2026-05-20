@@ -2,7 +2,7 @@
 layout: post
 title: "MatR: Joe Grushecky and Bruce Springsteen: Rebel Music"
 author: "Ken"
-excerpt: "In the autumn of 1995, Bruce became an honorary Houserocker, joining Joe Grushecky's band on their American Babylon tour. Take a listen to their nightly encore, Joe's anthemic "Rebel Mu"
+excerpt: "In the autumn of 1995, Bruce became an honorary Houserocker, joining Joe Grushecky's band on their American Babylon tour. Take a listen to their nightly encore, Joe's anthemic 'Rebel Mu"
 tags: joe-grushecky-and-the-houserockers rebel-music
 categories: cover-me roll-of-the-dice
 header_img: https://media.githubusercontent.com/media/lilbud/shuffle-archive/refs/heads/master/assets_webp/2020/03/rebelmusic-1.jpg

@@ -288,7 +288,9 @@ def main(cur: psycopg.Cursor) -> None:
                     f.write(f"categories: {post['category_list']}\n")
 
                 if post["header_img"]:
-                    f.write(f"header_img: {post['header_img']}\n")
+                    f.write(
+                        f"header_img: {post['header_img'].replace('.jpg', '.jpg.webp').replace('.png', '.png.webp').replace('.jpeg', '.jpeg.webp')}\n",
+                    )
 
                 f.write(f"post_id: {post['post_id']}\n")
 
