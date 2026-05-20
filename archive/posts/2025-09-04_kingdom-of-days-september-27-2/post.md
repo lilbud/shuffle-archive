@@ -6,7 +6,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 1975-09-26 Hancher Auditorium, Iowa City, IA](https://www.youtube.com/watch?v=H9BsJXUt0EQ)
 
-![](../../assets/2020/09/1975-09-27.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1975-09-27.jpg.webp)
 
 **1977:** At the Record Plant in New York City, Bruce records “Because the Night,” “[Outside Looking In](https://estreetshuffle.com/index.php/2021/02/19/roll-of-the-dice-outside-looking-in/),” and “[Down by the River](https://estreetshuffle.com/index.php/2020/05/13/roll-of-the-dice-down-by-the-river/).” It will take more than 30 years for Bruce to release the first two; the last one still hasn’t been released to this day.<br>
 
@@ -38,9 +38,9 @@
 
 [Watch on Youtube: Travelin' Band (Live at the Memorial Coliseum, Los Angeles, CA - 09/27/85 - Official Au...](https://www.youtube.com/watch?v=yBf6INLieQ4)
 
-![](../../assets/2020/09/1985-09-27a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1985-09-27a.jpg.webp)
 
-![](../../assets/2020/09/1985-09-27b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1985-09-27b.jpg.webp)
 
 **1988:** The Human Rights Now! Tour lands in Asia, starting with a show at the Tokyo Dome, where Bruce tour debuts “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/).”<br>
 
@@ -50,7 +50,7 @@
 
 [Watch on Youtube: Bruce Springsteen and More Artist - Get Up , Stand Up - at Tokyo Dome in Japan 1988.09.27](https://www.youtube.com/watch?v=pS9chon88fA)
 
-![](../../assets/2020/09/1988-09-27.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1988-09-27.jpg.webp)
 
 **1999:** Night One in Chicago on the Reunion Tour features a standard Night One set list, but there are still two nights to go in this stand at the United Center.<br>
 
@@ -58,17 +58,17 @@
 
 [Watch on Youtube: Bruce Springsteen Where the Bands are Chicago 28/09/1999](https://www.youtube.com/watch?v=D-H46fhjwks)
 
-![](../../assets/2020/09/1999-09-27a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1999-09-27a.jpg.webp)
 
-![](../../assets/2020/09/1999-09-27b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/1999-09-27b.jpg.webp)
 
 **2002:** Milwaukee gets tour one-offs of “[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)” and a show-closing “[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)” (complete with “Are you loose?”) and a “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” tour premiere when the Rising Tour stops at the Bradley Center for a night.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jFG933Sz)
 
-![](../../assets/2020/09/2002-09-27a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/2002-09-27a.jpg.webp)
 
-![](../../assets/2021/09/2002-09-27b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/09/2002-09-27b.jpg.webp)
 
 **2003:** The Rising Tour is winding down, and each show of this last month is special. At Miller Park in Milwaukee (one year to the day since his last show in that city), Bruce opens with “[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/),” plays a rare “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/),” and by request: a Danny Federici spotlight on “[Beer Barrel Polka](https://estreetshuffle.com/index.php/2020/03/24/cover-me-beer-barrel-polka/).”<br>
 
@@ -76,15 +76,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/M2lwaV9r)
 
-![](../../assets/2021/09/2003-09-27.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/09/2003-09-27.jpg.webp)
 
 **2004:** Bruce and the E Street Band rehearse at Asbury Park’s Convention Hall for their upcoming Vote for Change Tour.<br>
 
-![](../../assets/2020/09/2004-09-27.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/2004-09-27.jpg.webp)
 
 **2007:** Sirius XM radio brings back E Street Radio for a return engagement to coincide with the release of Magic. At least as of this writing, it will never leave the air again.<br>
 
-![](../../assets/2021/09/2007-09-27.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/09/2007-09-27.jpg.webp)
 
 **2016:** Bruce becomes a published author with the release of *Born to Run*, his autobiography. To promote the book, Bruce kicks off a national book tour at the Barnes & Noble in his hometown of Freehold, New Jersey.<br>
 
@@ -92,13 +92,13 @@
 
 [Watch on Youtube: Another Thing Bruce Comes Home to Freehold](https://www.youtube.com/watch?v=zts6Ou3GbV0)
 
-![](../../assets/2020/09/2016-09-27.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/09/2016-09-27.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is sick tonight, so Bruce Broadway-debuts “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” in place of his usual “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” duet with his wife. In attendance tonight: Robert Gordon and Simple Minds.<br>
 
-![](../../assets/2019/09/2018-09-27a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/09/2018-09-27a.jpg.webp)
 
-![](../../assets/2019/09/2018-09-27c.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/09/2018-09-27c.jpg.webp)
 
 **2021:** Bruce interviews Little Steven for a streaming event the following day, promoting Van Zandt’s new book, *Unrequited Infatuations.*<br>
 

@@ -8,13 +8,13 @@
 
 [Watch on Youtube: Wings for Wheels- Bruce Springsteen](https://www.youtube.com/watch?v=dRRQVfQZnZQ)
 
-![](../../assets/2021/02/1992-02-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1992-02-05.jpg.webp)
 
-![](../../assets/2020/01/1975-02-05b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/1975-02-05b.jpg.webp)
 
 **1981:** Bruce appears on the cover of *Rolling Stone*, in a photograph taken by Annie Leibovitz. That evening, he and the E Street Band bring the River Tour to the Kemper Arena in Kansas City, where they play a tour one-off of (what else?) “[Kansas City](https://estreetshuffle.com/index.php/2021/01/11/cover-me-kansas-city/)” in the encores.<br>
 
-![](../../assets/2020/01/1981-02-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/1981-02-05.jpg.webp)
 
 [Watch Video Highlight](https://videopress.com/embed/qge220wF)
 
@@ -22,27 +22,27 @@
 
 [Watch on Youtube: 20/20 profiles Bruce Springsteen](https://www.youtube.com/watch?v=RJ43PnLRKbA)
 
-![](../../assets/2024/02/The_Manhattan_Mercury_Thu__Feb_7__1985_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/02/The_Manhattan_Mercury_Thu__Feb_7__1985_-scaled.jpg.webp)
 
 **1992:** The New York Daily News reports that Bruce’s management is negotiating with the City of New York and HBO for a free concert event in New York’s Central Park. Although both Shorefire (Bruce’s PR company) and New York City swiftly reject such notions, HBO plays it coy and rumors will continue to swirl nationally for days to come. The concert will never materialize.<br>
 
-![](../../assets/2022/02/1997-02-05-r.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/02/1997-02-05-r.jpg.webp)
 
 **1996:** Germany’s Radio Eins interviews Bruce for a promotional CD to be released later in the year.<br>
 
 **1997:** Bruce plays his second of two solo acoustic shows in Brisbane.<br>
 
-![](../../assets/2022/02/1981-02-05-resized-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/02/1981-02-05-resized-scaled.jpg.webp)
 
 [Watch Video Highlight](https://videopress.com/embed/iioMYzsu)
 
-![](../../assets/2021/02/1975-02-05.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1975-02-05.png.webp)
 
-![](../../assets/2024/02/Asbury_Park_Press_Tue__Feb_5__1985_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/02/Asbury_Park_Press_Tue__Feb_5__1985_-scaled.jpg.webp)
 
 **2009:** Bruce appears on the cover of *Rolling Stone* as part of the promotional push for *Working on a Dream*.<br>
 
-![](../../assets/2020/01/rsmag.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/rsmag.jpg.webp)
 
 **2014:** The High Hopes Tour moves on to Perth for the first of three nights. These are Bruce’s first ever shows in Perth, and Night One is a barn-burner. The show opens with the E Street Band premiere of “[Frankie Fell in Love](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)” and features a marathon “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/).” Also making their tour premieres tonight: “[The E Street Shuffle,](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)” “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/),” and “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/).”<br>
 
@@ -66,6 +66,6 @@
 
 [Watch on Youtube: The Rising - Springsteen - Orlando Feb 5, 2023](https://www.youtube.com/watch?v=vthBXU_-YhY)
 
-![](../../assets/2022/02/1981-02-05bresizew-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/02/1981-02-05bresizew-scaled.jpg.webp)
 
-![](../../assets/2024/02/The_Orlando_Sentinel_Tue__Feb_7__2023_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/02/The_Orlando_Sentinel_Tue__Feb_7__2023_.jpg.webp)

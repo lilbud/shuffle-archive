@@ -10,15 +10,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/hOUDtFAd)
 
-![](../../assets/2021/06/1978-0603.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1978-0603.jpg.webp)
 
 **1979:** Bruce attends the wedding of his lighting director and travel agent at the Whisky a Go Go in West Hollywood. Bruce performs a three hour wedding-themed set (including "Wedding March," "Wear My Ring Around Your Neck," "Mother-in-Law" and "Hava Nagila") with the E Street Band, Rickie Lee Jones, and Boz Scaggs.<br>
 
-![](../../assets/2018/06/1979-0603.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1979-0603.jpg.webp)
 
 **1989:** Bruce serenades the attendees of Roy Bittan's wedding with a cover of Elvis' "Loving You."<br>
 
-![](../../assets/2018/06/1989-0603.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1989-0603.jpg.webp)
 
 **1999:** Reunion Night Two in Paris brings a setlist shake-up, featuring the first-ever performances of "Lion's Den" and "Loose Ends," plus the welcome return of "Racing in the Street."<br>
 
@@ -34,7 +34,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/jyjJsCaU)
 
-![](../../assets/2020/05/2000-06-02.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2000-06-02.jpg.webp)
 
 **2006:** Nils guest-stars on "Pay Me My Money Down" (and enjoys the show from the pit!) when the Seeger Sessions Tour stops in Glendale, Arizona. For more on this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/06/03/where-the-band-was-glendale-june-3-2006/) from this show.<br>
 
@@ -44,7 +44,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rV8Coai6W0k)
 
-![](../../assets/2025/06/The_Arizona_Republic_2006_06_07_Page_458-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/06/The_Arizona_Republic_2006_06_07_Page_458-scaled.jpg.webp)
 
 **2012:** In Lisbon's Bela Vista Park, Bruce and the E Street Band headline Rock in Rio. (Technically this show is performed on June 4th, as Bruce starts the show after midnight.) Bruce closes the show with the tour premiere of "Twist and Shout."<br>
 
@@ -66,7 +66,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qsosWEaYqwg)
 
-![](../../assets/2024/06/Penarth_Times_Thu__Jun_9__2016_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Penarth_Times_Thu__Jun_9__2016_-scaled.jpg.webp)
 
 **2020:** With no fanfare, Bruce premieres his own recording of "Idiot's Delight," (originally released by Joe Grushecky but co-written by both artists) on the fifth installment of his *From My Home to Yours* radio show on Sirius XM.<br>
 

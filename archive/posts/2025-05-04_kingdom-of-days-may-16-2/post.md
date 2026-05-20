@@ -12,17 +12,17 @@
 
 **1982:** Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at Big Man’s West (for “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)“) and later with Cats on a Smooth Surface at The Stone Pony.<br>
 
-![](../../assets/2018/05/1982-0516.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1982-0516.jpg.webp)
 
 **1985**: Bruce and Julianne leave Lake Oswego, Oregon, for their honeymoon.<br>
 
-![](../../assets/2018/05/1985-0516.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1985-0516.jpg.webp)
 
 **1986:** Jersey Artists for Mankind (JAM) releases their single, “[We’ve Got the Love](https://estreetshuffle.com/index.php/2021/01/25/matr-jersey-artists-for-mankind-featuring-bruce-springsteen-weve-got-the-love/)” in support of local charities. The song was written by Bobby Bandiera and Joel Krauss and features a guitar solo by Bruce and a sax solo by Clarence, along with vocal solos by Nils and Southside, among others. Look for some familiar faces in the video.<br>
 
 [Watch on Youtube: We got the love by J.A.M. 86](https://www.youtube.com/watch?v=cEvOLMT9v_w)
 
-![](../../assets/2024/05/The_Odessa_American_Sun__May_11__1986_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/The_Odessa_American_Sun__May_11__1986_-scaled.jpg.webp)
 
 **1988:** Bruce kicks off a five-night stand at Madison Square Garden that wraps the U.S. leg of the Tunnel of Love Express Tour. The set includes the tour proper premiere of Roy Orbison’s “[Crying](https://estreetshuffle.com/index.php/2022/05/06/cover-me-crying/)” along with a show-closing “[New York, New York](https://estreetshuffle.com/index.php/2021/06/26/cover-me-new-york-new-york/)” instrumental. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28984/bruce-springsteen---the-e-street-band-madison-square-garden-new-york-ny-05-16-1988-mp3-flac-or-online-music-streaming.html).<br>
 
@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Tenth Avenue Freeze-Out (Live at Madison Square Garden, New York, NY - 5/16/1988)](https://www.youtube.com/watch?v=jejzR7UcKyk)
 
-![](../../assets/2020/05/1988-05-16.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/1988-05-16.jpg.webp)
 
 **1993:** Bruce’s World Tour continues its German leg with a show in Munich. Watch the complete first set below.<br>
 
@@ -48,7 +48,7 @@
 
 [Watch on Youtube: Birmingham 16/05/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zDaP69n0rjV3tat9WUwhb9O)
 
-![](../../assets/2024/05/Black_Country_Evening_Mail_Mon__May_17__1999_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/Black_Country_Evening_Mail_Mon__May_17__1999_.jpg.webp)
 
 **2006:** The Seeger Sessions Tour makes a stop at the Heineken Music Hall in Amsterdam.<br>
 
@@ -76,7 +76,7 @@
 
 [Watch on Youtube: oklahoma Home Bruce Seeger Sessions Band Tribeca Grill 5-16-15](https://www.youtube.com/watch?v=etXiP7Xcf90)
 
-![](../../assets/2024/05/Daily_Record_Fri__May_22__2015_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/Daily_Record_Fri__May_22__2015_-scaled.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

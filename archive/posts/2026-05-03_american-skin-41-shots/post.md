@@ -195,4 +195,4 @@ I hope we live to see the day when it can be retired.
 
 The Amadou Diallo Foundation advocates for racial equity and promotes education, particularly for students of African descent. You can sponsor or mentor a Diallo scholar, or volunteer your skills at https://amadoudiallofoundation.org/get-involved.html
 
-![](../../assets/2016/01/americanskin_pbaltr.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2016/01/americanskin_pbaltr.jpg.webp)

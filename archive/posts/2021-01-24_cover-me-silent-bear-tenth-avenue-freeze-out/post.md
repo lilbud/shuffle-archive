@@ -37,17 +37,17 @@ Silent Bear and Bruce may never have met, but they're only one degree separated:
 
 Silent Bear connected with Seeger in 2009 to enlist Pete's support in Silent Bear's mission to secure freedom for Native American political prisoner Leonard Peltier. With Pete's blessing, Silent Bear adapted Pete's "[Bring 'em Home](https://estreetshuffle.com/index.php/2021/06/23/rotd-cover-me-bring-em-home/)" to create awareness for Peltier, retitling the song "Bring Him Home" and writing new verses.
 
-![](../../assets/2021/01/letter2.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/letter2.jpg.webp)
 
 Seeger loved Silent Bear's version so much that he invited Silent Bear to perform it with him at a benefit for concert for Peltier in 2012.
 
-![](../../assets/2021/01/seeger2.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/seeger2.jpg.webp)
 
 (Photo credit: Rick Gilbert Photography – Skyhook Entertainment)
 
 Had Bruce not been on tour that year, Silent Bear might have actually had a chance to share the stage with Bruce, too–Seeger invited Bruce early on in the event planning.
 
-![](../../assets/2021/01/seegerspringsteen-1.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/seegerspringsteen-1.jpg.webp)
 
 That concert was an important step in a mission that Silent Bear continues to pursue to this day. It resulted in a friendship with Seeger that lasted until his death in 2014. Shortly before Pete passed away, he contributed tracks (including "Bring Him Home") to Silent Bear's 2014 album *[The Green Lion](https://www.amazon.com/Green-Lion-Silent-Bear/dp/B00LPQNFWS).* Those tracks are among the last recordings Pete ever made.
 

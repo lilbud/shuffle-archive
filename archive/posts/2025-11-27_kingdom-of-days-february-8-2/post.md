@@ -6,15 +6,15 @@
 
 [Watch on Youtube: Action In The Streets (Live at Auditorium Theatre, Rochester, NY - 2/8/1977)](https://www.youtube.com/watch?v=1uDiQrXhij4)
 
-![](../../assets/2020/01/1977-02-07a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/1977-02-07a.jpg.webp)
 
-![](../../assets/2020/01/1977-02-07b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/1977-02-07b.jpg.webp)
 
 **1997:** Bruce plays his second of five solo acoustic shows in Sydney.<br>
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3](https://estreetshuffle.com/wp-content/uploads/2022/02/Straight-Time-1997-02-07.mp3)
 
-![](../../assets/2021/02/1997-02-08.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1997-02-08.png.webp)
 
 **2004:** Bruce and the late Warren Zevon win the Grammy Award for Best Rock Vocal Performance by a Duo or Group with Vocal for “[Disorder in the House.](https://estreetshuffle.com/index.php/2020/06/08/matr-warren-zevon-and-bruce-springsteen-disorder-in-the-house/)”<br>
 

@@ -1,6 +1,6 @@
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](../../assets/2018/03/1968-0322.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1968-0322.jpg.webp)
 
 **1977:** The final stand of the Lawsuit Tour begins with the first of four nights at Boston’s Music Hall.<br>
 
@@ -8,7 +8,7 @@
 
 [Watch on Youtube: Bruce Springsteen The Promise (1977 03 22) Audio](https://www.youtube.com/watch?v=n69ISmlft4I)
 
-![](../../assets/2021/03/1977-0322.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1977-0322.jpg.webp)
 
 **1978:** Bruce works on mixing and overdubs for “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” at the Record Plant in New York City.<br>
 
@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Neil Young and Bruce Springsteen - "Down by the River" - Sydney, 1985-03-22](https://www.youtube.com/watch?v=1Y3URvR1u78)
 
-![](../../assets/2021/03/1985-03-22.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1985-03-22.png.webp)
 
 **1988:** The Tunnel of Love Express Tour stops in Atlanta for the first of two nights at The Omni.<br>
 
@@ -26,15 +26,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ZErDKCJC)
 
-![](../../assets/2020/03/1988-03-22a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1988-03-22a.jpg.webp)
 
-![](../../assets/2020/03/1988-03-22b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1988-03-22b.jpg.webp)
 
 **2003:** Night One in Sydney on the Rising Tour is plagued by power failures–four times in the first hour of the show. But the show goes on, and to thank fans for their patience, Bruce plays “Rosalita (Come Out Tonight)” — its first E Street stage appearance since mid-1999.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/lGOMYAlV)
 
-![](../../assets/2022/03/2003-03-22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/03/2003-03-22.jpg.webp)
 
 **2008:** “Lost in the Flood” and “Glory Days” makes their tour premieres at Bruce’s Magic show at the U.S. Bank Arena in Cincinnati.<br>
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: bruce springsteen cincinnati 3/22/2008](https://www.youtube.com/watch?v=P1Htomf1zu8)
 
-![](../../assets/2021/03/2008-03-22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/2008-03-22.jpg.webp)
 
 **2013:** The third and final night at Sydney’s Allphones arena on the Wrecking Ball Tour brings Australia’s first-ever performance of “Night” and “Prove It All Night (’78).”<br>
 

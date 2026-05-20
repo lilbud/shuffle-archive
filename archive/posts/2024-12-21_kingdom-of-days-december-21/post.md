@@ -2,13 +2,13 @@
 
 **1973: "**Bruce Springsteen and his studio band" headline at Sandy's in Beverly, Massachusetts.<br>
 
-![](../../assets/2019/11/1973-12-21.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/1973-12-21.jpg.webp)
 
 **1975:** Bruce and the E Street Band bring the Born to Run Tour to Seneca College in Toronto.<br>
 
 [Watch on Youtube: Bruce Springsteen - 12/21/75 Toronto Live Concert](https://www.youtube.com/watch?v=olusvTlt3_0)
 
-![](../../assets/2024/12/The_Toronto_Star_1975_12_22_19.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/12/The_Toronto_Star_1975_12_22_19.jpg.webp)
 
 **1985:** *Born in the U.S.A.* passes Michael Jackson's *Thriller* to take the #2 spot for longest-run on the Billboard Top 10. Lasting for an amazing 79 weeks, it still won't come close to the number one champion: the soundtrack to *The Sound of Music*.<br>
 

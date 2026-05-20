@@ -1,14 +1,14 @@
 **1966:** The Castiles perform and compete at a Battle of the Bands at the Matawan-Keyport Roller Drome in Matawan, New Jersey. The Castiles do not win (or even place in the top five), but Bruce meets the drummer of the second place band, Vini Lopez, and one of the judges, Vinnie Roslin, for the first time. Vini, Vinnie and Bruce (along with Danny Federici) will go on to form Steel Mill.<br>
 
-![](../../assets/2018/04/1966-0422.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1966-0422.jpg.webp)
 
-![](../../assets/2020/04/48079400926_4461ce1a1b_o.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/48079400926_4461ce1a1b_o.jpg.webp)
 
 **1976:** Bruce and the E Street Band play a sold-out show at Virginia Tech University. After the show, Bruce zips across town to catch Nils Lofgren's performance at Town Hall.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/XZDPhTNT)
 
-![](../../assets/2020/04/46715349575_b9286b453b_o.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/46715349575_b9286b453b_o.jpg.webp)
 
 **1980:** Bruce completes the mix for "Be True" at Clover Studios in Los Angeles.<br>
 
@@ -16,13 +16,13 @@
 
 **1983:** In newspapers across America, the comic strip *Funky Winkerbean* winks at a certain rising rock star still a year away from megastardom.<br>
 
-![](../../assets/2024/04/Greensboro_Daily_News_Fri__Apr_22__1983_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Greensboro_Daily_News_Fri__Apr_22__1983_-scaled.jpg.webp)
 
 **1984:** Bruce sits in with Cats on a Smooth Surface for three songs at The Stone Pony in Asbury Park.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/PUCyth9U)
 
-![](../../assets/2018/04/1984-0422.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1984-0422.jpg.webp)
 
 **1985:** Bruce concludes his first Japanese tour with a two-night stand in Osaka. This is Night One.<br>
 
@@ -36,9 +36,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/NoyrHe0X)
 
-![](../../assets/2020/04/1988-04-22b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-04-22b.jpg.webp)
 
-![](../../assets/2020/04/1988-04-22-rotated.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-04-22-rotated.jpg.webp)
 
 Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upcoming area show and recent on-sale.
 
@@ -58,7 +58,7 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 [https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3](https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3)
 
-![](../../assets/2021/04/2005-04-22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2005-04-22.jpg.webp)
 
 **2008:** Bruce and the E Street Band play their first show since the passing of Danny Federici. The Tampa show opens with a tribute film set to "Blood Brothers" and opens with an emotional "Backstreets." The band kicks of the encores with a gorgeous rendition of the gospel classic "I'll Fly Away." This show is available for purchase as part of Bruce's official archive series-.<br>
 
@@ -70,9 +70,9 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 [Watch on Youtube: I'll Fly Away (Live at St. Pete Times Forum, Tampa, FL - 4/22/2008)](https://www.youtube.com/watch?v=Z_r09RA759I)
 
-![](../../assets/2021/04/2008-04-22b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2008-04-22b.jpg.webp)
 
-![](../../assets/2020/04/2008-04-22a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2008-04-22a.jpg.webp)
 
 **2009:** Night Two in Boston brings the premiere of "I Wanna Be Sedated" (by request) and a guest-spot/marriage proposal by Tim Brennan of Dropkick Murphys. Making their tour premiere: "For You," "So Young and in Love," and "Seven Nights to Rock."<br>
 
@@ -82,13 +82,13 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 [Watch on Youtube: Bruce Springsteen ~ So Young and In Love - 4/22/09](https://www.youtube.com/watch?v=t7UzgZmNacY)
 
-![](../../assets/2020/04/2009-04-22-rotated.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2009-04-22-rotated.jpg.webp)
 
 **2010:** Bruce receives the Ellis Island Family Heritage Award on Ellis Island in New York City.<br>
 
 [Watch on Youtube: Bruce Springsteen accepting the 2010 Ellis Island Family Heritage Award](https://www.youtube.com/watch?v=oAmVK4JCHbA)
 
-![](../../assets/2020/04/2010-04-22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2010-04-22.jpg.webp)
 
 **2014:** The High Hopes Tour continues to deliver an amazing run of surprises and great performances. This show at the Consol Energy Center in Pittsburgh opens with the premiere of "Clampdown" by The Clash and features the tour premieres of "Stand On It" and "I Wanna Be With You," along with a rare "Back in Your Arms" and some adorable Bruce and Patti interplay on "Seven Nights to Rock."<br>
 
@@ -104,7 +104,7 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce's upc
 
 [Watch on Youtube: Bruce Springsteen - Patti Scialfa 2014-04-22 "Seven Nights To Rock" Pittsburgh](https://www.youtube.com/watch?v=NpE3_6UXHrc)
 
-![](../../assets/2020/04/2014-04-22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2014-04-22.jpg.webp)
 
 The video for "American Beauty" also premieres on this date.
 
@@ -114,11 +114,11 @@ The video for "American Beauty" also premieres on this date.
 
 [Watch on Youtube: Little Steven & the Disciples of Soul w/Bruce Springsteen, Asbury Park, NJ 04/22/2017](https://www.youtube.com/watch?v=GDOEFWUmXUU)
 
-![](../../assets/2021/04/2017-04-22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2017-04-22.jpg.webp)
 
 **2019:** Bruce's official Twitter account posts a mysterious image with no explanation. What could it mean?<br>
 
-![](../../assets/2020/04/april22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/april22.jpg.webp)
 
 **2020:** Bruce and Patti perform "Land of Hope and Dreams" and "Jersey Girl" at the virtual Jersey 4 Jersey benefit for pandemic relief.<br>
 

@@ -6,7 +6,7 @@ Today's entry, "For Never Asking" is at least believed to have been played publi
 
 Bruce dates the handwritten pages below as April 29, 1968, but as the notebook contains 11 songs date-stamped over a three-day period, it's likely that the date represents when Bruce transcribed the songs, not when he composed them.
 
-![](../../assets/2018/08/forneverasking_lyrics.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/forneverasking_lyrics.jpg.webp)
 
 It's interesting to note that the first page of lyrics are transcribed almost in paragraph form, rather than in a one-lyric-per-line format, and that strikes me as curious. It's not always a matter of not being able to fit a complete line, so I wonder why Bruce chose that particular format only for the first four verses.
 

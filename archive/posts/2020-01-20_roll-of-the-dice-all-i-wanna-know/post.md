@@ -4,7 +4,7 @@ I've written about several of the entries in Bruce's "[notebook series](https://
 
 Here's another unfinished one–it's actually barely even started–and while it's undated, the idealistic lyrics almost certainly place it during Bruce's Steel Mill period, when anti-war songs were staples of his songwriting output.
 
-![](../../assets/2020/01/40381067942_f039cd7e89_o.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/40381067942_f039cd7e89_o.jpg.webp)
 
 "All I Wanna Know" is little more than a verse at this point, although we do have some chord notation to give us a hint of what the song would have sounded like, along with what appears to be the first line of a chorus.
 

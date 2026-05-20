@@ -2,11 +2,11 @@
 
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](../../assets/2018/07/1968-0706.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1968-0706.jpg.webp)
 
 **1973:** Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.<br>
 
-![](../../assets/2019/06/mainpoint.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/06/mainpoint.jpg.webp)
 
 **1975:** Bruce and the E Street Band work on "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" at a *Born to Run* recording session at the Record Plant in New York City.<br>
 
@@ -30,7 +30,7 @@
 
 [Watch on Youtube: London 06/07/1985](https://www.youtube.com/playlist?list=PLJTyL9twk3zB3A7RZuw2uFaPLaMNz2oOs)
 
-![](../../assets/2024/06/Sunday_Mirror_1985_07_07_3-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Sunday_Mirror_1985_07_07_3-scaled.jpg.webp)
 
 **1989:** *Nebraska* is certified platinum and [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) is certified double platinum by the Recording Industry Association of America.<br>
 
@@ -42,7 +42,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/AzSUcXXM)
 
-![](../../assets/2018/07/1992-0706.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1992-0706.jpg.webp)
 
 **2019:** Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with Garry Tallent & The Delevantes on "[Dirty Rotten Shame](https://estreetshuffle.com/index.php/2021/08/05/matr-garry-tallent-and-bruce-springsteen-dirty-rotten-shame/)," and later joining Southside Johnny & The Asbury Jukes for seven songs.<br>
 
@@ -58,9 +58,9 @@
 
 [Watch on Youtube: Bruce Springsteen and Southside Johnny: Havin' A Party at the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=At_NGkleZUI)
 
-![](../../assets/2021/07/2019-07-06a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/2019-07-06a.jpg.webp)
 
-![](../../assets/2020/07/2019-07-06b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2019-07-06b.jpg.webp)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: Dave Marsh and Barbara Carr.<br>
 

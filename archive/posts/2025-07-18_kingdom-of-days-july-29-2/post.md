@@ -2,15 +2,15 @@
 
 **1953:** Singer/songwriter and First Lady of E Street Vivienne Patricia Scialfa is born on this day in Deal, New Jersey. Happy birthday, Patti!<br>
 
-![](../../assets/2018/07/patti.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/patti.jpg.webp)
 
 **1966:** The Castiles headline at the Loew’s 35 Shore Drive-in Theater’s 10th anniversary party in Hazlet, New Jersey.<br>
 
-![](../../assets/2021/07/1966-07-29a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/1966-07-29a.png.webp)
 
-![](../../assets/2020/07/1966-07-29b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1966-07-29b.png.webp)
 
-![](../../assets/2018/07/1966-0729.gif)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1966-0729.gif)
 
 **1971:** The Bruce Springsteen Band plays two shows at D’Scene in South Amboy, New Jersey. The setlist includes “[Natural Magic,](https://estreetshuffle.com/index.php/2020/05/19/roll-of-the-dice-natural-magic/)” “[Goin’ Back to Georgia](https://estreetshuffle.com/index.php/2019/03/07/roll-of-the-dice-goin-back-to-georgia/),” “[Dance Dance Dance](https://estreetshuffle.com/index.php/2018/06/22/roll-of-the-dice-dance-dance-dance/),” and more.<br>
 
@@ -26,25 +26,25 @@
 
 [Watch on Youtube: Bruce Springsteen - AROUND AND AROUND 1978 (audio)](https://www.youtube.com/watch?v=LOhgVbjnd84)
 
-![](../../assets/2021/07/1978-07-29.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/1978-07-29.png.webp)
 
-![](../../assets/2020/07/1978-07-29b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1978-07-29b.png.webp)
 
-![](../../assets/2020/07/1978-07-29c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1978-07-29c.png.webp)
 
-![](../../assets/2021/07/1978-0729.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/1978-0729.jpg.webp)
 
 **1981:** Southside Johnny guest-stars on “[I Don’t Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)” when Bruce and the E Street Band bring the River Tour to Richfield for the first of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/NOq3rVa8)
 
-![](../../assets/2018/07/1981-0729.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1981-0729.jpg.webp)
 
-![](../../assets/2020/07/1981-07-29.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1981-07-29.png.webp)
 
 **1987:** Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey.<br>
 
-![](../../assets/2020/07/1987-07-29.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1987-07-29.png.webp)
 
 **1999:** At Night Seven of the opening fifteen-night stand of the U.S. Reunion Tour in the Meadowlands, Bruce opens with the first “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” in 18 years and tour debuts (officially) a corny and charming “[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)” for Patti’s birthday. Bobby Bandiera makes an encore guest appearance on “[Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)”<br>
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: East Rutherford 29/07/1999](https://www.youtube.com/playlist?list=PLJTyL9twk3zBj_Sk6Ezsy7cxeo2jnkjqY)
 
-![](../../assets/2020/07/1999-07-29.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1999-07-29.png.webp)
 
 **2020:** On the occasion of Patti Scialfa’s 67th birthday, her husband debuts Volume 9 of his ongoing radio show, *From My Home to Yours*. This episode is entitled (appropriately) “Rumble Doll.”<br>
 

@@ -2,9 +2,9 @@
 
 **1972:** The Bruce Springsteen Band headlines at Red Bank Catholic High School in Red Bank, New Jersey.<br>
 
-![](../../assets/2020/04/1972-04-21.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1972-04-21.jpg.webp)
 
-![](../../assets/2018/04/1972-0421.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1972-0421.jpg.webp)
 
 **1976:** Bruce and the E Street Band play a sparsely attended show at Knoxville Civic Auditorium in Knoxville, Tennessee.<br>
 
@@ -34,23 +34,23 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication*, produced 
 
 [Watch Video Highlight](https://videopress.com/embed/pRzGj32m)
 
-![](../../assets/2020/04/2000-04-21a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2000-04-21a.jpg.webp)
 
-![](../../assets/2021/04/2000-04-21b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2000-04-21b.jpg.webp)
 
 **2005:** Bruce plays his first public warm-up show for his upcoming solo tour, a benefit for World Hunger Year at the Paramount in Asbury Park. Several *Devils & Dust* tracks get their live premieres and "[Part Man, Part Monkey](https://estreetshuffle.com/index.php/2022/02/19/roll-of-the-dice-part-man-part-monkey/)" is played for the first time in 17 years.<br>
 
 [Watch on Youtube: Bruce Springsteen Tougher Than The Rest (Piano 2005 04 21) Audio](https://www.youtube.com/watch?v=C7kHCfWJ6mY)
 
-![](../../assets/2020/04/2005-04-21.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2005-04-21.jpg.webp)
 
 **2007:** Bruce attends the annual Kirsten Ann Carr Fund gala (along with Elvis Costello) at the Tribeca Grill in New York.<br>
 
-![](../../assets/2019/04/elvis.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/04/elvis.jpg.webp)
 
 **2008:** Bruce [eulogizes](https://www.rollingstone.com/music/news/bruce-springsteen-pens-touching-eulogy-to-danny-federici-20080425) Danny Federici at Danny's funeral in Red Bank. The band'sscheduled show in Tampa is postponed to the following day.<br>
 
-![](../../assets/2021/04/2008-04-21.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2008-04-21.jpg.webp)
 
 **2009:** At the first of two nights at Boston's TD Garden, Bruce and the band play "[I'm Bad, I'm Nationwide](https://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/)" (by request) for the first time in 25 years.<br>
 
@@ -60,11 +60,11 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication*, produced 
 
 [Watch on Youtube: Boston 21/04/2009](https://www.youtube.com/playlist?list=PLJTyL9twk3zBhyMJIQBVcmK8KqXpQ8Ouf)
 
-![](../../assets/2020/04/2009-04-21.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2009-04-21.jpg.webp)
 
 **2012:** Bruce attends the annual Kirsten Ann Car Fund benefit at the Tribeca Grill in New York City.<br>
 
-![](../../assets/2018/04/2012-0421.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/2012-0421.jpg.webp)
 
 **2017:** An amazing assembly of local talent: Bruce, Southside Johnny, Little Steven and the Disciples of Soul and others join forces to form a one-time-only Upstage Jam Band at the Paramount Theater in Asbury Park prior to the premiere of *Just Before the Dawn*, a documentary about the famous local club.<br>
 
@@ -78,9 +78,9 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication*, produced 
 
 [Watch on Youtube: Just Before The Dawn Trailer](https://www.youtube.com/watch?v=Ion1vlKrsgM)
 
-![](../../assets/2020/04/2017-04-21a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2017-04-21a.jpg.webp)
 
-![](../../assets/2020/04/2017-04-21b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2017-04-21b.jpg.webp)
 
 **2018:** Bruce and Patti attend (but do not perform at) the 25th Kirsten Ann Carr Fund benefit at the Tribeca Grill in New York City.<br>
 

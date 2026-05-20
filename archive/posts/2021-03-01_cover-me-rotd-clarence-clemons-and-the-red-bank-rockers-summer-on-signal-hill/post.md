@@ -16,7 +16,7 @@ Intriguingly, though, when the E Street Band rehearsed the song, it was known as
 
 The retitling appears to have been a late decision, however, because when the song was originally issued as the B-side to "[A Woman's Got the Power](https://estreetshuffle.com/index.php/2018/03/01/cover-me-a-womans-got-the-power/)" in Australia, it was actually called "Now and Forever."
 
-![](../../assets/2021/03/nowandforever.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/nowandforever.jpg.webp)
 
 Dave Marsh set the record straight in the very next issue of *Backstreets*, but for many fans, the is-it-or-isn't-it debate continued.
 

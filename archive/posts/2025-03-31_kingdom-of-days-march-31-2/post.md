@@ -2,17 +2,17 @@
 
 **1960:** Bruce receives his bear merit badge at the monthly meeting for Cub Scout Pack 18 at St. Rose of Lima in Freehold.<br>
 
-![](../../assets/2020/03/1960-03-31.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1960-03-31.jpg.webp)
 
 **1981:** Bruce postpones a show in Newcastle to recover from the previous leg of the River Tour.<br>
 
-![](../../assets/2018/03/1981-0318.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1981-0318.jpg.webp)
 
 **1985:** Bruce and the E Street Band play the biggest concert in Brisbane's history (at the time) at QEII Sports Center.<br>
 
 [Watch on Youtube: Bruce Springsteen Born in the USA Tour. 1985 TV report from Brisbane, AUSTRALIA](https://www.youtube.com/watch?v=xm7UGF0JCAo)
 
-![](../../assets/2020/03/1985-03-31.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1985-03-31.jpg.webp)
 
 **1992:** Bruce releases both his *Human Touch* and *Lucky Town* albums.<br>
 
@@ -24,11 +24,11 @@
 
 [Watch on Youtube: Bruce Springsteen Lucky Town and Human Touch record sales](https://www.youtube.com/watch?v=6pu2LR1Sc6M)
 
-![](../../assets/2020/03/1992-03-31.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1992-03-31.jpg.webp)
 
-![](../../assets/2021/03/Springsteen-Lucky-Human-Buy-Sheets_0003.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/Springsteen-Lucky-Human-Buy-Sheets_0003.jpg.webp)
 
-![](../../assets/2020/03/Springsteen-Lucky-Human-Buy-Sheets_0010.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/Springsteen-Lucky-Human-Buy-Sheets_0010.jpg.webp)
 
 (marketing plan and USA Today scan courtesy of reader Andy Swanson)
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Bruce Springsteen If I Should Fall Behind (1993 03 31) Audio](https://www.youtube.com/watch?v=Ree-J3qcNFY)
 
-![](../../assets/2020/03/45909604145_7980ef75de_o.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/45909604145_7980ef75de_o.jpg.webp)
 
 **1996:** Bruce's scheduled solo show in Berlin is postponed to the following month so that he can perform at this year's Oscars ceremony.<br>
 
@@ -50,13 +50,13 @@ If you aren't in Denver tonight, you still have a chance to see The Boss: the mo
 
 [Watch Video Highlight](https://videopress.com/embed/e9i42Z2L)
 
-![](../../assets/2021/03/2000-03-31.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/2000-03-31.png.webp)
 
 **2008:** An "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" opener and very rare "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)" highlight the E Street Band's show at GM Place in Vancouver, BC on the Magic Tour. For more highlights from this show, see my [*Where the Band Was* report from this show.](https://estreetshuffle.com/index.php/2018/03/31/where-the-band-was-vancouver-march-31-2008/)<br>
 
 [Watch on Youtube: Bruce Springsteen - Trapped](https://www.youtube.com/watch?v=nXArxxN1qKE)
 
-![](../../assets/2020/03/2008-03-31.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2008-03-31.jpg.webp)
 
 **2013:** Bruce and the E Street Band wrap up the Australian leg of the Wrecking Ball Tour with a second show at Hanging Rock in Macedon. Jimmy Barnes guests for "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."<br>
 

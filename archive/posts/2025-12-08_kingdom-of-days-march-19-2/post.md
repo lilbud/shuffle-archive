@@ -1,6 +1,6 @@
-![](../../assets/2020/03/2016-03-19a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2016-03-19a.jpg.webp)
 
-![](../../assets/2020/03/2016-03-19b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2016-03-19b.jpg.webp)
 
 **1974:** Bruce and his band play two shows at their second night at Gertie’s in Dallas.<br>
 
@@ -10,13 +10,13 @@
 
 [Watch on Youtube: This bag once carried Springsteen's denim jacket](https://www.youtube.com/watch?v=fEOcwFaOlos)
 
-![](../../assets/2024/03/The_Lewiston_Daily_Sun_Sat__Mar_19__1977_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/03/The_Lewiston_Daily_Sun_Sat__Mar_19__1977_-scaled.jpg.webp)
 
 **1981:** A scheduled show in London is postponed due to Bruce’s exhaustion from the first two legs of the River Tour.<br>
 
 **1985:** Bruce arrives in Sydney two days before what will be his first-ever show in Australia.<br>
 
-![](../../assets/2021/03/1985-03-19.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1985-03-19.png.webp)
 
 **1996:** Bruce plays his first-ever show in Northern Ireland, at King’s Hall in Belfast. This show is available as part of Bruce’s official archive series.<br>
 
@@ -34,11 +34,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/yPtVKHzK)
 
-![](../../assets/2020/03/1999-03-19a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1999-03-19a.jpg.webp)
 
-![](../../assets/2020/03/1999-03-19b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1999-03-19b.jpg.webp)
 
-![](../../assets/2021/03/1999-03-19c.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1999-03-19c.jpg.webp)
 
 **2000:** Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.<br>
 

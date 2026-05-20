@@ -6,11 +6,11 @@ Several songs from this era have surfaced on bootlegs; check out "Dance Dance Da
 
 But many still haven't, including "Sometimes at Night," known to have been played by The Bruce Springsteen Band on at least one summer night in 1971, thanks to the surviving setlist below.
 
-![](../../assets/2019/05/setlist.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/05/setlist.jpg.webp)
 
 But no audio of "Sometimes at Night" has ever turned up. So imagine the surprise of fans who discovered this handwritten lyrics sheet on display at the Brussels Hard Rock Cafe in 2013:
 
-![](../../assets/2019/05/sometimesatnight_lyrics.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/05/sometimesatnight_lyrics.jpg.webp)
 
 It's only the first page of the song–almost certainly just the set-up–and since the song is known to have been performed live, we can assume that Bruce eventually finished it. But it's enough to give us some insight into the song's subject:
 

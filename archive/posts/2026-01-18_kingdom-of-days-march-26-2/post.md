@@ -1,18 +1,18 @@
 **1976:** At the Fox Theater in Atlanta, Bruce premieres an early version of “Frankie.”<br>
 
-![](../../assets/2021/03/1976-03-26.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1976-03-26.png.webp)
 
-![](../../assets/2018/03/1976-0326.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1976-0326.jpg.webp)
 
 **1988:** “Ain’t Got You” makes its live debut during Bruce’s Tunnel of Love Express show at the Rupp Arena in Lexington.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2KwzHwiH)
 
-![](../../assets/2021/03/1988-03-26.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1988-03-26.png.webp)
 
-![](../../assets/2020/03/1988-03-26a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1988-03-26a.jpg.webp)
 
-![](../../assets/2020/03/1988-03-26b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1988-03-26b.jpg.webp)
 
 **1992:** *CBS This Morning* previews Bruce’s upcoming albums, *Human Touch* and *Lucky Town*.<br>
 
@@ -28,9 +28,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/4qMPO9xF)
 
-![](../../assets/2021/03/2012-03-26.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/2012-03-26.png.webp)
 
-![](../../assets/2020/03/2012-03-26.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2012-03-26.jpg.webp)
 
 **2013:** Bruce and the E Street Band play their second of three nights at Melbourne’s Rod Laver Arena.<br>
 

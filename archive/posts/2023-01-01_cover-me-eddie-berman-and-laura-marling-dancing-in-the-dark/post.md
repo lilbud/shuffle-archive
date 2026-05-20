@@ -6,7 +6,7 @@ On our second of three nights, we happened upon an absolutely spectacular amaro 
 
 The bar’s inventory was jaw-dropping: with over five hundred varieties of wonderfully bitter herbaceous quaffs on hand (including several vintage bottles older than I am), I couldn’t begin to figure out where to start, so I placed myself in the hands of our knowledgeable bartender, who proceeded to ply us with nine different concoctions from several decades to try.
 
-![](../../assets/2019/12/amaro2.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/12/amaro2.jpg.webp)
 
 About a half-hour in to our amazing tasting experience, I was feeling pretty good. We’d found a warm, quiet bar to escape the cold, rainy evening; I had my wife by my side; we had a friendly and attentive bartender before us who was excited to share his considerable knowledge; a wonderful meal awaited us; and I was feeling pleasantly toasty from the amaro.
 
@@ -27,5 +27,3 @@ It holds too much meaning for me to judge it objectively, so I can’t say. I ju
 Ironically, it turns out Berman is a fellow Pacific Northwesterner. I may have had to go all the way to Rome to discover him, but I’ll be at the Sunset Tavern in Seattle to see him when he swings by in January.
 
 I hope he plays “Dancing in the Dark.”
-
- 

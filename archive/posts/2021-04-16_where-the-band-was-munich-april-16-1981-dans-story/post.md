@@ -20,13 +20,13 @@ As it was the last night in Germany, there was a big reception laid on backstage
 
 So we drove to CC's hotel, went up to his room, and he welcomed us all with champagne!
 
-![](../../assets/2021/04/df5.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/df5.png.webp)
 
 We sat and listened to his latest recordings on *Dedication*: 'That's me!' he'd say, on a sax solo. His other cassettes included the Fabulous Thunderbirds and Stevie Wonder.
 
 Rena took photos and got Ilona and Hubert to take some of us. I saw the tour handbook and made a mental note that a second Stafford gig had been penciled in for 22nd May. Entries included: "Tuesday – day off – have a good time!"
 
-![](../../assets/2021/04/df6.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/df6.png.webp)
 
 We must have stayed a couple of hours. Clarence offered to give us rooms at the Hilton, but the others had to go to work the next day, so we all drove back in the wee wee hours and left CC to travel to Paris the next day with the band.
 

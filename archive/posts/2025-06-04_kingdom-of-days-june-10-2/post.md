@@ -2,7 +2,7 @@
 
 **1973:** Bruce and his band open for Chicago at the Civic Center in Springfield.<br>
 
-![](../../assets/2025/06/The_Morning_Union_1973_06_11_4.jpg) ![](../../assets/2025/06/The_Republican_1973_06_11_11-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/06/The_Morning_Union_1973_06_11_4.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/06/The_Republican_1973_06_11_11-scaled.jpg.webp)
 
 **1977:** Bruce and the E Street Band hold recording sessions for what will become *Darkness on the Edge of Town* at Atlantic Studios in New York City.<br>
 
@@ -12,9 +12,9 @@
 
 [Watch on Youtube: She's the One-78.Ipod.mp4](https://www.youtube.com/watch?v=LH4de0n_t9U)
 
-![](../../assets/2020/05/1978-06-10a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/1978-06-10a.jpg.webp)
 
-![](../../assets/2020/05/1978-06-10b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/1978-06-10b.jpg.webp)
 
 **1983:** Bruce and the E Street Band record “[Richfield Whistle](https://estreetshuffle.com/index.php/2022/12/01/roll-of-the-dice-richfield-whistle/)” at The Hit Factory in New York City. As of this writing, it has yet to see an official release (but stay tuned).<br>
 
@@ -44,7 +44,7 @@ Also on this date in 2003: the BBC premieres a three-part series narrated by Joh
 
 [Watch Video Highlight](https://videopress.com/embed/opayhzP9)
 
-![](../../assets/2020/05/2006-06-10.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2006-06-10.jpg.webp)
 
 **2009:** At Night Two in Bergen on the Working on a Dream Tour, Bruce treats Norwegian fans to the tour premieres of “[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)” and “[Two Hearts.](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)”<br>
 

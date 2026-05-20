@@ -1,6 +1,6 @@
 **1971:** Bruce joins an acoustic jam session (along with Steve Van Zandt on acoustic slide guitar, Kevin Kavanaugh on piano, and Vini Lopez on pebble-filled soda cans) at an outdoor folk concert organized by Tinker West.<br>
 
-![](../../assets/2020/08/1971-08-05.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1971-08-05.png.webp)
 
 **1976:** Bruce and the E Street Band play their fourth of six nights at the Monmouth Arts Center in Red Bank.<br>
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=q8rw9izpMaY)
 
-![](../../assets/2021/08/1978-08-05.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1978-08-05.png.webp)
 
 After the show, Bruce sits down for an interview with Australian journalist David White. Listen to the interview below.
 
@@ -34,11 +34,11 @@ After the show, Bruce sits down for an interview with Australian journalist Davi
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=whX8b364K64)
 
-![](../../assets/2020/07/1984-08-05a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1984-08-05a.png.webp)
 
-![](../../assets/2020/07/1984-08-05b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1984-08-05b.png.webp)
 
-![](../../assets/2020/07/1984-08-05c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1984-08-05c.png.webp)
 
 **1985:** Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tour–his first all-stadium tour–at RFK Stadium in Washington, DC. This show is notable for the second of only three performances ever of "Man at the Top," the first U.S. performance of "Seeds," and the first time Bruce closes a show with "Sherry Darling."<br>
 
@@ -50,15 +50,15 @@ Because this show marks Bruce's return to the U.S. and the first time playing to
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=n54Xk96HALs)
 
-![](../../assets/2020/07/1985-08-05a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1985-08-05a.png.webp)
 
-![](../../assets/2020/07/1985-08-05b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1985-08-05b.png.webp)
 
-![](../../assets/2020/07/1985-08-05c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1985-08-05c.png.webp)
 
 **1992:** Jeff Porcaro of Toto, who played drums on most of the *Human Touch* album, passes away at the age of 38.<br>
 
-![](../../assets/2020/07/1992-08-05.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1992-08-05.png.webp)
 
 **2002:** The fourth rehearsal show for the Rising Tour is the first in an arena, an invitation-only show at the Continental Airlines Arena in East Rutherford.<br>
 
@@ -66,4 +66,4 @@ Because this show marks Bruce's return to the U.S. and the first time playing to
 
 **2006:** Bruce makes a guest appearance with John Fogerty at John's show at the PNC Bank Arts Center in Holmdel, playing "Long Tall Sally."<br>
 
-![](../../assets/2018/08/2006-0805.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/2006-0805.jpg.webp)

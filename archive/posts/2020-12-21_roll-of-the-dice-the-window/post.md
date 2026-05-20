@@ -4,13 +4,13 @@ While many of those prehistoric songs were incomplete and some were just wisps, 
 
 "The Window" was among the first four entries that Bruce transcribed in his notebook when he broke it in on April 26, 1968.
 
-![](../../assets/2021/06/1968_lyricsnotebook-contentspage.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1968_lyricsnotebook-contentspage.jpg.webp)
 
 Because he entered all four on the same day, it's very likely that all four had been written previously, which would explain their relative polish.
 
 Like much of Bruce's material at the time, "The Window" reveals a preoccupation with the Vietnam War, civil rights, and poverty, unsurprising themes given that the songwriter was at the tender age of eighteen in a year where all three social ills came to a head.
 
-![](../../assets/2020/12/thewindow_lyrics.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/thewindow_lyrics.jpg.webp)
 
 The titular window is a metaphor, representing the personal lens through which we see and interpret the world. Throughout the song, the narrator fights to preserve his window of truth while he is beset by politicians who tell him to trust their windows rather than his own.
 

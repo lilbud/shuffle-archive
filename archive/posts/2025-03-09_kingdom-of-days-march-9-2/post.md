@@ -2,7 +2,7 @@
 
 **1973:** Bruce's scheduled gig opening for Paul Butterfield in Phoenix is cancelled due to low ticket sales.<br>
 
-![](../../assets/2021/02/1973-03-09.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1973-03-09.png.webp)
 
 **1974:** In the afternoon, Bruce stops by KLOL-FM for the second day in a row, this time with the band. They play an extended on-air set that includes "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)," a local radio favorite.<br>
 
@@ -14,7 +14,7 @@ That night, the boys play two shows at Liberty Hall.
 
 **1975:** Violinist Suki Lahav makes her last appearance with Bruce and the E Street Band when the Wild & Innocent Tour wraps up at DAR Constitution Hall in Washington, DC.<br>
 
-![](../../assets/2020/03/1975-03-09.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1975-03-09.jpg.webp)
 
 **1985:** On this week's edition of *American Top 40*, host Casey Kasem regales listeners with tales of Bruce's Monopoly prowess while introducing his latest chart-climber, "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)."<br>
 
@@ -28,7 +28,7 @@ That night, the boys play two shows at Liberty Hall.
 
 [Watch on Youtube: Bruce Springsteen - Human Touch (Official HD Video)](https://www.youtube.com/watch?v=85cNRQo1m3A)
 
-![](../../assets/2021/03/1992-03-09.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1992-03-09.png.webp)
 
 **2000:** The Reunion Tour's Florida swing continues with a show at the National Car Rental Center in Sunrise.<br>
 
@@ -38,11 +38,11 @@ That night, the boys play two shows at Liberty Hall.
 
 [Watch Video Highlight](https://videopress.com/embed/OIp6vgk0)
 
-![](../../assets/2020/03/2000-03-09a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2000-03-09a.jpg.webp)
 
-![](../../assets/2020/03/2000-03-09b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2000-03-09b.jpg.webp)
 
-![](../../assets/2020/03/2000-03-09c.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2000-03-09c.jpg.webp)
 
 **2003:** Bruce grants an interview to *60 Minutes Australia* at his home in New Jersey.<br>
 
@@ -66,9 +66,9 @@ That night, the boys play two shows at Liberty Hall.
 
 [Watch on Youtube: Bruce Springsteen plays intimate venue](https://www.youtube.com/watch?v=iyIfdt9O50g)
 
-![](../../assets/2020/03/2012-03-09a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2012-03-09a.jpg.webp)
 
-![](../../assets/2021/03/2012-03-09b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/2012-03-09b.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is not present tonight, so Bruce plays "[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" in place of "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" and "[Brilliant Disguise.](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)"<br>
 

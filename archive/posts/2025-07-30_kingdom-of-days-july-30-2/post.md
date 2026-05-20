@@ -6,17 +6,17 @@
 
 [Watch on Youtube: Bruce Springsteen - "Up on the Roof" - Washington DC, 1975-07-30](https://www.youtube.com/watch?v=eYu78f4lNvs)
 
-![](../../assets/2018/07/1975-0730.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1975-0730.jpg.webp)
 
 **1981:** Southside Johnny guest-stars on "[I Don't Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)" when Bruce and the E Street Band bring the River Tour to Richfield, Ohio for the second of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/RwhE4R38)
 
-![](../../assets/2020/07/1981-07-30.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1981-07-30.png.webp)
 
-![](../../assets/2018/07/1981-0730.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1981-0730.jpg.webp)
 
-![](../../assets/2018/07/1984-0730.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1984-0730.jpg.webp)
 
 **1984:** At the first of two nights in Detroit on the Born in the U.S.A. Tour, Bruce tour premieres "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" in a new arrangement. In attendance tonight: *Funky Winkerbean* cartoonist Tom Batiuk.<br>
 
@@ -24,9 +24,9 @@
 
 [Watch on Youtube: Bruce Springsteen Born in the USA Concert - 7/30/84](https://www.youtube.com/watch?v=dLdutnQxZUI)
 
-![](../../assets/2021/07/1984-07-30a-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/1984-07-30a-scaled.jpg.webp)
 
-![](../../assets/2021/07/1984-07-30b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/1984-07-30b.jpg.webp)
 
 **1985:** Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.<br>
 
@@ -66,15 +66,15 @@ Finally, ABC's *Nightline* airs Bruce's performance of "[Empty Sky](https://estr
 
 [Watch on Youtube: Bruce Springsteen Empty Sky live nightline 080102](https://www.youtube.com/watch?v=-pgzJ7Iyg6Q)
 
-![](../../assets/2020/07/2002-07-30a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2002-07-30a.png.webp)
 
-![](../../assets/2020/07/2002-07-30b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2002-07-30b.png.webp)
 
-![](../../assets/2020/07/2002-07-30c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2002-07-30c.png.webp)
 
 **2007:** Bruce's close friend, personal assistant, and right-hand man Terry Magovern passes away at the age of 67. Terry's life and death will inspire Bruce to write "[Terry's Song](https://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)."<br>
 
-![](../../assets/2020/07/2007-07-30.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2007-07-30.png.webp)
 
 **2009:** A beautiful set list in Benidorm, Spain, on the Working on a Dream Tour, as "[Janey, Don't You Lose Heart,](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)" "[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)," and "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" receive their tour debuts and "[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)" gets a rare outing.<br>
 

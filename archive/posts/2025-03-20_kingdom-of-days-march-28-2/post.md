@@ -2,19 +2,19 @@
 
 **1970:** Steel Mill plays a second night at the Hullabaloo in Richmond.<br>
 
-![](../../assets/2018/03/1970-0328.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1970-0328.jpg.webp)
 
 **1976:** Bruce and the E Street Band play a gig at Duke University, where “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” makes its proper live debut.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-03-28 Cameron Indoor Stadium, Durham, NC](https://www.youtube.com/watch?v=5oWCb3rgJHA)
 
-![](../../assets/2021/03/1976-03-28.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1976-03-28.jpg.webp)
 
 **1979:** Three Mile Island nuclear power plant partially melts down in Pennsylvania. The incident inspires Bruce to write “[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/).”<br>
 
 **1981:** Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.<br>
 
-![](../../assets/2018/03/1981-0318.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1981-0318.jpg.webp)
 
 **1985:** At their fifth and final night in Sydney on the Born in the U.S.A. Tour, Bruce and the E Street Band play “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/).” It will be a full twenty-five years before anyone hears the E Street Band perform it again.<br>
 
@@ -34,11 +34,11 @@
 
 [Watch on Youtube: Bruce Springsteen: Inside Tunnel of Love on VH1 1988](https://www.youtube.com/watch?v=Ms1q_1m69ng)
 
-![](../../assets/2021/03/1988-03-28b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1988-03-28b.jpg.webp)
 
-![](../../assets/2021/03/1988-03-28c.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1988-03-28c.jpg.webp)
 
-![](../../assets/2022/03/1988-03-28a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/03/1988-03-28a.jpg.webp)
 
 **2003:** Bruce and the E Street Band play their first-ever show in New Zealand at the Western Springs Stadium in Auckland, where he tour premieres “[Who’ll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/).”<br>
 
@@ -48,7 +48,7 @@
 
 [Watch on Youtube: Bruce Springsteen - For You - Portland - March 28, 2008](https://www.youtube.com/watch?v=l9TWdEzs04g)
 
-![](../../assets/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg) ![](../../assets/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg.webp)
 
 **2012:** At the first of two nights at the Wells Fargo Center in Philadelphia, “[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)” makes a very rare appearance.<br>
 
@@ -58,7 +58,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Seaside Bar Song (2012-03-28, Philadelphia)](https://www.youtube.com/watch?v=Pi-92tTOCUM)
 
-![](../../assets/2022/03/2012-03-28-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/03/2012-03-28-scaled.jpg.webp)
 
 **2016:** At Madison Square Garden in NYC, Bruce breaks out the tour premiere of “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)” with its classic segue into “Jungleland” in the post-album set.<br>
 
@@ -70,7 +70,7 @@
 
 **2018:** *Springsteen on Broadway* reaches a milestone–the 100th show–in its theatrical run at the Walter Kerr Theater in New York City. Michael Bloomberg is in attendance tonight.<br>
 
-![](../../assets/2019/03/bloomberg.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/03/bloomberg.jpg.webp)
 
 **2024:** Bruce and the E Street Band return to San Francisco after more than two decades away, opening the show with “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” for the first time in 47 years.<br>
 

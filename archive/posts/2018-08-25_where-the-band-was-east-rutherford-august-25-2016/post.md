@@ -1,6 +1,6 @@
-![](../../assets/2018/08/metlife2-a_LI.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/metlife2-a_LI.jpg.webp)
 
-![](../../assets/2018/08/metlife2-b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/metlife2-b.png.webp)
 
 I feel like I should remember more of this show than I do.
 

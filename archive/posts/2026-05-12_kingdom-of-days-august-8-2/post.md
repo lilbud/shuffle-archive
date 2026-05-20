@@ -1,12 +1,12 @@
 **1970:** A scheduled Steel Mill gig in Long Branch at the aptly named First Annual Nothing's Festival is cancelled when the event's local venues become ensnared in a web of regulatory oversight.<br>
 
-![](../../assets/2021/08/1970-08-08a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1970-08-08a.png.webp)
 
-![](../../assets/2021/08/1970-08-08b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1970-08-08b.png.webp)
 
-![](../../assets/2021/08/1970-08-08c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1970-08-08c.png.webp)
 
-![](../../assets/2019/07/1970-08-08.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/07/1970-08-08.jpg.webp)
 
 **1974:** Bruce places a famous ad in the Village Voice classifieds. Among the respondents: Roy Bittan and Max Weinberg.<br>
 
@@ -30,8 +30,8 @@
 
 [Watch Video Highlight](https://videopress.com/embed/RC0F6oBf)
 
-![](../../assets/2021/08/2003-08-08b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/2003-08-08b.png.webp)
 
 **2018:** *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater in New York City after an almost two-week break. In attendance tonight: Kings of Leon drummer Nathan Followell.<br>
 
-![](../../assets/2021/08/2018-08-08.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/2018-08-08.jpg.webp)

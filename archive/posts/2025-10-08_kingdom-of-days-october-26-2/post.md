@@ -12,25 +12,25 @@
 
 **1973:** Bruce and the as-yet-unnamed E Street Band headline a show for Hobart & William Smith College at the Geneva Theater in Geneva, New York.<br>
 
-![](../../assets/2021/10/1973-1026.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1973-1026.jpg.webp)
 
 **1974:** Bruce and the E Street Band play a gig at the Julia Sanderson Theater in Springfield, Massachusetts.<br>
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Springfield, MA 1974-10-26](https://www.youtube.com/watch?v=tBn8f0qhBkE)
 
-![](../../assets/2023/10/Valley_Advocate_Amherst_1974_10_30_page_14.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/10/Valley_Advocate_Amherst_1974_10_30_page_14.jpg.webp)
 
 **1975:** Bruce plays his first-ever show in Washington state when the Born to Run Tour stops at the Paramount Theater in Seattle.<br>
 
 [Watch on Youtube: Seattle (10/16/1975)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1BMPq5dYzE6I-BOKp7PK3ui)
 
-![](../../assets/2020/10/1975-10-26a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1975-10-26a.png.webp)
 
-![](../../assets/2020/10/1975-10-26b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1975-10-26b.png.webp)
 
 **1976:** Bruce’s scheduled show at the Philadelphia Spectrum is postponed to the following day due to Clarence’s scheduling conflicts.<br>
 
-![](../../assets/2024/10/medium-1.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/10/medium-1.jpg.webp)
 
 **1978:** Bruce and the E Street Band rehearse for the upcoming and final leg of the Darkness Tour at Bruce’s farmhouse in Holmdel.<br>
 
@@ -44,7 +44,7 @@
 
 **1984:** The length of Bruce’ concerts have become legendary–so much so that local DJ Rick Dees discovers how easy it is to convince fans that Bruce’s concert at the Sports Arena last night is still going on this morning. Hundreds of listeners frantically call the arena and two dozen fans make the return trip to catch the end of Bruce’s “overnight encore.”<br>
 
-![](../../assets/2020/10/1984-10-26.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1984-10-26.png.webp)
 
 Later that night, Bruce and the band play their second of seven Born in the U.S.A. shows at the Los Angeles Memorial Sports Arena, and Bruce slips a little “[California Sun](https://estreetshuffle.com/index.php/2020/06/10/cover-me-california-sun/)” into the “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” for the occasion.
 
@@ -58,17 +58,17 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 [Watch on Youtube: Bruce Springsteen - Live In San Jose 1996 - Full Concert (HD Remastered)](https://www.youtube.com/watch?v=sCBAPAwx1eo)
 
-![](../../assets/2020/10/1996-10-26a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1996-10-26a.png.webp)
 
-![](../../assets/2021/10/1996-10-26b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1996-10-26b.png.webp)
 
-![](../../assets/2020/10/1996-10-26c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1996-10-26c.png.webp)
 
 **1999:** Bruce and the reunited E Street Band play their second of three shows at the Oakland Arena.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/3YHZqkbJ)
 
-![](../../assets/2024/10/Record_Searchlight_1999_10_28_38-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/10/Record_Searchlight_1999_10_28_38-scaled.jpg.webp)
 
 **2007:** Night Two in Oakland on the Magic Tour bring tour premieres of “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/),” “Racing in the Street” and “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).” For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/10/26/where-the-band-was-oakland-october-26-2007/)<br>
 
@@ -76,11 +76,11 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 **2009:** Bruce’s cousin and assistant tour manager Lenny Sullivan passes away, prompting the last-minute cancellation of Bruce’s show in Kansas City.<br>
 
-![](../../assets/2020/10/2009-10-26.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2009-10-26.png.webp)
 
 **2014:** Bruce and Jessica are among the list of luminaries attending the opening night of *The Last Ship* on Broadway.<br>
 
-![](../../assets/2024/10/Evening_Standard_2014_10_27_A9.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/10/Evening_Standard_2014_10_27_A9.jpg.webp)
 
 **2017:***Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

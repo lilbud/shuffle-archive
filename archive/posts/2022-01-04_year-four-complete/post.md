@@ -8,11 +8,11 @@ It also marks:
 
 Whether you've been with me from the beginning or just discovered this site for the first time today, I'd like to take a moment to thank you for reading, subscribing, commenting, liking and/or sharing.
 
-![](../../assets/2019/01/thank_you_PNG132.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/01/thank_you_PNG132.png.webp)
 
 I'm continually amazed and humbled that so many people stop by each day. It took more than three years to reach a million article views; this year we'll not only pass the two million but possibly the three-million mark as well!
 
-![](../../assets/2022/01/Capture-1.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/01/Capture-1.png.webp)
 
 And that doesn't even account for those of you who subscribe and are reading this in your inbox right now instead of your browser–you account for over 1.25 million e-mails this past year alone!
 

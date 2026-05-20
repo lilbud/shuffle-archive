@@ -2,7 +2,7 @@
 
 **1958:** Nine-year-old Bruce Springsteen celebrates Thanksgiving with his family. (Can you spot him?)<br>
 
-![](../../assets/2020/11/1958-11-27.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1958-11-27.jpg.webp)
 
 **1970:** Steel Mill opens for two Cactus and Black Sabbath shows at Asbury Park's Sunshine In.<br>
 
@@ -10,31 +10,31 @@
 
 [Watch on Youtube: Bruce Springsteen and Steel Mill: I Gotta Be Free with Turn On Your Lovelight 1970 Asbury Park](https://www.youtube.com/watch?v=Iakqd7kgV2A)
 
-![](../../assets/2023/11/Asbury_Park_Press_Fri__Nov_27__1970_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/11/Asbury_Park_Press_Fri__Nov_27__1970_-scaled.jpg.webp)
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](../../assets/2020/11/1971-11-27.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1971-11-27.png.webp)
 
 **1978:** The holidays are approaching! When Bruce and the E Street Band bring the Darkness Tour to the Mecca Arena in Milwaukee, they dust off "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" for the season.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Santa Claus is Comin' to Town" - Milwaukee, 1978-11-27](https://www.youtube.com/watch?v=yOft2r-2IsY)
 
-![](../../assets/2019/11/47491500642_fa4e3e24cd_o.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/47491500642_fa4e3e24cd_o.jpg.webp)
 
 **1980:** Bruce plays a Thanksgiving Day concert at Madison Square Garden in New York City, and he tells a special Thanksgiving-themed story during "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" to mark the occasion.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Growin' Up" - New York City, 1980-11-27](https://www.youtube.com/watch?v=Lsz2RPMWoY8)
 
-![](../../assets/2019/11/40492583443_560665e215_o.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/40492583443_560665e215_o.jpg.webp)
 
-![](../../assets/2020/11/1980-11-27a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1980-11-27a.png.webp)
 
-![](../../assets/2020/11/1980-11-27b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1980-11-27b.png.webp)
 
 **1982:** Bruce joins Jimmy and The Mustangs on stage at Club Lingerie in Hollywood for "Twist and Shout."<br>
 
-![](../../assets/2018/11/1982-1127.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/11/1982-1127.jpg.webp)
 
 **1995:** The *Tonight Show with Jay Leno* features a guest appearance by Bruce, who performs "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)." The performance will eventually be released on *Video Anthology.*<br>
 

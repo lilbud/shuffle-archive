@@ -2,11 +2,11 @@
 
 **1971:** The Bruce Springsteen Band headlines two shows at D’Scene in South Amboy, New Jersey.<br>
 
-![](../../assets/2018/07/1971-0722.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1971-0722.jpg.webp)
 
 **1973:** Bruce and his band headline two shows at Max’s Kansas City in New York, with The Wailers opening for them.<br>
 
-![](../../assets/2019/07/1973-07-22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/07/1973-07-22.jpg.webp)
 
 **1975:** It’s Night Two on the Born to Run Tour, and the band continues developing the show at the Geneva Theater in Geneva, New York, where “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)” makes its tour debut. At soundcheck, Bruce and the band cover “[Needles and Pins](https://estreetshuffle.com/index.php/2019/02/27/cover-me-needles-and-pins/)” and “[You Really Got Me](https://estreetshuffle.com/index.php/2020/12/01/cover-me-you-really-got-me/).”<br>
 
@@ -16,17 +16,17 @@
 
 [Watch on Youtube: New York 22/07/1975](https://www.youtube.com/playlist?list=PLJTyL9twk3zBU71zy1szdg9oirFfoyzMi)
 
-![](../../assets/2021/07/1975-07-22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/1975-07-22.jpg.webp)
 
-![](../../assets/2020/07/1975-07-22.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1975-07-22.png.webp)
 
 **1976**: CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on “[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)” and “[I Don’t Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/).”<br>
 
-![](../../assets/2018/07/1976-0722.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1976-0722.jpg.webp)
 
 **1978:** Bruce’s Darkness Tour show in Birmingham, Alabama is postponed to September due to a throat infection.<br>
 
-![](../../assets/2024/07/The_Anniston_Star_1978_07_15_Page_27.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/07/The_Anniston_Star_1978_07_15_Page_27.jpg.webp)
 
 **1988:** Fresh off of his history-making East Berlin show, Bruce crosses the border to West Berlin and plays one show at Waldbühne.<br>
 
@@ -40,17 +40,17 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ajyjMPPt)
 
-![](../../assets/2018/07/1995-0722.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1995-0722.jpg.webp)
 
-![](../../assets/2021/07/1995-07-22a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/1995-07-22a.png.webp)
 
-![](../../assets/2020/07/1995-07-22b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1995-07-22b.png.webp)
 
 **2002:** Bruce and the E Street Band rehearse for the upcoming Rising Tour at the Expo Theater in Fort Monmouth.<br>
 
 **2011:** Bruce takes a stroll along the Jersey shore, stops and borrows a guitar, and plays “Born to Run.”<br>
 
-![](../../assets/2018/07/2011-0722.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/2011-0722.jpg.webp)
 
 **2012:** On the one year anniversary of the Norway attacks, Bruce and Steve play “[We Shall Overcome](https://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)” at the memorial concert for the victims in Oslo.<br>
 

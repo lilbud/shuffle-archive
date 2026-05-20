@@ -4,7 +4,7 @@
 
 **1973:** Bruce and the E Street Band wrap a week-long residency at Oliver's in Boston.<br>
 
-![](../../assets/2018/08/1973-0826.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1973-0826.jpg.webp)
 
 **1977:** Bruce and the band work on "[Talk to Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)" during a recording session in New York City.<br>
 
@@ -12,7 +12,7 @@
 
 [Watch on Youtube: Bruce Springsteen - SUMMERTIME BLUES 1978 (audio)](https://www.youtube.com/watch?v=EaEA0CTQTjI)
 
-![](../../assets/2019/08/1978-08-26.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/08/1978-08-26.jpg.webp)
 
 **1979:** Bruce and the E Street Band record "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" at the Power Station in New York City.<br>
 
@@ -28,15 +28,15 @@
 
 [Watch on Youtube: Bruce Springsteen 1985](https://www.youtube.com/watch?v=P9Zzw3qz7Dk)
 
-![](../../assets/2020/08/1985-08-26a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1985-08-26a.png.webp)
 
-![](../../assets/2021/08/1985-08-26b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1985-08-26b.png.webp)
 
 **1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)," "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)," and "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" Afterwards, he zips over to The Columns in Avon, where he performs "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)" and "[Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)" with The Cherubs.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2cGZrAWC)
 
-![](../../assets/2020/08/1987-08-26.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1987-08-26.png.webp)
 
 **1992:** Bruce and his new touring band play their second of two shows at the Capital Center in Largo, MD.<br>
 

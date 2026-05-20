@@ -10,7 +10,7 @@ Here’s that performance (with Bruce playing a supporting role on this one), fr
 
 [Watch on Youtube: Bruce Springsteen & Dave Edmunds - Let's Talk About Us (1982-09-18, Red Bank, NJ)](https://www.youtube.com/watch?v=zrsRXBErrLU)
 
-![](../../assets/2019/03/edmunds.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/03/edmunds.jpg.webp)
 
 **Let’s Talk About Us**<br>
 **First performed:** September 18, 1982 (Red Bank, NJ)<br>

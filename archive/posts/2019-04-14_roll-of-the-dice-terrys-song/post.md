@@ -1,4 +1,4 @@
-![](../../assets/2018/07/terryssong_rememberingterrymagovern1-1.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/terryssong_rememberingterrymagovern1-1.jpg.webp)
 
 From the Asbury Park Press, August 1, 2007:
 

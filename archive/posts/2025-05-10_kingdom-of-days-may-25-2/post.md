@@ -2,7 +2,7 @@
 
 **1973:** Bruce plays the second of three nights at Childe Harold in Washington, DC.<br>
 
-![](../../assets/2018/05/1973-0525.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1973-0525.jpg.webp)
 
 **1974:** A scheduled gig at Archbishop John Carroll High School in Radnor, Pennsylvania is cancelled due to low ticket sales.<br>
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Bruce Springsteen Dublin 25/5/1999 Full Concert](https://www.youtube.com/watch?v=Dm9g9tKWngA)
 
-![](../../assets/2021/05/1999-05-25.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1999-05-25.jpg.webp)
 
 **2006:** [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) is certified gold by the Recording Industry Association of America.<br>
 

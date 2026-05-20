@@ -2,15 +2,15 @@
 
 **1974:** Bruce plays his first-ever show in Texas, at Houston’s Liberty Hall–the first of seven shows at this venue in four days. Photographer Nicki Germaine is on hand to photograph the band, but it will be almost a half-century before fans can enjoy her wonderful photos. Order her book, *Springsteen: Liberty Hall* [here](https://springsteenlibertyhall.com/).<br>
 
-![](../../assets/2018/02/1974-0307.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/02/1974-0307.jpg.webp)
 
 **1975:** Bruce and the E Street Band play a show at the Painters Mill Music Fair in Owings Mills, Maryland.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/2aVBRLsq)
 
-![](../../assets/2020/02/1975-03-07-e1583021787396.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/1975-03-07-e1583021787396.jpg.webp)
 
-![](../../assets/2025/03/The_Evening_Sun_1975_03_19_25.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/03/The_Evening_Sun_1975_03_19_25.jpg.webp)
 
 **1976:** Bruce joins Carole King on stage at the Beacon Theater in New York City in a surprise appearance during the encore of the final night of King’s stand. Bruce and Carole sing “The Loco-Motion” together.<br>
 
@@ -30,13 +30,13 @@
 
 [Watch on Youtube: Bruce Springsteen - TELL ME WHY 2003 (audio)](https://www.youtube.com/watch?v=onZ96Qd8JFA)
 
-![](../../assets/2020/02/2003-03-07a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/2003-03-07a.jpg.webp)
 
-![](../../assets/2020/02/2003-03-07b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/2003-03-07b.jpg.webp)
 
 **2006:** At a listening party preview for *We Shall Overcome: The Seeger Sessions* at B.B. King’s Blues Club in New York City, Bruce previews five songs from the upcoming album and chats with fans.<br>
 
-**![](../../assets/2024/03/2006-03-07.jpg)**<br>
+**![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/03/2006-03-07.jpg.webp)**<br>
 
 **2008:** “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” and “[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)” make their Magic Tour premiere at HSBC Arena in Buffalo.<br>
 
@@ -44,9 +44,9 @@
 
 [Watch on Youtube: Bruce Springsteen - Detroit Medley [live] (Buffalo NY) 2008](https://www.youtube.com/watch?v=5SbwIHloP0Q)
 
-![](../../assets/2024/03/The_Buffalo_News_Sat__Mar_8__2008_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/03/The_Buffalo_News_Sat__Mar_8__2008_.jpg.webp)
 
-![](../../assets/2024/03/The_Buffalo_News_Sat__Mar_8__2008_-1-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/03/The_Buffalo_News_Sat__Mar_8__2008_-1-scaled.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
@@ -58,6 +58,6 @@
 
 [Watch on Youtube: Bruce Springsteen - Kitty's Back - 2023-03-07 - Milwaukee Wi - Fiserv Forum](https://www.youtube.com/watch?v=Qnf7Vgfox_s)
 
-![](../../assets/2024/03/Chicago_Tribune_Thu__Mar_9__2023_-2-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/03/Chicago_Tribune_Thu__Mar_9__2023_-2-scaled.jpg.webp)
 
-![](../../assets/2024/03/Chicago_Tribune_Thu__Mar_9__2023_-1.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/03/Chicago_Tribune_Thu__Mar_9__2023_-1.jpg.webp)

@@ -2,13 +2,13 @@
 
 **1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.<br>
 
-![](../../assets/2018/04/1971-0423.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1971-0423.jpg.webp)
 
 **1973:** Bruce opens for Richie Havens at Bushnell Memorial Hall in Hartford, his first show in Connecticut. Bruce opens the show with the earliest known performance of “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”<br>
 
-![](../../assets/2018/04/1973-0423.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1973-0423.jpg.webp)
 
-![](../../assets/2024/04/Hartford_Courant_Sat__Apr_21__1973_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Hartford_Courant_Sat__Apr_21__1973_-scaled.jpg.webp)
 
 **1975:** Bruce works on “Jungleland” and “Thunder Road” at the Record Plant in New York City.<br>
 
@@ -34,9 +34,9 @@
 
 [Watch on Youtube: Two Faces (Live at LA Arena, Los Angeles, CA - 4/23/1988)](https://www.youtube.com/watch?v=UQVhs7LL2A4)
 
-![](../../assets/2020/04/1988-04-22-rotated.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-04-22-rotated.jpg.webp)
 
-![](../../assets/2020/04/1988-04-22b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-04-22b.jpg.webp)
 
 Also today, *American Top 40* host Casey Kasem introduces Bruce’s current chart-climbing single “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)” with a story about how music helped Bruce survive high school.
 
@@ -58,9 +58,9 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 [Watch on Youtube: VH1 Storytellers](https://www.youtube.com/playlist?list=PLJ3gKh8Ty5paM5xf3_yZM1agDxaMC_2Xu)
 
-![](../../assets/2020/04/2005-04-23a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2005-04-23a.jpg.webp)
 
-![](../../assets/2020/04/2005-04-23b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2005-04-23b.jpg.webp)
 
 **2008:** Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with the rock version of “[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/).” Roger McGuinn guests on “[Turn! Turn! Turn!](https://estreetshuffle.com/index.php/2021/06/09/matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/)” and “[Mr. Tambourine Man](https://estreetshuffle.com/index.php/2019/12/28/matr-bruce-springsteen-and-roger-mcguinn-mr-tambourine-man/)” in the encores, the former of which will appear on the *Magic Tour Highlights* EP later in the year. Also tour premiering at this show: “[Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)” This show is available as part of Bruce’s official archive series–get it [here](https://www.nugs.net/04-11-2025-archive-release-bruce-springsteen-and-the-e-street-band-amway-arena-orlando-florida-april-23-2008.html).<br>
 
@@ -72,9 +72,9 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 [Watch Video Highlight](https://videopress.com/embed/Ifqqc6cS)
 
-![](../../assets/2020/04/2008-04-23a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2008-04-23a.jpg.webp)
 
-![](../../assets/2020/04/2008-04-23b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2008-04-23b.jpg.webp)
 
 **2016:** As the U.S. leg of the River Tour (2016 edition) comes to a close, Bruce opens the first of two closing shows at Brooklyn’s Barclays Center with “[Purple Rain](https://estreetshuffle.com/index.php/2021/03/03/cover-me-purple-rain/)” in tribute to Prince, who passed away two days prior.<br>
 
@@ -90,8 +90,8 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce’s current char
 
 [Watch on Youtube: Patti Smith w/ Bruce Springsteen and Michael Stipe 4/23/18 Beacon](https://www.youtube.com/watch?v=5iOLJTm6YNA)
 
-![](../../assets/2021/04/2018-04-23.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2018-04-23.jpg.webp)
 
 **2019:** For the second day in a row, Bruce’s twitter account offers a mysterious photo with no accompanying text. Rumors begin to fly: is a new album imminent?<br>
 
-![](../../assets/2020/04/2019-04-23.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2019-04-23.jpg.webp)

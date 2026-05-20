@@ -6,7 +6,7 @@ The song appears to have multiple titles: at the top of the page is "Daddy Long 
 
 Only the "phantom love" phrase appears in the lyrics themselves, though, so let's assume that the "daddy long legs/baby son" is an orphan.
 
-![](../../assets/2020/08/phantomlove_lyrics.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/phantomlove_lyrics.jpg.webp)
 
 "Phantom Love (Just 16)" is a bit tough to analyze, because it seems very much like a work in progress. There are no chord notations to give us a sense of its musicality, but the lack of obvious meter or external rhyme scheme suggests that it was probably a slower song (if a song at all).
 

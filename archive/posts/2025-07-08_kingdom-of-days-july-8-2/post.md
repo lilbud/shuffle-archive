@@ -2,7 +2,7 @@
 
 **1973:** Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.<br>
 
-![](../../assets/2019/06/mainpoint.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/06/mainpoint.jpg.webp)
 
 **1975:** Bruce completes "[Linda Let Me Be The One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)" at the Record Plant in New York City. It will remain in the vault for 23 years.<br>
 
@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Raise your hand - July 8th 1978 Memorial Coliseum, Phoenix](https://www.youtube.com/watch?v=qWChNHrQ-SQ)
 
-![](../../assets/2020/06/1978-07-08.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1978-07-08.jpg.webp)
 
 **1981:** Bruce and the E Street Band play their fifth of six nights at the Brendan Byrne Arena in East Rutherford, as the River Tour continues. Two songs–"[Two Heart](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)s" and "[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)"–will be released on *Live 1975-85*. Before the show, Bruce soundchecks his original song "[All I Need,](https://estreetshuffle.com/index.php/2019/12/03/roll-of-the-dice-cover-me-all-i-need/)" which he would eventually donate to Gary U.S. Bonds for his *On the Line* album.<br>
 
@@ -38,9 +38,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/CKvko768)
 
-![](../../assets/2020/06/1984-07-09a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1984-07-09a.jpg.webp)
 
-![](../../assets/2020/06/1984-07-09b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1984-07-09b.jpg.webp)
 
 **1985:** Barely a year after its release, *Born in the U.S.A.* is certified 7x multi-platinum by the Recording Industry Association of America.<br>
 

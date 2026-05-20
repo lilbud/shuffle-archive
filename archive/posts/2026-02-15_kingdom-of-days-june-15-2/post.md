@@ -2,11 +2,11 @@
 
 **1974:** Under record label pressure to release a new single, Bruce and the E Street Band cancel a show at Armadillo World Headquarters in Austin.<br>
 
-![](../../assets/2021/06/1974-06-15a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1974-06-15a.jpg.webp)
 
-![](../../assets/2020/06/1974-06-15b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1974-06-15b.jpg.webp)
 
-![](../../assets/2018/06/1974-0615.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1974-0615.jpg.webp)
 
 **1979:** Bruce and the E Street Band work on "The Price You Pay" at The Power Station in New York City.<br>
 
@@ -14,9 +14,9 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3)
 
-![](../../assets/2020/06/1981-06-15.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1981-06-15.jpg.webp)
 
-![](../../assets/2018/06/1981-0615.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1981-0615.jpg.webp)
 
 **1983:** At The Hit Factory in New York City, Bruce records "Cynthia" and "Don't Back Down." The former won't be released for another fifteen years; the latter for more than forty.<br>
 
@@ -26,9 +26,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TK3GxeQpP1w)
 
-![](../../assets/2019/06/frankfurt.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/06/frankfurt.jpg.webp)
 
-![](../../assets/2018/06/1985-0615.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1985-0615.jpg.webp)
 
 **1988:** "Bobby Jean" makes its Tunnel of Love Tour premiere at the first of two nights at Stadio Flaminio in Rome. Earlier in the day, a photographer catches Bruce in a state of undress with Patti, outing their rumored affair.<br>
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mrTntXBu9sQ)
 
-![](../../assets/2018/06/7ab1b174cfb3545ff0ea7a43b1923906-tunnel-of-love-bruce-springsteen.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/7ab1b174cfb3545ff0ea7a43b1923906-tunnel-of-love-bruce-springsteen.jpg.webp)
 
 **1992:** World Tour 1992 kicks off with the first of two shows at the Globe Arena in Stockholm. A few songs are captured in professional quality video, and you can watch them below.<br>
 
@@ -50,7 +50,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/UmQMQHKN)
 
-![](../../assets/2021/06/1992-06-15.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1992-06-15.jpg.webp)
 
 **1999:** "Take 'em as They Come" makes its live debut when Bruce and the E Street Band bring the Reunion Tour to Offenbach, Germany.<br>
 
@@ -72,9 +72,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/PPu63YUC)
 
-![](../../assets/2020/06/2004-06-15a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/2004-06-15a.jpg.webp)
 
-![](../../assets/2020/06/2004-06-15b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/2004-06-15b.jpg.webp)
 
 **2005:** The Devils & Dust Tour moves on to Frankfurt, where Bruce tour premieres "Countin' on a Miracle."<br>
 
@@ -90,7 +90,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=WNFI4xrZ5e0)
 
-![](../../assets/2021/06/2013-06-15.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/2013-06-15.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

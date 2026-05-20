@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Milton Keynes 22/05/1993](https://www.youtube.com/playlist?list=PLJTyL9twk3zA9F6yQQh4oOTgQnVsCP9ku)
 
-![](../../assets/2021/05/1993-05-22-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1993-05-22-scaled.jpg.webp)
 
 **1997:** Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the true highlight from this date happens afterward: the crowd sticks around outside the theater and sings “O Sole Mio”(which Bruce performed briefly during the show), prompting Bruce to appear on the theater’s balcony with Kevin Buell to play and lead the crowd in a sing-along of “Thunder Road.” Watch this moment–it’s magical.<br>
 
@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Roll of the Dice (Live at Arrowhead Pond, Anaheim, CA - 5/22/2000)](https://www.youtube.com/watch?v=p8s8nvzmbKo)
 
-![](../../assets/2021/05/2000-05-22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2000-05-22.jpg.webp)
 
 **2003:** The Rising Tour stops at Arena Aufschalke in Gelsenkirchen, Germany.<br>
 

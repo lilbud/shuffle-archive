@@ -8,7 +8,7 @@ As it turns out, Father Fred Coleman did.
 
 Coleman was an assistant priest at St. Peter's Church in Freehold when he and another reverend opened The Left Foot, a teen club, next door to the church.
 
-![](../../assets/2020/11/leftfoot.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/leftfoot.jpg.webp)
 
 Coleman (who was "tossed out" of the clergy for being "too progressive," he said in a 2004 *New York Times* interview) opened the club on the evening of September 16, 1967, with The Castiles as its very first headliners.
 

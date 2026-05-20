@@ -1,6 +1,6 @@
 **1981:** The River Tour continues its almost month-long U.K. leg with a show at waterlogged New Bingley Hall in Stafford.<br>
 
-![](../../assets/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg) ![](../../assets/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg.webp)
 
 **1992:** Bruce and his new touring band rehearse for their upcoming tour on a Hollywood soundstage.<br>
 
@@ -12,17 +12,17 @@
 
 [Watch on Youtube: Dublin 20/05/1993](https://www.youtube.com/playlist?list=PLJTyL9twk3zDzppKusEmmORcXq2EtkfRa)
 
-![](../../assets/2024/05/The_Star_Tue__May_25__1993_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/The_Star_Tue__May_25__1993_.jpg.webp)
 
 **1995:** Bruce and Patti attend Don Henley’s wedding. Several musicians are in attendance and perform, including Bruce on “634-5789 (Soulsville, U.S.A.)”<br>
 
-![](../../assets/2018/05/1995-0520.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1995-0520.jpg.webp)
 
 **2005:** The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheum Theater in Boston.<br>
 
-![](../../assets/2020/05/2005-05-20a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2005-05-20a.jpg.webp)
 
-![](../../assets/2020/05/2005-05-20b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2005-05-20b.jpg.webp)
 
 **2006:** “Devils & Dust” makes its Seeger Sessions Tour debut at the Oslo Spektrum.<br>
 

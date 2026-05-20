@@ -8,11 +8,11 @@
 
 **1973:** Bruce and the E Street Band open for Chicago at the Onondaga County War Memorial Auditorium in Syracuse, New York. The local paper mis-identifies Bruce, and they aren’t even close: somehow, they refer to him as “Bris Christy.” Mr. Reschke didn’t do so well with the song titles, either. See if you can figure out the songs Bruce actually played below.<br>
 
-![](../../assets/2025/06/Syracuse_Herald_Journal_1973_06_08_16-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/06/Syracuse_Herald_Journal_1973_06_08_16-scaled.jpg.webp)
 
 **1976:** Bruce and most of the E Street Band join Southside Johnny and The Asbury Jukes on stage at a private party for *Crawdaddy* magazine.<br>
 
-![](../../assets/2021/06/1976-0612.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1976-0612.jpg.webp)
 
 **1977:** Bruce and the band work on “[Don’t Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)” at Atlantic Studios in New York City.<br>
 
@@ -22,7 +22,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/CfWATe2k)
 
-![](../../assets/2024/06/Birmingham_Evening_Mail_Mon__Jun_8__1981_.jpg) ![](../../assets/2024/06/Sandwell_Evening_Mail_Mon__Jun_8__1981_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Birmingham_Evening_Mail_Mon__Jun_8__1981_.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Sandwell_Evening_Mail_Mon__Jun_8__1981_-scaled.jpg.webp)
 
 **1992:** MTV’s Guide to Summer features a spotlight on Bruce’s upcoming World Tour 1992.<br>
 
@@ -70,4 +70,4 @@
 
 **2021:** Bruce announces a return engagement of *Springsteen on Broadway* to help re-open Broadway during a lull in the Great Pandemic.<br>
 
-![](../../assets/2022/06/2021-06-07a-scaled.jpg) ![](../../assets/2022/06/2021-06-07b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/06/2021-06-07a-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/06/2021-06-07b.jpg.webp)

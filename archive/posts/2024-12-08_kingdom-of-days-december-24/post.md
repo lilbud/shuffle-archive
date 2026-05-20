@@ -7,6 +7,6 @@ Bruce and Julianne listen appreciatively as a group of local teens sing Christma
 
 **1985:** [Santa Claus Is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)<br>
 
-![](../../assets/2021/12/1985-12-24a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/12/1985-12-24a.jpg.webp)
 
-![](../../assets/2021/12/1985-12-24b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/12/1985-12-24b.jpg.webp)

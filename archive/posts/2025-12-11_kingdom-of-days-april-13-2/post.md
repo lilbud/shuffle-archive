@@ -1,12 +1,12 @@
 **1951:** E Street Band drummer and late night telly-vision personality Max Weinberg is born in Newark, New Jersey.<br>
 
-![](../../assets/2018/04/max-weinberg.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/max-weinberg.jpg.webp)
 
 **1969:** Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long residency.<br>
 
 **1973:** Bruce cancels a scheduled show at Villanova University at the last minute, no doubt disappointing the local boys scheduled to open for him: Daryl Hall and John Oates.<br>
 
-![](../../assets/2020/04/1973-04-13.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1973-04-13.jpg.webp)
 
 **1974:** Bruce and his band open for Buzzy Linhart at The Joint in the Woods in Parsippany, New Jersey.<br>
 
@@ -16,25 +16,25 @@
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-13 Rec Hall, Penn State University, University Park, PA](https://www.youtube.com/watch?v=gneYR-8u7Vk)
 
-![](../../assets/2024/04/Centre_Daily_Times_Wed__Apr_14__1976_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Centre_Daily_Times_Wed__Apr_14__1976_-scaled.jpg.webp)
 
-![](../../assets/2018/04/1976-0413.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1976-0413.jpg.webp)
 
 **1979:** Bruce guests with Beaver Brown at The Fast Lane in Asbury Park. (Photo credit: Billy Smith)<br>
 
-![](../../assets/2018/04/1979-0413.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1979-0413.jpg.webp)
 
 **1984:** At the Ripley Music Hall in Philadelphia, Bruce joins Clarence Clemons and The Red Bank Rockers midway through their encore of “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” and stays for “Rockin’ All Over the World.” Listen to the moment the crowd realizes who’s there.<br>
 
 [Watch on Youtube: Clarence Clemons and Bruce Springsteen - Philadelphia - 1984-04-13](https://www.youtube.com/watch?v=XlPAOjsEc9c)
 
-![](../../assets/2021/04/1984-04-13.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1984-04-13.jpg.webp)
 
 **1985:** The third of five nights at Tokyo’s Yoyogi National Gymnasium, where Bruce plays “Reason to Believe” for the last time on the tour. Other than the two Christic shows in 1990, the song won’t be heard again for more than a decade.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jH8MQOe7)
 
-![](../../assets/2024/04/Daily_Record_Tue__Apr_16__1985_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Daily_Record_Tue__Apr_16__1985_-scaled.jpg.webp)
 
 Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s current hit “I’m on Fire” with a story about his fascination with Elvis Presley.
 
@@ -56,7 +56,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s curr
 
 [Watch Video Highlight](https://videopress.com/embed/2gsmRPKN)
 
-![](../../assets/2020/04/1999-04-13.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1999-04-13.jpg.webp)
 
 **2002:** Bruce, Patti, Soozie, Southside Johnny, Bobby Bandiera, and Lisa Lowell play a benefit show for the Rumson Country Day School at The Stone Pony. The set is primarily cover tunes, with a few Bruce originals at the end.<br>
 
@@ -64,7 +64,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s curr
 
 [Watch Video Highlight](https://videopress.com/embed/aylHqzwW)
 
-![](../../assets/2020/04/2003-04-13.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2003-04-13.jpg.webp)
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.<br>
 
@@ -76,7 +76,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s curr
 
 [https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3](https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3)
 
-![](../../assets/2021/04/2008-04-13.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2008-04-13.jpg.webp)
 
 **2012:** The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to “Buffalo Gals” and plays “Ramrod” in honor of Max’s birthday in the encores. Tour premiering tonight: “Rendezvous,” “Mountain of Love,” and “Point Blank.”<br>
 
@@ -86,7 +86,7 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s curr
 
 [Watch on Youtube: Ramrod April 13th Springsteen Compilation Edit](https://www.youtube.com/watch?v=mUNQYwJRANQ)
 
-![](../../assets/2025/04/The_Buffalo_News_2012_04_14_1.jpg) ![](../../assets/2025/04/The_Buffalo_News_2012_04_14_2.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/04/The_Buffalo_News_2012_04_14_1.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/04/The_Buffalo_News_2012_04_14_2.jpg.webp)
 
 **2018:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

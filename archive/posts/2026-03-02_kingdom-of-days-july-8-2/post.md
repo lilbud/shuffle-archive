@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qWChNHrQ-SQ)
 
-![](../../assets/2020/06/1978-07-08.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1978-07-08.jpg.webp)
 
 **1981:** Bruce and the E Street Band play their fifth of six nights at the Brendan Byrne Arena in East Rutherford, as the River Tour continues. Two songs–"Two Hearts" and "Candy's Room"–will be released on *Live 1975-85*. Before the show, Bruce soundchecks his original song "All I Need," which he would eventually donate to Gary U.S. Bonds for his *On the Line* album.<br>
 
@@ -34,9 +34,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/CKvko768)
 
-![](../../assets/2020/06/1984-07-09a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1984-07-09a.jpg.webp)
 
-![](../../assets/2020/06/1984-07-09b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1984-07-09b.jpg.webp)
 
 **1985:** Barely a year after its release, *Born in the U.S.A.* is certified 7x multi-platinum by the Recording Industry Association of America.<br>
 

@@ -1,6 +1,6 @@
 **1973:** Bruce and the E Street Band play their third consecutive night at Fat City in Seaside Heights, New Jersey.<br>
 
-![](../../assets/2018/06/1973-0624.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1973-0624.jpg.webp)
 
 **1977:** Bruce and the E Street Band record "Streets of Fire" at Atlantic Studios in New York City.<br>
 
@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j0h8kVXEdX0)
 
-![](../../assets/2021/06/1989-06-24.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1989-06-24.jpg.webp)
 
 **1993:** A momentous night: Bruce and his touring band play a special "Concert to Fight Hunger" at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell… and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in "Tenth Avenue Freeze-Out." For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording.<br>
 
@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=U5oB2t2djEU)
 
-![](../../assets/2021/06/1993-06-24.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1993-06-24.jpg.webp)
 
 **1999:** Night Two in Stockholm on the Reunion Tour.<br>
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aff_zv76sCY)
 
-![](../../assets/2020/06/2006-06-24.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/2006-06-24.jpg.webp)
 
 **2007:** Bruce performs "If I Should Fall Behind" at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for "[You Neve](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)r[Can Tell](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)."<br>
 

@@ -12,13 +12,13 @@
 
 [Watch Video Highlight](https://videopress.com/embed/J4gzbUgC)
 
-![](../../assets/2019/06/mecca.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/06/mecca.jpg.webp)
 
 **1981:** Bruce and Pete Townshend catch U2's gig at the Hammersmith Palais in London.<br>
 
-![](../../assets/2018/06/1981-0609.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1981-0609.jpg.webp)
 
-![](../../assets/2021/06/1981-06-09.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1981-06-09.jpg.webp)
 
 **1985:** Bruce and the E Street Band play their second of two Born in the U.S.A. shows at Ullevi in Gothenburg, Sweden.<br>
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Lean On Me](https://www.youtube.com/watch?v=KMtw59Yefbs)
 
-![](../../assets/2020/05/1989-06-09.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/1989-06-09.jpg.webp)
 
 **2009:** Norwegian fans enjoy the tour premiere of "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)" at the first of two Working on a Dream shows in Bergen.<br>
 

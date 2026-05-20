@@ -15,7 +15,7 @@ That's because we're fortunate enough to have an early draft of Bruce's lyrics f
 
 In this draft, we can see that Sandy is not yet a metaphor. Instead, she's the girl who moved away, an early prototype of "[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)" perhaps, or a precursor to "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)."
 
-![](../../assets/2019/04/4thofjulyasburypark_early_lyrics.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/04/4thofjulyasburypark_early_lyrics.jpg.webp)
 
 In the almost fully formed verse above, we learn that Sandy got bored and moved to the big city.
 

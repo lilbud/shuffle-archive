@@ -1,8 +1,8 @@
 **1973:** Bruce and the (not yet named) E Street Band play a gig at Niagara University in Lewiston, New York. Meanwhile, a couple of hours away in Ithaca, the local paper publishes a review of Bruce’s recently released debut album. Keep an eye on him, the reviewer advises.<br>
 
-![](../../assets/2022/03/1973-03-24.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/03/1973-03-24.jpg.webp)
 
-![](../../assets/2018/03/1973-0324.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1973-0324.jpg.webp)
 
 **1974:** Bruce and the band perform on a revolving stage at the Celebrity Theater in Phoenix. After the show, Bruce grants a fascinating interview to The Phoenix New Times and Arizona State University. You can listen to it below–it’s well worth it.<br>
 
@@ -28,7 +28,7 @@
 
 **1995:** Bruce joins The Blasters on stage at the House of Blues in West Hollywood, backing the band on guitar for two numbers. (Photo credit: J. Coke)<br>
 
-![](../../assets/2018/03/1995-0324.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1995-0324.jpg.webp)
 
 **2008:** Bruce plays “You’ll Be Comin’ Down” for the first and only time when the Magic Tour stops at the Value City Arena in Columbus, Ohio. The set list also features the tour premieres of “Something in the Night” and “Sherry Darling.”<br>
 
@@ -36,13 +36,13 @@
 
 [Watch on Youtube: Bruce Springsteen - You'll Be Comin' Down (Live 24-3-2008)](https://www.youtube.com/watch?v=ZhcOV4f3xho)
 
-![](../../assets/2020/03/2008-03-24.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2008-03-24.jpg.webp)
 
 **2009:** The second and final rehearsal show for the Working on a Dream Tour features the live premiere of “Kingdom of Days” at Asbury Park’s Convention Hall.<br>
 
 [Watch on Youtube: Kingdom Of Days - Asbury Park 2009](https://www.youtube.com/watch?v=aHGw8t9zoGM)
 
-![](../../assets/2022/03/2009-03-24.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/03/2009-03-24.jpg.webp)
 
 **2013:** The Australian leg of the Wrecking Ball Tour moves on to Melbourne for the first of three nights at the Rod Laver Arena.<br>
 

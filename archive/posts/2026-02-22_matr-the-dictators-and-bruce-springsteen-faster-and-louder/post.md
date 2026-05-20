@@ -2,7 +2,7 @@ I'm reaching with this one, but a collaboration is a collaboration. and Bruce Sp
 
 Bruce was a big fan of the influential punk band's first two albums–in fact, he once wore a Dictators tee shirt on stage and dedicated "Born to Run" to them.
 
-![](../../assets/2019/03/dictators-bruce.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/03/dictators-bruce.jpg.webp)
 
 So when it turned out the band was recording their third album in the same building where Bruce was mixing *Darkness on the Edge of Town*, Bruce stopped by for a visit and ended up on vinyl.
 

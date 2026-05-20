@@ -2,15 +2,15 @@ Today's entry is an unusual one. I've covered unreleased songs and even work-in-
 
 The only reason we know that "Until the Rain Comes" exists is that its lyrics were included in the 2006 public auction of a notebook containing lyrics from songs Bruce had written in 1968 at the tender age of eighteen.
 
-![](../../assets/2019/01/1968_lyricsnotebook.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/01/1968_lyricsnotebook.jpg.webp)
 
 The table of contents shows several previously-unknown songs.
 
-![](../../assets/2021/06/1968_lyricsnotebook-contentspage.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1968_lyricsnotebook-contentspage.jpg.webp)
 
 The ninth song, "Until the Rain Comes," is actually known to have been played by Bruce during his solo acoustic shows that spring and summer, but no recording has surfaced.
 
-![](../../assets/2018/04/untiltheraincomes_lyrics.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/untiltheraincomes_lyrics.jpg.webp)
 
 The handwritten lyrics are above (thanks to springsteenlyrics.com), but here they are transcribed:
 

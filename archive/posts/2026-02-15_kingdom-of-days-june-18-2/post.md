@@ -1,38 +1,38 @@
 **1968:** The Castiles serve as guest judges and provide the closing performance at the Long Branch YMCA Battle of the Bands.<br>
 
-![](../../assets/2018/06/1968-0618.gif)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1968-0618.gif)
 
 **1971:** The Sundance Blues Band plays two shows at The Upstage in Asbury Park.<br>
 
-![](../../assets/2018/06/1971-0618.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1971-0618.jpg.webp)
 
 **1983:** Bruce makes a guest appearance at The Stone Pony with The Diamonds. Listen to their mini-set of "Around and Around, "Lucille," and "Twist and Shout" below.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/bfu6gyfx)
 
-![](../../assets/2018/06/1983-0618.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1983-0618.jpg.webp)
 
 **1985:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Munich for a show at Olympiastadion.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/1ITbMJo8)
 
-![](../../assets/2018/06/1985-0618.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1985-0618.jpg.webp)
 
 **1988:** In town for their Tunnel of Love show the following night, Bruce and Clarence make a guest appearance at the S.O.S. Racisme concert in Paris. The pair perform a mini-set, Bruce on guitar and harmonica and Clarence on sax and backing vocals. Watch this very unusual and beautiful performance below, including a wonderful "The Promised Land" and the first-ever acoustic performance of "My Hometown."<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7kltDPpjiP0)
 
-![](../../assets/2021/06/1988-06-18.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1988-06-18.jpg.webp)
 
 Meanwhile back home, newspapers report official confirmation of the end of Bruce's separation from his first wife.
 
-![](../../assets/2024/06/Daily_News_Sat__Jun_18__1988_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Daily_News_Sat__Jun_18__1988_.jpg.webp)
 
 **1994:** Bruce performs "Wreck on the Highway" with John Wesley Harding at McCabe's Guitar Shop in Santa Monica. Their performance is recorded and will eventually be released as a bonus track on Harding's *Awake* album in 2001.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ND2EcrsB2bY)
 
-![](../../assets/2021/06/1994-06-18-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1994-06-18-scaled.jpg.webp)
 
 **2008:** In Amsterdam on tour, Bruce finds time to perform "Thunder Road" via satellite for the memorial service for Tim Russert, who passed away five days earlier.<br>
 
@@ -48,7 +48,7 @@ That night, Bruce plays three back-to-back tour premieres at Amsterdam's Magic s
 
 > *Clarence lived a wonderful life. He carried within him a love of people that made them love him. He created a wondrous and extended family. He loved the saxophone, loved our fans and gave everything he had every night he stepped on stage. His loss is immeasurable and we are honored and thankful to have known him and had the opportunity to stand beside him for nearly forty years. He was my great friend, my partner and with Clarence at my side, my band and I were able to tell a story far deeper than those simply contained in our music. His life, his memory, and his love will live on in that story and in our band.*<br>
 
-![](../../assets/2020/06/2011-06-18.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/2011-06-18.jpg.webp)
 
 **2013:** The U.K. leg of the Wrecking Ball Tour continues with a show at Hampden Park in Glasgow.<br>
 
@@ -76,9 +76,9 @@ That night, Bruce plays three back-to-back tour premieres at Amsterdam's Magic s
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1hsAiDj6t4w)
 
-![](../../assets/2024/06/Asbury_Park_Press_Wed__Jun_20__2018_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Asbury_Park_Press_Wed__Jun_20__2018_-scaled.jpg.webp)
 
-![](../../assets/2024/06/Asbury_Park_Press_Wed__Jun_20__2018_-1-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Asbury_Park_Press_Wed__Jun_20__2018_-1-scaled.jpg.webp)
 
 **2023:** Bruce and the E Street Band headline the TW Classic Festival in Werchter, Belgium.<br>
 

@@ -18,21 +18,21 @@
 
 [Watch on Youtube: September 9th, 1978 - South Bend, IN](https://www.youtube.com/playlist?list=PLsxNBNx2akeU-CBriNeY0gCYICDijG95i)
 
-![](../../assets/2020/08/1978-09-09.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1978-09-09.jpg.webp)
 
-![](../../assets/2019/08/1978-09-09.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/08/1978-09-09.jpg.webp)
 
 **1985:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami's Orange Bowl Stadium for the first of two nights.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/f3uQhVqy)
 
-![](../../assets/2020/08/1985-09-09a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1985-09-09a.jpg.webp)
 
-![](../../assets/2020/08/1985-09-09b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1985-09-09b.jpg.webp)
 
-![](../../assets/2020/08/1985-09-09c.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1985-09-09c.jpg.webp)
 
-![](../../assets/2021/09/1985-0908.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/09/1985-0908.jpg.webp)
 
 **1992:** "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)" is nominated for Best Male Video at the MTV Video Music Awards but loses to Eric Clapton's "Tears in Heaven."<br>
 
@@ -44,11 +44,11 @@
 
 **2005:** *Glory Days: A Bruce Springsteen Symposium* kicks off at New Jersey's Monmouth University, drawing scholars and fans to discuss the life and work of Springsteen. More than 150 papers are presented, and special guests and musical events celebrate the occasion.<br>
 
-![](../../assets/2021/09/2005-09-09a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/09/2005-09-09a.jpg.webp)
 
-![](../../assets/2021/09/2005-09-09b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/09/2005-09-09b.jpg.webp)
 
-**2016:** Night Two in Philadelphia on the "Autobiography Tour" can't quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from [*Greetings from Asbury Park, N.J.*](../../assets/2018/01/1973-0105-album.jpg)
+**2016:** Night Two in Philadelphia on the "Autobiography Tour" can't quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from [*Greetings from Asbury Park, N.J.*](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/01/1973-0105-album.jpg.webp)
 
 [Watch on Youtube: Out in the Street - Springsteen - Philadelphia Sept 9, 2016](https://www.youtube.com/watch?v=A98iOTcGFGA)
 

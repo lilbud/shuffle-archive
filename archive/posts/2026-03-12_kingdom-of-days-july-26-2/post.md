@@ -44,7 +44,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/9mLG5EG4)
 
-![](../../assets/2021/07/2002-07-26.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/2002-07-26.png.webp)
 
 **2003:** Night Six of ten at Giants Stadium on the Rising Tour opens with the tour premiere of "Adam Raised a Cain."<br>
 
@@ -56,7 +56,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xtxymKvlhsQ)
 
-![](../../assets/2025/07/News_and_Record_2005_07_28_46.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/07/News_and_Record_2005_07_28_46.jpg.webp)
 
 **2009:** Bruce and the E Street Band take the Working on a Dream Tour into its European home stretch, winding up the leg with a five-show mini-tour of Spain, starting with this first show in Bilbao. "Does This Bus Stop at 82nd Street" and "You Never Can Tell" both get the tour premiere treatment.<br>
 

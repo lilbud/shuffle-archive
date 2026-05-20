@@ -14,6 +14,6 @@ Another gift this show gave me: introduction to trading circles. Back in the day
 
 [Watch on Youtube: Bruce Springsteen - RAMROD 2000 - live](https://www.youtube.com/watch?v=XkSMFuOq55g)
 
-![](../../assets/2020/03/2000-04-04a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2000-04-04a.jpg.webp)
 
-![](../../assets/2018/04/2000-0404b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/2000-0404b.jpg.webp)

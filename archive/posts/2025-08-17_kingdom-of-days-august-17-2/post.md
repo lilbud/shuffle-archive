@@ -20,21 +20,21 @@
 
 [Watch on Youtube: Bruce Springsteen - Red Headed Woman](https://www.youtube.com/watch?v=cVLXiCqsTpY)
 
-![](../../assets/2020/08/1992-08-17a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1992-08-17a.png.webp)
 
-![](../../assets/2020/08/1992-08-17b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1992-08-17b.png.webp)
 
 **1999:** Bruce postpones a scheduled Reunion show in Detroit to the following month due to "scheduling conflicts."<br>
 
-![](../../assets/2020/08/1999-08-16.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1999-08-16.png.webp)
 
 **2003:** Bruce and the E Street Band play their second of only two Rising Tour stadium shows on the west coast, this one at Dodger Stadium in Los Angeles.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ijPr8cpo)
 
-![](../../assets/2020/08/2003-08-17a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2003-08-17a.png.webp)
 
-![](../../assets/2020/08/2003-08-17b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2003-08-17b.png.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
@@ -42,4 +42,4 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3](https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3)
 
-![](../../assets/2024/08/Daily_Record_2021_08_27_X7-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/08/Daily_Record_2021_08_27_X7-scaled.jpg.webp)

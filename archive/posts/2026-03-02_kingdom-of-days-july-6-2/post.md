@@ -1,6 +1,6 @@
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](../../assets/2018/07/1968-0706.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1968-0706.jpg.webp)
 
 **1973:** Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.<br>
 
@@ -26,7 +26,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zB3A7RZuw2uFaPLaMNz2oOs)
 
-![](../../assets/2024/06/Sunday_Mirror_1985_07_07_3-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Sunday_Mirror_1985_07_07_3-scaled.jpg.webp)
 
 **1989:** *Nebraska* is certified platinum and *Darkness on the Edge of Town* is certified double platinum by the Recording Industry Association of America.<br>
 
@@ -38,7 +38,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/AzSUcXXM)
 
-![](../../assets/2018/07/1992-0706.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1992-0706.jpg.webp)
 
 **2019:** Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with Garry Tallent & The Delevantes on "Dirty Rotten Shame," and later joining Southside Johnny & The Asbury Jukes for seven songs.<br>
 
@@ -54,9 +54,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=At_NGkleZUI)
 
-![](../../assets/2021/07/2019-07-06a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/2019-07-06a.jpg.webp)
 
-![](../../assets/2020/07/2019-07-06b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2019-07-06b.jpg.webp)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: Dave Marsh and Barbara Carr.<br>
 

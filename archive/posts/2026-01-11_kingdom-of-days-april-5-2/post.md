@@ -2,13 +2,13 @@
 
 **1974:** Bruce and the E Street Band headline a show at Widener College.<br>
 
-![](../../assets/2018/03/1974-0405.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1974-0405.jpg.webp)
 
 **1976:** The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a show at the Ohio Theater in Columbus.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-05 Ohio Theatre, Columbus, OH](https://www.youtube.com/watch?v=lGkeKgZblAo)
 
-![](../../assets/2018/03/1976-0405.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1976-0405.jpg.webp)
 
 **1978:** “Streets of Fire” receives its final mix at the Record Plant in New York City.<br>
 
@@ -18,7 +18,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/v5RXcyFL)
 
-![](../../assets/2021/03/1988-04-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1988-04-05.jpg.webp)
 
 **1995:** A busy day for Bruce and the (temporarily) reunited E Street Band: First, they make an appearance on *The Late Show with David Letterman,* where they premiere “Secret Garden.”<br>
 
@@ -28,17 +28,17 @@
 
 [Watch Video Highlight](https://videopress.com/embed/VFJF5tXA)
 
-![](../../assets/2021/03/1995-04-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1995-04-05.jpg.webp)
 
 **2006:** Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Theater in Asbury Park.<br>
 
-![](../../assets/2020/03/2006-04-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2006-04-05.jpg.webp)
 
 **2007:** Bruce makes a surprise appearance at a Carnegie Hall benefit show, *Celebrating the Music of Bruce Springsteen: Music for Youth*, joining Craig Finn, Jesse Malin, and Badly Drawn Boy on stage.<br>
 
 [Watch on Youtube: bruce & friends - rosalita](https://www.youtube.com/watch?v=jtjPO47XIbs)
 
-![](../../assets/2020/03/2007-04-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2007-04-05.jpg.webp)
 
 **2008:** Another radio station contest to pick a song for the set list–this time “Fire” is the winner for this Magic Tour stop at HP Pavilion in San Jose. “Out in the Street” and “Bobby Jean” make their tour debut tonight as well.<br>
 
@@ -50,9 +50,9 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN "Sherry Darling" 4-5-09 Austin](https://www.youtube.com/watch?v=T0lCBVUQguk)
 
-![](../../assets/2020/03/2009-04-05a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2009-04-05a.jpg.webp)
 
-![](../../assets/2021/03/2009-04-05b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/2009-04-05b.jpg.webp)
 
 **2016:** At a River Tour stop in Dallas, things get a little out of hand during “Dancing in the Dark.”<br>
 

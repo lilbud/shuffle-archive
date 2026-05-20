@@ -4,7 +4,7 @@ Or put another way: today marks my 1,167th post over 730 consecutive days of dai
 
 Whether you've been with me from [the beginning](https://estreetshuffle.com/index.php/2018/01/05/is-there-anybody-alive-out-there/) or just discovered this site for the first time [today](https://estreetshuffle.com/index.php/2019/01/04/kingdom-of-days-january-4/), I wanted to take a moment to thank you for reading, following, commenting, liking and/or sharing.
 
-![](../../assets/2019/01/thank_you_PNG132.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/01/thank_you_PNG132.png.webp)
 
 Special thanks to those of you who have written to me with corrections, additional information, absolutely amazing "I was there" stories (especially my "[Where the Band Was](https://estreetshuffle.com/index.php/category/where-the-band-was/)" guest bloggers who gave me welcome writing reprieves from time to time–please drop me a line if you'd like to share your story too), personal anecdotes, and alternative interpretations. That's been my absolute favorite part of these two years, and as a result I definitely feel like I've learned at least as much as I've shared. I've also made a lot of great new friends through the social media channels I share my blog posts in, and you all have made this a labor of love in now multiples senses.
 

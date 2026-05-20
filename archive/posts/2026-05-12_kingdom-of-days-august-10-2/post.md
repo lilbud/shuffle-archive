@@ -1,6 +1,6 @@
 **1968:** The Castiles play their final gig ever, one last show at Le Teendezvous in New Shrewsbury, New Jersey. Bruce has already assembled a new band, which will come to be known as Earth.<br>
 
-![](../../assets/2018/08/1968-0810.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1968-0810.jpg.webp)
 
 **1972:** Bruce continues his solo stand (the second of six nights) opening for Dave Van Ronk at Max's Kansas City in New York. At one of these shows, Bruce opens with "Henry Boy" and closes with "Growin' Up," and both are captured on video by Barry Rebo.<br>
 
@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9vRWqczh7U4)
 
-![](../../assets/2024/08/The_Plain_Dealer_1975_08_11_29.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/08/The_Plain_Dealer_1975_08_11_29.jpg.webp)
 
 **1977:** At Atlantic Studios in New York City, Bruce and the E Street Band record an alternate arrangement of "Racing in the Street." Almost four decades later, Bruce will complete and release it on *The Promise.*<br>
 
@@ -26,7 +26,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/PLGJLODI)
 
-![](../../assets/2020/07/1978-08-10.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1978-08-10.png.webp)
 
 **1982:** Bruce (along with most of the E Street Band and Asbury Jukes) attends and performs at the wedding of Southside Johnny Lyon and Jill Glasner.<br>
 
@@ -42,25 +42,25 @@ Entertainment Tonight airs a segment covering the end of the marathon run of sho
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5NN9Pfopm8w)
 
-![](../../assets/2020/07/1992-08-10a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1992-08-10a.png.webp)
 
-![](../../assets/2020/07/1992-08-10b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1992-08-10b.png.webp)
 
 **1995:** Bruce makes a guest appearance at Cheers in Long Branch for the second time in a week, this time with Solar Circus at a Jerry Garcia tribute concert.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Cq5tE0a3m-M)
 
-![](../../assets/2020/07/1995-08-10a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1995-08-10a.png.webp)
 
 **1996:** After practicing with the band the night prior, Bruce joins local band The Fanatics for six songs at Toby Scott's wedding in Whitefish, Montana, including "Hold On, I'm Comin'," and "Long Tall Sally."<br>
 
-![](../../assets/2021/08/1996-08-10.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/08/1996-08-10.jpg.webp)
 
 **2002:** Night Two on the Rising Tour is pretty similar to opening night. At the MCI Center in Washington, DC, Bruce drops "Two Hearts" and replaces it with the tour premiere of "Bobby Jean."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/Atz3RHXN)
 
-![](../../assets/2020/08/2002-08-10.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2002-08-10.png.webp)
 
 **2005:** Bruce (with Evan in tow as guitar tech) takes the summer leg of his solo acoustic tour into its home stretch in the Pacific Northwest, starting with this gorgeous set in Portland. Bruce opens with the tour premiere of "Soul Driver" (played here for the first and only time since the 1992-93 tour to date) and plays beautiful renditions of "Valentine's Day," "One Step Up," and "Two Hearts" as well.<br>
 
@@ -74,4 +74,4 @@ Entertainment Tonight airs a segment covering the end of the marathon run of sho
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Carole King.<br>
 
-![](../../assets/2019/08/carole.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/08/carole.jpg.webp)

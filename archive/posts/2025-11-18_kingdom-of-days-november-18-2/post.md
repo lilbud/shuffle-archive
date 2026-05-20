@@ -4,13 +4,13 @@
 
 [Watch on Youtube: Hammersmith Odeon, London '75](https://www.youtube.com/playlist?list=OLAK5uy_m2SqNSNM6Rz54ntt97ITEoy3IaiVe6We0)
 
-![](../../assets/2021/11/1975-11-18c.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/11/1975-11-18c.jpg.webp)
 
-![](../../assets/2021/11/1975-11-18d.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/11/1975-11-18d.jpg.webp)
 
 **1978:** The Darkness Tour stops in Oxford, Ohio, for a show at Miami University.<br>
 
-![](../../assets/2019/10/1978-11-18.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/1978-11-18.jpg.webp)
 
 **1984:** Bruce plays his first show in Nebraska since the release of the album by the same name. The *Nebraska* segment of the set list is particularly powerful at this Lincoln show, and "Sugarland" is played for the second and last time to date.<br>
 
@@ -20,17 +20,17 @@
 
 [Watch on Youtube: Bruce Springsteen - Sugarland 1984](https://www.youtube.com/watch?v=8uEkr1sE64s)
 
-![](../../assets/2020/11/1984-11-18a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1984-11-18a.png.webp)
 
-![](../../assets/2020/11/1984-11-18b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1984-11-18b.png.webp)
 
-![](../../assets/2020/11/1984-11-18c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1984-11-18c.png.webp)
 
 **1992:** Bruce brings World Tour 1992 to the Charlotte Coliseum.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Roll of the Dice" - Charlotte, 1992-11-18](https://www.youtube.com/watch?v=kjLvfOFpZMM)
 
-![](../../assets/2020/11/1992-11-18.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1992-11-18.png.webp)
 
 **2003:** Bruce releases his official video document of the Rising Tour, *Live in Barcelona*.<br>
 
@@ -66,25 +66,25 @@
 
 [Watch on Youtube: Jungleland Boston 11 18 07](https://www.youtube.com/watch?v=Jeg_qwEbJ6s)
 
-![](../../assets/2020/11/2007-11-18a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2007-11-18a.png.webp)
 
-![](../../assets/2020/11/2007-11-18b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2007-11-18b.png.webp)
 
-![](../../assets/2020/11/2007-11-18c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2007-11-18c.png.webp)
 
 **2009:** The Working on a Dream Tour enters its final week with a show at Sommet Center in Nashville, where Bruce once again performs the entire *Born to Run* album in sequence and plays "[Ring of Fire](https://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)" for the first time in 35 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - Nashville, TN 11/18/09](https://www.youtube.com/watch?v=IUaDmax2CxM)
 
-![](../../assets/2020/11/2009-11-18.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2009-11-18.png.webp)
 
 **2015:** Bruce performs "American Skin (41 Shots)" with John Legend, Tom Morello, Max, and Roy at *Shining a Light: A Concert for Progress on Race in America* at the Shrine Auditorium in Los Angeles.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/5JaaLIhW)
 
-![](../../assets/2020/11/2015-11-18a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2015-11-18a.png.webp)
 
-![](../../assets/2020/11/2015-11-18b-1.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2015-11-18b-1.png.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

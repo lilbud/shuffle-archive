@@ -6,11 +6,11 @@ Note: This is a strange date in history: Bruce rarely cancels shows, but on this
 
 **1974:** Bruce cancels a show at the New Jersey State Theater due to illness. Who knew Bruce graduated from Rutgers? (The journalist below sure doesn’t.) Disappointed Springsteen fans ask for their money back; the theater obliges and throws in a bonus.<br>
 
-![](../../assets/2020/02/1974-03-01.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/1974-03-01.jpg.webp)
 
-![](../../assets/2024/03/The_Central_New_Jersey_Home_News_Sat__Mar_2__1974_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/03/The_Central_New_Jersey_Home_News_Sat__Mar_2__1974_.jpg.webp)
 
-![](../../assets/2021/03/1974-03-01a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1974-03-01a.jpg.webp)
 
 **1975:** Yet another cancellation, this one in Syracuse, due to a conflict with mixing sessions for *Born to Run*.<br>
 
@@ -24,7 +24,7 @@ Note: This is a strange date in history: Bruce rarely cancels shows, but on this
 
 [Watch on Youtube: Tom Petty with Bruce Springsteen - "Travelin´ band/ I´m crying"](https://www.youtube.com/watch?v=LG2mygv6WPs)
 
-![](../../assets/2021/03/1990-03-01.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1990-03-01.jpg.webp)
 
 **1994:** At the Grammy Awards, Bruce appears with B.B. King, Bonnie Raitt, Steve Winwood and others during a medley tribute to Curtis Mayfield. Watch their performance below.<br>
 
@@ -42,15 +42,15 @@ Note: This is a strange date in history: Bruce rarely cancels shows, but on this
 
 [Watch on Youtube: 1995: BRUCE SPRINGSTEEN & wife PATTI leave Grammy party](https://www.youtube.com/watch?v=g8k45X2-0Wg)
 
-![](../../assets/2021/03/1995-03-01.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1995-03-01.png.webp)
 
 **1996:** If press reports are accurate, Bruce gets a workout in at Marco’s Gym in Edinburgh during an off-day on his solo acoustic tour. The timing is odd, however, since he played in Birmingham last night and will perform in Newcastle tomorrow. His Edinburgh show isn’t for another two days. Perhaps he’s making Edinburgh his base of operations for this leg of the tour.<br>
 
-![](../../assets/2024/03/Daily_Record_Sat__Mar_2__1996_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/03/Daily_Record_Sat__Mar_2__1996_-scaled.jpg.webp)
 
 **2003:** Bruce sets a Ticketmaster record, becoming the first artist to sell tickets for seven stadium shows in a single day. Before the day is out, Bruce will sell more than 300,000 tickets to his summer residency at Giants Stadium.<br>
 
-![](../../assets/2020/02/2003-03-01.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/2003-03-01.jpg.webp)
 
 **2014:** Bruce plays the first of two shows in Auckland, New Zealand. He opens with an acoustic cover of Lorde’s “[Royals](https://estreetshuffle.com/index.php/2020/04/25/cover-me-royals/),” tour debuts “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/),” and plays the full *Born in the U.S.A.* album. This show has an opening act: Jimmy Barnes, who recorded Steve Van Zandt’s “Ride the Night Away” on his 1985 album, *For the Working Class Man*. Steve makes a guest appearance during Jimmy’s set to join him for that song.<br>
 
@@ -62,7 +62,7 @@ Note: This is a strange date in history: Bruce rarely cancels shows, but on this
 
 [Watch on Youtube: Loose Ends (Live at Mount Smart Stadium, Auckland, NZ - 03/01/14 - Official Audio)](https://www.youtube.com/watch?v=IdDmH_pbcHQ)
 
-![](../../assets/2020/02/41634022365_69d16ee614_o.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/41634022365_69d16ee614_o.jpg.webp)
 
 **2018:** Patti Scialfa returns to *Springsteen on Broadway* after recuperating from a back injury, as the show continues its epic run at the Walter Kerr Theater in New York City.<br>
 

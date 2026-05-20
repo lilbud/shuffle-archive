@@ -2,7 +2,7 @@
 
 **1973:** Newly discovered contemporaneous press coverage (dated December 26 1973) suggests Bruce played a show (or at least was scheduled to) at the Shaboo Inn in Willimantic Connecticut.<br>
 
-![](../../assets/2023/12/Valley_Advocate_Amherst_Wed__Dec_26__1973_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/12/Valley_Advocate_Amherst_Wed__Dec_26__1973_.jpg.webp)
 
 **1978:** Bruce and the E Street Band play a Darkness Tour show at the Tucson Community Center Arena. Before the show, Bruce gives an interview to San Francisco radio station KSAN-FM. It will be aired two days later during what will prove to be one of Bruce's most legendary shows.<br>
 
@@ -10,19 +10,19 @@
 
 [Watch on Youtube: Bruce Springsteen - "She's the One" - Tucson, 1978-12-13](https://www.youtube.com/watch?v=BoZTyDKRoy8)
 
-![](../../assets/2020/12/1978-12-13a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1978-12-13a.png.webp)
 
-![](../../assets/2020/12/1978-12-13b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1978-12-13b.png.webp)
 
-![](../../assets/2020/12/1978-12-13c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1978-12-13c.png.webp)
 
-![](../../assets/2020/12/1978-12-13d.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1978-12-13d.png.webp)
 
 **1984:** Bruce and the band play their first of two Born in the U.S.A. shows at the Mid-South Coliseum in Memphis.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Bobby Jean" - Memphis, 1984-12-13](https://www.youtube.com/watch?v=UzMaKpyptz4)
 
-![](../../assets/2024/12/The_Commercial_Appeal_1984_12_14_26.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/12/The_Commercial_Appeal_1984_12_14_26.jpg.webp)
 
 **1987:** Bruce appears at the All Star Benefit for the Homeless Children at Madison Square Garden. Like the name suggests, the talent line-up is stellar, making for some amazing moments: Bruce, Paul Simon, James Taylor, Billy Joel, Ruben Blades, and Lou Reed all back Dion DiMucci for "[A Teenager in Love](https://estreetshuffle.com/index.php/2020/08/16/matr-dion-bruce-springsteen-paul-simon-lou-reed-james-taylor-billy-joel-and-reuben-blades-a-teenager-in-love/);" Bruce plays a solo acoustic "Born to Run;" Paul Shaffer's World's Most Dangerous Band tackles "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)" with Bruce, Paul, and Billy. Check out highlights and news coverage from this amazing show below.<br>
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Paul Simon & Bruce Springsteen - news coverage - 1987-12-13](https://www.youtube.com/watch?v=TI6RKpTIzDw)
 
-![](../../assets/2020/12/1987-12-13.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1987-12-13.png.webp)
 
 **1992:** Patti makes a guest appearance when World Tour 1992 stops in Boston for the first of two nights at the Garden. This show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26415/Bruce-Springsteen-mp3-flac-download-12-13-1992-Boston-Garden-Boston-MA.html).<br>
 
@@ -50,9 +50,9 @@
 
 [Watch on Youtube: Souls of the Departed (Live at Boston Garden, Boston, MA - 12/13/1992)](https://www.youtube.com/watch?v=B_LgU6CmoBY)
 
-![](../../assets/2020/12/1992-12-13a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1992-12-13a.png.webp)
 
-![](../../assets/2020/12/1992-12-13b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1992-12-13b.png.webp)
 
 **1995:** Bruce brings his solo acoustic tour to the Beacon Theater in New York City for the second of three nights.<br>
 
@@ -60,19 +60,19 @@
 
 **1997:** Bruce makes a guest appearance at Joe Grushecky's acoustic show at Cheers in Long Branch, New Jersey.<br>
 
-![](../../assets/2019/11/1997-12-13.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/1997-12-13.jpg.webp)
 
-![](../../assets/2020/12/1997-12-13.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1997-12-13.png.webp)
 
-![](../../assets/2024/12/The_Star_Ledger_1997_12_15_27-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/12/The_Star_Ledger_1997_12_15_27-scaled.jpg.webp)
 
 **2002:** Bruce and the E Street Band take the Rising Tour to the Pepsi Arena in Albany, where they close the show with "[Around and Around,](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)" not played in 24 years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Around and Around" - Albany, 2002-12-13](https://www.youtube.com/watch?v=tt79jPObtjs)
 
-![](../../assets/2020/12/2002-12-13a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2002-12-13a.png.webp)
 
-![](../../assets/2020/12/2002-12-13b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2002-12-13b.png.webp)
 
 **2007:** Wolfgang Niedecken joins Bruce and the band for a show-closing "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" when the Magic Tour stops in Cologne.<br>
 
@@ -90,7 +90,7 @@ Also today: the release of *The People Speak*, a documentary featuring a contrib
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: actor Iain Armitage.<br>
 
-![](../../assets/2019/11/2017-12-13.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/2017-12-13.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its final week of shows at the Walter Kerr Theater in New York City. At the theater, French media star Antoine de Caunes interviews Bruce.<br>
 

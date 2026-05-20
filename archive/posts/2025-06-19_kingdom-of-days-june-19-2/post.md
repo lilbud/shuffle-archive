@@ -2,11 +2,11 @@
 
 **1967:** Bruce Springsteen graduates from Freehold Borough High School. He does not attend, however, but instead picks up his diploma later.<br>
 
-![](../../assets/2018/06/1967-0619.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1967-0619.jpg.webp)
 
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.<br>
 
-![](../../assets/2018/06/1968-0619.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1968-0619.jpg.webp)
 
 **1970:** Steel Mill takes a trip down to Richmond, where they play the first of two nights at The String Factory. The set list includes a twenty-minute "[Garden State Parkway Blues](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)" and the only known performance of "[Where Was Jesus in Ohio](https://estreetshuffle.com/index.php/2020/07/06/roll-of-the-dice-where-was-jesus-in-ohio/)?"<br>
 
@@ -16,13 +16,13 @@
 
 **1971:** The Sundance Blues Band plays the Student Prince in Asbury Park.<br>
 
-![](../../assets/2020/06/1971-06-19.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1971-06-19.jpg.webp)
 
-![](../../assets/2018/06/1971-0619.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/06/1971-0619.jpg.webp)
 
 **1974:** Bruce cancels a scheduled date at the Cowtown Ballroom in Kansas City.<br>
 
-![](../../assets/2021/06/1974-06-19.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1974-06-19.jpg.webp)
 
 **1988:** Bruce and the E Street Band bring the Tunnel of Love Tour to Paris for a single show at the Hippodrome de Vincennes.<br>
 
@@ -66,7 +66,7 @@
 
 [Watch on Youtube: Bruce Springsteen & The Sessions Band, Buffalo Gals, Live](https://www.youtube.com/watch?v=-Pi4xwctX_o)
 
-![](../../assets/2021/06/2006-06-19.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/2006-06-19.jpg.webp)
 
 **2012:** The Wrecking Ball Tour stops in Montpellier, where Bruce and the band tour premiere "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)" and "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)."<br>
 
@@ -108,4 +108,4 @@
 
 Bruce then played "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" in place of ["Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" to drive home his message. The set list change will stick. In attendance tonight: Christina Aguilera.
 
-![](../../assets/2021/06/2018-06-19.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/2018-06-19.png.webp)

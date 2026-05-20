@@ -2,9 +2,9 @@
 
 **1971:** Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under that name, at Asbury Park's Sunshine In.<br>
 
-![](../../assets/2021/05/1971-05-14.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1971-05-14.jpg.webp)
 
-![](../../assets/2018/05/1971-0514.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1971-0514.jpg.webp)
 
 **1973:** Bruce assembles his band at 914 Sound Studio to begin recording his second album.<br>
 
@@ -18,15 +18,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/oAGgq6zb)
 
-![](../../assets/2018/05/1981-0514.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1981-0514.jpg.webp)
 
-![](../../assets/2024/05/Daily_Mail_Thu__May_21__1981_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/Daily_Mail_Thu__May_21__1981_-scaled.jpg.webp)
 
 **1982:** Bruce and the E Street Band are in the studio at the Power Station in New York City, working on what will become *Born in the U.S.A.*<br>
 
 **1985:** Bruce and Julianne hold their wedding reception, a day after their wedding.<br>
 
-![](../../assets/2021/05/1985-05-14.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1985-05-14.jpg.webp)
 
 **1988:** On *American Top 40*, host Casey Kasem introduces Natalie Cole's cover of "[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)" with a medley of Springsteen covers that hit the Top 40.<br>
 
@@ -44,7 +44,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Wreck on the Highway, Fairfax 5/14/05](https://www.youtube.com/watch?v=aurDV4QN-Os)
 
-![](../../assets/2024/05/Richmond_Times_Dispatch_Mon__May_16__2005_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/Richmond_Times_Dispatch_Mon__May_16__2005_.jpg.webp)
 
 **2006:** The Seeger Sessions Tour stops in Barcelona. Watch the local news coverage and interview below.<br>
 
@@ -62,7 +62,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/1rgn9jg5)
 
-![](../../assets/2021/05/2009-05-14.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2009-05-14.jpg.webp)
 
 **2013:** Bruce continues playing full albums on the Wrecking Ball Tour, this time *Born to Run* in Copenhagen.<br>
 
@@ -84,9 +84,9 @@
 
 [Watch on Youtube: "Waitin on Sunny Day" Bruce Springsteen & Young Fan@Hersheypark PA Stadium 5/14/14](https://www.youtube.com/watch?v=qz-EYmmp7_g)
 
-![](../../assets/2021/05/2014-05-14a-1.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2014-05-14a-1.jpg.webp)
 
-![](../../assets/2021/05/2014-05-14b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2014-05-14b.jpg.webp)
 
 **2016:** The European leg of the River Tour kicks off with a show at Camp Nou in Barcelona. Immediately noticeable: Bruce is no longer playing the entire *The River* album, although he does play much of it, along with a rare outing for "[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)" and the tour premiere of "Twist and Shout." Stream or purchase this show [here](https://live.brucespringsteen.net/live-music/0,14104/Bruce-Springsteen-mp3-flac-download-5-14-2016-Camp-Nou-Barcelona-ES.html).<br>
 

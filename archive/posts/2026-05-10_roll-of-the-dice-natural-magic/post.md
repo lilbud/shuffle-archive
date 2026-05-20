@@ -32,7 +32,7 @@ Today, we'll take a listen to one of my favorite original songs from this period
 
 And yet, despite wearing its influences on its sleeve, "Natural Magic" is sweet and charmingly earnest. Together with songs like "You Mean So Much to Me" (played just two songs prior that night) and "She's Leaving," "Natural Magic" represents the beginning of a soulfully romantic vein that Bruce would mine for many years to come.
 
-![](../../assets/2020/05/naturalmagic_lyrics.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/naturalmagic_lyrics.jpg.webp)
 
 **Natural Magic**<br>
 **Never recorded**<br>

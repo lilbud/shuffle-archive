@@ -2,15 +2,15 @@
 
 **1970:** Steel Mill is among the three top bands from a summer festival invited back to perform at the Municipal Auditorium in Nashville.<br>
 
-![](../../assets/2024/10/The_Tennessean_1970_10_18_Page_162.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/10/The_Tennessean_1970_10_18_Page_162.jpg.webp)
 
 **1980:** Bruce and the E Street Band play a River Tour show at the Seattle Center Coliseum. Distributed at the show: the first issue of *Backstreets*, a four-page fanzine published by local fan Charles R. Cross. Over the four decades that follow, *Backstreets* will evolve and thrive as a magazine, web site, and online community dedicated to bringing together Springsteen fans from around the world.<br>
 
 [Watch on Youtube: Bruce Springsteen - Seattle 10/24/80 Part 1](https://www.youtube.com/watch?v=pRVAyY8cQqM)
 
-![](../../assets/2020/10/backstreets.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/backstreets.jpg.webp)
 
-![](../../assets/2020/10/1980-10-24.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1980-10-24.png.webp)
 
 **1995:** Bruce joins Joe Grushecky and the Houserockers for their show at Chicago's Park West. Check out the news coverage of the event.<br>
 
@@ -18,7 +18,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3)
 
-**![](../../assets/2020/10/1995-10-24.png)**<br>
+**![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1995-10-24.png.webp)**<br>
 
 **2002:** Bruce and the E Street Band bring the Rising Tour to the Globe Arena in Stockholm, where "Gloria" makes its tour debut.<br>
 
@@ -46,7 +46,7 @@
 
 **2018:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Tom Morello, Michael Moore, Lars Ulrich and Rob Trujilo.<br>
 
-![](../../assets/2019/10/2018-10-24.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/2018-10-24.jpg.webp)
 
 **2019:** *CBS This Morning* airs the first half of Bruce's interview with Gayle King.<br>
 

@@ -26,7 +26,7 @@
 
 [Watch on Youtube: Stolen Car (solo piano) Bruce Springsteen 5/15/2005 Cleveland, OH](https://www.youtube.com/watch?v=QjKxwljcdiM)
 
-![](../../assets/2020/05/2005-05-15.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2005-05-15.jpg.webp)
 
 **2009:** Jay Weinberg sits in on drums again when the Working on a Dream Tour stops at Hersheypark Stadium in Hershey, Pennsylvania. The highlight: the tour premiere and first performance in a decade of "[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)."<br>
 
@@ -34,9 +34,9 @@
 
 [Watch on Youtube: Bruce Springsteen ~ Trapped ~ 5/15/09](https://www.youtube.com/watch?v=JXUkD-5WWf4)
 
-![](../../assets/2021/05/2009-05-15a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2009-05-15a.jpg.webp)
 
-![](../../assets/2020/05/2009-05-15b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2009-05-15b.jpg.webp)
 
 **2012:** The European leg of the Wrecking Ball Tour picks up steam as it moves on to Las Palmas in the Canary Islands. Bruce plays four tour premieres on this night: "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)," "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)," "[Working on the Highway,](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)" and "[The River.](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)"<br>
 

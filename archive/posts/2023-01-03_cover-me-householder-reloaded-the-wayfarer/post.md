@@ -18,7 +18,7 @@ Bruce apparently agrees, because when the band sent a copy of their cover to Jon
 
 Bruce's stamp of approval earned the band some well-deserved attention in their local press.
 
-![](../../assets/2021/06/wayfarer.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/wayfarer.png.webp)
 
 So there you go: today's *Cover Me* entry is Boss-approved!
 

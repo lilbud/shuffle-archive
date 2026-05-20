@@ -165,7 +165,7 @@ Still, the existence of these remixes–a relatively new phenomenon in general a
 
 [Watch Video Highlight](https://videopress.com/embed/PG3WCwBE)
 
-![](../../assets/2019/09/1984-06-08.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/09/1984-06-08.jpg.webp)
 
 "Born in the U.S.A." immediately became a tour staple–not just for the tour named after it, but for almost every tour ever after.
 

@@ -22,15 +22,15 @@ There's no audio from the late show, and that's too bad: it features the last kn
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=m8p5z71YIrY)
 
-![](../../assets/2020/08/1985-08-15a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1985-08-15a.png.webp)
 
-![](../../assets/2020/08/1985-08-15b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1985-08-15b.png.webp)
 
 **2002:** Bruce brings the Rising Tour to Detroit for one night at The Palace of Auburn Hills, where the set list remains unchanged for the fourth consecutive show–but that's about to change.<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAlYkHYg8qYNezIwJuhOkB3)
 
-![](../../assets/2020/08/2002-08-15.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2002-08-15.png.webp)
 
 **2008:** The Magic Tour enters its final month with a return to indoor arenas, starting with this show in Jacksonville. Bruce tour premieres "You Can't Sit Down," played for the first time in almost a decade, as well as "Back in Your Arms."<br>
 
@@ -56,7 +56,7 @@ There's no audio from the late show, and that's too bad: it features the last kn
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gloria Steinem.<br>
 
-![](../../assets/2019/08/gloriasteinem.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/08/gloriasteinem.jpg.webp)
 
 [Watch Video Highlight](https://videopress.com/embed/8Air139W)
 

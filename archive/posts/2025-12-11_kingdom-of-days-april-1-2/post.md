@@ -1,14 +1,14 @@
 **1973:** Bruce and his “strange but adept” band headline a show at Rutgers University.<br>
 
-![](../../assets/2021/04/1973-0401.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1973-0401.jpg.webp)
 
 **1976:** Bruce and the band cancel a scheduled show at Butler University when the school is unable to front the band’s appearance fee. Instead, they play a Chicken Scratch gig at Ohio University in Athens, where the venue takes some heavy damage as a result.<br>
 
-![](../../assets/2023/04/1976-04-01a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/04/1976-04-01a.jpg.webp)
 
-![](../../assets/2023/04/1976-04-02b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/04/1976-04-02b.jpg.webp)
 
-![](../../assets/2023/04/1976-04-01d.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/04/1976-04-01d.jpg.webp)
 
 **1980:** Bruce and his studio team work on mixing and overdubs for *The River* at the Power Station in New York City.<br>
 
@@ -18,7 +18,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/jX12LT4N)
 
-![](../../assets/2020/03/1988-04-01.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1988-04-01.jpg.webp)
 
 **2009:** The *Working on a Dream* Tour kicks off at HP Pavilion in San Jose. “Good Eye” is performed for the only time on the tour and the last time to date.<br>
 
@@ -44,7 +44,7 @@ Meanwhile, Bruce joins Little Steven at the Underground Garage for part one of a
 
 [Watch on Youtube: Bruce Springsteen Live Washington DC, April 1, 2012 Thunder Road and Born to Run](https://www.youtube.com/watch?v=UybZAbmLMcY)
 
-![](../../assets/2020/03/44696138581_620944df80_o.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/44696138581_620944df80_o.jpg.webp)
 
 **2023:** Bruce tour debuts “Jungleland” at Madison Square Garden when the reprise of the River Tour makes a stop in New York City. Paul McCartney is in attendance tonight.<br>
 
@@ -54,4 +54,4 @@ Meanwhile, Bruce joins Little Steven at the Underground Garage for part one of a
 
 [Watch on Youtube: Thunder Road / Born to Run - Bruce Springsteen - Madison Square Garden - New York City - 4/1/2023](https://www.youtube.com/watch?v=9mqNMGFafbI)
 
-![](../../assets/2023/04/1976-04-01c.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/04/1976-04-01c.jpg.webp)

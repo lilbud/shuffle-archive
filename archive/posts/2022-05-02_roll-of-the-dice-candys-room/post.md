@@ -13,7 +13,7 @@ We left Bruce and the band on September 2, 1977–the day they finished both the
 
 It was at this point that Bruce began to merge the sibling songs. As September progressed, "Candy's Boy" and "The Fast Song" came together in the creatively titled "New Fast Song (Candy)." In a surviving page of handwritten lyrics, we can see the ideas starting to coalesce.
 
-![](../../assets/2022/05/newfastsong.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/05/newfastsong.jpg.webp)
 
 > *In Candy's room she has pictures of her savior on the wall*<br>
 > *But to get to Candy's room you got to walk Candy's hall*<br>

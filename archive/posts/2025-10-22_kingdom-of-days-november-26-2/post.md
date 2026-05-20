@@ -4,7 +4,7 @@
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](../../assets/2019/11/1971-11-26.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/1971-11-26.jpg.webp)
 
 **1974:** Bruce drops by WMMR-FM in Philadelphia to record a very special Christmas message for DJ Ed Sciaky.<br>
 
@@ -28,15 +28,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/NgqTctQr)
 
-![](../../assets/2020/11/1988-11-26-1.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1988-11-26-1.png.webp)
 
 **1995:** Bruce plays a solo acoustic show at the Wiltern Theater in Los Angeles, where he tour premieres “[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)” and “[Dead Man Walkin’.](https://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/)”<br>
 
 [Watch on Youtube: Bruce Springsteen - "Dead Man Walkin'" - Los Angeles, 1995-11-26](https://www.youtube.com/watch?v=I5QSYrfpTFw)
 
-![](../../assets/2020/11/1995-11-26a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1995-11-26a.png.webp)
 
-![](../../assets/2020/11/1995-11-26b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1995-11-26b.png.webp)
 
 **1996:** Bruce wraps up his three-night acoustic stand at the Paramount Theater in Asbury Park, once again joined by a posse of friends. Tonight’s guest include Danny, Soozie, Patti, Steve, Vini, Big Danny Gallagher, and Richard Blackwell. For a solo show, Bruce is seldom on stage by himself. The setlist features the tour premieres of “[All That Heaven Will Allow](https://estreetshuffle.com/index.php/2022/08/05/roll-of-the-dice-all-that-heaven-will-allow/)” and “[I Don’t Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,30511/Bruce-Springsteen-paramount-theatre-asbury-park-nj-11-26-1996-mp3-flac-or-online-music-streaming.html).<br>
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Focus On: Federici (2-08) This Hard Land -- Paramount Theatre - Asbury Park, NJ (11-26-1996)](https://www.youtube.com/watch?v=v5lGBZxFKj4)
 
-![](../../assets/2020/11/1996-11-26.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1996-11-26.png.webp)
 
 **2007:** The Magic Tour moves to its second European stop, the Bizkaia Arena in Bilbao.<br>
 
@@ -66,7 +66,7 @@
 
 **2009:** Bruce appears with Bono and Mick Jagger on the cover of *Rolling Stone*.<br>
 
-![](../../assets/2020/11/rollingstone1092.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/rollingstone1092.jpg.webp)
 
 **2012:** After a week off for Thanksgiving, the Wrecking Ball Tour resumes in Vancouver. The set list features no premieres, but a couple of songs appear in surprising positions: Bruce opens with “[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/),” and “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” makes an unusual encore appearance. For more highlights from this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/11/26/where-the-band-was-vancouver-november-26-2012/).<br>
 
@@ -74,9 +74,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/tKxNYA4j)
 
-![](../../assets/2020/11/2012-11-26a-1.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2012-11-26a-1.png.webp)
 
-![](../../assets/2020/11/2012-11-26b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2012-11-26b.png.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater on Broadway. After tonight’s show, Bruce will take more than a week off.<br>
 

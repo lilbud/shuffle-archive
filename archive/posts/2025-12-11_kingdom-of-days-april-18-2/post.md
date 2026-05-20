@@ -1,14 +1,14 @@
 **1970:** Steel Mill plays a gig at Ocean County College in Toms River, New Jersey.<br>
 
-![](../../assets/2020/04/1970-04-18-rotated.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1970-04-18-rotated.jpg.webp)
 
 **1973:** Bruce and his band play the Christian Brothers Academy in Lincroft, New Jersey, the first of only two high school gigs the band will ever perform.<br>
 
-![](../../assets/2018/04/1973-0418.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1973-0418.jpg.webp)
 
 **1974:** Bruce and the band play a gig at Monmouth College in Long Branch, New Jersey.<br>
 
-![](../../assets/2020/04/1974-04-18.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1974-04-18.jpg.webp)
 
 **1975:** Bruce and his studio team move to the Record Plant in New York City. On this first day of recording, they work on “Thunder Road” and “Jungleland.”<br>
 
@@ -16,7 +16,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/wNB0ZUQS)
 
-![](../../assets/2021/04/1981-04-18-1.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1981-04-18-1.jpg.webp)
 
 **1999:** TNT airs a Johnny Cash tribute special, on which Bruce performs “Give My Love to Rose.”<br>
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Growin' Up Bruce Springsteen 4/18/2003 Ottawa](https://www.youtube.com/watch?v=VcN0kfCmJac)
 
-![](../../assets/2021/04/2003-04-18-rotated.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2003-04-18-rotated.jpg.webp)
 
 **2004:** Patti plays two live shows to promote her upcoming *23rd Street Lullaby* album at The Hit Factory in New York City. Bruce provides backing vocals and guitar on “Love (Stand Up)” and “As Long As I (Can Be With You).” The initial run of the album will include a bonus disc with a live track from this show, but you can watch Patti’s entire concert from that night below.<br>
 
@@ -46,7 +46,7 @@
 
 **2008:** Bruce reschedules a planned show in Sunrise, Florida due to the passing of Danny Federici.<br>
 
-![](../../assets/2020/04/2008-04-18.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2008-04-18.jpg.webp)
 
 **2016:** Bruce and the E Street Band bring the River Tour (2016 Edition) to Penn State University.<br>
 
@@ -54,9 +54,9 @@
 
 [Watch on Youtube: Drive All Night - Bruce Springsteen - Penn State 4-18-16](https://www.youtube.com/watch?v=yAlx8fxYdU0)
 
-![](../../assets/2024/04/Centre_Daily_Times_Tue__Apr_19__2016_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Centre_Daily_Times_Tue__Apr_19__2016_-scaled.jpg.webp)
 
-![](../../assets/2024/04/Centre_Daily_Times_Tue__Apr_19__2016_-1.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Centre_Daily_Times_Tue__Apr_19__2016_-1.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

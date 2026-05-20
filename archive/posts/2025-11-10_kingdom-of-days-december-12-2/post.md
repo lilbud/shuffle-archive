@@ -2,17 +2,17 @@
 
 **1969:** Steel Mill (or as the poster puts it, “Child under an assumed name”) headlines at Monmouth College in West Long Branch, New Jersey.<br>
 
-![](../../assets/2018/12/1969-1212.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/12/1969-1212.jpg.webp)
 
-![](../../assets/2020/11/1969-12-12.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1969-12-12.png.webp)
 
 **1970:** Steel Mill replaces scheduled headliner Flock at Asbury Park’s Sunshine In when flight delays force to cancel at the last minute, leaving the local press to scratch their heads at why Bruce and company are settling for fill-in status.<br>
 
-![](../../assets/2024/12/Asbury_Park_Press_1970_12_14_Page_22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/12/Asbury_Park_Press_1970_12_14_Page_22.jpg.webp)
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.<br>
 
-![](../../assets/2020/11/1971-12-10.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1971-12-10.png.webp)
 
 **1975:** Bruce and the E Street Band take the Born to Run Tour to C.W. Post College in Greenvale, New York, where Bruce debuts his cover of “[It’s My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/),” apparently (according to Max) played as an audible with no prior rehearsal. The band’s encore performance of “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” is recorded and officially released–it’s the version you’ll hear on the radio at least once this month. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,28028/Bruce-Springsteen-mp3-flac-download-12-12-1975-Post-Dome-CW-Post-College-Greenvale-NY.html).<br>
 
@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Sha-La-La (Live at CW Post Dome Auditorium, Greenvale, NY - 12/12/1975)](https://www.youtube.com/watch?v=m2SvNksQ-eQ)
 
-![](../../assets/2024/12/Newsday_Suffolk_Edition__1975_12_15_87-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/12/Newsday_Suffolk_Edition__1975_12_15_87-scaled.jpg.webp)
 
 **1977:** Bruce holds a recording session for *Darkness on the Edge of Town* at The Record Plant in New York City.<br>
 
@@ -32,19 +32,19 @@
 
 [Watch on Youtube: Bruce Springsteen - "Jackson Cage" - Hartford, 1980-12-12](https://www.youtube.com/watch?v=5Br1-TK1B8Y)
 
-![](../../assets/2020/11/1980-12-12.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1980-12-12.png.webp)
 
 **1995:** Bruce brings his solo acoustic tour to the Beacon Theater in New York City for the first of three nights.<br>
 
 [Watch on Youtube: Bruce Springsteen - "Highway 29" - New York City, 1995-12-12](https://www.youtube.com/watch?v=zunmq9enbZs)
 
-![](../../assets/2020/11/1995-12-12.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1995-12-12.png.webp)
 
 **1996:** Patti and Soozie make several guest appearances throughout Bruce’s solo acoustic show at Ryman Auditorium in Nashville. In attendance tonight: Emmylou Harris, Mary Chapin Carpenter, and Amy Grant.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/uosEtWY7)
 
-![](../../assets/2020/11/1996-12-12.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1996-12-12.png.webp)
 
 **2006:** Bruce closes the show at Bobby Bandiera’s All-Star Holiday Concert at the Count Basie Theater in Red Bank, joining Bobby’s band, Southside Johnny and the Asbury Jukes, Jon Bon Jovi, The Grinch, and some muppets for some holiday fun.<br>
 
@@ -54,7 +54,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3](https://estreetshuffle.com/wp-content/uploads/2022/12/2006-12-12__Merged.mp3)
 
-![](../../assets/2020/11/2006-12-12.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2006-12-12.png.webp)
 
 **2007:** Bruce tour premieres “Because the Night” at his Magic Tour stop in Antwerp.<br>
 
@@ -74,15 +74,15 @@
 
 [Watch on Youtube: Bruce Springsteen + Jon Bon Jovi = Born to Run 12.12.12 Sandy Relief Concert](https://www.youtube.com/watch?v=OgBVpttagJc)
 
-![](../../assets/2020/11/2012-12-12a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2012-12-12a.png.webp)
 
-![](../../assets/2020/11/2012-12-12b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2012-12-12b.png.webp)
 
-![](../../assets/2020/11/2012-12-12c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/2012-12-12c.png.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Alex Rodriguez and Jennifer Lopez.<br>
 
-![](../../assets/2019/11/2017-12-12.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/2017-12-12.jpg.webp)
 
 **2018:** *Springsteen on Broadway* enters the final week of its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Bruce Willis and Billy Joel.<br>
 

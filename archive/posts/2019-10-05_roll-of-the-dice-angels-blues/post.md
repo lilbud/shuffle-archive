@@ -59,7 +59,7 @@ I'll let you decide whether or not there's some shared DNA between "Angel's Blue
 
 Earlier this year, a hand-written draft of Bruce's "Angel's Blues" lyrics surface in an auction, and what we can read in Bruce's own handwriting bears little to no resemblance to what we hear in the clip above.
 
-![](../../assets/2019/10/angelsblues-1.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/angelsblues-1.jpg.webp)
 
 Conceptually, this 1973 version of "Angel's Blues" seems similar to the 1974 version above, and metrically these older lyrics would seem to fit the melody (perhaps requiring some rushing at times, but Bruce was no stranger to that in those days).
 

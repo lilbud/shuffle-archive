@@ -2,11 +2,11 @@ We're almost finished working our way through Bruce Springsteen's "[1968 Noteboo
 
 The notebook contains twenty unreleased songs. We know of its existence only because it was sold in a 2006 public auction with scans made available for potential bidders.
 
-![](../../assets/2021/06/1968_lyricsnotebook-contentspage.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/06/1968_lyricsnotebook-contentspage.jpg.webp)
 
 Our subject today is the faded entry at the very bottom of the table of contents above: an almost-finished song called "Sun Time," complete with chord notation and direction.
 
-![](../../assets/2022/08/suntime_lyrics.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/08/suntime_lyrics.jpg.webp)
 
 Bruce's lyrics are just a little bit fuzzy in the scan–enough to obfuscate several words throughout (particularly in the third verse). However, enough is legible for us to get a sense of "Sun Time" as a tender bordering on sappy love song that was no doubt intended for Bruce's acoustic performances.
 

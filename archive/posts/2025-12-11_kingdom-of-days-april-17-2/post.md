@@ -1,18 +1,18 @@
 **1971:** Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.<br>
 
-![](../../assets/2018/04/1971-0417.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1971-0417.jpg.webp)
 
 **1976:** Bruce and the E Street Band play a show at the University of Rochester.<br>
 
-![](../../assets/2020/04/1976-04-17.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1976-04-17.jpg.webp)
 
-![](../../assets/2018/04/1976-0417.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1976-0417.jpg.webp)
 
 **1977:** Bruce joins Southside Johnny and the Asbury Jukes at The Stone Pony for four songs.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ztiTtNxb)
 
-![](../../assets/2018/04/1977-0417.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1977-0417.jpg.webp)
 
 **1988:** Bruce’s Tunnel of Love Express show at the St. Louis Arena is captured by a fan on film. Watch the full show here:<br>
 
@@ -22,9 +22,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/1nnfAY8D)
 
-![](../../assets/2020/04/1988-04-17a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-04-17a.jpg.webp)
 
-![](../../assets/2020/04/1988-04-17b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-04-17b.jpg.webp)
 
 **1996:** Bruce plays a second solo acoustic show at Royal Albert Hall in London, where “The Wish” is played for the first time in the U.K. This show was rescheduled from its original date in March.<br>
 
@@ -40,11 +40,11 @@
 
 [Watch on Youtube: Bruce Springsteen and Joe Ely - "All Just to Get to You" - Austin, 2000-04-17](https://www.youtube.com/watch?v=ndgNa1X41jQ)
 
-![](../../assets/2020/04/2000-04-17.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2000-04-17.jpg.webp)
 
 **2008:** Original E Street Band (and Child and Steel Mill) member Danny Federici passes away after a long battle against melanoma.<br>
 
-![](../../assets/2021/04/2008-04-17.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2008-04-17.jpg.webp)
 
 **2012:** Bruce brings the Wrecking Ball Tour to Quicken Loans Arena in Cleveland, where “My Love Will Not Let You Down” and “Light of Day” make their tour debuts.<br>
 
@@ -62,6 +62,6 @@
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road live Nashville, April 17, 2014 (TheDailyVinyl official)](https://www.youtube.com/watch?v=1TbsfN5h5UA)
 
-![](../../assets/2020/04/2014-04-17.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2014-04-17.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>

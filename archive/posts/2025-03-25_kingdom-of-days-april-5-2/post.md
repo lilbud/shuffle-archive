@@ -2,17 +2,17 @@
 
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.<br>
 
-![](../../assets/2025/04/19690402_Advert_02.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/04/19690402_Advert_02.jpg.webp)
 
 **1974:** Bruce and the E Street Band headline a show at Widener College.<br>
 
-![](../../assets/2018/03/1974-0405.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1974-0405.jpg.webp)
 
 **1976:** The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a show at the Ohio Theater in Columbus.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-05 Ohio Theatre, Columbus, OH](https://www.youtube.com/watch?v=lGkeKgZblAo)
 
-![](../../assets/2018/03/1976-0405.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1976-0405.jpg.webp)
 
 **1978:** “[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)” receives its final mix at the Record Plant in New York City.<br>
 
@@ -22,7 +22,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/v5RXcyFL)
 
-![](../../assets/2021/03/1988-04-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1988-04-05.jpg.webp)
 
 **1995:** A busy day for Bruce and the (temporarily) reunited E Street Band: First, they make an appearance on *The Late Show with David Letterman,* where they premiere “[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/).”<br>
 
@@ -32,23 +32,23 @@
 
 [Watch Video Highlight](https://videopress.com/embed/VFJF5tXA)
 
-![](../../assets/2021/03/1995-04-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/1995-04-05.jpg.webp)
 
 **2006:** Bruce and the Sessions Band rehearse for their upcoming tour at the Paramount Theater in Asbury Park.<br>
 
-![](../../assets/2020/03/2006-04-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2006-04-05.jpg.webp)
 
 **2007:** Bruce makes a surprise appearance at a Carnegie Hall benefit show, *Celebrating the Music of Bruce Springsteen: Music for Youth*, joining Craig Finn, Jesse Malin, and Badly Drawn Boy on stage.<br>
 
 [Watch on Youtube: bruce & friends - rosalita](https://www.youtube.com/watch?v=jtjPO47XIbs)
 
-![](../../assets/2020/03/2007-04-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2007-04-05.jpg.webp)
 
 **2008:** Another radio station contest to pick a song for the set list–this time “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” is the winner for this Magic Tour stop at HP Pavilion in San Jose. “[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)” and “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” make their tour debut tonight as well.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/4ds7LEvR)
 
-![](../../assets/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-scaled.jpg) ![](../../assets/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-1-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-scaled.jpg) ![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Oakland_Tribune_Tue__Apr_8__2008_-1-scaled.jpg.webp)
 
 **2009:** Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare “[I’m a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)” and “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/).”<br>
 
@@ -56,9 +56,9 @@
 
 [Watch on Youtube: BRUCE SPRINGSTEEN "Sherry Darling" 4-5-09 Austin](https://www.youtube.com/watch?v=T0lCBVUQguk)
 
-![](../../assets/2020/03/2009-04-05a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2009-04-05a.jpg.webp)
 
-![](../../assets/2021/03/2009-04-05b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/03/2009-04-05b.jpg.webp)
 
 **2016:** At a River Tour stop in Dallas, things get a little out of hand during “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).”<br>
 

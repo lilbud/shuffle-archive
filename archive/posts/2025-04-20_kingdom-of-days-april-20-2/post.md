@@ -4,13 +4,13 @@
 
 **1974:** Bruce and the still-unnamed E Street Band perform a truncated show (for fire safety reasons) at Ursinus College in Collegeville, Pennsylvania.<br>
 
-![](../../assets/2018/04/1974-0420.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1974-0420.jpg.webp)
 
 **1976:** Bruce and the band play a sparsely attended show at the Freedom Hall Civic Center in Johnson City, Tennessee.<br>
 
-![](../../assets/2020/04/1976-04-20.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1976-04-20.jpg.webp)
 
-![](../../assets/2021/04/1976-04-20b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1976-04-20b.jpg.webp)
 
 **1980:** Bruce works on mixes for his upcoming album *The River* at Clover Studios in Los Angeles.<br>
 
@@ -24,7 +24,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/29cLHNnJ)
 
-![](../../assets/2021/04/1988-04-20.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1988-04-20.jpg.webp)
 
 **1993:** The second of two nights in Rotterdam for Bruce's World Tour 1993.<br>
 
@@ -60,9 +60,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/NW38i8Um)
 
-![](../../assets/2021/04/2006-04-20a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2006-04-20a.jpg.webp)
 
-![](../../assets/2020/04/2006-04-20b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2006-04-20b.jpg.webp)
 
 **2013:** Bruce attends (but does not perform at) the annual Kirsten Ann Carr Fund event.<br>
 
@@ -78,4 +78,4 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Eddie Vedder, Steven Tyler and actress Connie Britton are in attendance tonight for the last show before a two-week break.<br>
 
-![](../../assets/2019/04/connie-britton.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/04/connie-britton.jpg.webp)

@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Bruce Springsteen Band playing "Nothing Can Stop Me" 1971-07-10](https://www.youtube.com/watch?v=r6all5hMCWY)
 
-![](../../assets/2020/06/1971-07-10.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1971-07-10.jpg.webp)
 
 **1983:** Bruce joins Cats on a Smooth Surface for five songs at The Stone Pony in Asbury Park, including “[Wooly Bully](https://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)” and “[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/).”<br>
 
@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Springsteen - 1976 Hammond Interview](https://www.youtube.com/watch?v=C3OJKnbSQb0)
 
-![](../../assets/2020/06/1987-07-10.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1987-07-10.jpg.webp)
 
 **1988:** Bruce and the E Street Band play their second of two Tunnel of Love shows at Bramall Lane in Sheffield.<br>
 
@@ -26,7 +26,7 @@
 
 [Watch on Youtube: Sheffield 10/07/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zATGqy6HjddIRTztJhrdWsH)
 
-![](../../assets/2024/07/The_Miami_Herald_1988_07_11_9-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/07/The_Miami_Herald_1988_07_11_9-scaled.jpg.webp)
 
 **1990:** Sixteen years after its original release, *The Wild, The Innocent & The E Street Shuffle* is finally certified platinum by the Recording Industry Association of America.<br>
 

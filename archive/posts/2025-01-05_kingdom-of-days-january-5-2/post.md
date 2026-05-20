@@ -2,33 +2,33 @@
 
 [Watch on Youtube: Greetings from Asbury Park, N.J.](https://www.youtube.com/playlist?list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
 
-![](../../assets/2022/01/1973-01-05a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/01/1973-01-05a.jpg.webp)
 
-![](../../assets/2022/01/1973-01-05b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/01/1973-01-05b.jpg.webp)
 
-![](../../assets/2025/01/The_Philadelphia_Inquirer_1973_01_21_Page_90-1-1.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/The_Philadelphia_Inquirer_1973_01_21_Page_90-1-1.jpg.webp)
 
-![](../../assets/2020/12/1973-01-05b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1973-01-05b.png.webp)
 
 That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, opening for Travis, Shook and The Club Wow. These photos are of Bruce tuning up for the show backstage. (Photo credit: Phil Ceccola)
 
-![](../../assets/2021/01/1973-0105-a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/1973-0105-a.jpg.webp)
 
-![](../../assets/2021/01/1973-0105-b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/1973-0105-b.jpg.webp)
 
 **1974:** Bruce plays the second of a three-night stand at Joe's Place in Cambridge, Massachusetts. (Photo credit: Jeff Albertson)<br>
 
-![](../../assets/2019/12/1974-01-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/12/1974-01-05.jpg.webp)
 
-![](../../assets/2021/01/1975-0105-b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/1975-0105-b.jpg.webp)
 
 **1975:** Bruce makes a guest appearance at The Stone Pony in Asbury Park. The headliner is The Blackberry Booze Band, forerunners to Southside Johnny and the Asbury Jukes.<br>
 
 **1982:** Bruce joins the Lord Gunner Group onstage at the Stone Pony for performances of "[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)" and "[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)."<br>
 
-![1994-0105-a](../../assets/2018/01/1994-0105-a-1.jpg)
+![1994-0105-a](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/01/1994-0105-a-1.jpg.webp)
 
-![](../../assets/2024/01/The_Courier_News_Sat__Jan_23__1982_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/01/The_Courier_News_Sat__Jan_23__1982_.jpg.webp)
 
 **1985:** Bruce and the E Street Band play their second of two Born in the U.S.A. shows at the Hampton Roads Coliseum in Virginia.<br>
 
@@ -38,7 +38,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 **1994:** Bruce's youngest child, Sam Ryan Springsteen, is born in Los Angeles.<br>
 
-![](../../assets/2025/01/Quad_City_Times_1994_01_08_2-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/Quad_City_Times_1994_01_08_2-scaled.jpg.webp)
 
 **1995:** Bruce calls each member of the E Street Band for a brief reunion. The band disbanded more than five years prior, but Bruce reassembles them to record some new songs for his upcoming *Greatest Hits* compilation. Clarence gets on a plane so quickly that he reportedly no-shows at his own party.<br>
 

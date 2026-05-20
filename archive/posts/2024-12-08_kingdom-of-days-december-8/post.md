@@ -4,21 +4,21 @@
 
 **1972:** Peter Knobler interviews Bruce for *Crawdaddy* at Bruce's girlfriend's house in Bradley Beach. That night, Bruce and the as-yet-unnamed E Street Band play their fourth night of a six-night, two-shows-nightly stand at Kenny's Castaways in New York City.<br>
 
-![](../../assets/2019/11/1972-12-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/1972-12-05.jpg.webp)
 
 **1973:** Bruce and his band play three sets at Childe Harold in Washington DC–their last of three nights.<br>
 
-![](../../assets/2019/11/1973-12-07.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/11/1973-12-07.jpg.webp)
 
 **1974:** Bruce and the E Street Band play their first-ever show in Vermont, at the Burlington Memorial Auditorium. (Thanks to friend of the blog Jym Wilson for the poster scan!)<br>
 
 [Watch Video Highlight](https://videopress.com/embed/7NUHNgDc)
 
-![](../../assets/2020/12/1974-12-08a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1974-12-08a.png.webp)
 
-![](../../assets/2020/12/1974-12-08b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1974-12-08b.png.webp)
 
-![](../../assets/2021/12/1974-12-08.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/12/1974-12-08.jpg.webp)
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to The Summit in Houston, where the setlist features a rare outing for "[The Fever,](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)" which has always been popular in Texas. This show will be made available years later as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,17715/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-8-1978-The-Summit-Houston-TX.html)) and in video form in the anniversary box set for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).<br>
 
@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "I'm a Rocker" - Philadelphia, 1980-12-08](https://www.youtube.com/watch?v=6gn4E2g70iw)
 
-![](../../assets/2020/12/1980-12-08.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1980-12-08.png.webp)
 
 **1992:** On Night Two in Philadelphia, Bruce debuts a new song (sort of) when nature calls in the middle of the show, Frank Bruno makes a guest appearance long before he joins the Sessions Band, and "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)" makes its only tour appearance outside of its namesake state.<br>
 
@@ -46,13 +46,13 @@
 
 [Watch on Youtube: Sinaloa Cowboys (Live at The Tower Theater, Philadelphia, PA - December 1995)](https://www.youtube.com/watch?v=7FFtfmvmG7U)
 
-![](../../assets/2020/12/1995-12-08.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1995-12-08.png.webp)
 
 **1998:** Continuing his European media blitz, Bruce appears on a Swedish talk show, performing and answering questions at TV4 Studios in Stockholm–and confirming what he'd only hinted at yesterday: the E Street Band will shortly reunite for a world tour. Before the day is out, an official press release will make news worldwide.<br>
 
 [Watch on Youtube: Bruce Springsteen - ""Born in the USA" - Stockholm, 1998-12-08](https://www.youtube.com/watch?v=iajdfmZVcLE)
 
-![](../../assets/2020/12/1998-12-08.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/1998-12-08.png.webp)
 
 **2001:** Bruce, The Max Weinberg 7 and a host of friends play their fifth and final holiday show at Asbury Park's Convention Hall in support of local charities. All of last night's guests are present (including Bruce Hornsby), but now Elvis Costello joins the ensemble as well.<br>
 
@@ -64,7 +64,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/cS3pgwTL)
 
-![](../../assets/2020/12/2002-12-08.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2002-12-08.png.webp)
 
 **2003:** Bruce, the Max Weinberg 7, and a host of friends hold their third of a three-pack of holiday shows at Asbury Park's Convention Hall to benefit local charities. The stage is once again filled with a host of stellar musicians including Jesse Malin, Sam Moore, Willie Nile, and much of the E Street Band.<br>
 
@@ -84,6 +84,6 @@
 
 **2019:** At a closed rehearsal at SIR Stage 37 in New York City, Bruce rehearses with John Mellencamp for Sting's 30th anniversary benefit show for the Rainforest Fund the following day.<br>
 
-![](../../assets/2020/12/2019-12-08.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2019-12-08.png.webp)
 
 **2023:** Months before, Bruce's scheduled show in San Francisco is postponed four days to December 12th. It will end up being postponed again.<br>

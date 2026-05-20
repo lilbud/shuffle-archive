@@ -1,6 +1,6 @@
 **1973:** Bruce and the band both open and close for Biff Rose on Night Four (of six) at Max's Kansas City. The band had proved unexpectedly popular over the preceding three nights, prompting the venue to take the unusual step of adding a second set for the opening band *after* the headliner.<br>
 
-![](../../assets/2018/01/1973-0201.gif)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/01/1973-0201.gif)
 
 **2018:** *Springsteen on Broadway* wraps up the winter "leg" of its theatrical run at the Walter Kerr Theater in New York City. Bruce will take the rest of the month off, resuming performances on February 28th.<br>
 

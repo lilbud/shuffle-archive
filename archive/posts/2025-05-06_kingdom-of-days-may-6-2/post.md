@@ -2,17 +2,17 @@
 
 **1973:** Bruce plays the Spring Carnival at UMass Amherst. With attendance at around 18,000, this is one of the largest crowds that Bruce will play to for years.<br>
 
-![](../../assets/2021/05/1973-05-06-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1973-05-06-scaled.jpg.webp)
 
-![](../../assets/2018/04/1973-0506.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1973-0506.jpg.webp)
 
 **1974:** Bruce and his band play a show at Bucks County Community College in Newtown, Pennsylvania. This is the final show before the E Street Band debuts its official name.<br>
 
-![](../../assets/2018/04/1974-0506.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1974-0506.jpg.webp)
 
 **1976:** Bruce plays a sparsely-attended gig at the Municipal Auditorium in Shreveport, Louisiana.<br>
 
-![](../../assets/2020/04/1976-05-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1976-05-05.jpg.webp)
 
 **1980:** At a mixing session for *The River* at Clover Studios in Los Angeles, Bruce works on "[I Wanna Marry You.](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)"<br>
 
@@ -26,9 +26,9 @@
 
 [Watch on Youtube: Tacoma 06/05/1988](https://www.youtube.com/playlist?list=PLJTyL9twk3zCklFtd1yJuyrTD01Z7XiFd)
 
-![](../../assets/2024/05/Morning_News_Tribune_Mon__May_9__1988_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/Morning_News_Tribune_Mon__May_9__1988_.jpg.webp)
 
-![](../../assets/2018/05/1988-0506.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1988-0506.jpg.webp)
 
 **1992:** Bruce unveils his new band at a ninety-minute show at The Bottom Line in New York City. MTV's Week in Rock features some footage from the show, along with an interview with Bruce.<br>
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Week in Rock - Bruce Springsteen, May 6, 1992](https://www.youtube.com/watch?v=yI4ERedTEbE)
 
-![](../../assets/2021/05/1992-05-06.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1992-05-06.jpg.webp)
 
 **1996:** Bruce plays the first of two solo acoustic shows at Teatro Tivoli in Barcelona.<br>
 
@@ -64,7 +64,7 @@
 
 [Watch on Youtube: Bruce Springsteen - THE RIVER 2010 acoustic (audio)](https://www.youtube.com/watch?v=wHO5uJOdsF4)
 
-![](../../assets/2021/05/2010-05-06.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2010-05-06.jpg.webp)
 
 **2014:** At the Cynthia Woods Mitchell Pavilion in Houston, one of the smaller venues on the High Hopes Tour, Bruce plans to open the show with "[This Is Your Sword](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)." Luckily, Tom Morello has a better idea: as they walk on stage, Tom suggests to Bruce that he open with "[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)" instead, setting the tone for a high-energy show that features a guest spot by Joe Ely and the tour debut of "[All or Nothin' at All](https://estreetshuffle.com/index.php/2018/01/30/roll-of-the-dice-all-or-nothing-at-all/)" and "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)." For lots more highlights from this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/05/06/where-the-band-was-houston-may-6-2014/). This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,11389/Bruce-Springsteen-mp3-flac-download-5-6-2014-Cynthia-Woods-Mitchell-Pavilion-Houston-TX.html).<br>
 
@@ -78,7 +78,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/0zCQnGAf)
 
-![](../../assets/2020/04/2018-05-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2018-05-05.jpg.webp)
 
 **2020:** It's starting to look like a series: Bruce makes his third appearance as radio DJ on his E Street Radio show, *From My Home to Yours.*<br>
 

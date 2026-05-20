@@ -6,9 +6,9 @@
 
 **1978:** The Darkness Tour continues its southern swing, arriving in Columbia, South Carolina, for a show at the Township Auditorium.<br>
 
-![](../../assets/2024/07/The_Columbia_Record_1978_08_01_30-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/07/The_Columbia_Record_1978_08_01_30-scaled.jpg.webp)
 
-![](../../assets/2018/07/1978-0731.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1978-0731.jpg.webp)
 
 **1982:** Bruce makes a guest appearance with Sonny Kenn and the Wild Ideas at Big Man's West in Red Bank.<br>
 
@@ -22,15 +22,15 @@ That evening, Bruce tour premieres "Growin' Up" at Night Two in Detroit on the B
 
 [Watch Video Highlight](https://videopress.com/embed/1IZ822FI)
 
-![](../../assets/2020/07/1984-07-31.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1984-07-31.png.webp)
 
 **1987:** Bruce guest-stars with Marshall Crenshaw at The Stone Pony in Asbury Park for "You Can't Sit Down," "La Bamba," and "Twist and Shout."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/91vNP1rr)
 
-![](../../assets/2020/07/1987-07-31a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1987-07-31a.png.webp)
 
-![](../../assets/2020/07/1987-07-31b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1987-07-31b.png.webp)
 
 **1992:** The opening stand of World Tour 1992 reaches its midpoint in East Rutherford on Night Six of eleven. Many tour premieres tonight, including "Atlantic City," "Spirit in the Night," "I'm on Fire", and the live debuts of "Pony Boy" and "Cross My Heart."<br>
 
@@ -82,7 +82,7 @@ That evening, Bruce tour premieres "Growin' Up" at Night Two in Detroit on the B
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IR2y_Hjzmy8)
 
-![](../../assets/2020/07/2015-07-31.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2015-07-31.png.webp)
 
 **2016:** Bruce wraps the European River Tour with a final show in Zurich, where he tour debuts "None But the Brave" and "Roll of the Dice" and plays a rare "Jole Blon."<br>
 
@@ -94,8 +94,8 @@ That evening, Bruce tour premieres "Growin' Up" at Night Two in Detroit on the B
 
 **2022:** Bruce strolls the Asbury Park boardwalk and stops by the Wonder Bar in Asbury Park to acknowledge the storied venue's 20th anniversary. Before he leaves, he graciously poses for a photo with this blogger and Jersey Shore rock and roll tour guide Stan Goldstein.<br>
 
-![](../../assets/2023/07/IMG_5216.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/07/IMG_5216.jpg.webp)
 
-![](../../assets/2023/07/e4aac969-2276-4cd0-a652-cd3fbd55f91b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/07/e4aac969-2276-4cd0-a652-cd3fbd55f91b.jpg.webp)
 
 [Watch Video Highlight](https://videopress.com/embed/7vTU17RN)

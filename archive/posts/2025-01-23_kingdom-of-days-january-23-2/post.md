@@ -4,9 +4,9 @@
 
 [Watch on Youtube: Steel Mill (Bruce Springsteen) 1971-01-23 live at The Upstage, Asbury Park](https://www.youtube.com/watch?v=RJUvc_TRTHs)
 
-![](../../assets/2018/01/1971-0123a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/01/1971-0123a.jpg.webp)
 
-![](../../assets/2020/01/1971-01-22.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/1971-01-22.jpg.webp)
 
 **1972:** Bruce sits in with the Sundance Blues Band at The Captain's Garter in Neptune, NJ.<br>
 
@@ -14,25 +14,25 @@
 
 [Watch on Youtube: 1981-01-23 Montreal, QC](https://www.youtube.com/playlist?list=PLnbVaK2f4rag1FRO13B9e2PprQP-HQFcW)
 
-![](../../assets/2020/01/1996-01-23a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/1996-01-23a.jpg.webp)
 
-![](../../assets/2021/01/monreal81.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/monreal81.jpg.webp)
 
-![](../../assets/2021/01/1981-01-23.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/1981-01-23.png.webp)
 
-![](../../assets/2020/01/soup.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/soup.jpg.webp)
 
 **1985:** Night One in Providence on the *Born in the U.S.A.* Tour.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/3Mt9MRp3)
 
-![](../../assets/2021/01/1985-01-23.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/1985-01-23.jpg.webp)
 
 **1996:** Bruce performs solo at the Jesse H. Jones Hall for the Performing Arts in Houston.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/ldxTa26C)
 
-![](../../assets/2020/01/1996-01-23b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/01/1996-01-23b.jpg.webp)
 
 **2010:** Backed by Bobby Bandiera and his band, Bruce plays a benefit for his kids' school at the Stone Pony, with guest appearances by Patti, Southside, and Brian Williams.<br>
 

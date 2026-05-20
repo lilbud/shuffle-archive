@@ -10,7 +10,7 @@
 
 **1981:** Bruce is sick, causing his scheduled River Tour show in Cincinnati to be postponed.<br>
 
-![](../../assets/2020/07/1981-07-26.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1981-07-26.png.webp)
 
 **1984:** Bruce's third and final night in Toronto on the Born in the U.S.A. Tour is a great one, featuring the live debut of "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)," the tour premiere of "[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)," and a rare (on this tour, at least) "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)." The entire second half of the show plus encores is professionally filmed.<br>
 
@@ -48,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/9mLG5EG4)
 
-![](../../assets/2021/07/2002-07-26.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/2002-07-26.png.webp)
 
 **2003:** Night Six of ten at Giants Stadium on the Rising Tour opens with the tour premiere of "[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)."<br>
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Leah (Live-Greensboro 2005)](https://www.youtube.com/watch?v=xtxymKvlhsQ)
 
-![](../../assets/2025/07/News_and_Record_2005_07_28_46.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/07/News_and_Record_2005_07_28_46.jpg.webp)
 
 **2009:** Bruce and the E Street Band take the Working on a Dream Tour into its European home stretch, winding up the leg with a five-show mini-tour of Spain, starting with this first show in Bilbao. "[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)" and "[You Never Can Tell](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)" both get the tour premiere treatment.<br>
 

@@ -2,11 +2,11 @@
 
 **1961:** Eleven-year-old Bruce Springsteen receives the sacrament of confirmation at St. Rose of Lima Church in Freehold.<br>
 
-![](../../assets/2021/05/1961-05-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1961-05-05.jpg.webp)
 
 **1973:** Bruce and the as yet unnamed E Street Band play a show at Providence College in Rhode Island.<br>
 
-![](../../assets/2018/04/1973-0505.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1973-0505.jpg.webp)
 
 **1974:** Bruce postpones a scheduled concert at Kent State University to June 1.<br>
 
@@ -24,7 +24,7 @@
 
 **1988:** Bruce plays the first of two nights at the Tacoma Dome for the Tunnel of Love Express Tour and scores the cover of *Rolling Stone*.<br>
 
-![](../../assets/2020/04/rolling-stone-cover-volume-525-5-5-1988-bruce-springsteen.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/rolling-stone-cover-volume-525-5-5-1988-bruce-springsteen.jpg.webp)
 
 [Watch Video Highlight](https://videopress.com/embed/HsrTnjy0)
 
@@ -32,11 +32,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/htl1ckUK)
 
-![](../../assets/2020/05/1988-05-05-save.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/1988-05-05-save.jpg.webp)
 
-![](../../assets/2021/05/1988-05-05a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1988-05-05a.jpg.webp)
 
-![](../../assets/2018/05/1988-0505.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/1988-0505.jpg.webp)
 
 **1992:** The Recording Industry Association of America certifies "[Santa Claus Is Coming to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" as gold and "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" as platinum.<br>
 
@@ -56,21 +56,21 @@
 
 [Watch on Youtube: Bruce Springsteen - THUNDER ROAD (acoustic 1997)](https://www.youtube.com/watch?v=KphvQowUOaM)
 
-![](../../assets/2020/04/1997-05-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1997-05-05.jpg.webp)
 
 **2005:** Bruce tour premieres "[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)" and an acoustic arrangement of "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)" at his solo acoustic show at Oakland's Paramount Theater. For more highlights from this show, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/05/05/where-the-band-was-oakland-may-5-2005/).<br>
 
 [Watch on Youtube: Bruce Springsteen - Land of Hope and Dreams - Oakland, May 5 2005](https://www.youtube.com/watch?v=psFjDUQuviY)
 
-![](../../assets/2021/05/2005-05-05a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2005-05-05a.jpg.webp)
 
-![](../../assets/2021/05/2005-05-05b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2005-05-05b.jpg.webp)
 
 **2006:** The first European leg of the Seeger Sessions Tour kicks off at the Point Theater in Dublin with the tour debuts of "[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)" and "[Erie Canal](https://estreetshuffle.com/index.php/2019/11/02/cover-me-erie-canal/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/kPchYwxD)
 
-![](../../assets/2024/05/The_Independent_Sat__May_6__2006_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/The_Independent_Sat__May_6__2006_.jpg.webp)
 
 **2009:** Bruce plays his fourth show in four days, as the Working on a Dream Tour rolls into Charlottesville, Virginia, for a show at the John Paul Jones arena. The set list includes a one-off cover (by request) of The Kinks' "[You Really Got Me](https://estreetshuffle.com/index.php/2020/12/01/cover-me-you-really-got-me/)," along with the tour premieres of "[Gypsy Biker](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)" and "[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)."<br>
 
@@ -82,7 +82,7 @@
 
 [Dailymotion Video Player](https://www.dailymotion.com/embed/video/x77q6yr)
 
-![](../../assets/2020/04/2019-05-05.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2019-05-05.jpg.webp)
 
 **2023:** Bruce kicks off a three-night stand in Dublin without any tour premieres, the first debut-less show since March. The encores open with "Land of Hope and Dreams," dedicated to Charlie Bird, who is in attendance tonight.<br>
 

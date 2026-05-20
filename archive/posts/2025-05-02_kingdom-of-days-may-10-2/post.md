@@ -2,7 +2,7 @@
 
 **1970:** Steel Mill headlines an outdoor concert at Monmouth College in West Long Branch, New Jersey.<br>
 
-![](../../assets/2021/05/1970-0510.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1970-0510.jpg.webp)
 
 **1974:** A scheduled gig in Providence, Rhode Island is cancelled to make room for recording sessions for *Born to Run*.<br>
 
@@ -30,9 +30,9 @@
 
 [Watch on Youtube: Bruce Springsteen 'Born To Run' (May 10, 1988)](https://www.youtube.com/watch?v=HNUqIApF_pA)
 
-![](../../assets/2020/04/1988-05-10a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-05-10a.jpg.webp)
 
-![](../../assets/2020/04/1988-05-10b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-05-10b.jpg.webp)
 
 **1997:** Night Two for Bruce in Warsaw during his first visit to Poland features the final performance to date of “[There Will Never Be Any Other for Me But You](https://estreetshuffle.com/index.php/2019/08/23/roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/).”<br>
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Bruce Springsteen - A GOOD MAN IS HARD TO FIND 2005 (audio)](https://www.youtube.com/watch?v=AjEjoHqz4LA)
 
-![](../../assets/2025/05/Star_Tribune_2005_05_11_B5.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/05/Star_Tribune_2005_05_11_B5.jpg.webp)
 
 **2006:** The Seeger Sessions Tour moves on to Paris, where Bruce premieres “[Bring ‘Em Home](https://estreetshuffle.com/index.php/2021/06/23/rotd-cover-me-bring-em-home/).” The show also features the proper tour premiere of the waltz arrangement of “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/).” Elliott Murphy and Garland Jeffreys join Bruce for “[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)” in the encore.<br>
 

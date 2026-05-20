@@ -2,7 +2,7 @@
 
 **1970:** Steel Mill headlines a show at the University of Richmond.<br>
 
-![](../../assets/2018/10/1970-1023.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/1970-1023.jpg.webp)
 
 **1971:** One year to the day from his appearance there with Steel Mill, Bruce brings The Bruce Springsteen Band to the University of Richmond. (Disregard the date stamp on the videos below–they are indeed from this date.)<br>
 
@@ -18,19 +18,19 @@
 
 **1980:** Montana musician Phil Hamilton–a devoted Bruce fan–arranges a two-night stand in Seattle for his Lost Highway Band in order to be in town for Bruce’s River show the next day. Coincidentally, Hamilton spots Bruce walking on the street, introduces himself, and invites Bruce to come watch their show at The Old Timer’s Cafe that night. Bruce shocks the band by doing just that, even joining them on stage for a few songs.<br>
 
-![](../../assets/2018/10/1980-1023.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/1980-1023.jpg.webp)
 
 **1987:** Bruce performs “[Forever Young](https://estreetshuffle.com/index.php/2019/09/01/matr-bob-dylan-and-bruce-springsteen-forever-young/)” acoustically at the funeral of John Hammond at St. Peter’s Church in New York City.<br>
 
 [Watch on Youtube: Bruce Springsteen, "Forever Young" 1987-10-23](https://www.youtube.com/watch?v=llyGdYw3KmQ)
 
-![](../../assets/2020/10/1987-10-23.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1987-10-23.png.webp)
 
 **1996:** Bruce plays a solo acoustic performance at the William Saroyan Theater in Fresno, where he plays “[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)” for the last time for nine years.<br>
 
 [Watch on Youtube: Bruce Springsteen - "The New Timer" - Fresno, 1996-10-23](https://www.youtube.com/watch?v=mYVxiiFX6v8)
 
-![](../../assets/2021/10/1996-10-23.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1996-10-23.png.webp)
 
 **1999:** At their fourth and final show in Los Angeles on the Reunion Tour, Bruce and the E Street Band tour premiere “The Promise” and play a rare “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).” This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,23110/bruce-springsteen---the-e-street-band-staples-center-los-angeles-10-23-1999-mp3-flac-or-online-music-streaming.html).<br>
 
@@ -46,7 +46,7 @@
 
 [Watch on Youtube: If I Should Fall Behind (Live at Staples Center, Los Angeles, CA - 10/23/1999)](https://www.youtube.com/watch?v=eh4BQpVXfI8)
 
-![](../../assets/2020/10/1999-10-23.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1999-10-23.png.webp)
 
 **2012:** Bruce performs solo at a re-election rally for President Obama in Charlottesville, Virginia. That night, he and the E Street Band play a Wrecking Ball show at the John Paul Jones Arena, where the fantastic set includes the tour premiere of “[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/),” a rare “[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)” and “[This Depression](https://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/),” and three epics: “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/),” “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” and “Jungleland.” Friend of the blog Bill Kenney is there and shares his first-hand review [here](https://billk128.tumblr.com/post/35088354431/live-from-the-hook-or-prelude-to-sandy).<br>
 
@@ -60,13 +60,13 @@
 
 [Watch on Youtube: Bruce Springsteen - Jungeland (ALL) - Charlottesville-10/23/12](https://www.youtube.com/watch?v=fAh2pxAsO_8)
 
-![](../../assets/2024/10/Culpeper_Star_Exponent_2012_10_24_3-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/10/Culpeper_Star_Exponent_2012_10_24_3-scaled.jpg.webp)
 
 **2019:** Bruce joins Ralph Lauren for the premiere of HBO’s *Very Ralph* at the Metropolitan Museum of Art in New York City.<br>
 
 [Watch on Youtube: Ralph Lauren celebrated at 'Very Ralph' premiere](https://www.youtube.com/watch?v=aqgcKhrRXzA)
 
-![](../../assets/2020/10/2019-10-23a-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2019-10-23a-scaled.jpg.webp)
 
 **2020:** At the stroke of midnight, Bruce releases his twentieth studio album, [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/), recorded in late 2019 with the E Street Band.<br>
 

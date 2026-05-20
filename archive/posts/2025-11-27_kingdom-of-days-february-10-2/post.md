@@ -2,15 +2,15 @@
 
 **1973:** Bruce and his band play their final show at Asbury Park’s Sunshine In. Unfortunately, it’s a short set–only forty minutes–disappointing fans who came to hear Bruce. To add insult to injury, the scheduled opening band (John Lennon’s backing band, Elephant’s Memory) is a no-show. A frustrated fan writes to the Asbury Park Press to complain.<br>
 
-![](../../assets/2021/02/2008-02-10.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/2008-02-10.png.webp)
 
 **1977:** Bruce and the E Street Band play their fourth straight night on the Lawsuit Tour, this time to a crowd of 5,500 at the Memorial Auditorium in Utica, New York.<br>
 
-![](../../assets/2021/02/1977-0210.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1977-0210.jpg.webp)
 
 **1981:** A rare show postponement: The River Tour stop in Lexington is rescheduled for the following month when Bruce comes down with strep throat.<br>
 
-![](../../assets/2021/02/1981-02-10.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1981-02-10.png.webp)
 
 **1990:** Sting assembles a band for a benefit show for the Rainforest Foundation. The band includes Bruce, Paul Simon, Don Henley, Bruce Hornsby, Herbie Hancock, Brandford Marsalis, Paulinho Da Costa, and Sting. The all-star band meets to rehearse in Beverly Hills.<br>
 
@@ -44,7 +44,7 @@
 
 [Watch on Youtube: Bruce Springsteen "Bobby Jean" 02-10-16 XL Center Hartford CT](https://www.youtube.com/watch?v=dM_BDvIvmcM)
 
-![](../../assets/2021/02/2016-02-10.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/2016-02-10.png.webp)
 
 **2023:** At the American Airlines Center in Dallas, Soozie is still down for the count with COVID, and now Little Steven is as well. Patti is absent too, as she will be for the rest of the tour, but while the E Street Band is diminished in size, they perform at full strength and tour premiere “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” in the encores.<br>
 
@@ -52,6 +52,6 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Dallas - 2023-02-10 - Thunder Road](https://www.youtube.com/watch?v=mRFr28PyO64)
 
-![](../../assets/2024/02/Fort_Worth_Star_Telegram_Sun__Feb_12__2023_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/02/Fort_Worth_Star_Telegram_Sun__Feb_12__2023_-scaled.jpg.webp)
 
-![](../../assets/2025/02/Asbury_Park_Press_1973_02_15_Page_21-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/02/Asbury_Park_Press_1973_02_15_Page_21-scaled.jpg.webp)

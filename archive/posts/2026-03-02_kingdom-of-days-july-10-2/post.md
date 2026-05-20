@@ -8,7 +8,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=r6all5hMCWY)
 
-![](../../assets/2020/06/1971-07-10.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1971-07-10.jpg.webp)
 
 **1983:** Bruce joins Cats on a Smooth Surface for five songs at The Stone Pony in Asbury Park, including "Wooly Bully" and "Little Latin Lupe Lu."<br>
 
@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=C3OJKnbSQb0)
 
-![](../../assets/2020/06/1987-07-10.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/06/1987-07-10.jpg.webp)
 
 **1988:** Bruce and the E Street Band play their second of two Tunnel of Love shows at Bramall Lane in Sheffield.<br>
 
@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zATGqy6HjddIRTztJhrdWsH)
 
-![](../../assets/2024/07/The_Miami_Herald_1988_07_11_9-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/07/The_Miami_Herald_1988_07_11_9-scaled.jpg.webp)
 
 **1990:** Sixteen years after its original release, *The Wild, The Innocent & The E Street Shuffle* is finally certified platinum by the Recording Industry Association of America.<br>
 

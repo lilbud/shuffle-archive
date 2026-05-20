@@ -12,7 +12,7 @@
 
 **1976:** Bruce and the E Street Band play the Municipal Auditorium Theater in Mobile, Alabama.<br>
 
-![](../../assets/2025/05/The_Mobile_Register_1976_05_10_40-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/05/The_Mobile_Register_1976_05_10_40-scaled.jpg.webp)
 
 **1980:** Bruce and team complete the mix for "Stolen Car" at Clover Studios in Los Angeles.<br>
 
@@ -20,21 +20,21 @@
 
 **1984:** "[Dancing in the Dark,](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)" the first single off *Born in the U.S.A.* is sent to radio stations. It will appear in record stores shortly and become Bruce's greatest hit.<br>
 
-![](../../assets/2020/04/1984-05-09.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1984-05-09.jpg.webp)
 
 **1985:** The news is out: Bruce Springsteen is getting married to actress/model Julianne Phillips in Lake Oswego. When Juli's parents confirm the news, the press runs with the story.<br>
 
-![](../../assets/2020/05/1985-05-09a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/1985-05-09a.jpg.webp)
 
-![](../../assets/2020/05/1985-05-09b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/1985-05-09b.jpg.webp)
 
 **1988:** The Tunnel of Love Express heads to Bloomington, Minnesota for the first of two nights. Eavesdrop on the soundcheck below, featuring Nils singing lead on a cover of "He Can't Love You."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/gz3jjnQH)
 
-![](../../assets/2021/05/1988-05-09a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1988-05-09a.jpg.webp)
 
-![](../../assets/2021/05/1988-05-09b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/1988-05-09b.jpg.webp)
 
 **1992:** Bruce makes his first appearance on *Saturday Night Live* to promote his new albums and upcoming tour. Watch rehearsal footage and the full performance below.<br>
 
@@ -42,7 +42,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/0cAKvrCK)
 
-![](../../assets/2020/04/1992-05-09.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1992-05-09.jpg.webp)
 
 **1993:** Bruce continues his tour of Spain with a single show in Santiago. Watch terrific pro-shot videos of "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)," "[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)," and "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" below.<br>
 
@@ -64,7 +64,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/2j9sa8J0)
 
-![](../../assets/2024/05/Evening_Standard_Fri__May_12__2006_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/Evening_Standard_Fri__May_12__2006_-scaled.jpg.webp)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

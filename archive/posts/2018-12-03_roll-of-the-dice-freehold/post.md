@@ -42,7 +42,7 @@ He'd never spoken of her publicly before, and as a result, neither had she. When
 
 (She denies she sent him home with a limp, however–that may have been poetic license on Bruce's part.)
 
-![](../../assets/2018/12/maria-1.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/12/maria-1.jpg.webp)
 
 > *Well the girls at Freehold Regional they looked pretty fine*
 > *Had my heart broke at least half a dozen times*

@@ -2,17 +2,17 @@
 
 **1954:** Future Seeger Sessions Band member and E Streeter Charlie Giordano is born in Brooklyn.<br>
 
-![](../../assets/2021/10/1954-1013.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1954-1013.jpg.webp)
 
 **1973:** At the last minute, Columbia Records cancels a promotional preview show for *The Wild, The Innocent & The E Street Shuffle* at the Kennedy Center in Washington, DC. No reason is provided.<br>
 
-![](../../assets/2018/10/1973-1013.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/1973-1013.jpg.webp)
 
 **1976:** Bruce and the E Street Band bring the Lawsuit Tour to Kean College in Union, New Jersey.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-10-13 Wilkins Theatre, Union, NJ](https://www.youtube.com/watch?v=dkDuGnON38Y)
 
-![](../../assets/2021/10/medium.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/medium.jpg.webp)
 
 **1977:** Bruce joins Southside Johnny on stage for four songs (including “[Down in the Valley](https://estreetshuffle.com/index.php/2019/01/16/matr-bruce-springsteen-and-southside-johnny-down-in-the-valley/)” and “[Ain’t Too Proud to Beg](https://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)“) at The Stone Pony in Asbury Park.<br>
 
@@ -22,13 +22,13 @@
 
 [Watch on Youtube: Bruce Springsteen - Live in St. Paul, MN (October 13th, 1980) - Super 8 Film](https://www.youtube.com/watch?v=HPMEAOlLFt4)
 
-![](../../assets/2023/10/The_Toronto_Star_1980_10_10_page_59-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/10/The_Toronto_Star_1980_10_10_page_59-scaled.jpg.webp)
 
-![](../../assets/2019/10/1980-10-13.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/1980-10-13.jpg.webp)
 
-![](../../assets/2021/10/1980-10-13a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1980-10-13a.png.webp)
 
-![](../../assets/2020/10/1980-10-13b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1980-10-13b.png.webp)
 
 **1986:** Neil and Pegi Young hold their first benefit for The Bridge School for children with special needs in Mountain View, California, and Neil enlists a few friends for the inaugural event. Former bandmate Nils Lofgren plays a set (in which Bruce makes a brief guest appearance), and Bruce plays a rare (at the time, at least) acoustic set with Nils and Danny as well. Of note: a new arrangement for “[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)” set to the tune of “[Rockaway the Days](https://estreetshuffle.com/index.php/2021/03/15/roll-of-the-dice-rockaway-the-days/),” and an a capella “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/).” Crosby, Stills, Nash & Young join Bruce for “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/),” and Tom Petty, Don Henley, and Robin Williams join Bruce and CSNY for the “[Teach Your Children](https://estreetshuffle.com/index.php/2018/04/14/matr-crosby-stills-nash-young-and-springsteen-teach-your-children/)” finale. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,22746/Bruce-Springsteen---bridge-school-benefit-concert-at-shoreline-amphitheatre-mountain-view-ca-10-13-1986.html).<br>
 
@@ -44,13 +44,13 @@
 
 [Watch on Youtube: Dancing In the Dark (Live at Shoreline Amphitheatre, Mountain View, CA - 10/13/86 - Official Audio)](https://www.youtube.com/watch?v=RjT-Rk-o7zM)
 
-![](../../assets/2019/10/1986-10-13.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/1986-10-13.jpg.webp)
 
-![](../../assets/2020/10/1986-10-13a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1986-10-13a.png.webp)
 
-![](../../assets/2020/10/1986-10-13b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1986-10-13b.png.webp)
 
-![](../../assets/2020/10/1986-10-13c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1986-10-13c.png.webp)
 
 **1992:** After an unplanned week off due to illness, Bruce picks World Tour 1992 back up at the Tacoma Dome.<br>
 
@@ -58,7 +58,7 @@
 
 [Watch on Youtube: Bruce Springsteen 'Trapped' (Tacoma 1992)](https://www.youtube.com/watch?v=iP2ktjDtoO4)
 
-![](../../assets/2020/10/1992-10-13.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1992-10-13.png.webp)
 
 **2004:** Bruce and Jackson Browne hold an encore concert for the Vote for Change Tour at the Continental Airlines Arena in East Rutherford. Patti opens the event, with Bruce joining her for two numbers; Jackson follows, with a Bruce guest-appearance on “[Running on Empty.](https://estreetshuffle.com/index.php/2021/03/24/matr-jackson-browne-and-bruce-springsteen-running-on-empty/)” Bruce’s set features guest appearances not only by Jackson Browne (on “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)“) but notably Eddie Vedder for three numbers featuring Bruce’s live debut of “[Better Man](https://estreetshuffle.com/index.php/2022/11/10/matr-eddie-vedder-and-bruce-springsteen-better-man/)” complete with an inspired sax solo by Clarence.<br>
 
@@ -72,9 +72,9 @@
 
 [Watch on Youtube: Bruce Springsteen w/ Friends - (What's So Funny 'Bout) Peace Love and Understanding (Live 2004)](https://www.youtube.com/watch?v=ZKdlVoUlm8s)
 
-![](../../assets/2020/10/2004-10-13a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2004-10-13a.png.webp)
 
-![](../../assets/2021/10/2004-10-13b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/2004-10-13b.png.webp)
 
 **2005:** Bruce brings his solo acoustic Devils & Dust Tour to Chicago’s United Center.<br>
 
@@ -92,9 +92,9 @@
 
 [Watch on Youtube: Springsteen 10/13/07 SPCA 7 nights to rock](https://www.youtube.com/watch?v=go4-ORX38L4)
 
-![](../../assets/2020/10/2007-10-13a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2007-10-13a.png.webp)
 
-![](../../assets/2020/10/2007-10-13b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2007-10-13b.png.webp)
 
 **2009:** Bruce and the E Street Band kick off one final stand of four shows at the Philadelphia Spectrum before its scheduled demolition. Each show will be special in its own right, starting from the first number of the first show: the tour premiere and first E Street Band performance of “[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)” in 36 years. This show also features a full album performance of *Born to Run*, Bruce’s only performance of “[Little Bit O’Soul](https://estreetshuffle.com/index.php/2019/03/06/cover-me-little-bit-o-soul/)” to date, and a rare outing for “[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/).”<br>
 
@@ -108,23 +108,23 @@
 
 [Watch on Youtube: Springsteen - Tenth Ave Freeze Out - The Spectrum October 13, 2009 - Entire Song](https://www.youtube.com/watch?v=hlN1x52g9kk)
 
-![](../../assets/2020/10/2009-10-13a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2009-10-13a.png.webp)
 
-![](../../assets/2020/10/2009-10-13b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2009-10-13b.png.webp)
 
 **2017:** Bruce settles in for a long run of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. This is Night Two.<br>
 
-![](../../assets/2018/10/2017-1003.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/2017-1003.jpg.webp)
 
 **2018:** It’s Night Two Hundred for *Springsteen on Broadway* at the Walter Kerr Theater in New York City. In attendance to help celebrate: comedian Chris Rock, actor Laurence Fishburne, and author Nelson George.<br>
 
-![](../../assets/2019/10/2018-10-13d.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/2018-10-13d.jpg.webp)
 
-![](../../assets/2019/10/2018-10-13a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/2018-10-13a.jpg.webp)
 
-![](../../assets/2019/10/2018-10-13b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/2018-10-13b.jpg.webp)
 
-![](../../assets/2019/10/2018-10-13c.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/10/2018-10-13c.jpg.webp)
 
 **2019:** Bruce spends the weekend at the Ham Yard Hotel in London. speaking to print and broadcast journalists about his *Western Stars* film, most of which will be printed and aired over the weeks to come.<br>
 

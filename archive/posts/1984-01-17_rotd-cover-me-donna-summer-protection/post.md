@@ -64,7 +64,7 @@ Still, Bruce spent a few days with Donna working on the song, and he appears on 
 
 Donna released "Protection" as the second single from her self-titled album in early 1983, but it didn't chart. It did, however, earn her a Grammy nomination for Best Female Rock Vocal Performance. (She lost to Pat Benatar.) In her album liner notes, she thanked Bruce for "hangin' out and workin' out" on the song.
 
-![](../../assets/2021/12/7949_03-resize.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/12/7949_03-resize.jpg.webp)
 
 As for Bruce's own version, it remains complete but unreleased in his vault. To this day, he's never performed it in concert, although he may have come close in 1988, when he rehearsed it for the Tunnel of Love Express Tour.
 

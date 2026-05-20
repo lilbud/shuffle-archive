@@ -1,8 +1,8 @@
 If you go see Bruce Springsteen after Thanksgiving, you better watch out, and you better not cry. And you better bring your Santy Claus hats, because odds are you’re gonna need them.
 
-![](../../assets/2018/11/15178199_10154174869751158_5701225122112296324_n.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/11/15178199_10154174869751158_5701225122112296324_n.jpg.webp)
 
-![](../../assets/2018/11/santy.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/11/santy.jpg.webp)
 
 On a cold day in late November, my friend Tjeerd and I took a ride across the border (the other border), where our faith was rewarded with a great show. No jaw-dropping debuts or for-the-ages performances, just a solid, fun set list, loose performances, and surprising sequencing–starting with the opener.
 

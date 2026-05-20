@@ -28,23 +28,23 @@
 
 [Watch on Youtube: Bruce Springsteen "Wreck on the Highway" 5/17/2005](https://www.youtube.com/watch?v=JG02_-3cltM)
 
-![](../../assets/2021/05/2005-05-17a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2005-05-17a.jpg.webp)
 
-![](../../assets/2020/05/2005-05-17b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2005-05-17b.jpg.webp)
 
-![](../../assets/2021/05/2005-05-17c.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/05/2005-05-17c.jpg.webp)
 
 **2006:** Wolfgang Niedecken joins Bruce and the Sessions Band for "[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)" in Frankfurt.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/obMMPfb9)
 
-![](../../assets/2024/05/The_Columbian_Sat__May_20__2006_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/The_Columbian_Sat__May_20__2006_-scaled.jpg.webp)
 
 **2008:** Bruce joins Mike Ness on stage at The Stone Pony.<br>
 
-![](../../assets/2020/05/2008-05-17.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2008-05-17.jpg.webp)
 
-![](../../assets/2018/05/2008-0517.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/05/2008-0517.jpg.webp)
 
 **2012:** An amazing Wrecking Ball show in Barcelona, where the tour premieres ("[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" and "Y[ou Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" are the least of the highlights. This show will be remembered as the night when the legendary extended instrumental intro to "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)" from the Darkness Tour finally returned–by request–after being absent for 32 years.<br>
 
@@ -70,11 +70,11 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 [Watch on Youtube: If I Should Fall Behind (Live at Mohegan Sun Arena, Uncasville, CT - 05/17/14 - Officia...](https://www.youtube.com/watch?v=Kn3DiuNlCc4)
 
-![](../../assets/2020/05/2014-05-17.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2014-05-17.jpg.webp)
 
-![](../../assets/2024/05/Daily_News_Mon__May_19__2014_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/Daily_News_Mon__May_19__2014_-scaled.jpg.webp)
 
-![](../../assets/2024/05/The_Day_Mon__May_19__2014_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/05/The_Day_Mon__May_19__2014_-scaled.jpg.webp)
 
 **2016:** *The River* tracks still dominate the set list as the European leg gathers steam, but there's still plenty of room for tour premieres: "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)," "[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)," "[Waitin' on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)" and a solo acoustic "This Hard Land" all make their debut in San Sebastian.<br>
 
@@ -86,4 +86,4 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Actress/singer Connie Britton is in attendance tonight.<br>
 
-![](../../assets/2019/05/conniebritto.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/05/conniebritto.jpg.webp)

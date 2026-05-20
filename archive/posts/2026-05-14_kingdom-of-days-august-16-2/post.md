@@ -1,6 +1,6 @@
 **1968:** Earth makes their debut performance at the Off Broad Street Coffee House in Red Bank, New Jersey. Earth is Bruce's new band, featuring John Graham on bass and Michael Burke on drums. (Bob Alfano will join later on organ.)<br>
 
-![](../../assets/2018/08/1968-0816.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1968-0816.jpg.webp)
 
 **1969:** Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that's where the band wants to be–but they honor their commitment.<br>
 
@@ -18,9 +18,9 @@
 
 **1980:** Bruce joins Jackson Browne on stage for "Sweet Little Sixteen" and "Stay" at The Forum in Inglewood, California. (Photo credit: Carlo)<br>
 
-![](../../assets/2018/08/1980-0816.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/08/1980-0816.jpg.webp)
 
-![](../../assets/2020/08/1980-08-16.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1980-08-16.png.webp)
 
 **1981:** Bruce and the E Street Band return to Red Rocks on the River Tour, debuting their cover of Frankie Ford's "Sea Cruise" and opening with "Who'll Stop the Rain" — both inspired by the heavy rain that night.<br>
 
@@ -32,7 +32,7 @@
 
 **1987:** Bruce attends (but does not perform at) the 12th annual Clearwater Festival for the environment at Sandy Hook, New Jersey, along with former E Street Band drummer Vini Lopez.<br>
 
-![](../../assets/2020/08/1987-08-16.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/1987-08-16.png.webp)
 
 **1989:** Bruce makes a guest appearance with Bobby Bandiera at Cheers in Long Branch, New Jersey. Their set includes "New Orleans," "Keep A-Knockin'," "Light of Day," and more.<br>
 
@@ -44,7 +44,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=178DZwY1Bio)
 
-![](../../assets/2020/08/2003-08-16.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/08/2003-08-16.png.webp)
 
 **2008:** The Magic Tour is in its home stretch, as Bruce kicks off his Charleston, South Carolina show with a cover of "Double Shot (of My Baby's Love)," played here for the first time in 27 years.<br>
 

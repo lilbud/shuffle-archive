@@ -4,19 +4,19 @@
 
 **1971:** The Bruce Springsteen Band is in residence at The Student Prince in Asbury Park.<br>
 
-![](../../assets/2018/10/1971-1015.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/1971-1015.jpg.webp)
 
 **1973:** Bruce and the as-yet-unnamed E Street Band kick off a four-night stand at Oliver’s in Boston.<br>
 
-![](../../assets/2018/10/1973-1015.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/1973-1015.jpg.webp)
 
 **1984:** The Born in the U.S.A. Tour resumes after a three-week break at Vancouver’s Pacific Coliseum, where an early stage rush temporarily halts the show to ensure that close-up fans are okay. Check out the pro-shot encore footage below.<br>
 
 [Watch on Youtube: Bruce Springsteen - Detroit Medley - Vancouver October 15, 1984.mov](https://www.youtube.com/watch?v=fXB3mqCUMcw)
 
-![](../../assets/2020/10/1984-10-15a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1984-10-15a.png.webp)
 
-![](../../assets/2021/10/1984-10-15b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1984-10-15b.png.webp)
 
 **1988:** The Human Rights Now! Tour comes to a close with a worldwide radio broadcast from the finale in Buenos Aires. This last show features some special guest appearances: David Sancious joins his old band for “[Glory Days,](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” “[Raise Your Hand,](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” and “Twist and Shout”–the latter two featuring Branford Marsalis as well. HBO will air portions of the show in a documentary later in the year, and a DVD/Blu-ray collection will be released many years later.<br>
 
@@ -26,31 +26,31 @@
 
 [Watch on Youtube: Sting, Bruce Springsteen - Every Breath You Take (Live)](https://www.youtube.com/watch?v=6GYt6mzQ3Xo)
 
-![](../../assets/2021/10/1988-10-15a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/10/1988-10-15a.png.webp)
 
-![](../../assets/2020/10/1988-10-15b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1988-10-15b.png.webp)
 
-![](../../assets/2020/10/1988-10-15c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1988-10-15c.png.webp)
 
 **1992:** Bruce and his new touring band take World Tour 1992 north to Canada for three shows, starting with a night at the Pacific Coliseum in Vancouver.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/jYfeO5ry)
 
-![](../../assets/2020/10/1992-10-15.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1992-10-15.png.webp)
 
 **1996:** Bruce performs in Utah for the very first time when his solo acoustic tour stops at Abravanel Hall in Salt Lake City.<br>
 
-![](../../assets/2020/10/1996-10-15.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1996-10-15.png.webp)
 
 **1999:** The Reunion Tour picks up after a two-week break at America West Arena in Phoenix, where Sam Moore joins the reunited E Street Band for an encore (and live debut for Bruce) of “[Soul Man](https://estreetshuffle.com/index.php/2018/07/25/meeting-across-the-river-bruce-springsteen-and-sam-moore-soul-man/).” Take a listen below.<br>
 
 [Watch on Youtube: Bruce Springsteen and Sam Moore - "Soul Man," Phoenix, 1999-10-15](https://www.youtube.com/watch?v=6ohPz5nWewk)
 
-![](../../assets/2020/10/1999-10-15a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1999-10-15a.png.webp)
 
-![](../../assets/2020/10/1999-10-15b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1999-10-15b.png.webp)
 
-![](../../assets/2020/10/1999-10-15c.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/1999-10-15c.png.webp)
 
 **2005:** Bruce returns to Madison, Wisconsin after almost 25 years when his solo acoustic tour stops at the Dane County Arena.<br>
 
@@ -66,19 +66,19 @@
 
 [Watch on Youtube: Blinded By The Light](https://www.youtube.com/watch?v=uzGt4T5lJBQ)
 
-![](../../assets/2020/10/2005-10-15a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2005-10-15a.png.webp)
 
-![](../../assets/2020/10/2005-10-15b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2005-10-15b.png.webp)
 
 **2007:** Bruce tour premieres “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)” early in the set during his Magic Tour stop at the Air Canada Center in Toronto.<br>
 
 [Watch on Youtube: Bruce Springsteen - Magic (Live Toronto 15.10.2007)](https://www.youtube.com/watch?v=hgzYSwLqQcc)
 
-![](../../assets/2020/10/2007-10-15.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/10/2007-10-15.png.webp)
 
 **2014:** Bruce attends the Broadway opening of *The Last Ship*, Sting’s musical about English shipbuilding, at the Neil Simon Theater in New York City.<br>
 
-![](../../assets/2018/10/2014-1027.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/10/2014-1027.jpg.webp)
 
 **2020:** Still in quarantine during the pandemic, Bruce grants interviews via Zoom in support of his upcoming album, [*Letter to You*.](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)<br>
 

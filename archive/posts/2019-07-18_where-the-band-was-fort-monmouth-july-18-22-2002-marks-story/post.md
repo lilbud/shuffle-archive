@@ -16,11 +16,11 @@ My job was to run errands for Bruce and the band. Bruce's cousin had been doing 
 
 Each day, I was sent out to pick up food, supplies, instruments, etc. My down time? Sitting on the side of the stage watching the band go through the songs–an uber fan's dream come true!
 
-![](../../assets/2019/06/2002-07-12.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/06/2002-07-12.jpg.webp)
 
 *Everyone* was so genuine and nice. Bruce really surrounds himself with people like himself. Seeing Bruce and Steve on stage for the first time in many years was a joy to watch. They were really enjoying themselves, lots of laughs and back slaps. A true friendship there.
 
-![](../../assets/2019/07/rehearsal.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/07/rehearsal.jpg.webp)
 
 Standout memories:
 

@@ -1,12 +1,12 @@
 **1969:** Child continues their opening stand at the Pandemonium in Wanamassa, New Jersey. The band will play here for much of April. Red Bank's *Daily Register* spotlights the band in today's paper.<br>
 
-![](../../assets/2021/04/1969-04-04.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1969-04-04.jpg.webp)
 
 **1976:** Bruce and the band play a gig at Michigan State University. The school paper's review is less than enthusiastic.<br>
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-04 MSU Auditorium, East Lansing, MI](https://www.youtube.com/watch?v=GSHBy3lfgWc)
 
-![](../../assets/2018/03/1976-0404.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1976-0404.jpg.webp)
 
 **1979:** Bruce and the E Street Band record the base track for "Roulette" at the Power Station in New York City.<br>
 
@@ -16,7 +16,7 @@
 
 **1981:** Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.<br>
 
-![](../../assets/2018/03/1981-0318.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1981-0318.jpg.webp)
 
 **1985:** Bruce and the E Street Band play their final Australian show of the Born in the U.S.A. Tour in Melbourne. Bruce will not perform in the country again for twelve years.<br>
 
@@ -26,13 +26,13 @@
 
 [Watch Video Highlight](https://videopress.com/embed/WlaAr5RE)
 
-![](../../assets/2020/03/1988-04-04a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1988-04-04a.jpg.webp)
 
-![](../../assets/2022/04/1988-04-04b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/04/1988-04-04b.jpg.webp)
 
-![](../../assets/2020/03/1988-04-04c.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1988-04-04c.jpg.webp)
 
-![](../../assets/2020/03/1988-04-04d.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1988-04-04d.jpg.webp)
 
 **1993:** Night Two in Dortmund, Germany, for Bruce's World Tour 1993 features a rare (back then, anyway) acoustic arrangement of "The Promised Land" along with acoustic versions of "Seeds" and "Adam Raised a Cain" as well.<br>
 
@@ -46,7 +46,7 @@
 
 [Watch on Youtube: Bruce Springsteen - WHAT A BEAUTIFUL MORNING 1998 (audio)](https://www.youtube.com/watch?v=sMm2Ig691KY)
 
-![](../../assets/2024/04/Newsday__Nassau_Edition__Mon__Apr_6__1998_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Newsday__Nassau_Edition__Mon__Apr_6__1998_.jpg.webp)
 
 **2000:** Bad Seattle traffic delays Bruce's show at the Tacoma Dome. Bruce makes up for it by delivering a scorching set, filmed in its entirety by a fan in the audience and paired with an IEM recording. Watch this amazing (for the time) full show video below, and check out the somersault at the end of the final encore of Ramrod!<br>
 
@@ -54,9 +54,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/P8RSioXo)
 
-![](../../assets/2020/03/2000-04-04a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2000-04-04a.jpg.webp)
 
-![](../../assets/2020/03/2000-04-04b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2000-04-04b.jpg.webp)
 
 **2005:** Bruce tapes an episode of VH1 Storytellers before a live audience in Red Bank, where he debuts "Devils & Dust" and "Jesus Was an Only Son." Following the show, Bruce holds a rare Q&A session. Watch the show below, including the Q&A session.<br>
 
@@ -86,9 +86,9 @@
 
 Meanwhile, *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Among the attendees this evening: Tony Goldwyn and Oprah Winfrey.
 
-![](../../assets/2019/04/oprah-winfrey.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/04/oprah-winfrey.jpg.webp)
 
-![](../../assets/2019/04/tony-goldwyn.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/04/tony-goldwyn.jpg.webp)
 
 **2024:** Bruce shakes things up in Inglewood with a setlist inspired by the return of Patti Scialfa to the E Street stage. Four tour debuts tonight, including the show-opening cover of "Boom Boom," "Tougher Than the Rest," "Fire" and "Jole Blon."<br>
 

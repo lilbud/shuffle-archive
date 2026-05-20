@@ -6,9 +6,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/CMB9DGt1)
 
-![](../../assets/2025/01/Edmonton_Journal_1981_01_22_34-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/Edmonton_Journal_1981_01_22_34-scaled.jpg.webp)
 
-![](../../assets/2018/01/1981-0120b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/01/1981-0120b.jpg.webp)
 
 **1983:** Bruce records “[Little Girl (Like You)](https://estreetshuffle.com/index.php/2018/06/15/roll-of-the-dice-little-girl-like-you/)” and “[Betty Jean](https://estreetshuffle.com/index.php/2019/02/13/roll-of-the-dice-betty-jean/).” Both remain unreleased to this day.<br>
 
@@ -28,19 +28,19 @@
 
 [Watch on Youtube: Entertainment Tonight - 1988-01-21 - Rock and Roll Hall of Fame Ceremonies](https://www.youtube.com/watch?v=nyp2_b-0aIA)
 
-![](../../assets/2021/01/1988-01-20.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/1988-01-20.png.webp)
 
 **1991:** Bruce joins Max and others at McLoone’s Rum Runner in Sea Bright, New Jersey for a benefit for Jim Faulkner. Amongst the set of covers: a smoking “[Tobacco Road](https://estreetshuffle.com/index.php/2018/11/21/meeting-across-the-river-bruce-springsteen-max-weinberg-and-tim-mcloone-tobacco-road/).”<br>
 
 [Watch on Youtube: Bruce Springsteen, Max Weinberg, Tim McLoone - "Tobacco Road" - Sea Bright, 1991-01-20](https://www.youtube.com/watch?v=x_4ldqSuqNg)
 
-![](../../assets/2025/01/Asbury_Park_Press_1991_01_25_Page_38.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/01/Asbury_Park_Press_1991_01_25_Page_38.jpg.webp)
 
 **1994**: At the Rock and Roll Hall of Fame induction ceremony, Rod Stewart and Elton John are slated to perform a duet of “[Come Together.](https://estreetshuffle.com/index.php/2018/01/15/meeting-across-the-river-bruce-springsteen-and-axl-rose/)” At the last minute, Rod isn’t able to make it, so the producers ask Bruce to step in. Bruce declines, so they move on to Axl Rose, who accepts. Apparently Axl is a more intriguing duet partner than Elton, though, because when Axl asks Bruce to join him, this time Bruce says yes. Axl and Bruce had no warning this was coming, and therefore no rehearsal time. Mere minutes after being asked to step in, this is what went down.<br>
 
 [Watch on Youtube: Axl Rose and Bruce Springsteen perform "Come Together"](https://www.youtube.com/watch?v=UtzkBewRsiE)
 
-![](../../assets/2021/01/1994-01-20.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/01/1994-01-20.png.webp)
 
 **2018:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 

@@ -1,8 +1,8 @@
 **1972:** The Bruce Springsteen Band headlines a show at Rutgers University.<br>
 
-![](../../assets/2021/04/1972-04-15.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1972-04-15.jpg.webp)
 
-![](../../assets/2018/04/1972-0415.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1972-0415.jpg.webp)
 
 **1975:** Bruce’s interview with Bill Ayres (recorded in late 1974) premieres on the radio show *On This Rock.* It’s not exactly Bruce at his most articulate, but it’s an interesting listen.<br>
 
@@ -10,15 +10,15 @@
 
 **1976:** The Chicken Scratch Tour moves on to Pittsburgh, for a single show at the Syria Mosque.<br>
 
-![](../../assets/2020/04/1976-04-15.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1976-04-15.jpg.webp)
 
-![](../../assets/2021/04/1976-0415.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1976-0415.jpg.webp)
 
 **1979:** Bruce joins Beaver Brown and Asbury Jukes members Joel Gramolini, Kevin Kavanaugh, Ed Manion, and Ritchie Rosenberg for four songs at The Fast Lane in Asbury Park.<br>
 
-![](../../assets/2018/04/1975-0415.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1975-0415.jpg.webp)
 
-![](../../assets/2018/04/1979-0415b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/1979-0415b.jpg.webp)
 
 **1985:** The fourth of five nights at Tokyo’s Yoyogi National Gymnasium.<br>
 
@@ -28,17 +28,17 @@
 
 [Watch Video Highlight](https://videopress.com/embed/GU2F61f3)
 
-![](../../assets/2020/04/1988-04-15a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-04-15a.jpg.webp)
 
-![](../../assets/2020/04/1988-04-15b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-04-15b.jpg.webp)
 
-![](../../assets/2020/04/1988-04-15c.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/1988-04-15c.jpg.webp)
 
 **1993:** The first of two shows at Sheffield Arena in England.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/HTAFhS2M)
 
-![](../../assets/2024/04/Manchester_Evening_News_Fri__Apr_16__1993_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/04/Manchester_Evening_News_Fri__Apr_16__1993_.jpg.webp)
 
 Before the show, Bruce sits down for an interview that will air shortly before his show at Milton Keynes the following month.
 
@@ -60,11 +60,11 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 [Watch Video Highlight](https://videopress.com/embed/yXOohZUy)
 
-![](../../assets/2020/04/2000-04-15.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2000-04-15.jpg.webp)
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park. Fans are delighted when Bruce announces two rehearsal shows in Asbury Park for the following week.<br>
 
-![](../../assets/2020/04/2005-04-15.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2005-04-15.jpg.webp)
 
 **2009:** At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on “The Ghost of Tom Joad” and “Hard Times (Come Again No More).” Making their tour premieres tonight: “Darkness on the Edge of Town,” “Spirit in the Night,” and “Raise Your Hand.”<br>
 
@@ -72,14 +72,14 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 [Watch on Youtube: Bruce Springsteen "Darkness on the Edge of Town" 4/15/09 Los Angeles Sports Arena](https://www.youtube.com/watch?v=cgZBKgpCOD4)
 
-![](../../assets/2021/04/2009-04-15a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2009-04-15a.jpg.webp)
 
-![](../../assets/2020/04/2009-04-15b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2009-04-15b.jpg.webp)
 
 **2010:** Bruce joins Rosanne Cash on stage at Duke University for a live performance of their duet, “Sea of Heartbreak.”<br>
-![](../../assets/2021/04/2010-04-15.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2010-04-15.jpg.webp)
 
-![](../../assets/2018/04/2010-0415.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/04/2010-0415.jpg.webp)
 
 **2011:** *Little Steven's Underground Garage* airs the third and final part of "The Bruce and Stevie Show." Essential listening for fans of Bruce, Steve, great music, and great friendships.<br>
 
@@ -87,7 +87,7 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 **2013:** Bruce and Patti catch their friend Rita Wilson in concert at 54 Below on New York City.<br>
 
-![](../../assets/2025/04/medium-3.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/04/medium-3.jpg.webp)
 
 **2014:** The High Hopes Tour hits Columbus, bringing with it the tour premiere of “Blinded by the Light.”<br>
 
@@ -101,7 +101,7 @@ Before the show, Bruce sits down for an interview that will air shortly before h
 
 [Watch on Youtube: Bruce Springsteen, Wonder Bar, Asbury Park, April 15, 2018](https://www.youtube.com/watch?v=KTRrWFRSS3c)
 
-![](../../assets/2020/04/2018-04-15.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/04/2018-04-15.jpg.webp)
 
 **2023:** Bruce and Patti are scheduled to present (and perform) at the first annual American Music Honors at Monmouth University, but they are unfortunately forced to cancel when they test positive for COVID-19 the morning of the event. Still, Bruce records video tributes for honorees Darlene Love and Steven Van Zandt, and his videos are shown during the event.<br>
 

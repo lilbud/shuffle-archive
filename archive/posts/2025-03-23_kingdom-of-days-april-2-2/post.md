@@ -2,17 +2,17 @@
 
 **1969:** Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they’ll rename themselves Steel Mill.<br>
 
-![](../../assets/2018/03/1969-0402.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1969-0402.jpg.webp)
 
 **1971:** Bruce and Steve play The Upstage in Asbury Park, leading separate bands but each playing a slate of hits from the 1950s.<br>
 
 **1976:** The Chicken Scratch Tour moves on to Louisville with a show at the Macauley Theater.<br>
 
-![](../../assets/2021/04/1976-04-02.jpg)![](../../assets/2021/04/1976-04-02.jpg)![](../../assets/2020/03/1976-04-02.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1976-04-02.jpg)![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/1976-04-02.jpg)![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1976-04-02.jpg.webp)
 
 **1981:** Bruce postpones a scheduled show in London to recover from the previous leg of the River Tour.<br>
 
-![](../../assets/2018/03/1981-0318.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1981-0318.jpg.webp)
 
 **1988:** Bruce and the E Street Band play their second of two Tunnel of Love Express shows at Nassau Coliseum in Uniondale, New York.<br>
 
@@ -46,10 +46,10 @@
 
 [Watch on Youtube: Bruce Springsteen: Johnny B. Goode @ The Wonder Bar 4/2/11](https://www.youtube.com/watch?v=lDmD6K13Jdk)
 
-![](../../assets/2021/04/2011-04-02a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2011-04-02a.jpg.webp)
 
-![](../../assets/2020/03/2011-04-02b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2011-04-02b.jpg.webp)
 
 Following the show, Bruce stops by the after-party for Clarence’s film at Syanxis. It’s the last time Bruce and Clarence will be seen together in public.
 
-![](../../assets/2021/04/2011-04-02b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/04/2011-04-02b.png.webp)

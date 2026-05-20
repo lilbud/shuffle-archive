@@ -12,7 +12,7 @@
 
 [Watch on Youtube: Bruce Springsteen Torino 11/6/1988 Full Concert](https://www.youtube.com/watch?v=adIkoqMKc1o)
 
-![](../../assets/2024/06/Daily_News_Thu__Jun_16__1988_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Daily_News_Thu__Jun_16__1988_-scaled.jpg.webp)
 
 **1999:** Bruce and the reunited E Street Band make a tour stop in Genoa, Italy.<br>
 
@@ -36,11 +36,11 @@
 
 [Watch on Youtube: Bruce Springsteen Jacob's ladder live in St. Paul](https://www.youtube.com/watch?v=OJZmPNby-9U)
 
-![](../../assets/2020/05/2006-06-11.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/05/2006-06-11.jpg.webp)
 
 **2007:** Bruce joins Jackson Browne, Tom Chapin, and others at a World Hunger Year benefit at The Lighthouse at Chelsea Piers in New York City.<br>
 
-![](../../assets/2024/06/Oakland_Tribune_Wed__Jun_13__2007_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/06/Oakland_Tribune_Wed__Jun_13__2007_.jpg.webp)
 
 **2012:** Elliott Murphy guest-stars in Trieste at the last Italian show of the 2012 tour.<br>
 

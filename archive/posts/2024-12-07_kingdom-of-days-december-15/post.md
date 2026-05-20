@@ -18,19 +18,19 @@
 
 [Watch on Youtube: Fire (Live at Winterland Arena, San Francisco, CA - 12/15/1978)](https://www.youtube.com/watch?v=KibHV3ruSsA)
 
-![](../../assets/2020/11/1978-12-15.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1978-12-15.png.webp)
 
 **1980:** Bruce and the boys play their first of two River Tour nights at the Boston Garden.<br>
 
 [Watch on Youtube: Bruce Springsteen - "For You" - Boston, 1980-12-15](https://www.youtube.com/watch?v=1z2be7bb0QI)
 
-![](../../assets/2020/11/1980-12-15.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/11/1980-12-15.png.webp)
 
 **1995:** Bruce plays his first of two solo acoustic shows at the Orpheum Theater in Boston, where he plays every song from [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) for the last time to date.<br>
 
 [Watch Video Highlight](https://videopress.com/embed/8xw9PMw0)
 
-![](../../assets/2018/12/1995-1215.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/12/1995-1215.jpg.webp)
 
 **2001:** Bruce makes a guest appearance with Tim McLoone’s Holiday Express at the Continental Airlines Arena in East Rutherford.<br>
 
@@ -38,7 +38,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/fJB1UM0k)
 
-![](../../assets/2024/12/Asbury_Park_Press_2001_12_21_Page_102-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/12/Asbury_Park_Press_2001_12_21_Page_102-scaled.jpg.webp)
 
 **2007:** Bruce and the E Street Band bring the Magic Tour to the Odyssey Arena in Belfast.<br>
 
@@ -48,7 +48,7 @@
 
 [Watch on Youtube: Bruce Springsteen Belfast 15/12/2007 Full Concert](https://www.youtube.com/watch?v=SglU5VBOpR8)
 
-![](../../assets/2023/12/The_Daily_Telegraph_Mon__Dec_17__2007_.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2023/12/The_Daily_Telegraph_Mon__Dec_17__2007_.jpg.webp)
 
 **2012:** Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, joining Mick Jagger on vocals for “[Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/).”<br>
 
@@ -56,15 +56,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/isyosNGt)
 
-![](../../assets/2020/12/2012-12-15.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2012-12-15.png.webp)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.<br>
 
 **2018:** *Springsteen on Broadway* closes its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Oprah Winfrey. Shortly after the show ends, Netflix releases the show on streaming video.<br>
 
-![](../../assets/2020/12/2018-12-15a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2018-12-15a.png.webp)
 
-![](../../assets/2020/12/2018-12-15b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/12/2018-12-15b.png.webp)
 
 [Watch on Youtube: Springsteen on Broadway | Official Trailer [HD] | Netflix](https://www.youtube.com/watch?v=M1xDzgob1JI)
 

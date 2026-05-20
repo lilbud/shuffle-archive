@@ -4,21 +4,21 @@
 
 **1970:** Steel Mill headlines at Asbury Park’s Sunshine In.<br>
 
-![](../../assets/2018/07/1970-0718.jpeg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1970-0718.jpeg.webp)
 
-![](../../assets/2020/07/1970-07-18.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1970-07-18.png.webp)
 
 **1971:** The Bruce Springsteen Band headlines an outdoor show at Monroe Park in Richmond.<br>
 
 **1973:** Bruce and the E Street Band headline two shows at Max’s Kansas City in New York, kicking off a six-night/twelve-show stand. The opening act: Bob Marley and the Wailers, on their very first American tour.<br>
 
-![](../../assets/2025/07/Capture.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2025/07/Capture.jpg.webp)
 
-![](../../assets/2018/07/1973-0718.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1973-0718.jpg.webp)
 
 **1974:** Bruce and the E Street Band play two shows at Le Garage in Spray Beach, New Jersey.<br>
 
-![](../../assets/2018/07/1974-0718.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/07/1974-0718.jpg.webp)
 
 **1975:** Bruce completes “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” and “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)” at the Record Plant in New York City, a mere month before both songs would appear on record store shelves, and only two days before the kickoff of the the Born to Run Tour.<br>
 
@@ -30,7 +30,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/cBZLC6qs)
 
-![](../../assets/2021/07/1978-07-18.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/1978-07-18.png.webp)
 
 **1979:** At The Power Station in New York City, Bruce records “[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)” and “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/).” It will be almost two decades before they see an album release.<br>
 
@@ -58,9 +58,9 @@
 
 [Watch on Youtube: Freehold (Live at Continental Airlines Arena, E. Rutherford, NJ - 7/18/1999)](https://www.youtube.com/watch?v=dThZ2c3DTxA)
 
-![](../../assets/2020/07/1999-07-18a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1999-07-18a.png.webp)
 
-![](../../assets/2020/07/1999-07-18b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/1999-07-18b.png.webp)
 
 **2002:** Bruce and the E Street Band rehearse for the upcoming Rising Tour.<br>
 
@@ -76,9 +76,9 @@
 
 [Watch on Youtube: Bruce Springsteen When You're Alone Buffalo 18/07/2005](https://www.youtube.com/watch?v=sPziI_eo7fk)
 
-![](../../assets/2020/07/2005-07-18a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2005-07-18a.png.webp)
 
-![](../../assets/2020/07/2005-07-18b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2005-07-18b.png.webp)
 
 **2012:** On Night Two in Dublin on the Wrecking Ball Tour, an injured Jake Clemons takes the stage in a wheelchair. He threw his back out the night before, and Bruce gently (and very cleverly) teases him during “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/).”<br>
 
@@ -108,9 +108,9 @@
 
 [Watch on Youtube: Bruce Springsteen Live at Wonder Bar -- Save my Love Asbury Park NJ 07/18/2015](https://www.youtube.com/watch?v=YVqt-El6LDA)
 
-![](../../assets/2021/07/2015-07-18a.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/07/2015-07-18a.png.webp)
 
-![](../../assets/2020/07/2015-07-18b.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2015-07-18b.png.webp)
 
 **2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores (“[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” and “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)“) and will be released on the streaming service (and on album) to much acclaim later in the year.<br>
 
@@ -120,7 +120,7 @@ Later that evening, Bruce joins Billy Joel on stage at Madison Square Garden to 
 
 [Watch on Youtube: Bruce Springsteen at Billy Joel #MSG100 10th. Avenue Freeze Out & Born to Run.](https://www.youtube.com/watch?v=Lz-lFobWvTs)
 
-![](../../assets/2020/07/2018-07-18.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/07/2018-07-18.png.webp)
 
 **2023:** For the first time in over two decades, Bruce plays an identical setlist to his previous show when World Tour 2023 stops in Vienna, Austria.<br>
 

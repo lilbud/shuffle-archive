@@ -1,8 +1,8 @@
 **1975:** Bruce cancels a show at Moravian College to make room for *Born to Run* recording sessions.<br>
 
-![](../../assets/2021/02/1975-02-21.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1975-02-21.png.webp)
 
-![](../../assets/2020/02/1975-02-21.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/02/1975-02-21.jpg.webp)
 
 **1995:** After more than five years apart, Bruce reconvenes the E Street Band to promote his *Greatest Hits* album. The band gathers at Tramps nightclub in New York City and rehearses for their gig that evening, where they will debut and record a live performance video for "[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)." Many fan favorites also make their return on this night, including the first-ever full-band performance of "This Hard Land."<br>
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Murder Incorporated](https://www.youtube.com/watch?v=Jj7hvKQ6Uhc)
 
-![](../../assets/2021/02/1995-02-21.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/1995-02-21.png.webp)
 
 **1996:** Bruce brings his solo acoustic tour to Paris for the first of two shows at Le Zenith de Paris.<br>
 
@@ -32,9 +32,9 @@
 
 [Watch on Youtube: Bruce Springsteen - "Cadillac Ranch" Yum Center 2/21/16 (The Cat in the Hat by Dr. Bruce)](https://www.youtube.com/watch?v=gMCyJkD0VKA)
 
-![](../../assets/2021/02/2016-02-21a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/2016-02-21a.jpg.webp)
 
-![](../../assets/2021/02/2016-02-21b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/2016-02-21b.jpg.webp)
 
 **2017:** Bruce plays his first show ever in Christchurch, New Zealand. The show features a poignant "My City of Ruins," played for the city that suffered a devastating earthquake in 2011.<br>
 
@@ -52,4 +52,4 @@
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - "Bobby Jean" - Tulsa, Oklahoma - February 21, 2023](https://www.youtube.com/watch?v=2AqGRt4kw5U)
 
-![](../../assets/2024/02/Tulsa_World_Thu__Feb_23__2023_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/02/Tulsa_World_Thu__Feb_23__2023_-scaled.jpg.webp)

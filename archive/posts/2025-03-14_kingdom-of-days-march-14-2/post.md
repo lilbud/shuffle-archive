@@ -6,7 +6,7 @@
 
 **1973:** Bruce and the band play their third of seven nights at Oliver's in Boston.<br>
 
-![](../../assets/2018/03/1973-0316.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1973-0316.jpg.webp)
 
 **1975:** Extended studio sessions for *Born to Run* prompt the postponement of a scheduled show in Atlanta.<br>
 
@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Bruce Springsteen - SOMETHING IN THE NIGHT 1977 - (audio)](https://www.youtube.com/watch?v=siJK0UsD03I)
 
-![](../../assets/2022/03/1977-03-14.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/03/1977-03-14.jpg.webp)
 
 **1978:** Bruce work on "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" for his upcoming album at the Record Plant in New York City.<br>
 
@@ -26,15 +26,15 @@
 
 [Watch on Youtube: Bruce Springsteen and Robert Gordon - Asbury Park - 1979-03-14](https://www.youtube.com/watch?v=kDT1IIz7_Og)
 
-![](../../assets/2020/03/1979-03-14.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1979-03-14.jpg.webp)
 
-![](../../assets/2018/03/1979-0314.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2018/03/1979-0314.jpg.webp)
 
 **1988:** Night Two in Richfield for the Tunnel of Love Express Tour, where Bruce is moved to add a mid-song story to "[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)."<br>
 
 [Watch Video Highlight](https://videopress.com/embed/0mmIy6i6)
 
-![](../../assets/2020/03/1988-03-14.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/1988-03-14.jpg.webp)
 
 **1996:** Bruce plays a solo acoustic show at the Spektrum in Oslo.<br>
 
@@ -46,7 +46,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/9SQOEqsQ)
 
-![](../../assets/2020/03/2000-03-14.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2000-03-14.jpg.webp)
 
 **2005:** Bruce returns a favor by inducting U2 into the Rock and Roll Hall of Fame; he later performs with them on "[I Still Haven't Found What I'm Looking For](https://estreetshuffle.com/index.php/2019/02/25/matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/)."<br>
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: U2 with Bruce Springsteen - "I Still Haven't Found What I'm Looking For" | 2005 Induction](https://www.youtube.com/watch?v=FlgYdxUdckQ)
 
-![](../../assets/2021/02/2005-03-14.png)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/2005-03-14.png.webp)
 
 **2008:** Bruce plays Omaha for the first time in 30 years when the Magic Tour stops at Qwest Center. Conor Oberst makes a guest-appearance on "Thunder Road." (It's not exactly a highlight.)<br>
 
@@ -62,9 +62,9 @@
 
 [Watch on Youtube: Reason To Believe Springsteen](https://www.youtube.com/watch?v=8mk4DZWaXCQ)
 
-![](../../assets/2021/02/2008-03-14a.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2021/02/2008-03-14a.jpg.webp)
 
-![](../../assets/2020/03/2008-03-14b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2020/03/2008-03-14b.jpg.webp)
 
 **2011:** Bruce and Curtis King join Darlene Love on stage at her induction ceremony into the Rock and Roll Hall of Fame. Their short set includes "[Zip a Dee Doo Dah](https://estreetshuffle.com/index.php/2018/08/28/meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/)," "[(Today I Met) The Boy I'm Going to Marry](https://estreetshuffle.com/index.php/2018/11/12/matr-darlene-love-bruce-springsteen-and-the-cbs-orchestra-today-i-met-the-boy-im-gonna-marry/)," and "[He's a Rebel](https://estreetshuffle.com/index.php/2021/10/02/matr-darlene-love-bette-midler-and-bruce-springsteen-hes-a-rebel/)." Bette Midler joins for the final song.<br>
 
@@ -80,7 +80,7 @@
 
 [Watch on Youtube: Beast of Burden - Alejandro Escovedo, Bruce Springsteen and Garland Jeffreys](https://www.youtube.com/watch?v=v4qVHAJX03c)
 
-![](../../assets/2022/03/2012-03-14-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/03/2012-03-14-scaled.jpg.webp)
 
 **2013:** The Australian leg of the Wrecking Ball Tour kicks off with the first of two nights in Brisbane. Tom Morello is along for the ride, filling in for Steve Van Zandt (who is filming his *Lilyhammer* series during this time), and "[Just Like Fire Would](https://estreetshuffle.com/index.php/2020/05/24/cover-me-just-like-fire-would/)" is premiered, sparking the inspiration as the tour progresses for what will become the *High Hopes* album.<br>
 
@@ -96,12 +96,12 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, with a special invite-only show for Sirius XM radio listeners who entered and won a contest. Emmylou Harris, Katy Perry, Ricky Gervais, and Howard Stern are there tonight as well, but I suspect they procured their tickets through other means.<br>
 
-![](../../assets/2019/03/39926163585_5b24155cf8_o.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2019/03/39926163585_5b24155cf8_o.jpg.webp)
 
-![](../../assets/2022/03/2018-03-14b.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2022/03/2018-03-14b.jpg.webp)
 
 **2023:** Bruce cancels his third consecutive show due to an undisclosed illness. His show at MVP Arena in Albany will be rescheduled but ultimately postponed yet again for illness.<br>
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band postpone Albany concert](https://www.youtube.com/watch?v=A5ODsZX-16U)
 
-![](../../assets/2024/03/The_Brownsville_Herald_Mon__Mar_13__2023_-scaled.jpg)
+![](https://raw.githubusercontent.com/lilbud/shuffle-archive/refs/heads/main/assets/2024/03/The_Brownsville_Herald_Mon__Mar_13__2023_-scaled.jpg.webp)
